@@ -80,10 +80,7 @@ def format_article_content(orig_content: str) -> str:
         [r"\*\(", "* ("],  # fix no space between star and parenthesis
         [r"\)\*", ")* "],  # fix no space between closing star and parenthesis
         [r"\*\.\*", "."],  # replace *.* with ., unknown why this appears
-        [
-            r"i0.wp.com\/|\?resize=.*ssl=1",
-            "",
-        ],  # remove resize param from image tag
+        [r"i0.wp.com\/|\?resize=.*ssl=1", ""],  # remove resize param from image tag
     ]
 
     youtube_urls = re.findall(
