@@ -115,45 +115,42 @@ def get_latest_posts():
     ) as client:
         existing_posts = {int(i.stem) for i in Path("./posts").iterdir()}
 
-        for category, category_name in categories.items():
-            print(category_name)
+        res = client.get(
+            "https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25",
+        )
 
-            res = client.get(
-                f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?categories={category}&per_page=25",
+        total_posts = int(res.headers["x-wp-total"])
+        total_pages = int(res.headers["x-wp-totalpages"])
+
+        if total_pages > 1:
+            print(
+                f"Found {total_pages} pages and {total_posts} posts",
             )
 
-            total_posts = int(res.headers["x-wp-total"])
-            total_pages = int(res.headers["x-wp-totalpages"])
+            for i in range(1, total_pages + 1):
+                print(f"Page {i}")
 
-            if total_pages > 1:
-                print(
-                    f"Found {total_pages} pages and {total_posts} posts for category {category_name}",
-                )
+                url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?page={i}&per_page=25"
+                res = client.get(url)
 
-                for i in range(1, total_pages + 1):
-                    print(f"Page {i}")
+                post_ids = {int(post["id"]) for post in res.json()}
+                posts = res.json()
 
-                    url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?categories={category}&page={i}&per_page=25"
-                    res = client.get(url)
+                if not post_ids.issubset(existing_posts):
+                    print("found unsaved posts")
+                    for post in posts:
+                        save_path = Path(f"./posts/{post['id']}.json")
 
-                    post_ids = {int(post["id"]) for post in res.json()}
-                    posts = res.json()
+                        if not save_path.exists():
+                            print(f"{save_path.name} doesn't exist")
 
-                    if not post_ids.issubset(existing_posts):
-                        print("found unsaved posts")
-                        for post in posts:
-                            save_path = Path(f"./posts/{post['id']}.json")
+                            with save_path.open("w", encoding="utf-8") as f:
+                                json.dump(post, f)
+                else:
+                    print("all posts already saved, exiting")
+                    break
 
-                            if not save_path.exists():
-                                print(f"{save_path.name} doesn't exist")
-
-                                with save_path.open("w", encoding="utf-8") as f:
-                                    json.dump(post, f)
-                    else:
-                        print("all posts already saved, exiting")
-                        break
-
-            print("-" * 20)
+        print("-" * 20)
 
 
 if __name__ == "__main__":

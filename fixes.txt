@@ -5,3 +5,8 @@
 \)\*"  # fix no space between closing star and parenthesis
 \*\.\*  # replace *.* with ., unknown why this appears
 i0.wp.com\/|\?resize=.*ssl=1  # wordpress resized image url. Luckily the direct image can be found by removing the "i0.wp.com" prefix and "?resize=...ssl=1" suffix.
+&#8217; # convert weird apostrophe(?) to single quote
+&#8220; # fix opening double quote
+&#8221; # fix opening double quote
+\u00a0 replace with &nbsp;
+\n # replace with <br>
