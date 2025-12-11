@@ -1,0 +1,82 @@
+# Roll of the Dice: All the Way Home
+#### Originally Published on Ken Rosen's E Street Shuffle blog at https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/
+#### Published: September 08, 2019
+#### Last Updated: December 15, 2020
+![allthewayhome_cov-southsidejohnny_sin-nl-p519173.jpg](https://estreetshuffle.com/wp-content/uploads/2019/09/allthewayhome_cov-southsidejohnny_sin-nl-p519173.jpg)
+
+I love this song.
+I mean, I *hate* this song, but I love this song.
+Maybe I have that backwards.
+Across Bruce’s entire catalog, “All the Way Home” is probably the song I grapple with the most, because Bruce keeps tinkering with it. There are at least four different arrangements out there in studio and bootleg form, and possibly more depending on where you draw the line.
+And whether “All the Way Home” soars or crashes like a drunk on a barroom floor varies depending on the arrangement and vocal style du jour (and of course, personal preference).
+“All the Way Home” made its debut on Southside Johnny’s 1991 *Better Days* album. Produced by Steve Van Zandt, the album was something of a return to glory for Southside and arguably one of his best albums. And although Steve wrote most of the songs on the album, buried way down toward the very end you’ll find a gorgeous, soulful “[Tougher than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” style ballad written by Bruce.
+Bruce makes an appearance on the track, too–playing guitar and keyboard and contributing his backing vocals. (Garry and Max are on the track as well, a partial E Street Band reunion during the great diaspora.) But honestly, the track would have been just as strong without Bruce’s presence–he’d written a perfect song for Southside’s vocal stylings, and in fact I’d argue that “All the Way Home” is one of Southside’s finest moments on record.
+Let’s take a listen:
+[Youtube: All the way home/Southside Johnny & the Asbury Jukes](https://www.youtube.com/watch?v=JhP4ZBIxpeE)
+![](https://www.youtube.com/watch?v=JhP4ZBIxpeE)
+Man, that’s a great song. Every time I listen to it–and I mean *every* time–I can’t help but get lost in it.
+*I know what it’s like to have failed baby*
+*With the whole world looking on*
+*I know what it’s like to have been so sure*
+*And I wake up and find it all gone*
+Southside sings with such empathy–just listen to the way he gently lands the word “failed” in the first couplet, or the way he draws out “so sure” in the second. If there was ever a case of a singer and song in full emotional alignment, this would be it.
+But we’ve gotta give equal credit to Bruce for his gorgeous lyrics. While it would be fair criticism to state that “All the Way Home” treads the same exact ground as “Tougher Than the Rest,” as much as I adore the latter song, I’d argue that “All the Way Home” walks it in a more mature and vulnerable fashion.
+*Now you’ve got no reason, no reason to trust me*
+*And tonight my confidence is a little rusty*
+*It’s getting late, if you don’t feel like leaving alone*
+*Maybe I can walk you baby all the way home*
+It’s a tribute to both Bruce’s lyrics and Southside’s vocals that the key line that serves in lieu of a chorus–“maybe I can walk you, baby, all the way home”–works equally well as a romantic gesture, a sexual come-on, or simply an act of empathy. I suspect Bruce meant it as all three at once, and Southside understands that intuitively.
+*Our old fears and failures well they do linger, oh yes they do*
+*Like the shadow of that ring that was on your finger*
+*Well all those days darling, oh those days are dead and gone*
+*Oh I could walk you baby all the way home*
+The first couplet in that verse is magnificently haunting. If a wedding ring is by definition a symbol of a marriage, it makes sense that the impressions made by both the marriage and the ring last long after one sheds them, a constant reminder of failure. Or as Bruce puts it in the song’s bridge:
+*Now there’s things no one can rearrange*
+*We both have yesterdays that we can’t change*
+The final verse ends in the same place where “Tougher Than the Rest” begins: in a bar with two lonely hearts looking for a chance to get it right. But whereas the hero of “Tougher” is confident, pragmatic, and boastful, the hero of “All the Way Home” is insecure, battle-scarred, and humble–which makes him a much braver protagonist.
+*It’s closing time, bartender’s ringing last call*
+*And these days I don’t stand on pride and I’ve learned how to take a fall*
+*But now the time’s come and if your first choice he’s gone*
+*Well that’s alright baby ’cause I can walk you all the way home*
+To put it another way: “Tougher Than the Rest” is the song you write before you’ve actually been through a divorce; “All the Way Home” is the song you write after experiencing it.
+---
+Bruce debuted his live solo rendition of “All the Way Home” very early in his 1992 tour, breaking it out in the middle of his homecoming stand at the Meadowlands.
+[Youtube: Bruce Springsteen All the way home meadowlands 1992](https://www.youtube.com/watch?v=_FhpvZT3dks)
+![](https://www.youtube.com/watch?v=_FhpvZT3dks)
+Bruce played it again a week later, this time as a beautiful duet with Southside Johnny.
+[Youtube: Bruce Springsteen with Southside Johnny  - ALL THE WAY HOME  1992 live](https://www.youtube.com/watch?v=4eUlKzoBLTs)
+![](https://www.youtube.com/watch?v=4eUlKzoBLTs)
+For a few weeks, it seemed like we had a setlist keeper on our hands, but unfortunately, Bruce dropped the song by Labor Day. Other than a one-off performance the following spring, Bruce didn’t touch “All the Way Home” for more than two decades.
+And then came *Devils & Dust.*
+When the track list was announced for Bruce’s 2005 album, I was delighted to discover that Bruce was finally recording and releasing his own version of the song. (It would be neither the first nor the last time Bruce gave a song to Southside and then subsequently released it himself.)
+But nothing prepared me for what my ears encountered when I first played the CD and heard… this.
+[Youtube: All The Way Home](https://www.youtube.com/watch?v=b9rYol3bFeE)
+![](https://www.youtube.com/watch?v=b9rYol3bFeE)
+Now, don’t get me wrong: I am by no means a purist, traditionalist, or whatever label you want to apply to someone who can’t accept an alternative arrangement to a beloved song. Bruce’s skill as an arranger–his uncanny ability to recast and reinvent his songs time and time again–is in fact the talent of his that I admire the most.
+But if the *Better Days* version of “All the Way Home” notches a high score in my personal rankings of Bruce’s catalog, the *Devils & Dust* version of “All the Way Home” sits way down toward the bottom.
+It’s not because of the few but significant lyrical changes, although I’m not a great fan of them.
+“I know what it’s like to have soared and come crashing like a drink on a barroom floor” is certainly a great line. So great, in fact, that Bruce had already used it more than a decade earlier in “My Beautiful Reward.”
+But that bridge–“Love leaves nothing but shadows and vapor/We go on as is our sad nature”–leaving aside the awkward, incorrect syntax of that second line (who talks like that?), the first line is simply a less artful restating of the previous verse’s “shadow of the ring on your finger” line. There’s simply no point to this couplet. And the second couplet about the Stones’ song is just superfluous.
+Compare this new bridge with the original…
+*Now there’s things no one can rearrange*
+*We both have yesterdays that we can’t change*
+…and it’s clear (at least to me) that lyrically, the song has been weakened by Bruce’s changes.
+But like I said, those differences aren’t the reason I throw shade on Bruce’s version of “All the Way Home.” It’s not the lyrics, nor is it the country-rock backing track with Brendan O’Brien’s inventive use of the sitar and sarangi.
+It’s those vocals.
+It pains me to write this, because even in the case of Bruce’s few musical misfires (hi there, “Cover Me”) and production overindulgences (I’m looking at you, *Human Touch),* we can at least trust Bruce to bring the right vocal delivery to the song in question.
+But his vocal performance in “All the Way Home” is just… flat. Detached. Lifeless.
+Go back and listen to Southside’s magnificent version and then listen to Bruce’s immediately after. Bruce sings as if he’s reading the lyrics for the first time, with very little inflection and absolutely zero empathy or emotion. His inter-verse whoops are the only part of the song that sound authentic, but in a way that’s completely inappropriate for the song’s lyrics.
+Bruce seems to have intuitively realized this by the time he launched his solo tour in support of *Devils & Dust–*his arrangement of “All the Way Home” kept the spirit of the album version but raised the vocals into an almost falsetto that infused them with vulnerability missing from the studio version.
+[Youtube: Bruce Springsteen - Video All The Way Home](https://www.youtube.com/watch?v=lktzNxSulWs)
+![](https://www.youtube.com/watch?v=lktzNxSulWs)
+In 2006, Bruce finally nailed the right mix, combining his more emotional vocals with an instrumental arrangement perfectly suited for the Sessions Band. He only played it three times toward the very end of that all-too-brief tour, but each time he did, “All the Way Home” latched onto the crowd (and vice versa) within its opening bars.
+Granted, these were Italian and Spanish crowds, and they latch onto *everything* Bruce plays. But there’s an undeniable energy in this tour debut performance in Rome that you can’t help but feel even if–like me–you’re not a fan of the modern version of the song.
+So I’ll leave you to listen to it. Turn up the volume and enjoy. I will as well–but then I’m gonna go back and listen to that wonderful Southside version again. That’s the one I hope to hear again someday soon.
+[Youtube: All The Way Home Rome 10/10/2006](https://www.youtube.com/watch?v=PiDrdW64Vs8)
+![](https://www.youtube.com/watch?v=PiDrdW64Vs8)
+**All the Way Home**
+**Recorded:** July 1991 (Southside Johnny version), 2004 (Bruce version)
+**Released:** *Better Days* (1991), *Devils & Dust* (2005)
+**First performed:** July 30, 1992 (East Rutherford, NJ)
+**Last performed:** October 25, 2006 (Santander, Spain)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

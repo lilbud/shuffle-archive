@@ -1,0 +1,64 @@
+# Roll of the Dice: Happy
+#### Originally Published on Ken Rosen's E Street Shuffle blog at https://estreetshuffle.com/index.php/2019/07/28/roll-of-the-dice-happy/
+#### Published: July 28, 2019
+#### Last Updated: January 02, 2024
+![family.jpg](https://estreetshuffle.com/wp-content/uploads/2019/08/family.jpg)
+
+There are those who question the official recording date of “Happy,” cited in the *Tracks* liner notes as January 18, 1992.
+I’m not one of them.
+It’s true that such a late recording date would seem odd, given that by this time both *Human Touch* and *Lucky Town* were in the can and would be on record store shelves just ten weeks later. And yes, in tone and content it sounds like an outcast from the *Human Touch* sessions, which finished a year earlier.
+But anyone who remembers their first dreamlike yet sleepless days as a new parent should recognize their fellow traveler in this song, because the official recording date for “Happy” anchors the song on Day 19 of Jessica Springsteen’s life, making it highly like that Bruce wrote it on one of those first life-altered nights.
+“Happy” is a love song, certainly, but it’s more about satisfaction than romance. Like “[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)” (with which it shares a lyric), “Happy” opens the door wide into the joy and peace that he’s always drawn from his family–and perhaps something more, as well.
+Let’s take a listen.
+[Youtube: Happy (Studio Outtake - 1992)](https://www.youtube.com/watch?v=wmr6oj84sxM)
+![](https://www.youtube.com/watch?v=wmr6oj84sxM)
+The first verse of “Happy” leads us to expect a traditional love song–it sounds very much like the words of someone newly in love.
+*Some need gold and some need diamond rings*
+*Or a drug to take away the pain that living brings*
+*A promise of a better world to come*
+*When whatever here is done*
+*I don’t need that sky of blue babe*
+*All I know’s since I found you*
+*I’m happy when I’m in your arms*
+*Happy, darling, come the dark*
+*Happy when I taste your kiss*
+*I’m happy in a love like this*
+In fact, the words should seem very familiar to us, because the opening lines are drawn directly from “[My Beautiful Reward,](https://estreetshuffle.com/index.php/2023/02/19/roll-of-the-dice-my-beautiful-reward/)” but while the narrator in that song is restive and rueful, in “Happy,” Bruce couldn’t be more content.
+And in the second verse, we realize why:
+*There’s a house upon a distant hill*
+*Where you can hear the laughter of children ring*
+*Guardian angels, they watch from above*
+*Watching over the love that they bring*
+*But at night I feel the darkness near*
+*And I awake, I find you near, yeah*
+*I’m happy with you in my arms*
+*Happy with you in my heart*
+*Happy when I taste your kiss*
+*I’m happy in a love like this*
+There’s a lot of meaning packed into this one verse. On the surface, it’s still a paean to Patti, but it’s significant that the only scene that Bruce has sketched over more than half the song is one of familial tranquility. The narrator of “Happy” (in this case, it’s probably safe to assume it’s Bruce himself) finds great pride, satisfaction, and love in the living proof of his marital bond.
+We also, in retrospect, find surprisingly direct reference to Bruce’s depression. At the time of its release in 1998, we probably assumed the “darkness” to be a callback to Bruce’s work two decades prior. Perhaps it was–Bruce has been known to revisit characters down the road. But more likely, it’s an intimate glimpse into the salvation that Patti has provided him–something that Bruce has only in recent years begun to directly discuss.
+The ethereal melody of “Happy” hints that the darkness may only temporarily be at bay, that it’s always lying in wait to reclaim him. Only the bridge takes flight before returning to a final verse, but even there Bruce echoes “[If I Should Fall Behind,](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” making it clear that he knows what this world can do.
+*In a world of doubt and fear*
+*I wake at night and reach to find you near*
+*Lost in a dream, you caught me as I fell
+Now I want more than just a dream to tell*
+*Born in this world, darling, with few days*
+*And trouble never far behind*
+*Man, woman circle each other in a cage*
+*A cage that’s been handed down the line*
+*Lost and running ‘neath a million dead stars*
+*Tonight let’s shed our skins and slip these bars*
+*Happy in each other’s arms*
+*Happy, baby, come the dark*
+*Happy in each other’s kiss*
+*I’m happy in a love like this*
+There’s one last turn of phrase that’s worth noting here. The notion of shedding one’s skin shows up not only here, but also in “[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)” (recorded in late 1991) and “[Trouble River](http://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/)” (record in early 1990)–suggesting that during this post-E Street, early marriage and family period, Bruce was focused on finding and remaking himself, leaving behind the persona that had come to define him and embracing new roles as husband and father to people he knew would truly see and know him.
+And the notion to “slip these bars” echoes the open cage from “Living Proof” with no keys, no guards, just shadows for bars–another example of how trapped in himself he must have felt by the late eighties, and how relieved he must have been to have found himself in his new and growing family.
+Bruce has never performed “Happy” in concert, although he came close, soundchecking it one afternoon in 2005 before an acoustic show in Portland. On a tour that quickly became a nightly anything-can-happen cornucopia of rarities and surprises, one has to wonder why Bruce didn’t play “Happy” even after soundchecking it.
+Regardless of whether “Happy” ever receives a live outing, though, it’s nice to know it exists–even though It’s not a song I listen to frequently; even though I don’t find it particularly complex or artful; and even though I’d rank it fairly low in his catalog.
+I suspect Bruce wrote “Happy” more for himself and his family than for his audience, and I’m fine evaluating it in that light. Everyone should get to feel that kind of contentment at least once.
+**Happy**
+**Recorded:** January 18, 1992
+**Released:** *Tracks* (1998)
+**Never performed**
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

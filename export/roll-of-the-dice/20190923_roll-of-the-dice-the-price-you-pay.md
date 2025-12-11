@@ -1,0 +1,118 @@
+# Roll of the Dice: The Price You Pay
+#### Originally Published on Ken Rosen's E Street Shuffle blog at https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/
+#### Published: September 23, 2019
+#### Last Updated: February 11, 2024
+![The-price-you-pay_front.jpg](https://estreetshuffle.com/wp-content/uploads/2019/09/The-price-you-pay_front.jpg)
+
+I have a theory about “The Price You Pay.”
+“The Price You Pay” is widely considered to be one of Bruce’s most enigmatic songs. Pick up a book, or consult your favorite blog (besides this one) about this song, and you’ll likely find adjectives like “enigmatic,” “existential,” or “biblical” attached to it. (That’s if they address the song’s meaning at all; some are quite careful to avoid doing so.)
+But I don’t think “The Price You Pay” is any of those things. To my mind, at least, it’s quite clear what Bruce is singing about, but only when you place the song in context of Bruce’s life experience to that point.
+But let’s start in 1978, with a fateful motel poolside meeting. Let’s let Bruce tell the story:
+[https://cdn.embedly.com/widgets/media.html?src=https%3A%2F%2Fw.soundcloud.com%2Fplayer%2F%3Fvisual%3Dtrue%26url%3Dhttp%253A%252F%252Fapi.soundcloud.com%252Ftracks%252F268169474%26show_artwork%3Dtrue%26secret_token%3Ds-cJlpT&amp;url=https%3A%2F%2Fsoundcloud.com%2Faudible%2Fborn-on-the-fourth-of-july%2Fs-cJlpT&amp;image=http%3A%2F%2Fi1.sndcdn.com%2Fartworks-000167511522-b8th0v-t500x500.jpg&amp;key=205dfc3e29a54717b61d110ab0ac5a3d&amp;type=text%2Fhtml&amp;schema=soundcloud](https://cdn.embedly.com/widgets/media.html?src=https%3A%2F%2Fw.soundcloud.com%2Fplayer%2F%3Fvisual%3Dtrue%26url%3Dhttp%253A%252F%252Fapi.soundcloud.com%252Ftracks%252F268169474%26show_artwork%3Dtrue%26secret_token%3Ds-cJlpT&amp;url=https%3A%2F%2Fsoundcloud.com%2Faudible%2Fborn-on-the-fourth-of-july%2Fs-cJlpT&amp;image=http%3A%2F%2Fi1.sndcdn.com%2Fartworks-000167511522-b8th0v-t500x500.jpg&amp;key=205dfc3e29a54717b61d110ab0ac5a3d&amp;type=text%2Fhtml&amp;schema=soundcloud)
+Bruce’s meeting and friendship with Ron Kovic sparked Bruce’s interest in veteran’s affairs, leading in short order to a benefit concert and songs that confronted the Vietnam veteran’s experience head-on (“[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/),” “[Vietnam](http://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/),” and “[Born in the U.S.A](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/).”).
+But Bruce had been grappling with the Vietnam war since he was a teenager. As far back as his Steel Mill Days, we have recordings of original Springsteen compositions like “[The War is Over](http://estreetshuffle.com/index.php/2019/03/23/roll-of-the-dice-the-war-is-over/)” that keenly acknowledge and rage against the human cost of war.
+[Youtube: Steel Mill - The War Is Over (Live At The Matrix 1970)](https://www.youtube.com/watch?v=VEaRsvkobrk)
+![](https://www.youtube.com/watch?v=VEaRsvkobrk)
+We even have [a notebook of unrecorded handwritten lyrics](http://estreetshuffle.com/index.php/2019/01/05/roll-of-the-dice-clouds/) by an eighteen-year-old Springsteen that reveal a deep empathy for his peers serving in the war.
+It’s not surprising that the war weighed so heavily on Bruce’s mind: his Castiles bandmate Bart Haynes had already been killed in action mere months prior to Bruce’s 1968 notebook compositions; his local musical idol Walter Cichon went MIA just weeks before.
+When Bruce was himself drafted in 1969, he was understandably terrified, convinced that he, Vini Lopez and Vinnie Roslin (who were drafted at the same time) were all doomed. All three young men were determined to do whatever it took to fail the draft examination; all three succeeded.
+But as Bruce realized–probably not at the moment, but certainly later–there was a price to be paid for his safety: living with the knowledge that someone else went in his place.
+[https://videopress.com/embed/tUAdpU2d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/tUAdpU2d?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+So it’s no wonder that Kovic’s book touched a raw nerve when Bruce read it. By the end of the Darkness Tour, Kovic and his experience were still very top of mind for Bruce–at the famed Winterland show in December 1978, Bruce dedicated “[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” to Kovic, mentioning both author and book by name.
+So when the tour ended and Bruce began writing songs for what would become *The River*, it’s reasonable to assume that Kovic and his fellow veterans were still very much a presence–if not overtly, than at least subconsciously.
+Perhaps in early 1979, Bruce wasn’t ready to confront his survivor’s guilt as directly as he would on Broadway almost four decades later. But if you pay close attention to one of the earlier songs recorded for *The River*, you can hear him address it obliquely.
+Here’s an early studio version of “The Price You Pay,” recorded in June 1979. It lacks the harmonies of the version that would see the light of day on *The River*, but more importantly it includes a completely different third verse as well–one that gives away the game.
+[Youtube: Bruce Springsteen The Price You Pay alternate take](https://www.youtube.com/watch?v=jkUEiMDH6yU)
+![](https://www.youtube.com/watch?v=jkUEiMDH6yU)
+I believe “The Price You Pay” is Bruce’s earliest attempt to come to terms with his decision to avoid serving in the war. He had a vision of his life in front of him, along with clear aspirations and ambitions–and he made a choice to pursue rather than risk his ability to achieve them.
+*You make up your mind, you choose the chance you take*
+*You ride to where the highway ends and the desert breaks*
+*Out on to an open road you ride until the day*
+*You learn to sleep at night with the price you pay*
+We can view this first verse as either literal (the on-the-road life of a touring musician) or metaphorical–the highway’s end representing the end of childhood and the onset of adulthood, with all of the costs and compromises that entails. Either way, the song reveals Bruce attempting to come to terms with the cost of his life choices.
+*Now with their hands held high, they reached out for the open skies*
+*And in one last breath they built the roads they’d ride to their death*
+*Driving on through the night, unable to break away*
+*From the **everlasting** pull of the price you pay*
+It’s interesting to note that Bruce switches from the second person in the first verse to the third person in the second verse. Readers of this blog know that I often remind that Bruce does very little by accident, but I wonder if this might be an exception. Whether it is or isn’t, the effect is to suggest that Bruce is really thinking in the first person but isn’t quite ready to go there–so he projects instead.
+It’s also interesting (although not particularly relevant to this discussion), that Bruce varies the song’s rhyme scheme from verse to verse, switching from an AABB first verse to an internally rhyming couplet in the second. The internal rhyming will return at other points in the song; there doesn’t seem to be a reason for it, except perhaps as a gentle subconscious nudge to the listener to pay closer attention to the lyrics, since the rhymes we’re conditioned to expect aren’t dependable here.
+But lyrically, the second verse is remarkable primarily for its imagery: Bruce paints a picture of desperate escape against the gravitational pull of a guilt that will never go away.
+(Note the word “everlasting” here–in the final album version, it will be replaced with “restless,” which weakens the emotional impact somewhat)
+The chorus is simple and direct, and it requires no analysis.
+*Oh the price you pay, oh the price you pay*
+*Now you can’t walk away from the price you pay*
+The third verse is where we get to the heart of “The Price You Pay,” but it’s also the element of the song that has caused consternation among fans since early on the River Tour:
+*Some say forget the past, and some say don’t look back*
+*But for every breath you take, you’ll leave a track*
+*And though it don’t seem fair for every smile that breaks*
+*A tear must fall somewhere for the price you pay*
+And here it is, laid bare: the reckoning of a man fully coming to terms with the impact of his own actions and decisions, the knowledge that for all the joy he takes and gives to the world, there’s at least one family out there who may have experienced an irreplaceable loss as the result of his ambition.
+The next verse is the one that tends to draw the most attention from Springsteen scholars, presumably for its overt Bible references. I’ve read several arguments that “The Price You Pay” is inspired by the parable of Moses and the promised land, but I’m skeptical.
+*Little girl down on the strand with that pretty little baby in your hands*
+*Do you remember the story of the promised land?*
+*How we crossed the desert sands and could not enter the chosen land*
+*On the banks of the river he stayed to face the price you pay*
+To me, it seems that Bruce is simply saying that he’ll never be able to fully appreciate his life because of the weight of a fateful decision. Moses was barred from entering the promised land for his sin of faithlessness; in “The Price You Pay,” Bruce is punishing himself.
+Bruce may also be writing about the emotional distance and isolation he’d allowed his work ethic to impose upon his life. He was years away from the self-awareness that therapy would help him realize, but his contemporaneous songwriting sometimes hinted at a subconscious awareness that his on-stage success might be coming at the expense of his personal life.
+*So let the games start, you better run you little wild heart*
+*You can run through all the nights and all the days*
+*But just across the county line, a stranger passing through put up a sign*
+*That counts the men fallen away to the price you pay*
+*And girl before the end of the day I’m gonna tear it down and throw it away*
+This last verse is one of the most dramatic in Bruce’s catalog, the last line voiced in both desperation and futility. And again, the imagery works whether taken literally (a memorial to fallen soldiers) or metaphorically (a reminder of the cost one doesn’t want to admit one pays, a reminder that you can never look away from).
+“The Price You Pay” is one of the most emotionally wrenching songs of Bruce’s River period, and it’s right at home with album-mates “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/),” “[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/),” “Stolen Car” and “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/),” all of which deal with the costs imposed by our life decisions. Clearly, “The Price You Pay” wasn’t a one-off cathartic exercise.
+Bruce obviously viewed “The Price You Pay” as an important song as well–it was one of only seven *River* songs that were slated to be released on the album when Bruce handed it in to the record company as a single album (and then subsequently revoked the album when he decided it needed to be “bigger”).
+Here’s that finished version–with the same lyrics as the version above (except for the word “everlasting,” now replaced with “restless”)–finally released in 2015 on *The Ties That Bind: The River Collection*.
+[Youtube: The Price You Pay](https://www.youtube.com/watch?v=hfe7cqtcPV8)
+![](https://www.youtube.com/watch?v=hfe7cqtcPV8)
+Now here’s where things get strange.
+When Bruce pulled the album back, expanded it, and released it as a double album, the final version of *The River* still included “The Price You Pay,” but inexplicably, the third verse had been completely replaced.
+[Youtube: The Price You Pay](https://www.youtube.com/watch?v=sAUtCPtDQ4Y)
+![](https://www.youtube.com/watch?v=sAUtCPtDQ4Y)
+Instead of:
+*Some say forget the past, and some say don’t look back*
+*But for every breath you take, you’ll leave a track*
+*And though it don’t seem fair for every smile that breaks*
+*A tear must fall somewhere for the price you pay*
+We now have:
+*Now they’d come so far and they’d waited so long*
+*Just to end up caught in a dream where everything goes wrong*
+*Where the dark of night holds back the light of the day*
+*And you’ve got to stand and fight for the price you pay*
+What’s *that* about?
+Well, first let’s recall that even though Bruce vacillates between second and third person throughout the song, it’s almost certainly an exercise in projection. So replace the “they’d” instances with “I’ve,” and things will become a bit clearer.
+But only a bit.
+Because this new verse subverts the song, and I’d argue it’s also a the root of what confuses attentive listeners. Still, I think we can hazard a guess as to what prompted the change and why.
+With the usual disclaimer that I’m not a mind-reader, it’s useful to remember what else was going on in Bruce’s life around this time. Barely two years before he recorded the song, he’d been barred from recording any new music in the studio due to a legal injunction stemming from former manager Mike Appel’s lawsuit.
+Bruce had struggled and worked hard to achieve success, and right at the moment he arrived with *Born to Run*, he almost lost it all. Standing on principle to acquire and retain the rights to his own songs, he embroiled himself in a lawsuit that kept him from recording and releasing new music for three years–an eternity in the music industry. Forced to tour endlessly to make ends meet (where the dark of night held back the light of the day), Bruce refused to back down. Those lost years became the price he paid for his autonomy.
+But even with that insight, we still have to ask: why did Bruce make the verse substitution? What was wrong with the song as it originally stood?
+Perhaps he still wasn’t ready to confront his survivor’s guilt (although if so, one wonders why he didn’t alter the rest of the song as well). Perhaps he still found himself bristling over his lost years (although two years and a successful album and tour down the road, that seems unlikely, too).
+We may never know. But whatever prompted Bruce to make the switch, it didn’t take him long to have second thoughts about it. “The Price You Pay” was the second-to-last song from *The River* to receive a concert outing. Bruce finally played it in Los Angeles on Halloween night in 1980, in the beautiful acoustic arrangement below.
+[https://videopress.com/embed/uLkF4Ijg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uLkF4Ijg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+That first performance turned out to be the *only* performance of the album version for almost three decades. On the very next night, Bruce inexplicably (but wisely) substituted the original third verse for the album version, no doubt confusing fans who for years afterward assumed he’d written new lyrics for the occasion.
+[https://videopress.com/embed/9KE6s8Cy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9KE6s8Cy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+The original lyrics stayed in the song for the remainder of the River Tour.
+And once the River Tour ended, no one heard “The Price You Pay” played live again for 28 years.
+For most of that time, no one thought there was any significance to the song’s absence from setlists. After all, Bruce continued to release new music, and “The Price You Pay” was one of dozens of songs left by the wayside to make room for new music and old favorites in Bruce’s live shows.
+But starting toward the end of the Rising Tour, Bruce started reviving neglected deep cuts from his catalog, and when Bruce started taking requests on the Magic Tour, it seemed his entire catalog broke wide open. Anything was fair game, it seemed.
+Anything, that is, except for “The Price You Pay.”
+It’s not as if fans didn’t request it–signs for it had become commons sights at Bruce’s concerts. Bruce even acknowledged it in a *Backstreets* interview shortly before the Magic Tour:
+*“I have no idea why [people have been asking for it]–it’s become a thing just because I haven’t played it. If I had played it, nobody would give much of a damn if they heard it or not!”*
+For a straight-shooting guy, I think Bruce was more than a bit disingenuous in that interview. Sure, some fans requested it for its rarity factor–but I also think most fans gravitate to it for its emotional power. Who among us can’t relate to the notion that we carry the weight of our life choices with us as we go through life?
+But that’s not the most important question here. The real question is: even if it *was* the rarity factor driving all the requests, why would Bruce go out of his way to deny that specific one only?
+I can’t answer that one, either, although I suspect there’s insight to be gleaned from when Bruce did finally revive the song–at his last-ever show at the Philadelphia Spectrum, on October 20, 2009. (If a long-missing song like “The Price You Pay” was going to get played at long last, *of course* it was going to be in Philadelphia.)
+With no introduction or fanfare, Bruce opened the show with the triumphant return of “The Price You Pay.” However, observant fans couldn’t help but notice that in doing so, Bruce had reverted to the *River* album lyrics.
+[Youtube: Springsteen - The Price you Pay - The Spectrum October 20, 2009](https://www.youtube.com/watch?v=46dEVLFvze4)
+![](https://www.youtube.com/watch?v=46dEVLFvze4)
+Maybe there’s nothing to read into that. Perhaps Bruce simply decided to bring back the song, and when his crew retrieved the lyrics on the teleprompter, they were from the “official” album version.
+But it was notable nonetheless. Ever after (the song made a cameo on the Wrecking Ball Tour and the High Hopes Tour before becoming a regular on the 2016 River Tour), Bruce has performed the album lyrics instead of the original ones.
+[Youtube: Bruce Springsteen - Barcelona 14-05-16 - The Price You Pay (dubbed audio)](https://www.youtube.com/watch?v=UA1PdIpvh00)
+![](https://www.youtube.com/watch?v=UA1PdIpvh00)
+Now that the reprised River Tour is behind us, it’s unclear whether we’ll ever hear Bruce play “The Price You Pay” in concert again, let alone in its original form. And given his coy reluctance to address the matter directly, it’s unlikely that we’ll ever hear him relate the reasons behind the song’s curious history.
+But “The Price You Pay” remains one of Bruce’s most powerful, poignant, and reflective songs, with a semi-mythic status that’s only (and ironically) elevated by Bruce’s inscrutable attitude toward it.
+**The Price You Pay**
+**Recorded:** June 1979
+**Released:** *The River* (1980), *The Ties That Bind* (2015)
+**First performed:** October 31, 1980 (Los Angeles, CA)
+**Last performed:** July 28, 2016 (Oslo, Norway)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,0 +1,32 @@
+# Cover Me: Train Ride
+#### Originally Published on Ken Rosen's E Street Shuffle blog at https://estreetshuffle.com/index.php/2021/09/25/cover-me-train-ride/
+#### Published: September 25, 2021
+#### Last Updated: January 03, 2024
+![trainride.jpg](https://estreetshuffle.com/wp-content/uploads/2021/09/trainride.jpg)
+
+I’m sort of at a loss for how to classify today’s entry. Is it an original? A cover? A team-up?
+It’s kind of all of the above.
+In early 1969, a Virginia Commonwealth University student named Robbin Thompson and a few of his schoolmates formed a band called Mercy Flight. Over the course of the year, Mercy Flight developed a loyal, avid, and growing following in the Richmond area.
+On June 1st, a band called Child played a gig at Richmond’s Monroe Park. Mercy Flight drummer Dave Hazlett was in the audience that day, and 19-year-old Bruce Springsteen was on stage, his first appearance in the state of Virginia. Hazlett was impressed with the New Jersey band, but it would be almost six months before they visited Richmond again.
+When Bruce’s band returned to Richmond in November, they had changed their name to Steel Mill. And when their scheduled opening band cancelled on them, Steel Mill enlisted local heroes Mercy Flight to open for them.
+The Mercy Flight/Steel Mill pairing proved potent, and by mid-1970 Steel Mill was a frequent and popular fixture in Richmond, with Mercy Flight as their trusty opening act. The two bands played together often, first in Richmond and later in Steel Mill’s New Jersey stomping grounds.
+Bruce was increasingly impressed by Robbin’s vocals and songwriting and grappling with trying to be too many things at once (electrifying frontman, hot-shot guitar hero, and powerful songwriter). After a Richmond gig in August 1970, Bruce asked Robbin to switch bands and join Steel Mill as a lead vocalist. Robbin accepted the offer and made his Steel Mill debut before the end of the month, a move that alarmed both bands at time.
+But Robbin brought more than just his vocal talents to the band–he also brought material. One of the songs to make the leap from Mercy Flight to Steel Mill was Robbin’s “Train Ride,” his former band’s most popular song. Here’s a vintage recording of Mercy Flight performing it:
+[https://estreetshuffle.com/wp-content/uploads/2021/09/TRAIN-RIDE.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2021/09/TRAIN-RIDE.mp3?_=3)
+<https://estreetshuffle.com/wp-content/uploads/2021/09/TRAIN-RIDE.mp3>
+Steel Mill’s version of “Train Ride” was a far cry from Mercy Flight’s. Robbin’s new band was a *rock* band, not a rock-and-roll band; Steel Mill’s version of “Train Ride” is a fourteen-minute hard-rocking guitar jam that would be unrecognizable if not for its lyrics.
+[Youtube: Bruce Springsteen and Steel Mill: Train Ride 1970 11 27, Sunshine In, Asbury Park, NJ](https://www.youtube.com/watch?v=uZV-rKsHjEg)
+![](https://www.youtube.com/watch?v=uZV-rKsHjEg)
+That’s Robbin on lead vocals (it’s his song, after all), but Bruce is clearly present on guitar and backing vocals. Steel Mill continued to cover (if we can use that term when the song’s author is actually in the band) “Train Ride” through their very last shows in early 1971.
+When Steel Mill disbanded, Bruce formed The Bruce Springsteen Band before landing a recording contract with Columbia Records the following year. Robbin landed his own record deal a few years later and had some modest success both under his own name and with his eponymous band. In 1982, he finally released his 1969 composition under his own name.
+[Youtube: Trainride](https://www.youtube.com/watch?v=jAUWgythA9I)
+![](https://www.youtube.com/watch?v=jAUWgythA9I)
+[Youtube: Robbin Thompson Band - "Train Ride" (1981)](https://www.youtube.com/watch?v=P1kRXUzgf-Q)
+![](https://www.youtube.com/watch?v=P1kRXUzgf-Q)
+Robbin and Bruce made a few appearances together over the decades that followed, as recently as the Magic Tour. Sadly, he passed away in 2015, the second of Bruce’s Steel Mill bandmates lost to the great hereafter.
+As for Mercy Flight, they never recovered their momentum after the loss of their lead singer. Their drummer, however, is immortalized in song.
+When Vini Lopez ran into some legal trouble and had to miss a few shows, Bruce tapped Dave Hazlett to fill in for the Mad Dog. Hazlett made the trip up to New Jersey and bunked with Bruce at Tinker’s surfboard factory, playing with Steel Mill until Vini was in the clear and back in the band. He became close with Bruce and his bandmates during that time–close enough to earn a nickname from Bruce: Hazy Davy.
+Hazy Dave is still active today, along with his group called (I kid you not) The Mission Band.
+**Train Ride
+First performed:** October 17, 1970 (West Long Branch, NJ)
+**Last performed:** January 22, 1971 (Asbury Park, NJ)

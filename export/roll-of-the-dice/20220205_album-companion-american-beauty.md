@@ -1,0 +1,19 @@
+# Album Companion: American Beauty
+#### Originally Published on Ken Rosen's E Street Shuffle blog at https://estreetshuffle.com/index.php/2022/02/05/album-companion-american-beauty/
+#### Published: February 05, 2022
+#### Last Updated: July 15, 2022
+![BRUCE_AMERICAN_BEAUTY-500x500-300x300-1.jpg](https://estreetshuffle.com/wp-content/uploads/2022/02/BRUCE_AMERICAN_BEAUTY-500x500-300x300-1.jpg)
+
+I’ll be taking this week mostly off while I’m re-uniting with my co-workers for the first time in almost two years at a work event in New York, but you’ll hear from me here and there with a few pieces that don’t fit this blog’s usual themes.
+As long-time readers know, my editorial calendar is determined by a metaphorical roll of the dice (in reality, Google’s random number generator), so I never know what I’ll be writing about beyond the current month.
+Since the songs are assigned to me randomly, that means that as far as my writing goes, I’m very close to completing some of Bruce’s albums while some still have several songs left for me to profile. None are complete yet, but all are likely to be finished by the end of this year.
+So that has me thinking about how I want to “package” them up when they’re complete. I’m leaning towards writing a companion piece for the album itself with links to the individual song articles, so I can write about the backstory and reception of the album itself. And while I was thinking about *that,* I remembered that I actually did complete one of Bruce’s discs a couple of years ago–although it was an EP, not a full album. Since most of those pieces were written early on, before I’d built up a strong readership, I thought I’d re-introduce them today.
+Bruce released *American Beauty* on April 19, 2014–Record Store Day. A promotional vinyl disc with a limited run of only 7,500 copies, it was also released as a digital download a few days later.
+All four tracks on the EP are outtakes from the *High Hopes* album Bruce released just a few months prior, although some tracks are quite a bit older. Each track stands out from Bruce’s main body of work, each for a different reason.
+- “[American Beauty](https://estreetshuffle.com/index.php/2019/02/21/roll-of-the-dice-american-beauty/),” the title track, a hard-rocking musical melange that shares DNA with several of Bruce’s songs yet sounds like none of them
+- “[Mary Mary,](https://estreetshuffle.com/index.php/2018/04/01/roll-of-the-dice-mary-mary/)” a sweet love song and close melodic cousin to “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)“
+- “[Hurry Up Sundown](https://estreetshuffle.com/index.php/2020/04/26/roll-of-the-dice-hurry-up-sundown/),” which out power-pops everything on *Magic* and *Working on a Dream*
+- “[Hey Blue Eyes](https://estreetshuffle.com/index.php/2019/06/30/roll-of-the-dice-hey-blue-eyes/),” perhaps Bruce’s most ferocious social commentary song on record
+The four songs don’t form any kind of cohesive whole, but they’re not meant to–they’re just four strong outtakes that didn’t make their respective albums because Bruce had too much great material to work with.
+Since both the press run and press coverage were limited, all four songs went under the radar of many fans, but each is worthy of a listen and consideration. If you haven’t taken a listen to *American Beauty* lately, maybe take a few minutes to do so now–it’s a quick and rewarding listen, and if I did my job well, the companion Roll of the Dice pieces will help highlight some of the songs’ more interesting facets.
+More to come soon as we start polishing off album by album in 2022!

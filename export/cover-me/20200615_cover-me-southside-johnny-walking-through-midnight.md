@@ -1,0 +1,16 @@
+# RotD/Cover Me, Southside Johnny: Walking Through Midnight
+#### Originally Published on Ken Rosen's E Street Shuffle blog at https://estreetshuffle.com/index.php/2020/06/15/cover-me-southside-johnny-walking-through-midnight/
+#### Published: June 15, 2020
+#### Last Updated: June 11, 2020
+![slowdance.jpg](https://estreetshuffle.com/wp-content/uploads/2020/06/slowdance.jpg)
+
+When Southside Johnny released his first solo album in 1988, he called upon his old friend Bruce Springsteen to help him close out the record. The album’s final song is a moody ballad called “Walking Through Midnight” co-written by Southside and Bruce.
+[Youtube: Walking Through Midnight      Southside Johnny](https://www.youtube.com/watch?v=PunmN3Tr_54)
+![](https://www.youtube.com/watch?v=PunmN3Tr_54)
+Southside penned the lyrics, and Bruce composed the music. Neither of them brought their A game to it, though: the late-night wandering lyrics aren’t particularly inspired, and the backing track is about as late-eighties pop as it gets.
+Still, any Lyon/Springsteen collaboration is worth at least one listen, even one as under the radar as “Walking Through Midnight.”
+(And we’re talking seriously under the radar here: If either of them have ever performed the song live, I’m not aware of it.)
+**Walking Through Midnight**
+**Released:** *Slow Dance* (1988)
+**Never performed**
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

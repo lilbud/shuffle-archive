@@ -1,0 +1,56 @@
+# Roll of the Dice: Evacuation of the West
+#### Originally Published on Ken Rosen's E Street Shuffle blog at https://estreetshuffle.com/index.php/2020/09/16/roll-of-the-dice-evacuation-of-the-west/
+#### Published: September 16, 2020
+#### Last Updated: January 02, 2024
+![cowboysaliens.jpg](https://estreetshuffle.com/wp-content/uploads/2020/09/cowboysaliens.jpg)
+
+Bruce Springsteen was fascinated by the American West long before *Western Stars* and [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/). Western imagery and themes feature in Bruce’s work dating back to the beginning–even *before* the beginning, if we examine his pre-label material.
+We’re about to get re-introduced to one of those songs, “[If I Was the Priest](http://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/),” on Bruce’s upcoming [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)album next month. There’s also the Texan fantasy “[Santa Ana](http://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/),” which appears on *Tracks.* But arguably the greatest pre-historic Springsteen Western song is one that *still* hasn’t seen any form of release: “Evacuation of the West.”
+[Youtube: BRUCE SPRINGSTEEN - evacuation of the west](https://www.youtube.com/watch?v=5XRO4ZZgaqo)
+![](https://www.youtube.com/watch?v=5XRO4ZZgaqo)
+“Evacuation of the West” (also known as “There Are No Kings in Texas”) shares a setting with “Santa Ana” (which was recorded during the same studio sessions in the summer of 1973) and features similar music to “[Song for Orphans](http://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)” (another *Letter to You* track), “[Phantoms](http://estreetshuffle.com/index.php/2019/06/06/roll-of-the-dice-phantoms/),” and “Zero and Blind Terry.”
+But if “Santa Ana” is a dream-like fantasy seen through the eyes of a young boy, “Evacuation of the West” is an apocalyptic cocktail: one part spaghetti western, one part Mad Max, and one part War of the Worlds.
+“Evacuation of the West” is set in the far future. The sun has become a red giant, the earth is barren, and in Texas, the age of cowboys has come to an end. (This is apparently a parallel universe in which the Old West never died.)
+*It was on the day the cowboys were banned from the range, metal touched the world as a master*
+*They rode their ponies down in the cities of gold to leave them forever after*
+*Now the sun was swollen, red and old, the earth it was windy, dark and cold*
+*Where the highway ends the desert takes its toll, so dusty, red, and angry*
+*It was a time when men died out on the prairie from not having a decent friend*
+*At night the ghost of them ol’ rough riders was a howl in the canyon winds*
+*You can hear ’em crying*
+*Good God, I think they’re dying*
+If you’ve been with me a while on this multi-year exploration of Bruce’s lifelong catalog, we’ve had a chance to explore many of Bruce’s pre-label, fully formed songs. But almost all of those 1972-73 unreleased songs exist only as solo acoustic performances.
+So it’s almost a shock when Bruce’s piano (David Sancious was not present that day) gives way to the full Band-that-would-someday-be-known-as-E-Street. Danny Federici’s organ evokes a somber, almost religious reverence, and Garry is unusually prominent and active in the mix.
+And that chorus… so powerful and emotive in its anguish. This is easily one of Bruce’s strongest early vocals.
+Let’s continue.
+*When them rangers down in Dallas had all but given it up and left*
+*And those that hung on hoping were trying their best to forget*
+*The way those outlaws and desperadoes right from the cheapest to the best*
+*Rode in on ponies made of skin and bones, gave up their rusty guns and went back home*
+*And the governor was sent down from Population Control and martial law was passed*
+*Riverboat gamblers put their money on faith for the time for hope had passed*
+It’s tempting–very tempting–to read Bruce’s lyrics as allegory. He may very well have intended the cowboys to be stand-ins for any generation or profession on the verge of being superseded by the next. Had he written the song twenty years later, in fact, I’d argue the cowboys represented the aging rocker, long past his glory and commercial appeal. But at the tender age of 23, and with the reverence that Bruce had for those who came before, this is one case where I resist the urge to read beyond the surface.
+And besides, the imagery is just too darn cinematic to spoil with subtext.
+We’re at the quiet instrumental bridge now, and it’s lovely. Garry brings us on a gentle descent back to earth (but don’t worry, we’re about to leave it), and the only thing keeping me from calling Bruce’s piano part an homage to “Miami 2017” is that Billy Joel’s own apocalyptic epic was still a few years away.
+In the final verse, Bruce goes full on *Cowboys & Aliens* (I’ve always wondered if Rosenburg was a Springsteen fan), as our heroes leave behind not just the West but the Earth, and head to the unknown for one final adventure.
+*In the cold blue light of the desert night there was a thousand starry ships*
+*And men came down from still I don’t know where with death on their fingertips*
+*Now there’s no more kings in Texas, I swear they rounded up each and every one*
+*And oh that line of Conestoga reached from the Rocky Mountains into that old dead sun*
+*Now Anna Maria walks the plains alone, the last of a struggling people*
+*She thinks of all those outlaws who wanted to reach for the sky and got stuck up on that steeple*
+*Oh, you can hear them crying*
+*Good God, I think they’re dying*
+*In the wind you can hear them sigh*
+There’s gorgeous imagery here. In fact, I’d argue that better than any of the songs that made it to Bruce’s second album, “Evacuation of the West” telegraphs Bruce’s evolving cinematic songwriting talent that would burst into full bloom on the opening track of *Born to Run*.
+In particular, the notion of a parade of Conestoga wagons taking flight is simply brilliant, as is the way Bruce co-opts the classic Western “reach for the sky” trope for his own purposes, with slain gunslingers deprived of the freedom and adventure they craved.
+“Evacuation of the West” is the kind of tale only a young man who grew up on a diet of western movies and pulp science fiction would write, and Bruce delivers a vocal so earnest it borders on reverence.
+And as for the not-quite-E-Street-yet band, that track was recorded in a single take–there are no overdubs present.
+So I was disappointed when it was revealed that three contemporary songs are due for release on *Letter to You*, but not “Evacuation of the West.” This song cries out for an E Street Band release.
+But I was only disappointed for a moment–because then I realized that as a fully realized E Street Band song, with no vocal bluffing or missing elements, “Evacuation of the West” is a *very* strong candidate for inclusion in that long-awaited *Tracks 2* collection.
+Let’s hope we see it soon. “Evacuation of the West” is a true early gem of an outtake that deserves a place in Bruce’s “official” catalog.
+**Evacuation of the West
+Recorded:** June 22 – July 11, 1973
+**Never released**
+**Never performed**
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

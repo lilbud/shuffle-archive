@@ -1,0 +1,36 @@
+# Kingdom of Days: April 6
+#### Originally Published on Ken Rosen's E Street Shuffle blog at https://estreetshuffle.com/index.php/2025/04/06/kingdom-of-days-april-6-2/
+#### Published: April 06, 2025
+#### Last Updated: March 25, 2025
+![20140406_6_front.jpg](https://estreetshuffle.com/wp-content/uploads/2019/04/20140406_6_front.jpg)
+
+***New for 2025:** No updates*
+**1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2024/04/Asbury_Park_Press_Fri__Apr_4__1969_-scaled.jpg)
+**1974:** Bruce and his band headline at Burlington County College in Pemberton, New Jersey.
+**1976:** Kid Leo interviews Bruce on Cleveland’s WMMS-FM radio.
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/46906470044_f5c1c852ed_o-300x217.jpg?resize=758%2C548)
+**1985:** After finishing his first Australian tour the night before, Bruce takes a day off in Sydney to relax on a yacht with actress/model Joanna Forbes and her boyfriend.
+![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Sydney_Morning_Herald_Mon__Apr_8__1985_-scaled.jpg)
+**1990:** Bruce records “[Trouble River](http://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/)” at Soundworks West in Los Angeles. It will remain in the vault for almost a decade.
+[Youtube: Trouble River (Studio Outtake - 1990)](https://www.youtube.com/watch?v=0KstWZbn3Fw)
+![](https://www.youtube.com/watch?v=0KstWZbn3Fw)
+**1999:** At a special Johnny Cash tribute in New York City, Bruce performs “[Give My Love to Rose](https://estreetshuffle.com/index.php/2020/10/29/cover-me-give-my-love-to-rose/)” via a pre-recorded video. The event is recorded for airing on TNT later in the month.
+[Youtube: Bruce Springsteen Give My Love To Rose](https://www.youtube.com/watch?v=hEfe80Ty8KY)
+![](https://www.youtube.com/watch?v=hEfe80Ty8KY)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/1999-04-06.jpg)
+**2006:** Bruce rehearses with the Sessions Band at Asbury Park’s Paramount Theater, preparing for their upcoming tour. Meanwhile, Bruce is inducted into the Freehold High School Hall of Fame in absentia. Bruce’s mom accepts the award on his behalf and reads a note from Bruce:
+“*I’d like to thank everyone for the honor. It’s especially nice coming from my hometown and my old alma mater. It’s kind of funny, really. I spent my years at Freehold Regional pretty much as an outcast and at best a very mediocre student. I would probably have been voted ‘Least Likely to Succeed’. My only advice to teachers and the administrators would be to keep your eyes on the ones that don’t fit in. They’re the ones thinking out of the box and reimagining this place we live in… our hometown. You never know where they’re going. So, thank you once again and please show my mother a good time. Without her I may not have survived Freehold Regional High School.”*
+**2012:** Bruce brings the Wrecking Ball Tour to Madison Square Garden for the first of two nights. The setlist features the tour premiere of “[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)” and a very rare “[Lion’s Den](http://estreetshuffle.com/index.php/2019/06/21/roll-of-the-dice-lions-den/),” only its fourth performance and its first in over a decade.
+[https://videopress.com/embed/QvFl1u7J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QvFl1u7J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/jwZqaeuM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jwZqaeuM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/89ZQmld7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/89ZQmld7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/IS8g7Ld8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IS8g7Ld8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Youtube: Bruce Springsteen concert at Madison Square Garden 04/06/12](https://www.youtube.com/watch?v=F9SuCBFcZlo)
+![](https://www.youtube.com/watch?v=F9SuCBFcZlo)
+**2014:** Back in the U.S. after their Australia/New Zealand tour, Bruce and the E Street Band play a free concert at the NCAA March Madness Music Festival in Dallas. Bruce continues his streak of creative opening covers with Van Halen’s “[Jump](http://estreetshuffle.com/index.php/2019/04/02/cover-me-jump/).”
+[https://videopress.com/embed/AclwSTf7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AclwSTf7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[https://videopress.com/embed/Bel2SeJM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Bel2SeJM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn’t present tonight, so theatergoers get the “B” setlist featuring [“Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)” and “[The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” in place of “[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/).” In attendance tonight: actress Gina Gershon.
+![](https://brucebase.wdfiles.com/local--resized-images/gallery%3A2018-04-06-walter-kerr-theatre-new-york-city-ny/20180406_GinaGershon_01.jpg/medium.jpg?resize=758%2C948)
+**2022:** Bruce celebrates Clive Davis’ 90th birthday by recording a video salute and a performance of “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/).”
