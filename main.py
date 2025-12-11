@@ -4,7 +4,6 @@ import time
 from pathlib import Path
 
 import httpx
-import pandas as pd
 from user_agent import generate_user_agent
 
 categories = {
@@ -31,7 +30,7 @@ authors = {
 
 cookies = {"wordpress_test_cookie": "WP Cookie check"}
 headers = {
-    "User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:144.0) Gecko/20100101 Firefox/144.0",
+    "User-Agent": generate_user_agent(),
     "Accept": "text/html,application/xhtml+xml,application/xml;q=0.9,*/*;q=0.8",
     "Accept-Language": "en-US,en;q=0.5",
     "Accept-Encoding": "gzip, deflate, br, zstd",
@@ -45,7 +44,8 @@ headers = {
 }
 
 
-def generate_tag_list():
+def generate_tag_list() -> None:
+    """Combine tag json files into a single json file."""
     folder = Path("./tags")
 
     tags = {}
@@ -63,51 +63,54 @@ def generate_tag_list():
     json.dump(tags, Path("./tags.json").open("w"))
 
 
-def get_tags():
-    print()
-
+def get_tags() -> None:
+    """Get all tags using WP REST API."""
     with httpx.Client(
         headers=headers,
         cookies=cookies,
         timeout=20,
     ) as client:
         res = client.get(
-            "https://estreetshuffle.com/index.php/wp-json/wp/v2/tags",
+            "https://estreetshuffle.com/index.php/wp-json/wp/v2/tags?per_page=100",
         )
 
-        total_posts = int(res.headers["x-wp-total"])
+        save_path = Path("./tags")
         total_pages = int(res.headers["x-wp-totalpages"])
 
         if total_pages > 1:
-            print(f"Found {total_pages}")
+            print(f"Found {total_pages} of tags")
 
             for i in range(1, total_pages + 1):
-                save_path = Path("./tags")
+                url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/tags?per_page=100&page={i}"
 
-                if not Path(save_path, f"{i}.json").exists():
-                    url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/tags?per_page=100&page={i}"
-
+                try:
                     res = client.get(url)
 
-                    if res:
-                        print(f"saving page {i} to {save_path}")
+                    print(f"saving page {i} to {save_path}")
 
-                        with Path(save_path, f"{i}.json").open("w") as f:
-                            json.dump(res.json(), f)
+                    with Path(save_path, f"{i}.json").open("w") as f:
+                        json.dump(res.json(), f)
+                except httpx.HTTPError:
+                    pass
 
-                    time.sleep(3)
-
-        else:
-            save_path = Path("./tags")
-            print(f"saving page 1 to {save_path}")
-
-            with Path(save_path, "1.json").open("w") as f:
-                json.dump(res.json(), f)
-
-    print("-" * 20, "sleeping for 5 seconds between categories", "-" * 20)
+                time.sleep(1)
 
 
-def get_latest_posts():
+def get_posts_by_page(client: httpx.Client, page: int = 1) -> dict | None:
+    url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}"
+
+    try:
+        res = client.get(url)
+        return res.json()
+    except httpx.HTTPError:
+        return None
+
+
+def get_latest_posts() -> None:
+    """Get latest posts from the site.
+
+    Posts are saved in individual files, named with their post_id.
+    """
     with httpx.Client(
         headers=headers,
         cookies=cookies,
@@ -133,25 +136,41 @@ def get_latest_posts():
                 url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?page={i}&per_page=25"
                 res = client.get(url)
 
-                post_ids = {int(post["id"]) for post in res.json()}
-                posts = res.json()
+                posts = get_posts_by_page(client, i)
 
-                if not post_ids.issubset(existing_posts):
-                    print("found unsaved posts")
-                    for post in posts:
-                        save_path = Path(f"./posts/{post['id']}.json")
+                if posts:
+                    post_ids = {int(post["id"]) for post in posts}
 
-                        if not save_path.exists():
-                            print(f"{save_path.name} doesn't exist")
+                    if not post_ids.issubset(existing_posts):
+                        print("found unsaved posts")
+                        for post in posts:
+                            save_path = Path(f"./posts/{post['id']}.json")
 
-                            with save_path.open("w", encoding="utf-8") as f:
-                                json.dump(post, f)
-                else:
-                    print("all posts already saved, exiting")
-                    break
+                            if not save_path.exists():
+                                print(f"{save_path.name} doesn't exist")
+
+                                with save_path.open("w", encoding="utf-8") as f:
+                                    json.dump(post, f)
+                    else:
+                        print("all posts already saved, exiting")
+                        break
 
         print("-" * 20)
 
 
 if __name__ == "__main__":
-    get_latest_posts()
+    # get_latest_posts()
+    with httpx.Client(
+        headers=headers,
+        cookies=cookies,
+        timeout=30,
+    ) as client:
+        res = client.get(
+            "https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page=1",
+        )
+
+        try:
+            data = res.json()
+            print(data)
+        except httpx.HTTPError:
+            print("failed to get page")
