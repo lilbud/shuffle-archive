@@ -1,7 +1,9 @@
+import datetime
 import json
 import re
 import time
 from pathlib import Path
+from zoneinfo import ZoneInfo
 
 import httpx
 from user_agent import generate_user_agent
@@ -159,18 +161,4 @@ def get_latest_posts() -> None:
 
 
 if __name__ == "__main__":
-    # get_latest_posts()
-    with httpx.Client(
-        headers=headers,
-        cookies=cookies,
-        timeout=30,
-    ) as client:
-        res = client.get(
-            "https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page=1",
-        )
-
-        try:
-            data = res.json()
-            print(data)
-        except httpx.HTTPError:
-            print("failed to get page")
+    get_latest_posts()

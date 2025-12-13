@@ -1,3 +1,5 @@
+most of these fixes are handled by html_to_markdown
+
 &#8211;  # sometimes em dashes are not converted
 (\s*\r?\n){2,}  # replaces extraneous new lines, replaces groups of 2 or more with a single
 (>\n){5}  # fix blockquotes having a ton of empty quoted lines
