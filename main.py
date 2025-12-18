@@ -6,29 +6,11 @@ from pathlib import Path
 from zoneinfo import ZoneInfo
 
 import httpx
+import psycopg
+from psycopg.rows import dict_row
 from user_agent import generate_user_agent
 
-categories = {
-    1: "uncategorized",
-    2: "kingdom-of-days",
-    3: "roll-of-the-dice",
-    4: "cover-me",
-    5: "meeting-across-the-river",
-    152: "where-the-band-was",
-    2295: "hearts-of-stone",
-    2583: "spare-parts",
-    3326: "two-faces",
-    3601: "greetings",
-    3602: "holiday",
-    3603: "encore",
-    3604: "tunnel",
-}
-
-# def get_page(page: int):
-
-authors = {
-    1: "Ken Rosen",
-}
+from database import insert_post, load_db
 
 cookies = {"wordpress_test_cookie": "WP Cookie check"}
 headers = {
@@ -51,16 +33,12 @@ def generate_tag_list() -> None:
     folder = Path("./tags")
 
     tags = {}
-    # fields: link, name
 
     for file in folder.iterdir():
         data = json.loads(file.read_text())
 
         for tag in data:
-            tags[tag["id"]] = {
-                "name": tag["name"],
-                "url": tag["link"],
-            }
+            tags[tag["id"]] = tag
 
     json.dump(tags, Path("./tags.json").open("w"))
 
@@ -98,67 +76,86 @@ def get_tags() -> None:
                 time.sleep(1)
 
 
-def get_posts_by_page(client: httpx.Client, page: int = 1) -> dict | None:
+def get_posts_by_page(client: httpx.Client, page: int = 1) -> httpx.Response | None:
     url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}"
 
     try:
-        res = client.get(url)
-        return res.json()
+        return client.get(url)
     except httpx.HTTPError:
         return None
 
 
-def get_latest_posts() -> None:
+def save_posts(posts: list[dict], db_posts: list[int], cur: psycopg.Cursor):
+    for post in posts:
+        save_path = Path(f"./posts/{post['id']}.json")
+
+        if save_path.exists():
+            print(f"post {post['id']} already saved")
+        else:
+            print(f"saving post {post['id']}")
+            with save_path.open("w", encoding="utf-8") as f:
+                json.dump(post, f)
+
+        if post["id"] not in db_posts:
+            print("inserting post into database")
+            insert_post(post, cur)
+
+
+def get_latest_posts(cur: psycopg.Cursor) -> None:
     """Get latest posts from the site.
 
     Posts are saved in individual files, named with their post_id.
     """
+    db_posts = [
+        int(post["id"])
+        for post in cur.execute(
+            """SELECT DISTINCT post_id as id from posts""",
+        ).fetchall()
+    ]
+
     with httpx.Client(
         headers=headers,
         cookies=cookies,
         timeout=30,
     ) as client:
         existing_posts = {int(i.stem) for i in Path("./posts").iterdir()}
-
-        res = client.get(
-            "https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25",
-        )
+        res = get_posts_by_page(client, 1)
 
         total_posts = int(res.headers["x-wp-total"])
         total_pages = int(res.headers["x-wp-totalpages"])
 
-        if total_pages > 1:
-            print(
-                f"Found {total_pages} pages and {total_posts} posts",
+        print(
+            f"Found {total_pages} pages and {total_posts} posts",
+        )
+
+        with Path("./notes/report.txt").open("a") as f:
+            f.write(
+                f"\n{datetime.datetime.now()} Found {total_pages} pages and {total_posts} posts",
             )
 
-            for i in range(1, total_pages + 1):
-                print(f"Page {i}")
+        if res:
+            posts = res.json()
+            save_posts(posts, db_posts, cur)
 
-                url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?page={i}&per_page=25"
-                res = client.get(url)
+        # if total_pages > 1:
+        #     for i in range(2, total_pages + 1):
+        #         print(f"Page {i}")
 
-                posts = get_posts_by_page(client, i)
+        #         res = get_posts_by_page(client, i)
 
-                if posts:
-                    post_ids = {int(post["id"]) for post in posts}
+        #         if res:
+        #             posts = res.json()
 
-                    if not post_ids.issubset(existing_posts):
-                        print("found unsaved posts")
-                        for post in posts:
-                            save_path = Path(f"./posts/{post['id']}.json")
+        #             post_ids = {int(post["id"]) for post in posts}
 
-                            if not save_path.exists():
-                                print(f"{save_path.name} doesn't exist")
-
-                                with save_path.open("w", encoding="utf-8") as f:
-                                    json.dump(post, f)
-                    else:
-                        print("all posts already saved, exiting")
-                        break
-
-        print("-" * 20)
+        #             if not post_ids.issubset(existing_posts):
+        #                 print("found unsaved posts")
+        #                 save_posts(posts, db_posts, cur)
+        #             else:
+        #                 print("posts already saved, exiting")
+        #                 break
 
 
 if __name__ == "__main__":
-    get_latest_posts()
+    with load_db() as conn, conn.cursor() as cur:
+        get_latest_posts(cur)

@@ -12,3 +12,6 @@ dependencies = [
     "markdown>=3.9",
     "user-agent>=0.1.14",
 ]
+[tool.ty.rules]
+non-subscriptable = "ignore"
+possibly-missing-attribute = "ignore"
