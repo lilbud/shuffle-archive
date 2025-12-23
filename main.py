@@ -10,6 +10,7 @@ import psycopg
 from psycopg.rows import dict_row
 from user_agent import generate_user_agent
 
+from cleanup import format_article_content
 from database import insert_post, load_db
 
 cookies = {"wordpress_test_cookie": "WP Cookie check"}

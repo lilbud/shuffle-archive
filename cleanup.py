@@ -56,25 +56,14 @@ def format_tags(tags_list: list[int]) -> list[dict]:
 
 
 def format_article_content(orig_content: str) -> str:
-    """Format article markup into markdown.
+    """Format article markup.
 
-    The articles are formatted as HTML, which is to be converted to markdown
-    This function fixes encoding errors, as well as additional fixes using regex
+    The articles are formatted as HTML, which needs some fixes done before
+    inserting into database. Various fixes related to missing/incorrect tags.
+    This helps with markdown conversion later.
     """
-    fixes = [
-        ["(\r?\n){2}", "<p></p>"],  # multiple new line replace
-    ]
-
-    # youtube link fixes, replace embed with direct video link
-    youtube_fixes = [
-        [r"youtube.com\/embed\/(?!videoseries)", "youtube.com/watch?v="],
-        [r"youtube.com\/embed\/videoseries", "youtube.com/playlist"],
-        [r"\?feature=oembed", ""],
-        [r"&feature=oembed", ""],
-    ]
-
-    for fix in fixes:
-        orig_content = re.sub(fix[0], fix[1], orig_content)
+    # multiple new line replace
+    orig_content = re.sub("(\r?\n){2}", "<p></p>", orig_content)
 
     soup = bs4(orig_content, "lxml")
 
@@ -84,8 +73,24 @@ def format_article_content(orig_content: str) -> str:
 
         if src:
             if "youtube" in src:
-                for fix in youtube_fixes:
-                    src = re.sub(fix[0], fix[1], src)
+                # Replace embedded video with direct link
+                src = re.sub(
+                    r"youtube.com\/embed\/(?!videoseries)",
+                    "youtube.com/watch?v=",
+                    src,
+                )
+
+                # Replace embedded playlist with direct link
+                src = re.sub(
+                    r"youtube.com\/embed\/videoseries",
+                    "youtube.com/playlist",
+                    src,
+                )
+
+                # Remove embed params
+                src = re.sub(r"\?feature=oembed", "", src)
+                src = re.sub(r"&feature=oembed", "", src)
+
             elif "videopress" in src:
                 src = re.sub(r"\?hd.*", "", src)
 

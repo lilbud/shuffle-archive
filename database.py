@@ -41,15 +41,9 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
 
     title = ftfy.fix_text(data["title"]["rendered"])
 
-    content = ftfy.fix_text(
-        html_to_markdown.convert(
-            format_article_content(data["content"]["rendered"]),
-        ),
-    )
+    content = format_article_content(data["content"]["rendered"])
 
-    excerpt = ftfy.fix_text(
-        html_to_markdown.convert(data["excerpt"]["rendered"]),
-    )
+    excerpt = data["excerpt"]["rendered"]
 
     author = cur.execute(
         """select id from authors where author_id = %(id)s""",
@@ -144,5 +138,6 @@ if __name__ == "__main__":
             print(post_id)
 
             cur.execute(
-                """UPDATE posts SET slug=%s WHERE post_id = %s""", (slug, post_id)
+                """UPDATE posts SET slug=%s WHERE post_id = %s""",
+                (slug, post_id),
             )
