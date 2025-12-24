@@ -53,7 +53,7 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
     cur.execute(
         """INSERT INTO posts (post_id, published, last_modified, url, title, content, excerpt, author, slug)
             values (%(id)s, %(published)s, %(last_modified)s, %(url)s, %(title)s, %(content)s, %(excerpt)s, %(author)s, %(slug)s)
-            on conflict (post_id) do nothing""",
+            on conflict (post_id,published) do nothing""",
         {
             "id": id,
             "published": published,

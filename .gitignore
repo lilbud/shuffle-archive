@@ -10,3 +10,9 @@ wheels/
 .venv
 
 categories/
+
+# env
+.env
+
+# IA Config
+config.ini
