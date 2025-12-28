@@ -36,6 +36,6 @@ New categories only for the purposes of the corresponding books. Will be checked
 # All Books
 - Make sure links are updated to point to book itself, rather than the site. If another book, then update to say that.
 - External links are correct, point to IA if not.
-- Youtube/Videopress: Videos can be embedded, maybe add a description saying what the video is. Already replaced embeds with direct links.
+- Youtube/Videopress: Videos can be embedded in epub, maybe add a description saying what the video is. Already replaced embeds with direct links.
 - Audio: Perhaps upload audio to IA, and link to that. If not, add description like above.
 - Images: can be embedded, maybe resized if needed.

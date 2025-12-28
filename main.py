@@ -79,7 +79,8 @@ def get_tags() -> None:
 
 
 def get_posts_by_page(client: httpx.Client, page: int = 1) -> httpx.Response | None:
-    url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}&order=desc&orderby=modified"
+    url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}"
+    # url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}&order=desc&orderby=modified"
 
     try:
         return client.get(url)
@@ -94,25 +95,25 @@ def save_posts(posts: list[dict], db_posts: list[int], cur: psycopg.Cursor):
         if save_path.exists():
             print(f"post {post['id']} already saved")
 
-            db_post = cur.execute(
-                """SELECT * FROM posts where post_id = %s""",
-                (post["id"]),
-            ).fetchone()
+            # db_post = cur.execute(
+            #     """SELECT * FROM posts where post_id = %s""",
+            #     (post["id"]),
+            # ).fetchone()
 
-            save_path = Path(f"./posts/{post['id']}_1.json")
+            # save_path = Path(f"./posts/{post['id']}_1.json")
 
-            new_content = format_article_content(post["content"]["rendered"])
-            new_title = ftfy.fix_text(post["title"]["rendered"])
+            # new_content = format_article_content(post["content"]["rendered"])
+            # new_title = ftfy.fix_text(post["title"]["rendered"])
 
-            if db_post["title"] != new_title:
-                print("post content or title differs, saving new file")
-                with save_path.open(
-                    "w",
-                    encoding="utf-8",
-                ) as f:
-                    json.dump(post, f)
+            # if db_post["title"] != new_title:
+            #     print("post content or title differs, saving new file")
+            #     with save_path.open(
+            #         "w",
+            #         encoding="utf-8",
+            #     ) as f:
+            #         json.dump(post, f)
 
-                insert_post(post, cur)
+            #     insert_post(post, cur)
 
         else:
             print(f"saving post {post['id']}")
@@ -181,7 +182,7 @@ def get_latest_posts(cur: psycopg.Cursor) -> None:
 
 if __name__ == "__main__":
     with load_db() as conn, conn.cursor() as cur:
-        # get_latest_posts(cur)
-        file = json.load(Path("./posts/40635_1.json").open())
+        get_latest_posts(cur)
+        # file = json.load(Path("./posts/40635_1.json").open())
 
-        insert_post(file, cur)
+        # insert_post(file, cur)
