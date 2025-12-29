@@ -25,7 +25,11 @@ def load_db() -> psycopg.Connection:
 
 
 def insert_post(data: dict, cur: psycopg.Cursor) -> None:
-    """Insert post into database."""
+    """Insert post into database.
+
+    Posts are only inserted if the post_id and modified date in the
+    API response object are different than the one in the database.
+    """
     id = data["id"]
     url = data["link"]
 
@@ -53,7 +57,7 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
     cur.execute(
         """INSERT INTO posts (post_id, published, last_modified, url, title, content, excerpt, author, slug)
             values (%(id)s, %(published)s, %(last_modified)s, %(url)s, %(title)s, %(content)s, %(excerpt)s, %(author)s, %(slug)s)
-            on conflict (post_id,published) do nothing""",
+            on conflict (post_id, published) do nothing""",
         {
             "id": id,
             "published": published,

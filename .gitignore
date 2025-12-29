@@ -16,3 +16,6 @@ categories/
 
 # IA Config
 config.ini
+
+# DB backup script
+*.ps1

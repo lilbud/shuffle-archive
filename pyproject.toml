@@ -13,5 +13,5 @@ dependencies = [
     "user-agent>=0.1.14",
 ]
 [tool.ty.rules]
-non-subscriptable = "ignore"
+not-subscriptable = "ignore"
 possibly-missing-attribute = "ignore"

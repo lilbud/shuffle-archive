@@ -78,88 +78,105 @@ def get_tags() -> None:
                 time.sleep(1)
 
 
-def get_posts_by_page(client: httpx.Client, page: int = 1) -> httpx.Response | None:
-    url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}"
-    # url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}&order=desc&orderby=modified"
-
+def get_posts_by_page(client: httpx.Client, url: str) -> httpx.Response | None:
+    """Make request to WP API and return response."""
     try:
         return client.get(url)
     except httpx.HTTPError:
         return None
 
 
-def save_posts(posts: list[dict], db_posts: list[int], cur: psycopg.Cursor):
+def save_posts(posts: list[dict], cur: psycopg.Cursor) -> None:
+    """Iterate list of post dicts and save each to file."""
     for post in posts:
-        save_path = Path(f"./posts/{post['id']}.json")
+        timestamp = (
+            datetime.datetime.strptime(
+                post["modified_gmt"],
+                "%Y-%m-%dT%H:%M:%S",
+            )
+            .astimezone(datetime.UTC)
+            .timestamp()
+        )
 
-        if save_path.exists():
-            print(f"post {post['id']} already saved")
+        save_path = Path(f"./posts/{post['id']}_{int(timestamp)}.json")
 
-            # db_post = cur.execute(
-            #     """SELECT * FROM posts where post_id = %s""",
-            #     (post["id"]),
-            # ).fetchone()
-
-            # save_path = Path(f"./posts/{post['id']}_1.json")
-
-            # new_content = format_article_content(post["content"]["rendered"])
-            # new_title = ftfy.fix_text(post["title"]["rendered"])
-
-            # if db_post["title"] != new_title:
-            #     print("post content or title differs, saving new file")
-            #     with save_path.open(
-            #         "w",
-            #         encoding="utf-8",
-            #     ) as f:
-            #         json.dump(post, f)
-
-            #     insert_post(post, cur)
-
-        else:
-            print(f"saving post {post['id']}")
+        if not save_path.exists():
             with save_path.open("w", encoding="utf-8") as f:
                 json.dump(post, f)
 
-        if post["id"] not in db_posts:
-            print("inserting post into database")
-            insert_post(post, cur)
+        print("inserting post into database")
+        insert_post(post, cur)
 
 
 def get_latest_posts(cur: psycopg.Cursor) -> None:
-    """Get latest posts from the site.
+    """Get posts ordered by modified date.
 
-    Posts are saved in individual files, named with their post_id.
+    Rather than creating new posts, the site is instead opting to replace the content of
+    old posts with new content. This is a problem for a few reasons. Namely that the
+    "replaced" posts are basically gone without being archived.
+
+    This function grabs those posts and saves them separately from the originals.
     """
-    db_posts = [
-        int(post["id"])
-        for post in cur.execute(
-            """SELECT DISTINCT post_id as id from posts""",
-        ).fetchall()
-    ]
+    page = 1
+    url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}&order=desc&orderby=modified"
 
     with httpx.Client(
         headers=headers,
         cookies=cookies,
-        timeout=30,
+        timeout=60,
     ) as client:
-        existing_posts = {int(i.stem) for i in Path("./posts").iterdir()}
-        res = get_posts_by_page(client, 1)
-
-        total_posts = int(res.headers["x-wp-total"])
-        total_pages = int(res.headers["x-wp-totalpages"])
-
-        print(
-            f"Found {total_pages} pages and {total_posts} posts",
-        )
-
-        with Path("./notes/report.txt").open("a") as f:
-            f.write(
-                f"\n{datetime.datetime.now()} Found {total_pages} pages and {total_posts} posts",
-            )
+        res = get_posts_by_page(client=client, url=url)
 
         if res:
+            total_posts = int(res.headers["x-wp-total"])
+            total_pages = int(res.headers["x-wp-totalpages"])
+
+            print(
+                f"Found {total_pages} pages and {total_posts} posts",
+            )
+
+            cur.execute(
+                """INSERT INTO update_log (pages, posts, created_at) values(%s, %s, %s)""",
+                (
+                    total_pages,
+                    total_posts,
+                    datetime.datetime.now().astimezone(datetime.UTC),
+                ),
+            )
+
             posts = res.json()
-            save_posts(posts, db_posts, cur)
+            save_posts(posts, cur)
+
+
+def get_newest_posts(cur: psycopg.Cursor) -> None:
+    """Get newest posts from the site.
+
+    Posts are saved in individual files, as well as inserted into database.
+    """
+    with httpx.Client(
+        headers=headers,
+        cookies=cookies,
+        timeout=60,
+    ) as client:
+        page = 1
+        url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}"
+        res = get_posts_by_page(client, url)
+
+        if res:
+            total_posts = int(res.headers["x-wp-total"])
+            total_pages = int(res.headers["x-wp-totalpages"])
+
+            print(
+                f"Found {total_pages} pages and {total_posts} posts",
+            )
+
+            cur.execute(
+                """INSERT INTO update_log (pages, posts, created_at) values(%s, %s, %s)""",
+                (total_pages, total_posts, datetime.datetime.now()),
+            )
+
+            posts = res.json()
+            save_posts(posts, cur)
 
         # if total_pages > 1:
         #     for i in range(2, total_pages + 1):
@@ -182,7 +199,8 @@ def get_latest_posts(cur: psycopg.Cursor) -> None:
 
 if __name__ == "__main__":
     with load_db() as conn, conn.cursor() as cur:
-        get_latest_posts(cur)
-        # file = json.load(Path("./posts/40635_1.json").open())
+        print("Grabbing newest posts.")
+        get_newest_posts(cur)
 
-        # insert_post(file, cur)
+        print("Grabbing recently updated posts.")
+        get_latest_posts(cur)
