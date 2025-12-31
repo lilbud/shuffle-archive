@@ -32,3 +32,8 @@
 - Add latest database backup
 - Add function to get recently updated posts. I found that many posts are being "updated", having their content entirely replaced but keeping the same ID.
 - JSON file naming update. Files are now named like so `ID_MODIFIED-TIMESTAMP.json`. Posts are saved with their `modified` timestamp appended. Goes hand-in-hand with the above, saving newer versions of posts.
+
+# 2025-12-31
+- Add KoD 12/30 and 31
+- Script updates
+- Notes update, including preliminary book list

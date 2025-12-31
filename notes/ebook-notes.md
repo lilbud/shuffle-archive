@@ -1,13 +1,25 @@
 # Ebook Notes
+The eventual goal for this project is a series of eBooks which compile all of the sites content.
 
-Originally, while I had the idea to create ebooks of the sites content. I wasn't entirely sure how to go about it, let alone at the scale needed for this site.
+Before getting to that, each post needs a bit of work before any ebooks are created. The content of each post is stored as HTML, and that HTML needs some cleanup/formatting fixes so that it will be converted properly. These fixes are listed in `fixes.txt`, and the code itself is in `cleanup.py`. Additionally, the `ftfy` library is used to fix some encoding quirks.
 
-I wasn't going to rely on a paid third party site like Ken recommends, and wanted to use free (and ideally open source) tools instead. Luckily, I remembered [Calibre](https://calibre-ebook.com/). Which is a program used for reading and managing ebook files. It also has a fairly powerful conversion tool, which can convert files to many formats including epub, pdf, azw3, and more.
+Once the HTML is cleaned, we can move on to the next step, which is actually creating the ebooks. I'll admit I had no idea how I'd go about it, and I started looking around for projects which did something similar. Ones that took source HTML, cleaned it up a bit, and spit out ebook files in various formats. After a bit of searching I found `otwarchive`, which is the source for a site named "Archive of Our Own", a somewhat well known website.
 
-Calibre also has a command line tool to speed up the conversion process. And a script will likely be included in this repo showing how it is done.
+What the site is isn't important for this project, there was a [part](https://github.com/otwcode/otwarchive/blob/master/app/models/download_writer.rb) that did prove to be of use. The site hosts "works", and those "works" can be not only viewed on the site but downloaded in various formats like epub, PDF, HTML, and others. They manage this using [Calibre](https://calibre-ebook.com/), more specifically their `ebook-convert` command line tool. This handles the conversion from HTML to the various formats. 
 
-For example, the content of each post (in the JSON file) is stored as HTML. Some cleanup is needed for that HTML so that it will convert to markdown properly. A list of these various fixes are listed in `fixes.md`. Additionally, `ftfy` is used to fix some encoding related quirks.
+Another project providing inspiration is [StandardEbooks](https://standardebooks.org/), a project which creates ebooks out of public domain works. They don't just throw source HTML in and upload the resulting epub files, but have a series of parsing/formatting tools, as well as a manual of standards. These tools and the manual are used to ensure that every book (no matter source language or format) is presented in a consistent style.
 
-Once this is done, the resulting HTML can be converted using Calibres `ebook-convert` command line tool. This results in a clean ebook file for each post.
+Both projects will be used as inspiration for how I end up creating my ebooks. The StandardEbooks manual will prove useful, but I likely won't follow it as scripture, as I'm working in an entirely different genre. Of the `otwarchive` code, I only plan on using their Calibre command and maybe referencing their output files as a loose template to follow.
 
-Seeing as there are 2,000 posts, an ebook for each file is overkill. The final ebooks will likely be compiled like the "bookshelf collection".
+## Calibre Settings
+--toc-threshold: "0",
+--use-auto-toc
+--title: Post title,
+--title-sort: post title with prefixes removed,
+--authors: author name (almost always "Ken Rosen"),
+--author-sort: author name, last first,
+--comments: post excerpt,
+--tags: post tags, helpful in Calibre and other ebook managers,
+--pubdate: publish date,
+--publisher: "e-street-shuffle" or 'lilbud',
+--language: 'english',

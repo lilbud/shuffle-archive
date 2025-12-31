@@ -30,21 +30,6 @@ headers = {
 }
 
 
-def generate_tag_list() -> None:
-    """Combine tag json files into a single json file."""
-    folder = Path("./tags")
-
-    tags = {}
-
-    for file in folder.iterdir():
-        data = json.loads(file.read_text())
-
-        for tag in data:
-            tags[tag["id"]] = tag
-
-    json.dump(tags, Path("./tags.json").open("w"))
-
-
 def get_tags() -> None:
     """Get all tags using WP REST API."""
     with httpx.Client(
@@ -76,6 +61,27 @@ def get_tags() -> None:
                     pass
 
                 time.sleep(1)
+
+
+def get_categories() -> None:
+    """Get all categories using WP REST API."""
+    with httpx.Client(
+        headers=headers,
+        cookies=cookies,
+        timeout=20,
+    ) as client:
+        res = client.get(
+            "https://estreetshuffle.com/index.php/wp-json/wp/v2/categories?per_page=100",
+        )
+
+        save_path = Path("./categories")
+
+        url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/categories?per_page=100&page=1"
+
+        res = client.get(url)
+
+        with Path(save_path, f"1.json").open("w") as f:
+            json.dump(res.json(), f)
 
 
 def get_posts_by_page(client: httpx.Client, url: str) -> httpx.Response | None:
@@ -170,10 +176,10 @@ def get_newest_posts(cur: psycopg.Cursor) -> None:
                 f"Found {total_pages} pages and {total_posts} posts",
             )
 
-            cur.execute(
-                """INSERT INTO update_log (pages, posts, created_at) values(%s, %s, %s)""",
-                (total_pages, total_posts, datetime.datetime.now()),
-            )
+            # cur.execute(
+            #     """INSERT INTO update_log (pages, posts, created_at) values(%s, %s, %s)""",
+            #     (total_pages, total_posts, datetime.datetime.now()),
+            # )
 
             posts = res.json()
             save_posts(posts, cur)

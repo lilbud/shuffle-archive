@@ -9,17 +9,6 @@ import html_to_markdown
 from bs4 import BeautifulSoup as bs4
 from markdownify import markdownify as md
 
-# title: title -> rendered
-# author: author
-# category: categories -> list?
-# page content: content -> rendered
-# tags: list of IDs
-# header image: jetpack_featured_media_url (remove params after .jpg)
-# published: date (%Y-%m-%dT%H:%M:%S)
-
-cat_dict = dict(json.loads(Path("./categories_fixed.json").read_text()))
-tag_dict = dict(json.loads(Path("./tags.json").read_text()))
-
 
 def format_date(date: str) -> datetime.datetime:
     """Convert date string to datetime object."""
@@ -29,30 +18,6 @@ def format_date(date: str) -> datetime.datetime:
     ).astimezone(
         datetime.timezone.utc,
     )
-
-
-def format_categories(category_list: list[int]) -> list[dict]:
-    """Create list of categories using list of IDs."""
-    categories = []
-
-    for item in category_list:
-        res = cat_dict.get(str(item))
-
-        categories.append(f"[{res['name']}]({res['url']})")
-
-    return categories
-
-
-def format_tags(tags_list: list[int]) -> list[dict]:
-    """Create list of tags using list of IDs."""
-    tags = []
-
-    for item in tags_list:
-        res = tag_dict.get(str(item))
-
-        tags.append(f"[{res['name']}]({res['url']})")
-
-    return tags
 
 
 def format_article_content(orig_content: str) -> str:
@@ -88,8 +53,7 @@ def format_article_content(orig_content: str) -> str:
                 )
 
                 # Remove embed params
-                src = re.sub(r"\?feature=oembed", "", src)
-                src = re.sub(r"&feature=oembed", "", src)
+                src = re.sub(r"(\?|&)feature=oembed", "", src)
 
             elif "videopress" in src:
                 src = re.sub(r"\?hd.*", "", src)
