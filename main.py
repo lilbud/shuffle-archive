@@ -110,7 +110,6 @@ def save_posts(posts: list[dict], cur: psycopg.Cursor) -> None:
             with save_path.open("w", encoding="utf-8") as f:
                 json.dump(post, f)
 
-        print("inserting post into database")
         insert_post(post, cur)
 
 
