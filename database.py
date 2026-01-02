@@ -49,10 +49,8 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
 
     excerpt = data["excerpt"]["rendered"]
 
-    author = cur.execute(
-        """select id from authors where author_id = %(id)s""",
-        {"id": int(data["author"])},
-    ).fetchone()["id"]
+    # the only author on the site is Ken, so no point in querying with only one result.
+    author = "c8f4a2a5-a55d-4ef7-82d3-d59a8940c107"
 
     cur.execute(
         """INSERT INTO posts (post_id, published, last_modified, url, title, content, excerpt, author, slug)
@@ -74,11 +72,11 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
     print(f"Successfully inserted post {id}")
 
     post_id = cur.execute(
-        """select id from posts where post_id = %(id)s""",
-        {"id": id},
+        """select id from posts where post_id = %s order by created_at desc limit 1""",
+        (id,),
     ).fetchone()["id"]
 
-    if post_id:
+    if post_id and int(data["featured_media"]) != 0:
         cur.execute(
             """insert into media (media_id, url, post_id)
                 values (%(media)s, %(url)s, %(post)s) on conflict do nothing""",

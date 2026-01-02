@@ -92,6 +92,37 @@ def get_posts_by_page(client: httpx.Client, url: str) -> httpx.Response | None:
         return None
 
 
+def get_media(cur: psycopg.Cursor):
+    with httpx.Client(
+        headers=headers,
+        cookies=cookies,
+        timeout=60,
+    ) as client:
+        media = cur.execute(
+            """SELECT media_id FROM media WHERE url IS NULL"""
+        ).fetchall()
+
+        if len(media) > 1:
+            print(f"{len(media)} objects missing URL, grabbing now")
+
+            for row in media:
+                res = client.get(
+                    f"https://estreetshuffle.com/index.php/wp-json/wp/v2/media/{row['media_id']}"
+                )
+
+                if res:
+                    data = res.json()
+
+                    url = data["guid"]["rendered"]
+
+                    cur.execute(
+                        """UPDATE media SET url = %s WHERE media_id = %s""",
+                        (url, row["media_id"]),
+                    )
+        else:
+            print(f"no missing media URLs")
+
+
 def save_posts(posts: list[dict], cur: psycopg.Cursor) -> None:
     """Iterate list of post dicts and save each to file."""
     for post in posts:
@@ -209,3 +240,5 @@ if __name__ == "__main__":
 
         print("Grabbing recently updated posts.")
         get_latest_posts(cur)
+
+        # get_media(cur)

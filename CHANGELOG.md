@@ -42,3 +42,8 @@
 - Add KoD January 1
 - Add Tunnel of Love book preface (replaces post 34500, which was a blog update post from May 2025)
 - New database dump
+
+# 2026-01-02
+- Add KoD January 2
+- `database.py` update: remove check for existing post, is handled by "if exists do nothing".
+- `main.py`: add "get_media" function. Grabs media URL by ID.
