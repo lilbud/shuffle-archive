@@ -36,6 +36,4 @@ Here is a count of the posts so far, as of 12/23/25 at 12pm:
 ## Note about updated posts (12/24)
 In checking some of the posts that are still live have been entirely replaced in some way, but the URL and post ID remains the same. Usually the title and content are completely new, sometimes the modified date as well.
 
-These new ones will be saved in `./posts` with a "_1" appended to the file name. 
-
-Also will be inserted into the database.
+These posts will have the ID, and the "modified at" timestamp appended. These posts will also be included in the database dump.

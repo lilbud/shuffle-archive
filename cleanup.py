@@ -63,8 +63,8 @@ def format_article_content(orig_content: str) -> str:
     for img in soup.find_all("img"):
         src = img["src"]
 
-        if "i0.wp" in img["src"]:
-            src = re.sub(r"i0.wp.com/|\?resize.*", "", img["src"])
+        if re.search(r"i\d.wp.com/", img["src"]):
+            src = re.sub(r"i\d.wp.com/|\?resize.*", "", img["src"])
 
         img["src"] = src
 

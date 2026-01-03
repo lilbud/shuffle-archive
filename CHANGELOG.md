@@ -47,3 +47,8 @@
 - Add KoD January 2
 - `database.py` update: remove check for existing post, is handled by "if exists do nothing".
 - `main.py`: add "get_media" function. Grabs media URL by ID.
+
+# 2026-01-03
+- Add KoD January 3
+- Update cleanup script to catch `i[0-9].wp.com` image urls instead of just `i0`
+- New database dump
