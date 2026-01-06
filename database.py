@@ -36,12 +36,12 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
     published = datetime.datetime.strptime(
         data["date_gmt"],
         "%Y-%m-%dT%H:%M:%S",
-    ).astimezone(datetime.UTC)
+    )
 
     last_modified = datetime.datetime.strptime(
         data["modified_gmt"],
         "%Y-%m-%dT%H:%M:%S",
-    ).astimezone(datetime.UTC)
+    )
 
     title = ftfy.fix_text(data["title"]["rendered"])
 
@@ -52,29 +52,41 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
     # the only author on the site is Ken, so no point in querying with only one result.
     author = "c8f4a2a5-a55d-4ef7-82d3-d59a8940c107"
 
-    cur.execute(
-        """INSERT INTO posts (post_id, published, last_modified, url, title, content, excerpt, author, slug)
-            values (%(id)s, %(published)s, %(last_modified)s, %(url)s, %(title)s, %(content)s, %(excerpt)s, %(author)s, %(slug)s)
-            on conflict (post_id, published) do nothing""",
-        {
-            "id": id,
-            "published": published,
-            "last_modified": last_modified,
-            "url": url,
-            "title": title,
-            "content": content,
-            "excerpt": excerpt,
-            "author": author,
-            "slug": data["slug"],
-        },
-    )
+    post = cur.execute(
+        """select id, last_modified from posts where post_id = %s and last_modified = %s""",
+        (id, last_modified),
+    ).fetchone()
 
-    print(f"Successfully inserted post {id}")
+    try:
+        post_id = post["id"]
 
-    post_id = cur.execute(
-        """select id from posts where post_id = %s order by created_at desc limit 1""",
-        (id,),
-    ).fetchone()["id"]
+        print(
+            f"post exists in database with ID: {post['id']} and Last Modified timestamp: {post['last_modified']}"
+        )
+    except TypeError:
+        cur.execute(
+            """INSERT INTO posts (post_id, published, last_modified, url, title, content, excerpt, author, slug)
+                values (%(id)s, %(published)s, %(last_modified)s, %(url)s, %(title)s, %(content)s, %(excerpt)s, %(author)s, %(slug)s)
+                on conflict (post_id, published) do nothing""",
+            {
+                "id": id,
+                "published": published,
+                "last_modified": last_modified,
+                "url": url,
+                "title": title,
+                "content": content,
+                "excerpt": excerpt,
+                "author": author,
+                "slug": data["slug"],
+            },
+        )
+
+        print(f"Successfully inserted post {id}")
+
+        post_id = cur.execute(
+            """select id from posts where post_id = %s order by created_at desc limit 1""",
+            (id,),
+        ).fetchone()["id"]
 
     if post_id and int(data["featured_media"]) != 0:
         cur.execute(
@@ -117,29 +129,13 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
                 {"post": post_id, "tag": tag},
             )
 
-        for item in data["jetpack-related-posts"]:
-            related = cur.execute(
-                """select id from posts where post_id = %(post)s""",
-                {"post": item["id"]},
-            ).fetchone()["id"]
+    for item in data["jetpack-related-posts"]:
+        related = cur.execute(
+            """select id from posts where post_id = %(post)s""",
+            {"post": item["id"]},
+        ).fetchone()["id"]
 
-            cur.execute(
-                """INSERT INTO related_posts (post_id, related_post) VALUES (%(post)s, %(related)s) on conflict do nothing""",
-                {"post": post_id, "related": related},
-            )
-
-
-if __name__ == "__main__":
-    with load_db() as conn, conn.cursor() as cur:
-        for post in Path("./posts").iterdir():
-            data = json.load(post.open())
-
-            post_id = data["id"]
-            slug = data["slug"]
-
-            print(post_id)
-
-            cur.execute(
-                """UPDATE posts SET slug=%s WHERE post_id = %s""",
-                (slug, post_id),
-            )
+        cur.execute(
+            """INSERT INTO related_posts (post_id, related_post) VALUES (%(post)s, %(related)s) on conflict do nothing""",
+            {"post": post_id, "related": related},
+        )

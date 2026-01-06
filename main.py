@@ -57,6 +57,12 @@ def get_tags() -> None:
 
                     with Path(save_path, f"{i}.json").open("w") as f:
                         json.dump(res.json(), f)
+
+                    for tag in res.json():
+                        cur.execute(
+                            """INSERT INTO tags (tag_id, name, slug) VALUES (%s, %s, %s)""",
+                            (tag["id"], ftfy.fix_text(tag["name"]), tag["slug"]),
+                        )
                 except httpx.HTTPError:
                     pass
 
@@ -80,8 +86,14 @@ def get_categories() -> None:
 
         res = client.get(url)
 
-        with Path(save_path, f"1.json").open("w") as f:
+        with Path(save_path, f"categories.json").open("w") as f:
             json.dump(res.json(), f)
+
+        for cat in res.json():
+            cur.execute(
+                """INSERT INTO categories (category_id, name) VALUES (%s, $s) ON CONFLICT (category_id) DO NOTHING""",
+                (cat["id"], cat["name"]),
+            )
 
 
 def get_posts_by_page(client: httpx.Client, url: str) -> httpx.Response | None:
@@ -92,33 +104,42 @@ def get_posts_by_page(client: httpx.Client, url: str) -> httpx.Response | None:
         return None
 
 
-def get_media(cur: psycopg.Cursor):
+def get_media(cur: psycopg.Cursor, conn: psycopg.Connection):
     with httpx.Client(
         headers=headers,
         cookies=cookies,
         timeout=60,
     ) as client:
         media = cur.execute(
-            """SELECT media_id FROM media WHERE url IS NULL"""
+            """SELECT media_id FROM media WHERE url IS NULL""",
         ).fetchall()
 
         if len(media) > 1:
             print(f"{len(media)} objects missing URL, grabbing now")
 
             for row in media:
+                print(row["media_id"])
+
                 res = client.get(
                     f"https://estreetshuffle.com/index.php/wp-json/wp/v2/media/{row['media_id']}"
                 )
 
                 if res:
                     data = res.json()
+                    try:
+                        url = data["guid"]["rendered"]
 
-                    url = data["guid"]["rendered"]
+                        cur.execute(
+                            """UPDATE media SET url = %s WHERE media_id = %s""",
+                            (url, row["media_id"]),
+                        )
+                    except KeyError:
+                        continue
 
-                    cur.execute(
-                        """UPDATE media SET url = %s WHERE media_id = %s""",
-                        (url, row["media_id"]),
-                    )
+                    conn.commit()
+
+                time.sleep(1)
+
         else:
             print(f"no missing media URLs")
 
@@ -126,14 +147,10 @@ def get_media(cur: psycopg.Cursor):
 def save_posts(posts: list[dict], cur: psycopg.Cursor) -> None:
     """Iterate list of post dicts and save each to file."""
     for post in posts:
-        timestamp = (
-            datetime.datetime.strptime(
-                post["modified_gmt"],
-                "%Y-%m-%dT%H:%M:%S",
-            )
-            .astimezone(datetime.UTC)
-            .timestamp()
-        )
+        timestamp = datetime.datetime.strptime(
+            post["modified_gmt"],
+            "%Y-%m-%dT%H:%M:%S",
+        ).timestamp()
 
         save_path = Path(f"./posts/{post['id']}_{int(timestamp)}.json")
 
@@ -234,11 +251,11 @@ def get_newest_posts(cur: psycopg.Cursor) -> None:
 
 
 if __name__ == "__main__":
-    with load_db() as conn, conn.cursor() as cur:
+    with load_db() as conn, conn.cursor() as cur:  # noqa: SIM117
         print("Grabbing newest posts.")
         get_newest_posts(cur)
 
         print("Grabbing recently updated posts.")
         get_latest_posts(cur)
 
-        # get_media(cur)
+        # get_media(cur, conn)
