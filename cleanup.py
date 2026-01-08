@@ -7,7 +7,8 @@ from pathlib import Path
 import ftfy
 import html_to_markdown
 from bs4 import BeautifulSoup as bs4
-from markdownify import markdownify as md
+
+# from markdownify import markdownify as md
 
 
 def format_date(date: str) -> datetime.datetime:
