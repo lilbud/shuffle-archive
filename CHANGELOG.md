@@ -57,3 +57,8 @@
 - E Street Shuffle is now "shutdown", no new posts will be added. Until the site truly shuts down in a year or so, posts will continue to be "mangled" (replaced in place), or outright deleted.
 - Add KoD January 4
 - Had to recreate database from scratch due to the published/last modified times being incorrect. The JSON files store those as UTC, and I mistakenly thought that `.astimezone(datetime.UTC)` meant that it would register as UTC time. Instead, it applied the 5hr difference to make it UTC. So if anyone out there is messing around with the database, you will likely have to DROP and CREATE the shuffle database in Postgres, sorry.
+
+# 2025-01-08
+- moved all of the JSON files to `posts_json`, and `posts` will be where the archive will be focused. See `notes/structure.md` for info.
+- added `books.ods`, which covers the posts that make up each book. So far only Kingdom of Days is mapped out.
+- new Database dump

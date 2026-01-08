@@ -82,11 +82,11 @@ def get_categories() -> None:
 
         save_path = Path("./categories")
 
-        url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/categories?per_page=100&page=1"
+        url = "https://estreetshuffle.com/index.php/wp-json/wp/v2/categories?per_page=100&page=1"
 
         res = client.get(url)
 
-        with Path(save_path, f"categories.json").open("w") as f:
+        with Path(save_path, "categories.json").open("w") as f:
             json.dump(res.json(), f)
 
         for cat in res.json():
@@ -121,7 +121,7 @@ def get_media(cur: psycopg.Cursor, conn: psycopg.Connection):
                 print(row["media_id"])
 
                 res = client.get(
-                    f"https://estreetshuffle.com/index.php/wp-json/wp/v2/media/{row['media_id']}"
+                    f"https://estreetshuffle.com/index.php/wp-json/wp/v2/media/{row['media_id']}",
                 )
 
                 if res:
@@ -141,7 +141,7 @@ def get_media(cur: psycopg.Cursor, conn: psycopg.Connection):
                 time.sleep(1)
 
         else:
-            print(f"no missing media URLs")
+            print("no missing media URLs")
 
 
 def save_posts(posts: list[dict], cur: psycopg.Cursor) -> None:
@@ -152,7 +152,7 @@ def save_posts(posts: list[dict], cur: psycopg.Cursor) -> None:
             "%Y-%m-%dT%H:%M:%S",
         ).timestamp()
 
-        save_path = Path(f"./posts/{post['id']}_{int(timestamp)}.json")
+        save_path = Path(f"./posts_json/{post['id']}_{int(timestamp)}.json")
 
         if not save_path.exists():
             with save_path.open("w", encoding="utf-8") as f:
@@ -250,10 +250,14 @@ def get_newest_posts(cur: psycopg.Cursor) -> None:
         #                 break
 
 
+def posts_to_folders():
+    print()
+
+
 if __name__ == "__main__":
-    with load_db() as conn, conn.cursor() as cur:  # noqa: SIM117
-        print("Grabbing newest posts.")
-        get_newest_posts(cur)
+    with load_db() as conn, conn.cursor() as cur:
+        # print("Grabbing newest posts.")
+        # get_newest_posts(cur)
 
         print("Grabbing recently updated posts.")
         get_latest_posts(cur)

@@ -53,7 +53,7 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
     author = "c8f4a2a5-a55d-4ef7-82d3-d59a8940c107"
 
     post = cur.execute(
-        """select id, last_modified from posts where post_id = %s and last_modified = %s""",
+        """select id, post_id, last_modified from posts where post_id = %s and last_modified = %s""",
         (id, last_modified),
     ).fetchone()
 
@@ -61,7 +61,7 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
         post_id = post["id"]
 
         print(
-            f"post exists in database with ID: {post['id']} and Last Modified timestamp: {post['last_modified']}"
+            f"post exists in database with ID: {post['post_id']} and Last Modified timestamp: {post['last_modified']}",
         )
     except TypeError:
         cur.execute(
