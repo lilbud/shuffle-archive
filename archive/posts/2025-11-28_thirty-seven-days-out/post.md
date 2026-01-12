@@ -1,0 +1,58 @@
+Happy Thanksgiving weekend to my American readers, and happy holiday season to all!
+
+A few minutes ago (as I type this), I finished updating the *Kingdom of Days* post for January 4th, 2026, which means that from my perspective at least, this blog has now officially ended.
+
+For you, it still has another 37 days to go. *Kingdom of Days* is staged and scheduled for publication at 4am PST for every day through January 4th, at which point all new content here will cease, along with the daily email for those of you who subscribe.
+
+I’m also now more than a month into what looks to be a two-year archiving project, and I have a lot more clarity on what these next two years are going to look like, starting in a matter of days from now.
+
+I previously shared my intention to keep the blog around in zombie form for a while, and while I will still do that, there are going to be some serious caveats that I want to make you aware of, because I think both the utility and the user experience of this site is going to get pretty gnarly pretty quickly.
+
+First: barring unforeseen circumstances, this site–meaning the E Street Shuffle homepage–will remain online and available through 2027, and possibly even into early 2028. That’s quite a bit longer than I originally promised, but I’ve realized I’m not going to be able to complete the physical archiving project before then.
+
+That said, here’s what you need to know about the *content* on the site:
+
+**Kingdom of Days**
+
+*Kingdom of Days* will remain on the site until it closes in late 2027 or early 2028. However, due to the archiving software I am using and in order to optimize for print, you’ll notice the following changes:
+
+- The post titles will drop the “Kingdom of Days” prefix. So instead of “Kingdom of Days: January 5” as the title, you will see simply “January 5.”
+- All of the “New for 20xx” article lead-ins will be deleted, along with all references to *Where the Band Was* essays.
+- Some entries will actually be updated for 2025 events, however I will not be republishing the articles, sending daily emails, or even adding a “New for 2026” lead-in. But if you happen to search for a particular date on the site, you may find it has an event for 2025 at the bottom of it.
+- **Most importantly**: The newspaper reviews and other images may be wildly out of order, perhaps placed nowhere near the part of the blog post that mentions them. This is a consequence of the tweaking I have to do for print layout purposes. It’s going to make most of the *Kingdom of Days* entries quite frustrating to read through online, in my opinion, so I wanted to alert you to that. The actual text of each article will remain in chronological order, it’s just the images and media that will likely be out of order. Here’s an [example](https://estreetshuffle.com/index.php/2025/02/01/kingdom-of-days-february-1-2/).
+
+
+These changes are already in effect for all of the January entries from Jan 5th onward, as well as for February entries. I’ll be working my way through the remainder of the *Kingdom* posts month by month throughout 2026.
+
+**Roll of the Dice, Cover Me, Meeting Across the River,** and **Where the Band Was**
+
+All of these articles will gradually and permanently disappear, starting in just a few days time. (Yes, even before the blog stops publishing.)
+
+I’ll explain the schedule in a moment, but here’s why this is happening:
+
+There are *over two thousand* published posts on this site, and I’m in the process of archiving and collecting them into bound volumes for preservation. *Kingdom of Days* is relatively easy to coordinate. There’s a book for each month, and each post is already in the correct order on the site. That’s why I’m okay leaving those posts on-line–they are in a separate section of the site, so they don’t clutter up my view as I work through the rest of the site.
+
+But: one consequence of my “roll of the dice” approach for the rest of the site is that there is absolutely no rhyme or reason to the organization of the rest of the site when I browse through posts in my admin view. Which makes it very confusing for me to plan out the archiving process and figure out what goes where.
+
+This is especially true for tracks that appear on multiple albums, never released outtakes, and Cover Me entries. So in order to preserve my sanity, I’m simply going to delete every post once they are compiled into book form and the books are printed.
+
+Here’s how that shakes out:
+
+- Every month, I’m going to archive one album’s worth of *Roll of the Dice* posts. That means all of the album tracks, plus all of the outtakes associated with the recording session of that album. Additionally, I will delete all of the *Cover Me* entries for other artists covering songs from that particular album. **You will see this begin in early December when all entries related to *Greetings From Asbury Park, N.J.*** **are removed from the site.** In early January, all entries related to *Tunnel of Love* will come down. (In true RotD fashion, I’m not going in any particular or pre-determined order.) This process will continue monthly throughout 2026 and 2027.
+- For *Kingdom of Days*, even though the master entries will remain (in altered form) on the site, all of the *Where the Band Was* entries for a particular month will be deleted once the book for that month has been printed. All the January entries for *Where the Band Was* disappear in early December, the February entries go away in early January, etc.
+- *Cover Me* and *Meeting Across the River* posts will also disappear in batches throughout 2026, but I don’t know how to predict or telegraph which ones and when, as I am still figuring out the contents and schedule for those books. But the same principle applies–once printed, they are gone.
+
+
+What that means all-up: pretty soon the site is going to be a mess of “page not found” errors, which is going to annoy both users of the site and Google, who will probably quickly demote this site from the high search engine placement it’s enjoyed over the years. I apologize in advance for this. I will be removing links from the “Original Songs” and “Cover Songs” pages to reflect the deleted entries, but I will *not* be removing all the various cross-reference links in essays throughout the site.
+
+With all that said, here are some options if you’ve enjoyed this site’s content and don’t want to lose access to it:
+
+- The Internet Archive’s[Wayback Machine](https://web.archive.org/) will likely preserve previous versions of the site for a long time to come. If you’ve never used it, it’s very easy–just choose a date in the past, and the Wayback Machine will send your browser back in time to a snapshot of the entire site from that date. This is the easiest way to enjoy the site’s content even after I close up shop, and it’s free. I recommend it.
+- Reader Andy Swanson tipped me off to a tool called [HTTrrack](https://www.httrack.com/), which basically downloads an entire web site to your hard drive for off-line viewing. I’ve never used it, and I suspect it might take up a pretty big chunk of your hard drive if it doesn’t fill it completely, but it seems like a viable way to mirror the site (as it stands today) to your personal computer.
+- There are several ebook generators that can create ebooks for a pretty low price. I’ve heard good things about both [Blogbooker](https://blogbooker.com/) and[printmy.blog](https://printmy.blog/), although I have not used either and therefore can’t endorse either. I don’t have the time to create ebooks before I archive the site, but if you want to do for your own personal library, I have no problem with that.
+- You can piggyback on my personal book orders as I make them each month. Each month in 2026, I will be archiving one album’s worth of *Roll of the Dice* and one month’s worth of *Kingdom of Days.* I will also be archiving *Cover Me* and *Meeting Across the River* at various times throughout the year. This is by far the most expensive way to go, and it involves a great deal of patience, as it’s a two-year slow-motion process. But if you would like to stay apprised of what’s coming each month along with ordering instructions, you can sign up for a weekly or monthly newsletter [here](https://docs.google.com/forms/d/e/1FAIpQLSc6QS8QQs84TUjNKwQZrsAE-IChg65xM7mAoJ7hwdWRcnamTQ/viewform?usp=dialog). (The order window for the first *Roll of the Dice, Cover Me, and Kingdom of Days* volumes closes at 11:59pm PST on Sunday, November 30, so please don’t delay if you want those volumes.) There’s no mark-up on these, you pay the same price that I do for my personal copies.
+
+
+That’s it for now. My apologies for the length of this update, but I wanted to make sure I keep you informed of important changes to the site as early as I can so you can plan accordingly.
+
+I’ll probably send one final update when the site wraps in early January, but again and as always: thank you for reading, today and for the past eight years.

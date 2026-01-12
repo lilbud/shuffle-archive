@@ -1,0 +1,54 @@
+Bruce has recorded his share of anti-war songs, some original and some covered. Most are commentaries on the wars of his lifetime or the World Wars that preceded it.
+
+But one in particular dates back much farther: “Mrs. McGrath” is a sardonic condemnation of the Napoleonic Wars of the early 19th century, told from the perspective of a proud Irish mother who all but loses her son when he enlists in the British Army.
+
+The tale of Mother and Ted McGrath was a popular resistance song throughout the 19th century (including the American Civil War), and it survived into the modern era very likely due to the dark humor in its title character’s portrayal and the graphic imagery of its lyrics.
+
+First recorded in 1958 by Burl Ives, the original arrangement had little in common with Bruce’s version (still almost fifty years down the road), but the lyrics are virtually identical.
+
+[https://www.youtube.com/watch?v=bkSroTDVFtg](https://www.youtube.com/watch?v=bkSroTDVFtg)
+
+When Ted McGrath goes off to war in his scarlet cloak and fine-cocked hat, his mother couldn’t be more proud. “Here’s my son Ted! Won’t you clear the way!” she cries.
+
+But time passes, and after seven long years without any word from her son, his ship finally returns home. His mother meets the ship, anxious to see her son, but when Ted greets her, she cries, “Holey Moses! It isn’t you!”
+
+For Ted lost both of his legs during the war, taken away by a cannonball that tore his legs from the ground to the knee. His mother keens for his loss, and rages: “Now against the war I do profane! I’ll make ’em rue the time when they swept the legs from a child of mine!”
+
+There’s no resolution, no more to the reunion–we leave Ted and his mother there, angry, bitter, and facing an uncertain future.
+
+Other artists covered “Mrs. McGrath” as well, including (of course) Pete Seeger, but the arrangements all hewed closely to the original.
+
+[https://www.youtube.com/watch?v=jR_HzJLXZzE](https://www.youtube.com/watch?v=jR_HzJLXZzE)
+
+And then, on March 19, 2005, Bruce assembled a group of musicians at his home to record a series of songs that would come to be known as the Seeger Sessions. Among those songs: a dramatic interpretation and updating of “Mrs. McGrath.”
+
+[https://www.youtube.com/watch?v=N9Kf0HTFNho](https://www.youtube.com/watch?v=N9Kf0HTFNho)
+
+Note the Irish pronunciation of “McGraw” — that’s a nuance that seems to have escaped Bruce when he recorded his version. He must have realized it before he played the song in Dublin, though–he corrected himself for that particular live performance:
+
+[https://videopress.com/embed/kPchYwxD](https://videopress.com/embed/kPchYwxD)
+
+Bruce’s new version is a powerful one: without altering the melody, he arranges it into a military march, making it impossible to miss the context.
+
+Lyrically, he updates the song as well, mostly in small surgical ways. But Bruce completely rewrites the ending, dialing down Mrs. McGrath’s rage, dialing up the loss, and relocating the song in a final, cutting, barb:
+
+*“All foreign wars I do proclaim live on blood and a mother’s pain*  
+*I’d rather have my son as he used to be than the King of America and his whole navy”*
+
+Although Bruce hasn’t played “Mrs. McGrath” since that too-short 2006 tour, we’re fortunate enough to have several professionally short performances to enjoy. Here are two of the best, bookends of sorts–first from the opening show of the Seeger Sessions Tour at Jazz Fest in New Orleans:
+
+[https://www.youtube.com/watch?v=eR97oc-_vpk](https://www.youtube.com/watch?v=eR97oc-_vpk)
+
+…and then from the last week of the tour, in Dublin.
+
+[https://www.youtube.com/watch?v=HStktGoF1as](https://www.youtube.com/watch?v=HStktGoF1as)
+
+Whether Bruce will ever sing it again remains to be seen. But someone surely will, until the day when it’s no longer necessary to rage against war and loss.
+
+**Mrs. McGrath**  
+**Recorded:** March 19, 2005  
+**Released:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)(2006)  
+**First performed:** April 20, 2006 (Asbury Park, NJ)  
+**Last performed:** November 21, 2006 (Belfast, Ireland)
+
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

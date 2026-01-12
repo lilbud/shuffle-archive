@@ -1,0 +1,59 @@
+Editor's Note
+
+***Editor’s Note:*** *My favorite thing about writing my* *[Kingdom of Days](http://estreetshuffle.com/index.php/category/kingdom-of-days/)* *articles is the “I was there!” discussion they generate with readers. My* *[Where the Band Was](http://estreetshuffle.com/index.php/category/where-the-band-was/)* *series started out as a way to share my own personal stories from the Springsteen shows I’ve seen, but now that we’re more than a full year in and in between tours, my stories have pretty much all been told.*
+
+*That’s why I’ve opened the series to other fans with stories to tell, and I couldn’t be happier to feature my friend* ***Anna Lind*** *as the Shuffle’s inaugural guest blogger. (**[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next one!)*
+
+*Entirely by coincidence, Anna and I started our own Springsteen-focused blogs just days apart in January 2018. Her* *[Stray Bullet](https://straybullet1973.com/category/blog-english/)* *was the first Bruce-related blog I discovered, and seventeen months later it’s still my favorite. Her site features a wonderful mix of song spotlights, concert reviews, thematic essays, and (my favorite) personal stories inspired by Bruce’s music.*
+
+*I highly recommend her blog to readers of this one, and I’m grateful to her for sharing her story below. Without further ado, here’s Anna’s first-hand account of Bruce’s Wrecking Ball show in Stockholm, from May 3, 2013.*
+
+It’s early morning of May 3, 2013 as we get in the car and drive off to Stockholm to see Bruce Springsteen and The E Street Band. The drive from Gothenburg to Stockholm takes about 4,5 hours and we want to arrive at the venue in good time before the show. My plan is not only to enjoy the show but also to meet up with friends who I’ve only talked to on Twitter before.
+
+As I arrive at the venue I’m too late for any “pit queuing.” They’ve already made the last roll call, and the fans are lined up for the wrist band procedure. I catch a glimpse of one of my Twitter friends, who now six years later is one my best friends, in the crowd and we have time for a quick hug.
+
+Two hours later my company and I are inside the venue and to our surprise IN the pit(!).
+
+![](https://estreetshuffle.com/wp-content/uploads/2019/05/anna-300x224.jpg)
+
+**The show**
+
+Bruce Springsteen and the extended E Street Band get on stage around eight o’clock. Bruce is wearing black: jeans, a shirt and a vest. His face is slightly tanned.
+
+The show starts off in familiar fashion for the *Wrecking Ball* Tour: “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)*,” “*[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/),” and “[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)” immediately receive a loud and energetic response from the crowd.
+
+[https://videopress.com/embed/cgvnjE9h](https://videopress.com/embed/cgvnjE9h)
+
+Tonight, however, Springsteen has other plans. After “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/),” he starts declaring his love for Sweden and Stockholm. He talks about his first visit to Stockholm in 1975. It was the band’s first appearance outside the U.S., and he says that it was the album *Born to Run* that took them here. In 1975, the show was 16 songs long and a ticket cost about 5 Euro. They played for a crowd of 2000 in the small Concert Hall – they’ve come far since then.
+
+He admits that he has been thinking about how to surprise us tonight, and because of the Swedish fans’ long history of supporting his music, he says he wants to play *Born to Run*, the album that started it all, from start to finish! What a treat! I, and the rest of the crowd, couldn’t be more ecstatic!
+
+[https://videopress.com/embed/xcU9GRGI](https://videopress.com/embed/xcU9GRGI)
+
+It is certainly not the first time Springsteen performs an entire album. It happened a few times during the *Working on a Dream* Tour in 2009. Since then, the *Born to Run* album has been played live 12 times in its entirety. Yet, there are at least two reasons why this particular gig in the Friends Arena is special. For all the previous occasions, an album show has been advertised in advance. Tonight’s a surprise AND it is the first time an entire album is played live outside the United States.
+
+The audience respond with a stadium-wide sing-along to “Thunder Road” as the band begin the album performance. “[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/),” featuring the tribute to Clarence Clemons and Danny Federici playing on the large video screens in the background, immediately makes the atmosphere more tranquil and sentimental.
+
+The Big Man has been replaced by an entire horn section(!), of which the nephew Jake Clemons is a part. His face looks serious and concentrated.
+
+[https://videopress.com/embed/sh5voLAh](https://videopress.com/embed/sh5voLAh)
+
+The album section of the show ends with the classic “Jungleland,” where Little Steven brilliantly nails his guitar solo- a black bandanna on his head. The audience is coming to complete and total silence for the final verse of the song – magical!
+
+[https://videopress.com/embed/jehqBkAY](https://videopress.com/embed/jehqBkAY)
+
+The show then continues with a more traditional setlist. Songs from the latest album are mixed with classic hits and the venue is boiling. Bruce has collected several sign requests from the audience in the course of the evening, but only one makes an appearance (as an encore). It’s the rare cover “[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/).” Springsteen says: “This is a song the band used to play, going back to the early ’70s — Michelle Moore was not even born yet!” Bruce chooses to perform the song solo on acoustic guitar, substituting a whistling solo in place of the song’s usual piano one.
+
+[https://www.youtube.com/watch?v=58NpP-QArRw](https://www.youtube.com/watch?v=58NpP-QArRw)
+
+After clapping and dancing the night away with a loud and energetic “Twist and Shout,” just as the concert reaches the three-hour mark, the show is over.
+
+[https://videopress.com/embed/H7BdMlkX](https://videopress.com/embed/H7BdMlkX)
+
+Subsequently, I’m totally knackered and my ears are ringing. In fact, the evening’s weakest card is the sound. It’s actually quite remarkable and outrageous that a relatively new venue (opened on 25 October 2012) provides such poor sound quality. I’ve read about it later and, supposedly due to the construction, the sound “bounces” against the walls and if you are too far away from the speakers the reflexes take over.
+
+For tomorrow’s show I’m buying earplugs!
+
+Share Your Story
+
+*My thanks to Anna for sharing her story! Want to share yours? [Drop me a line](mailto:ken@estreetshuffle.com) in advance of your show’s anniversary, and I’ll be happy to feature it–I’ll even add audio and video (if I have it) to help bring it to life.* 

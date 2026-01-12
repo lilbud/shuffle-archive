@@ -1,0 +1,162 @@
+> “The first verse actually happened. The second verse mostly happened, and the third verse, of course, is happening now.” *–Bruce Springsteen, Greatest Hits, 1994*
+
+That was thirty years ago.
+
+As I write this, Bruce Springsteen should be on stage in Milan at San Siro, a venue of Springsteenian glory if ever there was one.
+
+Instead, he’s recuperating from losing his voice and taking ill after performing in a torrential downpour in Sunderland two weeks ago.
+
+Add four more shows to the list of postponements that have plagued Bruce’s 2023-2024 World Tour: a dozen due to peptic ulcer disease, a pair of Philly shows scuttled last minute due to illness, three from the tour’s first leg, and now four European shows.
+
+Even the shows that go on sometimes aren’t always hitch-less: in Amsterdam, Bruce fell and had to be helped up.
+
+[https://www.youtube.com/watch?v=V1SDWUdIolE](https://www.youtube.com/watch?v=V1SDWUdIolE)
+
+And in Kilkenny, he had to stop the show when he realized he was physically incapable of escaping the pit.
+
+[https://www.youtube.com/watch?v=kVyG3Lf_Fvg](https://www.youtube.com/watch?v=kVyG3Lf_Fvg)
+
+It’s been a decade since Bruce last scheduled his shows on back-to-back nights; now he needs at least three days to recover between shows.
+
+He didn’t dare attempt his customary knee slide during “[Waitin’](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)[on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)” in Sunderland. He no longer mounts pianos during “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/).” His hair is thinner, his body leaner. He moves less but breathes harder than in tours of yesteryear.
+
+And yet each night, at the end of a setlist laced with loss and remembrance, Bruce Springsteen and the E Street Band launch into a song that rings with wry and raucous irony.
+
+Or does it?
+
+[https://www.youtube.com/watch?v=6vQpW9XRiyM](https://www.youtube.com/watch?v=6vQpW9XRiyM)
+
+“Glory Days” is of course associated with Bruce’s *Born in the U.S.A.* period, reaching #5 on the Billboard Hot 100 at the peak of his glory days in the summer of 1985. But it actually dates back to the *Nebraska* era. That might surprise, given the song’s lyrical lightness and unmistakably eighties pop sound, but Springsteen’s original 1981 acoustic home demo reveals a much darker origin.
+
+[https://www.youtube.com/watch?v=HAMpifa4sko](https://www.youtube.com/watch?v=HAMpifa4sko)
+
+We can only guess (until we get a chance to ask him) that “Glory Days” wasn’t the song’s original title, and nostalgia certainly wasn’t its central conceit.
+
+This early version of “Glory Days” was most likely titled “Stockton,” a name which punctuates its brief chorus (a chorus in which the phrase “glory days” never appears). Stockton is a death trap of a town, a town full of losers who never pull out.
+
+We recognize the first verse, with its washed-up high school hero. The second verse, while unfamiliar to us in context of the 1985 hit single, clearly walks well-trod [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)and *Nebraska* ground.
+
+By the time Bruce finished the song and brought it to the E Street Band to record, “Stockton” had shed most of its darker shading and evolved into a song of wistful nostalgia.
+
+Mostly anyway. Although he wisely dropped the song’s location, allowing it to resonate more broadly than it might have otherwise, Bruce couldn’t bring himself to drop the verse about his dad until the last minute.
+
+*My old man worked 20 years on the line and they let him go*  
+*Now everywhere he goes out looking for work they just tell him that he’s too old*  
+*I was 9 years old when he was working at the Metuchen Ford plant assembly line*  
+*Now he just sits on a stool down at the Legion Hall, but I can tell what’s on his mind*
+
+It actually made it to the final recording–you can hear it below, before it was edited out of the released track.
+
+[https://www.youtube.com/watch?v=kOiJXGPZ80Y](https://www.youtube.com/watch?v=kOiJXGPZ80Y)
+
+Even though it was dropped from the final cut, that verse featured one of three true (or “mostly true”) vignettes that inspired the song.
+
+The first one was from eight years earlier.
+
+*I had a friend was a big baseball player back in high school*  
+*He could throw that speedball by you, make you look like a fool boy*  
+*Saw him the other night at this roadside bar, I was walking in, he was walking out*  
+*We went back inside, sat down, had a few drinks, but all he kept talking about was glory days*
+
+Joe DePugh and Bruce Springsteen were childhood friends and little league teammates in Freehold, New Jersey. Bruce and Joe shared a love of the game, but their athletic skills were worlds apart. Joe developed into a high school sports star, courted by colleges and invited to try out for the Los Angeles Dodgers. And Bruce… well, let’s just say he earned an appropriate yet affectionate nickname from his friend: “Saddie.”
+
+DePugh went off to college in Pennsylvania, but by the time he graduated both of his parents had passed away. He became his younger brothers’ legal guardian, and DePugh re-established his roots in New Jersey. Joe supported his family as a contractor and substitute teacher, playing sports in local leagues on summer evenings.
+
+One night in 1973, Joe joined his basketball buddies for a post-game dinner at The Headliner, a local bar in Neptune. At around 9:30pm, he was walking out when a long-lost familiar face came walking in. Joe turned around and accompanied his old friend to the bar, where he and Saddie Springsteen reminisced about old glories (mostly Joe’s) and ignominies (mostly Bruce’s).
+
+“Bruce lost this big game for us one year,” DePugh told a *Palm Beach Post* reporter in 2011. “We stuck him out in right field all the time where you think he’s out of harm’s way. But this important game, we had a bunch of guys missing, and we had to play him. In the last inning, the ball went out to him – it was just a can-of-corn fly ball – and he dropped it. Actually, it hit him on the head, and we lost the game.”
+
+Glory days.
+
+Although Bruce had walked in with an entourage, the pair talked for hours alone at the bar. Bruce was still a couple years away from his breakout moment, but Joe recalls hearing about his friend’s two released albums and the time he opened for The Beach Boys. When the bar closed at 1:30am, Joe and Saddie were still talking.
+
+“I remember my girlfriend was furious,” DePugh recollected to the *Post.* “This was before cellphones, so I never called her. To this day that woman thinks I was with somebody else that night. I said, ‘No, no! It’s that guy from high school I told you about.'”
+
+Bruce and Joe wouldn’t talk again for more than thirty years.
+
+*Well there’s a girl that lives up the block, back in school she could turn all the boys’ heads*  
+*Sometimes on a Friday I’ll stop by and have a few drinks after she put her kids to bed*  
+*Her and her husband Bobby, well, they split up, I guess it’s two years gone by now*  
+*We just sit around talking about the old times, she says when she feels like crying, she starts laughing thinking about glory days*
+
+We know who the first verse is about, and we know who the excised verse is about. As for the verse that “mostly happened”… well, Bruce has never volunteered that information.
+
+We don’t need to know, though. If the first verse is specific, the second is universal. Not because we all know someone like the pretty girl who peaked in high school, but because we all know what it’s like to look back on a simpler time before life and living took their toll.
+
+However, there’s one mystery about “Glory Days” that is (IMHO) worth pondering: what made Bruce thread a recollection about an eight-year-old random encounter with a childhood remembrance of his father and a contemporaneous entres nous with an out-of-his-league former classmate?
+
+Author Clinton Heylin has a theory, and to my mind it’s a plausible one.
+
+In town a day early for his St. Louis show on the original River Tour, Bruce went out driving and ended up at a movie theater, where he saw *Stardust Memories.* In what has become a well chronicled and often told encounter, Bruce struck up a conversation with a fellow theater-goer and ended up following him home for a late-night dinner.
+
+[https://www.youtube.com/watch?v=ezPRW1wt0NE](https://www.youtube.com/watch?v=ezPRW1wt0NE)
+
+Bruce’s post-movie evening with the Satanovskys is well-known among his fans, but less so the impression the film made on Springsteen and (possibly) one of his greatest hits. Midway through the film, Woody Allen’s character, a famous film director, has a chance encounter with an old childhood friend. Only one of them had found success in life, and Allen is awkwardly apologetic for his good fortune.
+
+[https://videopress.com/embed/RIyIeVxo](https://videopress.com/embed/RIyIeVxo)
+
+I wouldn’t be at all surprised if that scene jogged Bruce’s memory of his run-in with DePugh seven years earlier, because he recorded that acoustic home demo of “Glory Days” about six months later.
+
+It’s easy to understand why the scene resonated. Although he was still years away from summiting the peak of his own glory, by the River Tour Bruce had become a bona fide rock star. More importantly, he’d turned thirty, an age which in his profession typically ushered in a downhill run.
+
+Although it’s hard to pinpoint the birthdate of any musical genre, one could make a fair argument that both Bruce and rock and roll were born around the same time. It was still a young genre when Bruce signed with his record label, and life and fame hadn’t been kind to many of the pioneers who influenced him.
+
+Jimi Hendrix and Buddy Holly both died years before their thirtieth birthdays; John Lennon and Elvis Presley barely made it to 40. (Lennon was almost certainly on Bruce’s mind during the period he wrote “Glory Days”–the former Beatle was assassinated shortly after Bruce saw *Stardust Memories*.)
+
+So we can forgive Bruce for wondering at the ripe age of 31 how many glory days he still had in front of him, and we can feel his carpe diem resolve in the final verse.
+
+*Think I’m going down to the well tonight and I’m gonna drink till I get my fill*  
+*And I hope when I get old I don’t sit around thinking about it, but I probably will*  
+*Yeah just sitting back trying to recapture a little of the glory of*  
+*Well but time slips away and leaves you with nothing mister but boring stories of glory days*
+
+That first line is often misunderstood by fans who in their mind’s eye picture the narrator at a local bar, already looking back on his better days. (In their defense, it doesn’t help that the heavy-rotation MTV video sets that verse in a bar.)
+
+[https://www.youtube.com/watch?v=NeJrkyzmyS0?start=123](https://www.youtube.com/watch?v=NeJrkyzmyS0?start=123)
+
+But while the “well” is indeed metaphorical, it’s not a stand-in for a bottle. To its world-famous author, the well is the concert stage, and to this day each time Bruce steps on it he drinks until he gets his fill, determined to make this day better than the last time he stood here.
+
+*Glory days*  
+*Well they’ll pass you by, glory days*  
+*In the wink of a young girl’s eye, glory days*  
+*Glory days*
+
+Maybe so. But what the singer suspected then and surely knows now, is that if you focus on the best and the beauty of the day in front of you rather than the ones behind you, every day is a glory day.
+
+When it makes its nightly appearance, “Glory Days” is a shared moment for the tens of thousands in attendance, many of whom are well past their own glory days, many yet to reach them.
+
+[https://www.youtube.com/watch?v=iYYl09XNVik](https://www.youtube.com/watch?v=iYYl09XNVik)
+
+For Springsteen, who can’t possibly help but remember the moments he stood on each stage over the decades, it’s not just a “remember when” moment. It’s a “remember *now* ” moment.
+
+And if we’re wise, fully present with phones firmly pocketed, it is for us too.
+
+During the early years following the song’s release, Bruce leaned into the irony of a 35-year-old waxing nostalgic, fully aware of the Peter Pan life he’d led up to that point.
+
+[https://www.youtube.com/watch?v=qMUxvDBFQYs](https://www.youtube.com/watch?v=qMUxvDBFQYs)
+
+But as the story goes, all boys grow up. Today Bruce plays a Peter who refuses to acknowledge it, winking at us all the while. And it works: in the pit, with backs aching and legs throbbing, the lost boys dance with one swollen foot on either side of the fourth wall.
+
+As for DePugh, he may never have had his major league glory, but not many people can lay claim to immortality in a Bruce Springsteen song. He was living in Vermont when the song came out, as flabbergasted as the friends and family to whom the story of their Headliner encounter had become legend.
+
+Joe has dined out on that story ever since, a couple of times with Bruce himself.
+
+As they left their old haunt Federici’s after one such dinner in 2008, Bruce turned to him and said, “Always remember, I love you.”
+
+“Not like some corny Budweiser commercial,” Joe clarified to the *New York Times* in 2011, “but a real sentimental thing.”
+
+DePugh was speechless, managing only a feeble “Thanks, Saddie” as he watched his old friend walk to his car. But after a beat, he pulled himself together, “pulled the door open and yelled down to him, ‘Sad!'”
+
+“He turned around, and I pointed at him and said, ‘I love you, too, and I’m real proud of you.’ And he just waved.”
+
+Glory days.
+
+[https://open.spotify.com/embed/track/5yZg1t3WCLLRv0J167GGzK?si=8f82d1cd8bbf43a2&amp;utm_source=oembed](https://open.spotify.com/embed/track/5yZg1t3WCLLRv0J167GGzK?si=8f82d1cd8bbf43a2&amp;utm_source=oembed)
+
+**Glory Days  
+Recorded:** May 5, 1982  
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
+**First performed:** June 8, 1984 (Asbury Park, NJ)  
+**Last performed:** May 22, 2024 (Sunderland, England)
+
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries coming soon!

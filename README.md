@@ -37,3 +37,15 @@ Here is a count of the posts so far, as of 12/23/25 at 12pm:
 In checking some of the posts that are still live have been entirely replaced in some way, but the URL and post ID remains the same. Usually the title and content are completely new, sometimes the modified date as well.
 
 These posts will have the ID, and the "modified at" timestamp appended. These posts will also be included in the database dump.
+
+## Missing Posts (1/10/26)
+While sorting through posts to compile these books, I found that 3 posts are completely missing in their original form. All three were replaced back in November before I started archiving the site. They are NOT present on archive.org.
+
+Those posts are:
+- Blogger’s Note: Kingdom of Days (2019-01-13)
+    - Replaced with Visitation at Fort Horn
+- Blogger’s Note: Important Update (2019-04-11)
+    - Replaced with Cover Me book intro
+- Blogger’s Note: Video omissions in daily e-mails (2021-07-16)
+    - Replaced with Roll of the Dice intro
+

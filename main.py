@@ -3,13 +3,13 @@ import json
 import re
 import time
 from pathlib import Path
+from zoneinfo import ZoneInfo
 
 import ftfy
 import httpx
 import psycopg
 from psycopg.rows import dict_row
 from user_agent import generate_user_agent
-from zoneinfo import ZoneInfo
 
 from cleanup import format_article_content
 from database import insert_post, load_db
@@ -69,7 +69,7 @@ def get_tags() -> None:
                 time.sleep(1)
 
 
-def get_categories() -> None:
+def get_categories(cur: psycopg.Cursor) -> None:
     """Get all categories using WP REST API."""
     with httpx.Client(
         headers=headers,
@@ -91,7 +91,7 @@ def get_categories() -> None:
 
         for cat in res.json():
             cur.execute(
-                """INSERT INTO categories (category_id, name) VALUES (%s, $s) ON CONFLICT (category_id) DO NOTHING""",
+                """INSERT INTO categories (category_id, name) VALUES (%s, %s) ON CONFLICT (category_id) DO NOTHING""",
                 (cat["id"], cat["name"]),
             )
 
@@ -250,8 +250,26 @@ def get_newest_posts(cur: psycopg.Cursor) -> None:
         #                 break
 
 
-def posts_to_folders():
-    print()
+def get_comments():
+    with httpx.Client(
+        headers=headers,
+        cookies=cookies,
+        timeout=60,
+    ) as client:
+        for i in range(1, 23):
+            print(i)
+            res = client.get(
+                f"https://estreetshuffle.com/index.php/wp-json/wp/v2/comments?per_page=100&page={i}",
+            )
+
+            if res:
+                save_path = Path(f"./comments/{i}.json")
+
+                if not save_path.exists():
+                    with save_path.open("w", encoding="utf-8") as f:
+                        json.dump(res.json(), f)
+
+            time.sleep(1)
 
 
 if __name__ == "__main__":
@@ -259,45 +277,11 @@ if __name__ == "__main__":
         # print("Grabbing newest posts.")
         # get_newest_posts(cur)
 
-        # print("Grabbing recently updated posts.")
-        # get_latest_posts(cur)
+        # get_categories(cur)
+
+        print("Grabbing recently updated posts.")
+        get_latest_posts(cur)
 
         # get_media(cur, conn)
 
-        urls = [
-            "https://estreetshuffle.com/index.php/2021/01/07/roll-of-the-dice-america-under-fire/",
-            "https://estreetshuffle.com/index.php/2018/01/27/roll-of-the-dice-black-sun-rising/",
-            "https://estreetshuffle.com/index.php/2019/09/04/roll-of-the-dice-changing-children/",
-            "https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/",
-            "https://estreetshuffle.com/index.php/2021/06/21/roll-of-the-dice-girlfriend-blues/",
-            "https://estreetshuffle.com/index.php/2019/03/07/roll-of-the-dice-goin-back-to-georgia/",
-            "https://estreetshuffle.com/index.php/2019/04/20/roll-of-the-dice-goin-down-slow/",
-            "https://estreetshuffle.com/index.php/2019/06/17/roll-of-the-dice-good-lovin-woman/",
-            "https://estreetshuffle.com/index.php/2021/03/31/roll-of-the-dice-i-am-the-doctor/",
-            "https://estreetshuffle.com/index.php/2019/11/20/roll-of-the-dice-i-cant-take-it-no-more/",
-            "https://estreetshuffle.com/index.php/2019/07/20/roll-of-the-dice-i-gotta-be-free/",
-            "https://estreetshuffle.com/index.php/2019/11/22/roll-of-the-dice-jeannie-i-want-to-thank-you/",
-            "https://estreetshuffle.com/index.php/2018/06/27/roll-of-the-dice-lady-walking-down-by-the-river/",
-            "https://estreetshuffle.com/index.php/2018/09/27/roll-of-the-dice-mary-louise-watson/",
-            "https://estreetshuffle.com/index.php/2022/10/28/roll-of-the-dice-oh-mama/",
-            "https://estreetshuffle.com/index.php/2019/06/26/roll-of-the-dice-resurrection/",
-            "https://estreetshuffle.com/index.php/2018/09/21/roll-of-the-dice-sherlock-goes-holmes/",
-            "https://estreetshuffle.com/index.php/2021/08/03/roll-of-the-dice-sweet-melinda/",
-            "https://estreetshuffle.com/index.php/2021/10/26/roll-of-the-dice-temporarily-out-of-order/",
-            "https://estreetshuffle.com/index.php/2021/10/06/roll-of-the-dice-the-train-song/",
-            "https://estreetshuffle.com/index.php/2021/10/10/roll-of-the-dice-the-wind-and-the-rain/",
-            "https://estreetshuffle.com/index.php/2019/03/23/roll-of-the-dice-the-war-is-over/",
-            "https://estreetshuffle.com/index.php/2021/12/03/roll-of-the-dice-twenty-more-miles/",
-            "https://estreetshuffle.com/index.php/2021/04/07/roll-of-the-dice-well-all-man-the-guns/",
-            "https://estreetshuffle.com/index.php/2019/01/20/roll-of-the-dice-weve-got-to-do-it-now/",
-            "https://estreetshuffle.com/index.php/2020/07/06/roll-of-the-dice-where-was-jesus-in-ohio/",
-            "https://estreetshuffle.com/index.php/2022/03/08/roll-of-the-dice-whyd-you-do-that/",
-        ]
-
-        for item in urls:
-            res = cur.execute(
-                """select p.id, p.post_id, p.title, p.published, p.last_modified from posts p left join post_categories pc ON pc.post_id = p.id where p.url = %s""",
-                (item,),
-            ).fetchone()
-
-            print(res)
+        # get_comments()

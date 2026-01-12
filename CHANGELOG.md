@@ -62,3 +62,8 @@
 - moved all of the JSON files to `posts_json`, and `posts` will be where the archive will be focused. See `notes/structure.md` for info.
 - added `books.ods`, which covers the posts that make up each book. So far only Kingdom of Days is mapped out.
 - new Database dump
+
+# 2025-01-10
+- Saved comments using the API, about 2000 comments have been saved
+- Added spreadsheets to track the various books as part of this project. They are broken up by category, and each has a list of all the posts to be included. Kingdom of Days will be split into a book per month, the rest will be larger books broken into chapters.
+- Started organizing the posts into folders, see `notes/structure.md`.

@@ -1,0 +1,70 @@
+As I announced last month, this site will cease publication on January 5th, 2026.
+
+But from its digital ashes rises….
+
+**The E Street Shuffle Bookshelf Collection!**
+
+And I do mean *collection*.
+
+From the beginning, I’d always envisioned “printing” the blog when it was finished so that I could hold my passion project in my hands and look at it and think, *I did that*.
+
+But it turns out then when you write and publish every single day for five years, most days for a sixth, and a few days for a seventh, you end up writing a lot of pages. Like, *a lot*.
+
+In my mind, I always thought this blog would fit into one large-ish volume, perhaps two.
+
+But when I imported my blog and did some elementary layout refinement, my “book” on the life and art of Bruce Springsteen was *more than 6,400 pages long.*
+
+I’d always envisioned a book, but it turned out to be more like an encyclopedia set, which certainly gave me pause.
+
+But when you discover you’ve written over 6,400 pages, you *really* want to have them on your bookshelf. So I’m taking the plunge.
+
+But to spare both my back and wallet the heavy lift, I’ve decided to space out the publication over a couple of years and a few dozen volumes. And since I’ve had many requests over the years (and especially in the month since I announced my “retirement”) to collect the blog into book form, I thought I would offer to print copies for anyone interested as I go.
+
+Here’s how this will work:
+
+Starting in December, I’ll be publishing two books each month:
+
+- A ***Roll of the Dice*** volume focused on a single Springsteen album (complete with outtakes and notable covers), six volumes a year, alternating months with *Cover Me*
+- A ***Cover Me*** volume focusing on backstories and live performances of other artists’ songs Bruce has covered–also six volumes a year, alternating months with *Roll of the Dice*
+- A ***Kingdom of Days*** volume that spans a single a month, twelve volumes released monthly in advance of the calendar month covered by that volume. (i.e. the book that covers January will be offered in December so that you’ll have it in your hands before January starts
+
+
+After the first year, *Kingdom of Days* will be complete, so I’ll release a single book each month from that point forward. There will also be periodic “bonus books,” starting with *Bruce Springsteen Holiday Classics* next month.
+
+I have to say: I think the books look and feel *great*.
+
+Each volume is 8.5 x 11 inches in full color on high-quality paper, with a matte-finished, spill-resistant hardback cover. But what I’m most excited about is the inclusion of QR codes throughout, so you’ll be able to listen and watch as you read, preserving the interactive experience of the original blog posts.
+
+Here’s a sneak peek of what I mean, from the first volume of *Roll of the Dice:*
+
+![](https://estreetshuffle.com/wp-content/uploads/2025/11/Screenshot-2025-11-05-105251.jpg)
+
+…and here’s an example of a daily entry from Volume 1 of *Kingdom of Days.* (Not final copy or layout yet.)
+
+![](https://estreetshuffle.com/wp-content/uploads/2025/11/Screenshot-2025-11-05-105839.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/11/Screenshot-2025-11-05-105916.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/11/Screenshot-2025-11-05-105859.jpg)
+
+The *Roll of the Dice* series in particular is everything I ever hoped it would be. Each volume will feature an Album Guide, the original ROTD essays for each track, the ROTD essays for that album’s outtakes, and “bonus” pages featuring notable covers by other artists.
+
+If appropriate, I’ll update the original essays for publication–for example, the *Nebraska* volume will include coverage of the electric versions, even though the blog versions don’t. And while I can’t promise it in every instance, I’ll be including select new and unpublished essays I never got around to finishing (or in some cases starting), so that the guides are complete as complete as possible. (I know I said last month I wasn’t going to do that, but this project has refueled me a bit.)
+
+All that said, I will admit that the books aren’t cheap. I’m not profiting–the cost of the book will mirror the printing and shipping cost. In essence, you’d be paying for the vendor’s printing and shipping service; the content will be as free as it’s always been. I’ve never monetized this blog and don’t intend to start.
+
+Expect most ROTD volumes to be 100 to 125 pages in length (although some will be slightly below and some well above that) and average about $80-85 (which includes shipping). I don’t assume anyone but me is going to be interested in owning the whole run, which is one reason why I’m theming the books by album so you can just buy the one on your favorite album if that’s all you want.
+
+The *Kingdom of Days* books will be bigger and therefore more expensive. Although it’s not quite finished, the January edition is looking like it’ll run about 230 pages and run about $140 (again, shipping included). I know that’s a big outlay if you want to own the whole year, and I apologize for that. Self-published books aren’t cheap. Like I said, I’m really just creating these for myself and offering an opportunity for anyone else who would like them. My feelings won’t be hurt if I’m the only one who orders. And as I wrote last month, the site will always be available for free via the Internet Archive if you really want to look up a particular date or song.
+
+Note that as I put together each volume, I will be archiving the material collected in that book, which means pages and posts will occasionally disappear and later reappear. (There are technical and logistical reasons for this, which I won’t bore you with here.) I’m not sure yet how I’m going to gracefully handle that on the site, but I’ve got a little time before I need to nail that down.
+
+Also, each volume will only be available to order for a month–this isn’t a business venture, and I have no plans to maintain a storefront or provide for “back issue” ordering of any kind. Each volume will be a seriously limited, made-to-order print run for a thirty-day window before I move on to the next volume.
+
+If you’re at all interested, please bookmark this site’s new [Bookshelf Collection page](https://estreetshuffle.com/index.php/the-bookshelf-collection/), where I’ll shortly start providing updates, answering questions, and sharing previews and order information for the first installments.
+
+I realize there may be lots of questions to answer (W*ill you maintain the QR codes and media, and if so for how long? Will there be volumes on the lost albums? Where will you ship to and for how much?* etc.), but I don’t want to take up more real estate here. I’ll answer them on the Bookshelf Collection page over the next couple of weeks.
+
+**Important:** I will **not** be publishing updates or ordering info anywhere other than the page linked in the paragraph above, which means **you will not get updates in your inbox** if you are a subscriber the way you do when I publish a new blog post. I’m doing this because I think the vast majority of my subscribers aren’t interested in the books, and I don’t want to spam anyone. The only way to stay informed about new and upcoming releases is to visit the[Bookshelf Collection page](https://estreetshuffle.com/index.php/the-bookshelf-collection/) at least once a week. (I plan on posting an update each Sunday for the foreseeable future.)
+
+Lastly, and as always, thanks for reading. Whether or not you ever do so in print form, I’ve truly appreciated how the readership and encouragement this site has garnered over the years. It means a lot to me.
+
+I’ve turned off site commenting, but you can reach me directly by clicking [here](mailto:ken@estreetshuffle.com) if you have questions, suggestions, or feedback. I apologize in advance if I don’t reply directly, but I will at least try to answer in my weekly updates.
+
+Thanks again–more info soon on the [Bookshelf Collection page](https://estreetshuffle.com/index.php/the-bookshelf-collection/).

@@ -1,0 +1,73 @@
+Editor's Note
+
+**Editor’s Note:** Today’s guest blogger is friend of the blog and long-time Springsteen fan Barry Rebo. Even if you don’t know his name (and many of you certainly do), if you read this blog I guarantee you’re familiar with his work. 
+
+Having once lived down the Jersey Shore, Barry is one of Bruce’s earliest fans (since 1969), and more importantly: he’s pretty mean with a camera. He filmed Bruce and the band in the studio recording “Jungleland” in the *Wings for Wheels* documentary; the archival footage included in *The Promise: Darkness on the Edge of Town*; and the River Tour rehearsal video and multi-camera Live in Tempe concert that accompanies the *The River* anniversary box set. As fans, we all share a debt of gratitude to Barry.
+
+Barry moved on to a successful and storied career in documentary film-making and was an early HDTV pioneer. He’s still a Springsteen fan, though, and today he recalls for us his last-ever Bruce shoot, one with an ironic behind-the-scenes connection to one of Bruce’s most famous on-stage remarks.
+
+I remain rightly embarrassed to admit that I did not vote in the Ronald Reagan / Jimmy Carter Presidential Election of November 4th, 1980. This was well before early or mail-in voting was widely adopted or I would/should have supported Carter as I did in his first run for office.
+
+But that day I was on my way to Tempe, Arizona to produce and direct a concert recording of Bruce Springsteen and the E Street Band’s Arizona State University performance on the 5th, one of their first dates at the start of their original River Tour.
+
+[https://www.youtube.com/watch?v=3jLdecONVQs](https://www.youtube.com/watch?v=3jLdecONVQs)
+
+The technical aspects of the shoot are far easier for me to recall.
+
+We flew in from New York with what’s called a “video fly-pack” of camera equipment. Instead of renting a local production van, switching the show “live,” it was always my intent to shoot it “film-style”–albeit with four high-end, broadcast-quality video cameras, each recorded onto their own 1” portable reel-to reel-recorders. Shots were “called” live but the intended cuts were not recorded at the venue.
+
+All together, the entire production package was worth around $400,000 (about $1.4M today, a startling reminder of the ravages of inflation). I owned the majority of the equipment, and the key crew members had long been affiliated with my then production company, Rebo Associates. All were highly accomplished professionals, but more importantly many were long-time friends who had graciously supported me all through the 1970s on my own personal “passion project,” the one that I’d initiated with Bruce once we met down the Jersey Shore in the late sixties. Tempe was by far the largest production I’d fronted, and as it turned out it was to be my last Bruce shoot. But that’s another story for another time.
+
+We worked closely with Bruce’s then lighting director, Mark Brickman, to maximize our camera’s ability to best capture his outstanding concert lighting. We were all very well aware that Bruce would never be willing to compromise the theatrical impact his live audiences always expected of him. Remember: while currently state-of-the-art 1980 equipment, it was still all analogue with many more compromises to live with then even today’s digital consumer cameras (or iPhones for that matter) have blown past performance-wise.
+
+The cameras still had pick-up tubes (less contrast and sensitivity than today’s CCD solid state imagers), the aspect ratio of the picture format was the once traditional 4:3 image (square, not widescreen, as is standard today), and the 1” reel to reel VTRs had tape loads limited to 60 minutes duration, much to hardcore fans’ chagrin. (This explains why some songs were omitted. In short, we were reloading the tape decks. Mystery solved.)
+
+Thirty-five years passed before the show was completed by Thom Zimny for inclusion in *The River* box set reissue, crafting the show using the best coverage we provided. Thom did his usual excellent job, as he’s always delivered for Bruce and his worldwide audience.
+
+[https://www.youtube.com/watch?v=4dG3jc6fzPY](https://www.youtube.com/watch?v=4dG3jc6fzPY)
+
+Still, as great as the concert proved to be both in the arena and on tape, from my vantage point forty-one years on the most moving and remarkable takeaway from that evening was Bruce’s wholly unexpected but clearly heartfelt remarks regarding Ronald Reagan’s commanding victory less than twenty-four hours earlier.
+
+By then, I’d been around Bruce for a decade or so. We’re close in age and shared many of the same experiences along with our peers during the late ‘60s–primarily how we chose to deal with our Vietnam War obligations which inevitably lead to a daunting trip to Newark, New Jersey and its unavoidable draft board confrontation.
+
+That night in Tempe remains my recollection of Bruce’s first overtly political statement, given from *his* stage to *his* passionate followers in *his* audience that specific evening. What he said that night was both short and prescient. More a call for *thought* rather than a call for specific *action.* This difference remains how I prefer popular artists engage with the sway they have over their audiences.
+
+***“I don’t know what you guys think about what happened last night, but I think it’s pretty frightening.”*** 
+
+He then threw down a particularly enraged version of his one of his most defiant songs, “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/),” which is how great artists should assist us in making sense of our world.
+
+[https://www.youtube.com/watch?v=NGoBcNXa3mM](https://www.youtube.com/watch?v=NGoBcNXa3mM)
+
+Ronald Reagan’s nationwide victory was a complete rout over Carter. He carried 44 states, including Arizona, where he won by 32 percent.
+
+His smashing victory, framed by Bruce’s concise but conscious remarks, made me recall the time when I, too, bumped up against this political landslide when in late 1979 a New York City production stage called frantically asking if they could rent one of my camera/VTR production packages for a shoot they had booked.
+
+Initially, they’d wrongly assumed it was to be a 35MM film shoot given the high profile of the production company they contracted with. But upon further discovery, they learned it required state-of-the-art video equipment. They knew that was my specialty and asked me to provide it to them on a rental basis as they were in a jam.
+
+It was never divulged to me who their client was. They simply asked me to bring over the equipment in the early morning at 8am, get it set up, and leave for the duration of the production day. While my curiosity was aroused, I did as asked. At the designated time, 5pm or so, I came back to the studio assuming they’d be ready to wrap up, but they were not.
+
+I walked onto the stage and to my amazement saw that the shoot was Ronald Reagan announcing that he would be running for president in 1980. It was released on November 13, 1979 on all broadcast networks, his as-yet-unnamed campaign backers presumably having paid handsomely to blanket the nation.
+
+[https://www.youtube.com/watch?v=fAtYMD-H2UY](https://www.youtube.com/watch?v=fAtYMD-H2UY)
+
+What was remarkable was that the set was designed to replicate the President’s White House office. It spookily looked as if he’d already been elected. Reagan, to his credit, was the consummate performer. . He started seated, smoothly got up and moved to casually sit on the corner of his desk, returned to his seat, and got back up to conclude his remarks without taking a single break. No edits were required. I was told he made it through three complete takes before becoming too exhausted to continue. No telling how many attempts had to be scrubbed due to flubs by either Reagan or the camera operator. That’s why they hadn’t finished as early as anticipated. Sounds simple to do, but it’s not–even for the accomplished actor and pitchman that he was.
+
+Standing in the back of the studio outside of the stage lights observing their client’s performance were three of the Conservative Rights leading political consultants– hired guns who had been charged with writing, designing and implementing Reagan’s presidential campaign, starting with this kick-off recording that aired nationwide immediately upon completion.
+
+As I recall, a young Lee Atwater was present that day, someone I recognized from my own work shooting political ads, albeit for liberal, generally left-of-center political consultants and their candidates. Most of us who did this type of work lined up with one political party or another and were hired accordingly, as in the midst of any campaign there’s always sensitive information being exchanged. Atwater was a known rabid dog, someone who proudly was shameless in attacking anyone who did not adhere to his particular worldview, and racist to the core. For example, he was often credited with writing one of Reagan’s more insensitive “go to” lines he was known to employ whenever it might prove helpful, citing “Cadillac-driving welfare queens” and “strapping young bucks buying T-bone steaks with food stamps.”
+
+Ironically, Atwater, who would later become the Chairman of the entire Republican National Committee, had an unbelievable knowledge and passion for the blues and R&B music and, according to no less than B.B. King who he became friends with, was an accomplished blues guitarist himself. King played with him, Sam Moore, Isaac Hayes and Carla Thomas on Atwater’s 1990 Grammy-nominated album, *Red Hot & Blue*. On his deathbed in 1991, he asked for forgiveness for his actions in propagating racial dissent that the Reagan era further advanced. In 1992, King organized a musical tribute to Atwater on the opening day of the Republican National Convention in Houston, Texas.
+
+I find a certain irony that one of the same four camera systems I brought to Tempe to record not only Bruce’s fantastic concert that evening but also his clearly heartfelt personal response to the previous evening’s election results was itself actually used by Reagan and his handlers on the conservative right to kick off their mutual Presidential ambitions.
+
+In Kurt Andersen’s fascinating 2020 book *Evil Geniuses: The Unmaking of America,* he traces the beginning of America’s course correction to the political right and the economic havoc that followed Reagan’s 1980 election. It’s a fascinating read for anyone who finds themselves asking how did we get to the political, economic and psychological morass we now find ourselves in. Andersen starts his narrative in the late sixties and early seventies when the ultra-right sought a national candidate to help them fulfill their vision of their America. In Ronald Reagan, a former Democrat, in fact, they found the consummate professional, an actor/pitchman/performer and politician to deliver their message–one who clearly presaged the era of Donald J. Trump and all his followers.
+
+[https://www.youtube.com/watch?v=lc6F47Z6PI4](https://www.youtube.com/watch?v=lc6F47Z6PI4)
+
+Take a beat and consider all that’s transpired in the past 42 years since that November 5th in Tempe–for Bruce, the country, and for all of us in our own lives. Remember Bruce’s seemingly surprising first overtly political statement that night as well as this very week’s election results.
+
+During The Late Show with Stephen Colbert just this past October 25th, when asked about his current state of mind regarding America, today, he said, “It worries me. Do you really want Marjorie Taylor Greene, Matt Gaetz, Ron deSantis, and our ex-fearless leader deciding the fate of the American Experiment?”
+
+Amen, Brother. Equally succinct but with enough of a touch of the humor we all need these days so very much.
+
+ 

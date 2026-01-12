@@ -1,0 +1,99 @@
+**1971:** Steel Mill headlines at D’Scene in South Amboy, New Jersey.
+
+[https://www.youtube.com/watch?v=Xv4k7Bxs96U](https://www.youtube.com/watch?v=Xv4k7Bxs96U)
+
+[https://www.youtube.com/watch?v=ChmsOg816d0](https://www.youtube.com/watch?v=ChmsOg816d0)
+
+[https://www.youtube.com/watch?v=n8XC7FDCgY4](https://www.youtube.com/watch?v=n8XC7FDCgY4)
+
+[https://www.youtube.com/watch?v=k6WqhNPfJoY](https://www.youtube.com/watch?v=k6WqhNPfJoY)
+
+**1973:** Bruce and the band play the first of four nights at My Father’s Place in Roslyn, New York, opening for the Paul Winter Consort.
+
+**1983:** Bruce holds a solo recording session for *Born in the U.S.A.* at Thrill Hill West in Los Angeles.
+
+[https://www.youtube.com/watch?v=PlACjjEgsmg?list=PLp97J3OSn7IuszyC9fWFqHvBVCCctjy-h](https://www.youtube.com/watch?v=PlACjjEgsmg?list=PLp97J3OSn7IuszyC9fWFqHvBVCCctjy-h)
+
+**1985**: The first of two nights at the Greensboro Coliseum on the Born in the U.S.A. Tour features guest-stars Gary U.S. Bonds and Robbin Thompson on “Twist and Shout” during the encore.
+
+[https://videopress.com/embed/BK00O8PP](https://videopress.com/embed/BK00O8PP)
+
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-18a.png)
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/greensboro85-300x176.jpg)
+
+**1986:** On *American Top 40,* host Casey Kasem introduces “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” with the story of the first show Bruce and Clarence ever played together.
+
+[https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3?_=7)
+
+<https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3>
+
+**1989**: Bruce joins the Rolling Stones, the Temptations, Tina Turner, Stevie Wonder, Pete Townshend, and more on stage for the all-star jam at the fourth annual Rock and Roll Hall of Fame induction ceremony. Bruce takes lead vocals on Roy Orbison’s “[Crying](https://estreetshuffle.com/index.php/2022/05/06/cover-me-crying/)” and plays guitar throughout the rest of the jam.
+
+[https://videopress.com/embed/F1pnPZMx](https://videopress.com/embed/F1pnPZMx)
+
+[https://videopress.com/embed/vyv2jpWy](https://videopress.com/embed/vyv2jpWy)
+
+[https://www.youtube.com/watch?v=vWO-MBMk3h8](https://www.youtube.com/watch?v=vWO-MBMk3h8)
+
+[https://www.youtube.com/watch?v=Wu9RsJnf_c8](https://www.youtube.com/watch?v=Wu9RsJnf_c8)
+
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/1989-01-18.png)
+
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-18b.png)
+
+**1992:** At A&M Studios in Los Angeles, Bruce records “[Happy](http://estreetshuffle.com/index.php/2019/07/28/roll-of-the-dice-happy/),” the final song in his *Lucky Town* sessions. It will stay in the vault until 1998, when it will be released on *Tracks*.
+
+[https://www.youtube.com/watch?v=wmr6oj84sxM](https://www.youtube.com/watch?v=wmr6oj84sxM)
+
+**1996:** Bruce brings his solo acoustic tour to the Fox Theater in St. Louis.
+
+[https://videopress.com/embed/hqPvtH4u](https://videopress.com/embed/hqPvtH4u)
+
+**2009**: Bruce performs “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)” and “[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)” at the We Are One concert in honor of Barack Obama’s inauguration as the 44th President of the United States of America.
+
+[https://www.youtube.com/watch?v=f5e1WlOyr1U](https://www.youtube.com/watch?v=f5e1WlOyr1U)
+
+**2014:** Bruce makes a guest appearance at Light of Day, playing a song each with Jesse Malin and Willie Nile before a full set with Joe Grushecky and the Houserockers that includes the first ever performance of “[Frankie Fell in Love](http://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/).”
+
+[https://www.youtube.com/watch?v=n9WRVSukj6M](https://www.youtube.com/watch?v=n9WRVSukj6M)
+
+[https://www.youtube.com/watch?v=l-xKjFWPvhs](https://www.youtube.com/watch?v=l-xKjFWPvhs)
+
+[https://www.youtube.com/watch?v=RxlFCsYZ9_8](https://www.youtube.com/watch?v=RxlFCsYZ9_8)
+
+[https://www.youtube.com/watch?v=sLeNRCWnjfc](https://www.youtube.com/watch?v=sLeNRCWnjfc)
+
+![](https://estreetshuffle.com/wp-content/uploads/2021/01/2014-01-18a.png)
+
+![](https://estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_2014_01_20_Page_A8-scaled.jpg)
+
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
+
+**2020:** Bruce makes his last public appearance before the great pandemic of 2020 cancels live music for the year. At Light of Day 20 in Asbury Park, Bruce joins Jesse Malin for “[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/)” and “[Meet Me at the End of the World,](https://estreetshuffle.com/index.php/2021/01/14/matr-jesse-malin-and-bruce-springsteen-meet-me-at-the-end-of-the-world/)” Willie Nile for “[One Guitar](https://estreetshuffle.com/index.php/2018/05/16/meeting-across-the-river-bruce-springsteen-and-willie-nile-one-guitar/),” and Joe Grushecky & The Houserockers for a ten-song set that includes a rare “[Savin’ Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/).”
+
+[https://www.youtube.com/watch?v=k-FNvVGPgYs](https://www.youtube.com/watch?v=k-FNvVGPgYs)
+
+[https://www.youtube.com/watch?v=woeyvy7aBlo](https://www.youtube.com/watch?v=woeyvy7aBlo)
+
+[https://www.youtube.com/watch?v=qOl9uXUBbHM](https://www.youtube.com/watch?v=qOl9uXUBbHM)
+
+[https://www.youtube.com/watch?v=5vHowQ5Yx68](https://www.youtube.com/watch?v=5vHowQ5Yx68)
+
+[https://www.youtube.com/watch?v=OKK4YCG6yIY](https://www.youtube.com/watch?v=OKK4YCG6yIY)
+
+![](https://estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_2020_01_24_J3.jpg)
+
+**2023:** At The Vogel in Red Bank, Bruce rehearses with the E Street Horns and Choir in preparation for their upcoming world tour, focusing heavily on songs from *Only the Strong Survive* and including a rare cover of “Sweet Soul Music,” which will not receive a tour outing.
+
+**2025:** Bruce makes a surprise appearance at Light of Day in Red Bank, New Jersey, joining Jesse Malin, Willie Nile, and Joe Grushecky and the Houserockers during their sets.
+
+[https://www.youtube.com/watch?v=QKchiTASERg](https://www.youtube.com/watch?v=QKchiTASERg)
+
+[https://www.youtube.com/watch?v=V8Amx_6mjTE](https://www.youtube.com/watch?v=V8Amx_6mjTE)
+
+[https://www.youtube.com/watch?v=W8JfT6w0pZM](https://www.youtube.com/watch?v=W8JfT6w0pZM)
+
+[https://www.youtube.com/watch?v=5wGwzlMRa3I](https://www.youtube.com/watch?v=5wGwzlMRa3I)
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/stlouis96-300x170.jpg)

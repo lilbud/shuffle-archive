@@ -46,12 +46,13 @@ Assorted posts, usually having to do with the blog itself.
 New categories only for the purposes of the corresponding books. Will be checked but likely they are posts that exist already.
 
 # All Books
-- Make sure links are updated to point to book itself, rather than the site. If another book, then update to say that.
+- All "ESS" links removed, add note pointing to correct book?
 - External links are correct, point to IA if not. Can add description saying what it is/was.
 - Youtube/Videopress: Videos can be embedded in epub, add a description saying what the video is. Already replaced embeds with direct links.
 - Audio: Perhaps upload audio to IA, and link to that. Add description for what audio is, link to IA or Youtube if it's available there.
 - Images: can be embedded, resized if needed.
 - Include an introduction explaining a bit about the site and these books.
+
 
 # Complete Book List:
 
@@ -71,44 +72,53 @@ New categories only for the purposes of the corresponding books. Will be checked
 
 ## Roll of the Dice:
 - Roll of the Dice: Bruce's Originals
-    - Early Years (Castiles, Child, Steel Mill, Dr. Zoom, BSB, 1968 Notebook)
-    - Greetings (Complete)
-    - WIESS (Missing Rosie, NYCS)
-    - BTR (Missing Thunder Road, BTR, Jungleland)
-    - Darkness (Complete)
-    - River (Missing Stolen Car)
-    - Nebraska (Missing Patrolman)
-    - BITUSA (Complete)
-    - 75/85 (5 songs)
-    - Tunnel (Complete)
-    - HT (missing Gloria's Eyes)
-    - LT (missing Leap of Faith)
-    - Plugged (2 songs)
-    - GH? (only 4 songs)
-    - Joad (Complete)
-    - Blood Brothers (Complete?)
-    - Tracks (missing Zero, So Young..., Restless Nights, Stolen Car alt, This Hard Land, THe Promise)
-    - The Rising (missing Into The Fire and Worlds Apart)
-    - Essential Bonus Disc (missing From Small Things)
-    - Devils (missing The Hitter)
-    - Sessions (Complete)
-    - Magic (missing LTD)
-    - WOAD (missing This Life and Last Carnival)
-    - The Promise (missing BTN, title track)
-    - Wrecking Ball (Complete)
-    - HH/American Beauty (missing 41 Shots)
-    - Ties That Bind (Complete)
-    - Chapter and Verse (Complete, might include as Early Years?)
-    - Western Stars (missing Sleepy Joe, Sundown)
-    - Letter (Complete)
-    - OTSS (missing title, Nightshift, Do I Love You, 7 Rooms, Someday)
+    - Early Years
+    - Greetings
+    - WIESS
+    - BTR
+    - Darkness (Include Promise?)
+    - River (Include TTTB?)
+    - Nebraska
+    - Tracks 2: Garage 83
+    - BITUSA
+    - 75/85
+    - Tunnel
+    - HT
+    - LT
+    - Tracks 2: SOPS
+    - Plugged
+    - Greatest Hits
+    - Blood Brothers
+    - Joad
+    - Tracks 2: Nashville
+    - Tracks
+    - The Rising
+    - Essential Bonus Disc
+    - Devils
+    - Sessions
+    - Magic
+    - WOAD
+    - The Promise
+    - Wrecking Ball
+    - HH/American Beauty
+    - Tracks 2: Perfect World
+    - Ties That Bind
+    - Western Stars
+    - Letter
+    - OTSS
     - Singles/B Sides
-    - Unreleased Solo
-    - Unreleased E Street
-    - Each Tracks 2 album
     - Misc.
 
-## Cover Me (Songs Bruce has covered)
+## Cover Me... (Other Artists Covering Bruce)
+- One big book, ordered alphabetically by song
+- Format with the "chapters" being songs, then list artists in order
+- Some posts collect a few covers, cut and include those with their respective songs
+    - "David Bowie Covers": Saint in the City, Growin Up
+        - Saint has it's own separate post, Growin doesn't
+    - "Manfred Mann Covers": Blinded, For You, Spirit
+        - Only For You has it's own, Spirit had one but was overwritten
+
+## ...Cover You (Bruce Covering Other Artists)
     - One big book, ordered alphabetically
 
 ## Meeting Across The River (Collabs with other artists)

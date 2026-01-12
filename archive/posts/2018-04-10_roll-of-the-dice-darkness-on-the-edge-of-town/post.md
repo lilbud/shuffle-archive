@@ -1,0 +1,59 @@
+I’ve gone on record a few times confessing my (relative) lack of appreciation for the [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)album, and I usually find myself embroiled in animated debate whenever I do. I find it heavy-handed: many of the songs are thematically so similar that they seem to be almost identical in their pairing of obsessive defiance and defeatedness, and while I can appreciate the craftsmanship, I don’t find the album enjoyable to listen to.
+
+That said, there are some absolutely stellar standout tracks on the album, and the title track is one of them. If I have to choose the one song that best accomplishes what the entire album is reaching for, it’s “Darkness on the Edge of Town.”
+
+Not coincidentally, it was one of the first songs recorded for the album, but ironically it was one of the last to make the cut. Bruce was at peak prolificness during this time, and he was cranking out material in at least two veins: the more poppish of the two would lay in the vault until *Tracks* and *The Promise* revealed alternate universe possibilities for Bruce’s fourth album. Instead, as the recording sessions wore on, Bruce increasingly went with the darker approach, so it was fitting that “Darkness” became the album’s standard-bearer.
+
+It’s fascinating to listen to that first cut of “Darkness,” recorded in June of 1977. It’s much slower, and the lyrics aren’t complete, but if you consider how much was fully formed and which parts weren’t, you can gain a lot of insight into the theme that was already forming in Bruce’s mind.
+
+[https://www.youtube.com/watch?v=nVDmZnZqF3c](https://www.youtube.com/watch?v=nVDmZnZqF3c)
+
+There are some minor differences, to be sure: “the speedway” hadn’t yet become “the trestles,” for example. And the entire second “secret” verse is absent–instead, Bruce moves the key final verse earlier in the song and adds a chorus that sheds some interesting light on the song:
+
+*Well I can’t stand to make a big move*  
+*I said I <unintelligible> make that big move now*  
+*So I pack ’em all up, tonight we’re gonna take ’em all down*  
+*In the darkness on the edge of town*  
+*In the darkness on the edge of town*
+
+That strikes me as a significant passage, and it’s somewhat surprising to me that Bruce dropped it from the final version. “Darkness” is at heart a song about an inner paradox: the inability to accept defeat paired with an addiction to the things that ensure it. In this early version, that passage makes it clear that it’s the narrator’s own fears, his inability to muster the courage to “make a big move” that keeps him rooted in place rather than some conspiracy of place and fortune. And perhaps that’s the reason he dropped it; listen to the final version without that key passage. The sense of being trapped, chained is pervasive, and perhaps more powerful if the narrator is unaware of his own ability to escape.
+
+[https://www.youtube.com/watch?v=0LpdEyGhNxM](https://www.youtube.com/watch?v=0LpdEyGhNxM)
+
+Regardless of version, this is a difficult protagonist to sympathize with. His wife has moved on without him, and while he clearly misses her, he’s steadfast in his refusal to move forward. He’s bitter, maybe even resentful, and believes his lot in life is pre-destined.
+
+The final lines of the song are often shouted in unison by Bruce and the audience in concert, as if they are a heroic shared cry of defiance:
+
+*Tonight I’ll be on that hill ’cause I can’t stop*  
+*I’ll be on that hill with everything I’ve got*  
+*Well, lives on the line where dreams are found and lost*  
+*I’ll be there on time and I’ll pay the cost*  
+*For wanting things that can only be found*  
+*In the darkness on the edge of town*  
+*In the darkness on the edge of town*
+
+…but there’s nothing heroic or defiant here, in my opinion. Just addiction and resignation that whatever it is that’s hiding in the darkness that keeps our protagonist from moving forward, it’s something he’s not only unwilling but unable to leave behind, despite the wreckage it causes to his life and family.
+
+This is a good time to talk about the music: I think it’s one of Bruce’s best compositions. Bruce has often chosen to pair his lyrics with music that belie the songs meaning, leading to to some comical mis-interpretations (for example, “[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)“). Not here, though–“Darkness” is an example of Bruce’s most meticulous and specific composing. The verses are as plodding as the narrators life; the choruses are violently defiant. Max’s snare separates and punctuates them like a snap of anger. And the coup de grace: the tambourine in the final version, conjuring up imagery of the narrator in chains, swinging a sledgehammer to Max’s drumbeat, and shuffling off toward the horizon as the song fades out, making it clear that the narrator will never escape his mire. Perfection.
+
+In concert, “Darkness on the Edge of Town” remains a setlist standard, never absent for too long. Bruce has admitted in interviews that the song speaks to him. That final stanza–“Tonight I’ll be on that hill ’cause I can’t stop”–takes on new meaning, a continued promise and dedication to his audience. It’s an example of a song growing, shifting, and taking on new meaning over time, much the way that “[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” has grown into a love song rather than a warning.
+
+But I’ve never heard a full-band rendition that can equal the perfection of the studio track–in concert, the song comes off with too much power, and the subtle underlining is missing in action. Most egregiously, losing the shuffling-off-in-chains fadeout in favor of a clean, definitive ending robs the song of much of its lasting emotional power. IMHO, anyway.
+
+Interestingly, Bruce made one subtle but perhaps significant lyrical change when the song resurfaced in his setlists in 1992: “I lost my money when I lost my wife” became “I lost my faith when I lost my wife.” I once heard an interviewer ask Bruce about the reason for that change; Bruce seemed to feign surprise (“Did I?”) and laughed it off. I always chalked it up to post-divorce over-sensitivity, but that may be reading too much into it.
+
+The only arrangements I’ve cared for in concert have been acoustic–and my favorite is from the Christic shows in 1990. Bruce’s vocals are at their peak, and there’s a vulnerability in his voice that makes the song particularly heartbreaking:
+
+[https://www.youtube.com/watch?v=6hEVa2aA7h0](https://www.youtube.com/watch?v=6hEVa2aA7h0)
+
+I realize that I have a somewhat contrary view of this song than most fans do, but that’s one of the best things about great art: it’s open to interpretation. So that’s mine.
+
+What’s yours?
+
+**Darkness on the Edge of Town**  
+**Recorded:** 1977-1978  
+**Released:** *Darkness on the Edge of Town* (1978), *The Essential Bruce Springsteen* (2003), *Greatest Hits* (2009)  
+**First performed:** May 23, 1978 (Buffalo, NY)  
+**Last performed:** September 1, 2023 (East Rutherford, NJ)
+
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
