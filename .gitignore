@@ -17,6 +17,19 @@ categories_20251201/
 
 # IA Config
 config.ini
+ia.py
 
 # DB backup script
 *.ps1
+
+# Media folder, too big
+downloads/
+
+# Media download script
+media.py
+
+# Libreoffice Lock Files
+.~lock*
+
+# book test
+notes/booktest/

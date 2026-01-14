@@ -11,6 +11,7 @@ dependencies = [
     "lxml>=6.0.2",
     "markdown>=3.9",
     "user-agent>=0.1.14",
+    "utidylib>=1.0.0",
 ]
 [tool.ty.rules]
 not-subscriptable = "ignore"

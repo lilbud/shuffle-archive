@@ -67,3 +67,9 @@
 - Saved comments using the API, about 2000 comments have been saved
 - Added spreadsheets to track the various books as part of this project. They are broken up by category, and each has a list of all the posts to be included. Kingdom of Days will be split into a book per month, the rest will be larger books broken into chapters.
 - Started organizing the posts into folders, see `notes/structure.md`.
+
+# 2026-01-13
+- Scraped `media` endpoint for a list of all images/videos uploaded to the site. Those are included in `wp_media_library.json`. Images have been downloaded and saved, to the tune of 3GB or so. Due to high file size requirements, videos can not be downloaded. All of the videos on the site will take up close to 300gb, which is not feasible. Uploaded videos will be replaced with equivalent Youtube links, and if audio only then it'll point to Archive.org. A note describing the video will be included with all videos as a preventative measure for if/when they get taken down.
+
+# 2026-01-14
+- Added original version of post 15454, which was a Year Two Update post from early 2020. This was replaced with an intro to the KoD January book.

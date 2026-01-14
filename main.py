@@ -11,6 +11,7 @@ import psycopg
 from psycopg.rows import dict_row
 from user_agent import generate_user_agent
 
+from archive import archive_posts
 from cleanup import format_article_content
 from database import insert_post, load_db
 
@@ -281,6 +282,8 @@ if __name__ == "__main__":
 
         print("Grabbing recently updated posts.")
         get_latest_posts(cur)
+
+        # archive_posts(cur)
 
         # get_media(cur, conn)
 

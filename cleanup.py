@@ -22,14 +22,15 @@ def format_date(date: str) -> datetime.datetime:
 
 
 def format_article_content(orig_content: str) -> str:
-    """Format article markup.
+    """HTML cleaning.
 
-    The articles are formatted as HTML, which needs some fixes done before
-    inserting into database. Various fixes related to missing/incorrect tags.
-    This helps with markdown conversion later.
+    Apply a few fixes for missing tags, replace some links.
     """
     # multiple new line replace
     orig_content = re.sub("(\r?\n){2}", "<p></p>", orig_content)
+
+    # Replace <p> tag with space with closed tag.
+    orig_content = re.sub(r"<p>\s+</p>", "<p></p>", orig_content)
 
     soup = bs4(orig_content, "lxml")
 
@@ -70,3 +71,11 @@ def format_article_content(orig_content: str) -> str:
         img["src"] = src
 
     return str(soup.body.decode_contents())
+
+
+def clean_file(file: Path):
+    contents = file.read_text(encoding="utf-8")
+
+    cleaned = format_article_content(contents)
+
+    # print(cleaned)

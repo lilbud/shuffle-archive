@@ -24,7 +24,7 @@ def load_db() -> psycopg.Connection:
     )
 
 
-def insert_post(data: dict, cur: psycopg.Cursor) -> None:
+def insert_post(data: dict, cur: psycopg.Cursor, conn: psycopg.Connection) -> None:
     """Insert post into database.
 
     Posts are only inserted if the post_id and modified date in the
@@ -52,41 +52,38 @@ def insert_post(data: dict, cur: psycopg.Cursor) -> None:
     # the only author on the site is Ken, so no point in querying with only one result.
     author = "c8f4a2a5-a55d-4ef7-82d3-d59a8940c107"
 
-    post = cur.execute(
+    # post = cur.execute(
+    #     """select id, post_id, last_modified from posts where post_id = %s and last_modified = %s""",
+    #     (id, last_modified),
+    # ).fetchone()
+
+    cur.execute(
+        """INSERT INTO posts (post_id, published, last_modified, url, title, content, excerpt, author, slug)
+            values (%(id)s, %(published)s, %(last_modified)s, %(url)s, %(title)s, %(content)s, %(excerpt)s, %(author)s, %(slug)s)
+            on conflict (post_id, last_modified) do nothing""",
+        {
+            "id": id,
+            "published": published,
+            "last_modified": last_modified,
+            "url": url,
+            "title": title,
+            "content": content,
+            "excerpt": excerpt,
+            "author": author,
+            "slug": data["slug"],
+        },
+    )
+
+    conn.commit()
+
+    # print(f"Successfully inserted post {id}")
+
+    post_id = cur.execute(
         """select id, post_id, last_modified from posts where post_id = %s and last_modified = %s""",
         (id, last_modified),
-    ).fetchone()
+    ).fetchone()["id"]
 
-    try:
-        post_id = post["id"]
-
-        print(
-            f"post exists in database with ID: {post['post_id']} and Last Modified timestamp: {post['last_modified']}",
-        )
-    except TypeError:
-        cur.execute(
-            """INSERT INTO posts (post_id, published, last_modified, url, title, content, excerpt, author, slug)
-                values (%(id)s, %(published)s, %(last_modified)s, %(url)s, %(title)s, %(content)s, %(excerpt)s, %(author)s, %(slug)s)
-                on conflict (post_id, published) do nothing""",
-            {
-                "id": id,
-                "published": published,
-                "last_modified": last_modified,
-                "url": url,
-                "title": title,
-                "content": content,
-                "excerpt": excerpt,
-                "author": author,
-                "slug": data["slug"],
-            },
-        )
-
-        print(f"Successfully inserted post {id}")
-
-        post_id = cur.execute(
-            """select id from posts where post_id = %s order by created_at desc limit 1""",
-            (id,),
-        ).fetchone()["id"]
+    print(post_id)
 
     if post_id and int(data["featured_media"]) != 0:
         cur.execute(
