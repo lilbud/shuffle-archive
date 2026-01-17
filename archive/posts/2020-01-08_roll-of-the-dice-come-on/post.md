@@ -19,7 +19,7 @@ If “Come On” is notable for anything at all, it’s for the remarkable quali
 *Well come on, don’t let ’em catch you running ’round here*  
 *Well the time has come, let’s get on*
 
-The song itself, however, is a fairly pedestrian call-to-action for young people, inspired by any number of contemporary protest songs–including “[Teach Your Children](http://estreetshuffle.com/index.php/2018/04/14/matr-crosby-stills-nash-young-and-springsteen-teach-your-children/),” which Bruce alludes to twice in the song. (Bruce had a penchant even then for wearing his influences on his sleeves–see “[Change It](http://estreetshuffle.com/index.php/2019/09/04/roll-of-the-dice-changing-children/)” for another example of how young Bruce paid tribute to his influences.)
+The song itself, however, is a fairly pedestrian call-to-action for young people, inspired by any number of contemporary protest songs–including “[Teach Your Children](https://estreetshuffle.com/index.php/2018/04/14/matr-crosby-stills-nash-young-and-springsteen-teach-your-children/),” which Bruce alludes to twice in the song. (Bruce had a penchant even then for wearing his influences on his sleeves–see “[Change It](https://estreetshuffle.com/index.php/2019/09/04/roll-of-the-dice-changing-children/)” for another example of how young Bruce paid tribute to his influences.)
 
 *Yeah come on, are you ready*  
 *The bells are ringing and the people are singing their song*  
@@ -50,6 +50,4 @@ The song itself, however, is a fairly pedestrian call-to-action for young people
 **First performed:** May 23, 1970 (Richmond, VA)  
 **Last performed:** August 14, 1970 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
- 
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

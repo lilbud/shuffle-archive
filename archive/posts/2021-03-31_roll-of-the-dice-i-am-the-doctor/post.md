@@ -4,7 +4,7 @@ But there were exceptions.
 
 Case in point: “I Am the Doctor,” an original Springsteen composition that Steel Mill played during the first half of 1970.
 
-[https://videopress.com/embed/iPprCrUj](https://videopress.com/embed/iPprCrUj)
+[Watch Video Highlight](https://videopress.com/embed/iPprCrUj)
 
 “I Am the Doctor” is as light as Steel Mill gets; it certainly won’t make anyone’s list of best Springsteen lyrics. But then, it doesn’t need to. “I Am the Doctor” was a mid-set palate cleanser for the band.
 

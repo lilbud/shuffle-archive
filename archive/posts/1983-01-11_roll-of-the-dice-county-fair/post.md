@@ -1,6 +1,6 @@
 It’s the crickets, I tell you.
 
-[https://www.youtube.com/watch?v=yltKgMyWLH0](https://www.youtube.com/watch?v=yltKgMyWLH0)
+[Watch on Youtube: County Fair (Studio Outtake - 1983)](https://www.youtube.com/watch?v=yltKgMyWLH0)
 
 The crickets are the secret ingredient that elevates “County Fair” from sublime to magical–and they started as an accident (or so the story goes).
 
@@ -74,15 +74,15 @@ It didn’t start out that way: you can hear the original recording below. Inste
 
 In this first version, however, the synth is way too pronounced, and with the drum machine the effect undermines the song by establishing a modern (at the time) 1980s context. The final verse isn’t as quiet (the drums never completely stop), and there’s no pause after the final line–but you can still hear what Bruce was aiming for and would hit in the final version.
 
-[https://www.youtube.com/watch?v=pkj6azEe18w](https://www.youtube.com/watch?v=pkj6azEe18w)
+[Watch on Youtube: Bruce Springsteen County Fair #1](https://www.youtube.com/watch?v=pkj6azEe18w)
 
 For such a beautiful song, it’s surprising that Bruce didn’t release it until 20 years after it was originally recorded, and even then only on a “bonus disc” of outtakes included with *The Essential Bruce Springsteen*. It had long been circulating in the wild among collectors, however, and fans were pleased that the released version preserved the magic of the unofficial version.
 
 Bruce has only ever performed “County Fair” live twice: once in 2003, with Danny Federici’s accordion replacing to much better effect the synthesizer on record, and once solo on electric piano (and a little rougher, when Bruce completely forgets a line) two years later. You can hear both performances here:
 
-[https://www.youtube.com/watch?v=I21wWMXEvjw](https://www.youtube.com/watch?v=I21wWMXEvjw)
+[Watch on Youtube: Focus On: Federici (3-05) County Fair -- Darien Lake PAC - Buffalo, NY (9-20-2003)](https://www.youtube.com/watch?v=I21wWMXEvjw)
 
-[https://www.youtube.com/watch?v=pR8iJlVO-P0](https://www.youtube.com/watch?v=pR8iJlVO-P0)
+[Watch on Youtube: Bruce Springsteen "County Fair" solo on Electric Piano; St. Louis, MO August 6, 2005](https://www.youtube.com/watch?v=pR8iJlVO-P0)
 
 This is one of the rare instances, however, where a live Bruce Springsteen performance can’t match the recorded version of the song. “County Fair” is too delicate; it’s completely overpowered when attempted live, and that’s probably why Bruce hasn’t tried since.
 

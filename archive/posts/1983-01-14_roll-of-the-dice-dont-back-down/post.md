@@ -6,11 +6,11 @@ Bruce actually had two different works-in progress by that name during his L.A. 
 
 Its origins begin at least a year before Bruce recorded the released version, in this brief and *very* rough home demo from late 1981 or early 1982.
 
-[https://www.youtube.com/watch?v=YOZkLAr3Yw4](https://www.youtube.com/watch?v=YOZkLAr3Yw4)
+[Watch on Youtube: Bruce Springsteen - Don’t Back Down (V1) - Home Demo (Sep 1981 - May 1982)](https://www.youtube.com/watch?v=YOZkLAr3Yw4)
 
 By early 1983, Bruce had fashioned a full song and recorded it alone, accompanied by a drum machine.
 
-[https://www.youtube.com/watch?v=j_RPMEMH0cs](https://www.youtube.com/watch?v=j_RPMEMH0cs)
+[Watch on Youtube: Bruce Springsteen - Don't Back Down (Official Audio)](https://www.youtube.com/watch?v=j_RPMEMH0cs)
 
 Lyrically, I’d argue that the released version of “Don’t Back Down” is still a work in progress: the third verse is just the first verse repeated and the second verse sounds at least lightly bluffed–but this is still a fully formed pop song with verses in the mold of “Two Hearts” and a refrain reminiscent of “No Surrender.”
 

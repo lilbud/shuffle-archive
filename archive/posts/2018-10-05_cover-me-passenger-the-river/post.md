@@ -4,8 +4,4 @@ Passenger’s gentle singer-songwriter vibe is well-suited for the quieter side 
 
 (Gotta admit, though, I’m a bit distracted by the checkered-shirt dude in the background. About halfway through, he seems to get lost in the song.)
 
-[https://www.youtube.com/watch?v=xb3dlQsIihc](https://www.youtube.com/watch?v=xb3dlQsIihc)
-
- 
-
- 
+[Watch on Youtube: Passenger "The River" Bruce Springsteen Cover // The Coffee House // SiriusXM](https://www.youtube.com/watch?v=xb3dlQsIihc)

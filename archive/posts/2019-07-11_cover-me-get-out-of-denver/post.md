@@ -6,19 +6,19 @@ Seger released “Get Out of Denver” in 1974, way back when the E Street Band 
 
 But Bob Seger’s “Get Out of Denver” has remarkable staying power nevertheless, and today both the song and Seger’s 1974 *Seven* album are recognized as classics. As the first song on the album, “Get Out of Denver” has the distinction of being the first song many fans ever heard by Bob Seger and The Silver Bullet Band (Seger had six previous albums, but *Seven* was the debut of his now iconic band.)
 
-[https://www.youtube.com/watch?v=9WWHdBuOC6Q](https://www.youtube.com/watch?v=9WWHdBuOC6Q)
+[Watch on Youtube: Bob Seger - "Get Out Of Denver"](https://www.youtube.com/watch?v=9WWHdBuOC6Q)
 
 Strangely, though, despite Bruce’s friendship with and appreciation for Seger (the two performed together in 1980), Bruce didn’t start covering “Get Out of Denver” until the new century–first at a pair of benefit shows for his kids’ school in 2002 (for which there are no circulating recordings), later at a pair of shows (a decade apart) in the titular city.
 
 Here’s the first of those on-location performances, the show-opener when Bruce’s Rising Tour stopped in Denver on September 25, 2003.
 
-[https://www.youtube.com/watch?v=BEbMmDwIO9g](https://www.youtube.com/watch?v=BEbMmDwIO9g)
+[Watch on Youtube: Bruce Springsteen - Get Out Of Denver (2003-09-25)](https://www.youtube.com/watch?v=BEbMmDwIO9g)
 
 Almost a decade later, Bruce opened another Denver show with “Get Out of Denver”–this time on the Wrecking Ball Tour.
 
-[https://www.youtube.com/watch?v=Mgs1yGger5A](https://www.youtube.com/watch?v=Mgs1yGger5A)
+[Watch on Youtube: BRUCE SPRINGSTEEN "Get Outta Denver" Live at The P](https://www.youtube.com/watch?v=Mgs1yGger5A)
 
-“Get Out of Denver” makes for a great opener, and with its “[Little Queenie](http://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)“-ish riff and chorus, it would make for a great encore, too. Let’s hope Bruce brings this one out more often.
+“Get Out of Denver” makes for a great opener, and with its “[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)“-ish riff and chorus, it would make for a great encore, too. Let’s hope Bruce brings this one out more often.
 
 **Get Out of Denver  
 First performed:** April 13, 2002 (Asbury Park, NJ)  

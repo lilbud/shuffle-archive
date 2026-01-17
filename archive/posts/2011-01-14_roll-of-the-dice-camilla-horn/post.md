@@ -2,7 +2,7 @@
 
 In 1926, a 23-year-old German ingenue was catapulted from obscurity to stardom when she was cast in the role of Gretchen in the German production of *Faust*, a role originally intended for famous actress Lillian Gish.
 
-[https://www.youtube.com/watch?v=02rqc_HO3KM](https://www.youtube.com/watch?v=02rqc_HO3KM)
+[Watch on Youtube: Faust (1926) – Directed by F.W. Murnau](https://www.youtube.com/watch?v=02rqc_HO3KM)
 
 Horn received rave reviews for her breakthrough performance. She went on to star in several Hollywood silent films, appearing opposite John Barrymore and befriending Charlie Chaplin, before returning to Germany, where she continued to earn acclaim until her outspoken criticism of the Nazi regime put a premature end to her career in 1939.
 
@@ -12,7 +12,7 @@ Unable to act, Horn became a farmer, an interpreter, and a nightclub singer fina
 
 She made an impression on a young singer-songwriter from New Jersey, too. In early 1972, 23-year-old Bruce Springsteen wrote a song about Horn–a biographical character arc that summarized her story in only eight lines.
 
-[https://www.youtube.com/watch?v=ZfZ4RyReDXI](https://www.youtube.com/watch?v=ZfZ4RyReDXI)
+[Watch on Youtube: Bruce Springsteen - Camilla Horn](https://www.youtube.com/watch?v=ZfZ4RyReDXI)
 
 Bruce’s song–entitled simply “Camilla Horn”–focuses on Horn’s arrival in the United States, where she was hailed as the next big thing before the industry moved on to the big thing after her.
 

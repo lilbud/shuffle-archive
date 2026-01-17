@@ -10,7 +10,7 @@ Our narrator from “Brothers Under the Bridges” did his best to soldier on, r
 
 Until the daughter he fathered upon returning home comes to the homeless camp in the mountains in search of him and some answers. “Brothers Under the Bridge” is the tale he tells her.
 
-[https://www.youtube.com/watch?v=W_N1Ihr8lSA](https://www.youtube.com/watch?v=W_N1Ihr8lSA)
+[Watch on Youtube: Brothers Under The Bridge (Studio Outtake - 1995)](https://www.youtube.com/watch?v=W_N1Ihr8lSA)
 
 Our narrator has been to Vietnam and back, and while we do not linger on his wartime experiences, they hover just as they foreshadow in Bruce’s earlier song.
 
@@ -63,15 +63,15 @@ But his wartime experiences aged him and ate away at him. Until one day–one Ve
 
 The two songs were recorded within a day of each other, and in both sound and setting, “Brothers Under the Bridge” would have been a perfect fit for Bruce’s 1995 album. It must have been a hard decision to leave it off. Still, Bruce performed it ninety times throughout his 1995-1997 acoustic tour, as if it were born of and part of the album even if it was cast off and forgotten by it. Perhaps there’s irony to observe there.
 
-[https://www.youtube.com/watch?v=5GbTlC3jd7E](https://www.youtube.com/watch?v=5GbTlC3jd7E)
+[Watch on Youtube: Bruce Springsteen - Brothers Under the Bridge (Live 1996-03-20)](https://www.youtube.com/watch?v=5GbTlC3jd7E)
 
 After his acoustic tour ended, so did Bruce’s performances of “Brothers Under the Bridge.” It was too quiet, too gentle a song to translate to an arena stage; when he tried it very early on the Reunion Tour, an overly appreciative Barcelona crowd threatened to overpower the song’s fragility.
 
-[https://www.youtube.com/watch?v=A3H_c8-BP10](https://www.youtube.com/watch?v=A3H_c8-BP10)
+[Watch on Youtube: Brothers Under The Bridge Bruce Springsteen 4/11/1999](https://www.youtube.com/watch?v=A3H_c8-BP10)
 
 “Brothers Under the Bridge” remained unplayed since that night in 1999 until it finally returned late in the High Hopes Tour in 2014, cast in a full-band arrangement that didn’t try to recreate the original studio track but instead leveraged the talent and range of the expanded E Street Band to breathe new life into it, particularly via Tom Morello’s anguished guitar solo and Curt Ramm’s elegiac trumpet.
 
-[https://www.youtube.com/watch?v=K5T2JEsZMws](https://www.youtube.com/watch?v=K5T2JEsZMws)
+[Watch on Youtube: Bruce Springsteen: Brothers under the Bridge: Tampa 2014](https://www.youtube.com/watch?v=K5T2JEsZMws)
 
 Bruce hasn’t performed it since, and he’s never performed its 1983 prequel even once. Yet this unique pair of outtake bookends represents some of his finest songwriting from two of his most distinctive periods, and they deserve greater recognition and appreciation.
 

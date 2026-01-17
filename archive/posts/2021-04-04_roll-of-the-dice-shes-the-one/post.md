@@ -2,27 +2,27 @@ It began with the beat–perhaps the most famous beat of all time.
 
 You can hear it in “[Willie and the Hand Jive](https://estreetshuffle.com/index.php/2021/02/22/matr-bruce-springsteen-and-bobby-bandiera-willie-and-the-hand-jive/).”
 
-[https://www.youtube.com/watch?v=9kIswurDJt4](https://www.youtube.com/watch?v=9kIswurDJt4)
+[Watch on Youtube: Johnny Otis - Willie and the Hand Jive (1958)](https://www.youtube.com/watch?v=9kIswurDJt4)
 
 You can hear it in “The Magic Bus.”
 
-[https://www.youtube.com/watch?v=B3oCB9RdiB4](https://www.youtube.com/watch?v=B3oCB9RdiB4)
+[Watch on Youtube: Magic Bus (Original Stereo Version)](https://www.youtube.com/watch?v=B3oCB9RdiB4)
 
 You can hear it in “[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)“…
 
-[https://www.youtube.com/watch?v=gIKfN3CuFXA](https://www.youtube.com/watch?v=gIKfN3CuFXA)
+[Watch on Youtube: Not Fade Away ((Original Single Mono Version))](https://www.youtube.com/watch?v=gIKfN3CuFXA)
 
 …and in “Desire.”
 
-[https://www.youtube.com/watch?v=z8rQ575DWD8](https://www.youtube.com/watch?v=z8rQ575DWD8)
+[Watch on Youtube: U2 - Desire (Official Music Video)](https://www.youtube.com/watch?v=z8rQ575DWD8)
 
 And of course you can hear it in “I Want Candy,” which is where Mighty Max Weinberg found his inspiration in only his second week as a member of the E Street Band.
 
-[https://www.youtube.com/watch?v=G6Vw9RGm1tM](https://www.youtube.com/watch?v=G6Vw9RGm1tM)
+[Watch on Youtube: The Strangeloves - I Want Candy [HQ] original](https://www.youtube.com/watch?v=G6Vw9RGm1tM)
 
 But it originated with the man for whom it’s named: Bo Diddley, in his eponymous 1955 single.
 
-[https://www.youtube.com/watch?v=dLcYuuljrD4](https://www.youtube.com/watch?v=dLcYuuljrD4)
+[Watch on Youtube: Bo Diddley "Bo Diddley" on The Ed Sullivan Show](https://www.youtube.com/watch?v=dLcYuuljrD4)
 
 In *The Stories Behind the Songs*, Brian Hiatt reports that “She’s the One” had more of an “[Up on Cripple Creek](https://estreetshuffle.com/index.php/2018/01/29/meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/)” vibe to it until Max infused it with the Bo Diddley beat, and in so doing Max transformed “She’s the One” into one of the most electrifying songs in Bruce’s catalog.
 
@@ -45,7 +45,7 @@ Clinton Heylin’s excellent documentation of Bruce’s recording sessions in *E
 
 The lyrics are the same as in the Boston performance on the 29th, but Clarence’s solo is more restrained, lending credence to placing it in mid-October.
 
-[https://www.youtube.com/watch?v=8Wh9jdatP70](https://www.youtube.com/watch?v=8Wh9jdatP70)
+[Watch on Youtube: Bruce Springsteen - She's The One (alternate Version with different Lyrics)](https://www.youtube.com/watch?v=8Wh9jdatP70)
 
 Regardless of when he took it into the studio, Bruce had built a song completely around a beat and a solo; the lyrics were an afterthought.
 
@@ -128,7 +128,7 @@ Bruce didn’t play “She’s the One” on the tour’s opening night, but on 
 
 The album was on sale a month to the day later, featuring a dramatically transformed “She’s the One.”
 
-[https://www.youtube.com/watch?v=blbFaatKszE](https://www.youtube.com/watch?v=blbFaatKszE)
+[Watch on Youtube: She's the One](https://www.youtube.com/watch?v=blbFaatKszE)
 
 The differences in the first verse are subtle but significant: whoever *She* is, the girls no longer want to rip her apart. The emphasis is on the narrator’s inner turmoil now–he’s no longer angry, he’s just in over his head.
 
@@ -177,23 +177,23 @@ But it does.
 
 When Bruce shortened the song, he tautened it. When he jettisoned his spiteful lyrics, he infused all of their anger and frustration into the E Street Band’s performance. (Roy Bittan in particular is practically a dervish in early performances.)
 
-[https://www.youtube.com/watch?v=cx_K0tFXr8k](https://www.youtube.com/watch?v=cx_K0tFXr8k)
+[Watch on Youtube: She's the One (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=cx_K0tFXr8k)
 
 “She’s the One” crackles and sizzles, and its appearance in the set list guarantees an adrenaline rush rivaled only by “[Night](https://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)” and “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/).”
 
 It quickly became a set list mainstay, and as Bruce realized how many rock and roll songs were built on that unforgettable beat, “She’s the One” would often feature several minutes of build-up, usually in the form of rock classics like “Not Fade Away” and “Mona,” sometimes drawn from Bruce’s own catalog like “[Preacher’s Daughter](https://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)” and “[Ain’t Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/).”
 
-[https://www.youtube.com/watch?v=Koogv4fLLnM](https://www.youtube.com/watch?v=Koogv4fLLnM)
+[Watch on Youtube: Bruce Springsteen - She's The One (Includes Gloria & Not Fade Away) / Landover 1978](https://www.youtube.com/watch?v=Koogv4fLLnM)
 
-[https://www.youtube.com/watch?v=LicjPZ3GSLs](https://www.youtube.com/watch?v=LicjPZ3GSLs)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - She's The One (Live in Houston, 1978)](https://www.youtube.com/watch?v=LicjPZ3GSLs)
 
-[https://www.youtube.com/watch?v=PQOaUQTM55E](https://www.youtube.com/watch?v=PQOaUQTM55E)
+[Watch on Youtube: Bruce Springsteen Live 1988 - Ain't Got You & Shes The One](https://www.youtube.com/watch?v=PQOaUQTM55E)
 
 But even (and perhaps especially) without any build-up or introduction), “She’s the One” turbocharges the set.
 
-[https://www.youtube.com/watch?v=0KfvXjbBFaU](https://www.youtube.com/watch?v=0KfvXjbBFaU)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - She's the One (Live In Barcelona)](https://www.youtube.com/watch?v=0KfvXjbBFaU)
 
-[https://www.youtube.com/watch?v=Xg7tlh-H6_Y](https://www.youtube.com/watch?v=Xg7tlh-H6_Y)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - She's the One (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=Xg7tlh-H6_Y)
 
 There’s a reason why “She’s the One” is one of Bruce’s most performed songs, even if its lyrics don’t rank in the top half of his catalog. It’s a guaranteed crowd-pleaser and roof-raiser that isn’t likely to disappear from Bruce’s sets anytime soon.
 

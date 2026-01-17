@@ -4,7 +4,7 @@ Everything dies, baby.
 
 That’s a fact, but our narrator in “Easy Money” ain’t buying it. In his world, there are no consequences.
 
-[https://www.youtube.com/watch?v=gG1fMRmuomQ](https://www.youtube.com/watch?v=gG1fMRmuomQ)
+[Watch on Youtube: Easy Money](https://www.youtube.com/watch?v=gG1fMRmuomQ)
 
 On first listen, “Easy Money” is so strikingly similar to “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” in theme and lyrics that it may take a repeat listen or two before we appreciate how dramatically different they are in outlook.
 
@@ -59,7 +59,7 @@ It may have inspired the album, but “Easy Money” was one of the least-played
 
 That’s too bad, because “Easy Money” was both a crowd- and artist-pleaser, judging by how much fun Bruce seemed to have each time he performed it with Patti and the band. Here’s their third-ever performance of “Easy Money,” from the first week of the Wrecking Ball Tour in Tampa, Florida.
 
-[https://www.youtube.com/watch?v=7lzRDbg_6IQ](https://www.youtube.com/watch?v=7lzRDbg_6IQ)
+[Watch on Youtube: Easy Money - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=7lzRDbg_6IQ)
 
 **Easy Money**  
 **Recorded:** 2011  

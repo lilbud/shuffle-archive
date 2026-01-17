@@ -4,13 +4,13 @@ I’m not talking about a mainstream pop hit, mind you. Bruce left those days be
 
 “My Lucky Day” also sounds like the band was playing it for the first time when they laid it down in the studio, and that’s very much by design. Watch Bruce instruct his team on the exact sound (in a very inexact way) that he’s searching for:
 
-[https://videopress.com/embed/vWtXTtGv](https://videopress.com/embed/vWtXTtGv)
+[Watch Video Highlight](https://videopress.com/embed/vWtXTtGv)
 
 Bruce eventually got the sound he was searching for, and the result isn’t just the best modern snapshot of the E Street Band in the studio, it’s also the last. Featuring in-studio contributions from both Clarence and Danny (who would pass away very shortly after “My Lucky Day” was recorded), “My Lucky Day” is a time capsule for Springsteen fans to treasure.
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=gO7vFDfhDHw](https://www.youtube.com/watch?v=gO7vFDfhDHw)
+[Watch on Youtube: Bruce Springsteen - My Lucky Day (Video Version)](https://www.youtube.com/watch?v=gO7vFDfhDHw)
 
 Had it been released a couple of decades earlier, “My Lucky Day” had all the makings of a pop hit: a terrific hook, a memorable riff and straight-down-the-middle romantic lyrics accessible to even the most casual listener.
 
@@ -64,17 +64,17 @@ Perhaps that’s in part due to Bruce’s own seeming ambivalence to the song. A
 
 Bruce’s first live performance of “My Lucky Day” was in the tour’s very first public rehearsal show. Following on the heels of opener “[Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/),” “My Lucky Day” was like an injection of rocket fuel to the crowd, and the show was off to a roar. Watching this great performance (featuring–as on the studio track–great *River-*esque harmonies from Steve), along with the follow-up from a few months later in Stockholm, it’s mind-boggling why the song didn’t cement itself with fans.
 
-[https://www.youtube.com/watch?v=ChJzpKOCIt4](https://www.youtube.com/watch?v=ChJzpKOCIt4)
+[Watch on Youtube: Bruce Springsteen - My Lucky Day](https://www.youtube.com/watch?v=ChJzpKOCIt4)
 
-[https://www.youtube.com/watch?v=4SqNRKnx5oc](https://www.youtube.com/watch?v=4SqNRKnx5oc)
+[Watch on Youtube: Bruce Springsteen - My Lucky Day - Stockholm Stadion Live](https://www.youtube.com/watch?v=4SqNRKnx5oc)
 
 “My Lucky Day” has only made a handful of appearances on subsequent tours, and mostly (I don’t know why) in Scandinavia. If you were lucky enough to be there for any of them, it was undoubtedly an instant show highlight. This clip from Gothenburg in 2012 is easily my favorite live performance (even if Jake wasn’t quite sure what to do when Bruce cued his solo a bit too early).
 
-[https://www.youtube.com/watch?v=irq1IfmMMFw](https://www.youtube.com/watch?v=irq1IfmMMFw)
+[Watch on Youtube: 6: My Lucky Day, Bruce Springsteen, Live at Ullevi, Sweden](https://www.youtube.com/watch?v=irq1IfmMMFw)
 
 But even that great performance is rivaled by one other very different one: On June 30, 2013, Bruce made a return visit to Hard Rock Calling in London, and he ended the show with a very unusual encore–an acoustic rendition of “My Lucky Day.” It’s a beautiful, spontaneous arrangement, that serves the song well… maybe even better than its rock arrangement. Bruce’s vocals during the wordless bridge speak volumes, and the third verse in particular is more compelling here than in any other performance. And that coda… just beautiful.
 
-[https://www.youtube.com/watch?v=4l1oCiKlIZ4](https://www.youtube.com/watch?v=4l1oCiKlIZ4)
+[Watch on Youtube: My Lucky Day Bruce Springsteen](https://www.youtube.com/watch?v=4l1oCiKlIZ4)
 
 Bring this one back on the next tour, Bruce. Please bring it back.
 
@@ -84,4 +84,4 @@ Recorded:** early 2008
 **First performed:** March 23, 2009 (Asbury Park, NJ)  
 **Last performed:** June 25, 2016 (Gothenburg, Sweden)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

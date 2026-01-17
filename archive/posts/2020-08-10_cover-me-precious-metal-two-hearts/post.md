@@ -1,8 +1,8 @@
-When L.A.-based Precious Metal covered Bruce Springsteen’s “[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” on their self-titled 1990 album, The Boss himself raved about it.
+When L.A.-based Precious Metal covered Bruce Springsteen’s “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” on their self-titled 1990 album, The Boss himself raved about it.
 
 Or so we’re told at least, by the band themselves.
 
-When journalists ask the band about that particular album, it’s usually the infamous Donald Trump incident that they want to know about. But when the all-woman pop/metal band was interviewed by [Metal Maidens](http://www.metalmaidens.com/pmetal.htm), they got a chance to retell their Springsteen story:
+When journalists ask the band about that particular album, it’s usually the infamous Donald Trump incident that they want to know about. But when the all-woman pop/metal band was interviewed by [Metal Maidens](https://www.metalmaidens.com/pmetal.htm), they got a chance to retell their Springsteen story:
 
 ***Whose idea was it to record the Bruce Springsteen cover “Two Hearts” on this album?***
 
@@ -16,10 +16,8 @@ When journalists ask the band about that particular album, it’s usually the in
 
 *Mara: “ha ha! I remember that!”*
 
-*Leslie: He told me he loved our version. Bruce halted the release of a [Bette Midler version](http://estreetshuffle.com/index.php/2018/11/26/cover-me-bette-midler-pink-cadillac/) of “[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)“, ’cause he hated it. Thank goodness he didn’t do that to us!”*
+*Leslie: He told me he loved our version. Bruce halted the release of a [Bette Midler version](https://estreetshuffle.com/index.php/2018/11/26/cover-me-bette-midler-pink-cadillac/) of “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)“, ’cause he hated it. Thank goodness he didn’t do that to us!”*
 
 Take a listen to their Springsteen-endorsed cover below–it’s a hard-driving, glammed up, power pop rendition of Bruce’s 1980 classic.
 
-[https://www.youtube.com/watch?v=1bAa7FeYfck](https://www.youtube.com/watch?v=1bAa7FeYfck)
-
- 
+[Watch on Youtube: Two Hearts](https://www.youtube.com/watch?v=1bAa7FeYfck)

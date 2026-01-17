@@ -2,7 +2,7 @@ One early summer evening, 27 years ago, Bruce Springsteen invited Terence Trent 
 
 This was the song D’Arby sang, from his 1989 album *Neither Fish Nor Flesh,* gently supported by Bruce and his band:
 
-[https://www.youtube.com/watch?v=9UMi4JDbMOw](https://www.youtube.com/watch?v=9UMi4JDbMOw)
+[Watch on Youtube: Terence Trent D'Arby - I HAVE FAITH IN THESE DESOLATE TIMES](https://www.youtube.com/watch?v=9UMi4JDbMOw)
 
 *I have faith in these desolate times*  
 *A roar down the road of a rumbling war*  
@@ -37,7 +37,7 @@ This was the song D’Arby sang, from his 1989 album *Neither Fish Nor Flesh,* g
 
 As you can hear, D’Arby was roundly booed. Nevertheless, he persisted.
 
-[https://www.youtube.com/watch?v=VFVuJZ5RWJw](https://www.youtube.com/watch?v=VFVuJZ5RWJw)
+[Watch on Youtube: I Have Faith In These Desolate Times](https://www.youtube.com/watch?v=VFVuJZ5RWJw)
 
 In these desolate times, have faith.
 

@@ -2,19 +2,19 @@ In 2002, a collection of legendary artists influenced by Johnny Cash contributed
 
 Bruce Springsteen was among the artists represented, and his contribution was a lovely recording of Cash’s 1957 country hit, “Give My Love to Rose.”
 
-[https://www.youtube.com/watch?v=APIuWzCKwto](https://www.youtube.com/watch?v=APIuWzCKwto)
+[Watch on Youtube: Give My Love To Rose](https://www.youtube.com/watch?v=APIuWzCKwto)
 
 A haunting romantic ballad about an ailing ex-convict desperately trying to reunite with his love before he dies, “Give My Love to Rose” sounds exactly like a song Bruce might have written for [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/) or *Nebraska.*
 
-[https://www.youtube.com/watch?v=Vv39doDa7n4](https://www.youtube.com/watch?v=Vv39doDa7n4)
+[Watch on Youtube: Give My Love to Rose](https://www.youtube.com/watch?v=Vv39doDa7n4)
 
 Originally recorded in 1957, “Give My Love to Rose” only rose to #13 on the Country & Western chart, but Cash refused to let it go, recording it several more times over his career. In 2002, just a year before his death, Cash recorded it a final time and brought home his final Grammy Award as a result.
 
-[https://www.youtube.com/watch?v=kzdIrGR3vhs](https://www.youtube.com/watch?v=kzdIrGR3vhs)
+[Watch on Youtube: Give My Love To Rose](https://www.youtube.com/watch?v=kzdIrGR3vhs)
 
 Bruce’s recording of “Give My Love to Rose” came out that same year on *Kindred Spirits*, but he’d been moved to record it a few years prior for a Johnny Cash tribute television special in April 1999.
 
-[https://www.youtube.com/watch?v=hEfe80Ty8KY](https://www.youtube.com/watch?v=hEfe80Ty8KY)
+[Watch on Youtube: Bruce Springsteen Give My Love To Rose](https://www.youtube.com/watch?v=hEfe80Ty8KY)
 
 But Bruce’s performance pre-dates that show, too.
 

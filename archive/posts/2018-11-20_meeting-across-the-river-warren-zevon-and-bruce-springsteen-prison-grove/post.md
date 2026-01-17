@@ -6,7 +6,7 @@ Bruce appears on two songs on the album, including “Prison Grove,” a prison 
 
 Bruce supplies very recognizable backing vocals on this haunting track.
 
-[https://www.youtube.com/watch?v=_HpFDgPWO5w](https://www.youtube.com/watch?v=_HpFDgPWO5w)
+[Watch on Youtube: Prison Grove](https://www.youtube.com/watch?v=_HpFDgPWO5w)
 
 **Prison Grove  
 Recorded:** December 2002  

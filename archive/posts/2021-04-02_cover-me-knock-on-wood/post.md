@@ -8,7 +8,7 @@ The tightest backing band in the land, Booker T. and the MGs? Check.
 
 And the secret ingredient that elevates “Knock on Wood” to the top of the Stax: Al Jackson’s improvised *knock-knock-knock-knock* in the chorus.
 
-[https://www.youtube.com/watch?v=Kceiks__PsE](https://www.youtube.com/watch?v=Kceiks__PsE)
+[Watch on Youtube: Eddie Floyd - Knock On Wood](https://www.youtube.com/watch?v=Kceiks__PsE)
 
 “Knock on Wood” was a hit for Floyd in 1966, peaking at #28 on the Billboard Hot 100, and #1 on the Soul Singles chart. (Amii Stewart’s disco version was a monster hit a dozen years later, but it hasn’t aged well.)
 
@@ -24,7 +24,7 @@ It was a terrific performance, but as great as the E Street Band is, you really 
 
 Flash forward 36 years: At Bruce’s legendary second show at Fenway Park on the Wrecking Ball Tour, Bruce saw a sign for “Knock on Wood” and leapt at it. By this point in the tour, the super-sized E Street Band–complete with horn section and backing vocalists–was firing on all cylinders, and when Bruce threw this particular curve ball, they *nailed* it.
 
-[https://videopress.com/embed/sWYkADsQ](https://videopress.com/embed/sWYkADsQ)
+[Watch Video Highlight](https://videopress.com/embed/sWYkADsQ)
 
 Okay, it’s a little loose in spots, but for an unplanned performance, it’s fantastic, and Bruce clearly had a great time throughout.
 
@@ -33,5 +33,3 @@ Other than a few off-tour performances, these were the only two times Bruce has 
 **Knock on Wood  
 First performed:** April 29, 1976 (Memphis, TN)  
 **Last performed:** August 15, 2012 (Boston, MA)
-
- 

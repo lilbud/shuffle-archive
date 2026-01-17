@@ -1,10 +1,10 @@
 “Two For the Road” is short (not even two minutes long) and sweet, and that’s about the highest praise I can muster for it.
 
-There’s nothing objectionable about “Two For the Road”–it would take a cynic to turn one’s nose up at it–but it’s essentially a blander version of “[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/).” (The two songs even share a lyric.)
+There’s nothing objectionable about “Two For the Road”–it would take a cynic to turn one’s nose up at it–but it’s essentially a blander version of “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/).” (The two songs even share a lyric.)
 
 Bruce recorded “Two For the Road” during the *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)* sessions, and he first released it as the B-side to the single version of the album’s title track. That always struck me as a particularly cruel thing for Bruce to do: although thematically related, “Tunnel of Love” is such a vastly smarter, more mature and just plain superior song that “Two For the Road” underwhelms just by mere proximity.
 
-[https://www.youtube.com/watch?v=1MIzyU5OzNM](https://www.youtube.com/watch?v=1MIzyU5OzNM)
+[Watch on Youtube: Two For The Road (Single B-Side - 1987)](https://www.youtube.com/watch?v=1MIzyU5OzNM)
 
 Still, there are interesting tasting notes on which we should linger for a moment or two:
 
@@ -48,11 +48,11 @@ Surprisingly, Bruce has played “Two For the Road” in concert no less than fi
 
 One of those debuts was “Two For the Road,” first surfacing in August in Cincinnati and Seattle, then again in November back home in New Jersey, all performed by Bruce solo on the electric piano. Here’s Bruce’s last uneven performance of “Two For the Road” from the penultimate show of the 2005 tour.
 
-[https://www.youtube.com/watch?v=JjM3f_5NBAU](https://www.youtube.com/watch?v=JjM3f_5NBAU)
+[Watch on Youtube: Bruce Springsteen - TWO FOR THE ROAD 2005 live](https://www.youtube.com/watch?v=JjM3f_5NBAU)
 
 “Two For the Road” wouldn’t be heard from again for almost a decade, until it made a solitary appearance at Bruce’s post-High Hopes show in Pittsburgh with Joe Grushecky.
 
-[https://www.youtube.com/watch?v=1TE4DDehPMM](https://www.youtube.com/watch?v=1TE4DDehPMM)
+[Watch on Youtube: Bruce Springsteen-"Two For The Road"-first live rendition on acoustic guitar,](https://www.youtube.com/watch?v=1TE4DDehPMM)
 
 Bruce has never seemed fully comfortable with “Two For the Road,” and it’s a difficult song to slot into a set list without it feeling shoehorned. (In Pittsburgh, Bruce played it as part of an opening acoustic mini-set.)
 
@@ -64,4 +64,4 @@ Recorded:** February 1987
 **First performed:** August 1, 2005 (Cincinnati, OH)  
 **Last performed:** May 22, 2014 (Pittsburgh, PA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

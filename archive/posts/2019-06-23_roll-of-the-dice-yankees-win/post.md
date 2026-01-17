@@ -8,7 +8,7 @@ Just a few days before the event, Torre announced that he was ending his eleven-
 
 Unfortunately only the end of the song was captured on video (and Bruce has never played it since), which means we’ll have to use our imaginations to flesh out the rest of the song.
 
-[https://www.youtube.com/watch?v=ICdF-oq48Hg](https://www.youtube.com/watch?v=ICdF-oq48Hg)
+[Watch on Youtube: YANKEES WIN (LIVE) -- BRUCE SPRINGSTEEN](https://www.youtube.com/watch?v=ICdF-oq48Hg)
 
 Bruce lifted the melody from his under-the-radar Ghost of Tom Joad Tour masterpiece, “[Pilgrim in the Temple of Love.](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/)” (One wonders if Bruce keeps that tune on-hand for any occasion where he needs a custom ditty.)
 
@@ -36,4 +36,4 @@ It was a touching way for Bruce to honor the man who’d brought him (and so man
 **First performed:** November 7, 2007  
 **Last performed:** November 7, 2007
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

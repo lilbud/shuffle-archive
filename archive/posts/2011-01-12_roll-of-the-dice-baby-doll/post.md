@@ -8,7 +8,7 @@ If you listen to “Baby Doll” today, though, it holds up pretty well (except 
 
 Let’s take a listen:
 
-[https://videopress.com/embed/HYkpjTeZ](https://videopress.com/embed/HYkpjTeZ)
+[Watch Video Highlight](https://videopress.com/embed/HYkpjTeZ)
 
 Critics often dismiss “Baby Doll” as a *Tommy* rip-off, and they have a point.
 
@@ -65,7 +65,7 @@ Bruce finishes the song the way he begins it, reinforcing the notion that Baby D
 
 “Baby Doll” had promise–enough promise that Bruce eventually recorded it as a demo at engineer Jim Cretecos’ apartment shortly after signing with Appel in early 1972. (It’s this version that we listened to above; Bruce’s original “Baby Doll” performance for Appel was on the piano rather than guitar.)
 
-But just like “[Hollywood Kids](http://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/),” “[Jesse](http://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/),” and the other songs Bruce recorded during those original April 1972 demo sessions, “Baby Doll” was never released in any form.
+But just like “[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/),” “[Jesse](https://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/),” and the other songs Bruce recorded during those original April 1972 demo sessions, “Baby Doll” was never released in any form.
 
 **Baby Doll  
 Recorded:** April 1972  

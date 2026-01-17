@@ -4,13 +4,13 @@ Sure enough: Bruce and Patti (the track is a rare credit to both of them) turned
 
 “Linda Paloma” was a departure even for Jackson, an unabashed mariachi tune inspired by a mariachi singer in a favorite Mexican restaurant. It’s a beautiful song, but the arrangement is perhaps a bit overdone and harp-heavy.
 
-[https://www.youtube.com/watch?v=7kHHqODk-mo](https://www.youtube.com/watch?v=7kHHqODk-mo)
+[Watch on Youtube: Linda Paloma](https://www.youtube.com/watch?v=7kHHqODk-mo)
 
 Bruce and Patti’s version is more understated, relying on gentler, intricate guitar-work by Bruce and Nils, with subtle atmospheric highlighting courtesy of Soozie’s fiddle and Curt Ramm’s trumpet.
 
 But the real star of this show is Bruce’s warm, soaring lead vocal–one of his very best studio performances in recent years. Give a listen below–this is an obscure track that deserves a lot more airplay in Bruce’s catalog.
 
-[https://www.youtube.com/watch?v=w_AOOTMlL1k](https://www.youtube.com/watch?v=w_AOOTMlL1k)
+[Watch on Youtube: Bruce Springsteen (with Patti Scialfa)- Linda Paloma](https://www.youtube.com/watch?v=w_AOOTMlL1k)
 
 **Linda Paloma**  
 **Released:** *Looking Into You: A Tribute to Jackson Browne* (2014)  

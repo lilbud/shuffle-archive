@@ -4,7 +4,7 @@ Released in 2003, *White Lines* highlights not just Soozie’s musicianship–we
 
 The album leads off with its title track, one of two songs on the album to feature a Springsteen contribution. (See “[Ste. Genevieve](https://estreetshuffle.com/index.php/2018/08/21/meeting-across-the-river-soozie-tyrell-bruce-springsteen-and-patti-scialfa-ste-genevieve/)” for the other.)
 
-[https://www.youtube.com/watch?v=dnz2SeT9IP4](https://www.youtube.com/watch?v=dnz2SeT9IP4)
+[Watch on Youtube: White Lines (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=dnz2SeT9IP4)
 
 It’s easy to see why this song in particular might have attracted Bruce: with its road metaphor and childhood reminiscences, it’s tailor-made for him.
 
@@ -12,7 +12,9 @@ Bruce’s lead guitar is present throughout but never so prominent in the mix th
 
 For more background on *White Lines* and Soozie herself, take a listen to this rare radio interview with her from 2003.
 
-[https://www.npr.org/player/embed/1335237/99403098](https://www.npr.org/player/embed/1335237/99403098)
+[Watch Video](https://www.npr.org/player/embed/1335237/99403098)
+
+
 
 **White Lines  
 Recorded:** May 2002  

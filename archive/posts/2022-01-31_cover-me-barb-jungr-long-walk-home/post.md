@@ -7,5 +7,3 @@ British jazz singer Barb Jungr understands that. She’s frequently covered Bruc
 https://www.youtube.com/watch?v=7–YBiHulWI&t=77s
 
 Jungr released her version of “Long Walk Home” on her 2016 album, *Shelter From the Storm.* Pick up the track as a free download [here](https://www.linnrecords.com/recording-shelter-storm), and check out more of her music (including more Springsteen covers) [here](https://www.youtube.com/watch?v=KkTwih4nR7s).
-
- 

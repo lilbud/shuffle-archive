@@ -30,7 +30,7 @@ Because believe it or not, Bruce’s debut performance of “The River”–film
 
 Let’s watch that powerful performance below, and remember: this was the very first time Bruce had ever performed “The River” in public.
 
-[https://videopress.com/embed/14LE1IUk](https://videopress.com/embed/14LE1IUk)
+[Watch Video Highlight](https://videopress.com/embed/14LE1IUk)
 
 Bruce had recorded the song not even one month before. He took the band into the studio to record “The River” immediately after he finished writing (and re-titling) it in August. It didn’t take long to settle on a completed take, and for a month or so, “The River” was almost the centerpiece of a single-disc album called *The Ties That Bind.*
 
@@ -38,11 +38,11 @@ Neither the album nor the track saw the light of day at the time, but more than 
 
 Many fans don’t realize it, but the version of “The River” that’s included on the single-disc version is a different mix. Listen below to the original, unreleased (at the time) take…
 
-[https://www.youtube.com/watch?v=BjSsFvrrh7g](https://www.youtube.com/watch?v=BjSsFvrrh7g)
+[Watch on Youtube: The River](https://www.youtube.com/watch?v=BjSsFvrrh7g)
 
 …and now compare it with the version that was released on *The River* in late 1980. Among the subtle differences, notice that *The Ties That Bind* version is brighter, with Max’s percussion notably higher in the mix. The version on *The River*, by contrast, is more muted. (It also features harmony overdubs in the outro missing from the earlier version.)
 
-[https://www.youtube.com/watch?v=y7BUXRsTbvI](https://www.youtube.com/watch?v=y7BUXRsTbvI)
+[Watch on Youtube: The River](https://www.youtube.com/watch?v=y7BUXRsTbvI)
 
 Let’s dig into the song itself. (Either version works fine for this part.)
 
@@ -160,23 +160,23 @@ To date, Bruce has performed “The River” in concert a mind-boggling 683 time
 
 So instead, I’ll shine a spotlight on how the song has evolved over the years, starting with its first tour outing in 1980, which featured an extended (and unnecessary) piano introduction.
 
-[https://www.youtube.com/watch?v=lc6F47Z6PI4](https://www.youtube.com/watch?v=lc6F47Z6PI4)
+[Watch on Youtube: Bruce Springsteen - The River (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=lc6F47Z6PI4)
 
 Far more successful was the introduction to Bruce’s Reunion Tour arrangement. For three gorgeous minutes, first Clarence and then Bruce and Roy conjured the narrator’s loneliness and let it wash over us. By the time Bruce’s familiar vocals start, we’re already mourning our loss.
 
-[https://www.youtube.com/watch?v=QHfdYaMksn0](https://www.youtube.com/watch?v=QHfdYaMksn0)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - The River (Live in New York City)](https://www.youtube.com/watch?v=QHfdYaMksn0)
 
 “The River” has always been a delicate song; when performing it with the E Street Band, Bruce takes care with the arrangement lest the band overpower. But on his solo acoustic tours, Bruce is able to stretch a bit, and this acoustic arrangement from 1996 (accompanied by a mostly unseen Soozie Tyrell) is one of my favorites.
 
-[https://www.youtube.com/watch?v=k-0bLbdSNDs](https://www.youtube.com/watch?v=k-0bLbdSNDs)
+[Watch on Youtube: Bruce Springsteen - The River [Freehold November 8, 1996]](https://www.youtube.com/watch?v=k-0bLbdSNDs)
 
 “The River” was a regular feature on Bruce’s 2005 acoustic tour as well, but this time he performed at the piano, with a haunting falsetto.
 
-[https://www.youtube.com/watch?v=17A12QFVytc](https://www.youtube.com/watch?v=17A12QFVytc)
+[Watch on Youtube: Bruce Springsteen - The River (Live Milan 07 June 2005)](https://www.youtube.com/watch?v=17A12QFVytc)
 
 But my favorite arrangement (right up there with the Reunion Tour) is Bruce’s Irish-influenced arrangement from 2006. “The River” never sounded more cinematic.
 
-[https://www.youtube.com/watch?v=rvxYiudnnKk](https://www.youtube.com/watch?v=rvxYiudnnKk)
+[Watch on Youtube: Bruce Springsteen with The Seeger Sessions Band - The River](https://www.youtube.com/watch?v=rvxYiudnnKk)
 
 **The River  
 Recorded:** August 26, 1979 – April 1980  

@@ -2,7 +2,7 @@
 > 
 > *–Bruce Springsteen, on stage in Los Angeles, August 20, 1981*
 
-[https://www.youtube.com/watch?v=lA31GteIgXU](https://www.youtube.com/watch?v=lA31GteIgXU)
+[Watch on Youtube: Who'll Stop the Rain (Live at Wembley Arena, London, UK - 06/05/81 - Official Audio)](https://www.youtube.com/watch?v=lA31GteIgXU)
 
 He’d been covering it throughout the River Tour–more than eighty times–without ever saying a word about it.
 
@@ -22,13 +22,13 @@ Muller compressed the timeframe a bit (the shows were actually seven weeks apart
 
 For five minutes–before playing even a single note–Bruce and Bobby started a national conversation that never stopped.
 
-[https://www.youtube.com/watch?v=v57L3LC9pRU](https://www.youtube.com/watch?v=v57L3LC9pRU)
+[Watch on Youtube: Bruce Springsteen: 0. Intros - Live in Los Angeles (August 20th, 1981)](https://www.youtube.com/watch?v=v57L3LC9pRU)
 
 Bruce had been opening his shows on that leg of the tour with “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” or “Thunder Road.” Occasionally he’d mix it up with a cameo of “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” or even “Born to Run.”
 
 This night, however, he opened with a cover that was usually deep in the main set.
 
-[https://www.youtube.com/watch?v=3OBh3o29k9Q](https://www.youtube.com/watch?v=3OBh3o29k9Q)
+[Watch on Youtube: Bruce Springsteen: 1. Who'll Stop The Rain? - Live in Los Angeles (August 20th, 1981)](https://www.youtube.com/watch?v=3OBh3o29k9Q)
 
 It was a perfect selection.
 
@@ -38,7 +38,7 @@ Bruce paid close attention to Fogerty’s lyrics, however, and he knew that the 
 
 “Who’ll Stop the Rain” is actually about the frustration and futility of trying to put an end to society’s ills. It’s like trying to stop the rain from falling. The song is as applicable to domestic homelessness and joblessness as it is to foreign wars and political oppression.
 
-[https://www.youtube.com/watch?v=VMJFWiZ-bOc](https://www.youtube.com/watch?v=VMJFWiZ-bOc)
+[Watch on Youtube: Creedence Clearwater Revival - Who'll Stop The Rain (Lyrics And Chords Video)](https://www.youtube.com/watch?v=VMJFWiZ-bOc)
 
 It’s still relevant today, which is why “Who’ll Stop the Rain” continues to be covered in the studio by artists ranging from Bill Haley to Garth Brooks, and on stage by countless others. *Rolling Stone* ranked the song #188 on its 500 Greatest Songs of All Time list.
 
@@ -48,17 +48,17 @@ Springsteen’s August 1981 benefit concert is still widely regarded as one of h
 
 The VVA is still around, still tackling, promoting, and supporting issues important to America’s Vietnam vets. And of course, Springsteen continues to support America’s veterans from all wars, not just Vietnam. When his second River Tour stopped in Washington D.C. in early 2016, his acknowledgement of Muller (who was in attendance) was a fitting bookend to their joint appearance on the original River Tour.
 
-[https://www.youtube.com/watch?v=kpzEMyE7YrA](https://www.youtube.com/watch?v=kpzEMyE7YrA)
+[Watch on Youtube: Bruce Springsteen - 2016-01-29 Washington DC - PSA & No Surrender (intro)](https://www.youtube.com/watch?v=kpzEMyE7YrA)
 
 Bruce continued to perform “Who’ll Stop the Rain” in concert over the years, updating its context to fit the world’s current concerns. In 1993, for example, he offered it as “a prayer for Bosnia-Herzegovina.”
 
-[https://www.youtube.com/watch?v=PFONPl6r_j0](https://www.youtube.com/watch?v=PFONPl6r_j0)
+[Watch on Youtube: Bruce Springsteen Who'll Stop The Rain (Live 1993 05 28)](https://www.youtube.com/watch?v=PFONPl6r_j0)
 
 When Bruce plays it these days, however, it’s usually in a completely non-political context.
 
 If you’re fortunate or unfortunate enough to catch an outdoor Springsteen show in the rain, odds are pretty decent that you’ll get a cover of “Who’ll Stop the Rain” in the setlist, often even as the show’s opening song.
 
-[https://www.youtube.com/watch?v=EwfLpiFU-Wg](https://www.youtube.com/watch?v=EwfLpiFU-Wg)
+[Watch on Youtube: Bruce Springsteen Hunter Valley 2017 Who'll Stop The Rain](https://www.youtube.com/watch?v=EwfLpiFU-Wg)
 
 Occasionally, I’ll see online criticism of Bruce’s literal interpretation of a beloved protest song, but Bruce actually has it right: only two of Fogerty’s three verses are metaphorical. The third verse truly is literal: it’s about his experience at Woodstock when the skies opened and drenched the crowd.
 
@@ -69,10 +69,8 @@ Is it an odd way to end the song? Maybe. But one could also posit a subtle messa
 
 Bonus: Despite their many appearances together over the years, Bruce and John have only ever performed “Who’ll Stop the Rain” together once: at the induction of Creedence Clearwater Revival into the Rock and Roll Hall of Fame in 1993. Check out the clip below, and keep an eye out to spot Roy Bittan, Robbie Robertson, Don Was, and Heartbreaker Benmont Tench in the band as well.
 
-[https://www.youtube.com/watch?v=ekw13v8Et7U](https://www.youtube.com/watch?v=ekw13v8Et7U)
+[Watch on Youtube: John Fogerty - "Who'll Stop The Rain" | 1993 Induction](https://www.youtube.com/watch?v=ekw13v8Et7U)
 
 **Who’ll Stop the Rain  
 First performed:** December 18, 1980 (New York City, NY)  
 **Last performed:** February 18, 2017 (Hunter Valley, Australia)
-
- 

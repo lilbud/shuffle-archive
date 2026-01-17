@@ -6,18 +6,16 @@ But even a “standard” Springsteen show has the power to inspire great art an
 
 Still, Earle did write “Guitar Town” shortly thereafter as the title song and lead single for his 1986 debut album, and it became a country rock hit, notching the number seven spot on the Billboard Country chart and earning Earle Grammy nominations in both the “Best Country Song” and “Best Male Country Vocalist” categories.
 
-[https://www.youtube.com/watch?v=AINUPFbFpqg](https://www.youtube.com/watch?v=AINUPFbFpqg)
+[Watch on Youtube: Steve Earle - Guitar Town (Official Music Video)](https://www.youtube.com/watch?v=AINUPFbFpqg)
 
 Twelve years after its release, Earle finally got a chance to perform “Guitar Town” with the man who inspired it. When Earle played at Tradewinds on the Jersey Shore, local boy Bruce Springsteen dropped by to catch the show.
 
 Earle invited Bruce to join his band on stage for the encore set, and Bruce ended up staying through six songs, all on guitar and occasional backing vocals. Of course, one of those songs had to be “Guitar Town,” and you can hear him here on guitar.
 
-[https://videopress.com/embed/YDKFaaxq](https://videopress.com/embed/YDKFaaxq)
+[Watch Video Highlight](https://videopress.com/embed/YDKFaaxq)
 
 That was the only time Bruce has ever performed “Guitar Town.” For more one-time-only Earle/Springsteen performances, check out the other songs they played that night [here](https://estreetshuffle.com/?s=steve+earle).
 
 **Guitar Town**  
 **First performed:** February 6, 1998 (Sea Bright, NJ)  
 **Last performed:** February 6, 1998 (Sea Bright, NJ)
-
- 

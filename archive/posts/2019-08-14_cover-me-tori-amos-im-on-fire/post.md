@@ -13,7 +13,7 @@ And as it turns out, all of the above serve as context for explaining why this *
 
 Efrain and David, the hosts of the “Drive All Night: The Songs of Tori Amos” podcast, recently invited me to be a guest on their show during a two-hour(!) episode devoted entirely to Tori’s cover of Bruce’s “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/).”
 
-[https://www.youtube.com/watch?v=3k83xsEAFig](https://www.youtube.com/watch?v=3k83xsEAFig)
+[Watch on Youtube: Tori Amos - "I'm On Fire" (cover)](https://www.youtube.com/watch?v=3k83xsEAFig)
 
 You read that right: a two-hour podcast devoted to a Tori Amos cover of a Bruce Springsteen song. How could I pass that up?
 
@@ -21,7 +21,9 @@ Well, I couldn’t, of course. My conversation with Efraim is only one segment o
 
 So instead of my usual commentary here, If you’ve got 110 minutes or so, take a listen to Efrain and David discovering and analyzing both Bruce’s and Tori’s versions of “I’m on Fire,” along with my comparative thoughts, and let me know what you think.
 
-[https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F664413398&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F664413398&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
+[0335 BFP Era Tracks - I'm On Fire by Drive All Night: The Songs of Tori Amos](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F664413398&show_artwork=true&maxheight=1000&maxwidth=758)
+
+
 
 Efrain and David feel like kindred spirits to me: they’re deep into their mission to profile every song that Tori Amos has ever recorded, including the covers, and boy are they *thorough*. Each episode features a line-by-line analysis, notable covers, great live performances, and more. When they tackle Tori covering another artist, they invite a “superfan” (their word, not mine) of the original artist to provide comparative context and commentary.
 

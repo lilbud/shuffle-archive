@@ -6,7 +6,7 @@ It’s not even the first time I’ve used it in a [*Tunnel of Love*](https://es
 
 With the possible exception of “[Cautious Man](https://estreetshuffle.com/index.php/2020/06/09/roll-of-the-dice-cautious-man/),” nowhere is that more evident than in “Two Faces.”
 
-[https://www.youtube.com/watch?v=119sq2IIoiA](https://www.youtube.com/watch?v=119sq2IIoiA)
+[Watch on Youtube: Two Faces](https://www.youtube.com/watch?v=119sq2IIoiA)
 
 As is his wont, Bruce took inspiration not just from his own personal experience but from a classic rock and roll song.
 
@@ -14,7 +14,7 @@ Bruce has long been a fan of ’60s legend Lou Christie, of falsetto fame. In fa
 
 Those favorites almost certainly included Christie’s 1963 Top Ten single, “Two Faces Have I.”
 
-[https://www.youtube.com/watch?v=e3QFcVYCBdM](https://www.youtube.com/watch?v=e3QFcVYCBdM)
+[Watch on Youtube: Lou Christie - Two Faces Have I](https://www.youtube.com/watch?v=e3QFcVYCBdM)
 
 “Two Faces Have I” peaked at #6 on the Billboard Hot 100, and it finished at #44 for the year. But it wasn’t just the falsetto and the catchy melody that likely caught Bruce’s attention. Something about the chorus also lodged itself in his brain.
 
@@ -95,11 +95,11 @@ Strangely enough, sandwiched into an encore that included “Born to Run,” “
 
 “Two Faces” returned months later when the Tunnel of Love Express Tour kicked off, and it remained a nightly staple in the set list throughout most of the tour.
 
-[https://www.youtube.com/watch?v=UQVhs7LL2A4](https://www.youtube.com/watch?v=UQVhs7LL2A4)
+[Watch on Youtube: Two Faces (Live at LA Arena, Los Angeles, CA - 4/23/1988)](https://www.youtube.com/watch?v=UQVhs7LL2A4)
 
 Following the Tunnel of Love Tour, “Two Faces” disappeared for almost two decades, returning for a handful of appearances during Bruce’s solo acoustic tour in support of *Devils & Dust.*
 
-[https://www.youtube.com/watch?v=zO9akJo53-8](https://www.youtube.com/watch?v=zO9akJo53-8)
+[Watch on Youtube: Two Faces (solo piano) Bruce Springsteen June 19, 2005 Rotterdam, NED](https://www.youtube.com/watch?v=zO9akJo53-8)
 
 We haven’t heard from “Two Faces” since that 2005 tour. But it’s only been as long since its last outing as it was between the Tunnel of Love and Devils & Dust Tours, so don’t count it out for good.
 

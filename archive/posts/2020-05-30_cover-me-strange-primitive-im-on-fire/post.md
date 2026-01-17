@@ -4,4 +4,4 @@ Toronto-based Strange & Primitive’s cover of “[I’m on Fire](https://estree
 
 Enjoy this very worthy addition to the expansive collection of “I’m on Fire” covers.
 
-[https://www.youtube.com/watch?v=Vr5knQh7Fs0](https://www.youtube.com/watch?v=Vr5knQh7Fs0)
+[Watch on Youtube: I'm On Fire (Bruce Springsteen Cover Song) - Strange & Primitive](https://www.youtube.com/watch?v=Vr5knQh7Fs0)

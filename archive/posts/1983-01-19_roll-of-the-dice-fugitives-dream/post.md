@@ -12,7 +12,7 @@ But while “Unsatisfied Heart” may be the catchier and more well-known of the
 
 So go ahead: give it a listen, and then we’ll break it down.
 
-[https://www.youtube.com/watch?v=wzsyKlSqErI](https://www.youtube.com/watch?v=wzsyKlSqErI)
+[Watch on Youtube: Bruce Springsteen - Fugitive's Dream (Ballad) (Official Audio)](https://www.youtube.com/watch?v=wzsyKlSqErI)
 
 “Fugitive’s Dream” is nothing short of stunning. If not for the date stamp on the recording (January 1983), we might assume that the song and the recording hail from Bruce’s *Nebraska* period. It’s certainly as dark, brave, and fully realized as any of the classics from Bruce’s 1982 landmark album.
 

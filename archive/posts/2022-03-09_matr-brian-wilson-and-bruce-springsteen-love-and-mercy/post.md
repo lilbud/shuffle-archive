@@ -8,7 +8,7 @@ We can only imagine what must have been running through Bruce’s mind that nigh
 
 “Barbara Ann” was the more famous of the two songs Bruce played with Brian that night, but “Love and Mercy” was far more personal.
 
-[https://www.youtube.com/watch?v=2y3J46DhoL0](https://www.youtube.com/watch?v=2y3J46DhoL0)
+[Watch on Youtube: Brian Wilson - Love And Mercy (Official Music Video)](https://www.youtube.com/watch?v=2y3J46DhoL0)
 
 Wilson wrote it for his 1988 debut solo album as a personal expression of his hopes and wishes for the world, and it’s widely considered to rank among his best work. “The beauty of [Wilson’s music] carries with it a sense of joyfulness even in the pain of living,” Bruce said in the film, and that description certainly applies to “Love and Mercy.”
 
@@ -18,7 +18,7 @@ When he returned to the stage that night for that final “Love and Mercy” enc
 
 Fortunately that moment was captured on video–not all of it, unfortunately, but enough of it.
 
-[https://www.youtube.com/watch?v=u8W2hsInu2o](https://www.youtube.com/watch?v=u8W2hsInu2o)
+[Watch on Youtube: Brian Wilson & Band w/ B Springsteen/D Diken Red Bank NJ](https://www.youtube.com/watch?v=u8W2hsInu2o)
 
 Wilson remembers talking with Bruce after they left the stage that night:
 
@@ -27,5 +27,3 @@ Wilson remembers talking with Bruce after they left the stage that night:
 **Love and Mercy  
 First performed:** May 12, 2007 (Red Bank, NJ)  
 **Last performed:** May 12, 2007 (Red Bank, NJ)
-
- 

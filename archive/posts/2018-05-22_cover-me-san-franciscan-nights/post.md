@@ -2,9 +2,9 @@ Waaaaaay back in September 1967, The Castiles covered Eric Burdon and The Animal
 
 Bruce and the band gave a pretty faithful interpretation–even copying the “Dragnet” novelty introduction. The sound quality isn’t great, but the performance is fun–listen below and then compare to the original.
 
-[https://videopress.com/embed/mynOYldh](https://videopress.com/embed/mynOYldh)
+[Watch Video Highlight](https://videopress.com/embed/mynOYldh)
 
-[https://www.youtube.com/watch?v=8hv0M5etXFA](https://www.youtube.com/watch?v=8hv0M5etXFA)
+[Watch on Youtube: The animals- San Francisco nights ( lyrics)](https://www.youtube.com/watch?v=8hv0M5etXFA)
 
 **San Franciscan Nights  
 First performed:** September 30, 1967 (Freehold, NJ)  

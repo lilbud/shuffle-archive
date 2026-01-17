@@ -1,6 +1,6 @@
 Bruce Springsteen wrote “Jack of All Trades” shortly after the U.S. housing bubble of the early 2000s violently burst, but both lyrically and musically it sounds like it could have been written years, decades, or even centuries earlier.
 
-[https://www.youtube.com/watch?v=_5Xao2_K-h4](https://www.youtube.com/watch?v=_5Xao2_K-h4)
+[Watch on Youtube: Jack Of All Trades](https://www.youtube.com/watch?v=_5Xao2_K-h4)
 
 That’s intentional. At a 2012 press conference in Paris, Bruce acknowledged his design:
 
@@ -80,13 +80,13 @@ The first time was the song’s live debut–not at the tour opener, or even at 
 
 “Jack of All Trades” was a surprising choice for such a prime platform, but thanks to the intimacy created by the camera that brought Bruce and the band close up into our own homes, it came across as mesmerizing.
 
-[https://videopress.com/embed/DB01Ux8Z](https://videopress.com/embed/DB01Ux8Z)
+[Watch Video Highlight](https://videopress.com/embed/DB01Ux8Z)
 
 The next times Bruce surprised with a potent “Jack of All Trades” were the last times (to date) that he performed it: in a brand new arrangement at the tail end of his 2016 tour.
 
 The 2016 tour featured the core E Street Band, without the horn section that featured so prominently since 2012. Lacking one of the central elements that made the studio track so powerful, Bruce rearranged “Jack of All Trades” as an essentially solo number, backed by local string sections he hired in each city to bring “New York City Serenade” to life as that leg’s unexpected standard opener.
 
-[https://www.youtube.com/watch?v=ydQtkgz75Q0](https://www.youtube.com/watch?v=ydQtkgz75Q0)
+[Watch on Youtube: Jack of All Trades (with strings) - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=ydQtkgz75Q0)
 
 The arrangement was just novel enough and powerful enough to compel audiences to re-examine the song, and it was beautiful enough for “Jack of All Trades” to become a highlight in a string of shows that were almost all highlights.
 

@@ -6,6 +6,6 @@ Let’s start with Michael Petrella and Eric. I don’t know much about Michael 
 
 Check out their clever cover mash-up of “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” with “I Wanna Dance With Somebody.” Not only do they blend well musically, the lyrics match hand-in-glove, too.
 
-[https://www.youtube.com/watch?v=_eTxdpFlKv0](https://www.youtube.com/watch?v=_eTxdpFlKv0)
+[Watch on Youtube: Dancing in the Dark x Dance with Somebody (Mashup Cover) - Bruce Springsteen // Whitney Houston](https://www.youtube.com/watch?v=_eTxdpFlKv0)
 
 Michael has some great covers over at his YouTube channel–check them out [here](https://www.youtube.com/channel/UCseOccjhYHO9aGPmfD1t9mA).

@@ -4,7 +4,7 @@ It was clearly an audible, and poor Stevie looked like the student who forgot to
 
 “C’mon Steve, I need some help!” Bruce called, and for the rest of the song Steve either faked his way through his backing vocals or clung to the teleprompter for dear life.
 
-[https://www.youtube.com/watch?v=PQLUN4h3KpA](https://www.youtube.com/watch?v=PQLUN4h3KpA)
+[Watch on Youtube: Bruce Springsteen - 2014-01-29 - Cape Town Bellville Velodrome - This Is Your Sword - World Premiere](https://www.youtube.com/watch?v=PQLUN4h3KpA)
 
 I’ve never been able to decide whether Bruce was aware of how flatfooted he caught Steve that night, but he had a devilish gleam in his eye that makes me suspect he very much knew and was deliberately messing with his old friend. (The irony is that Steve provided backing vocals on the album track, so we know this isn’t the first time he’s ever been called on for this song.)
 
@@ -12,7 +12,7 @@ It was funny, but it was also endearing–one of those moments when you’re alm
 
 Apart from its Celtic music and medieval lyrics, I don’t find “This Is Your Sword” particularly memorable. It’s not a bad song, mind you–I’d certainly never skip it when I listen to *High Hopes*–it’s just ground Bruce has covered before. Let’s take a listen.
 
-[https://www.youtube.com/watch?v=a0xhkNuhBR8](https://www.youtube.com/watch?v=a0xhkNuhBR8)
+[Watch on Youtube: This is Your Sword](https://www.youtube.com/watch?v=a0xhkNuhBR8)
 
 I’ve read several reviews and accounts that suggest that “This Is Your Sword” is sung by a father to his children, but I don’t subscribe to that interpretation. The song is more universal than that, something Bruce makes clear in the very first line:
 
@@ -59,7 +59,7 @@ It’s a beautiful message and a lovely trifle of a song, but stripped of its Ar
 
 That may be why Bruce only tried it twice more; while the latter two went more smoothly than that first outing in Cape Town, all three performances of “This Is Your Sword” felt out of place in the moment.
 
-[https://www.youtube.com/watch?v=uuZt3HiRvDg](https://www.youtube.com/watch?v=uuZt3HiRvDg)
+[Watch on Youtube: ~ Bruce Springsteen - This Is Your Sword (Albany, May 13, 2014) ~](https://www.youtube.com/watch?v=uuZt3HiRvDg)
 
 But context is king, and if we’re lucky enough to get at least one more Sessions Band tour out of Bruce, I’d be interested in seeing what they can do with “This Is Your Sword.” With their expansive instrumental range and comfort with this type of arrangement (Sessions Band violinist Sam Bardfeld even plays on the studio track), I suspect it’d be right at home in their sets.
 

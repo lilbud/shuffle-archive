@@ -1,11 +1,7 @@
 > “I grew up in this little town, and as I got older, I started looking around me and it didn´t seem like there was any way I was gonna get out of there. Because I looked back at my father, and the only time he´d ever gotten out of that town was to go to World War II. And then when he came out of the army, he got married and he settled down and went to work in a plastics factory. And his father had done the same thing.
 > 
-> 
-> 
 > It seemed that the one thing that we had in common was that we didn’t have enough information. We didn’t have enough knowledge about the things and the forces that were controlling our lives. And I watched my old man end up a victim and he didn´t even know it.” — **Bruce Springsteen, May 7, 1981**
 > “When I was sixteen or seventeen, it was hard for me to understand what [my father’s] life was like. How he’d gotten married so young. When I was living at home… he wasn’t much older than I am right now, and he’d been working in this factory for ten years already. He had to put up with all the humiliation the world puts you through living like that. When I moved away when I was eighteen, I was sure that I was never gonna miss him. And for a long time I never did.
-> 
-> 
 > 
 > It took us 30 years just to be able to tell each other that we loved each other. And it’s just silly to wait that long. If you got folks at home, you oughta try talking to them sometime. They probably need it, you know.” — **Bruce Springsteen, May 8, 1981**
 
@@ -23,11 +19,11 @@ Bruce wrote two songs in “Independence Day”–one of youthful rebellion and 
 
 Bruce wrote “Independence Day” for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) (and played it throughout much of that tour), and as such it holds true to that album’s theme: the determination to slip our shackles, escape our circumstances, and realize our full potential.
 
-[https://www.youtube.com/watch?v=z-UjhzfRcS0](https://www.youtube.com/watch?v=z-UjhzfRcS0)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Independence Day (Live in Houston, 1978)](https://www.youtube.com/watch?v=z-UjhzfRcS0)
 
 But he released it on *The River*, and it exemplifies that album’s theme, too: the importance of family, fidelity, and the ties that bind.
 
-[https://www.youtube.com/watch?v=9GggK3Sn258](https://www.youtube.com/watch?v=9GggK3Sn258)
+[Watch on Youtube: Independence Day](https://www.youtube.com/watch?v=9GggK3Sn258)
 
 “Independence Day” bridges the two albums. In a single song, we can hear the frustration of “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)” and “[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)” along with a tenderness Bruce had only hinted at before. To those who listen for it, “Independence Day” is one of the most revealing love songs in his catalog.
 
@@ -124,23 +120,23 @@ Other than the two River Tours, where it featured regularly, “Independence Day
 
 When it does turn up, it’s apt to be clad in a new but always understated arrangement, like in this performance from 1996, Bruce’s last before his father passed away…
 
-[https://www.youtube.com/watch?v=lLJqX1U77gM](https://www.youtube.com/watch?v=lLJqX1U77gM)
+[Watch on Youtube: Independence Day (Live at Paramount Theatre, Asbury Park, NJ - 11/24/96- Official Audio)](https://www.youtube.com/watch?v=lLJqX1U77gM)
 
 …or in this tender arrangement from the Reunion Tour, shortly after.
 
-[https://www.youtube.com/watch?v=WeQX9hHVhgk](https://www.youtube.com/watch?v=WeQX9hHVhgk)
+[Watch on Youtube: Bruce Springsteen - INDEPENDENCE DAY 2000 live](https://www.youtube.com/watch?v=WeQX9hHVhgk)
 
 My favorite performances, though, are when Bruce plays it alone at the piano. “Independence Day” is one of his most intimate songs, and when he plays it alone, even he sometimes is overcome with emotion.
 
-[https://www.youtube.com/watch?v=SKzOHemAFPw](https://www.youtube.com/watch?v=SKzOHemAFPw)
+[Watch on Youtube: Independence Day (Live - Paris, 07/04/12)](https://www.youtube.com/watch?v=SKzOHemAFPw)
 
 **Bonus #1:** The original recording of “Independence Day” featured a longer instrumental coda, which was abridged for the final album version. Here’s that original uncut track below, almost a minute longer than on the album.
 
-[https://videopress.com/embed/YHwWy2gb](https://videopress.com/embed/YHwWy2gb)
+[Watch Video Highlight](https://videopress.com/embed/YHwWy2gb)
 
 **Bonus #2**: I love this intimate solo guitar performance from the documentary accompanying the anniversary box set for *The River*. It’s annotated with Bruce’s comments over the song in a few spots, but it’s lovely all the same.
 
-[https://www.youtube.com/watch?v=xouTzlWWpa4](https://www.youtube.com/watch?v=xouTzlWWpa4)
+[Watch on Youtube: Bruce Springsteen-Independence Day from "Ties" Documentary](https://www.youtube.com/watch?v=xouTzlWWpa4)
 
 **Independence Day  
 Recorded:** Autumn 1977 – April 1980  

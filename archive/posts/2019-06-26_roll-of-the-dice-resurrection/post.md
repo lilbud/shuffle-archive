@@ -1,6 +1,6 @@
 Even casual Springsteen listeners quickly realize that Bruce’s music is replete with religious themes and imagery.
 
-Sometimes Bruce addresses religion directly (for example, “[Jesus Was an Only Son](http://estreetshuffle.com/index.php/2018/04/25/roll-of-the-dice-jesus-was-an-only-son/)“), but more often than not he employs its vocabulary and mythology to comment on more earthly matters. Either way, though, when Bruce writes about religion, he tends to do so thoughtfully and respectfully.
+Sometimes Bruce addresses religion directly (for example, “[Jesus Was an Only Son](https://estreetshuffle.com/index.php/2018/04/25/roll-of-the-dice-jesus-was-an-only-son/)“), but more often than not he employs its vocabulary and mythology to comment on more earthly matters. Either way, though, when Bruce writes about religion, he tends to do so thoughtfully and respectfully.
 
 And then there’s “Resurrection.”
 
@@ -8,7 +8,7 @@ Raging with guitar-laden fire and brimstone, “Resurrection” is an early Stee
 
 Take a listen below and hear for yourself. (Note: Vini Lopez’s microphone was dialed up way too high in the mix; if you’d been at the show, his voice would almost certainly be much less prominent. But since this is the cleanest recording we have of Steel Mill performing “Resurrection,” I’ve used it here.)
 
-[https://www.youtube.com/watch?v=5rLBHrDI8PA](https://www.youtube.com/watch?v=5rLBHrDI8PA)
+[Watch on Youtube: Bruce Springsteen and Steel Mill: Resurrection 1970 04 24, Monmouth College](https://www.youtube.com/watch?v=5rLBHrDI8PA)
 
 Not very subtle is it?
 
@@ -63,4 +63,4 @@ The song opens up here, as Bruce leads us away from the church and toward more p
 **First performed:** September 20, 1969 (Richmond, VA)  
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

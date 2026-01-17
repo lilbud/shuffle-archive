@@ -16,7 +16,7 @@ Mildly surprised by the “Bruce and I,” I sought to clarify that Bruce was ov
 
 So there you go: after a quarter-century of hiding in plain sight, a secret Springsteen studio performance was revealed.
 
-[https://www.youtube.com/watch?v=WLshTQTt0Rg](https://www.youtube.com/watch?v=WLshTQTt0Rg)
+[Watch on Youtube: Comin' Down Maria](https://www.youtube.com/watch?v=WLshTQTt0Rg)
 
 It’s only a little bit surprising that Bruce’s participation could remain secret for so long. A gentle love song, “Comin’ Down Maria” lilts more than rocks, and whichever instrumental contributions are Bruce’s (my guess is the mandolin is among them) they betray no signature flourishes.
 

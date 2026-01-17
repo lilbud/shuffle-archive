@@ -1,10 +1,10 @@
 No one knows just when or by whom “On Top of Old Smoky” was written, but there are recordings of the famous folk-turned-novelty song as far back as the 1920s.
 
-[https://www.youtube.com/watch?v=P-H1THCp0Ws](https://www.youtube.com/watch?v=P-H1THCp0Ws)
+[Watch on Youtube: Bradley Kincaid - On Top Of Old Smoky (1929).](https://www.youtube.com/watch?v=P-H1THCp0Ws)
 
 However, the song didn’t become well known beyond the Appalachian region where it originated until Pete Seeger and The Weavers scored a hit with it in 1951.
 
-[https://www.youtube.com/watch?v=15Zcyjrj-p0](https://www.youtube.com/watch?v=15Zcyjrj-p0)
+[Watch on Youtube: On Top Of Old Smokey - The Weavers - (Lyrics needed)](https://www.youtube.com/watch?v=15Zcyjrj-p0)
 
 (Chances are that you’re more familiar with Tom Glazer’s 1963 adaptation, though. To this day, I have an easier time remembering the “spaghetti” lyrics than the original ones.)
 
@@ -16,12 +16,10 @@ On October 25, 1980, Bruce Springsteen and the E Street Band brought the River T
 
 Bruce’s arrangement of “On Top of Old Smoky” is classic E Street, but it sounds like I’m not the only one who can’t remember more than one verse. Take a listen:
 
-[https://videopress.com/embed/tfj2O84c](https://videopress.com/embed/tfj2O84c)
+[Watch Video Highlight](https://videopress.com/embed/tfj2O84c)
 
 And that was it for Old Smoky. Neither the mountain nor Bruce’s cover have been heard from ever since.
 
 **On Top of Old Smoky  
 First performed:** October 25, 1980 (Portland, OR)  
 **Last performed:** October 25, 1980 (Portland, OR)
-
- 

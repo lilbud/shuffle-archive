@@ -1,4 +1,4 @@
-Today, the dice land on another entry from 18-year-old Bruce’s handwritten notebook of mystery songs, never recorded and possibly never performed. (See “[Until the Rain Comes](http://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)” for the backstory.)
+Today, the dice land on another entry from 18-year-old Bruce’s handwritten notebook of mystery songs, never recorded and possibly never performed. (See “[Until the Rain Comes](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)” for the backstory.)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1968_lyricsnotebook-contentspage.jpg)
 
@@ -33,4 +33,4 @@ I would have liked to have seen what this would have developed into.
 **Never recorded**  
 **Performed:** Possibly May 1968 (Red Bank, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

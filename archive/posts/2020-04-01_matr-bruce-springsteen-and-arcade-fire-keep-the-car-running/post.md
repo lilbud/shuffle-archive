@@ -2,13 +2,13 @@
 
 Bruce lavished that praise on Arcade Fire in the presence of the band’s lead vocalists, Win Butler and Régine Chassagne, just hours before Bruce’s Magic show at the Meadowlands in early October 2007.
 
-Just days later, Win and Régine would join Bruce and the E Street Band on stage in Ottawa for two songs. First they played “[State Trooper](http://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/),” an obvious choice, given that Arcade Fire had covered it in concert several times by that point.
+Just days later, Win and Régine would join Bruce and the E Street Band on stage in Ottawa for two songs. First they played “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/),” an obvious choice, given that Arcade Fire had covered it in concert several times by that point.
 
 But as we can tell from the pull quote at the top of the article, Bruce is too much of an Arcade Fire fan not to play one of their songs, too–and that one turned to be an obvious choice also.
 
 “Keep the Car Running” (a Springsteenian title if ever there was one) was the second single off of the band’s second album, *Neon Bible*. It peaked at #32 on the Billboard Hot Modern Rock Tracks chart, and *Rolling Stone* ranked it as the 22nd best song of 2007.
 
-[https://www.youtube.com/watch?v=Jvrp2bM4FpE](https://www.youtube.com/watch?v=Jvrp2bM4FpE)
+[Watch on Youtube: Keep the Car Running](https://www.youtube.com/watch?v=Jvrp2bM4FpE)
 
 Featuring an automobile theme, a driving backing track, and *Nebraska-*esque lyrics, “Keep the Car Running” invited countless comparisons of the two bands, which didn’t seem to faze either of them. Bruce and Win both considered the other as an influence, and both were eager to gush about it when given the chance.
 
@@ -23,5 +23,3 @@ Bruce would perform with Win and Régine once more, five years down the road, bu
 **Keep the Car Running  
 First performed:** October 14, 2007 (Ottawa, ON)  
 **Last performed:** October 14, 2007 (Ottawa, ON)
-
- 

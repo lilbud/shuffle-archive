@@ -8,13 +8,13 @@ Because when you can’t stand the weekdays, you live for the weekends. And nowh
 
 Even if we only listened to the backing track, we’d feel the freedom of “Out in the Street,” because this is one of the tracks where the music came first. Bruce recorded his first take with the E Street Band in January 1980, and even with its almost entirely bluffed lyrics, we still can sense what he was trying to communicate.
 
-[https://videopress.com/embed/5bCr0NOz](https://videopress.com/embed/5bCr0NOz)
+[Watch Video Highlight](https://videopress.com/embed/5bCr0NOz)
 
 There are two interesting side notes regarding that instrumental work in progress: first, it goes by the name “I’m Gonna Be There Tonight,” although I’m pretty sure Bruce never actually utters those words. (I’ve listened pretty intently.)
 
 Second, Max is having some timing challenges. There was a period of time when Max was struggling to keep a steady, reliable pace, and it was most apparent on “Out in the Street,” which Weinberg called “one of the worst bits of drumming I’ve ever done” in a 1982 issue of *Modern Drummer.* If the finished track below doesn’t reveal that, it’s because we’re listening to a spliced composite to ensure a steady beat. (And we can still hear the tempo fluctuations if we listen to them.)
 
-[https://www.youtube.com/watch?v=abIbKWBwCkU](https://www.youtube.com/watch?v=abIbKWBwCkU)
+[Watch on Youtube: Out In the Street](https://www.youtube.com/watch?v=abIbKWBwCkU)
 
 But there’s something charming and maybe even fitting about the looseness of “Out in the Street.” This is a song about letting loose at the end of a working week, and one of the sweetest freedoms of the weekend is not having to do *anything* perfectly.
 
@@ -75,15 +75,15 @@ And that coda: Stevie Van Zandt gets a rare, momentary vocal spotlight as he and
 
 Community and connection are at the core of Bruce’s live performances of “Out in the Street,” and more often than not he deliberately sequences it to coalesce the audience’s energy at a key moment in the show. On the River Tour, it was often early in the set, with Bruce and Stevie’s interplay the clear highlight.
 
-[https://www.youtube.com/watch?v=NQSAr8Y9N3A](https://www.youtube.com/watch?v=NQSAr8Y9N3A)
+[Watch on Youtube: Bruce Springsteen - Out In the Street (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=NQSAr8Y9N3A)
 
 By the next tour, though, Steve had left the band, He was supplanted at the center mic by new member Patti Scialfa, better suiting the song’s guy-and-his-girl story. But watch what happens after their already powerful chemistry plays out: Bruce brings the rest of the band down to the front of the stage in synchronized unison, subtly but powerfully underscoring the song’s themes. *We are here, and you are here, and we are coming together.*
 
-[https://www.youtube.com/watch?v=3sl10b20SoA](https://www.youtube.com/watch?v=3sl10b20SoA)
+[Watch on Youtube: Out In The Street - Bruce Springsteen Paris 1985](https://www.youtube.com/watch?v=3sl10b20SoA)
 
 Bruce dialed up the community with each tour “Out in the Street” appeared on, arguably peaking on the Reunion Tour as the literal centerpiece of the set, with each band member (including the returning Little Steven) getting a spotlight moment at the mic.
 
-[https://www.youtube.com/watch?v=VYeWAcp037E](https://www.youtube.com/watch?v=VYeWAcp037E)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Out In the Street (Live in New York City)](https://www.youtube.com/watch?v=VYeWAcp037E)
 
 When Bruce recorded “Out in the Street,” it marked a departure: he was still writing about disaffected outsiders, but now he was bringing them together. In years to come, he’d lean into that theme of community and connection, but never with quite so much infectious and youthful brio.
 
@@ -91,7 +91,7 @@ To date, Bruce and the E Street Band have taken their audiences out in the stree
 
 We’ll be meeting out in the street for a long time to come.
 
-[https://www.youtube.com/watch?v=yTQY3K_o6Tc](https://www.youtube.com/watch?v=yTQY3K_o6Tc)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Out In the Street (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=yTQY3K_o6Tc)
 
 **Out in the Street  
 Recorded:** March 21, 1980  

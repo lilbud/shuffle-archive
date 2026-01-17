@@ -2,7 +2,7 @@ When Brian Wilson and Mike Love were just 18 and 19 respectively, they took a pe
 
 Released as a single in 1964, The Beach Boys scored a Top Ten hit with it across the Billboard Hot 100, Cash Box, and Variety charts.
 
-[https://www.youtube.com/watch?v=2RO9apxKPK8](https://www.youtube.com/watch?v=2RO9apxKPK8)
+[Watch on Youtube: When I Grow Up (To Be A Man) (Remastered)](https://www.youtube.com/watch?v=2RO9apxKPK8)
 
 More than two decades later, Bruce Springsteen found himself in a similarly introspective mood. He’d just married Julianne Phillips two weeks prior, and now he found himself at Slane Castle in Ireland, about to face an audience (his largest ever) for the first time as a married man.
 
@@ -12,7 +12,7 @@ If he felt any different, he certainly didn’t show it during the main set. But
 
 And then, accompanying himself only on guitar and harmonica, he launched into a tender reading (his only one ever) of “When I Grow Up (To Be a Man).”
 
-[https://www.youtube.com/watch?v=FXckY2qzdUU](https://www.youtube.com/watch?v=FXckY2qzdUU)
+[Watch on Youtube: Bruce Springsteen - WHEN I GROW UP TO BE A MAN 1985 (audio)](https://www.youtube.com/watch?v=FXckY2qzdUU)
 
 With the benefit of 34 years of hindsight, I can’t help but wonder–especially at the line “Will I love my wife for the rest of my life?”–whether Bruce’s subconscious was already hard at work. Bruce certainly chose an arrangement that draws attention to the lyrics and the song’s theme of uncertainty.
 

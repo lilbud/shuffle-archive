@@ -12,7 +12,7 @@ No matter how you classify it, “Hold On (To What You Got)” is a terrific pop
 
 “Hold On (To What You Got)” kicks off the album in fine power pop fashion, and it screams E Street from Max’s opening barrel roll through that glorious bridge to a coda we can imagine Bruce milking for minutes in concert.
 
-[https://www.youtube.com/watch?v=FVOKveLJJp0](https://www.youtube.com/watch?v=FVOKveLJJp0)
+[Watch on Youtube: Hold On (To What You Got)](https://www.youtube.com/watch?v=FVOKveLJJp0)
 
 It’s such a killer backing track, in fact, that it nearly overshadows Bruce’s lyrics. It’s tempting to dismiss Bruce’s pure pop songs as lesser compositions, but there’s some serious songwriting artistry on display here.
 

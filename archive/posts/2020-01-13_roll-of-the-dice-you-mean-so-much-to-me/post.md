@@ -8,7 +8,7 @@ What’s most fascinating about “You Mean So Much to Me,” however, isn’t j
 
 Take a listen to one of its earliest outings, from a Bruce Springsteen Band concert at Damrosch Park in New York City:
 
-[https://www.youtube.com/watch?v=cs135_WI1MA](https://www.youtube.com/watch?v=cs135_WI1MA)
+[Watch on Youtube: You Mean So Much to Me Bruce Springsteen Band 1971 07 23, New York, NY](https://www.youtube.com/watch?v=cs135_WI1MA)
 
 There’s a lot to take in here.
 
@@ -26,13 +26,13 @@ We do know that the song made several appearances throughout the summer and fall
 
 In any case, their acoustic arrangement is tender and warm and Bruce’s vocals are pure, allowing for the romance in Bruce’s lyrics to shine through more passionately than in the original Bruce Springsteen Band’s arrangement.
 
-[https://www.youtube.com/watch?v=0MJaE39m5ak](https://www.youtube.com/watch?v=0MJaE39m5ak)
+[Watch on Youtube: Bruce Springsteen You Mean So Much To Me 1973 05 31 Audio](https://www.youtube.com/watch?v=0MJaE39m5ak)
 
 By January 1974, “You Mean So Much to Me” had evolved into a showcase for Bruce’s unnamed band (They were still months away from E Street.) The clip below (which is mis-attributed in its captioning–it actually hails from Bruce’s January 29th show in Nashville) captures the band’s final known performance of the song (other than a few guest appearances at Southside Johnny shows), and it’s a marvel.
 
 It’s easy to forget how much the E Street Band’s sound has changed since their early days, but this track is a fantastic reminder: every band member gets a spotlight, but Danny Federici and David Sancious own most of the song–their loose, jazzy interplay anchors Bruce and the band throughout. And as for Bruce, seldom are we fortunate enough to have an arrangement sparse enough to let his guitar skills shine through as well as they do here. At the time, Bruce had a reputation as a smoking hot guitar player, and it’s easy to hear why.
 
-[https://videopress.com/embed/NSnllzdN](https://videopress.com/embed/NSnllzdN)
+[Watch Video Highlight](https://videopress.com/embed/NSnllzdN)
 
 By this point, you might have noticed that I’ve been focusing on the musicality of “You Mean So Much to Me,” rather than its poetry. That’s not an accident. Lyrically, there’s not a lot here to either admire or dismiss–only two verses and a chorus for a song that approached ten minutes when performed live.
 
@@ -63,4 +63,4 @@ Never recorded**
 **First performed:** July 10, 1971 (Lincroft, NJ)  
 **Last performed:** May 13, 1977 (Red Bank, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

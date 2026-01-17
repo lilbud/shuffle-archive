@@ -1,6 +1,6 @@
 **Updated 10/23/20:** If you’d told me when I first published this essay that we’d seen an officially released, brand new recording of “Janey Needs a Shooter” within ninety days, I’d have thought you were nuts. And yet, here we are: Bruce’s new album, [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/), is available and includes–at long, long last–a fully realized version of “Janey Needs a Shooter,” and it is glorious.
 
-[https://www.youtube.com/watch?v=A_BRCRkAkAE](https://www.youtube.com/watch?v=A_BRCRkAkAE)
+[Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter (Official Audio)](https://www.youtube.com/watch?v=A_BRCRkAkAE)
 
 My original essay follows. There’s no need to update the lyrical analysis (the differences are insignificant). and the recording speaks for itself. It’s every bit as wonderful as we could ever have hoped for.
 
@@ -15,13 +15,13 @@ In the autumn of 1971, The Bruce Springsteen Band performed a song called “[Ta
 
 “Talking About My Baby” is a beautiful song that we’ll delve into in greater detail someday, but for now just take a listen, enjoy, and note the melody for comparison purposes.
 
-[https://videopress.com/embed/Ce3a1tdd](https://videopress.com/embed/Ce3a1tdd)
+[Watch Video Highlight](https://videopress.com/embed/Ce3a1tdd)
 
 We have no records to indicate if Bruce ever played “Talking About My Baby” other than that one time, but at least we know he didn’t forget about the song entirely. Bruce wrote a new song called “Janey Needs a Shooter” the following year and recorded it at 914 Sound Studios just weeks after the release of *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*in January 1973.
 
 “Janey Needs a Shooter” lifts and adapts the melody from “Talking About My Baby”–we can hear the direct echoes in the opening couplet of each verse–but since “Janey” broods where “Talking” soars, Bruce tethered the melody to keep the mood serious.
 
-[https://www.youtube.com/watch?v=AuoD-d0jblk](https://www.youtube.com/watch?v=AuoD-d0jblk)
+[Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter](https://www.youtube.com/watch?v=AuoD-d0jblk)
 
 As for the lyrics, “Janey Needs a Shooter” is one of the most graphically sexual songs in Bruce’s catalog. Bruce certainly hasn’t shied away from sexual metaphor in his career, but rarely has he been this overt. (Let’s keep in mind that Bruce was only 22-23 at the time he wrote “Janey.”)
 
@@ -103,7 +103,7 @@ While I certainly wouldn’t have swapped it with any of the songs that did make
 
 Bruce seemed to think so as well–at least for a while, because “Janey Needs a Shooter” was included in early track listings not just for his second album but for his third as well. (Session logs indicate that the E Street Band recorded a full-band arrangement in 1974.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/brttracks-300x247.png)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/brttracks.png)
 
 “Janey Needs a Shooter” did not make *Born to Run,* of course, and after missing two consecutive albums, that might have been the end of the story.
 
@@ -131,7 +131,7 @@ Knowing that he had Bruce on the hook, Zevon reeled in his fish and the two of t
 
 The result was “[Jeannie Needs a Shooter](https://estreetshuffle.com/index.php/2020/10/23/spare-parts-warren-zevon-jeannie-needs-a-shooter/),” which leads off Side Two of Zevon’s 1980 album, *Bad Luck Streak in Dancing School*.
 
-[https://www.youtube.com/watch?v=53WwqdrUtvQ](https://www.youtube.com/watch?v=53WwqdrUtvQ)
+[Watch on Youtube: Jeannie Needs a Shooter](https://www.youtube.com/watch?v=53WwqdrUtvQ)
 
 Only after Bruce and Warren had finished writing the song did Bruce actually play his original outtake for Warren, who sheepishly realized he’d inferred an entirely different storyline for the titular character.
 
@@ -141,7 +141,7 @@ Apparently, Zevon’s persistent pestering to hear Bruce’s original version pu
 
 Still–that rehearsal take is incredible. Take a listen:
 
-[https://www.youtube.com/watch?v=wRsxbZKQP8I](https://www.youtube.com/watch?v=wRsxbZKQP8I)
+[Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter (1978)](https://www.youtube.com/watch?v=wRsxbZKQP8I)
 
 And now, finally, we’ve reached the end of the story–for now at least. Because if a full studio outtake from those ’79 sessions does exist, we can only hope for its inclusion on that long-rumored *Tracks 2* box set.
 
@@ -149,13 +149,13 @@ Janey has waited in the wings for far too long to be denied some time in the sun
 
 **Bonus:** During his home demo recording sessions for *The River* (probably not long before the band rehearsal above), Bruce worked for a bit on “Janey Needs a Shooter.” Here are those outtakes below.
 
-[https://www.youtube.com/watch?v=7-g11Lv3hno](https://www.youtube.com/watch?v=7-g11Lv3hno)
+[Watch on Youtube: Bruce Springsteen Jeannie Needs A Shooter #1 harmonies](https://www.youtube.com/watch?v=7-g11Lv3hno)
 
-[https://www.youtube.com/watch?v=eWb7tjESLzY](https://www.youtube.com/watch?v=eWb7tjESLzY)
+[Watch on Youtube: Bruce Springsteen Jeannie Needs A Shooter #2](https://www.youtube.com/watch?v=eWb7tjESLzY)
 
 **Janey Needs a Shooter  
 Recorded:** January 29, 1973 (solo), November 2019 (band)  
 **Released:** *Letter to You* (2020)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -6,7 +6,7 @@ Both albums spawned Springsteen-penned hit singles (“[This Little Girl](https:
 
 In fact, *On the Line* contains a whopping *seven* original Springsteen songs, many of which feature Bruce and the E Street Band performing on the studio tracks. Six of the seven are hand-clappingly poppy, infectiously danceable party songs, but one of them stops listeners dead in their tracks: the devastating, heart-breaking “Love’s on the Line.”
 
-[https://www.youtube.com/watch?v=q1_fawbvhmI](https://www.youtube.com/watch?v=q1_fawbvhmI)
+[Watch on Youtube: Love's On The Line](https://www.youtube.com/watch?v=q1_fawbvhmI)
 
 “Love’s on the Line” is the album’s centerpiece, and its emotional rawness comes out of nowhere. It’s a song that resonates with any couple that can see the light at the end of the child-raising tunnel but isn’t sure anymore who their partner will be come daylight.
 
@@ -60,5 +60,3 @@ Bruce’s last verse shreds on its own power, but Gary absolutely nails his voca
 Recorded:** January – February 1982  
 **Released:** *On the Line* (1982)  
 **Never performed**
-
- 

@@ -2,17 +2,17 @@ Of the many mysteries surrounding Bruce Springsteen’s early work, few are as t
 
 Bruce included it on an early 1974 track list for his upcoming third album (which proved to be further out than he might have wished for at the time)…
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/02/proposedtracklist_1-300x185.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/02/proposedtracklist_1.jpg)
 
 At least for a time, it appeared that “Glory Road” was a candidate for anchoring the closing end of Side One (along with its alternate, “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)“), but the lack of a runtime after its entry suggests that Bruce had yet to take it into the studio.
 
 If you can’t help but wonder what “Glory Road” must have sounded like if it even had a shred of a chance of knocking “She’s the One” off of the record–consider that in another early album sequence Bruce had “Glory Road” listed *as an alternate for “Born to Run.”* 
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/02/proposedtracklist_2-242x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/02/proposedtracklist_2.jpg)
 
 Time and again during the recording of *Born to Run*, “Glory Road” shows up on potential album sequences–sometimes as an alternate for now iconic songs, sometimes on its own.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/02/proposedtracklist_5-244x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/02/proposedtracklist_5.jpg)
 
 And yet maddeningly, we’ve never heard the song.
 
@@ -24,7 +24,7 @@ But almost twenty years later, in May 2014 (a full four decades after Bruce firs
 
 But we realized with a jolt that “Glory Road” does share DNA with another signature Springsteen song:
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/02/gloryroad_lyrics-240x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/02/gloryroad_lyrics.jpg)
 
 Today, that last line is iconic: “Tramps like us, baby we were born to run.”
 
@@ -53,4 +53,4 @@ It’s a fan’s frustration to have so many artifacts of this key progenitor of
 Never recorded**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

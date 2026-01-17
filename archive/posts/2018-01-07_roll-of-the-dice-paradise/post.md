@@ -1,8 +1,8 @@
-Well. “Paradise” is quite the contrast to last week’s “[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” installment: where LOHAD is jubilant and optimistic, “Paradise” is quiet and fatalistic. LOHAD features more musicians than I can easily count or discern; “Paradise” features Bruce, and only Bruce. (He plays guitar, keyboard and percussion on this track, although Patti Scialfa’s backing vocals can be heard for a few brief monents.) Left to my own devices, I’d have saved “Paradise” for a later installment at a more somber time, but the dice have spoken, so into the breach we go.
+Well. “Paradise” is quite the contrast to last week’s “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” installment: where LOHAD is jubilant and optimistic, “Paradise” is quiet and fatalistic. LOHAD features more musicians than I can easily count or discern; “Paradise” features Bruce, and only Bruce. (He plays guitar, keyboard and percussion on this track, although Patti Scialfa’s backing vocals can be heard for a few brief monents.) Left to my own devices, I’d have saved “Paradise” for a later installment at a more somber time, but the dice have spoken, so into the breach we go.
 
 “Paradise” requires active listening, so don your headphones or close the door, and soak it in:
 
-[https://www.youtube.com/watch?v=rcWF7se6EfA](https://www.youtube.com/watch?v=rcWF7se6EfA)
+[Watch on Youtube: Bruce Springsteen - Paradise](https://www.youtube.com/watch?v=rcWF7se6EfA)
 
 Paradise is one of Bruce’s loveliest and most nuanced compositions. It stays with you long after you hear it.
 
@@ -71,17 +71,17 @@ And when things are about as dark as they can get, Bruce tacks on two final, orp
 
 In the same promotional interview, Bruce says that was trying to say that “hey, all we have is this life, and we have this world, and it’s all we can count on.”
 
-“Paradise” generated some controversy upon its release. Bruce was accused by some of humanizing terrorists during the peak of the nation’s post-9/11 paranoia. And of course, that’s *exactly* what he was doing. There are many themes that run through Bruce’s work, and one of them is the attempt to understand that which defies comprehension. The suicide bomber in the first verse is hardly the first seemingly unsympathetic narrator Bruce has embraced (one could argue that the protagonist of “[Nebraska](http://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)” is far more difficult to empathize with). What makes this song so poignant, and lovely is the careful empathy and delicate detail that defines and links the characters in their expectations and understanding of paradise.
+“Paradise” generated some controversy upon its release. Bruce was accused by some of humanizing terrorists during the peak of the nation’s post-9/11 paranoia. And of course, that’s *exactly* what he was doing. There are many themes that run through Bruce’s work, and one of them is the attempt to understand that which defies comprehension. The suicide bomber in the first verse is hardly the first seemingly unsympathetic narrator Bruce has embraced (one could argue that the protagonist of “[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)” is far more difficult to empathize with). What makes this song so poignant, and lovely is the careful empathy and delicate detail that defines and links the characters in their expectations and understanding of paradise.
 
 “Paradise” is rarely performed–Bruce has played it only 15 times ever. It made its live debut on July 30, 2002, at the first rehearsal show for the Rising Tour. Unsurprisingly, it was almost immediately dropped from the set, surfacing only once during the entire tour. The song is too quiet and demands too much focused attention for it to be well served by an arena and stadium tour. However, you can hear that first performance here, notable for Soozie Tyrell’s gorgeous viola accompaniment.
 
-[http://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3?_=5](http://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3?_=5)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3?_=5)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/01/202-bruce_springsteen-paradise-aaf.mp3>
 
 “Paradise” found an on-stage home in 2005, however. Far more suited to the stripped-down, intimate setting of an acoustic theater tour, Bruce performed the song a dozen times, seamlessly switching from an electric keyboard to an acoustic piano between the second and third verses to great effect, telegraphing the determination of the final point-of-view character to find his paradise in the here and now. Watch a gorgeous performance of this arrangement, performed in East Rutherford on May 19, 2005.
 
-[https://www.youtube.com/watch?v=EmZLYGjDiQc](https://www.youtube.com/watch?v=EmZLYGjDiQc)
+[Watch on Youtube: Bruce Springsteen - PARADISE 2005](https://www.youtube.com/watch?v=EmZLYGjDiQc)
 
 Have a different or personal take on “Paradise?” Share your thoughts below!
 
@@ -91,4 +91,4 @@ Recorded:** February-March, 2002
 **First performed:** July 30, 2002 (Asbury Park, NJ)  
 **Last performed:** August 13, 2005 (Vancouver, BC)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

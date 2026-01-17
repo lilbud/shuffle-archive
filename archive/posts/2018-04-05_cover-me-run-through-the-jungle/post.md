@@ -4,11 +4,11 @@ Bruce’s take on the song is quieter, slower and more taut than the original, w
 
 Here’s Bruce’s first of only three performances ever of “Run Through the Jungle.”
 
-[https://www.youtube.com/watch?v=3XZjhZWbB34](https://www.youtube.com/watch?v=3XZjhZWbB34)
+[Watch on Youtube: Bruce Springsteen - RUN THROUGH THE JUNGLE 1981 (audio)](https://www.youtube.com/watch?v=3XZjhZWbB34)
 
 Interestingly, Bruce’s version has extra verses, presumably written by him. Compare with the original Creedence Clearwater Revival version:
 
-[https://www.youtube.com/watch?v=_7PUPNxsRQ0](https://www.youtube.com/watch?v=_7PUPNxsRQ0)
+[Watch on Youtube: Creedence Clearwater Revival - Run Through The Jungle](https://www.youtube.com/watch?v=_7PUPNxsRQ0)
 
 A couple of those new lyrics would turn up later in the year in a new song Bruce was working on but was never released: “[Bells of San Salvador.](https://estreetshuffle.com/index.php/2021/02/02/roll-of-the-dice-bells-of-san-salvador/)”
 

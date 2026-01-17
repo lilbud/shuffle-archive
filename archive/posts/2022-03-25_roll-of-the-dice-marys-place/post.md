@@ -2,7 +2,7 @@ There’s a party in the middle of *The Rising*.
 
 A house party, in fact. And if that seems out of place in one of Bruce Springsteen’s darkest albums, it’s only because we haven’t looked at the address on the invitation.
 
-[https://www.youtube.com/watch?v=Q4wTGe6gtEc](https://www.youtube.com/watch?v=Q4wTGe6gtEc)
+[Watch on Youtube: Mary's Place](https://www.youtube.com/watch?v=Q4wTGe6gtEc)
 
 “Mary’s Place” is about how we move forward in the face of loss. Our friends, family and community give us the strength to carry on, along with our faith that we’ll meet our ghosts again someday in the afterlife.
 
@@ -42,7 +42,7 @@ It’s in the chorus, too, where Bruce overtly tips his hat to his inspirations.
 *We’re gonna have us a ball today*  
 *Why don’t you meet me at Mary’s place*
 
-[https://www.youtube.com/watch?v=415jQbRu_DE](https://www.youtube.com/watch?v=415jQbRu_DE)
+[Watch on Youtube: Sam Cooke - Meet Me At Mary’s Place (Official Lyric Video)](https://www.youtube.com/watch?v=415jQbRu_DE)
 
 Cooke’s song isn’t the only influence at work in “Mary’s Place.” Bruce transitions from verse to chorus with a little help from Eric Clapton and his 1972 single “Let It Rain” which has something of its own to say about the power of love to cut through grief.
 
@@ -52,7 +52,7 @@ Cooke’s song isn’t the only influence at work in “Mary’s Place.” Bruce
 *Let it rain, let it rain*  
 *Let your love rain down on me*
 
-[https://www.youtube.com/watch?v=1VKpMI5Msa4](https://www.youtube.com/watch?v=1VKpMI5Msa4)
+[Watch on Youtube: Let It Rain](https://www.youtube.com/watch?v=1VKpMI5Msa4)
 
 All the while, the mighty E Streeters serve as our house party band, playing in traditional fashion and classic sound–the only track on *The Rising* that sounds (intentionally) like 1970s E Street. The songs builds toward its climax, where earthly and ethereal realms merge and it’s no longer clear whether today is the day after our loved one’s passing or the day after our own.
 
@@ -71,23 +71,23 @@ Either way, we’re at Mary’s place, and when we’re at Mary’s place we’r
 
 “Mary’s Place” is a fine track in its studio form, but it’s on the concert stage–*of course–*where it truly comes alive. How could it be otherwise? This is a song about the power of community to carry us through our grief; it’s only fitting that it requires an audience to breathe life into it and lift it to the heavens with cries of “Turn it up!”
 
-[https://www.youtube.com/watch?v=z8PwFyouBDc](https://www.youtube.com/watch?v=z8PwFyouBDc)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Mary's Place (Live In Barcelona)](https://www.youtube.com/watch?v=z8PwFyouBDc)
 
 In concert, Bruce often introduces “Mary’s Place” by quoting Major Lance’s 1963 hit single, “The Monkey Time.” It’s a brilliant mash-up, because both songs operate simultaneously on the corporeal and spiritual planes.
 
-[https://www.youtube.com/watch?v=V9jdPrME7Mw](https://www.youtube.com/watch?v=V9jdPrME7Mw)
+[Watch on Youtube: Major Lance The Monkey Time](https://www.youtube.com/watch?v=V9jdPrME7Mw)
 
 Over the course of the Rising Tour (which featured “Mary’s Place” as its nightly centerpiece), the song grew in scope, power, and duration. By the end of the tour, it stretched to almost three times the length of the already six-minute album track.
 
-[https://www.youtube.com/watch?v=CTVBwxa3Z-Y?start=590](https://www.youtube.com/watch?v=CTVBwxa3Z-Y?start=590)
+[Watch on Youtube: 16 Mary's Place Bruce Springsteen Shea Stadium 4th October 2003](https://www.youtube.com/watch?v=CTVBwxa3Z-Y?start=590)
 
 “Mary’s Place” made return engagements on later tours, but removed from its album set context, it lost much of its emotional power, becoming a showcase for political schtick, or a reliable crowd-pleaser when the heavens actually did let it rain.
 
-[https://www.youtube.com/watch?v=WD8hha4H-lY](https://www.youtube.com/watch?v=WD8hha4H-lY)
+[Watch on Youtube: Mary’s Place - Bruce Springsteen (live at Capital One Arena, Washington, D.C. 2004)](https://www.youtube.com/watch?v=WD8hha4H-lY)
 
 On one occasion, Bruce even attempted it acoustically on the piano, with uneven results.
 
-[https://www.youtube.com/watch?v=21fRod4H30w](https://www.youtube.com/watch?v=21fRod4H30w)
+[Watch on Youtube: Mary's Place - Bruce Springsteen - Dussledorf 05](https://www.youtube.com/watch?v=21fRod4H30w)
 
 Still, in the right setting, at the right moment, and with the right feeling, “Mary’s Place” can be the adrenaline shot that lifts an already stellar show into the stratosphere. While never commonplace in the years since 2004, “Mary’s Place” makes return appearances from time to time and will likely continue to do so for as long as fans continue to meet there… and turn it up.
 

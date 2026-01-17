@@ -11,7 +11,7 @@ Despite its third-person narration, “Shut Out the Light” takes us deep into 
 
 Let’s take a listen to the under-recognized and under-appreciated “Shut Out the Light,” one of Bruce Springsteen’s most sensitive songs.
 
-[https://www.youtube.com/watch?v=1w_S4JhQ2lE](https://www.youtube.com/watch?v=1w_S4JhQ2lE)
+[Watch on Youtube: Shut Out The Light](https://www.youtube.com/watch?v=1w_S4JhQ2lE)
 
 “Shut Out the Light” is *very* close to a solo Springsteen recording. Recorded at home shortly after the release of *Nebraska* (Bruce was briefly considering a follow-up solo album before his muse led him elsewhere), Bruce plays all the instruments with the exception of the track’s gorgeous violin overdub, provided by Soozie Tyrell as her debut contribution to Bruce’s catalog.
 
@@ -76,7 +76,7 @@ If you noticed at this point that Bruce breaks the verse-verse-chorus pattern th
 
 This earlier version was eventually released decades later on *L.A. Garage Sessions ’83.* It includes the extra verses but omits Soozie Tyrell’s contribution.
 
-[https://www.youtube.com/watch?v=PJEKYaLO3RU](https://www.youtube.com/watch?v=PJEKYaLO3RU)
+[Watch on Youtube: Bruce Springsteen - Shut Out the Light (Official Audio)](https://www.youtube.com/watch?v=PJEKYaLO3RU)
 
 We’re not certain whether the final verse is dream or reality…
 
@@ -105,7 +105,7 @@ Bruce debuted “Shut Out the Light” relatively early on the Born in the U.S.A
 
 The clip below is the last of these performances, from Paris on June 29, 1985.
 
-[https://www.youtube.com/watch?v=uAqbN9HO68A](https://www.youtube.com/watch?v=uAqbN9HO68A)
+[Watch on Youtube: Springsteen - Shut Out The Light](https://www.youtube.com/watch?v=uAqbN9HO68A)
 
 It would be more than a decade before anyone would hear Bruce play “Shut Out the Light” again, but on Bruce’s Ghost of Tom Joad Tour, he brought it back for eleven performances.
 
@@ -113,13 +113,13 @@ Here’s one of my favorites, from Bruce’s three-night stand at the Paramount 
 
 But if you listen carefully to the last verse, you’ll hear something else that’s significant: for the first time, Bruce explicitly acknowledges the source of Johnny’s trauma, changing the last line from “dreams of where he’s been” to “dreams of Vietnam.”
 
-[https://www.youtube.com/watch?v=v87kjkzztEA](https://www.youtube.com/watch?v=v87kjkzztEA)
+[Watch on Youtube: Bruce Springsteen "Shut Out The Light" Asbury Park, NJ Nov. 24, 1996](https://www.youtube.com/watch?v=v87kjkzztEA)
 
 There’s only been one live performance of “Shut Out the Light” since 1996, and it’s from Bruce’s other solo acoustic tour.
 
 Here’s Bruce’s last performance of “Shut Out the Light” to date, a somber pump organ arrangement that opened his show in Milwaukee on August 7, 2005.
 
-[https://www.youtube.com/watch?v=jq-DS8-CUiI](https://www.youtube.com/watch?v=jq-DS8-CUiI)
+[Watch on Youtube: Bruce Springsteen - SHUT OUT THE LIGHT 2005 (audio)](https://www.youtube.com/watch?v=jq-DS8-CUiI)
 
 **Shut Out the Light  
 Recorded:** January 19, 1983  

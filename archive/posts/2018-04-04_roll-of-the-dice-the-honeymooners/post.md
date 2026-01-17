@@ -1,10 +1,10 @@
-A month or so ago, I wrote about “[County Fair](http://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/),” and called it a perfect song about a perfect day.
+A month or so ago, I wrote about “[County Fair](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/),” and called it a perfect song about a perfect day.
 
 *“There’s no plot to “County Fair,” no character development, transformation, or revelation. It’s just a song about being young and in love, in a small town on a perfect day.”*
 
 That description applies just as well to “The Honeymooners,” a [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)outtake released more than a decade after it was recorded, as part of the *Tracks* collection.
 
-[https://www.youtube.com/watch?v=6WRbJD_Nsb8](https://www.youtube.com/watch?v=6WRbJD_Nsb8)
+[Watch on Youtube: The Honeymooners (Studio Outtake - 1987)](https://www.youtube.com/watch?v=6WRbJD_Nsb8)
 
 “The Honeymooners” vividly captures a wedding day in a way that only someone who had recently had one could.
 
@@ -48,4 +48,4 @@ The Honeymooners shares one other trait with “County Fair:” the crickets in 
 Recorded:** February 22, 1987**Released:** *Tracks* (1998)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

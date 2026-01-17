@@ -4,7 +4,9 @@ The *New York Times* took that dare, and they weren’t the only ones.
 
 At the 54th Annual Grammy Awards, Bruce Springsteen opened the show with the live debut of his new single.
 
-[https://videopress.com/embed/ud31M5qB](https://videopress.com/embed/ud31M5qB)
+[Watch Video Highlight](https://videopress.com/embed/ud31M5qB)
+
+
 
 In his review of the event, the *New York Times* music critic wrote, “The show opened with Mr. Springsteen humorlessly churning through a new song, ‘We Take Care of Our Own,’ which mistakes jingoism for empathy, ”
 
@@ -16,7 +18,7 @@ Casual listeners might misinterpret “We Take Care of Our Own” as boastful ra
 
 That’s why this particular moment from November 7, 2020 worked instead of baffled:
 
-[https://videopress.com/embed/uNdft2RJ](https://videopress.com/embed/uNdft2RJ)
+[Watch Video Highlight](https://videopress.com/embed/uNdft2RJ)
 
 It worked because “We Take Care of Our Own” is more than just scolding disillusionment. It’s also a reminder: *We are better than this*.
 
@@ -32,7 +34,7 @@ The members of the fourteen-piece(!) string section are the only instrumental mu
 
 The official video, however, is just Bruce, and it holds the distinction of being his first-ever lyric video.
 
-[https://www.youtube.com/watch?v=-x8zBzxCwsM](https://www.youtube.com/watch?v=-x8zBzxCwsM)
+[Watch on Youtube: Bruce Springsteen - We Take Care of Our Own (Official Video)](https://www.youtube.com/watch?v=-x8zBzxCwsM)
 
 Lyric videos had come into fashion in the years between *Working on a Dream* and *Wrecking Ball*, and Bruce couldn’t have selected a better track to try out the new format.
 
@@ -92,7 +94,7 @@ America may have a long walk home, but it only starts when we admit we’re lost
 
 We’ve taken that first step, and although its songwriter couldn’t have foreseen this particular future in 2009, “We Take Care of our Own” serves as a pretty good beacon to light our way.
 
-[https://www.youtube.com/watch?v=zAKxhmdtQow](https://www.youtube.com/watch?v=zAKxhmdtQow)
+[Watch on Youtube: Bruce Springsteen MULTICAM PROMO MILANO We take care of our own San Siro 07/06/2012](https://www.youtube.com/watch?v=zAKxhmdtQow)
 
 ---
 
@@ -103,7 +105,7 @@ At Bruce’s sixth annual appearance at the *Stand Up For Heroes* benefit, Bruce
 
 In a stripped-down arrangement with warm vocals, the full plaintive power of the song’s plea was revealed for the first time. It remains my all-time favorite performance of this song.
 
-[https://www.youtube.com/watch?v=NDNZ2Unv4Mg](https://www.youtube.com/watch?v=NDNZ2Unv4Mg)
+[Watch on Youtube: We Take Care of Our Own - Bruce Springsteen (live at Beacon Theatre, New York City 2012)](https://www.youtube.com/watch?v=NDNZ2Unv4Mg)
 
 **We Take Care of Our Own  
 Recorded:** 2011  

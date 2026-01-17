@@ -6,19 +6,19 @@ And yet, it’s paired with such a gorgeous backing track that unless we fight t
 
 That’s quite the feat. Let’s take a listen and see how Bruce pulls it off.
 
-[https://www.youtube.com/watch?v=WxBEm7D05yM](https://www.youtube.com/watch?v=WxBEm7D05yM)
+[Watch on Youtube: Breakaway](https://www.youtube.com/watch?v=WxBEm7D05yM)
 
 There’s a lot going on here. We’ll get to the lyrics in a moment, but let’s start with the homages. The most obvious one is Bruce’s wink at Roy Orbison’s “It’s Over.” Not only does Bruce lift the persistent drum riff wholesale, he also borrows Roy’s melodic phrasing at times.
 
 Listen to Roy’s delivery of “Your baby won’t be near you any more” in the audio below, and compare it with Bruce’s “now the promises and the lies, they demand it” in “Breakaway.”
 
-[https://www.youtube.com/watch?v=HFVoWJhXHSA](https://www.youtube.com/watch?v=HFVoWJhXHSA)
+[Watch on Youtube: It's Over](https://www.youtube.com/watch?v=HFVoWJhXHSA)
 
 And then of course, there’s the thematic similarity between the two songs–they’re both completely bereft of any hope or light.
 
 There’s another “Breakaway” callback that goes back even further than Orbison’s classic breakup song: that “Ronde-Ronde” chorus, lifted from The Shirelles’ first single, “I Met Him on a Sunday (Ronde-Ronde).”
 
-[https://www.youtube.com/watch?v=EXB_muHAhx0](https://www.youtube.com/watch?v=EXB_muHAhx0)
+[Watch on Youtube: The Shirelles - I Met Him On A Sunday](https://www.youtube.com/watch?v=EXB_muHAhx0)
 
 What made Bruce choose that curious chorus tribute? I honestly don’t know. Unlike “It’s Over,” there’s no thematic or subject matter similarity between “I Met Him on a Sunday (Ronde-Ronde)” and “Breakaway.”
 
@@ -51,7 +51,7 @@ Hoping to break away from whatever metaphorical chains bound him, he ended up br
 *To breakaway, oh, breakaway, oh Ronde, Ronde, Ronde, Ronde Ray*  
 *To breakaway*
 
-Yes, that’s the chorus for “[Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” you spotted there. Although Bruce was working on “Badlands” at the same time he recorded “Breakaway,” that iconic line (“let the broken hearts stand as the price you’ve gotta pay”) wouldn’t migrate to “Badlands” until several months later. Bruce isn’t one to let a great line go to waste.
+Yes, that’s the chorus for “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” you spotted there. Although Bruce was working on “Badlands” at the same time he recorded “Breakaway,” that iconic line (“let the broken hearts stand as the price you’ve gotta pay”) wouldn’t migrate to “Badlands” until several months later. Bruce isn’t one to let a great line go to waste.
 
 *Janie slipped from behind the bar last night*  
 *Cashed out and walked onto streets rainy and grey*  
@@ -90,4 +90,4 @@ Recorded:** June 1, 1977 (core track)
 **Released:** *The Promise* (2010)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

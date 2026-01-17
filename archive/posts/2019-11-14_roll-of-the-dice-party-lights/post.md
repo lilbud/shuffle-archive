@@ -2,15 +2,15 @@ A great chef can take a few ingredients and use them to create any number of won
 
 Hardcore Springsteen fans are well aware of Bruce’s penchant for recycling lyrics and music; it stems from his practice of writing lyrics and music independently of each other.
 
-Verses and sometimes just fragments or phrases will loiter in his notebook for years. Some will eventually make it to one or more demos and studio recordings, most of which will end up in the vault, maybe to be released one day on an outtake collection. Occasionally, we even see snippets of shared DNA between multiple officially released songs (“[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)” and “[Maria’s Bed](http://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/),” for example).
+Verses and sometimes just fragments or phrases will loiter in his notebook for years. Some will eventually make it to one or more demos and studio recordings, most of which will end up in the vault, maybe to be released one day on an outtake collection. Occasionally, we even see snippets of shared DNA between multiple officially released songs (“[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)” and “[Maria’s Bed](https://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/),” for example).
 
 And then there’s “Party Lights,” the product of so much Springsteenian in-breeding that it would be a joke–if it wasn’t so darn catchy.
 
-Buried deep on the outtake disc that accompanies *The Ties That Bind: The River Collection,* “Party Lights” is two parts “[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/),” one-and-a-half parts “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/),” and *almost* a heaping dollop of “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” before Bruce thought better of it and swapped it for a riff almost certainly influenced by Tom Petty’s “Listen to Her Heart” (released just a year prior).
+Buried deep on the outtake disc that accompanies *The Ties That Bind: The River Collection,* “Party Lights” is two parts “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/),” one-and-a-half parts “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/),” and *almost* a heaping dollop of “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” before Bruce thought better of it and swapped it for a riff almost certainly influenced by Tom Petty’s “Listen to Her Heart” (released just a year prior).
 
 Check out the official video(!) below:
 
-[https://www.youtube.com/watch?v=S2WWQAvS_6I](https://www.youtube.com/watch?v=S2WWQAvS_6I)
+[Watch on Youtube: Bruce Springsteen - Party Lights (The River: Outtakes) [Lyric]](https://www.youtube.com/watch?v=S2WWQAvS_6I)
 
 Yes, there’s a whole lot of shared DNA here, but what’s amazing is that Bruce uses these spare parts to piece together a song that not only sounds coherent but is also a substantively different song than its kissing cousins.
 
@@ -25,7 +25,7 @@ Yes, there’s a whole lot of shared DNA here, but what’s amazing is that Bruc
 
 This is probably as good a place as any to detour to an early work-in-progress version, if only to shed more light on the actual “oh so young” age of the girl Bruce sings to. Although he (wisely) dropped the lyric for the final version, in this early version, Bruce makes it clear that the girl married at the age of fifteen.
 
-[https://www.youtube.com/watch?v=orbLfSO0Nnw](https://www.youtube.com/watch?v=orbLfSO0Nnw)
+[Watch on Youtube: Bruce Springsteen Party Lights](https://www.youtube.com/watch?v=orbLfSO0Nnw)
 
 (Oh, and see what I mean about the melody from “I Wanna Marry You?”)
 
@@ -63,7 +63,7 @@ Again, I feel compelled to point out how the same lyrics can carry different mea
 
 Certainly the guy and the girl don’t live together–he refers to “stopping by” and seeing her “sometimes” on the street. But they are on familiar enough terms for him to enter her house while she sleeps, and he’s gallant enough to switch out the lights rather than rouse her.
 
-Even the final verse makes it seem as if the two characters share a deep but platonic bond. It may not be a coincidence that Bruce recorded “[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” just four months later–in theme, “Party Lights” may have more in common with that song than with either of the songs with which it shares lyrics.
+Even the final verse makes it seem as if the two characters share a deep but platonic bond. It may not be a coincidence that Bruce recorded “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” just four months later–in theme, “Party Lights” may have more in common with that song than with either of the songs with which it shares lyrics.
 
 Before we leave, there’s something else worth pointing out about “Party Lights.” It’s a rare instance of a recently released outtake that bears no signs of modern-day grafting or splicing, a truly vintage recording of Bruce Springsteen and the E Street Band at the height of their powers.
 
@@ -71,11 +71,11 @@ Before we leave, there’s something else worth pointing out about “Party Ligh
 
 **Bonus:** Here’s yet another work-in-progress arrangement (this time a rockabilly one) of “Party Lights,” from the spring of 1981, well after the release of *The River.* It seems Bruce didn’t give up on this one so easily.
 
-[https://videopress.com/embed/C66uAIaH](https://videopress.com/embed/C66uAIaH)
+[Watch Video Highlight](https://videopress.com/embed/C66uAIaH)
 
 **Party Lights  
 Recorded:** October 8, 1979  
 **Released:** *The Ties That Bind: The River Collection* (2015)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

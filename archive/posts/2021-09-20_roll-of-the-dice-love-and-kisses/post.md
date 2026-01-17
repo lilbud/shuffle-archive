@@ -4,7 +4,7 @@ Over the past few years, we’ve listened to many of the acoustic, work-in-progr
 
 Today’s entry definitely falls into the “mostly bluffed” category, but it definitely led somewhere. It goes by the name “Love and Kisses,” one of the few repeated lyrics that can be clearly understood.
 
-[https://www.youtube.com/watch?v=D7ipTwv9qUE](https://www.youtube.com/watch?v=D7ipTwv9qUE)
+[Watch on Youtube: Bruce Springsteen Love And Kisses #1](https://www.youtube.com/watch?v=D7ipTwv9qUE)
 
 Bruce’s vocals are so heavily bluffed that it’s not worth trying to transcribe the lyrics, but we can hear just enough to discern a romantic song in the making.
 
@@ -12,7 +12,7 @@ But it’s the melody that’s revealing here: if it sounds familiar, that’s b
 
 Bruce continued working on “Love and Kisses,” evolving the melody into something a bit more distinctive (take a listen below). As far as we know, though, the lyrics were a dead end, rendering the song of note solely for its contribution to “Wages of Sin.”
 
-[https://www.youtube.com/watch?v=8NODac18pmU](https://www.youtube.com/watch?v=8NODac18pmU)
+[Watch on Youtube: Bruce Springsteen Love & Kisses](https://www.youtube.com/watch?v=8NODac18pmU)
 
 **Love and Kisses  
 Recorded:** Early 1979 (acoustic demos only)  

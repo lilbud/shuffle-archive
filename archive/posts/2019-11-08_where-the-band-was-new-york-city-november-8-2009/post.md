@@ -12,13 +12,13 @@ And then there was that night back in 2009 at Madison Square Garden when the rec
 
 Between coming down after the phenomenal show the night before when he performed *The Wild, The Innocent, and The E Street Shuffle* and the anticipation of what we were about to experience, walking into the Garden on that Sunday night was like marching in an electric parade.
 
-[https://www.youtube.com/watch?v=dYNs9__H_Zc](https://www.youtube.com/watch?v=dYNs9__H_Zc)
+[Watch on Youtube: Springsteen - Wrecking Ball - November 8, 2009 MSG](https://www.youtube.com/watch?v=dYNs9__H_Zc)
 
-From the opening notes of “[The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” through “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/),” the arena was bouncing and beaming with unbridled surreal bliss.
+From the opening notes of “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” through “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/),” the arena was bouncing and beaming with unbridled surreal bliss.
 
-[https://www.youtube.com/watch?v=E8TcpS5V-cg](https://www.youtube.com/watch?v=E8TcpS5V-cg)
+[Watch on Youtube: Bruce Springsteen - Ties That Bind - 2009/11/08 - Madison Square Garden NYC](https://www.youtube.com/watch?v=E8TcpS5V-cg)
 
-[https://www.youtube.com/watch?v=nveSXQ7CEFc](https://www.youtube.com/watch?v=nveSXQ7CEFc)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Crush On You](https://www.youtube.com/watch?v=nveSXQ7CEFc)
 
 About halfway through the record, inside the Garden felt like that last scene in *Willy Wonka and the Chocolate Factory,* when Charlie, Grandpa, and Willy Wonka are in the Wonkavator on their way to blasting through the roof.
 
@@ -26,9 +26,9 @@ At that moment, I looked around from the back of the pit at thousands of happy p
 
 Well, no one said no…
 
-[https://www.youtube.com/watch?v=tcr9FCmiaA8](https://www.youtube.com/watch?v=tcr9FCmiaA8)
+[Watch on Youtube: Bruce Springsteen - Cadillac Ranch - I'm a Rocker - 2009/11/08 - Madison Square Garden NYC](https://www.youtube.com/watch?v=tcr9FCmiaA8)
 
-[https://www.youtube.com/watch?v=UNVrzbRat3A](https://www.youtube.com/watch?v=UNVrzbRat3A)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Wreck On The Highway](https://www.youtube.com/watch?v=UNVrzbRat3A)
 
 When Bruce launched into “Dancing in the Dark,” we made our way to the back, leaned against the riser, watched, waited, danced, leaned, watched, and waited. He pointed around the arena, “You’re looking good out there! In the back! Looking good up top!”
 
@@ -36,15 +36,15 @@ Then, “C’mon, C!” During Clarence’s solo, Bruce kept on with, “Shake i
 
 Bruce kicked into some “old soul clapping” and then laughed when he looked out and spotted Sharon, Rebecca, Anne, Bev, and me jumping around and dancing and waving. Bruce shouted, “Go Girls Go!”
 
-[https://www.youtube.com/watch?v=M7Ibl2LBMsA](https://www.youtube.com/watch?v=M7Ibl2LBMsA)
+[Watch on Youtube: Bruce Springsteen - Dancing in the Dark - Can't Help Falling in Love - 2009/11/08 - MSG NYC](https://www.youtube.com/watch?v=M7Ibl2LBMsA)
 
 We lasted about a minute, until his call for “Security!” in between giggles ushered over a few men who politely escorted us down, despite Clarence shaking his head with his hands on his hips, as if to say, “Let ‘em dance!”
 
 Right before she gets down, Sharon looks over at Bruce and gives him a little wave, like she’s checking with him to make sure he’s good with us leaving. It slays me every time I see it. He called out, “Let’s hear it for the ladies!”
 
-During “[(Your Love Keeps Lifting Me) Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/),” the final encore, as Bruce ran through the crowd, he waved over the singers and brought them up on that riser.
+During “[(Your Love Keeps Lifting Me) Higher and Higher](https://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/),” the final encore, as Bruce ran through the crowd, he waved over the singers and brought them up on that riser.
 
-[https://www.youtube.com/watch?v=3f3rHrTfbO0](https://www.youtube.com/watch?v=3f3rHrTfbO0)
+[Watch on Youtube: Bruce Springsteen "Higher and Higher" 11-8-09 Madison Square Garden](https://www.youtube.com/watch?v=3f3rHrTfbO0)
 
 The next day, a friend of mine said he got the idea from watching us up there. I laughed and shrugged it off, but he went on to say you could see the band didn’t know what was going on. Bruce probably didn’t think a group of people could fit up there until he saw us dancing, so he spontaneously directed them to follow him. After that show, he occasionally brought the band out to that middle riser, so maybe my friend was right.
 

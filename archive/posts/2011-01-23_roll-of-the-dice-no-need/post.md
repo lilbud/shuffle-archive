@@ -2,9 +2,9 @@ In April of 1972, Bruce began recording demos with Jim Cretecos. (Bruce would si
 
 One of those songs–recorded sometime between April and July of that year–was the ironically named “No Need.”
 
-It’s not clear when exactly Bruce wrote “No Need”–the only known instance of him performing it live was just a couple of months earlier in February–but it feels like a less mature piece of songwriting than, say, “[Jesse](http://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/),” which was recorded around the same time. Which is not to say it’s without merit–it’s just not as confident and skillful as some of his other contemporary songs.
+It’s not clear when exactly Bruce wrote “No Need”–the only known instance of him performing it live was just a couple of months earlier in February–but it feels like a less mature piece of songwriting than, say, “[Jesse](https://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/),” which was recorded around the same time. Which is not to say it’s without merit–it’s just not as confident and skillful as some of his other contemporary songs.
 
-[https://www.youtube.com/watch?v=LHYB63VzWd0](https://www.youtube.com/watch?v=LHYB63VzWd0)
+[Watch on Youtube: Bruce Springsteen, "No Need"](https://www.youtube.com/watch?v=LHYB63VzWd0)
 
 Bruce delves into his utility belt of songwriting devices from the get-go, starting with the biblical imagery (angel, Bible, Jesus, Satan) that run rampant throughout the first verse:
 

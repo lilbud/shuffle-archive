@@ -10,7 +10,7 @@ But anyone who remembers their first dreamlike yet sleepless days as a new paren
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=wmr6oj84sxM](https://www.youtube.com/watch?v=wmr6oj84sxM)
+[Watch on Youtube: Happy (Studio Outtake - 1992)](https://www.youtube.com/watch?v=wmr6oj84sxM)
 
 The first verse of “Happy” leads us to expect a traditional love song–it sounds very much like the words of someone newly in love.
 
@@ -44,7 +44,7 @@ There’s a lot of meaning packed into this one verse. On the surface, it’s st
 
 We also, in retrospect, find surprisingly direct reference to Bruce’s depression. At the time of its release in 1998, we probably assumed the “darkness” to be a callback to Bruce’s work two decades prior. Perhaps it was–Bruce has been known to revisit characters down the road. But more likely, it’s an intimate glimpse into the salvation that Patti has provided him–something that Bruce has only in recent years begun to directly discuss.
 
-The ethereal melody of “Happy” hints that the darkness may only temporarily be at bay, that it’s always lying in wait to reclaim him. Only the bridge takes flight before returning to a final verse, but even there Bruce echoes “[If I Should Fall Behind,](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” making it clear that he knows what this world can do.
+The ethereal melody of “Happy” hints that the darkness may only temporarily be at bay, that it’s always lying in wait to reclaim him. Only the bridge takes flight before returning to a final verse, but even there Bruce echoes “[If I Should Fall Behind,](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” making it clear that he knows what this world can do.
 
 *In a world of doubt and fear*  
 *I wake at night and reach to find you near*  
@@ -62,7 +62,7 @@ Now I want more than just a dream to tell*
 *Happy in each other’s kiss*  
 *I’m happy in a love like this*
 
-There’s one last turn of phrase that’s worth noting here. The notion of shedding one’s skin shows up not only here, but also in “[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)” (recorded in late 1991) and “[Trouble River](http://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/)” (record in early 1990)–suggesting that during this post-E Street, early marriage and family period, Bruce was focused on finding and remaking himself, leaving behind the persona that had come to define him and embracing new roles as husband and father to people he knew would truly see and know him.
+There’s one last turn of phrase that’s worth noting here. The notion of shedding one’s skin shows up not only here, but also in “[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)” (recorded in late 1991) and “[Trouble River](https://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/)” (record in early 1990)–suggesting that during this post-E Street, early marriage and family period, Bruce was focused on finding and remaking himself, leaving behind the persona that had come to define him and embracing new roles as husband and father to people he knew would truly see and know him.
 
 And the notion to “slip these bars” echoes the open cage from “Living Proof” with no keys, no guards, just shadows for bars–another example of how trapped in himself he must have felt by the late eighties, and how relieved he must have been to have found himself in his new and growing family.
 
@@ -77,4 +77,4 @@ I suspect Bruce wrote “Happy” more for himself and his family than for his a
 **Released:** *Tracks* (1998)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

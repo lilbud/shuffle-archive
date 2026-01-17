@@ -2,7 +2,7 @@ Only years after the release of Patti Scialfa’s superb third album, *Play It A
 
 “Black Ladder” is one of Patti’s bravest songs, and one of her most telling.
 
-[https://www.youtube.com/watch?v=wYZfyn8mCO0](https://www.youtube.com/watch?v=wYZfyn8mCO0)
+[Watch on Youtube: Black Ladder](https://www.youtube.com/watch?v=wYZfyn8mCO0)
 
 Anyone surprised by Bruce Springsteen’s revelation in 2016 of a lifelong struggle with depression clearly hadn’t paid much attention to his wife’s lyrics in 2007.
 
@@ -18,12 +18,10 @@ That’s why it was a shock and surprise when Elvis Costello chose “Black Ladd
 
 Accompanied by both Bruce and Nils on guitar (in a superb mix), Elvis took the lead vocal and did Patti proud with an achingly beautiful rendition.
 
-[https://videopress.com/embed/viP0odNS](https://videopress.com/embed/viP0odNS)
+[Watch Video Highlight](https://videopress.com/embed/viP0odNS)
 
 This was the first and only time Bruce has played “Black Ladder” in concert. Even with his own wife, it’s remained unplayed ever since.
 
 **Black Ladder**  
 **First performed:** September 25, 2009 (New York City, NY)  
 **Last performed:** September 25, 2009 (New York City, NY)
-
- 

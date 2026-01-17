@@ -2,7 +2,7 @@ Thank goodness Bruce didn’t release this one. It’s just plain creepy.
 
 Catchy, yes. But still: *creepy*.
 
-[https://www.youtube.com/watch?v=U-tR77HmqI0](https://www.youtube.com/watch?v=U-tR77HmqI0)
+[Watch on Youtube: BRUCE SPRINGSTEEN - love is a dangerous thing](https://www.youtube.com/watch?v=U-tR77HmqI0)
 
 The second in his yet-to-be completed “Love Is a Thing” trilogy (see “[Love Is a Crazy Thing](https://estreetshuffle.com/index.php/2020/08/12/roll-of-the-dice-love-is-a-crazy-thing/)” for the first), “Love Is a Dangerous Thing” was written during Bruce’s *Nebraska* writing period that followed the River Tour. Although it sounds like it was clearly intended to be a full-band rocker, its morally questionable protagonist and dark, alienated theme are right at home with the batch of songs that Bruce would shortly include on his next album.
 
@@ -64,7 +64,7 @@ As to why Bruce decided not to finish and release “Love Is a Dangerous Thing,�
 
 I will, however, leave you with another artist’s smash hit single that reached #2 on the Billboard Hot 100 shortly after Bruce recorded his work-in-progress demo above.
 
-[https://www.youtube.com/watch?v=cp42V938eBA](https://www.youtube.com/watch?v=cp42V938eBA)
+[Watch on Youtube: Rick Springfield - Don't Talk To Strangers (Official Video)](https://www.youtube.com/watch?v=cp42V938eBA)
 
 **Love Is a Dangerous Thing  
 Recorded:** September-December 1981 (demo only)  

@@ -4,11 +4,11 @@ I covered the backstory for “[Mary Lou](https://estreetshuffle.com/index.php/2
 
 The next thing to know about “Be True” is that there are two different officially released studio versions, something many fans don’t realize. Compare the more well-known version from *Tracks* below…
 
-[https://www.youtube.com/watch?v=Y0Cy4Zwiil0](https://www.youtube.com/watch?v=Y0Cy4Zwiil0)
+[Watch on Youtube: Be True (Single B-Side - 1981)](https://www.youtube.com/watch?v=Y0Cy4Zwiil0)
 
 …with the version released in 2015 on *The River: Single Disc* (included in *The Ties That Bind: The River Collection*).
 
-[https://www.youtube.com/watch?v=Rq2lsxXUVew](https://www.youtube.com/watch?v=Rq2lsxXUVew)
+[Watch on Youtube: Be True](https://www.youtube.com/watch?v=Rq2lsxXUVew)
 
 See what I mean? The core recording is the same for both, but there are differences both subtle and glaring. The 2015 version runs ever so slightly slower, for example, with Roy’s piano significantly higher in the mix and Max’s drum much lower.
 
@@ -84,7 +84,7 @@ But much more so than the lyrics, it’s the music that gives “Mary Lou” a h
 
 Its bright and shiny wrapping serves another purpose, too: it makes “Be True” a feel-good crowd-pleaser and cinched it an early spot in virtually every show of the Tunnel of Love Express Tour’s early legs. (It surely didn’t hurt that in concert, the “you be true to me and I’ll be true to you” refrain landed more like a pledge between singer and audience than a promise between Bruce’s characters, especially with Bruce going out of his way to make eye contact with fans during the chorus.)
 
-[https://www.youtube.com/watch?v=aOZ_6M8YcQs](https://www.youtube.com/watch?v=aOZ_6M8YcQs)
+[Watch on Youtube: Bruce Springsteen - Be True](https://www.youtube.com/watch?v=aOZ_6M8YcQs)
 
 “Be True” immediately followed the “Tunnel of Love” opener from the very first show of the tour, until Bruce inserted “[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)” in between them a few months later (adding a twisted but at the time hidden irony).
 
@@ -92,11 +92,11 @@ That’s pretty prime set list real estate for an outtake, but it’s not as if 
 
 Bruce even played it live once–and only once–by request on the Born in the U.S.A. Tour. Here’s Bruce very first live performance of “Be True.”
 
-[https://videopress.com/embed/HrcLfxQi](https://videopress.com/embed/HrcLfxQi)
+[Watch Video Highlight](https://videopress.com/embed/HrcLfxQi)
 
 Still, “Be True” was new to a lot of fans who joined E Street Nation during the *Born in the U.S.A.* era, which (combined with the reception it received in concert) may be why Bruce decided to release a live version of it on his *Chimes of Freedom* EP in 1988.
 
-[https://www.youtube.com/watch?v=oNjm71mWGpc](https://www.youtube.com/watch?v=oNjm71mWGpc)
+[Watch on Youtube: Be True (Live at Joe Louis Arena, Detroit, MI - March 1988)](https://www.youtube.com/watch?v=oNjm71mWGpc)
 
 Bruce finally included “Be True” on an official studio album in 1998 with *Tracks*, and in 2015 he released the alternate studio version at the top of this article. In concert, “Be True” has made cameo appearances in every E Street Band Tour since 1988, just frequently enough to maintain its rarity status.
 
@@ -104,7 +104,7 @@ It remains on many fans’ chase list, but like I said: “Be True” hasn’t m
 
 **Bonus:** During the summer and autumn legs of his 2005 solo acoustic tour, Bruce played “Be True” on electric piano a few times, starting with this debut in Seattle. It’s a bit rough, but worth a listen as a curiosity.
 
-[https://www.youtube.com/watch?v=LjFlB4r5jMQ](https://www.youtube.com/watch?v=LjFlB4r5jMQ)
+[Watch on Youtube: Bruce Springsteen Be True Solo Acoustic Live From Seattle 11/08/2005](https://www.youtube.com/watch?v=LjFlB4r5jMQ)
 
 **Be True  
 Recorded:** July 18, 1979  

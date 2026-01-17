@@ -6,7 +6,7 @@ Seriously, Bruce: you’ve been holding out on us.
 
 With the possible exception of “Sundown” on the same album, “There Goes My Miracle” may represent Bruce’s warmest vocals on record. It’s undeniably Orbisonian in almost every way, from Bruce’s lush vocals and heartbreaking theme to soaring melody and orchestral arrangement.
 
-[https://www.youtube.com/watch?v=tbDKBcPsmoQ](https://www.youtube.com/watch?v=tbDKBcPsmoQ)
+[Watch on Youtube: Bruce Springsteen - There Goes My Miracle (Official Lyric Video)](https://www.youtube.com/watch?v=tbDKBcPsmoQ)
 
 Tracing the lineage of the *Western Stars* collection is a challenge even for Springsteen scholars, since there’s precious little information available about the recording sessions. However, we can do a little sleuthing and speculating. Bruce is on record stating that the album’s origins date back to as early as 2010:
 
@@ -18,7 +18,7 @@ As for when studio work started in earnest, there’s a clue in the involvement 
 
 Koma actually has one other Springsteen-related credit on his resume: the “Modern Mix” version of “Rocky Ground,” released in mid-2012. Judging from Koma’s recollection of the experience, that was their first collaboration.
 
-[https://videopress.com/embed/9AcAtTIz](https://videopress.com/embed/9AcAtTIz)
+[Watch Video Highlight](https://videopress.com/embed/9AcAtTIz)
 
 My guess is that Koma’s vocal contribution hails from sometime shortly after that connection–and since Ron Aniello is on record as having finished *Western Stars* twice (first in 2014, and again in 2018), that also supports the notion that “There Goes My Miracle” was largely in the can pretty early on.
 
@@ -90,7 +90,7 @@ Bruce hasn’t performed “There Goes My Miracle” in concert, at least in par
 
 But he did perform it at least once for the cameras during the filming of *Western Stars* (the movie), and it’s the exception among the album’s tracks in that it was subtly improved in the process. (For example, see the backing vocals that enter at the “Look what we’ve done” section at the 2:30 mark.)
 
-[https://www.youtube.com/watch?v=epbF8WCB4y4](https://www.youtube.com/watch?v=epbF8WCB4y4)
+[Watch on Youtube: There Goes My Miracle - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=epbF8WCB4y4)
 
 Even so, “There Goes My Miracle” shares a trait with its album-mates: it’s pretty darn hard if not impossible to improve upon in concert.
 

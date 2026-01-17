@@ -8,11 +8,11 @@ But in the middle of the session, he dialed up a double-shot of The Man in Black
 
 “Guess Things Happen That Way” was one of Cash’s earliest hits–his fourth #1 single on the country chart, a spot it refused to give up for a full eight weeks in 1958.
 
-[https://www.youtube.com/watch?v=Cfah3L0dIz0](https://www.youtube.com/watch?v=Cfah3L0dIz0)
+[Watch on Youtube: Guess Things Happen That Way (2017 Remaster)](https://www.youtube.com/watch?v=Cfah3L0dIz0)
 
 Bruce took two brief runs through the song on that late summer day, the first in his customary singing voice and the second in a register clearly intended to evoke the original artist. Neither run-through was a full pass through the song, but it was enough for us to get a sense of what Bruce’s cover might have sounded like if he’d played it in full.
 
-[https://videopress.com/embed/V1Cw03T0](https://videopress.com/embed/V1Cw03T0)
+[Watch Video Highlight](https://videopress.com/embed/V1Cw03T0)
 
 “Guess Things Happen That Way” never made it into Bruce’s set list that night or any other. It joins a handful of lost classics only known to us thanks to the efforts of surreptitious bootleggers.
 

@@ -8,28 +8,26 @@ The occasion was Frank Sinatra’s 80th birthday, and the event was a tribute co
 
 “Angel Eyes” was a jazz standard long before Sinatra recorded his own version. It was written by Matt Dennis and Earl Brent and first recorded by Herb Jeffries in 1947.
 
-[https://www.youtube.com/watch?v=uQwa4SwcUl8](https://www.youtube.com/watch?v=uQwa4SwcUl8)
+[Watch on Youtube: Angel Eyes (Herb Jeffries)](https://www.youtube.com/watch?v=uQwa4SwcUl8)
 
 Ella Fitzgerald laid claim to it in the years that followed, often citing it as one of her favorite songs.
 
-[https://www.youtube.com/watch?v=CmrRwX2jmFU](https://www.youtube.com/watch?v=CmrRwX2jmFU)
+[Watch on Youtube: Ella Fitzgerald, "Angel Eyes"](https://www.youtube.com/watch?v=CmrRwX2jmFU)
 
 But it was Sinatra who would become synonymous with the song when he put his distinctive touch on it in 1958, altering the song so that he started with the mid-song “Drink up all you people” refrain (a lyrical liberty of which Bruce would no doubt approve, given his penchant for taking similar liberties when covering songs).
 
-[https://www.youtube.com/watch?v=lkxooexlxGI](https://www.youtube.com/watch?v=lkxooexlxGI)
+[Watch on Youtube: Frank Sinatra - Angel Eyes (2018 Stereo Mix / Audio)](https://www.youtube.com/watch?v=lkxooexlxGI)
 
 Bruce reverted to the original lyrics for his cover and arranged the song for acoustic guitar, tipping his hat to Sinatra without inviting direct comparison. His vocals were unusually warm for that period of his career, only hinting at the sadness that Sinatra’s version is steeped in.
 
-[https://www.youtube.com/watch?v=5QtjLEqK20M](https://www.youtube.com/watch?v=5QtjLEqK20M)
+[Watch on Youtube: Bruce Springsteen "Angel Eyes" 1995](https://www.youtube.com/watch?v=5QtjLEqK20M)
 
 Not surprisingly, that was the one and only time Bruce has ever covered “Angel Eyes.” It’s likely to remain that way. Thankfully the performance was televised and recorded for posterity, because it’s a rare and intimate moment between two of New Jersey’s favorite sons.
 
 **Update:** Thanks to friend of the blog Bill Anderson for pointing me to a May 2000 interview with Frank Sinatra Jr., who was not at all a fan of Bruce’ interpretation. But then again, Junior apparently wasn’t a fan of a lot of things…
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/sinatra-241x300.png)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/sinatra.png)
 
 **Angel Eyes  
 First performed:** November 19, 1995 (Los Angeles, CA)  
 **Last performed:** November 19, 1995 (Los Angeles, CA)
-
- 

@@ -2,7 +2,7 @@ Talk about a sleeper: “Seven Angels” is a terrific pop song, both sly and se
 
 Recorded in 1990 during the *Human Touch* sessions, it’s a mystery why Bruce chose not to include it on the album. It’s lean and catchy, with a killer riff (Bruce plays both guitar and bass on the track) and lyrics that’ll bring a smile to your face if you even pay half-attention. And as he has many times before and since, Bruce borrows biblical imagery to tell a very down-to-earth story of the flesh.
 
-[https://www.youtube.com/watch?v=SWUXK4D7F-E](https://www.youtube.com/watch?v=SWUXK4D7F-E)
+[Watch on Youtube: Seven Angels (Studio Outtake - 1990)](https://www.youtube.com/watch?v=SWUXK4D7F-E)
 
 Lyrically, “Seven Angels” is the tale of a man in the early stages of love, caught up in the insecurities and indecision that both protect us and isolate us from each other. Bruce wastes no time setting the stage:
 
@@ -29,7 +29,7 @@ That’s indeed what it all boils down to: trust or distrust. Which angel does t
 
 “Seven Angels” has only been performed once, but I was there for it, and I can tell you it was just as much fun as the studio track. Featuring a rare Garry Tallent spotlight, Bruce had a lot of fun with this one-time-only (so far) performance:
 
-[https://www.youtube.com/watch?v=zJFnh9rjdpM](https://www.youtube.com/watch?v=zJFnh9rjdpM)
+[Watch on Youtube: Seven Angels - Bruce Springsteen (18-05-2014 Mohegan Sun Arena ,Uncasville)](https://www.youtube.com/watch?v=zJFnh9rjdpM)
 
 Here’s hoping we see an encore performance soon!
 
@@ -39,4 +39,4 @@ Here’s hoping we see an encore performance soon!
 **First performed:** May 18, 2014 (Uncasville, CT)  
 **Last performed:** May 18, 2014 (Uncasville, CT)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

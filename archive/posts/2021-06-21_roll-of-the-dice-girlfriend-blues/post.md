@@ -8,7 +8,7 @@ If our spotlight on “[You Better Be Nice to Me](https://estreetshuffle.com/ind
 
 On stage with Bruce are Steve Van Zandt (on bass), Vini Lopez, and Danny Federici, and all four players are clear and prominent in this astonishingly clear mix–so clear that you’ll have to keep reminding yourself that this recording is *fifty-one years old*.
 
-[https://videopress.com/embed/cntd6XuR](https://videopress.com/embed/cntd6XuR)
+[Watch Video Highlight](https://videopress.com/embed/cntd6XuR)
 
 Bruce fashioned “Girlfriend Blues” in the classic blues mold and “my girl done left me” theme, and his lyrics clearly drew inspiration from Richard Fariña’s *Been Down So Long It Looks Like Up to Me,* which captivated the countercultural imagination upon its publication four years earlier. Bruce had undoubtedly read it by this time, as he acknowledges it post-song when an audience member catches the lyrical reference.
 
@@ -50,11 +50,11 @@ And this is when we realize that Bruce’s story is set right in the midst of As
 
 The video below includes real footage from Tuesday, July 7th (“the middle of last week”), the events that served as the backdrop for Bruce’s story.
 
-[https://www.youtube.com/watch?v=adtDWdggyWA](https://www.youtube.com/watch?v=adtDWdggyWA)
+[Watch on Youtube: Asbury Park: July 7, 1970 (Part Two)](https://www.youtube.com/watch?v=adtDWdggyWA)
 
 That week of civil unrest caused more than five million dollars in property damage and injured 180 people, many of whom were African-American members of the community who were attempting to de-escalate the situation, only to be forcibly beaten and arrested by local police officers.
 
-[https://www.youtube.com/watch?v=hPGO7Q6iMzg](https://www.youtube.com/watch?v=hPGO7Q6iMzg)
+[Watch on Youtube: Asbury Park: July 7, 1970 (Part One)](https://www.youtube.com/watch?v=hPGO7Q6iMzg)
 
 Let’s let Bruce continue:
 
@@ -95,7 +95,7 @@ Oh no. Don’t do it, Bruce. Don’t go there.
 
 Sigh. Oh, Bruce…
 
-![MI PRIMER VIDEO!!! íbamos TAN BIEN! - YouTube](https://i.ytimg.com/vi/5vmsIH9Lpzg/hqdefault.jpg?w=758&amp;ssl=1)
+![MI PRIMER VIDEO!!! íbamos TAN BIEN! - YouTube](https://i.ytimg.com/vi/5vmsIH9Lpzg/hqdefault.jpg)
 
 *For more information on the Asbury Park riots of 1970, watch the excellent documentary, Asbury Park: Riot, Redemption, Rock ‘n’ Roll — available to stream now.*
 

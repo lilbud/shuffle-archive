@@ -6,7 +6,7 @@ You almost certainly know Of Monsters and Men–they’ve been riding high on th
 
 But who knew they counted Bruce among their influences? I didn’t, until they played this beautiful cover of “Dancing in the Dark” live at Sirius XM last month.
 
-[https://www.youtube.com/watch?v=JJsh2rZ1xhU](https://www.youtube.com/watch?v=JJsh2rZ1xhU)
+[Watch on Youtube: Of Monsters and Men - Dancing In The Dark (Bruce Springsteen Cover) [LIVE @ SiriusXM Studios]](https://www.youtube.com/watch?v=JJsh2rZ1xhU)
 
 An absolutely terrific version.
 

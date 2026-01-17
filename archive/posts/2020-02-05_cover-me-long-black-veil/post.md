@@ -4,13 +4,13 @@ But every now and then, Bruce sprinkled a third category into the mix: a cover o
 
 One of the very first of these was “Long Black Veil,” originally recorded and released in 1959 by Lefty Frizzell.
 
-[https://www.youtube.com/watch?v=4ZPz01Xe1VA](https://www.youtube.com/watch?v=4ZPz01Xe1VA)
+[Watch on Youtube: The Long Black Veil](https://www.youtube.com/watch?v=4ZPz01Xe1VA)
 
 “Long Black Veil” is the story of a man falsely accused of murder who goes to his grave rather than own up to his alibi (he was having an affair with his best friend’s wife at the time of the murder). His lover keeps their secret but visits his grave in the dark of night, cloaked in a long black veil.
 
 It was a story destined for a folk song immortalization, and Frizzell’s original (which peaked at #6 on the Billboard Hot Country and Western chart) has been covered countless times, most notably by The Band (who recorded it on their debut album and performed it at Woodstock), Sammi Smith (who scored a Top 40 Country hit with it in 1974), and of course, the memorable television performance by Johnny Cash and Joni Mitchell on the very first episode of *The Johnny Cash Show* in 1969.
 
-[https://www.youtube.com/watch?v=_Mf0lzBOSZ4](https://www.youtube.com/watch?v=_Mf0lzBOSZ4)
+[Watch on Youtube: Joni Mitchell & Johnny Cash - Long Black Veil](https://www.youtube.com/watch?v=_Mf0lzBOSZ4)
 
 Bruce worked up a full-band arrangement of “Long Black Veil” before the Seeger Session Tour even began. At the final rehearsal show, four days before the tour officially opened at the New Orleans Jazz & Heritage Festival, Bruce and the Sessions Band took the stage and opened with Frizzell’s classic.
 
@@ -18,10 +18,8 @@ While the song didn’t make Bruce’s Jazz Fest set, he debuted it a week later
 
 Here’s Bruce’s final performance of “Long Black Veil” to date, live in Rome late in the Seeger Sessions Tour.
 
-[https://www.youtube.com/watch?v=EiZ8ztIIZjs](https://www.youtube.com/watch?v=EiZ8ztIIZjs)
+[Watch on Youtube: Bruce Springsteen with The SSB - Long Black Veil](https://www.youtube.com/watch?v=EiZ8ztIIZjs)
 
 **Long Black Veil  
 First performed:** April 26, 2006 (Asbury Park, NJ)  
 **Last performed:** October 10, 2006 (Rome, Italy)
-
- 

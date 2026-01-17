@@ -8,15 +8,15 @@ This story belongs to Nick Ferraro–or as Bruce dubbed him, “The Philly Elvis
 
 And although I was there in the pit that night only a few feet away to witness it, I couldn’t possibly tell his story any better than Nick himself. So watch and listen–it’s a remarkable story that will make any fan’s heart race with excitement and shared joy.
 
-[https://www.youtube.com/watch?v=3QNMuArkrsA](https://www.youtube.com/watch?v=3QNMuArkrsA)
+[Watch on Youtube: Late Night With johnny P / Nick Ferraro "The Philly Elvis"](https://www.youtube.com/watch?v=3QNMuArkrsA)
 
 Pretty awesome, isn’t it? Here’s the entire performance uncut and with better sound for a more visceral experience:
 
-[https://www.youtube.com/watch?v=95UB4aMJdnI](https://www.youtube.com/watch?v=95UB4aMJdnI)
+[Watch on Youtube: Bruce Springsteen - All Shook Up (Live) - Dubbed HD version](https://www.youtube.com/watch?v=95UB4aMJdnI)
 
 And yeah… the original 1957 version is pretty great, too.
 
-[https://www.youtube.com/watch?v=23zLefwiii4](https://www.youtube.com/watch?v=23zLefwiii4)
+[Watch on Youtube: Elvis Presley - All Shook Up (Official Audio)](https://www.youtube.com/watch?v=23zLefwiii4)
 
 **All Shook Up**  
 **First performed:** October 19, 2009 (Philadelphia, PA)  

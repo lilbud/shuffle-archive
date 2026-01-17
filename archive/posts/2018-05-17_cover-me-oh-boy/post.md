@@ -4,11 +4,11 @@ Bruce counts Buddy Holly among his big influences, so it’s not surprising that
 
 Here’s the last performance from that tour, from the August 4, 1978 show in Charleston, West Virginia.
 
-[https://www.youtube.com/watch?v=KVtZ8m3fyZY](https://www.youtube.com/watch?v=KVtZ8m3fyZY)
+[Watch on Youtube: 1. Oh Boy (Bruce Springsteen- Live In Charleston 8-4-1978)](https://www.youtube.com/watch?v=KVtZ8m3fyZY)
 
 You’re probably familiar with Buddy Holly’s version already–so here’s the Sonny West original.
 
-[https://www.youtube.com/watch?v=TlcjdSJwI5k](https://www.youtube.com/watch?v=TlcjdSJwI5k)
+[Watch on Youtube: All My Love aka Oh Boy - Sonny West (on intro) 1957 Atlantic (ORIGINAL VERSIONS)](https://www.youtube.com/watch?v=TlcjdSJwI5k)
 
 **Oh Boy  
 First performed:** July 29, 1978 (St. Petersburg, FL)  

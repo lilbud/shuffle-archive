@@ -1,6 +1,6 @@
 **Updated 10/23/20:** Well, the first sentence of my original essay sure did age well. As of a few minutes ago, we finally have an officially released version of “If I Was the Priest,” and an E Street Band version to boot. I’m going to let my original essay stand unedited–I think the lyrical analysis holds up (the differences between the original and modern versions are minor), and while the tremendous E Street Band performance deserves some discussion (as well as Bruce’s vocals–he’s in full Dylan mode), I’ll save that for another day. For now, it’s enough to just rejoice in a terrific song finally realized fifty years after Bruce first played it.
 
-[https://www.youtube.com/watch?v=izbq7IUYja0](https://www.youtube.com/watch?v=izbq7IUYja0)
+[Watch on Youtube: Bruce Springsteen - If I Was The Priest (Official Audio)](https://www.youtube.com/watch?v=izbq7IUYja0)
 
 ---
 
@@ -9,9 +9,9 @@ If ever there was an early Springsteen outtake crying out for an official releas
 
 After all, without “If I Was the Priest” there’s a chance we would never have heard of Bruce Springsteen let alone be discussing his work on a blog devoted to it.
 
-The broad bones of the story are well known: Way back on [May 2, 1972](http://estreetshuffle.com/index.php/2018/05/02/kingdom-of-days-may-2/), Bruce’s manager Mike Appel smooth-talked and fast-talked his and Bruce’s way into the office of legendary Columbia A&R man John Hammond. Bruce played a few songs for the skeptical but intrigued Hammond, and by the time he was done, Hammond knew he had a star on his hands.
+The broad bones of the story are well known: Way back on [May 2, 1972](https://estreetshuffle.com/index.php/2018/05/02/kingdom-of-days-may-2/), Bruce’s manager Mike Appel smooth-talked and fast-talked his and Bruce’s way into the office of legendary Columbia A&R man John Hammond. Bruce played a few songs for the skeptical but intrigued Hammond, and by the time he was done, Hammond knew he had a star on his hands.
 
-But the audition wasn’t without its bumps: Hammond loved “[It’s Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/),” but wasn’t particularly enamored with “[Mary, Queen of Arkansas.](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” Still not completely won over, he asked Bruce if he had anything “way out there,” something he wouldn’t dream of performing live.
+But the audition wasn’t without its bumps: Hammond loved “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/),” but wasn’t particularly enamored with “[Mary, Queen of Arkansas.](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” Still not completely won over, he asked Bruce if he had anything “way out there,” something he wouldn’t dream of performing live.
 
 Bruce obliged him with “If I Was the Priest” (even though he almost certainly played it during his 1971 residency at The Student Prince in Asbury Park).
 
@@ -19,17 +19,17 @@ Hammond was knocked out by the song’s mashup of Catholic and old west imagery,
 
 Bruce has never released “If I Was the Priest,” even though Alan Clarke covered it in 1975 and no less than three of Bruce’s performances exist in bootleg form.
 
-Why? Who knows. It certainly doesn’t rank among Bruce’s best work, but then again this is a man who officially released “[Baby I](http://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/).” For historical significance alone, the vault cries out for its release.
+Why? Who knows. It certainly doesn’t rank among Bruce’s best work, but then again this is a man who officially released “[Baby I](https://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/).” For historical significance alone, the vault cries out for its release.
 
 The song itself is no slouch though–in fact, it may be the best early prototype of a Springsteen “epic” song, ambitious in its reach, audacious in its content, and in a departure for Bruce he performed it solo on the piano.
 
 We don’t know how Bruce played it on that fateful afternoon of May 2, 1972 (he only had his guitar with him), but we actually have the recording he made at Columbia the following day:
 
-[https://www.youtube.com/watch?v=3eIwcMp6s3g](https://www.youtube.com/watch?v=3eIwcMp6s3g)
+[Watch on Youtube: Rare Bruce Springsteen: If I was the Priest](https://www.youtube.com/watch?v=3eIwcMp6s3g)
 
 Bruce cleaned it up a bit and rerecorded it a few weeks later, and it’s this later version we’ll use for our analysis, since it’s the clearer and brighter recording.
 
-[https://www.youtube.com/watch?v=_FtyLzYErXU](https://www.youtube.com/watch?v=_FtyLzYErXU)
+[Watch on Youtube: If I Were the Priest Bruce Springsteen Acoustic Demo 1972.f4v](https://www.youtube.com/watch?v=_FtyLzYErXU)
 
 “If I Was the Priest” is a challenging song to get inside, and Bruce probably intended it that way. It’s an impressionistic piece, combining two themes that already separately dominated much of his work (and still does to this day, in fact): Catholicism and the American West.
 
@@ -98,11 +98,11 @@ As I mentioned earlier, it’s believed that Bruce did indeed perform “If I Wa
 
 So here’s a bonus demo instead: earlier than both of the above performances, this one is a recording from Mike Appel’s office in April of 1972, one of the very first recordings he ever made for Appel, before he even signed with him.
 
-[https://www.youtube.com/watch?v=w-QDe3ZJ4QE](https://www.youtube.com/watch?v=w-QDe3ZJ4QE)
+[Watch on Youtube: Bruce Springsteen - "If I Was the Priest" version 1](https://www.youtube.com/watch?v=w-QDe3ZJ4QE)
 
 **If I Was the Priest  
 Recorded:** April-June 1972 (solo), November 2019 (band)  
 **Released:** *Letter to You* (2020)  
 **First performed:** February 14, 2023 (Houston, TX) (but likely performed in 1971 as well)  
 **Last performed:** February 21, 2023 (Tulsa, OK)  
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

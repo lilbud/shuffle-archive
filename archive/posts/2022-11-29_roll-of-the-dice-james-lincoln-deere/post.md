@@ -8,7 +8,7 @@ But if we listen to his lyrics from *Nebraska* to *Born in the U.S.A.* to [*Tunn
 
 We’ll explore one of those themes this week over the course of three installments, beginning with a 1982 acoustic outtake called “James Lincoln Deere.”
 
-[https://www.youtube.com/watch?v=rQHPVnV1Xjk](https://www.youtube.com/watch?v=rQHPVnV1Xjk)
+[Watch on Youtube: Bruce Springsteen James Lincoln Dear](https://www.youtube.com/watch?v=rQHPVnV1Xjk)
 
 At the time he recorded that demo in March 1982, Bruce was carrying *Nebraska* around on a cassette tape. He obviously wasn’t finished with that style of cinematic, film noir songwriting, however, as “James Lincoln Deere” demonstrates.
 

@@ -10,7 +10,7 @@ Regeney was a lapsed Catholic; his wife and songwriting partner Shayne was Jewis
 
 Intended or not, “Do You Hear What I Hear” became an immensely popular holiday song, and arguably the most misunderstood.
 
-[https://www.youtube.com/watch?v=ADj-Ru3JQp0](https://www.youtube.com/watch?v=ADj-Ru3JQp0)
+[Watch on Youtube: Do You Hear What I Hear? (Original Version)](https://www.youtube.com/watch?v=ADj-Ru3JQp0)
 
 We all know the first verse of “Do You Hear What I Hear”:
 
@@ -33,7 +33,7 @@ Regeney and Shayne wrote the song quickly, and The Harry Simeone Chorale recorde
 
 The lyricist who once swore he’d never write a Christmas song suddenly found himself responsible for one of the biggest hits of the holiday season. And when Bing Crosby released a cover of it during the one-year anniversary of the Cuban Missile Crisis, “Do You Hear What I Hear” was cemented as an eternal holiday hit.
 
-[https://www.youtube.com/watch?v=Vs9FPx3_Slk](https://www.youtube.com/watch?v=Vs9FPx3_Slk)
+[Watch on Youtube: Bing Crosby - Do You Hear What I Hear? (Lyric Video)](https://www.youtube.com/watch?v=Vs9FPx3_Slk)
 
 “Do You Hear What I Hear” was still popular during the 2016 holiday season. when Bruce Springsteen made one of his many appearances at Sting and Trudie Styler’s annual-ish benefit concert for The Rainforest Foundation.
 
@@ -41,7 +41,7 @@ That year’s show had a holiday theme, and Bruce neither surprised nor disappoi
 
 But if Bruce’s set list choices were predictable, the encores weren’t: Bruce joined the night’s talent line-up (including Sting, Jennifer Nettles, Ronnie Spector, Darlene Love, James Taylor, and Idina Menzel) on stage for two traditional Christmas carols. Well, make that [one traditional carol](https://estreetshuffle.com/index.php/2019/12/24/matr-sting-bruce-springsteen-and-friends-joy-to-the-world/) and one misinterpreted one: Bruce’s one and only public performance of “Do You Hear What I Hear.”
 
-[https://www.youtube.com/watch?v=qZ6XNcPDUpA](https://www.youtube.com/watch?v=qZ6XNcPDUpA)
+[Watch on Youtube: Springsteen and Friends, "Do You Hear What I Hear", Carnegie Hall, December 14, 2016](https://www.youtube.com/watch?v=qZ6XNcPDUpA)
 
 Still, even if the context of “Do You Hear What I Hear” is misunderstood, its message isn’t:
 

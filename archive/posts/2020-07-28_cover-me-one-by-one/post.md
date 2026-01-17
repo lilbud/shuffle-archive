@@ -2,20 +2,18 @@
 
 The Blues Magoos recorded two versions of the song–the first one a Byrds-ish arrangement on their *Psychedelic Lollipop* album in 1966…
 
-[https://www.youtube.com/watch?v=UD_ilDKEgZg](https://www.youtube.com/watch?v=UD_ilDKEgZg)
+[Watch on Youtube: The Blues Magoos - One By One](https://www.youtube.com/watch?v=UD_ilDKEgZg)
 
 …and a second poppier arrangement that the band recorded to release as a single in 1967.
 
-[https://www.youtube.com/watch?v=2-6WoXhhjYc](https://www.youtube.com/watch?v=2-6WoXhhjYc)
+[Watch on Youtube: Blues Magoos - One By One (Mercury 72692)](https://www.youtube.com/watch?v=2-6WoXhhjYc)
 
 It’s unclear which version Bruce Springsteen and The Castiles had in mind when they covered “One By One” in the autumn of 1967, because the recording of that one-time-only (that we know of) performance is distant and muddy.
 
-[https://www.youtube.com/watch?v=acYNoc7yhiY](https://www.youtube.com/watch?v=acYNoc7yhiY)
+[Watch on Youtube: The castiles : Bruce Springsteen : 'one by one' ( cover Blues Magoos )](https://www.youtube.com/watch?v=acYNoc7yhiY)
 
 But we at least have a pretty good idea why they chose to cover it at all: Bruce and the band had just seen The Blues Magoos perform it live in concert at Asbury Park’s Convention Hall just a few weeks earlier.
 
 **One By One  
 First performed:** September 30, 1967 (Freehold, NJ)  
 **Last performed:** September 30, 1967 (Freehold, NJ)
-
- 

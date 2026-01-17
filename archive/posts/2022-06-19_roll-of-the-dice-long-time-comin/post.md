@@ -16,7 +16,7 @@ It was the song that Bruce was introducing when he spoke those lines on Broadway
 
 But neither the official studio track nor any full-band performance can match the power of Bruce’s intimate acoustic performances, so let’s honor the theme of Bruce’s song by breaking with this blog’s tradition and listening instead to the Broadway version of “Long Time Comin'” as our primary source.
 
-[https://www.youtube.com/watch?v=LqoBTVTsnKg](https://www.youtube.com/watch?v=LqoBTVTsnKg)
+[Watch on Youtube: Bruce Springsteen - Long Time Comin' (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=LqoBTVTsnKg)
 
 “Long Time Comin'” is the song-length epiphany of a father who realizes belatedly–but not *too*-latedly–that the greatest gifts he can bestow upon his children are his presence in their lives and the freedom to reject the traits he had no choice but to accept from his own father.
 
@@ -24,17 +24,17 @@ As a young man on the cusp of 30, Bruce railed and raged against his father’s 
 
 He hasn’t released an original song about fathers and sons since.
 
-[https://www.youtube.com/watch?v=RY0vNIs3ki4](https://www.youtube.com/watch?v=RY0vNIs3ki4)
+[Watch on Youtube: Long Time Comin - Bruce Springsteen (10-12-1996 Music Hall,Cincinnati, Ohio)](https://www.youtube.com/watch?v=RY0vNIs3ki4)
 
 Bruce performed “Long Time Comin'” throughout the Ghost of Tom Joad Tour, but he didn’t actually go into the studio to record it until after the tour was over. The official version of the song was recorded sometime in 1997 or 1998, and it wasn’t released until *Devils & Dust* in 2005.
 
 In between, a new rhythm section was added, with Steve Jordan and Brendan O’Brien joining Bruce, Danny, Patti, Soozie, and Marty Rifkin on the steel guitar from the original session.
 
-[https://www.youtube.com/watch?v=pnMqsziGMVI](https://www.youtube.com/watch?v=pnMqsziGMVI)
+[Watch on Youtube: Long Time Comin'](https://www.youtube.com/watch?v=pnMqsziGMVI)
 
 That hybrid official track captures the narrator’s jubilation over his unexpected freedom, but it loses the pensiveness that tempers and adds emotional heft to Bruce’s acoustic versions. Even the little-seen acoustic version of the song included on the DualDisc DVD version of *Devils & Dust* outshines the band version on the opposite side of the disc.
 
-[https://www.youtube.com/watch?v=SkJn-dBSSUI](https://www.youtube.com/watch?v=SkJn-dBSSUI)
+[Watch on Youtube: Bruce Springsteen - Long Time Comin' ("Devils & Dust" Acoustic Performances)](https://www.youtube.com/watch?v=SkJn-dBSSUI)
 
 In the acoustic version, we can see the narrator’s night sky. We can hear the crackling campfire. And we can feel the presence of our partner and our children, the souls that matter most in our trip through this life.
 
@@ -115,9 +115,9 @@ As we segue into the final third of the song, celebration gives way to reflectio
 
 Of the first half of the verse, not much need be said other than: no, I don’t think Rosie is a hat tip to Rosalita (although it may be a wink at Neil Diamond) and *thank god* someone finally told Bruce how Orion is pronounced sometime between 2006 and 2012, because that mispronunciation is a mild but distracting annoyance in every version of the song pre-Wrecking Ball Tour. (You can see Bruce remind himself to sing it correctly in the second clip below.)
 
-[https://www.youtube.com/watch?v=_eehLPcXxBQ](https://www.youtube.com/watch?v=_eehLPcXxBQ)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - Long Time Comin' (Live In Dublin)](https://www.youtube.com/watch?v=_eehLPcXxBQ)
 
-[https://www.youtube.com/watch?v=78eZDLRf1aI](https://www.youtube.com/watch?v=78eZDLRf1aI)
+[Watch on Youtube: Bruce Springsteen 2013-06-20 Coventry - Long Time Comin' (first full E Street performance)](https://www.youtube.com/watch?v=78eZDLRf1aI)
 
 Let’s linger on that second half of the verse, though, because these lines also contend for a place among Bruce’s best:
 
@@ -135,7 +135,7 @@ Between the first and third verses, our narrator’s imagery is flowery and at t
 
 It’s a brilliant ending, one that resonates with audiences and generates a reaction almost every time Bruce sings it.
 
-[https://www.youtube.com/watch?v=Mj4v3M4owKY](https://www.youtube.com/watch?v=Mj4v3M4owKY)
+[Watch on Youtube: Long Time Comin' - Bruce Springsteen - Dussledorf 05](https://www.youtube.com/watch?v=Mj4v3M4owKY)
 
 “Long Time Comin'” ends on a note of hope and optimism, love and acceptance. It’s almost irresistibly tempting to imagine a common narrator threading from “Adam Raised a Cain” to “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” to “Walk Like a Man” through to “Long Time Comin.”
 
@@ -145,7 +145,7 @@ Happy Father’s Day to all the dads out there, current and future.
 
 May we not fuck it up this time.
 
-[https://www.youtube.com/watch?v=yWf4r7G3mX8](https://www.youtube.com/watch?v=yWf4r7G3mX8)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Long Time Comin' [Brisbane, AUS - 16.FEB.2017]](https://www.youtube.com/watch?v=yWf4r7G3mX8)
 
 **Long Time Comin’  
 Recorded:** 1997-2004  

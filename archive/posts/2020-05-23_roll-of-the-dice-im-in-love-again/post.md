@@ -2,9 +2,9 @@ Two Bruce Springsteen Band songs in one week? You bet: it’s Memorial Day weeke
 
 I love those Bruce Springsteen Band shows–they’re warm and soulful, cool and brassy, and at times as close to pop as Bruce ever got. I love playing them on a warm weekend afternoon.
 
-Earlier this week, we listened to “[Natural Magic](http://estreetshuffle.com/index.php/2020/05/19/roll-of-the-dice-natural-magic/),” Bruce’s Van Morrison tribute. Today, we check out Bruce’s hat tip to The Crystals, “I’m in Love Again.” No further introduction needed–this song is as light as a feather. Let’s take a listen:
+Earlier this week, we listened to “[Natural Magic](https://estreetshuffle.com/index.php/2020/05/19/roll-of-the-dice-natural-magic/),” Bruce’s Van Morrison tribute. Today, we check out Bruce’s hat tip to The Crystals, “I’m in Love Again.” No further introduction needed–this song is as light as a feather. Let’s take a listen:
 
-[https://videopress.com/embed/mEy5mzkR](https://videopress.com/embed/mEy5mzkR)
+[Watch Video Highlight](https://videopress.com/embed/mEy5mzkR)
 
 While Bruce’s lyrics here don’t require any deep analysis, there are at least three things going on in “I’m in Love Again” that are worth mentioning.
 
@@ -16,7 +16,7 @@ But wait, there’s more: a horn section (Harvey Cherlin on trumpet and Bobby Fe
 
 The late Dee Holmes (she passed away in 2010) was more than a backing vocalist though. An accomplished gospel singer and staple of the Jersey Shore music scene, Holmes shared the stage with Bruce as recently as 2008 and appeared with him on television when Bruce performed “My City of Ruins” shortly after September 11, 2001. (That’s her standing in the middle of the background singers.)
 
-[https://www.youtube.com/watch?v=UpUv6ptY8xw](https://www.youtube.com/watch?v=UpUv6ptY8xw)
+[Watch on Youtube: Bruce Springsteen - My City of Ruins (from "America: A Tribute to Heroes")](https://www.youtube.com/watch?v=UpUv6ptY8xw)
 
 Holmes had a tremendous voice, so upon occasion she would step forward and take the lead vocal for The Bruce Springsteen Band, which gave Bruce a chance to write lyrics for a female singer.
 
@@ -56,4 +56,4 @@ Never released
 First performed:** July 23, 1971 (New York City, NY)  
 **Last performed:** July 29, 1971 (South Amboy, NJ)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

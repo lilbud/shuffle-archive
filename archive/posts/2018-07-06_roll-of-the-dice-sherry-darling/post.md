@@ -2,11 +2,11 @@ Ninety-nine percent of the time, Bruce picks the right take of a song to officia
 
 Listen to this outtake from the [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)sessions, recorded more than three years before the release of *The River,* and tell me that it’s not superior to the final release:
 
-[https://www.youtube.com/watch?v=2vY-5RMGjWA](https://www.youtube.com/watch?v=2vY-5RMGjWA)
+[Watch on Youtube: Bruce Springsteen - Sherry Darling (recorded in 1977)](https://www.youtube.com/watch?v=2vY-5RMGjWA)
 
 If that doesn’t bring a goofy grin to your face, I don’t know what will. That’s pure joy in performance form. Here’s the album version for comparison–still a great track of course, but a bit more restrained:
 
-[https://www.youtube.com/watch?v=FCS3mewzWSo](https://www.youtube.com/watch?v=FCS3mewzWSo)
+[Watch on Youtube: Sherry Darling](https://www.youtube.com/watch?v=FCS3mewzWSo)
 
 Whichever version you prefer, “Sherry Darling” is perhaps the epitome of “Party Bruce,” the persona he wears when he abandons all pretext of social consciousness, melodrama, and inner demons and just cuts loose.
 
@@ -14,11 +14,11 @@ And yes, while “Sherry Darling” first appeared on the grab bag party album t
 
 Here’s Bruce and Stevie having a blast playing it for what must certainly be the earliest recording captured on tape, let alone video:
 
-[https://www.youtube.com/watch?v=JUerFF6xKZ4](https://www.youtube.com/watch?v=JUerFF6xKZ4)
+[Watch on Youtube: An Excerpt from "The Promise: The Making of 'Darkness on the Edge of Town"](https://www.youtube.com/watch?v=JUerFF6xKZ4)
 
 …and here’s the very first public performance, from early in the Darkness Tour–Charleston, West Virginia, on August 4, 1978–still more than two years before it would be released on vinyl, and with still-in-progress lyrics:
 
-[https://www.youtube.com/watch?v=GGbQrp6s3rE](https://www.youtube.com/watch?v=GGbQrp6s3rE)
+[Watch on Youtube: 13. Sherry Darling (Bruce Springsteen- Live In Charleston 8-4-1978)](https://www.youtube.com/watch?v=GGbQrp6s3rE)
 
 It’s easy to figure out why Bruce didn’t release it sooner–it would have been jarringly out of place on the sober *Darkness on the Edge of Town* album. But it’s also easy to figure out why he played it often on the Darkness Tour–and pretty much exclusively in the summer.
 
@@ -66,7 +66,7 @@ Bruce answers that in the last chorus, where the protagonist suddenly lapses int
 
 Sorry, girls–and enjoy your conquests, you operators–our guy has Sherry, and that’s all he needs and wants.
 
-Don’t get suckered by the bravado and the machismo–“Sherry Darling” is as romantic as “[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/).”
+Don’t get suckered by the bravado and the machismo–“Sherry Darling” is as romantic as “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/).”
 
 And can we talk about the band for a minute? It takes a lot of practice and a ton of camaraderie (and a great bandleader) to sound this loose and free-wheeling and yet still hold together. “Sherry Darling” captures not only the skill but also the spirit of the E Street Band at the top of their game.
 
@@ -76,7 +76,7 @@ And can we talk about the band for a minute? It takes a lot of practice and a to
 
 On his 2005 solo tour stop in Grand Rapids, Bruce performed “Sherry Darling” by himself on electric piano for the first and only time. It’s novel, but far from essential. “Sherry Darling” needs a peanut gallery.
 
-[https://www.youtube.com/watch?v=TlYjluwtyls](https://www.youtube.com/watch?v=TlYjluwtyls)
+[Watch on Youtube: Bruce Springsteen - Sherry Darling](https://www.youtube.com/watch?v=TlYjluwtyls)
 
 **Sherry Darling**  
 **Recorded:** May 1979 – April 1980  
@@ -84,4 +84,4 @@ On his 2005 solo tour stop in Grand Rapids, Bruce performed “Sherry Darling”
 **First performed:** August 4, 1978 (Charleston, WV)  
 **Last performed:** August 30, 2023 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

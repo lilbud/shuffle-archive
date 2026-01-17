@@ -8,4 +8,4 @@ I know I’ve been going to the “Dancing in the Dark” well pretty often of l
 
 Oh, and wait for it…
 
-[https://www.youtube.com/watch?v=b5rySSphFO0](https://www.youtube.com/watch?v=b5rySSphFO0)
+[Watch on Youtube: Dancing in the Dark | Bruce Springsteen | funk cover ft. Darren Criss](https://www.youtube.com/watch?v=b5rySSphFO0)

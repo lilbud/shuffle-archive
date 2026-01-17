@@ -4,13 +4,13 @@ Case in point: “Used Cars,” buried deep in Bruce’s *Nebraska* album.
 
 At first listen, it’s a vignette, a reminiscence of a vivid childhood memory. Bruce has often spoken of his father’s uncanny knack for finding troublesome vehicles. In fact, here’s how he introduced the song the very first time he performed it:
 
-[https://videopress.com/embed/FgjNk815](https://videopress.com/embed/FgjNk815)
+[Watch Video Highlight](https://videopress.com/embed/FgjNk815)
 
 But on closer listen, and especially with contextual knowledge of Bruce’s upbringing and family relationships, “Used Cars” reveals itself to be about shame, and about the dawning, inevitable distancing of parent and child.
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=67dYxOXPtfQ](https://www.youtube.com/watch?v=67dYxOXPtfQ)
+[Watch on Youtube: Used Cars](https://www.youtube.com/watch?v=67dYxOXPtfQ)
 
 Like much of *Nebraska*, “Used Cars” is a showcase for Bruce’s newfound, well-wrought songwriting economy. He skillfully conveys information through a combination of context, melodic construction, restrained vocals, and seemingly spare but powerfully important details–all working together to tell a story beneath a story. (“Used Cars” may, in fact, be the best example of this in Bruce’s catalog.)
 
@@ -79,23 +79,23 @@ We realize now, at the end, that Bruce isn’t just shunning the symbol of his s
 
 “Used Cars” made its live debut at the opening night of the Born in the U.S.A. Tour, and Bruce performed it regularly (if not continually) throughout the entire 1984-1985 tour. Here’s his very first performance from that tour-opening night in St. Paul, on June 29, 1984.
 
-[https://videopress.com/embed/BSKhRW5l](https://videopress.com/embed/BSKhRW5l)
+[Watch Video Highlight](https://videopress.com/embed/BSKhRW5l)
 
 After the tour ended, however, “Used Cars” disappeared for a decade. Perhaps Bruce’s reconciliation with his father made the song less necessary for him to sing; perhaps it was merely the lack of a quiet space to perform it.
 
 It may have been a little bit of the former, but time suggests that it’s primarily the latter, because Bruce brought the song back to the stage on his two solo acoustic tours in the years that followed. First (and appropriately), at a special homecoming show at his elementary school in Freehold in 1996:
 
-[https://www.youtube.com/watch?v=5CrvYwsr0oc](https://www.youtube.com/watch?v=5CrvYwsr0oc)
+[Watch on Youtube: Used Cars (Live at St. Rose of Lima School, Freehold, NJ - 11/8/1996)](https://www.youtube.com/watch?v=5CrvYwsr0oc)
 
 (It had to have felt therapeutic to sing the “kiss our asses goodbye” in a place that looms so large in his childhood.)
 
 It took another decade (and another acoustic tour) for “Used Cars” to make its next appearance, but when it did, Bruce provided more color commentary as introduction, introducing us to some of his dad’s most questionable vehicle choices. And this time, Bruce altered the money line to what he’d really been saying all along:
 
-[https://www.youtube.com/watch?v=6F33TWZJ5Ic](https://www.youtube.com/watch?v=6F33TWZJ5Ic)
+[Watch on Youtube: Bruce Springsteen - USED CARS 2005 (live)](https://www.youtube.com/watch?v=6F33TWZJ5Ic)
 
 Bruce played “Used Cars” only once more in the years since. It was another acoustic performance, a one-off theme-appropriate performance at a presidential campaign rally for Barack Obama in Ypsilanti Michigan.
 
-[https://www.youtube.com/watch?v=cnht72UlHOU](https://www.youtube.com/watch?v=cnht72UlHOU)
+[Watch on Youtube: Springsteen performing "Used Cars" in Ypsilanti, 10/6/08](https://www.youtube.com/watch?v=cnht72UlHOU)
 
 As I wrote at the top, there’s a lot of information conveyed in “Used Cars,” and even more emotion–and almost all of it lies beneath the surface. To this day it remains one of Bruce’s most nuanced and powerfully layered songs.
 
@@ -105,4 +105,4 @@ As I wrote at the top, there’s a lot of information conveyed in “Used Cars,�
 **First performed:** June 29, 1984 (St. Paul, MN)  
 **Last performed:** October 6, 2008 (Ypsilanti, MI)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

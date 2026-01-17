@@ -4,7 +4,7 @@ Let me start by saying something that’s probably tantamount to heresy among Br
 
 But I also find it lyrically messy at times, a victim of the verbal spewage that characterizes some of Bruce’s earliest work. Worse, the E Street Band is weak on the studio track–the power that drives this song in concert is limp on vinyl. The difference between the studio and live versions of “Lost in the Flood” is one of the starkest in Bruce’s catalog. Let’s dive in and check it out:
 
-[https://www.youtube.com/watch?v=D-JqB6PxmWc](https://www.youtube.com/watch?v=D-JqB6PxmWc)
+[Watch on Youtube: Lost in the Flood](https://www.youtube.com/watch?v=D-JqB6PxmWc)
 
 “Lost in the Flood” consists of three seemingly unrelated but thematically linked vignettes, with the narrator chiming in at the end of each like the Greek chorus in a tragedy. I love the structure–Bruce would employ it to even greater effect almost a decade later in “[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)“–and the fourth-wall-breaking device is clever. But the stories are uneven in style and approachability. The first and third stories are particularly dense with “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)“-style rapid-fire imagery, so they take some careful attention to appreciate. The middle story is plain-spoken but wears the most brilliant disguise.
 
@@ -85,7 +85,7 @@ Lost in the flood… of what? The junkie’s rush? The miasma of the street? The
 
 If you want to hear this song in its full power, you’ll need to turn to a live recording. My favorite is from the official *Live in New York City* release:
 
-[https://www.youtube.com/watch?v=ppYPQVXCpi8](https://www.youtube.com/watch?v=ppYPQVXCpi8)
+[Watch on Youtube: Bruce Springsteen Live in NYC Lost in the flood](https://www.youtube.com/watch?v=ppYPQVXCpi8)
 
 The instrumental prologue establishes a dire, impending tone. The entrance of the guitars and feedback is far more effective than the faux thundercrack on *Greetings*. And in the climactic battle, the reunited E Street Band are street fighters themselves: Max’s drums fire like gunshots (in later performances, almost literally), Bruce’s guitar is like a knife, and the whole band hits the street with a beautiful thud.
 

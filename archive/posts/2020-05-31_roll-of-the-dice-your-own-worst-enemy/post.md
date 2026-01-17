@@ -1,10 +1,10 @@
-Most accounts (including Bruce’s) contend that Bruce’s *Working on a Dream* album began with the recording of “[What Love Can Do](http://estreetshuffle.com/index.php/2018/11/25/roll-of-the-dice-what-love-can-do/)” during the *Magic* mixing sessions.
+Most accounts (including Bruce’s) contend that Bruce’s *Working on a Dream* album began with the recording of “[What Love Can Do](https://estreetshuffle.com/index.php/2018/11/25/roll-of-the-dice-what-love-can-do/)” during the *Magic* mixing sessions.
 
 But if you ask me, we can trace the true transition directly to “Your Own Worst Enemy,” one of the strongest tracks on *Magic.*
 
 Both *Magic* and *Working on a Dream* have distinct musical styles, with the latter characterized primarily by a lush California sound. They also have very specific lyrical themes: *Magic* is a political record, whereas *Working on a Dream* is a treatise on growing older (very much a sonic and thematic prelude to *Western Stars*).
 
-There are two songs on *Magic* that sound like they’d be much more at home on *Working on a Dream.* The first, “[Girls in Their Summer Clothes,](http://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)” fits the latter album like a glove. In both words and music, it’s clear that Bruce had already transitioned to his next album theme.
+There are two songs on *Magic* that sound like they’d be much more at home on *Working on a Dream.* The first, “[Girls in Their Summer Clothes,](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)” fits the latter album like a glove. In both words and music, it’s clear that Bruce had already transitioned to his next album theme.
 
 The second, however, is more curious: “Your Own Worst Enemy” definitely *sounds* like a *Working on a Dream* song, but lyrically it’s 100% *Magic.* I don’t have any inside info to support my hypothesis, but I believe that “Your Own Worst Enemy” represents Bruce’s true demarcation point, where he became newly re-captivated by the west coast sound but hadn’t yet worked his politically charged lyrics out of his system.
 
@@ -12,13 +12,13 @@ I could be wrong–it certainly wouldn’t be the first or last time Bruce would
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=QFI_WNHMa6E](https://www.youtube.com/watch?v=QFI_WNHMa6E)
+[Watch on Youtube: Your Own Worst Enemy](https://www.youtube.com/watch?v=QFI_WNHMa6E)
 
 At the time it was released, most reviews of *Magic* likened “Your Own Worst Enemy” to a Beach Boys song, and I can definitely hear the *Pet Sounds* influence. But I remember thinking I heard another band’s influence at work–especially that cello–but until a week ago I thought it was wishful thinking.
 
 When Bruce played “Andrew in Drag” during his recent DJ stint on E Street Radio, however, that clinched it for me: Bruce must have been listening to The Magnetic Fields around the time he composed “Your Own Worst Enemy.” Compare Bruce’s song with “Born on a Train.”
 
-[https://www.youtube.com/watch?v=H95jGsZmzmQ](https://www.youtube.com/watch?v=H95jGsZmzmQ)
+[Watch on Youtube: The Magnetic Fields - Born on a Train](https://www.youtube.com/watch?v=H95jGsZmzmQ)
 
 But whatever the influence, the backing track isn’t the most notable thing about “Your Own Worst Enemy” (although it’s almost unforgivable that Danny Federici is so buried in the mix–this song may represent his last great work).
 
@@ -96,15 +96,15 @@ That final couplet is one of Bruce’s best ever, certainly in its use of metaph
 
 The American flag–the very symbol of our patriotism–flying so high that it drifts away is Bruce’s brilliant metaphor for how patriotism-turned-nationalism can lead you astray from the very one you profess to love.
 
-For my money, “Your Own Worst Enemy” is tied with “[Long Walk Home](http://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” as the strongest thematic track on *Magic.* (“Girls in Their Summer Clothes” is still my favorite album track overall, even though it sticks out like a sore thumb on the disc). Both use layered metaphor to make incisive social commentary, but only “Long Walk Home” gets the recognition it deserves.
+For my money, “Your Own Worst Enemy” is tied with “[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” as the strongest thematic track on *Magic.* (“Girls in Their Summer Clothes” is still my favorite album track overall, even though it sticks out like a sore thumb on the disc). Both use layered metaphor to make incisive social commentary, but only “Long Walk Home” gets the recognition it deserves.
 
 Part of the reason “Your Own Worst Enemy” flies under the radar lies in how infrequently Bruce performs it in concert. During the Magic Tour, he performed “Long Walk Home” nightly, but “Your Own Worst Enemy” a mere half-dozen times. If you were fortunate enough to be in the house one of those six nights (as I was, in Seattle), it was probably apparent why Bruce didn’t play it more often: the lush production of the album track couldn’t fully translate to the stage.
 
-[https://www.youtube.com/watch?v=0xAhY7nmSKk](https://www.youtube.com/watch?v=0xAhY7nmSKk)
+[Watch on Youtube: Bruce Springsteen - Your Own Worst Enemy live](https://www.youtube.com/watch?v=0xAhY7nmSKk)
 
 But in 2010, Bruce took a run at a solo acoustic arrangement and hit it out of the park. Stripped of its backing track, Bruce’s lyrics commanded full attention (even though his astoundingly pure off-year vocals did their best to distract).
 
-[https://www.youtube.com/watch?v=9RK0l1zDOBU](https://www.youtube.com/watch?v=9RK0l1zDOBU)
+[Watch on Youtube: Bruce Springsteen "Your Own Worst Enemy" 11/5/10 Pittsburgh, Pa Soldiers & Sailors Memorial Hall](https://www.youtube.com/watch?v=9RK0l1zDOBU)
 
 Bruce performed “Your Own Worst Enemy” twice since, each time acoustic. I suspect that’s the way we’ll hear it from now on–and hear it we will, because sadly the song has only grown in relevance in recent years.
 
@@ -114,4 +114,4 @@ Recorded:** March-May 2007
 **First performed:** October 10, 2007 (East Rutherford, NJ)  
 **Last performed:** November 4, 2011 (Pittsburgh, PA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

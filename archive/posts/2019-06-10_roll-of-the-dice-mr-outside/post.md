@@ -4,17 +4,17 @@ When Bruce compiled a group of contemporary outtakes to include in his *The Ties
 
 So Scott did exactly what you and I would have done: he scoured the Internet for a bootleg copy of Bruce’s original home demo, and found one. Here’s that original recording from late 1979:
 
-[https://www.youtube.com/watch?v=O6pWlMrDVww](https://www.youtube.com/watch?v=O6pWlMrDVww)
+[Watch on Youtube: Mr Outside Bruce Springsteen](https://www.youtube.com/watch?v=O6pWlMrDVww)
 
 Like many of Bruce’s home demos, though, “Mr. Outside” was pretty raw. It included starts, stops, and mistakes as Bruce worked out the song.
 
 Undaunted, Scott carefully edited the song to remove the blemishes, paring away a full third of the recording. The result: the “official” version of “Mr. Outside” from *The Ties That Bind: The River Collection*.
 
-[https://www.youtube.com/watch?v=PLa8TaCNM28](https://www.youtube.com/watch?v=PLa8TaCNM28)
+[Watch on Youtube: Mr. Outside (Studio Outtake - 1980)](https://www.youtube.com/watch?v=PLa8TaCNM28)
 
 Exactly *why* Bruce and Toby went to the trouble, though, is a mystery.
 
-Musically, “Mr. Outside” is just one of a trilogy of never-finished songs that share the same melody, and the only one that ever saw any kind of official release. (See “[Whitetown](http://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/)” and “[You Gotta Be Kind](http://estreetshuffle.com/index.php/2018/02/23/roll-of-the-dice-you-gotta-be-kind/)” for Mr. Outside’s siblings.) It probably works best for “Mr. Outside” though: the devil-may-care melody perfectly underscores Bruce’s lyrics.
+Musically, “Mr. Outside” is just one of a trilogy of never-finished songs that share the same melody, and the only one that ever saw any kind of official release. (See “[Whitetown](https://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/)” and “[You Gotta Be Kind](https://estreetshuffle.com/index.php/2018/02/23/roll-of-the-dice-you-gotta-be-kind/)” for Mr. Outside’s siblings.) It probably works best for “Mr. Outside” though: the devil-may-care melody perfectly underscores Bruce’s lyrics.
 
 About those lyrics: it seems as if Bruce was reaching for a “Nowhere Man.” Written and recorded in 1979, Bruce’s titular character seems to foretell the stereotype that would come to define the coming decade:
 
@@ -39,7 +39,7 @@ Nothing really happens in “Mr. Outside.” Essentially, the song is just a cha
 *Them pretty things, babe, just look dumb*  
 *When you gotta take ’em when they come*
 
-None of the lyrics are particularly artful or insightful, and other than the early hints of songs yet to come (“[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” and “[Take ‘Em When They Come](http://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)“), there’s not a lot of interest here.
+None of the lyrics are particularly artful or insightful, and other than the early hints of songs yet to come (“[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” and “[Take ‘Em When They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)“), there’s not a lot of interest here.
 
 Since it technically counts as an official release, I’m tempted to rank it dead last in Bruce’s catalog. But that hardly seems fair for a song that seems like it was released more for historical purposes than for artistic reasons.
 
@@ -50,4 +50,4 @@ So I’ll give Mr. Outside a pass. As has Bruce: he’s never once performed it 
 **Released:** *The Ties That Bind: The River Collection*  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

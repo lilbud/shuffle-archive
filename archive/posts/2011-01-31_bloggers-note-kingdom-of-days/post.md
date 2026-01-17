@@ -8,7 +8,7 @@ Instead, I’m writing this in the waning days of 2025, in a country where “Vi
 
 Let’s take a listen.. And if you can, listen in the dark. Close your eyes. Let Bruce’s story wash over you. “Visitation at Fort Horn” is a challenging song to hold in our grasp, and it demands deep, attentive listening if we are to try.
 
-[https://www.youtube.com/watch?v=XK32rCoebpg](https://www.youtube.com/watch?v=XK32rCoebpg)
+[Watch on Youtube: BRUCE SPRINGSTEEN - visitation at fort horne](https://www.youtube.com/watch?v=XK32rCoebpg)
 
 “Visitation at Fort Horn” was written and recorded around the same time as “Lost in the Flood,” and the parallels are obvious.
 

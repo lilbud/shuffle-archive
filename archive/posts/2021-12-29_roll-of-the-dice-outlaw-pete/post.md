@@ -1,13 +1,9 @@
 > The past is never the past. It is always present. And you better reckon with it in your life and in your daily experience, or it will get you. It will get you really bad. It will come and devour you, it will remove you from the present. It will steal your future and this happens every day…
 > 
-> 
-> 
 > In other words, your past is your past. You carry it with you always. These are your sins. You carry them with you always. You better learn how to live with them, learn the story that they’re telling you. Because they’re whispering your future in your ear, and if you don’t listen, it will be contaminated by the toxicity of your past.
 > 
 > — *Bruce Springsteen to Mark Hagen, The Guardian, January 18, 2009*
 > Well the Maximum Lawman run down Flamingo chasing the Rat and the barefoot girl  And the kids ’round here look just like shadows, always quiet, holding hands
-> 
-> 
 > 
 > In the tunnels uptown, the Rat’s own dream guns him down as shots echo down them hallways in the night  No one watches when the ambulance pulls away or as the girl shuts out the bedroom light…
 > 
@@ -23,7 +19,7 @@ It’s one of Bruce Springsteen’s finest moments on record.
 
 I speak, of course, of “Outlaw Pete.”
 
-[https://www.youtube.com/watch?v=QRA6lWzCpCQ](https://www.youtube.com/watch?v=QRA6lWzCpCQ)
+[Watch on Youtube: Outlaw Pete](https://www.youtube.com/watch?v=QRA6lWzCpCQ)
 
 Were you expecting “Jungleland,” maybe?
 
@@ -138,13 +134,13 @@ If “Outlaw Pete” met a mixed reception from E Street Nation in its album for
 
 In Europe however, where his audiences ironically had a greater fascination and appreciation for American Westerns than his own fellow countrymen did, “Outlaw Pete” receive a warmer response.
 
-[https://www.youtube.com/watch?v=CKJtyeidL7Y](https://www.youtube.com/watch?v=CKJtyeidL7Y)
+[Watch on Youtube: Outlaw Pete (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=CKJtyeidL7Y)
 
 Still, Bruce was asking a lot of his audience, and he seemed to realize that by the end of the tour, where it had all but disappeared from the set, never to be seen again afterward.
 
 Never but once, that is: at the second of a pair of postscript shows to his High Hopes Tour in 2014, Bruce surprised the audience at his Pittsburgh show with Joe Grushecky by playing a one-time-only acoustic version of “Outlaw Pete” that stripped away its Hollywood trappings and revealed more clearly its powerful message and tragic outcome. Even if the original arrangement has always left you cold, the final minute and a half of the video below will stick with you for a long time to come.
 
-[https://www.youtube.com/watch?v=qGXuPFhviRw](https://www.youtube.com/watch?v=qGXuPFhviRw)
+[Watch on Youtube: Bruce Springsteen - 2014-05-23 Pittsburgh - Outlaw Pete (solo acoustic)](https://www.youtube.com/watch?v=qGXuPFhviRw)
 
 **Outlaw Pete  
 Recorded:** 2007-2008**Released:** *Working on a Dream (2009)***First performed:** March 23, 2009 (Asbury Park, NJ)**Last performed:** May 23, 2014 (Pittsburgh, PA)

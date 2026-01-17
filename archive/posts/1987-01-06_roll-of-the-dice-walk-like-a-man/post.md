@@ -6,7 +6,7 @@ Two years later, Episode Two–“[Independence Day](https://estreetshuffle.com/
 
 And that brings us to the conclusion: 1987’s “Walk Like a Man.”
 
-[https://www.youtube.com/watch?v=k2WDBy53x2k](https://www.youtube.com/watch?v=k2WDBy53x2k)
+[Watch on Youtube: Walk Like a Man](https://www.youtube.com/watch?v=k2WDBy53x2k)
 
 Unlike the previous two chapters, there’s no musical introduction to set the stage. “Walk Like a Man” has a cold open, and we’re immediately in the moment, but unsure of where and when.
 
@@ -63,13 +63,13 @@ If there’s a bone to pick with “Walk Like a Man,” it would have to be its 
 
 Unfortunately, Bruce almost never performs it. It was a mainstay of the first leg of the Tunnel of Love Express Tour, but it was dropped before the tour reached Europe. Still, you can hear a restrained full band treatment below.
 
-[https://www.youtube.com/watch?v=Gk0km8Ge3Es](https://www.youtube.com/watch?v=Gk0km8Ge3Es)
+[Watch on Youtube: Bruce Springsteen "Walk Like A Man" Joe Louis Arena, Detroit, MI March 28, 1988](https://www.youtube.com/watch?v=Gk0km8Ge3Es)
 
 In 2005, however, Bruce resurrected “Walk Like a Man” for a pair of solo acoustic performances on electric and acoustic piano. Spare and unadorned, the lyrical power of the song shines–even the wedding bells are subtle rather than distracting.
 
 In a brilliant stroke, Bruce switches mid-song from the electric to acoustic piano at the point when the scene shifts from the past to the present. The acoustic piano sound is grander, richer, and more resonant. The absence of percussion and the addition of harmonica make our walking less mechanical and more deliberate, determined, and brave. In my mind, this is the definitive arrangement of the song.
 
-[https://www.youtube.com/watch?v=LwNPvRvFhKg](https://www.youtube.com/watch?v=LwNPvRvFhKg)
+[Watch on Youtube: Walk Like A Man (solo piano) Bruce Springsteen 8/1/2005 Cincinnati, OH](https://www.youtube.com/watch?v=LwNPvRvFhKg)
 
 **Walk Like a Man**  
 **Recorded:** January 20, 1987  

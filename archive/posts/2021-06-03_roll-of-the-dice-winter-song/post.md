@@ -6,7 +6,7 @@ Even before his first album was released, Bruce Springsteen was already hard at 
 
 That’s too bad, because those early, pre-fame recordings are worthy of collection, and “Winter Song” is among the most impressive of the bunch.
 
-[https://www.youtube.com/watch?v=WWDQcqphUJg](https://www.youtube.com/watch?v=WWDQcqphUJg)
+[Watch on Youtube: Bruce Springsteen - Winter Song](https://www.youtube.com/watch?v=WWDQcqphUJg)
 
 Bruce recorded “Winter Song” in late January 1973, arranged as a solo piano showcase for the accomplished guitar hero. And while Bruce has always been more competent than dazzling at the piano, his artistry here is breathtaking.
 

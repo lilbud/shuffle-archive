@@ -4,6 +4,4 @@ But “Blinded” isn’t the only Springsteen original covered by Mann and his 
 
 Love them or hate them, they definitely put their own spin on Bruce’s material.
 
-[https://www.youtube.com/watch?v=2sJygu903kU](https://www.youtube.com/watch?v=2sJygu903kU)
-
- 
+[Watch on Youtube: Manfred Mann's Earth Band - For You (Official)](https://www.youtube.com/watch?v=2sJygu903kU)

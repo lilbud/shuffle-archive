@@ -2,13 +2,13 @@
 
 With those eerily prescient words, Bruce introduced “Man at the Top,” one of the very last songs he’d recorded during the *Born in the U.S.A.* sessions but that never made it on the album.
 
-[https://videopress.com/embed/Fc7MUod3](https://videopress.com/embed/Fc7MUod3)
+[Watch Video Highlight](https://videopress.com/embed/Fc7MUod3)
 
 Played solo and acoustically, sung introspectively, and backed by what is very possibly the E Street Band’s finest harmony, Bruce’s rendition of “Man at the Top” that night–the second of only three performances ever–still ranks (in my opinion, at least) among Bruce’s finest yet underrated on-stage moments.
 
 Certainly, it was stronger than the studio recording–released on *Tracks* a full thirteen years after its live debut, the studio version of “Man at the Top” moves a bit too swiftly, with too much jaunt in the backing track and too much brio in Bruce’s vocals.
 
-[https://www.youtube.com/watch?v=IWXqPv9JY8k](https://www.youtube.com/watch?v=IWXqPv9JY8k)
+[Watch on Youtube: Man At The Top (Studio Outtake - 1984)](https://www.youtube.com/watch?v=IWXqPv9JY8k)
 
 If you listen to both the ’85 and studio recordings above, you’ll hear two very different songs. Bruce is famous for pairing lyrics with backing tracks that belie the song’s message (most famously on the title track for that very tour), but sometimes the wrong arrangement doesn’t just hide the song’s meaning but instead actually subverts it.
 
@@ -49,13 +49,13 @@ Other than his offhand introductory comment (almost certainly a Donald Trump ref
 
 The first time he ever played “Man at the Top,” though, was a different story. More than a year prior, at the beginning of the tour and just a few months before the election of 1984, Bruce was careful not only to introduce the song as political, he even changed a lyric: “one thing in common they all got” became “the movie star to the astronaut” (a reference to the incumbent president and one of his rivals that year).
 
-[https://www.youtube.com/watch?v=N7s0WtNiTHI](https://www.youtube.com/watch?v=N7s0WtNiTHI)
+[Watch on Youtube: Bruce Springsteen - Man At The Top (1984-07-12)](https://www.youtube.com/watch?v=N7s0WtNiTHI)
 
 After the Born in the U.S.A. Tour ended, it seemed like Bruce had permanently retired “Man at the Top,” but it made a surprising one-time-only (so far) return almost 30 years later, in Kilkenny, Ireland on July 28, 2013.
 
 Performed in the same arrangement he used for the Born in the U.S.A. Tour, Bruce took full advantage of the talented backing vocalists that accompanied the E Street Band on their Wrecking Ball Tour. Just like the song’s last outing in 1985, this 2013 performance ranks among the highlights of the Wrecking Ball Tour.
 
-[https://www.youtube.com/watch?v=-evrNIjJLoc](https://www.youtube.com/watch?v=-evrNIjJLoc)
+[Watch on Youtube: Bruce Springsteen - Man At The Top (Live from Kilkenny 2013) - Dubbed audio](https://www.youtube.com/watch?v=-evrNIjJLoc)
 
 **Man at the Top  
 Recorded:** January 12, 1984  
@@ -63,4 +63,4 @@ Recorded:** January 12, 1984
 **First performed:** July 12, 1984 (East Troy, WI)  
 **Last performed:** July 28, 2013 (Kilkenny, Ireland)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

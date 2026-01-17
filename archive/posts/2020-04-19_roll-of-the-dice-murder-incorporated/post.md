@@ -10,17 +10,17 @@ Bruce felt he needed a modern video to draw attention to the 1982 studio outcast
 
 While the crowd’s anticipation built to a fever pitch, Bruce and the band rehearsed backstage, so calm and assured that you’d think they’d never skipped a day.
 
-[https://videopress.com/embed/4sXLc0yQ](https://videopress.com/embed/4sXLc0yQ)
+[Watch Video Highlight](https://videopress.com/embed/4sXLc0yQ)
 
 And with that, Bruce Springsteen and the E Street Band launched into their first song, ushering in the Reunion era with the world debut of a song that would someday serve as a centerpiece for every single show of their comeback tour: “Murder Incorporated.”
 
-[https://www.youtube.com/watch?v=Jj7hvKQ6Uhc](https://www.youtube.com/watch?v=Jj7hvKQ6Uhc)
+[Watch on Youtube: Bruce Springsteen - Murder Incorporated](https://www.youtube.com/watch?v=Jj7hvKQ6Uhc)
 
 Ferocious and crunchy, “Murder Incorporated” was the perfect song to re-introduce the new, more muscular E Street Band. (Now with more guitars!)
 
 The intervening years and additional life experience served the song well, making the original 1982 outtake cum *Greatest Hits* album track seem tame by comparison.
 
-[https://www.youtube.com/watch?v=oshU-C5zTWE](https://www.youtube.com/watch?v=oshU-C5zTWE)
+[Watch on Youtube: Murder Incorporated](https://www.youtube.com/watch?v=oshU-C5zTWE)
 
 The only downside from that night: the crowd’s excitement over the band’s reunion was so high and the song’s arrangement so fierce, that even though Bruce and the band played “Murder Incorporated” a full six times start-to-finish, the song’s message almost certainly went completely unnoticed.
 
@@ -28,13 +28,13 @@ And that’s too bad, because “Murder Incorporated” was as timely in 1995 as
 
 Bruce and the E Street Band performed “Murder Incorporated” a couple more high-profile times that spring, and each time the focus was more on the band than on the song.
 
-[https://www.youtube.com/watch?v=KLtihzJ6gdw](https://www.youtube.com/watch?v=KLtihzJ6gdw)
+[Watch on Youtube: Bruce Springsteen & E Street Band on Letterman, April 5, 1995](https://www.youtube.com/watch?v=KLtihzJ6gdw)
 
 So when Bruce embarked on solo acoustic tour later in the year (that would stretch on for over a year-and-a-half, delaying the long-wished-for Reunion Tour), he made sure to feature “Murder Incorporated” in a setting and arrangement where its lyrical content couldn’t be ignored.
 
-Bruce played “Murder Incorporated” over fifty times solo acoustic before he ever played it in a proper concert with the E Street Band, and fortunately one of those performances is available as part of Bruce’s official archive series (get it [here](http://live.brucespringsteen.net/live-music/0,17589/Bruce-Springsteen-mp3-flac-download-3-19-1996-Kings-Hall-Belfast-UK.html)).
+Bruce played “Murder Incorporated” over fifty times solo acoustic before he ever played it in a proper concert with the E Street Band, and fortunately one of those performances is available as part of Bruce’s official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,17589/Bruce-Springsteen-mp3-flac-download-3-19-1996-Kings-Hall-Belfast-UK.html)).
 
-[https://www.youtube.com/watch?v=UEf8P4jNB7E](https://www.youtube.com/watch?v=UEf8P4jNB7E)
+[Watch on Youtube: Murder Incorporated (Live at King's Hall, Belfast, UK - 3/19/1996)](https://www.youtube.com/watch?v=UEf8P4jNB7E)
 
 Stripped down to its mournful essence, “Murder Incorporated” reveals itself as song not of anger but of hopelessness. The song takes its name from the real-life organization of the same name–well, unofficially at least, because the real Murder, Inc. never had a true name. It was simply an enforcement organization for the mob, killing and maiming for a price.
 
@@ -97,21 +97,21 @@ It’s enough to make us all frustrated.
 
 **Bonus #1:** No essay on “Murder Incorporated” could be complete without the spectacular *Live in New York City* performance. Recorded at the very end of the Reunion Tour with the E Street Band at the peak of their powers, after performing the song every single night of the tour without exception, “Murder Incorporated” is a tour de force, one of Bruce’s most exciting performances on official video.
 
-[https://www.youtube.com/watch?v=hJhULVsCctI](https://www.youtube.com/watch?v=hJhULVsCctI)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Murder Incorporated (Live in New York City)](https://www.youtube.com/watch?v=hJhULVsCctI)
 
 **Bonus #2:** “Murder Incorporated” actually made its proper public concert debut not with the E Street Band or even solo but with Joe Grushecky and the Houserockers. Bruce, Joe, and the band played it several times during the 1995 mini-tour for [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/), which featured Bruce as an honorary Houserocker.
 
 Bruce would continue to perform “Murder Incorporated” many times with the Houserockers over the years that followed. Here’s one such great performance from Light of Day 2010.
 
-[https://www.youtube.com/watch?v=L6rjiJmDymU](https://www.youtube.com/watch?v=L6rjiJmDymU)
+[Watch on Youtube: Murder Inc. - Springsteen with Joe Grushecky & the Houserockers - Jan 16 2010](https://www.youtube.com/watch?v=L6rjiJmDymU)
 
 **Bonus #3:** Here’s an alternate unreleased mix of the same recording used for the official release. It’s most notable for its very different introduction and much more prominent piano and organ. Bruce made the right choice for the album.
 
-[https://videopress.com/embed/uBzzfUQ5](https://videopress.com/embed/uBzzfUQ5)
+[Watch Video Highlight](https://videopress.com/embed/uBzzfUQ5)
 
 **Bonus #4:** Here’s three minutes of Patti and Nils rehearsing their backing vocals in 1995. Just because.
 
-[https://www.youtube.com/watch?v=nJPDVsqagF0](https://www.youtube.com/watch?v=nJPDVsqagF0)
+[Watch on Youtube: Patti Scialfa and Nils Lofgren rehearsing Murder Incorporated 1996](https://www.youtube.com/watch?v=nJPDVsqagF0)
 
 **Murder Incorporated  
 Recorded:** May 3-4, 1982  
@@ -119,4 +119,4 @@ Recorded:** May 3-4, 1982
 **First performed:** February 21, 1995 (New York City, NY)  
 **Last performed:** February 2, 2017 (Melbourne, Australia)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,7 +2,7 @@
 
 One week before *The Guardian* published that interview, Bruce stood on the stage at the Beverly Hilton Hotel in Los Angeles and accepted his Best Original Song Golden Globe Award for “The Wrestler.”
 
-[https://www.youtube.com/watch?v=uEbhqOPKHdo](https://www.youtube.com/watch?v=uEbhqOPKHdo)
+[Watch on Youtube: Bruce Springsteen Wins Best Original Song Motion Picture - Golden Globes 2009](https://www.youtube.com/watch?v=uEbhqOPKHdo)
 
 In his acceptance speech, he thanked his friend Mickey Rourke (who won the Best Actor award that night for his performance in *The Wrestler)* for handing him the opportunity, and he shared how the request came about:
 
@@ -16,7 +16,7 @@ Whatever the reason, “The Wrestler” is one of the most beautiful songs in Br
 
 There’s no story to “The Wrestler;” it’s simply a character sketch. To the degree that it’s “about” anything, “The Wrestler” is about resilience in the face of hopelessness.
 
-[https://videopress.com/embed/mOPjCZv9](https://videopress.com/embed/mOPjCZv9)
+[Watch Video Highlight](https://videopress.com/embed/mOPjCZv9)
 
 Bruce introduces us to a character who knows his place in the world, aches to transcend it, but can’t let it go. He’s an aging wrestler, which means he’s an entertainer, and the way he entertains is through his physical pain. Pain is all he knows, and it infects and infuses his emotional life as well.
 
@@ -76,13 +76,13 @@ As for the video, which Bruce made with Thom Zimny and Noah Hunter, it’s one o
 
 Here’s a behind-the-scenes look at the making of the video:
 
-[https://videopress.com/embed/Q4FkgSKL](https://videopress.com/embed/Q4FkgSKL)
+[Watch Video Highlight](https://videopress.com/embed/Q4FkgSKL)
 
 The accolades and awards for “The Wrestler” were still fresh when Bruce kicked off his Working on a Dream Tour two months later, and he understandably tried to find a home for the song in his set lists.
 
-[https://www.youtube.com/watch?v=HX9-qkKEyS4](https://www.youtube.com/watch?v=HX9-qkKEyS4)
+[Watch on Youtube: Bruce Springsteen - The Wrestler - Live From Glendale, Arizona - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=HX9-qkKEyS4)
 
-[https://www.youtube.com/watch?v=oQVwoOUQhlI](https://www.youtube.com/watch?v=oQVwoOUQhlI)
+[Watch on Youtube: The Wrestler (Live at Nassau Coliseum, Uniondale, NY - 5/4/2009)](https://www.youtube.com/watch?v=oQVwoOUQhlI)
 
 From late March through the early days of June, Bruce performed “The Wrestler” regularly, but the song never really fit thematically. (Although to be fair, that was a tour that struggled throughout to find its message.)
 
@@ -96,4 +96,4 @@ Recorded:** 2008
 **First performed:** March 23, 2009 (Asbury Park, NJ)  
 **Last performed:** June 4, 2009 (Stockholm, Sweden)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

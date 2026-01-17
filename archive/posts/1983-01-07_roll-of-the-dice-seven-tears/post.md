@@ -1,8 +1,8 @@
 Here’s another diamond in the rough from Bruce’s home studio recording sessions in early 1983: a short, tight lament called “Seven Tears.”
 
-[https://www.youtube.com/watch?v=UHoe0T9Rxd0](https://www.youtube.com/watch?v=UHoe0T9Rxd0)
+[Watch on Youtube: Bruce Springsteen - Seven Tears (Official Audio)](https://www.youtube.com/watch?v=UHoe0T9Rxd0)
 
-In Bruce’s typical “I had a job, I had a girl” fashion (in fact, the first two verses foreshadow two songs that would end up on his next album–“[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/),” and the title track, “[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)“), Bruce neatly and efficiently lays out the story of a man who had it all and lost it all–and now he memorializes his seven years of happiness with a facial tattoo of seven tears as a mark of his everlasting sadness.
+In Bruce’s typical “I had a job, I had a girl” fashion (in fact, the first two verses foreshadow two songs that would end up on his next album–“[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/),” and the title track, “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)“), Bruce neatly and efficiently lays out the story of a man who had it all and lost it all–and now he memorializes his seven years of happiness with a facial tattoo of seven tears as a mark of his everlasting sadness.
 
 *I had a wife, I had a child*  
 *I had a home up on a hill*  

@@ -1,7 +1,5 @@
 > “I think it’s one of the finest songs ever written on the subject, but I don’t know what the competition might be. Needless to say, the field is wide open.”
 > 
-> 
-> 
 > — *Bruce Springsteen introducing “Red Headed Woman,” September 25, 1996*
 
 Ladies and gentlemen, the comedy stylings of Mr. Bruce Springsteen:
@@ -24,11 +22,11 @@ But hey, I’m grateful he put it all out there. He’s saved me (and you) from 
 
 Anyway, “Red Headed Woman” made its debut at Bruce’s legendary Christic acoustic shows in November 1990. It was Bruce’s first public concert appearance since mothballing the E Street Band the year prior, and while I can’t say for sure what the audience was expecting that night, I’m fairly certain it wasn’t a yodeling Springsteen waxing poetic about oral sex.
 
-[https://www.youtube.com/watch?v=TFhsQ82ONZo](https://www.youtube.com/watch?v=TFhsQ82ONZo)
+[Watch on Youtube: Red Headed Woman - Bruce Springsteen (16-11-1990 Shrine Auditorium, Los Angeles, California)](https://www.youtube.com/watch?v=TFhsQ82ONZo)
 
 Now if it was just that pair of off-tour performances, “Red Headed Woman” might have stayed an under-the-radar lark. But in one of the more famous episodes of *MTV Unplugged*, Bruce chose to *open the show* with it before plugging in immediately after and abandoning the entire point of the series.
 
-[https://www.youtube.com/watch?v=-5c-tGH-J4M](https://www.youtube.com/watch?v=-5c-tGH-J4M)
+[Watch on Youtube: Bruce Springsteen - Red Headed Woman (from In Concert/MTV Plugged)](https://www.youtube.com/watch?v=-5c-tGH-J4M)
 
 “Red Headed Woman” was canon from that point on.
 
@@ -82,13 +80,13 @@ It’s true that in later years, Bruce added a verse to tilt the song a little m
 *I was Moses kneeling for the burning bush*  
 *Of a red headed woman*
 
-[https://www.youtube.com/watch?v=s94HqnK6RQE](https://www.youtube.com/watch?v=s94HqnK6RQE)
+[Watch on Youtube: Springsteen - Red Headed Woman (Clip from Springsteen & I) .... Cunnilingus Intro!!!!!!](https://www.youtube.com/watch?v=s94HqnK6RQE)
 
 (And if you expected something cleverer with four years to think up an additional verse, you’re missing the point of the song.)
 
 “Red Headed Woman” still makes occasional appearances in the post-Reunion E Street Band era, and when Bruce looks past the novelty aspect of the song and leans into it, it works surprisingly well in country swing form and even better as a duet.
 
-[https://www.youtube.com/watch?v=yNTF-ffNxmM](https://www.youtube.com/watch?v=yNTF-ffNxmM)
+[Watch on Youtube: Bruce Springsteen - Red Headed Woman](https://www.youtube.com/watch?v=yNTF-ffNxmM)
 
 (Darn that editor–they cut away at some of the most entertaining close-up reaction shots!)
 
@@ -98,7 +96,7 @@ Nine years later, Bruce had the chance to do it again. At his Reunion Tour show 
 
 Oh, and not just Bonnie, but also Bruce Hornsby, Mary Chapin Carpenter, Shawn Colvin, and Jackson Browne–certainly one of the more unusual guest appearances on an E Street stage.
 
-[https://www.youtube.com/watch?v=34cYMiXkFOE](https://www.youtube.com/watch?v=34cYMiXkFOE)
+[Watch on Youtube: Bruce Springsteen - Red Headed Woman [Washington September 3, 1999]](https://www.youtube.com/watch?v=34cYMiXkFOE)
 
 **Red Headed Woman  
 Recorded:** Late 1990  

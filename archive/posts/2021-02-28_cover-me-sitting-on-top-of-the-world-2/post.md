@@ -8,17 +8,17 @@ As with his Steel Mill period prior, Bruce curated his setlists so that the band
 
 One of the songs in their set list was a cover of “Sitting on Top of the World,” first recorded by The Mississippi Sheiks all the way back in 1930.
 
-[https://www.youtube.com/watch?v=RqeW7-tmVU4](https://www.youtube.com/watch?v=RqeW7-tmVU4)
+[Watch on Youtube: Roots of Blues -- The Mississippi Sheiks „Sitting On Top Of T](https://www.youtube.com/watch?v=RqeW7-tmVU4)
 
 In 1957, Howlin’ Wolf transformed the Sheiks’ country blues original into a Chicago blues arrangement, updating the lyrics in the process.
 
-[https://www.youtube.com/watch?v=qexY8RlFtII](https://www.youtube.com/watch?v=qexY8RlFtII)
+[Watch on Youtube: Howlin' Wolf - Sitting On Top Of The World](https://www.youtube.com/watch?v=qexY8RlFtII)
 
 That version of “Sitting on Top of the World” became the definitive one, and Howlin’ Wolf would often close his sets with it.
 
 It’s also the version that Bruce clearly modeled his arrangement after, although he was almost certainly also influenced by Cream’s slower-paced version from their 1968 album, *Wheels of Fire–*speculation supported both by the omission of Howlin’ Wolf’s final verse by both Bruce and Cream, and by the fact that the song is believed to have been performed by Bruce’s previous band Earth as early as September 1968, only three months after the release of Cream’s album. (Unfortunately, no audio of any Earth gig circulates to confirm.)
 
-[https://www.youtube.com/watch?v=QyyFHmNtwIU](https://www.youtube.com/watch?v=QyyFHmNtwIU)
+[Watch on Youtube: Cream - Sitting On Top Of The World](https://www.youtube.com/watch?v=QyyFHmNtwIU)
 
 But we do have one recording of Bruce performing it with his eponymous band in February 1972 during their month-long residency at The Back Door in Richmond, Virginia.
 
@@ -26,7 +26,7 @@ And as sacrilegious as it may be to say: I think Bruce’s version smokes all th
 
 But oh, that wailing guitar solo finish by 22-year-old Bruce… those final two minutes rank among my favorite “Pre-Street” moments on record.
 
-[https://videopress.com/embed/iKPVOvfb](https://videopress.com/embed/iKPVOvfb)
+[Watch Video Highlight](https://videopress.com/embed/iKPVOvfb)
 
 If you’re not already duly impressed by that performance, then consider this: just two months later, Bruce was already writing and recording the songs that would appear not long after on [*Greetings From Asbury Park, N.J*.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)
 

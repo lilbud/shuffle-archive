@@ -6,7 +6,7 @@ If you’re still with me, you’re my kind of people.
 
 And it ain’t pretty. Which is too bad, because “She’s a Woman” sounds like it must have been a pretty funky set piece for the band. Take a listen, and do your best to pick out the lyrics (I’ve taken a stab at it after the audio).
 
-[https://videopress.com/embed/8OYX83LN](https://videopress.com/embed/8OYX83LN)
+[Watch Video Highlight](https://videopress.com/embed/8OYX83LN)
 
 Lyrically, we can make out enough of “She’s a Woman” to get a sense of the song. There’s not a lot of substance here: if we compare it to “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/),” which he’d write only three years later, we find a similar theme but a complete lack of imagery.
 
@@ -40,4 +40,4 @@ Never recorded**
 **First performed:** December 17, 1971 (New Brunswick, NJ)  
 **Last performed:** February 17, 1972 (Freehold, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

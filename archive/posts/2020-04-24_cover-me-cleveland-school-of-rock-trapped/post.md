@@ -1,4 +1,4 @@
-Okay, I’m about to break my own rules, because technically “[Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” is not a Springsteen original–therefore this is really a Jimmy Cliff cover rather than a Springsteen cover.
+Okay, I’m about to break my own rules, because technically “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” is not a Springsteen original–therefore this is really a Jimmy Cliff cover rather than a Springsteen cover.
 
 But I’m making an exception for two reasons:
 
@@ -8,4 +8,4 @@ But more importantly: here’s a whole stage full of talented and passionate you
 
 So take a few minutes of your quarantine to watch the students of the Cleveland School of Rock perform a terrific cover of “Trapped” in front of the Rock and Roll Hall of Fame. You’ll be glad you did.
 
-[https://www.youtube.com/watch?v=T6DzfcyUlTU](https://www.youtube.com/watch?v=T6DzfcyUlTU)
+[Watch on Youtube: Bruce Springsteen (Jimmy Cliff) - Trapped - Cleveland School of Rock](https://www.youtube.com/watch?v=T6DzfcyUlTU)

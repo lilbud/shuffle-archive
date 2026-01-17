@@ -13,7 +13,7 @@ She’s perennially mystified by this song:
 
 I tell her she’s listening to the wrong part of the song: The lyrics are just the accompaniment. The real declaration of love is that saxophone solo.
 
-[https://www.youtube.com/watch?v=ElVcxC89lqk](https://www.youtube.com/watch?v=ElVcxC89lqk)
+[Watch on Youtube: Bruce Springsteen - Drive All Night](https://www.youtube.com/watch?v=ElVcxC89lqk)
 
 Lord, that sax. Clarence Clemons may have turned in some more technically impressive solos in his time, but in “Drive All Night,” Clarence carries the emotional heft of the song and delivers one of the most ardent, powerful, true-blue love notes ever recorded.
 
@@ -89,19 +89,19 @@ He’ll drive all night.
 
 Interestingly, for long-time fans, “Drive All Night” began in concert: the first time Bruce sang the lyrics was in an introduction to “[Backstreets](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)” on New Years’ Eve in 1977. That show is available on YouTube, but it omits the one-time-only introduction. Check it out below to hear the first-ever proto-“Drive All Night.”
 
-[http://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3?_=2](http://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3?_=2)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/02/204-Drive-All-Night-online-audio-converter.com_.mp3>
 
 But many fans were first exposed to the lyrics in a mid-song performance art piece that characterized “Backstreets” from 1977 through 1978. The interlude came to be known as “Sad Eyes” and typically conveyed a tale of anger and betrayal, but at times during the Darkness tour, some familiar lines shone through:
 
-[https://www.youtube.com/watch?v=JQxmrR8-ZN0?start=337](https://www.youtube.com/watch?v=JQxmrR8-ZN0?start=337)
+[Watch on Youtube: 22. Backstreets (Bruce Springsteen - Live At The Roxy Theatre 7-7-1978)](https://www.youtube.com/watch?v=JQxmrR8-ZN0?start=337)
 
-[https://www.youtube.com/watch?v=11uFGAHM9io?start=316](https://www.youtube.com/watch?v=11uFGAHM9io?start=316)
+[Watch on Youtube: Backstreets (w/ Sad Eyes) - Bruce Springsteen & the E Street Band (Passaic 9/19/1978)](https://www.youtube.com/watch?v=11uFGAHM9io?start=316)
 
 (The melody was familiar too, for Van Morrison fans–Bruce’s mid-song reverie was very much influenced by if not an homage to Morrison’s “Madam George.”)
 
-[https://www.youtube.com/watch?v=xrOgYjp20j0](https://www.youtube.com/watch?v=xrOgYjp20j0)
+[Watch on Youtube: Van Morrison - Madame George](https://www.youtube.com/watch?v=xrOgYjp20j0)
 
 The piece was so different from night to night that would be natural to wonder whether Bruce was inventing lyrics on the spot. Maybe he was, but not for “Drive All Night.” That song had already been recorded, but not released–so Bruce incorporated the powerful lines into his mid-set performance piece. (I’ve read accounts that maintain that Bruce wrote the song as a by-product of the “Sad Eyes” interlude, but studio session notes clearly show that isn’t the case.)
 
@@ -109,25 +109,25 @@ Here’s an early cut of the song, recorded in August 1977. It lacks the basslin
 
 (The lyrics are also rough– “your jewelers’ eye” is a bit clunky and would be dropped before the final recording.)
 
-[https://www.youtube.com/watch?v=HERGdJyu35s](https://www.youtube.com/watch?v=HERGdJyu35s)
+[Watch on Youtube: Bruce Springsteen Drive All Night #2 alternate Version](https://www.youtube.com/watch?v=HERGdJyu35s)
 
 Here’s an almost final version–“jeweler’s eye” is still in there, but otherwise, it’s very close to the final cut. In fact, the instrumental track is the same one used in the album version, and the sax solo is up-front and bright.
 
-[https://www.youtube.com/watch?v=uFm3Y9-BYIs](https://www.youtube.com/watch?v=uFm3Y9-BYIs)
+[Watch on Youtube: Bruce Springsteen Drive All Night #1 Original Version](https://www.youtube.com/watch?v=uFm3Y9-BYIs)
 
 If you’re lucky enough to catch “Drive All Night” live in concert, it’s bound to be the highlight of the night. The song breathes and builds and bursts with emotion, especially on the recent River tour.
 
-I chased this song for years and finally landed it in [St. Louis in 2008](http://estreetshuffle.com/index.php/2018/08/23/where-the-band-was-st-louis-august-23-2008/)–and then somehow managed to be present at four more shows (out of a total of only 11) where it was played between then and 2014. I’ve now heard it live a total of fourteen times, and it never loses its power of transport.
+I chased this song for years and finally landed it in [St. Louis in 2008](https://estreetshuffle.com/index.php/2018/08/23/where-the-band-was-st-louis-august-23-2008/)–and then somehow managed to be present at four more shows (out of a total of only 11) where it was played between then and 2014. I’ve now heard it live a total of fourteen times, and it never loses its power of transport.
 
 Here are two of my favorite live performances:
 
 The first features just Bruce, Steve, and Clarence playing acoustically in 2005. Steve’s acoustic six-string laces the determined vocals with delicacy and fragility, and the effect is gorgeous–this may be my favorite arrangement of the song.
 
-[https://www.youtube.com/watch?v=nj0W84Y624c](https://www.youtube.com/watch?v=nj0W84Y624c)
+[Watch on Youtube: Drive All Night Bruce Springsteen, Little Steven, and "BIG MAN" Clarence Clemons 11/19/2005 FL](https://www.youtube.com/watch?v=nj0W84Y624c)
 
 …but my all-time favorite performance is from the second night of three in Los Angeles in 2016. I don’t know what sparked it, but the band’s performance was transcendent (Jake does his uncle proud), and both Bruce and the crowd recognized it. Bruce stretched the song out even longer than usual to a full twelve minutes, building coda upon coda as the audience broke out their lighters and cellphones, lighting up the arena in a beautiful moment of community. You can see it happen shortly after the ten-minute mark.
 
-[https://www.youtube.com/watch?v=c9g0jM7KDy4](https://www.youtube.com/watch?v=c9g0jM7KDy4)
+[Watch on Youtube: Drive All Night - Bruce Springsteen - Los Angeles Sports Arena - 19th March 2016](https://www.youtube.com/watch?v=c9g0jM7KDy4)
 
 That final minute, with the band aglow and the audience rapt and Bruce refusing to end the song–that minute is one of my favorite minutes at a Springsteen show.
 
@@ -136,4 +136,4 @@ Or as Bruce says as the final bars fade, “That’s nice.”
 **Drive All Night  
 Recorded:** 1977 (music), 1980 (vocals)**Released:** *The River* (1980)**First performed:** October 18, 1980 (St. Louis, MO)**Last performed:** January 27, 2017 (Perth, Australia)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

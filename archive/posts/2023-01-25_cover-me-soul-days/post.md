@@ -8,13 +8,13 @@ Heck, it’s probably the last song *Bruce* expected. As he admitted to his NPR 
 
 There’s a good reason for that: it was one of the very last songs Gray ever recorded, the title track to his final album. Released in 2001, neither the song nor the album attracted much in the way of notice or airplay. Even so, “Soul Days” is a sweet wistful track that transports its listener to a time when their life had a soundtrack. (It would have made a fine and far more fitting title track for Bruce’s album.)
 
-[https://www.youtube.com/watch?v=Xg47bw9ilgA](https://www.youtube.com/watch?v=Xg47bw9ilgA)
+[Watch on Youtube: Soul Days](https://www.youtube.com/watch?v=Xg47bw9ilgA)
 
 For more than twenty years, “Soul Days” idled in obscurity. However, all it took was the right person stumbling upon it for the overlooked gem to finally find its audience.
 
 “Soul Days” is easily the youngest song on an album widely (and mistakenly) considered to be a collection of 1960s and 1970s classics. It’s also probably the least familiar to his audience. That gave Springsteen the opportunity to take a bit more liberty than he did with most of the album.
 
-[https://www.youtube.com/watch?v=JQuq72GnDOQ](https://www.youtube.com/watch?v=JQuq72GnDOQ)
+[Watch on Youtube: Bruce Springsteen - Soul Days (Official Audio)](https://www.youtube.com/watch?v=JQuq72GnDOQ)
 
 Bruce made a few surgical lyrical alterations throughout the song, but the coda is a complete departure.
 

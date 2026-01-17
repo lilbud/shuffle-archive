@@ -6,15 +6,15 @@ And by all accounts, it was a great show. Listening to it years later, I love ho
 
 “[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)” was a stunner–it was only the second time the song had been performed since 1988, and it was the early highlight of the show for me:
 
-[https://www.youtube.com/watch?v=XNDtMzKT7Qw](https://www.youtube.com/watch?v=XNDtMzKT7Qw)
+[Watch on Youtube: Bruce Springsteen - Two Faces - Oakland, May 5 2005](https://www.youtube.com/watch?v=XNDtMzKT7Qw)
 
-In all, I heard fifteen(!) songs I’d never heard before that night, including the tour premiere of “[Nebraska.](http://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)”
+In all, I heard fifteen(!) songs I’d never heard before that night, including the tour premiere of “[Nebraska.](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)”
 
-[https://www.youtube.com/watch?v=k3CJROja3Tc](https://www.youtube.com/watch?v=k3CJROja3Tc)
+[Watch on Youtube: Bruce Springsteen - Nebraska - Oakland, May 5 2005](https://www.youtube.com/watch?v=k3CJROja3Tc)
 
-We even lucked out with the tour premiere of “[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/),” my personal favorite Bruce song and only the second time it had ever been performed acoustically.
+We even lucked out with the tour premiere of “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/),” my personal favorite Bruce song and only the second time it had ever been performed acoustically.
 
-[https://www.youtube.com/watch?v=psFjDUQuviY](https://www.youtube.com/watch?v=psFjDUQuviY)
+[Watch on Youtube: Bruce Springsteen - Land of Hope and Dreams - Oakland, May 5 2005](https://www.youtube.com/watch?v=psFjDUQuviY)
 
 …but even though I was there, I have to rely on the bootleg for to remind me of most of the detail and nuance of Bruce’s performance that night.
 
@@ -23,5 +23,3 @@ Why? Because sitting directly in front of me and one seat to the right was the l
 So of all the shows I’ve attended, this is the one I remember least vividly–the downside of proximity to your heroes.
 
 Luckily, I was able to attend three more shows that tour, and those shows I remember perfectly–they were full of riches. But that’s a story for another time.
-
- 

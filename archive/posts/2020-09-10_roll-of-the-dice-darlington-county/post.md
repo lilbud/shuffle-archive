@@ -1,24 +1,22 @@
 > Roger Scott to Bruce Springsteen: “*The River*… was full of these sharply contrasting songs, these wild celebrations alongside these hopeless people.”
 > 
-> 
-> 
 > Bruce Springsteen to Roger Scott: “On *The River*, I’d have a song like this and a song like that because I didn’t know how to combine it. By the time I’d got to the *Born in the U.S.A.* album, I kinda combined those two things. Like ‘Darlington County…'” (*Hot Press,* November 2, 1984)
 
 Bruce might have been a bit disingenuous in that 1984 interview, because “Darlington County” dates back to the [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)sessions in 1977. Although we can’t be sure the song hadn’t substantially changed in the intervening years (no recording of the Darkness version has ever escaped into the wild, if one even exists), it’s more likely that it took Bruce a while to grow comfortable with the idea of combining farce with fiction, telling a short story as a comedy rather than a drama.
 
 “Darlington County” is quite the comedy, and its characters have quite the backstory. Wayne and Wilson are South Carolina delivery men on the run from the Highway Patrol after a roadside accident involving illegally transported live chickens while on the way to Wilson’s romantic rendezvous with Bobby Jean’s sister.
 
-(If you’re scratching your head trying to figure out that last paragraph, you obviously haven’t listened to “[Delivery Man](http://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/),” Bruce’s 1983 unreleased prequel to “Darlington County.” [Go do that now](http://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/), and then come back.)
+(If you’re scratching your head trying to figure out that last paragraph, you obviously haven’t listened to “[Delivery Man](https://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/),” Bruce’s 1983 unreleased prequel to “Darlington County.” [Go do that now](https://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/), and then come back.)
 
 “Darlington County” picks up as the two boys cross the county line, determined to find new work and romance where the law won’t find them.
 
-[https://www.youtube.com/watch?v=1t5JvmqTx94](https://www.youtube.com/watch?v=1t5JvmqTx94)
+[Watch on Youtube: Darlington County](https://www.youtube.com/watch?v=1t5JvmqTx94)
 
 We can’t dive into the story, though, until we address a couple of elephants in the room.
 
 By now, we’re used to Bruce wearing his influences on his sleeve–it’s not that hard on any given track to figure out who or what musically inspired it. But “Darlington County” may take the prize for the most obvious homage in his catalog–if Bruce had tipped his hat toward “Honky Tonk Women” any further, we’d be discussing a cover rather than an original.
 
-[https://www.youtube.com/watch?v=61jfm219ArA](https://www.youtube.com/watch?v=61jfm219ArA)
+[Watch on Youtube: Honky Tonk Women ((Original Single Stereo Version))](https://www.youtube.com/watch?v=61jfm219ArA)
 
 So similar are the two songs’ introductions and backbeat (right down to the ever-present cowbell) that when Bruce plays “Darlington County” live, he often deliberately teases his audience with a few bars of the Rolling Stones’ 1969 classic (and sometimes even a few lines).
 
@@ -79,29 +77,29 @@ But somehow the loose, ragged performance seems to suit the story rather than de
 
 Surprisingly, though, when it came time to re-enact “Darlington County” during its first tour, Bruce chose E Street newbie Nils Lofgren as his partner in crime over character actor Clarence Clemons–likely because Nils’ tenor was much better suited for recreating Little Steven’s backing vocals, but I suspect Bruce also realized that an interracial small-time crime/buddy movie in the South was going to be a lot harder to play for laughs.
 
-[https://www.youtube.com/watch?v=X8_h5iDU1iA](https://www.youtube.com/watch?v=X8_h5iDU1iA)
+[Watch on Youtube: Darlington County - Bruce Springsteen - Paris 85](https://www.youtube.com/watch?v=X8_h5iDU1iA)
 
 Over the years, Nils has become as inseparable from “Darlington County” as Wayne himself, always appearing at Bruce’s side during the mid-song instrumental break, even if some venues require him to hustle faster and further than others.
 
-[https://www.youtube.com/watch?v=-DQXxCfIS2w](https://www.youtube.com/watch?v=-DQXxCfIS2w)
+[Watch on Youtube: Bruce Springsteen - Darlington County (from Born In The U.S.A. Live: London 2013)](https://www.youtube.com/watch?v=-DQXxCfIS2w)
 
 One of my favorite Bruce-and-Nils “Darlington County” performances, though, is the most obscure one: check out this acoustic performance from 1986. Danny Federici accompanies on accordion as well, but it’s clear that the song belongs to Bruce and Nils.
 
-[https://www.youtube.com/watch?v=w8AY-FaLwZY](https://www.youtube.com/watch?v=w8AY-FaLwZY)
+[Watch on Youtube: Bruce Springsteen - Darlington County (Mountain View, October 13, 1986) [with dubbed audio]](https://www.youtube.com/watch?v=w8AY-FaLwZY)
 
 “Darlington County” became an instant and perennial favorite for fans and artist alike. Other than the thematically misfitting Tunnel of Love, Ghost of Tom Joad Tours, and Seeger Sessions Tour, it’s made appearances on every tour for the past 35 years.
 
 Something tells me we’ll be celebrating the misadventures of Wayne and Wilson for a long time to come.
 
-[https://www.youtube.com/watch?v=SsrrPXL25wM](https://www.youtube.com/watch?v=SsrrPXL25wM)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Darlington County LIVE - Atlanta, GA 2/3/23](https://www.youtube.com/watch?v=SsrrPXL25wM)
 
 **Bonus #1:** Although it’s not nearly as obvious as “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/),” the album version of “Darlington County” is artificially sped up from the original recording. Here’s the original take below; once you hear it, you’ll never be able to not notice the acceleration in the original again.
 
-[https://www.youtube.com/watch?v=RlE5fdrJ9ug](https://www.youtube.com/watch?v=RlE5fdrJ9ug)
+[Watch on Youtube: Bruce Springsteen Darlington County](https://www.youtube.com/watch?v=RlE5fdrJ9ug)
 
 **Bonus #2:** Here’s Bruce working out the melody for “Darlington County” on his tape recorder at home, just because.
 
-[https://www.youtube.com/watch?v=dcjjeHtdsLg](https://www.youtube.com/watch?v=dcjjeHtdsLg)
+[Watch on Youtube: Bruce Springsteen Untitled Harmonies #1](https://www.youtube.com/watch?v=dcjjeHtdsLg)
 
 **Darlington County  
 Recorded:** May 13, 1982  
@@ -109,4 +107,4 @@ Recorded:** May 13, 1982
 **First performed:** June 8, 1984 (Asbury Park, NJ)  
 **Last performed:** August 24, 2023 (Foxborough, MA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,6 +1,6 @@
 By this point in the holiday season, you’ve almost certainly heard Bobby Helms singing “Jingle Bell Rock” on the radio. Heck, you might have even heard it *today–*the 1957 holiday hit is that ubiquitous this time of year.
 
-[https://www.youtube.com/watch?v=Z0ajuTaHBtM](https://www.youtube.com/watch?v=Z0ajuTaHBtM)
+[Watch on Youtube: Jingle Bell Rock](https://www.youtube.com/watch?v=Z0ajuTaHBtM)
 
 When it was first released, Helms took “Jingle Bell Rock” to #13 on the Billboard country and western radio play chart, and to #6 on the Best Sellers in Stores chart.
 
@@ -18,7 +18,7 @@ So it was probably inevitable that Bruce Springsteen would cover “Jingle Bell 
 
 Each night of his sophomore season’s five-night run, Bruce welcomed his audience with a rousing cover of “Jingle Bell Rock,” accompanied by Patti Scialfa, Soozie Tyrell, and Lisa Lowell, and backed by The Max Weinberg 7.
 
-[https://www.youtube.com/watch?v=wUN5inhSdFM](https://www.youtube.com/watch?v=wUN5inhSdFM)
+[Watch on Youtube: Jingle Bells Rock - Bruce Springsteen](https://www.youtube.com/watch?v=wUN5inhSdFM)
 
 Bruce’s cover was warm, bright, and merry, setting the tone for the festive show to come. It was such a great cover, in fact, that it’s surprising he never reprised it.
 

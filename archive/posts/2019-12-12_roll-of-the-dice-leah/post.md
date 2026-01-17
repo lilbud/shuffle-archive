@@ -11,14 +11,14 @@ We can see it in “[Cautious Man](https://estreetshuffle.com/index.php/2020/06/
 *On his right hand Billy tattooed the word love and on his left hand was the word fear*  
 *And in which hand he held his fate was never clear*
 
-We see it in “[Valentine’s Day](http://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)” —
+We see it in “[Valentine’s Day](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)” —
 
 *I’m driving a big lazy car rushin’ up the highway in the dark*  
 *I got one hand steady on the wheel and one hand’s tremblin’ over my heart*
 
 And we see it in “Leah.”
 
-[https://www.youtube.com/watch?v=QswDWgmb1L4](https://www.youtube.com/watch?v=QswDWgmb1L4)
+[Watch on Youtube: Leah](https://www.youtube.com/watch?v=QswDWgmb1L4)
 
 But among all of the songs in which Bruce wages his emotional war, “Leah” stands out for its confidence and sureness. The narrator in “Leah” has no fear of the unknown–in fact, whatever tug-of-war he felt in his heart is long gone.
 
@@ -57,7 +57,7 @@ So why did Bruce choose to leave them out? Because the act of opening the door a
 
 Here’s a clip of Bruce performing “Leah” live in Bologna on the Devils & Dust Tour–and once we get past the awkward introduction (Bruce has to slow the song down to keep pace with the clapping Italians who threatened to overpower his guitar), we can appreciate the lightness and ease in his performance.
 
-[https://www.youtube.com/watch?v=hXF6p_2CmNo](https://www.youtube.com/watch?v=hXF6p_2CmNo)
+[Watch on Youtube: Bruce Springsteen - Leah (Live 2005-06-04)](https://www.youtube.com/watch?v=hXF6p_2CmNo)
 
 It’s been almost a decade and a half since we last heard from “Leah.”
 
@@ -71,4 +71,4 @@ Released: *Devils & Dust* (2005)
 First performed: April 21. 2005 (Asbury Park, NJ)  
 Last performed: November 22, 2005 (Trenton, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

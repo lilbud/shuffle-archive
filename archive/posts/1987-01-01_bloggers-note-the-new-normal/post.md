@@ -6,7 +6,7 @@ If I squint while reading *Roll of the Dice Volume 1: Greetings From Asbury Park
 
 This volume, though, dares me to to maintain eye contact. Fittingly, given the video for its lead single.
 
-[https://www.youtube.com/watch?v=idnJnjV_8rg](https://www.youtube.com/watch?v=idnJnjV_8rg)
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
 It’s not the writing per se. I think this collection contains some of my best essays, including the first one I was truly proud of (“Brilliant Disguise,” written barely one month into the blog).
 

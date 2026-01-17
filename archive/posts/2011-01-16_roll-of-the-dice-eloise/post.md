@@ -1,8 +1,8 @@
 Someday I hope someone brings an “Eloise!” sign to a show, just so I can a) finally learn how the song ends, and b) watch the collective confusion in the room when Bruce plays the opening bars and sings:
 
-[https://www.youtube.com/watch?v=tkdPhiYlFa4](https://www.youtube.com/watch?v=tkdPhiYlFa4)
+[Watch on Youtube: Bruce Springsteen - Eloise](https://www.youtube.com/watch?v=tkdPhiYlFa4)
 
-Or maybe Bruce can play an “Eloise/Growin’ Up” mash-up the way he used to segue from “[Preacher’s Daughter](http://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)” into “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/).” Either way, it’d be fun.
+Or maybe Bruce can play an “Eloise/Growin’ Up” mash-up the way he used to segue from “[Preacher’s Daughter](https://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)” into “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/).” Either way, it’d be fun.
 
 Anyway: yeah, this is the origin of what would become “[Growin’ Up,](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” at least musically. Or maybe it’s the other way around.
 

@@ -4,7 +4,7 @@ Like much of the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08
 
 The result is a carefully crafted song that gradually builds instrumental intensity that to match the lyrical desperation that’s there from the beginning. Take a listen before we dive in:
 
-[https://www.youtube.com/watch?v=h5XgjPfL8KM](https://www.youtube.com/watch?v=h5XgjPfL8KM)
+[Watch on Youtube: Valentine's Day](https://www.youtube.com/watch?v=h5XgjPfL8KM)
 
 *I’m driving a big lazy car rushin’ up the highway in the dark*
 
@@ -64,13 +64,13 @@ Interesting choice of words, there: “my *lonely* valentine.” Perhaps these a
 
 It’s something of a mystery why Bruce didn’t play “Valentine’s Day” on the Tunnel of Love tour, or any of the tours that came after. He rehearsed it before the tour, though, and you can hear the only known E Street Band take below. Admirably restrained at first, the horns overpower it as the song progresses, and maybe that’s why Bruce dropped it from the set.
 
-[https://videopress.com/embed/v4mjGEvF](https://videopress.com/embed/v4mjGEvF)
+[Watch Video Highlight](https://videopress.com/embed/v4mjGEvF)
 
 For years, “Valentine’s Day” went unperformed, but then in the summer of 2005, Bruce rediscovered the song and premiered it on his solo acoustic tour.
 
 Performed entirely on the piano (and a harmonica coda), the music matches for the first time the power of the lyrics from start to finish. Bruce’s piano is as persistent and insistent a declaration of love as any lyrics could ever be, and once you hear this arrangement, it instantly becomes the definitive version of this song.
 
-[https://www.youtube.com/watch?v=HHdoqmz_lEw](https://www.youtube.com/watch?v=HHdoqmz_lEw)
+[Watch on Youtube: Valentine's Day - Bruce Springsteen (Live 2005)](https://www.youtube.com/watch?v=HHdoqmz_lEw)
 
 When Bruce performed “Valentine’s Day” in Portland, he received a mid-set standing ovation–it was that powerful.
 

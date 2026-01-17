@@ -4,7 +4,7 @@ Even though this recording is from a February 1972 gig, something about the Bruc
 
 “Make Up Your Mind” is an end-of-summer breakup song with a twist. Bruce’s narrator is the older, worldly suitor; the offscreen love interest is the younger-than-she-looks but older-than-her-years schoolgirl who calls the shots in their zero-sum relationship until she tires of him and moves on.
 
-[https://videopress.com/embed/nSmO6L6G](https://videopress.com/embed/nSmO6L6G)
+[Watch Video Highlight](https://videopress.com/embed/nSmO6L6G)
 
 In the first verse, our narrator appears to hold the upper hand: he wants the girl, he gets the girl, and when the girl falls for him (or so he thinks) and demands a commitment, we feel his lone wolf spirit start to slip away.
 

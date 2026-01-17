@@ -8,11 +8,7 @@ The other songs tapped a different vein, though. “Is She The One” and “[A 
 
 With a happy riff and sweet backing vocals from Bruce, “Is She The One” came out pure pop confection. Take a listen and see for yourself–and if you’re inclined, pick up the album at [Joe’s website](https://joegrushecky.com/store/catalogue/details//product_id:1117).
 
-[https://www.youtube.com/watch?v=soyE1oxt0kM](https://www.youtube.com/watch?v=soyE1oxt0kM)
-
- 
-
- 
+[Watch on Youtube: Is She the One](https://www.youtube.com/watch?v=soyE1oxt0kM)
 
 **Is She the One  
 Recorded:** February 2006  

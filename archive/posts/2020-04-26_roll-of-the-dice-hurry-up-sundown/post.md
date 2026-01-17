@@ -16,7 +16,7 @@ As for the songs on the EP, they all had considerable merit, but they all sounde
 
 Bruce has admitted that each of the tracks on *American Beauty* were originally recorded as home demos before he recut them with Brendan O’Brien. I hope that someday those original demos will escape into the wild, because at least for “Hurry Up Sundown,” the song is overpowered by the production.
 
-[https://www.youtube.com/watch?v=8Qp5CPp2v6g](https://www.youtube.com/watch?v=8Qp5CPp2v6g)
+[Watch on Youtube: Hurry Up Sundown](https://www.youtube.com/watch?v=8Qp5CPp2v6g)
 
 “Hurry Up Sundown” is nothing more or less than a piece of power pop, and there’s certainly nothing wrong with that. The EP album cover suggests a summer day on an open road, and that’s the proper setting for this song.
 
@@ -24,7 +24,7 @@ Unfortunately, though, Bruce and Brendan leaned a bit too much into the power an
 
 If we strain and listen past the production, however, we hear a beautiful west coast melody paired with effortless Springsteenian lyrics.
 
-Those lyrics are so effortless, in fact, that one suspects that Bruce tossed this one off in an afternoon, liberally lifting phrases from “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/),” “[Waitin’ on a Sunny Day](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/),” and “[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and the theme from “[Out in the Street](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)” *all in the first verse*.
+Those lyrics are so effortless, in fact, that one suspects that Bruce tossed this one off in an afternoon, liberally lifting phrases from “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/),” “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/),” and “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and the theme from “[Out in the Street](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)” *all in the first verse*.
 
 *It’s the end of another working day*  
 *Come on and pack your blues away*  
@@ -62,4 +62,4 @@ Recorded:** March 2013
 **Released:** *American Beauty* (2014)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

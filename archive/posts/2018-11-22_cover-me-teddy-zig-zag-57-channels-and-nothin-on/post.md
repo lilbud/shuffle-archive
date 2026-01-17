@@ -6,6 +6,4 @@ Maybe that’s why he takes so well to covering Bruce. He made a gutsy choice, t
 
 Zig Zag’s take is bluesy and earthy, breathing new life into the song. Well done.
 
-[https://www.youtube.com/watch?v=PPkADH1GHVQ](https://www.youtube.com/watch?v=PPkADH1GHVQ)
-
- 
+[Watch on Youtube: 57 Channels](https://www.youtube.com/watch?v=PPkADH1GHVQ)

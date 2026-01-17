@@ -2,7 +2,7 @@
 
 While the band never recorded it, we’re fortunate to have a couple of surviving concert recordings. Take a listen below–that’s Robbin you’ll hear on lead vocals, with Bruce strutting his stuff on guitar. But about halfway through, the band segues into a cover of The Grateful Dead’s “Turn on Your Love Light” with Bruce on lead vocals before circling back to finish the song. (As far as we know, every “I Gotta Be Free” performance included this mid-song cover.)
 
-[https://www.youtube.com/watch?v=Iakqd7kgV2A](https://www.youtube.com/watch?v=Iakqd7kgV2A)
+[Watch on Youtube: Bruce Springsteen and Steel Mill: I Gotta Be Free with Turn On Your Lovelight 1970 Asbury Park](https://www.youtube.com/watch?v=Iakqd7kgV2A)
 
 Bruce’s lyrics are pretty spare–just two verses and a one-line chorus–and content-wise, they’re about what you’d expect from a young rock band at the time: ambition, defiance, and an embrace of the life of an outsider.
 
@@ -27,4 +27,4 @@ Never recorded**
 **First performed:** November 27, 1970 (Asbury Park, NJ)  
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

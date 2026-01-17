@@ -6,7 +6,7 @@ It’s unclear whether Bruce had written any lyrics for it at the time; I suspec
 
 Some of the tracks on *The Promise* are vintage, some had some modern elements applied. “Jon’s Jam” arguably had the most work done to it: Bruce layered on a full horn section (featuring Barry Danielian, Stan Harrison, Dan Levine, Ed Manion, and Curt Ramm), supplied brand-new vocals (furthering my suspicion that none had been written back in the day), and renamed the song “It’s a Shame.”
 
-[https://www.youtube.com/watch?v=3HOQCNmhvIc](https://www.youtube.com/watch?v=3HOQCNmhvIc)
+[Watch on Youtube: It's a Shame](https://www.youtube.com/watch?v=3HOQCNmhvIc)
 
 “It’s a Shame” isn’t exactly the E Street Band’s finest moment on record, but Landau and Chirmside hold their own in a catchy R&B jam that doesn’t aspire to anything more than a pleasant distraction and succeeds admirably.
 
@@ -35,7 +35,7 @@ There’s nothing remarkable here lyrically, either. Bruce turns in a fairly ped
 
 If there’s anything historically or artistically significant about “It’s a Shame,” it’s in the riff. Bruce held on to it and evolved it into a full-fledged melody. It took him a while to find the right words to pair with it (in a parallel universe it backs the lyrics for “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)“), but by September [he’d found them](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/).
 
-[https://www.youtube.com/watch?v=UzjkWdRqWFo](https://www.youtube.com/watch?v=UzjkWdRqWFo)
+[Watch on Youtube: Prove It All Night](https://www.youtube.com/watch?v=UzjkWdRqWFo)
 
 Neither “Jon’s Jam” or “It’s a Shame” have ever had a live outing, but the song it inspired became one of Bruce’s most-played songs ever.
 

@@ -14,13 +14,13 @@ Things came to a head in a town called Seadrift on the evening of August 3rd, 19
 
 Over the course of that bloody evening, three Vietnamese boats were burned and a house occupied by a Vietnamese family was firebombed.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/galveston79-1-300x84.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/06/galveston79-1.jpg)
 
 The brothers were eventually acquitted and released on the grounds of self-defense, which fanned the flames of racism and resentment even higher. The white locals now turned to the Ku Klux Klan for help.
 
 Although the real-life story continues on from here, this is the point at which Bruce sets “Galveston Bay.”
 
-[https://www.youtube.com/watch?v=-0hiDCIVbts](https://www.youtube.com/watch?v=-0hiDCIVbts)
+[Watch on Youtube: Galveston Bay](https://www.youtube.com/watch?v=-0hiDCIVbts)
 
 “Galveston Bay” appears to be loosely inspired by the events above, with Le Bin Son standing in for the Nguyen brothers and Billy Sutter playing the role of Billy Joe Aplin.
 
@@ -80,9 +80,9 @@ Standing at the precipice of darkness, Billy pulls himself back and goes home to
 
 “Galveston Bay” is a strange candidate for an optimistic song, but in context of the album it appears on ([*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)), that’s exactly what it is. On an album cloaked in rage, hopelessness, alienation, and darkness, “Galveston Bay” is a candle.
 
-That’s why Bruce saved it for the encore of his Joad Tour sets, more often than not serving as the penultimate song of the night and a lead-in for the show-closing “[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” (which itself takes on new meaning after being namechecked in “Galveston Bay”). Positioned at the end of the night, “Galveston Bay” allowed Bruce to ensure that his audience went home each night on a note of hope and optimism.
+That’s why Bruce saved it for the encore of his Joad Tour sets, more often than not serving as the penultimate song of the night and a lead-in for the show-closing “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” (which itself takes on new meaning after being namechecked in “Galveston Bay”). Positioned at the end of the night, “Galveston Bay” allowed Bruce to ensure that his audience went home each night on a note of hope and optimism.
 
-[https://www.youtube.com/watch?v=29W8yzXfB9E](https://www.youtube.com/watch?v=29W8yzXfB9E)
+[Watch on Youtube: Bruce Springsteen - Galveston Bay (Live 1996)](https://www.youtube.com/watch?v=29W8yzXfB9E)
 
 “Galveston Bay” is a quiet song that demands focused attention from its listeners–something that arena and stadium crowds aren’t known for. So even though Bruce has performed it more than a hundred times over the years, all of those times were either on his solo acoustic Ghost of Tom Joad Tour or his Devils & Dust Tour.
 
@@ -92,7 +92,7 @@ Most of the set list selections were either obvious or predictable candidates, b
 
 Here’s that rarely seen performance–to my knowledge, it’s the only professionally filmed, officially released clip of Bruce performing “Galveston Bay.” (That’s the Professor on keyboards, by the way.)
 
-[https://videopress.com/embed/5Cf6O411](https://videopress.com/embed/5Cf6O411)
+[Watch Video Highlight](https://videopress.com/embed/5Cf6O411)
 
 **Galveston Bay  
 Recorded:** March-August 1995  
@@ -100,4 +100,4 @@ Recorded:** March-August 1995
 **First performed:** November 21, 1995 (New Brunswick, NJ)  
 **Last performed:** September 25, 2009 (New York City, NY)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -6,21 +6,21 @@ Well, Bruce’s only performance of “Crying in the Chapel” definitely isn’
 
 And the song’s pretty great, too–so great in fact that not only did Darrell Glenn take his original 1953 recording to #6 on the Billboard pop chart and #4 on the country and western chart…
 
-[https://www.youtube.com/watch?v=XM1PzEWnZZ0](https://www.youtube.com/watch?v=XM1PzEWnZZ0)
+[Watch on Youtube: 1st RECORDING OF: Crying In The Chapel - Darrell Glenn (1953)](https://www.youtube.com/watch?v=XM1PzEWnZZ0)
 
 …Rex Allen took his cover to #8, Ella Fitzgerald took hers to #15, and Art Lund notched at #23—*all in the same year as Glenn’s original.* That’s what you call a hit.
 
 But it was Elvis Presley’s cover in 1960 that scored the highest: unreleased until 1965, “Crying in the Chapel” was a #3 hit for Elvis on the Billboard Hot 100 and #1 (for seven weeks!) on the easy listening chart.
 
-[https://www.youtube.com/watch?v=CYOUcV7nlN8](https://www.youtube.com/watch?v=CYOUcV7nlN8)
+[Watch on Youtube: Elvis Presley - Crying in the Chapel (Official Audio)](https://www.youtube.com/watch?v=CYOUcV7nlN8)
 
 As for Bruce Springsteen, he never “officially” covered “Crying in the Chapel” in concert. But: in 2011, he backed some local legends who did.
 
 At a special concert event at the Wonder Bar celebrating the music of Asbury Park’s west side, Nicky Addeo assembled a house band for the evening that included Vini Lopez, Ed Manion and Billy Ryan, along with vocalists like Southside Johnny, Bobby Thomas, and Addeo.
 
-Oh, and one more local legend: In the background for the first set, at the fore during the second, Bruce took the lead on a few songs that night (“[What’s Your Name](http://estreetshuffle.com/index.php/2018/02/18/matr-bruce-springsteen-and-nicky-addeo-the-night-owls-whats-your-name/),” for example), but for “Crying in the Chapel” he was content to provide backing guitar for Bobby Thomas’ lead vocals. Keep an eye out in the video below during the artists’ soulful performance, and you’ll see Bruce a few times lurking behind Southside.
+Oh, and one more local legend: In the background for the first set, at the fore during the second, Bruce took the lead on a few songs that night (“[What’s Your Name](https://estreetshuffle.com/index.php/2018/02/18/matr-bruce-springsteen-and-nicky-addeo-the-night-owls-whats-your-name/),” for example), but for “Crying in the Chapel” he was content to provide backing guitar for Bobby Thomas’ lead vocals. Keep an eye out in the video below during the artists’ soulful performance, and you’ll see Bruce a few times lurking behind Southside.
 
-[https://www.youtube.com/watch?v=qX8G_fiYklY](https://www.youtube.com/watch?v=qX8G_fiYklY)
+[Watch on Youtube: Crying In The Chapel ~ Bobby Thomas @ Wonder Bar 4/2/11 ~ Video by Rose A Montana](https://www.youtube.com/watch?v=qX8G_fiYklY)
 
 So yeah, from a Springsteen perspective, this is one for the completists. But aren’t you glad you watched anyway?
 

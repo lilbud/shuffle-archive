@@ -4,7 +4,7 @@ But by the 1990s, the dynamic had shifted: Bruce had become so comfortable writi
 
 Case in point: “Human Touch.”
 
-[https://www.youtube.com/watch?v=85cNRQo1m3A](https://www.youtube.com/watch?v=85cNRQo1m3A)
+[Watch on Youtube: Bruce Springsteen - Human Touch (Official HD Video)](https://www.youtube.com/watch?v=85cNRQo1m3A)
 
 If your first exposure to “Human Touch” was the sexy MTV video, if you focused primarily on the title or the chorus, and if you assumed he was addressing a woman throughout the entire song, you might understandably accept it at face value as a right-down-the-middle love song.
 
@@ -55,7 +55,7 @@ It’s worth noting the introduction of religious imagery here, because Bruce no
 
 No kindness in the face of strangers. No mercy. No pity.
 
-Sure, maybe “Human Touch” is a modern-day, earthier “[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/).” It certainly works on that level if you want it to.
+Sure, maybe “Human Touch” is a modern-day, earthier “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/).” It certainly works on that level if you want it to.
 
 But I can’t help but think that Bruce is also sharing his newfound awareness that he’d never find in his audience the real connection and true recognition that he craved in life. He needed an anchor, a true and intimate companion.
 
@@ -94,7 +94,7 @@ As for the final choruses… well, they’re so direct and unadorned that I’m 
 
 But hey now, that “hey now!” saves “Human Touch” from petering out unremarkably, Those final two minutes–easily the finest two minutes on the album.
 
-Despite its imperfections, “Human Touch” served admirably as the lead-off (and only) single for its album, although it’s a little tricky to measure exactly how well: as a promotional gimmick, Bruce promoted his double album combo by releasing a lead-off single with two A-sides and no B-side. “Human Touch” shared the spotlight with “[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/),” but if memory serves, “Human Touch” received the lion’s share of the radio play.
+Despite its imperfections, “Human Touch” served admirably as the lead-off (and only) single for its album, although it’s a little tricky to measure exactly how well: as a promotional gimmick, Bruce promoted his double album combo by releasing a lead-off single with two A-sides and no B-side. “Human Touch” shared the spotlight with “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/),” but if memory serves, “Human Touch” received the lion’s share of the radio play.
 
 Regardless, the song peaked at #16 on the Billboard Hot 100, cracked the top ten in Canada, Sweden, Ireland and other countries, and captured the top of the chart in Italy and Spain (two of Bruce’s strongest of strongholds)
 
@@ -104,21 +104,23 @@ Still, “Human Touch” became a centerpiece of the 1992 and 1993 tours, and it
 
 You can be the judge of which band nailed it best. Here’s a snippet from the very first performance of “Human Touch,” more than a month before the launch of World Tour 1992:
 
-[https://www.youtube.com/watch?v=yC9EKVpQk4U](https://www.youtube.com/watch?v=yC9EKVpQk4U)
+[Watch on Youtube: Bruce Springsteen - Human Touch at the Bottom Line, May 6, 1992](https://www.youtube.com/watch?v=yC9EKVpQk4U)
 
 …along with one of that band’s best performances, from MTV’s *xxPlugged* special.
 
-[https://www.youtube.com/watch?v=9b7xW1cv9Fc](https://www.youtube.com/watch?v=9b7xW1cv9Fc)
+[Watch on Youtube: Bruce Springsteen - Human Touch (from In Concert/MTV Plugged)](https://www.youtube.com/watch?v=9b7xW1cv9Fc)
 
 Contrast that with the very first E Street Band performance of “Human Touch,” from late in the Reunion Tour:
 
-[https://videopress.com/embed/ZCVQXnYW](https://videopress.com/embed/ZCVQXnYW)
+[Watch Video Highlight](https://videopress.com/embed/ZCVQXnYW)
+
+
 
 Regardless of which way you lean, there’s no denying: by the time the *High Hopes* Tour came around, the E Street Band had enough “Human Touch” performances under their belt for it to feel like the song had been meant for them all along.
 
 I’ll leave you with one of my favorite performances of “Human Touch,” from Adelaide in 2014:
 
-[https://www.youtube.com/watch?v=jyBfhpiZsSc](https://www.youtube.com/watch?v=jyBfhpiZsSc)
+[Watch on Youtube: Bruce Springsteen | Human Touch - Adelaide - 11/02/2014](https://www.youtube.com/watch?v=jyBfhpiZsSc)
 
 **Human Touch**  
 **Recorded:** Spring 1990  
@@ -126,4 +128,4 @@ I’ll leave you with one of my favorite performances of “Human Touch,” from
 **First performed:** May 6, 1992 (New York City, NY)  
 **Last performed:** April 28, 2023 (Barcelona, Spain)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

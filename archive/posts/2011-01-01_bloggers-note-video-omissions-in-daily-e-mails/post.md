@@ -6,7 +6,7 @@ It was in both response and interruption to some Bruce-related fact or anecdote 
 
 Looking back on it, I’m not entirely sure she meant it as helpfully and encouraging as I received it. (I have notoriously poor sarcasm radar.) But whether she did or not, that was my Mayor Goldie Wilson moment.
 
-[https://www.youtube.com/watch?v=6rvVPqdl2iw](https://www.youtube.com/watch?v=6rvVPqdl2iw)
+[Watch on Youtube: Back to the Future - Mayor](https://www.youtube.com/watch?v=6rvVPqdl2iw)
 
 *A blogger…* I thought. *I like the sound of that!*
 

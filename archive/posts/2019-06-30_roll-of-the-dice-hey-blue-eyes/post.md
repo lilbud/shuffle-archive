@@ -4,7 +4,7 @@ At the very end of an EP that almost nobody noticed (including the artist, it se
 
 Even if you’re a longtime fan, odds are decent (more so than for almost any other song in Bruce’s catalog at least) that you’ve never given “Hey Blue Eyes” a hard listen. Take five minutes and listen now, and then we’ll dive in.
 
-[https://www.youtube.com/watch?v=qc6L0zlW-NI](https://www.youtube.com/watch?v=qc6L0zlW-NI)
+[Watch on Youtube: Hey Blue Eyes](https://www.youtube.com/watch?v=qc6L0zlW-NI)
 
 See what I mean?
 
@@ -89,4 +89,4 @@ And as the song trails the final chorus, we’re deeply unsettled by the realiza
 **Released:** *American Beauty* (2014)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

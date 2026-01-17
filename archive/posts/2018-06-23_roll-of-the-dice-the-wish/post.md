@@ -13,7 +13,7 @@ You don’t have to know much of Bruce’s backstory to understand “The Wish.�
 
 Here’s the very first time Bruce played “The Wish,” eight years before he released it officially:
 
-[https://www.youtube.com/watch?v=8QZMvgAu1lA](https://www.youtube.com/watch?v=8QZMvgAu1lA)
+[Watch on Youtube: Springsteen The Wish](https://www.youtube.com/watch?v=8QZMvgAu1lA)
 
 *Dirty old street all slushed up in the rain and snow*  
 *Little boy and his ma shivering outside a rundown music store window*  
@@ -50,7 +50,7 @@ Here’s the very first time Bruce played “The Wish,” eight years before he 
 
 Bruce recorded the song during the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) sessions, but he sat on the song for more than a decade before releasing it on *Tracks*.
 
-[https://www.youtube.com/watch?v=KgkOPd5nHJk](https://www.youtube.com/watch?v=KgkOPd5nHJk)
+[Watch on Youtube: The Wish (Studio Outtake - 1987)](https://www.youtube.com/watch?v=KgkOPd5nHJk)
 
 Until Broadway, he performed it only rarely–ostensibly because it’s considered uncool to sing about one’s mother (as he’d typically explain by way of introducing the song), but I suspect more likely because the song is so bravely autobiographical. It’s one thing to write so openly; it’s another to perform that way.
 
@@ -66,7 +66,7 @@ But then he revealed something I’d known and read about but never heard him sa
 
 At that very moment, I instantly recollected a story and video that went viral a few months ago. You might remember it: in the middle of an ordinary Saturday afternoon, Bruce showed up with his mom at the Wonder Bar in Asbury park, where they danced at an Eddie Testa Band concert until the power went out from a storm.
 
-[https://www.youtube.com/watch?v=KTRrWFRSS3c](https://www.youtube.com/watch?v=KTRrWFRSS3c)
+[Watch on Youtube: Bruce Springsteen, Wonder Bar, Asbury Park, April 15, 2018](https://www.youtube.com/watch?v=KTRrWFRSS3c)
 
 I remembered that video, and I remember wondering why Bruce would brave the cameras and the elements just to dance at a Saturday afternoon bar gig. And as Bruce started to sing, I knew what lyrics were coming up:
 
@@ -89,7 +89,7 @@ More silence.
 
 And then he finished the verse, ignoring the audience for a few moments so he could dance with his mom in an imagined rock and roll bar, like he did that Saturday in April.
 
-[https://www.youtube.com/watch?v=9wpcA2rfMfc](https://www.youtube.com/watch?v=9wpcA2rfMfc)
+[Watch on Youtube: Bruce Springsteen - The Wish (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=9wpcA2rfMfc)
 
 I’m pretty sure there wasn’t a dry eye in the house. Certainly not mine, and not Bruce’s either, who had to wipe his when he finished the song.
 
@@ -110,4 +110,4 @@ And that we all find our little rock and roll bar, where we can dance ever after
 **The Wish  
 Recorded:** February 22, 1987**Released:** *Tracks* (1998)**First performed:** November 17, 1990 (Los Angeles, CA)**Last performed:** September 4, 2021 (New York City, NY)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

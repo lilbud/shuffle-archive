@@ -4,12 +4,8 @@ Bruce did more than debut his own new material, though: he also spoofed himself 
 
 Here’s that brilliantly silly performance:
 
-[https://videopress.com/embed/9ki7nHat](https://videopress.com/embed/9ki7nHat)
-
- 
+[Watch Video Highlight](https://videopress.com/embed/9ki7nHat)
 
 **Sexy and I Know It  
 First performed:** March 2, 2012 (New York City, NY)  
 **Last performed:** March 2, 2012 (New York City, NY)
-
- 

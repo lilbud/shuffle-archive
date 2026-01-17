@@ -6,7 +6,7 @@ There may be no better example of this talent than “Countin’ on a Miracle,�
 
 Most casual fans are familiar with the rock version–it’s the one released on Bruce’s landmark 2002 album, *The Rising*.
 
-[https://www.youtube.com/watch?v=92_TejYNhLg](https://www.youtube.com/watch?v=92_TejYNhLg)
+[Watch on Youtube: Countin' On a Miracle](https://www.youtube.com/watch?v=92_TejYNhLg)
 
 The optimistic title, the fairy tale setting in the first line, the soaring chorus, and the gorgeous, string-filled backing track all conspire to deceive the casual listener into thinking this is a happy song.
 
@@ -67,11 +67,11 @@ The reference to a higher power isn’t an affirmation of faith; it’s an accus
 
 But again, you’d be forgiven for not feeling the weight of the song in its originally released arrangement. Even performed live with the E Street Band, the song can’t quite convey the pain felt by the singer:
 
-[https://www.youtube.com/watch?v=WDuSvI6ym0Q](https://www.youtube.com/watch?v=WDuSvI6ym0Q)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Countin' on a Miracle (Live In Barcelona)](https://www.youtube.com/watch?v=WDuSvI6ym0Q)
 
 …but if you stuck around after the last encore of each show on The Rising Tour, while your fellow fans filed out of the arena where you’d all been transported for the last three hours, you’d see and hear this remarkable arrangement being played in the starkly lit, empty arena:
 
-[https://www.youtube.com/watch?v=fJ-PZLhAODk](https://www.youtube.com/watch?v=fJ-PZLhAODk)
+[Watch on Youtube: Bruce Springsteen - Countin' On A Miracle](https://www.youtube.com/watch?v=fJ-PZLhAODk)
 
 Wow.
 
@@ -88,15 +88,15 @@ The country blues version of “Countin’ on a Miracle” remains the definitiv
 
 **Bonus #1:** As the Rising Tour progressed, so did the arrangement of “Countin’ on a Miracle.” While the main song never evolved beyond its album arrangement, starting with the Rotterdam show in October 2002, Nils Lofgren contributed an exquisite acoustic guitar introduction that did more than provide the band a momentary breather in between songs–it helped established the delicateness and fragility of life and love. It immediately became a nightly highlight. Here’s the first time Nils contributed his magic to “Countin’ on a Miracle:”
 
-[https://www.youtube.com/watch?v=Hj71uBv9V8k](https://www.youtube.com/watch?v=Hj71uBv9V8k)
+[Watch on Youtube: Bruce Springsteen - "Countin' on a Miracle" - Rotterdam, 2002-10-22](https://www.youtube.com/watch?v=Hj71uBv9V8k)
 
 **Bonus #2:** In mid-June 2005, lucky European fans at Bruce’s solo acoustic shows in Frankfurt and Rotterdam (Rotterdam again! How did the Dutch get so lucky?) were treated to Bruce’s only two performances of “Countin’ on a Miracle” post-Rising Tour. And it was a lovely arrangement, starting on electric piano and segueing to full piano just at the moment where our heroine summons her strength to carry on. It’s a wonderful effect, and while the performance is little bit rough around the edges (Bruce was adding new songs to the setlist nightly, flying without a net), it’s absolutely worth hearing.
 
-[https://www.youtube.com/watch?v=fIbgKRyipaU](https://www.youtube.com/watch?v=fIbgKRyipaU)
+[Watch on Youtube: Bruce Springsteen- Countin on a miracle- Piano live 2005](https://www.youtube.com/watch?v=fIbgKRyipaU)
 
 **Countin’ on a Miracle****Recorded:** February-March 2002 (both versions)  
 **Released:** *The Rising* (2002, rock version), *The Essential Bruce Springsteen* (2003, country blues version)  
 **First performed:** July 26, 2002 (Asbury Park, NJ)  
 **Last performed:** June 19, 2005 (Rotterdam, The Netherlands)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

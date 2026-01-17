@@ -4,7 +4,7 @@ But only one artist has been honored by the *Baseball* Hall of Fame.
 
 That honor belongs to lifelong baseball fan John Fogerty and his 1985 hit single, “Centerfield.”
 
-[https://www.youtube.com/watch?v=Xq3hEMUeBGQ](https://www.youtube.com/watch?v=Xq3hEMUeBGQ)
+[Watch on Youtube: John Fogerty - Centerfield](https://www.youtube.com/watch?v=Xq3hEMUeBGQ)
 
 “Centerfield” didn’t make the Top 40 when it was released (it peaked at #44), but it quickly became a standard in just about every American ballpark, where crowds clap, sing, and dance along between innings.
 
@@ -16,7 +16,7 @@ That tour had a decidedly political message, with tight and carefully constructe
 
 The chance to perform “Centerfield” with the song’s original artist was probably too tempting to pass up, and the song became Fogerty’s first number upon taking the stage each night.
 
-[https://www.youtube.com/watch?v=ExdLcwIZdsk](https://www.youtube.com/watch?v=ExdLcwIZdsk)
+[Watch on Youtube: Bruce Springsteen w/ John Fogerty Centerfield (Live VFC 2004 10 05)](https://www.youtube.com/watch?v=ExdLcwIZdsk)
 
 Six years later, Fogerty was surprised to learn his song had been inducted into the Baseball Hall of Fame–surprised mostly because the Hall of Fame had never honored a song or musician before.
 
@@ -27,5 +27,3 @@ When asked for his reaction to the news in an interview at the time, Fogerty dea
 **Centerfield  
 First performed:** October 1, 2004 (Philadelphia, PA)  
 **Last performed:** October 13, 2004 (East Rutherford, NJ)
-
- 

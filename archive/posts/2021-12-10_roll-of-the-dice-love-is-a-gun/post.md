@@ -8,7 +8,7 @@ We’ve listened to several of these acoustic demos over the past four years, an
 
 Today’s entry is different. “Love Is a Gun” is little more than a musical exercise, with virtually non-existent lyrics. Bruce often writes his music before his lyrics, and this appears to be one of those times. “Love Is a Gun” is a complete musical piece, but good luck trying to make out any intelligible lyrics until you get to the end…. and even then, he’s mostly bluffing.
 
-[https://www.youtube.com/watch?v=bdq3UbGrrog](https://www.youtube.com/watch?v=bdq3UbGrrog)
+[Watch on Youtube: Bruce Springsteen Love is a Gun #2](https://www.youtube.com/watch?v=bdq3UbGrrog)
 
 I’m not even sure Bruce is singing *love is a gun,* to be honest. It sounds more like *under the gun,* which is actually the name of a different song (also a dead-end, although it at least made it to band rehearsal sessions) Bruce was working on around this time.
 
@@ -18,7 +18,7 @@ But for students of Bruce’s songwriting process, it’s still interesting to h
 
 **Bonus:** In addition to the demo above, there’s also a brief snippet of Bruce working out harmonies and a riff for “Love Is a Gun.” Check it out below.
 
-[https://www.youtube.com/watch?v=opXs1pAbrM4](https://www.youtube.com/watch?v=opXs1pAbrM4)
+[Watch on Youtube: Bruce Springsteen Love is a Gun #1 harmonies](https://www.youtube.com/watch?v=opXs1pAbrM4)
 
 **Love is a Gun  
 Recorded:** January-June 1979 (demos only)  

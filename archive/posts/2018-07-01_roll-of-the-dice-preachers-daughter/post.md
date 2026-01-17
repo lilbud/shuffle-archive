@@ -4,7 +4,7 @@ After three times listening to the way “Preacher’s Daughter” builds in pow
 
 Take a listen with me.
 
-[https://www.youtube.com/watch?v=LLE8DlZ8GXQ](https://www.youtube.com/watch?v=LLE8DlZ8GXQ)
+[Watch on Youtube: Bruce Springsteen - Preacher's Daughter](https://www.youtube.com/watch?v=LLE8DlZ8GXQ)
 
 Am I right, or what?
 
@@ -81,7 +81,7 @@ Musically, “Preacher’s Daughter” is clearly Bo Diddley-influenced, but Bru
 
 Actually, we don’t have to imagine–while Bruce has never performed “Preacher’s Daughter” in its entirety, he did sing part of it in a “Mona” – “Preacher’s Daughter” – “She’s the One” medley of sorts that highlighted the final month of the Darkness Tour. The three songs form a kind of Bo Diddley tribute trilogy, with “Preacher’s Daughter” providing the melody for “Mona’s” lyrics and. Listen to the recording below from the famous Winterland 1978 show–at about the 2:20 mark, Bruce erupts into the “Preacher’s Daughter” street fight verse, and it’s an electrifying moment.
 
-[https://www.youtube.com/watch?v=EB-_kWKqNJU](https://www.youtube.com/watch?v=EB-_kWKqNJU)
+[Watch on Youtube: Bruce Springsteen - Live At Winterland - 18. Mona/She's The One](https://www.youtube.com/watch?v=EB-_kWKqNJU)
 
 “Preacher’s Daughter” still resides in that legendary vault of Bruce’s, so maybe we’ll see an official release someday in that mythical *Tracks II*.
 
@@ -89,4 +89,4 @@ Actually, we don’t have to imagine–while Bruce has never performed “Preach
 **Never Released  
 Never** **Performed** (in full, at least)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

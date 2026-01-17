@@ -1,14 +1,14 @@
-In late 2015, Bruce released an anniversary box set for *The River* called *The Ties That Bind: The River Collection*. Included in the set was a disc of outtakes that had never before seen an official release. While there are some genuine gems among those unreleased outtakes, there are also some headscratchers. (“[Mr. Outside](http://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/),” I’m looking at you.)
+In late 2015, Bruce released an anniversary box set for *The River* called *The Ties That Bind: The River Collection*. Included in the set was a disc of outtakes that had never before seen an official release. While there are some genuine gems among those unreleased outtakes, there are also some headscratchers. (“[Mr. Outside](https://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/),” I’m looking at you.)
 
 And then there are the songs from the River sessions that *still* haven’t seen the light of day but certainly deserve to. Chief among those missing in action: “Find It Where You Can.”
 
 “Find It Where You Can” made it pretty far along, though. It was one of the many songs Bruce recorded at home in early 1979 while he worked them out on acoustic guitar. Take a listen:
 
-[https://www.youtube.com/watch?v=c8flVDvDu5c](https://www.youtube.com/watch?v=c8flVDvDu5c)
+[Watch on Youtube: Bruce Springsteen Find It Where You Can](https://www.youtube.com/watch?v=c8flVDvDu5c)
 
 There were a lot of songs that Bruce started at home in early 1979 that never made their way to the E Street Band. But “Find It Where You Can” did–in fact, we have recordings of the E Street Band playing it at a rehearsal session in late March.
 
-[https://www.youtube.com/watch?v=LsmW6Udlrik](https://www.youtube.com/watch?v=LsmW6Udlrik)
+[Watch on Youtube: Bruce Springsteen Find it Where You Can #2](https://www.youtube.com/watch?v=LsmW6Udlrik)
 
 The lyrics are a bit tough to make out in the band version. Bruce didn’t bother trying to capture the vocals since these tapes were meant to be guides for the band arrangements rather than demos or candidates for release.
 
@@ -42,4 +42,4 @@ Recorded:** March 1979 (rehearsal)
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

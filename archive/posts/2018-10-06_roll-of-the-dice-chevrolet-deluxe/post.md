@@ -6,7 +6,7 @@ What’s most fascinating to me about the acoustic demos is that they reflect no
 
 Case in point: take a list to the first take in the clip below (about the first 1:20).
 
-[https://www.youtube.com/watch?v=VHVnjxXkqkI](https://www.youtube.com/watch?v=VHVnjxXkqkI)
+[Watch on Youtube: Bruce Springsteen, "Chevrolet Deluxe" acoustic demos - takes 1 through 6](https://www.youtube.com/watch?v=VHVnjxXkqkI)
 
 Check out those opening lyrics:
 
@@ -36,7 +36,7 @@ The theme of the song is immediately established, and the car as metaphor for li
 
 Let’s move on and listen to take #2, which runs from about 1:20 to 3:16 in the video below.
 
-[https://www.youtube.com/watch?v=VHVnjxXkqkI](https://www.youtube.com/watch?v=VHVnjxXkqkI)
+[Watch on Youtube: Bruce Springsteen, "Chevrolet Deluxe" acoustic demos - takes 1 through 6](https://www.youtube.com/watch?v=VHVnjxXkqkI)
 
 *They shut the power off down at the mill, and counted their time*  
 *And these days when you ride down Main Street*  
@@ -53,7 +53,7 @@ Too bad Bruce discarded that last line–it’s brilliant. But if that verse sou
 
 And we’re only on take #2. Let’s move on to #3, starting from 3:16 to 4:55.
 
-[https://www.youtube.com/watch?v=VHVnjxXkqkI?start=196](https://www.youtube.com/watch?v=VHVnjxXkqkI?start=196)
+[Watch on Youtube: Bruce Springsteen, "Chevrolet Deluxe" acoustic demos - takes 1 through 6](https://www.youtube.com/watch?v=VHVnjxXkqkI?start=196)
 
 Bruce is trying a different tack, here, and a clever one: rather than the old faithful “I had a job, I had a girl” opening, Bruce uses the common practice of anthropomorphizing (and feminizing) a car to make it unclear until the very last line whether he’s talking about a woman or a vehicle–and even then, you can read the “her” as applying to either.
 
@@ -64,7 +64,7 @@ Bruce is trying a different tack, here, and a clever one: rather than the old fa
 
 It’s a much more creative and nuanced way to establish the scene, but Bruce doesn’t really do anything with it in this take. Let’s listen to Take #4, from 4:55 to 6:48 to see how it progresses.
 
-[https://www.youtube.com/watch?v=VHVnjxXkqkI?start=295](https://www.youtube.com/watch?v=VHVnjxXkqkI?start=295)
+[Watch on Youtube: Bruce Springsteen, "Chevrolet Deluxe" acoustic demos - takes 1 through 6](https://www.youtube.com/watch?v=VHVnjxXkqkI?start=295)
 
 *We drove her that whole summer to the water <unintelligible>>*  
 *We drove her when the men came and shut that power down*  
@@ -82,7 +82,7 @@ The only new element here is the infusion of the narrator’s dilemma, expressed
 
 We have one last acoustic take, but inexplicably, the song seems to *lose* cohesion. We have something resembling an intact song in length, but much of the lyrics are unintelligible, and Bruce has now named his characters and backdrop:
 
-[https://www.youtube.com/watch?v=VHVnjxXkqkI?start=480](https://www.youtube.com/watch?v=VHVnjxXkqkI?start=480)
+[Watch on Youtube: Bruce Springsteen, "Chevrolet Deluxe" acoustic demos - takes 1 through 6](https://www.youtube.com/watch?v=VHVnjxXkqkI?start=480)
 
 *She was sittin’ down at Highway Chevrolet out on Route 3*  
 *She was looking like she was waitin’ just for me*
@@ -101,11 +101,11 @@ That rhyme–curse/worse–is lifted from “The River,” and since that song h
 
 So what happened next? Lyrically, we don’t know, but we do have some full-band takes from a couple of months later. Maddeningly, though, the vocals are so distant and muddy that it’s almost impossible to determine if the song had congealed at all. (Didn’t Bruce know his rehearsal sessions would leak for posterity?)
 
-[https://www.youtube.com/watch?v=j23o8BSBHe8](https://www.youtube.com/watch?v=j23o8BSBHe8)
+[Watch on Youtube: Bruce Springsteen Chevrolet Deluxe #1](https://www.youtube.com/watch?v=j23o8BSBHe8)
 
 See what I mean? The second take is a bit more uptempo, but still unintelligible. At this point though, the song is certainly starting to gel musically, and the band is getting into it:
 
-[https://www.youtube.com/watch?v=_horN30i4ug](https://www.youtube.com/watch?v=_horN30i4ug)
+[Watch on Youtube: Bruce Springsteen Chevrolet Deluxe #2](https://www.youtube.com/watch?v=_horN30i4ug)
 
 …and that’s where the tale of “Chevrolet Deluxe” ends, unfortunately. Whatever the reasons, Bruce abandoned it, scrapped it, and sold it for parts (and used them for later songs).
 
@@ -115,4 +115,4 @@ I still wonder if there’s isn’t a fully fleshed-out version of “Chevrolet 
 **Never recorded**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

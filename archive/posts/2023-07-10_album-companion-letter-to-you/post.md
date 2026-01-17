@@ -14,7 +14,7 @@ Returning home to his New Jersey farm and Broadway residency, Springsteen found 
 
 It wasn’t the first time he had pondered his mortality–he’d been doing that in song since *Working on a Dream* a full decade earlier. This was different, though, and as summer turned to autumn turned to winter turned to spring, Springsteen found himself unable to shake the spirits that were haunting him.
 
-[https://www.youtube.com/watch?v=PhkL4K7Esc0](https://www.youtube.com/watch?v=PhkL4K7Esc0)
+[Watch on Youtube: Bruce Springsteen - Apple Music ‘Letter To You’ Interview](https://www.youtube.com/watch?v=PhkL4K7Esc0)
 
 His Broadway show had ended in December, and no tour was on the horizon. It had been some time since he’d been visited by any sort of muse. But one day in April 2019, one came knocking.
 
@@ -24,7 +24,7 @@ With his mystery guitar, Springsteen wrote “[Last Man Standing](https://estree
 
 Over the next ten days, the story goes, he wrote the collection of songs that became *Letter to You* and recorded them with the E Street Band during an even shorter period of time that autumn.
 
-[https://www.youtube.com/watch?v=JgPEEJDL5N0](https://www.youtube.com/watch?v=JgPEEJDL5N0)
+[Watch on Youtube: Bruce Springsteen’s Letter to You — Reunion Featurette | Apple TV+](https://www.youtube.com/watch?v=JgPEEJDL5N0)
 
 That’s the legend. And as the saying goes (to quote one of Bruce’s favorite movies), when the legend becomes fact, print the legend.
 
@@ -38,7 +38,7 @@ Springsteen didn’t write *Letter to You* in a burst of creativity any more tha
 - “[Song for Orphans](https://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)” is probably the least of these six tracks that cried out for an official release. Also dating back to the early 1970s, It’s nowhere near as finely constructed as its contemporaneous album-mates.
 
 
-[https://www.youtube.com/watch?v=7OMTyppnWLM?start=45](https://www.youtube.com/watch?v=7OMTyppnWLM?start=45)
+[Watch on Youtube: Tim McGraw & Bruce Springsteen: ‘Letter To You’ Documentary and E Street Band’s Legacy | Apple Music](https://www.youtube.com/watch?v=7OMTyppnWLM?start=45)
 
 There’s nothing wrong with a mix of vintages per se. Springsteen’s more obsessive fans (hi!) have long understood that virtually every album since *Lucky Town* has included songs written (and in some cases recorded) years earlier.
 
@@ -52,7 +52,7 @@ Cohesion doesn’t always have to be lyrical. *The River* succeeds as a work of 
 
 It would have been more effective had Bruce issued *Letter to You* as an EP with only his new songs and saved the other worthy tracks for a future box set.
 
-[https://www.youtube.com/watch?v=y5Px7ABKhwY](https://www.youtube.com/watch?v=y5Px7ABKhwY)
+[Watch on Youtube: Bruce Springsteen - Letter to You - Rick Rubin Interview - Fall 2020](https://www.youtube.com/watch?v=y5Px7ABKhwY)
 
 I realize it probably sounds like I’m knocking the album. I suppose I am–but only the concept of it as an *album* rather than a collection of songs, which are uniformly excellent.
 
@@ -60,7 +60,7 @@ Perhaps that’s unfair in this age of streaming and playlists, but I’m old sc
 
 Let’s experiment. If you care to indulge me, try listening to a playlist of just the new songs on *Letter to You*. You can even add “One Minute You’re Here” as an overture. The result is a much tighter album, one that tells a real, cohesive story and packs a much greater emotional wallop.
 
-[https://www.youtube.com/playlist?list=PLr7gpDHqxU8Aa8Bb5AJeLQmDeFyRmOii2](https://www.youtube.com/playlist?list=PLr7gpDHqxU8Aa8Bb5AJeLQmDeFyRmOii2)
+[Watch on Youtube: Bruce Springsteen 'Letter To You' Album](https://www.youtube.com/playlist?list=PLr7gpDHqxU8Aa8Bb5AJeLQmDeFyRmOii2)
 
 - “[Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)” opens the set, but it’s also a summation statement for Bruce’s entire body of work.
 - “[Last Man Standing](https://estreetshuffle.com/index.php/2022/11/19/roll-of-the-dice-last-man-standing/)” gives the album its origin and heart…
@@ -70,7 +70,7 @@ Let’s experiment. If you care to indulge me, try listening to a playlist of ju
 - “[I’ll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)” is a parting benediction, a fitting bookend not only to the title track but to each and every one of the five songs above.
 
 
-[https://www.youtube.com/watch?v=QZuBEO-ilg4?start=13](https://www.youtube.com/watch?v=QZuBEO-ilg4?start=13)
+[Watch on Youtube: Bruce Springsteen - Spiritual Songwriting & “Letter to You” | The Daily Social Distancing Show](https://www.youtube.com/watch?v=QZuBEO-ilg4?start=13)
 
 I’ve thought about abridging *Letter to You* in this fashion for a while now. As preparation for writing this essay, I finally tried it.
 

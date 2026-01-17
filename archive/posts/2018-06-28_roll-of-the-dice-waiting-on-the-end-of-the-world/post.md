@@ -8,9 +8,9 @@ In fact, Bruce recorded it *twice*–once with the other band (or at least the c
 
 The original take with the other band remains securely in the vault, to the best of my knowledge, but the E Street Band version escaped some years ago, and it’s that version that we can listen to and discuss:
 
-[https://www.youtube.com/watch?v=9VdUYYw6wtA](https://www.youtube.com/watch?v=9VdUYYw6wtA)
+[Watch on Youtube: Bruce Springsteen - Waiting On The End Of The World](https://www.youtube.com/watch?v=9VdUYYw6wtA)
 
-Musically and vocally, it’s immediately datable. Even though we’re listening to the E Street Band, the arrangement, production, and Bruce’s vocal style are all very reminiscent of the *Human Touch/Lucky Town* era. That may be why Bruce chose not to release it–alongside other songs from those sessions (“[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/),” “[Secret Garden](http://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/),” “[Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/).” for example), it would have been a bit jarring. There may also be another reason, but we’ll get to that in a bit.
+Musically and vocally, it’s immediately datable. Even though we’re listening to the E Street Band, the arrangement, production, and Bruce’s vocal style are all very reminiscent of the *Human Touch/Lucky Town* era. That may be why Bruce chose not to release it–alongside other songs from those sessions (“[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/),” “[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/),” “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/).” for example), it would have been a bit jarring. There may also be another reason, but we’ll get to that in a bit.
 
 Still, the ESB took a swing at it in January 1995, when Bruce convened the E Street Band (including Steve Van Zandt) in the studio for the first time in over a decade, to record a few bonus tracks for Bruce’s planned *Greatest Hits* album. The song selection was an interesting mix–in addition to the above songs, there was a cover of “[High Hopes](https://estreetshuffle.com/index.php/2021/08/25/cover-me-high-hopes/),” a new take of “This Hard Land,” and “Waiting on the End of the World,” which was probably still top-of-mind for Bruce, since he had intended it to be the title track of an album he’d originally hoped to release in 1995, but which Jon Landau discouraged in favor of the *Greatest Hits* project, and about which Bruce himself had considerable ambivalence after mining similar thematic ground for the past three albums.
 
@@ -63,4 +63,4 @@ What do you think?
 **Never Released**  
 **Never Performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -4,7 +4,7 @@ I hope you’re enjoying your summer so far (or winter, for those of you down un
 
 It’s been a while since I’ve written one of these updates, and as this blog’s readership has grown so has the volume of incoming mail. I love hearing from you guys, and I do my best to reply to each and every letter I receive. I’ve noticed a few common themes of late, though, so I thought I’d address a few of them here.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/mailbox-300x200.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/mailbox.jpg)
 
 By *far*, the most frequent question I’ve been asked over the last month is: **“Hey Ken, when are you going to review *Western Stars?”***
 
@@ -14,7 +14,7 @@ But: if you’re wondering about “[Western Stars](https://estreetshuffle.com/i
 
 As soon as the album came out, I entered all the songs in my master spreadsheet of songs I haven’t yet written about, so as soon as the Google randomizer picks one of them for me to write about, that’s when I’ll do it.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/xls-285x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/xls.jpg)
 
 (Yes, that’s still how I plan out my content–I have every song Bruce has ever written, recorded, or covered in a master spreadsheet, and I’m whittling it down one by one, day by day. As you can see above, I have 1,026 days left to go, not including covers that other artists do of Bruce songs–that’s a whole separate list.)
 
@@ -22,7 +22,7 @@ And honestly, while I’ll obey the randomizer, I kind of hope for a little time
 
 The other question I’m getting a lot of lately is: **“Hey Ken, I’d love to share my really cool Bruce story for your *Where the Band Was* series, but I’m not a great writer and I don’t have videos or photos to include with the story. Can you help with that?”**
 
-Absolutely! If you’d like to submit a *Where the Band Was* story like [Anna](http://estreetshuffle.com/index.php/2019/05/03/where-the-band-was-stockholm-may-3-2013/), [Sandi](http://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/), [Kevin](http://estreetshuffle.com/index.php/2019/07/02/where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/), or [Mark](http://estreetshuffle.com/index.php/2019/07/18/where-the-band-was-fort-monmouth-july-18-22-2002-marks-story/), all you need to do is contact me through the blog and send me your memories via e-mail in whatever form you’re comfortable writing it. I’ll gladly copy edit, and if you like, I’ll take a polish pass or even ghost-write–whatever makes you most comfortable. And regardless, I’ll absolutely punctuate your story with video and audio from my collection and any photos I can dig up.
+Absolutely! If you’d like to submit a *Where the Band Was* story like [Anna](https://estreetshuffle.com/index.php/2019/05/03/where-the-band-was-stockholm-may-3-2013/), [Sandi](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/), [Kevin](https://estreetshuffle.com/index.php/2019/07/02/where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/), or [Mark](https://estreetshuffle.com/index.php/2019/07/18/where-the-band-was-fort-monmouth-july-18-22-2002-marks-story/), all you need to do is contact me through the blog and send me your memories via e-mail in whatever form you’re comfortable writing it. I’ll gladly copy edit, and if you like, I’ll take a polish pass or even ghost-write–whatever makes you most comfortable. And regardless, I’ll absolutely punctuate your story with video and audio from my collection and any photos I can dig up.
 
 So please do send me your stories! *Where the Band Was* is quickly becoming my favorite part about writing this blog.
 
@@ -32,7 +32,7 @@ Okay, that’s actually not a common one. But it should be, because *yes!*
 
 The kind folks at Rutgers University Press sent me an advance copy of a new book releasing in September, and you should absolutely pre-order it right now, wherever you pre-order your books.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/lwh-300x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/lwh.jpg)
 
 *Long Walk Home* will be in bookstores on September 23rd, and that release date was very deliberately chosen.
 

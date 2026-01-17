@@ -10,22 +10,20 @@ This past Monday night, I attended Stand Up For Heroes in New York City, my thir
 
 Bruce performed four songs (all with dirty jokes serving as introductions), including the public debut of “[Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)” and an ultra-rare acoustic “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).” I captured his entire set on video, and I think they came out great. Enjoy them below:
 
-[https://videopress.com/embed/4jab0Nll](https://videopress.com/embed/4jab0Nll)
+[Watch Video Highlight](https://videopress.com/embed/4jab0Nll)
 
-[https://videopress.com/embed/Cor6CHI8](https://videopress.com/embed/Cor6CHI8)
+[Watch Video Highlight](https://videopress.com/embed/Cor6CHI8)
 
-[https://videopress.com/embed/md0CXS3t](https://videopress.com/embed/md0CXS3t)
+[Watch Video Highlight](https://videopress.com/embed/md0CXS3t)
 
-[https://videopress.com/embed/OpcWI8O4](https://videopress.com/embed/OpcWI8O4)
+[Watch Video Highlight](https://videopress.com/embed/OpcWI8O4)
 
-You can check out my event recap [here](http://www.backstreets.com/news.html#SUFH)if you like, too.
+You can check out my event recap [here](https://www.backstreets.com/news.html#SUFH)if you like, too.
 
 As this piece publishes, I’m on my way to Pittsburgh to catch Joe Grushecky and The Houserockers at a special hometown concert to celebrate the release of the new 25th Anniversary edition of [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/). The show is tonight, and thanks to Little Steven’s Underground Garage, you can watch it for free from the comfort of your own home. Join Joe and the band (and me in the audience!) [here](https://www.facebook.com/undergroundgarage).
 
-Finally, also by the time this sees print, my review of the aforementioned AB25 deluxe edition should be up on Backstreets News. I can’t recommend the album highly enough, and there’s [some pretty cool breaking Bruce news in my review](http://backstreets.com/news.html#AB25) that you’re going to want to check out. (Apple Music subscribers, make sure you block off Friday at 5pm Eastern on your calendars!)
+Finally, also by the time this sees print, my review of the aforementioned AB25 deluxe edition should be up on Backstreets News. I can’t recommend the album highly enough, and there’s [some pretty cool breaking Bruce news in my review](https://backstreets.com/news.html#AB25) that you’re going to want to check out. (Apple Music subscribers, make sure you block off Friday at 5pm Eastern on your calendars!)
 
 That’s all for now, but I’ll be back tomorrow with a couple more special treats. (So maybe this isn’t really a break after all?)
 
 Anyway, thanks for sticking with me while I moonlight a bit. I’ll be back home and blogging away again in a couple of days–look for a new *Roll of the Dice* this weekend.
-
- 

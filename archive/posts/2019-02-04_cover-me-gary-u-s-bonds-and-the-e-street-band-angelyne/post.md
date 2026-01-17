@@ -2,13 +2,13 @@ Covers of Bruce Springsteen songs tend to fall into two categories: new interpre
 
 Gary U.S. Bonds’ cover of Bruce’s “Angelyne” falls into an odd third category, however: Bruce not only gave him the song, he gave him the *recording.* Take a listen to the track below and you’ll clearly hear the E Street Band backing Bonds.
 
-[https://www.youtube.com/watch?v=w107crliV44](https://www.youtube.com/watch?v=w107crliV44)
+[Watch on Youtube: Angelyne](https://www.youtube.com/watch?v=w107crliV44)
 
 “Angelyne” is a serious E Street Band showcase: not only do Danny and Clarence get extended solos, but Steve trades off lead vocals with Bonds!
 
 How in the world did this come about? We can thank Columbia Records for that.
 
-Although there seems to be no definitive chronicle or sequence of events, it appears that Bruce and the E Street Band first recorded “Angelyne” on February 1, 1980 during the River sessions. (Interestingly, the song kicks off with “party noises” similar to those in “[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/),” which Bruce would record later that same month. Bruce gave “Angelyne” to Bonds, who likely recorded his vocals over the backing track, turning the song into a duet with Bruce.
+Although there seems to be no definitive chronicle or sequence of events, it appears that Bruce and the E Street Band first recorded “Angelyne” on February 1, 1980 during the River sessions. (Interestingly, the song kicks off with “party noises” similar to those in “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/),” which Bruce would record later that same month. Bruce gave “Angelyne” to Bonds, who likely recorded his vocals over the backing track, turning the song into a duet with Bruce.
 
 And that’s where Columbia enters the picture: Although they apparently had no objection to Bruce participating in Bonds’ previous album, *Dedication*, they took issue with Bruce’s vocals being used on the follow-up. So even though Bruce co-produced the album and wrote a whopping seven of the eleven tracks on the album, Bruce was forced to remove his vocals from all of the recorded tracks (although I swear I can hear his unmistakable whoop at around the 1:53 mark).
 
@@ -18,7 +18,7 @@ That didn’t pose a problem for most of the album, since Bruce was singing very
 
 As for the song itself: let’s start with the title, because it holds some significance: it was the working title of the song that would eventually become “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/).” Take a listen to this early pre-Mary demo:
 
-[https://www.youtube.com/watch?v=APldzhXlBIE](https://www.youtube.com/watch?v=APldzhXlBIE)
+[Watch on Youtube: Bruce Springsteen Angelyne #1 Acoustic Demo](https://www.youtube.com/watch?v=APldzhXlBIE)
 
 “Angelyne” eventually morphed into “The River,” but Bruce was apparently too taken with the original name to discard it altogether. Instead, he gave it to the female lead of the song that now bears her name on Bonds’ *On the Line* album.
 
@@ -81,4 +81,4 @@ And look how they turned out.
 **First performed:** July 2, 1989 (Long Branch, NJ)  
 **Last performed:** July 2, 1989 (Long Branch, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

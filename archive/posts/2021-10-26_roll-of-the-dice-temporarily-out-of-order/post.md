@@ -4,7 +4,7 @@ As Steel Mill songs go, “Temporarily Out of Order” is a pretty tight, light,
 
 But like I said, this is still a fun song, so let’s take a listen.
 
-[https://videopress.com/embed/iseNgxgd](https://videopress.com/embed/iseNgxgd)
+[Watch Video Highlight](https://videopress.com/embed/iseNgxgd)
 
 “Temporarily Out of Order” takes the once-ubiquitous but dreaded sign that used to adorn malfunctioning payphones, laundry machines and the like, and it applies it to the narrator’s doomed relationship.
 

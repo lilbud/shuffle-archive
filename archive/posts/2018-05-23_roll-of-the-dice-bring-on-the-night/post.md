@@ -4,9 +4,9 @@ And if there’s one thing these last two decades of revealing outtakes have tau
 
 Case in point: “Bring on the Night,” a Darkness/River-era outtake that has some *very* familiar lyrics:
 
-[https://www.youtube.com/watch?v=lumeLcEFPsI](https://www.youtube.com/watch?v=lumeLcEFPsI)
+[Watch on Youtube: Bring On The Night (Studio Outtake - 1979)](https://www.youtube.com/watch?v=lumeLcEFPsI)
 
-Yes, “Bring on the Night” is a kissing cousin to “[My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/).” The two songs share more than some common lines–they’re both restless, urgent, lonely cries for connection from an isolated introvert. (“[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” is another example of that theme–Bruce would mine this ground often during his early stardom years.)
+Yes, “Bring on the Night” is a kissing cousin to “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/).” The two songs share more than some common lines–they’re both restless, urgent, lonely cries for connection from an isolated introvert. (“[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” is another example of that theme–Bruce would mine this ground often during his early stardom years.)
 
 But while the protagonist of “My Love” is fiercely defiant and determined to make that connection and conquer his shyness, the narrator of “Bring on the Night” accepts and relishes his inability to connect.
 
@@ -44,7 +44,7 @@ There’s evidence to support this theory: first, “Bring on the Night” pre-d
 
 If we listen to the existing outtakes (can outtakes have outtakes?) of “Bring on the Night,” we can trace the origin and evolution of both its theme and melody. Here’s an early version, recorded at home. The melody is very different (until about 2:25, when suddenly and inexplicably the melody shifts to the one we’re familiar with), but the theme is already there, even though most of the lyrics aren’t:
 
-[https://www.youtube.com/watch?v=afJArLB8DPA](https://www.youtube.com/watch?v=afJArLB8DPA)
+[Watch on Youtube: Bruce Springsteen Bring on the Night #1](https://www.youtube.com/watch?v=afJArLB8DPA)
 
 (I actually like this arrangement a lot–I’d love to have heard this one with more polish.)
 
@@ -52,11 +52,11 @@ The few lyrics that are intelligible establish that the narrator is restless, un
 
 In this next version, Bruce has started to develop the idea of the narrator walking the streets, unable to connect:
 
-[https://www.youtube.com/watch?v=E2R7wc5LqyU](https://www.youtube.com/watch?v=E2R7wc5LqyU)
+[Watch on Youtube: Bruce Springsteen Bring on the Night #2](https://www.youtube.com/watch?v=E2R7wc5LqyU)
 
 By 1979, Bruce had almost settled on the final lyrics. He seized the late transitional melody from the first outtake above, and called the band together to rehearse the song:
 
-[https://www.youtube.com/watch?v=48hBjV19GlM](https://www.youtube.com/watch?v=48hBjV19GlM)
+[Watch on Youtube: "Bring on the Night" Studio rehearsal, 1979](https://www.youtube.com/watch?v=48hBjV19GlM)
 
 On June 13, 1979, the band recorded the final take, but it would sit in the vault for 19 years before being remixed and released on *Tracks*. Sandwiched on Disc One right after “[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)” and “[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/),” and just before “So Young and in Love” and “[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/),” “Bring on the Night” sticks out prominently, weak in comparison to the polished classics that surround it.
 
@@ -64,11 +64,11 @@ Nevertheless, it offers a fascinating peek into Bruce’s songwriting process, a
 
 **Bonus:** Here’s another early outtake–I suspect this one is earlier than the others, as it has almost nothing in common with them other than the title and theme. This version is full of violent imagery, with a narrator who call for night because he wants to black out all of the crime and pain that comes during the day. It’s an interesting conceit to use night to combat the paradoxical darkness of day, but clearly, Bruce wanted to take the song in a different direction.
 
-[https://www.youtube.com/watch?v=ZYpPhvthseA](https://www.youtube.com/watch?v=ZYpPhvthseA)
+[Watch on Youtube: Bruce Springsteen Bring on the Night #3](https://www.youtube.com/watch?v=ZYpPhvthseA)
 
 **Bring on the Night**  
 **Recorded**: June 13, 1979  
 **Released**: *Tracks* (1998)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -8,7 +8,7 @@ Today’s entry is one of those gems, and it hails from Bruce’s 2005 solo acou
 
 The subject dates back long before that–back to Dominic Behan’s 1960 cautionary ballad, “The Patriot Game.”
 
-[https://www.youtube.com/watch?v=N6K1ECpdPws](https://www.youtube.com/watch?v=N6K1ECpdPws)
+[Watch on Youtube: Dominic Behan - The Patriot Game](https://www.youtube.com/watch?v=N6K1ECpdPws)
 
 “The Patriot Game” is the story of a young IRA volunteer who lay dying, reflecting on his involvement in a deadly conflict, and how the love of one’s land–that “terrible thing… makes us all part of the patriot game.”
 
@@ -16,7 +16,7 @@ It’s a somber, sobering tale that’s been covered many times since Behan’s 
 
 What brought the song to Bruce’s mind on May 17, 2005? I can’t answer that one. But it was the first song he soundchecked that afternoon as he sat at the pump organ he’d introduced to the stage only two weeks before.
 
-[https://www.youtube.com/watch?v=PaVu43aW6gA](https://www.youtube.com/watch?v=PaVu43aW6gA)
+[Watch on Youtube: The Patriot Game - May 17th, 2005 Soundcheck Tower Theater, Upper Darby, PA](https://www.youtube.com/watch?v=PaVu43aW6gA)
 
 The pump organ was the perfect accompaniment for Behan’s dirge, and while Bruce may have been singing to an empty room, his vocals were yearning and earnest. The solitude in which he sang only served to underscore the song’s emotional impact.
 
@@ -25,5 +25,3 @@ It was probably too obscure to make the main set, but Bruce’s performance of �
 **The Patriot Game  
 First performed:** May 17, 2005 (Upper Darby, PA) – soundcheck only  
 **Last performed:** May 17, 2005 (Upper Darby, PA) – soundcheck only
-
- 

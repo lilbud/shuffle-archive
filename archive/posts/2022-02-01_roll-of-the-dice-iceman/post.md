@@ -2,7 +2,7 @@ Ask anyone to name Bruce Springsteen’s most misunderstood song, and they’ll 
 
 But if you ask me, I’ll tell you it’s “Iceman.”
 
-[https://www.youtube.com/watch?v=38uXE7CPDYY](https://www.youtube.com/watch?v=38uXE7CPDYY)
+[Watch on Youtube: Iceman (Studio Outtake - 1977)](https://www.youtube.com/watch?v=38uXE7CPDYY)
 
 “Iceman” is a relatively obscure track. Recorded in a single autumn day in 1977, “Iceman” is a dour-sounding track that’ll fool you into thinking it’s more pessimistic than it is. Or that it’s pessimistic at all.
 
@@ -75,11 +75,11 @@ He may not be pulling out of there to win, but at least he’s pulling out of th
 
 Bruce liked the bootleg recording enough to clean it up and include it on Disc 1 of *Tracks*, but even then the song remained unplayed for years. He finally debuted it in a solo piano arrangement in 2005 on his Devils & Dust Tour in Philadelphia.
 
-[https://www.youtube.com/watch?v=BazLMP8aQu4](https://www.youtube.com/watch?v=BazLMP8aQu4)
+[Watch on Youtube: Iceman - Bruce Springsteen (17-05-2005 Tower Theatre de Upper Darby,Philadelphia)](https://www.youtube.com/watch?v=BazLMP8aQu4)
 
 Following that solo debut, Bruce played it twice more with the E Street Band, once in 2014 in Charlotte, and then again in 2016 in Paris.
 
-[https://www.youtube.com/watch?v=USDqHPeFi00](https://www.youtube.com/watch?v=USDqHPeFi00)
+[Watch on Youtube: Bruce Springsteen | Iceman - Charlotte - 19/04/2014](https://www.youtube.com/watch?v=USDqHPeFi00)
 
 With only three performances ever, “Iceman” remains a rarity–too misunderstood to be fully appreciated and too stately-sounding to sustain the momentum of an E Street Band concert. It’s likely to remain one of Bruce’s most under-the-radar and underappreciated tracks.
 

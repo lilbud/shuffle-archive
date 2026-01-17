@@ -6,21 +6,21 @@ Orbison was already in a band of his own: the Wink Westerners, later known as th
 
 Determined to get a record contract, Orbison and the Teen Kings auditioned for Columbia, (after unsuccessfully trying to get an audition with Sun Records), and “Ooby Dooby” is one of the demos they recorded in the process.
 
-[https://www.youtube.com/watch?v=P_CNrVfQpSQ](https://www.youtube.com/watch?v=P_CNrVfQpSQ)
+[Watch on Youtube: *(1955) ''Ooby Dooby'' (Demo) The Wink Westerners](https://www.youtube.com/watch?v=P_CNrVfQpSQ)
 
 Columbia took a pass on The Teen Kings, but they kept the song and handed it to Sid King and the Five Strings, who recorded and released it in 1956. It went nowhere.
 
-[https://www.youtube.com/watch?v=DqhFNk0Cfa8](https://www.youtube.com/watch?v=DqhFNk0Cfa8)
+[Watch on Youtube: Ooby Dooby (Remastered)](https://www.youtube.com/watch?v=DqhFNk0Cfa8)
 
 In the meantime, still determined to make it in the record business, The Teen Kings signed with a local independent record label called Je-Wel and recorded another attempt at “Ooby Dooby.”
 
-[https://www.youtube.com/watch?v=QPzXpMj7w8Y](https://www.youtube.com/watch?v=QPzXpMj7w8Y)
+[Watch on Youtube: Teen Kings - Ooby Dooby (Je-wel Records / Petty Studio version)](https://www.youtube.com/watch?v=QPzXpMj7w8Y)
 
 Orbison’s version of “Ooby Dooby” came out concurrently with Sid King’s version, and when Sam Phillips of Sun Records heard it, he changed his mind about Orbison.
 
 Roy’s original aspiration was to be a Sun recording artist, so he was more than happy to let Phillips figure out a way to steal him away from Je-Wel (as a minor, Roy’s contract with Je-Wel wasn’t enforceable). The Teen Kings soon went into the studio and recorded yet another version of “Ooby Dooby”–this time for Sun.
 
-[https://www.youtube.com/watch?v=yg9a14a5OY4](https://www.youtube.com/watch?v=yg9a14a5OY4)
+[Watch on Youtube: Roy Orbison and Teen Kings - "Ooby Dooby"](https://www.youtube.com/watch?v=yg9a14a5OY4)
 
 Whew! That’s a lot of backstory and a lot of attempts for a pop trifle that never even cracked the Top 40. But while it may not have set the charts aflame, “Ooby Dooby” sold about 200,000 copies–enough to earn Orbison and the boys another bite at the apple. It would be a few years still before Orbison landed a Top 40 single, but “Ooby Dooby” kept him in the game.
 
@@ -32,12 +32,10 @@ Like all of the assembled talent, Bruce was happy to linger in the background fo
 
 “Ooby Dooby” wasn’t one of the songs that featured a Springsteen vocal, but we do get treated to a very nice guitar solo from Bruce during the second half of the song.
 
-[https://www.youtube.com/watch?v=Mi5OprPZN7s](https://www.youtube.com/watch?v=Mi5OprPZN7s)
+[Watch on Youtube: Roy Orbison - Ooby Dooby (Black & White Night 30)](https://www.youtube.com/watch?v=Mi5OprPZN7s)
 
 Bruce had never played “Ooby Dooby” before, and he hasn’t played it since. But when your one and only performance is as the sideman for one of rock’s all-time legends, once is all you need.
 
 **Ooby Dooby  
 First performed:** September 30, 1987 (Los Angeles, CA)  
 **Last performed:** September 30, 1987 (Los Angeles, CA)
-
- 

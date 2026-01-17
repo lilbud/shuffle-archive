@@ -2,15 +2,15 @@ For all the outtakes that Bruce has released from the River recording sessions, 
 
 One of the most intriguing and elusive outcasts is “Under the Gun” — intriguing because it contains lyrics that would migrate to two officially released songs, and elusive because there are so many bootleg recordings of Bruce developing it, from his earliest melodic tinkering at home…
 
-[https://videopress.com/embed/VBnmRayT](https://videopress.com/embed/VBnmRayT)
+[Watch Video Highlight](https://videopress.com/embed/VBnmRayT)
 
 …to acoustic home demos with lyrics that progress from mostly bluffed to halfway complete…
 
-[https://videopress.com/embed/7hfo41fX](https://videopress.com/embed/7hfo41fX)
+[Watch Video Highlight](https://videopress.com/embed/7hfo41fX)
 
 …to almost-ready-for-the-studio band rehearsals.
 
-[https://videopress.com/embed/7OEmFUYM](https://videopress.com/embed/7OEmFUYM)
+[Watch Video Highlight](https://videopress.com/embed/7OEmFUYM)
 
 In all, there are a whopping eleven known work-in-progress bootlegs of “Under the Gun,” but not a single one of the final version, which session logs indicate the E Street Band recorded on June 14, 1979.
 
@@ -30,11 +30,11 @@ Unfortunately, the only thing we can discern from those recordings is Bruce’s 
 
 They did another take, shaving 35 seconds off:
 
-[https://videopress.com/embed/6661DRrN](https://videopress.com/embed/6661DRrN)
+[Watch Video Highlight](https://videopress.com/embed/6661DRrN)
 
 But Bruce *still* wasn’t satisfied. He led the band through a take so taught it rivals “[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/),” and we can hear the band’s triumphant satisfaction when they clock in under two minutes.
 
-[https://videopress.com/embed/ExpacMhm](https://videopress.com/embed/ExpacMhm)
+[Watch Video Highlight](https://videopress.com/embed/ExpacMhm)
 
 They had good reason to be jubilant–even from those muddy recordings, we can tell that the song finally gelled during that take. To my ears, at least, “Under the Gun” sounds like it would have been a perfect musical fit for *The River* and a terrific uptempo rocker in concert.
 

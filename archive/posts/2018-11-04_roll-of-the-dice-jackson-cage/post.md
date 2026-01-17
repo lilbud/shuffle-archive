@@ -2,11 +2,11 @@
 
 The earliest known recording of what would become “Jackson Cage” is just a snippet of a chorus, recorded at home in mid-1979.
 
-[https://www.youtube.com/watch?v=dNZvi6d-_xo](https://www.youtube.com/watch?v=dNZvi6d-_xo)
+[Watch on Youtube: Bruce Springsteen Jackson Cage #1](https://www.youtube.com/watch?v=dNZvi6d-_xo)
 
 We get perhaps a little more insight into Bruce’s original concept with this single home-recorded verse, also from 1979, but given the slower speed and more introspective tone, it’s likely from a different session.
 
-[https://www.youtube.com/watch?v=K4Etm2hgGFQ](https://www.youtube.com/watch?v=K4Etm2hgGFQ)
+[Watch on Youtube: Bruce Springsteen Jackson Cage #2](https://www.youtube.com/watch?v=K4Etm2hgGFQ)
 
 Bruce’s early lyrics here are interesting. Unlike the final version, where the focus is on the dual prisons of a convicted criminal and his romantic partner left to fend for herself, here Bruce focuses on the day to day experience of the prisoner himself, struggling physically, mentally, and emotionally for survival:
 
@@ -24,7 +24,7 @@ The quieter melody is fascinating, too–listening to the all-too-brief snippet 
 
 Let’s fast forward to those 1980 recording sessions. Here we have Bruce’s next recorded attempt at “Jackson Cage,” from January. The lyrics are far more fleshed out now, and the instrumental track is fully recognizable… although not in the way you’d expect:
 
-[https://www.youtube.com/watch?v=Pa1NOANOEb0](https://www.youtube.com/watch?v=Pa1NOANOEb0)
+[Watch on Youtube: Bruce Springsteen Jackson Cage](https://www.youtube.com/watch?v=Pa1NOANOEb0)
 
 Well, that’s surprising, isn’t it?
 
@@ -52,21 +52,21 @@ In this version, Bruce has shifted the focus away from the prisoner (who doesn�
 
 A month later, on February 5, Bruce and the Band were in Bruce’s home studio (or more accurately, barn studio), taking a cut at the song. Once again, we have a *very* different melody and arrangement:
 
-[https://www.youtube.com/watch?v=fDc3nsWYsXQ](https://www.youtube.com/watch?v=fDc3nsWYsXQ)
+[Watch on Youtube: Bruce Springsteen Jackson Cage #1 different music & lyrics](https://www.youtube.com/watch?v=fDc3nsWYsXQ)
 
 …and the lyrics seems to have taken a step backward (although since this was a band rehearsal, it’s quite possible that Bruce was just bluffing much of the song in order to focus on the band arrangement. Still, the focus here is still clearly on the girl waiting for her locked-up man, although now she doesn’t seem so trapped–she goes out dancing while the narrator/prisoner whiles his life away in jail.
 
-A second rehearsal from the same day is largely similar, but it reveals more of the lyrics (supporting the theory that Bruce was bluffing above) and interestingly the words “Jackson Cage” altogether, and the song now seems almost like a “[Two Hearts](http://estreetshuffle.com/?s=two+hearts)“-style pep talk. Take a listen:
+A second rehearsal from the same day is largely similar, but it reveals more of the lyrics (supporting the theory that Bruce was bluffing above) and interestingly the words “Jackson Cage” altogether, and the song now seems almost like a “[Two Hearts](https://estreetshuffle.com/?s=two+hearts)“-style pep talk. Take a listen:
 
-[https://www.youtube.com/watch?v=GEApRJTtGrI](https://www.youtube.com/watch?v=GEApRJTtGrI)
+[Watch on Youtube: Bruce Springsteen Jackson Cage #2 different music & lyrics](https://www.youtube.com/watch?v=GEApRJTtGrI)
 
-Still, even though it may seem like Bruce was pretty far afield from the song that would end up on *The River* later that year, it didn’t take long for the song to gel from here: within a month, Bruce and the E Street Band would take a melody Bruce had tried out earlier on “[Take ’em as They Come](http://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)“…
+Still, even though it may seem like Bruce was pretty far afield from the song that would end up on *The River* later that year, it didn’t take long for the song to gel from here: within a month, Bruce and the E Street Band would take a melody Bruce had tried out earlier on “[Take ’em as They Come](https://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)“…
 
-[https://www.youtube.com/watch?v=n-t7wGtd4j4](https://www.youtube.com/watch?v=n-t7wGtd4j4)
+[Watch on Youtube: Bruce Springsteen Take 'Em As They Come #2](https://www.youtube.com/watch?v=n-t7wGtd4j4)
 
 …and record the final version we know and love today. This is the version we’ll dive into:
 
-[https://www.youtube.com/watch?v=mak1f7kWq2o](https://www.youtube.com/watch?v=mak1f7kWq2o)
+[Watch on Youtube: Jackson Cage](https://www.youtube.com/watch?v=mak1f7kWq2o)
 
 Let’s start off by acknowledging the power of the instrumental track–it may have taken Bruce a while to settle on what he was aiming for, but he certainly got there in the end. Max’s rat-a-tat barrels us out of the starting gate, only to have us land with a *thud* right in the middle of what feels like an action scene. In the background, Bruce’s distant wails make us feel almost like we’ve landed at the end of “Jungleland,” with our narrator hauled off by the cherry-tops.
 
@@ -136,21 +136,21 @@ For as much solace as she brings to him through her visits and loyalty, she incr
 
 There’s no happy ending in “Jackson Cage,” no resolution of any sort–or even an inkling of one. This is a song about prison, after all. All we can do is wonder whether at least one of them someday escapes their cage.
 
-(Ironically, though, Bruce took the opening lines of the song and repurposed them in one of his most carefree compositions, “[Where the Bands Are](http://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/).”)
+(Ironically, though, Bruce took the opening lines of the song and repurposed them in one of his most carefree compositions, “[Where the Bands Are](https://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/).”)
 
 “Jackson Cage” made its live premiere on the first night of the River Tour in Ann Arbor. Bruce introduced it simply as a song off the new album and performed it faithfully, if a bit slowly:
 
-[https://www.youtube.com/watch?v=kNWO5eHefLU](https://www.youtube.com/watch?v=kNWO5eHefLU)
+[Watch on Youtube: RARE Bruce Sprinsteen "Jackson Cage" LIVE Oct. 3, 1980 - Ann Arbor - Crisler Arena](https://www.youtube.com/watch?v=kNWO5eHefLU)
 
 But a much clearer and more confident performance can be found on the concert video from Tempe just over a month later, included in *The Ties That Bind: The River Collection*. This arrangement is virtually identical to the album, but with a guitar solo taking the place of Bruce’s harmonica from the studio version.
 
-[https://www.youtube.com/watch?v=iAft3Oy97q4](https://www.youtube.com/watch?v=iAft3Oy97q4)
+[Watch on Youtube: Bruce Springsteen - Jackson Cage (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=iAft3Oy97q4)
 
 “Jackson Cage” came out most nights during the first leg of the River Tour, sporadically during the 1981 leg, and then it disappeared entirely for more than a decade. Starting with the Rising Tour, “Jackson Cage” made a few cameo appearances on each E Street Band Tour but was never a setlist staple until it became one by default during Bruce’s 2016 River Tour, where it appeared during every full album performance.
 
 Here’s one of those performances, from one of the very last full-album shows in Barcelona, on May 14, 2016.
 
-[https://www.youtube.com/watch?v=oK3icKuVnmM](https://www.youtube.com/watch?v=oK3icKuVnmM)
+[Watch on Youtube: Bruce Springsteen - Barcelona 14-05-16 - Jackson Cage (dubbed audio)](https://www.youtube.com/watch?v=oK3icKuVnmM)
 
 Will we see “Jackson Cage” again? If history is any indication, probably. Although it didn’t show up in the brief 2004 Vote for Change and 2017 Australian tours, it hasn’t skipped out a full E Street Band tour in over fifteen years. We haven’t heard the last from our lifers.
 
@@ -160,4 +160,4 @@ Recorded:** February-March, 1980
 **First performed:** October 3, 1980 (Ann Arbor, MI)  
 **Last performed:** July 28, 1980 (Oslo, Norway)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

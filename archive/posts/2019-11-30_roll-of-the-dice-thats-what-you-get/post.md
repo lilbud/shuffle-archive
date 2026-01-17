@@ -4,11 +4,11 @@ But here’s an example that’s extreme even by Bruce’s standards.
 
 In May of 1966, Bruce Springsteen was only sixteen years old. He was already in his first band, though–a combo called the Castiles.
 
-Not only was Bruce in a band, he was also ready to start songwriting. On the way to his very first-ever studio session, he and bandmate George Theiss co-wrote two songs in the car on the way to the session. The first, “[Baby I](http://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/)” would eventually be released a full half-century later on *Chapter and Verse*. The latter, however, still hasn’t seen the light of day.
+Not only was Bruce in a band, he was also ready to start songwriting. On the way to his very first-ever studio session, he and bandmate George Theiss co-wrote two songs in the car on the way to the session. The first, “[Baby I](https://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/)” would eventually be released a full half-century later on *Chapter and Verse*. The latter, however, still hasn’t seen the light of day.
 
 That second song was called “That’s What You Get,” and while it may not have been officially released, we’re lucky enough to have a leaked version of it from a surviving acetate. In the clip below, George Theiss sings lead vocals (as he did on “Baby I” as well), but Bruce is very much in the mix.
 
-[https://www.youtube.com/watch?v=_1ET0kehXbg](https://www.youtube.com/watch?v=_1ET0kehXbg)
+[Watch on Youtube: Bruce Springsteen and the Castiles: That's What You Get (studio version)](https://www.youtube.com/watch?v=_1ET0kehXbg)
 
 The fidelity isn’t exactly high–I can’t even make out all the lyrics–but we can hear enough of “That’s What You Get” to register a shockingly early example of one of Bruce’s songwriting trademarks: seriously dark lyrics paired with uptempo–almost pop–backing tracks.
 
@@ -27,7 +27,7 @@ But it’s the second verse that rings with familiarity for Springsteen fans–l
 *I fall down on my knees and I cry*  
 *It’s my way of saying goodbye*
 
-It would take another eighteen years, but that middle line would eventually make it (in slightly modified form) to an official release via “[Downbound Train.](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)”
+It would take another eighteen years, but that middle line would eventually make it (in slightly modified form) to an official release via “[Downbound Train.](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)”
 
 It’s believed that Bruce and The Castiles likely played “That’s What You Get” live throughout 1966 and 1967, but no document survives to confirm that. Not only does this recording stand as the only confirmed performance of one of Bruce’s earliest songs, it’s tied with “Baby I” as the earliest known recording of a Bruce Springsteen performance.
 
@@ -37,4 +37,4 @@ Recorded:** May 18, 1966
 **First performed:** unconfirmed  
 **Last performed:** unconfirmed
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

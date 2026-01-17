@@ -6,7 +6,7 @@ Still, it’s not the lyrics that make the song notable, nor frankly is it the b
 
 In particular, pay attention to Danny Federici’s keyboards; you won’t have to wait long, as Danny is immediately up front and prominent in the mix, and he is an absolute force of nature here.
 
-[https://videopress.com/embed/sImCwidx](https://videopress.com/embed/sImCwidx)
+[Watch Video Highlight](https://videopress.com/embed/sImCwidx)
 
 See what I mean? And Bruce isn’t too shabby either, earning his early reputation as one of the fastest guitarists around, while Vinnie Roslin propels the song’s sexy, bass-driven riff.
 
@@ -54,4 +54,4 @@ So we’ll appreciate this recording for what it is: a remarkably clear and very
 **First performed:** September 20, 1969 (Richmond, VA)  
 **Last performed:** April 18, 1970 (Toms River, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

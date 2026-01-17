@@ -12,7 +12,7 @@ Amazingly, their performance that night was captured on both audio and video, an
 
 In one of the set’s highlights, The Bruce Springsteen band kicks into a superbly cool rendition of Bruce’s original song, “The Band’s Just Boppin’ the Blues,” of which only two performances are known to exist on bootleg audio. (This one is by far the superior performance, thanks to the Southside’s guest appearance.)
 
-[https://videopress.com/embed/vioCata0](https://videopress.com/embed/vioCata0)
+[Watch Video Highlight](https://videopress.com/embed/vioCata0)
 
 Bruce obviously intended his title as a hat-tip to Carl Perkins, who had an almost-hit with “Boppin’ the Blues” fifteen years earlier (and had recently re-recorded it with New Jersey based NRBQ).
 

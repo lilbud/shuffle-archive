@@ -8,16 +8,14 @@ The day of the show was one of the most inhospitable ones I can remember–just 
 
 The Foundation tickets came with an awesome pre-show highlight, though–one that I’ll probably remember longer than the show itself: we got to meet Steve himself and take a quick photo with him!
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/11313078_10208555440662040_8041608604007081818_o-300x200.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/03/11313078_10208555440662040_8041608604007081818_o.jpg)
 
 Show-wise, the main set River performance was the highlight as usual for this early leg of the tour, but the second set was no slouch: for a while, I almost thought he was going to perform the entire [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) album, too, as 4 of the first 5 post-River songs were selections or outtakes from that album. In fact, of the 35 songs played, only 3 originated post-1980, making it an unusually intense, old-school night.
 
-[https://www.youtube.com/watch?v=SN-E-pJEQgE](https://www.youtube.com/watch?v=SN-E-pJEQgE)
+[Watch on Youtube: Bruce Springsteen & The E Street Band, Pointblank, Oakland March 13, 2016](https://www.youtube.com/watch?v=SN-E-pJEQgE)
 
-[https://www.youtube.com/watch?v=5zwccSEJ8tE](https://www.youtube.com/watch?v=5zwccSEJ8tE)
+[Watch on Youtube: Bruce Springsteen & The E Street Band, Badlands/ Prove It All Night, Oakland March 13, 2016](https://www.youtube.com/watch?v=5zwccSEJ8tE)
 
-[https://www.youtube.com/watch?v=YckePW-ReLw](https://www.youtube.com/watch?v=YckePW-ReLw)
+[Watch on Youtube: Candys Room - Bruce Springsteen - Oakland - 13th March 2016](https://www.youtube.com/watch?v=YckePW-ReLw)
 
 All in all, a great night–but only a taste of what was to come in the three-night L.A. stand and Seattle shows coming up shortly thereafter.
-
- 

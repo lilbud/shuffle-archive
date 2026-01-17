@@ -6,13 +6,13 @@ That night, he essentially joined The Patti Smith Group, playing guitar or piano
 
 One of those songs was Patti’s “Free Money,” a poem born on a late-night walk, set to music by Lenny Kaye, and released on *Horses.* 
 
-[https://www.youtube.com/watch?v=U-ZJGfA0UxY](https://www.youtube.com/watch?v=U-ZJGfA0UxY)
+[Watch on Youtube: Free Money](https://www.youtube.com/watch?v=U-ZJGfA0UxY)
 
 While we know that Bruce played both piano and guitar that November night, we don’t know which instrument he played during “Free Money” — that information has been lost to time.
 
 But if I had to hazard a guess based on the recording below (and other performances from that night where Bruce’s role is known), I’d wager Bruce was on the piano. At risk of offending John Cale, who was also guest-starring that night on piano, I detect just a bit of the hesitancy I often hear when Bruce plays the piano, although that may simply be an artifact of the old and somewhat distant recording.
 
-[https://videopress.com/embed/LdU0fAz4](https://videopress.com/embed/LdU0fAz4)
+[Watch Video Highlight](https://videopress.com/embed/LdU0fAz4)
 
 Regardless of which instrument Bruce helmed that night, he contributed to a fierce performance and his only known one of that particular song.
 
@@ -23,5 +23,3 @@ That one’s coming soon.
 **Free Money  
 First performed:** November 26, 1976 (New York City, NY)  
 **Last performed:** November 26, 1976 (New York City, NY)
-
- 

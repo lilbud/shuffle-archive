@@ -1,6 +1,6 @@
 “Warm and Tender Love” should have made Joe Haywood’s career when he released it in 1964. His original version is one of the most beautiful soul ballads of the early sixties.
 
-[https://www.youtube.com/watch?v=LAOZgoMg-Gk](https://www.youtube.com/watch?v=LAOZgoMg-Gk)
+[Watch on Youtube: Warm And Tender Love Joe Haywood original version](https://www.youtube.com/watch?v=LAOZgoMg-Gk)
 
 It didn’t, though, and when the great Percy Sledge released his own version shortly after as the follow-up to his smash hit “When a Man Loves a Woman,” it became Sledge’s second consecutive Top 20 hit and an enduring romantic soul classic.
 
@@ -16,7 +16,7 @@ Well, *sort of* covered it. Bruce never actually played “Warm and Tender Love�
 
 Pay attention to the clip below, and you’ll notice something subtle but very significant in Bruce’s cover..
 
-[https://www.youtube.com/watch?v=olIt2rI2IcE](https://www.youtube.com/watch?v=olIt2rI2IcE)
+[Watch on Youtube: Bruce Springsteen Warm and Tender Love](https://www.youtube.com/watch?v=olIt2rI2IcE)
 
 Did you notice? Bruce actually rewrote the lyrics. Both Haywood’s and Sledge’s versions are pledges, but Bruce’s is a plea. Instead of asking his partner to let him wrap her in his love, he asks her to love him instead. He even changed the verses to suit the song’s new message.
 
@@ -27,5 +27,3 @@ To this day, we’ve never heard Bruce perform this immortal classic in concert,
 **Warm and Tender Love  
 First performed:** March 23, 1993 (Red Bank, NJ) (soundcheck only)  
 **Last performed:** March 23, 1993 (Red Bank, NJ) (soundcheck only)
-
- 

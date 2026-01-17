@@ -6,7 +6,7 @@ On the evening of May 23, 1988, the Madison Square Garden crowd was admitted int
 
 Bruce’s selection was an obscure one: the sweet, romantic “For Your Love.” Not the Yardbirds’ song, mind you, but the 1957 Ed Townsend version by the same name.
 
-[https://www.youtube.com/watch?v=9y1gfYcpXA4](https://www.youtube.com/watch?v=9y1gfYcpXA4)
+[Watch on Youtube: Ed Townsend "For Your Love"](https://www.youtube.com/watch?v=9y1gfYcpXA4)
 
 “For Your Love” was Townsend’s first and last great hit, peaking at #13 on the Billboard Hot 100. But if you’re only going to have one big song, this is a great one to stand on. Townsend’s warm vocals and lush arrangement are evergreen; that sax solo and those soaring backing vocals make me swoon every time.
 
@@ -25,5 +25,3 @@ But (in my opinion, at least) the passion of Townsend’s original is lost in Br
 **For Your Love  
 First performed (soundcheck only):** May 23, 1988 (New York City, NY)  
 **Last performed (soundcheck only):** May 23, 1988 (New York City, NY)
-
- 

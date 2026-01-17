@@ -1,16 +1,12 @@
 > “I guess there’s just a certain amount of good and bad you get from your parents, and I just got the bad.”
 > 
-> 
-> 
 > “That’s not true. Cal! Listen to me: you can make of yourself anything you want. It’s up to you. A man has a choice.”
-> 
-> 
 > 
 > — Cal and Adam, *East of Eden* (1955)
 
 In 1955, *East of Eden* swept its way through a host of prestigious awards and nominations. Directed by the great Elia Kazan, based loosely on one section of John Steinbeck’s novel of the same name, and featuring James Dean’s debut screen performance, *East of Eden* won the Best Motion Picture (Drama) Golden Globe that year along with nominations for multiple Academy Awards (including a Best Supporting Actress win for Jo Van Fleet) and was eventually inducted into the National Film Registry.
 
-[https://www.youtube.com/watch?v=IqVoIQ5UsT8](https://www.youtube.com/watch?v=IqVoIQ5UsT8)
+[Watch on Youtube: East of Eden (1995) Official Trailer - James Dean Movie HD](https://www.youtube.com/watch?v=IqVoIQ5UsT8)
 
 *East of Eden* is an of-sorts retelling of the Cain and Abel story. In the film, two brothers named Cal and Aron stand in for their alliterative biblical counterparts. Each vies for the love of their father Adam (who seems to represent both the biblical Adam and God), but only the younger Aaron seems to have Adam’s affection and respect.
 
@@ -20,7 +16,7 @@ Seeking to hurt his brother after a particularly nasty fight, Cal introduces Aro
 
 If all of this seems like extraneous backstory for Bruce Springsteen’s earliest father/son song, trust me: it’s not. Because if you try to reconcile “Adam Raised a Cain” with the biblical story instead of the 1955 film, you’ll be left scratching your head.
 
-[https://www.youtube.com/watch?v=PRRd78fqmIg](https://www.youtube.com/watch?v=PRRd78fqmIg)
+[Watch on Youtube: Adam Raised a Cain](https://www.youtube.com/watch?v=PRRd78fqmIg)
 
 There’s no sibling rivalry in “Adam Raised a Cain.” There’s not even the mention of the existence of a brother. The narrator commits no sin, much less murder. If anything, someone familiar with only the Bible might wonder why Bruce didn’t name his song “Adam Raised an Adam.”
 
@@ -96,25 +92,25 @@ Plotkin obliged by digitally (yes, digitally, even in 1977) shifting Roy Bittan�
 
 One might argue (or at least I would) that Bruce and team overshot the mark a bit; to my ears “Adam Raised a Cain” sounds more like an experiment with punk and metal rather than a comfortable fit for the band, an impression that live full-band performances have never corrected.
 
-[https://www.youtube.com/watch?v=_46bdgXrLjg](https://www.youtube.com/watch?v=_46bdgXrLjg)
+[Watch on Youtube: Adam Raised A Cain (Live at the Roxy Theatre, W. Hollywood, CA - July 1978)](https://www.youtube.com/watch?v=_46bdgXrLjg)
 
-[https://www.youtube.com/watch?v=wG2pr5iu_WM](https://www.youtube.com/watch?v=wG2pr5iu_WM)
+[Watch on Youtube: Bruce Springsteen - Adam Raised A Cain - 22 May 1988, Madison Square Garden](https://www.youtube.com/watch?v=wG2pr5iu_WM)
 
-[https://www.youtube.com/watch?v=nkyTHbsOamE](https://www.youtube.com/watch?v=nkyTHbsOamE)
+[Watch on Youtube: Bruce Springsteen - Adam Raised a Cain (NYC 27-06-2000)](https://www.youtube.com/watch?v=nkyTHbsOamE)
 
 Because “Adam Raised a Cain” is a song about emotional imprisonment and estrangement, for me it works best when performed acoustically, the artist standing alone without support. Bruce seems to recognize this too, performing it this way many times over the years, frequently infusing it into his acoustic tours and sets.
 
-[https://www.youtube.com/watch?v=QP5vfdgmYEw](https://www.youtube.com/watch?v=QP5vfdgmYEw)
+[Watch on Youtube: Adam Raised a Cain - Bruce Springsteen (live at Stockholm Olympic Stadium 1993)](https://www.youtube.com/watch?v=QP5vfdgmYEw)
 
-[https://www.youtube.com/watch?v=hxEHu-z_xMw](https://www.youtube.com/watch?v=hxEHu-z_xMw)
+[Watch on Youtube: Adam Raised a Cain (Live at St. Rose of Lima School, Freehold, NJ - 11/08/1996)](https://www.youtube.com/watch?v=hxEHu-z_xMw)
 
 It’s rare that a full-band performance of “Adam Raised a Cain” works for me, but there are certainly notable exceptions. One was Bruce’s Seeger Sessions Tour arrangement, which combines the best of his acoustic arrangement with the underrated power and artistry of the Sessions Band.
 
-[https://www.youtube.com/watch?v=oh4pznAPHkg](https://www.youtube.com/watch?v=oh4pznAPHkg)
+[Watch on Youtube: Bruce Springsteen with The SSB - Adam Raised A Cain](https://www.youtube.com/watch?v=oh4pznAPHkg)
 
 The other is a jaw-droppingly intense performance before an empty Paramount Theater in Asbury Park, recorded for *The Promise: The Darkness on the Edge of Town Story* in 2009. Maybe it was the screaming-into-the-void effect of the silent, darkened theater that elicited what is perhaps the E Street Band’s most ferocious performance of the song, but whatever the inspiration the result is one of the most powerful pieces of performance video ever captured of Bruce and the band.
 
-[https://www.youtube.com/watch?v=Qi2TGTIXj0s](https://www.youtube.com/watch?v=Qi2TGTIXj0s)
+[Watch on Youtube: Adam Raised a Cain (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=Qi2TGTIXj0s)
 
 “Adam Raised a Cain” was regularly featured in Bruce’s set lists throughout the Darkness Tour but disappeared for a decade after that. Once it returned in a horn-powered arrangement in the Tunnel of Love Express Tour, it would never miss one of Bruce’s tours again, no matter which (if any) band was behind him.
 

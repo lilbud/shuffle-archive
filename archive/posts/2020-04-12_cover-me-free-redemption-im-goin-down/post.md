@@ -6,7 +6,7 @@ Every once in a while, though, a reader sends me a cover that’s so good and so
 
 Since I’m one of the more than four billion people under a stay-at-home order at the moment, I was glad for a momentary diversion, so I watched it right away. I’m glad I did, and if you take a few minutes to watch it with me, I think you will be, too.
 
-[https://www.youtube.com/watch?v=_O6ge4c1RSU](https://www.youtube.com/watch?v=_O6ge4c1RSU)
+[Watch on Youtube: I'm Going Down](https://www.youtube.com/watch?v=_O6ge4c1RSU)
 
 Nico and his band gifted us with a wonderful arrangement of “I’m Goin’ Down” — familiar enough to be recognizable but fresh enough to make us listen to the song with newfound attention.
 
@@ -19,5 +19,3 @@ Free Redemption’s version of “I’m Goin’ Down” is easily my favorite of
 **[Check out more from Free Redemption](https://www.facebook.com/FreeRedemption/)**
 
 **Nico Mirandola,** lead vocal, harmonica, guitar**Ivan Sacchi,** guitar, backing vocals**Michele Leoni,** bass, backing vocals**Gianluca Garavaso,** drums, backing vocals
-
- 

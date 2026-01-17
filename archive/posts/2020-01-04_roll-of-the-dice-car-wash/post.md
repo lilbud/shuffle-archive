@@ -1,12 +1,12 @@
-“Car Wash” is far from the only song Bruce has written from a female first-person perspective (see “[Devil’s Arcade](https://estreetshuffle.com/index.php/2021/05/16/roll-of-the-dice-devils-arcade/),” “[Paradise](http://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/),” and “[My Lover Man](http://estreetshuffle.com/index.php/2018/10/24/roll-of-the-dice-my-lover-man/)” for examples), but it may be the earliest, and it’s certainly the most overt: Bruce wastes no time introducing us to our heroine by name (Catherine) and drawing us into her world.
+“Car Wash” is far from the only song Bruce has written from a female first-person perspective (see “[Devil’s Arcade](https://estreetshuffle.com/index.php/2021/05/16/roll-of-the-dice-devils-arcade/),” “[Paradise](https://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/),” and “[My Lover Man](https://estreetshuffle.com/index.php/2018/10/24/roll-of-the-dice-my-lover-man/)” for examples), but it may be the earliest, and it’s certainly the most overt: Bruce wastes no time introducing us to our heroine by name (Catherine) and drawing us into her world.
 
 In point of fact, “Car Wash” wasn’t even called “Car Wash” until Bruce rescued the track from his vault for his 1998 *Tracks* box set project. Until then, from its original recording date fifteen years earlier, the song was called “Small Town Girl,” which clues us in to not placing too much importance or symbolism on her place of employment.
 
 The track itself is a fun one, a honky-tonk arrangement that would make for a fine set list companion to “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/).” (The similarity of the two tracks may be one reason why Bruce chose to leave “Small Town Girl” off of *Born in the U.S.A.*)
 
-[https://www.youtube.com/watch?v=I9m2UMyBBWU](https://www.youtube.com/watch?v=I9m2UMyBBWU)
+[Watch on Youtube: Car Wash (Studio Outtake - 1983)](https://www.youtube.com/watch?v=I9m2UMyBBWU)
 
-“Small Town Girl” wasn’t the only song to come out of those recording sessions to feature a car wash as a prominent locale–“[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” did so as well. But whereas “Downbound Train” uses the car wash as ironic metaphor, there’s barely a lick of symbolism, metaphor, or imagery to be found in “Car Wash.”
+“Small Town Girl” wasn’t the only song to come out of those recording sessions to feature a car wash as a prominent locale–“[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” did so as well. But whereas “Downbound Train” uses the car wash as ironic metaphor, there’s barely a lick of symbolism, metaphor, or imagery to be found in “Car Wash.”
 
 “Car Wash” is about the difficulty of hanging on to your dreams in the face of a stark reality that seems to defy them from ever being realized. In the song’s sole poetic touch, Catherine refers to her job at the car wash as “doing time,” a deliberate prison reference.
 
@@ -52,7 +52,7 @@ It’s a genuine surprise to me that Bruce has only ever played “Car Wash” o
 
 But one lone performance is all we’ve been given, so we’re fortunate that it was at least captured on video. The video quality is shaky for the first minute or so (it was 1999 after all), but it’s watchable and fun: Bruce draws out the song (he’d almost have to, since it’s only two minutes long on the record) with a great sax solo from Clarence.
 
-[https://www.youtube.com/watch?v=NrmZ4zG_5ls](https://www.youtube.com/watch?v=NrmZ4zG_5ls)
+[Watch on Youtube: Car Wash Bruce Springsteen June 13, 1999 Leipzig, GER](https://www.youtube.com/watch?v=NrmZ4zG_5ls)
 
 “Car Wash” remains unplayed since that Leipzig 1999 show–after two decades, I think it’s high time for Bruce to give it at least one more outing.
 
@@ -64,4 +64,4 @@ Recorded:** May 31, 1983
 **First performed:** June 13, 1999 (Leipzig, Germany)  
 **Last performed:** June 13, 1999 (Leipzig, Germany)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

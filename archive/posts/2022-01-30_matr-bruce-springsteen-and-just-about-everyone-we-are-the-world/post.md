@@ -12,17 +12,17 @@ Kragen implored Jon Landau to secure Bruce’s participation, but Landau set exp
 
 Bruce was scheduled to end his current leg of the tour the night before in Syracuse, three thousand miles away. Getting across the country the next day for an all-night recording session was a lot to ask. Heck, Bruce was nominated for a few AMAs that night (and won one), and yet he didn’t even attend the ceremony.
 
-[https://videopress.com/embed/GVzRSj7w](https://videopress.com/embed/GVzRSj7w)
+[Watch Video Highlight](https://videopress.com/embed/GVzRSj7w)
 
 But a few weeks before the scheduled recording session, Landau called Kragen and told him that Bruce was on board. And once Bruce was on board, *everyone* was on board. A wave of artists signed up after Bruce, and on the morning of January 28th, Bruce got on a plane and flew across the country to Los Angeles.
 
-[https://www.youtube.com/watch?v=tSlsjEk8VgQ](https://www.youtube.com/watch?v=tSlsjEk8VgQ)
+[Watch on Youtube: Bruce records "We Are the World"](https://www.youtube.com/watch?v=tSlsjEk8VgQ)
 
 There was no after-party at the AMAs that night; instead, the artists shuttled over to the studio in their limos or private cars. All except Bruce Springsteen, that is, who had just flown into town, rented a car for himself, drove to the studio, and exclaimed excitedly as he walked inside to [all who could hear](https://estreetshuffle.com/index.php/2021/01/29/where-the-band-was-los-angeles-january-28-29-1985-clydes-story/), “I just got a great parking spot!”
 
 While the starstruck artists assembled and greeted each other (many had never met each other before), the song itself was still coming together. Jackson and Richie and only just completed writing it one week earlier to the day, and even as the artists were reading their music, they were making spot changes, like swapping in “better day” for “brighter day.” It was almost midnight, and they hadn’t yet begun to record.
 
-[https://www.youtube.com/watch?v=n4IIW_gQuic](https://www.youtube.com/watch?v=n4IIW_gQuic)
+[Watch on Youtube: Bruce Springsteen Making of We Are The World](https://www.youtube.com/watch?v=n4IIW_gQuic)
 
 When recording finally began, the sessions lasted all through the night, with the artists waiting patiently for their turn in the spotlight. Bruce nursed a beer while he waited, and at one point he absent-mindedly left it on a riser next to Michael Jackson, who playfully posed with it for a photo which ended up leaking to the press.
 
@@ -30,13 +30,13 @@ When recording finally began, the sessions lasted all through the night, with th
 
 While some artists recorded, others rehearsed. Bruce took his part seriously, rehearsing take after take, including lines that wouldn’t make it into the final version. Check out nine minutes of Bruce’s rehearsals below.
 
-[https://www.youtube.com/watch?v=a345Q_COly0](https://www.youtube.com/watch?v=a345Q_COly0)
+[Watch on Youtube: Bruce Springsteen We are the World rehearsal](https://www.youtube.com/watch?v=a345Q_COly0)
 
 Bruce’s contributions were both memorable and spontaneous. He enters with thunder on the chorus, his trademark rasp filled with empathy, and as for that unforgettable duet with Stevie Wonder, that was divine on-the-fly inspiration.
 
 “God must have tapped me on the shoulder,” said Quincy Jones to *Rolling Stone, “*to save the record by suggesting that I ask Bruce Springsteen — for no logical reason at all — to supply solo answers to the choir melody on the title choruses because of the textures and intensity of his truly unique vocal equipment, especially in this register.” But instead of trading off with the choir, Jones called Stevie back the next night to record duet vocals to pair with Bruce, and the composite result powered the song through its final moments.
 
-[https://www.youtube.com/watch?v=9AjkUyX0rVw](https://www.youtube.com/watch?v=9AjkUyX0rVw)
+[Watch on Youtube: U.S.A. For Africa - We Are the World](https://www.youtube.com/watch?v=9AjkUyX0rVw)
 
 “We Are The World” ended up eclipsing the money made by “Do They Know It’s Christmas,” raising more than $63 million (in 1985 dollars) for humanitarian aid. It became the eighth-best-selling physical media single of all time and remains a touchpoint in pop culture history for anyone alive at the time.
 
@@ -46,5 +46,3 @@ Bruce’s contributions were both memorable and spontaneous. He enters with thun
 **Recorded:** January 28-29, 1985  
 **Released:** *We Are The World* (1985)  
 **Never performed live**
-
- 

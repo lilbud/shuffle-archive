@@ -2,7 +2,7 @@ Double-category entry today: Bruce wrote “Savin’ Up” and gave it to Claren
 
 Here’s Clarence’s original 1983 recording, with J.T. Bowen on vocals, and Bruce on guitar:
 
-[https://www.youtube.com/watch?v=pbByblT-ejY](https://www.youtube.com/watch?v=pbByblT-ejY)
+[Watch on Youtube: Savin' Up](https://www.youtube.com/watch?v=pbByblT-ejY)
 
 Written and recorded in the early 1980s, “Savin’ Up” is an early warning against the obsession with excess and success that was beginning to characterize the decade, with straightforward lyrics and an infectious hook.
 
@@ -31,15 +31,15 @@ The final verse takes a tender turn, making it clear that the narrator isn’t b
 
 Bruce has performed “Savin’ Up” nine times in concert, all but one during the past decade. Here’s a great video document of the most recent E Street Band performance from Oslo, 2013, with Bruce in full preacher mode:
 
-[https://www.youtube.com/watch?v=lHZCGII66hM](https://www.youtube.com/watch?v=lHZCGII66hM)
+[Watch on Youtube: Bruce Springsteen 2013-04-30 Oslo - Savin' Up (false start)](https://www.youtube.com/watch?v=lHZCGII66hM)
 
 Bruce also recorded a duet of “Savin’ Up” in 2009 with John Luraschi (who played with Bruce way back in his Dr. Zoom days), for Luraschi’s *The End of the Road* album.
 
-[https://www.youtube.com/watch?v=EzhuwnTFqfg](https://www.youtube.com/watch?v=EzhuwnTFqfg)
+[Watch on Youtube: "Savin' Up" ~ John Luraschi & Bruce Springsteen ~ Video by Rose A Montana](https://www.youtube.com/watch?v=EzhuwnTFqfg)
 
 **Update 1/24/2020:** Improbably, Bruce played “Savin’ Up” once more since this essay was posted, and boy was it a great one. Here’s Bruce and his hat with Joe Grushecky and The Houserockers at Light of Day 20.
 
-[https://www.youtube.com/watch?v=qOl9uXUBbHM](https://www.youtube.com/watch?v=qOl9uXUBbHM)
+[Watch on Youtube: Bruce Springsteen “Savin’ Up” LOD Winterfest 2020 - Rose A Montana Video](https://www.youtube.com/watch?v=qOl9uXUBbHM)
 
 Where did “Cardi B. backyard” come from?
 
@@ -48,4 +48,4 @@ Where did “Cardi B. backyard” come from?
 **First Performed:** August 14, 1987 (Asbury Park, NJ)  
 **Last performed:** January 18, 2020 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

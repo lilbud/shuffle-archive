@@ -6,7 +6,7 @@ It’s quiet, contemplative, and on first listen what stands out the most are th
 
 But “A Good Man Is Hard to Find (Pittsburgh)”–let’s just call it “Good Man” for readability–is a song that rewards a close listen. To borrow a phrase Bruce frequently employed to describe *Western Stars*, “Good Man” is a jewel box of a song.
 
-[https://www.youtube.com/watch?v=qg1MeZXCIOc](https://www.youtube.com/watch?v=qg1MeZXCIOc)
+[Watch on Youtube: A Good Man Is Hard To Find (Pittsburgh) (Studio Outtake - 1982)](https://www.youtube.com/watch?v=qg1MeZXCIOc)
 
 “A Good Man Is Hard to Find” takes its title from Flannery O’Connor’s short story of the same name, a tale of meanness if ever there was one. While the phrase “meanness in this world” doesn’t actually appear in the story, the Misfit antagonist memorably declares meanness to be life’s sole pleasure.
 
@@ -86,11 +86,11 @@ Bruce ends the song the way he began it, one last storytelling flourish that tel
 
 The first was in memory of a fallen local police officer during his 2005 solo show in St. Paul.
 
-[https://www.youtube.com/watch?v=AjEjoHqz4LA](https://www.youtube.com/watch?v=AjEjoHqz4LA)
+[Watch on Youtube: Bruce Springsteen - A GOOD MAN IS HARD TO FIND 2005 (audio)](https://www.youtube.com/watch?v=AjEjoHqz4LA)
 
 Bruce’s second and last performance to date was probably inspired more by its location than by current events. At his 2010 appearance in Pittsburgh with Joe Grushecky to celebrate the 15th anniversary of *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*, Bruce opened the show with three acoustic songs, the first of which was “A Good Man Is Hard to Find (Pittsburgh).”
 
-[https://www.youtube.com/watch?v=LeKiXZCt8Z4](https://www.youtube.com/watch?v=LeKiXZCt8Z4)
+[Watch on Youtube: A Good Man is Hard to Find - Bruce Springsteen (4-11-2010 Soldiers & Sailors Memorial Hall & Museum)](https://www.youtube.com/watch?v=LeKiXZCt8Z4)
 
 Both performances were serviceable, but neither captured the poignancy of the studio track–that’s a difficult trick to pull off with a festive crowd.
 

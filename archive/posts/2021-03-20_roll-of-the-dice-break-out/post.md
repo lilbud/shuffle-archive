@@ -4,11 +4,11 @@ Today, we take a look at “Break Out” (also known as “All Night Long”), a
 
 Only two takes of “Break Out” have escaped into the wild. The first is *super* early–so early that Bruce had only written about three lines and had to bluff the rest.
 
-[https://www.youtube.com/watch?v=aSzxswVVNGQ](https://www.youtube.com/watch?v=aSzxswVVNGQ)
+[Watch on Youtube: Bruce Springsteen Breakout early Version AKA All Night Long](https://www.youtube.com/watch?v=aSzxswVVNGQ)
 
 I include that take here solely because of the extended scat Bruce does at about the 1:15 mark that I’m pretty sure was intended as a Muppets homage.
 
-[https://www.youtube.com/watch?v=y5W60VwDkas](https://www.youtube.com/watch?v=y5W60VwDkas)
+[Watch on Youtube: Sesame Street - Mahna Mahna (1969)](https://www.youtube.com/watch?v=y5W60VwDkas)
 
 Okay, maybe not. (Although I also think there’s a decent chance Bruce modeled his early ’70s look after that muppet dude.)
 
@@ -16,7 +16,7 @@ Anyway: let’s move on to the second version. This next take is clearly a finis
 
 Take a listen and see how many references to other released Springsteen songs you can catch.
 
-[https://www.youtube.com/watch?v=vk9MGJkJPoY](https://www.youtube.com/watch?v=vk9MGJkJPoY)
+[Watch on Youtube: Bruce Springsteen - Break Out](https://www.youtube.com/watch?v=vk9MGJkJPoY)
 
 It’s difficult to analyze “Break Out,” since even this take is still a work in progress, but it’s clear that Bruce is tilling similar soil as “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” — and in fact, I’m sure you picked out some lyrics that would eventually find their way to that iconic song. So rather than cover that ground again, I’ll simply annotate when we encounter a lyric that leads elsewhere.
 

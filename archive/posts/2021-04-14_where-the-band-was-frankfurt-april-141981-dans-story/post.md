@@ -88,7 +88,7 @@ Hey, there’s Mike H, over on the Mead Gould coach trip! And a few other famili
 
 Out of the noise drones the organ whine of “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/),” and this is it! It’s really happening, like living a dream.
 
-[https://videopress.com/embed/ubeehdGF](https://videopress.com/embed/ubeehdGF)
+[Watch Video Highlight](https://videopress.com/embed/ubeehdGF)
 
 I don’t know if the show was a good one or not – I didn’t care – nothing could go wrong! I scribbled the initials of the songs down and yelled myself hoarse and dry.
 

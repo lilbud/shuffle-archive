@@ -8,7 +8,7 @@ There are those that argue that great art is born out of heartbreak and pain, no
 
 I usually start these essays off with the studio version, but to me, the definitive cut is the video version-it’s a tad longer and a ton more exuberant. Just look at the carefree expression on Bruce’s face throughout the video–this is a Bruce Springsteen we had not seen before.
 
-[https://www.youtube.com/watch?v=VmwJQ62Cs_o](https://www.youtube.com/watch?v=VmwJQ62Cs_o)
+[Watch on Youtube: Bruce Springsteen - Better Days (Official HD Video)](https://www.youtube.com/watch?v=VmwJQ62Cs_o)
 
 The lyrics hardly need annotation; “Better Days” is among Bruce’s most accessible songs. He’d reached a point in his life where he’d come to terms with his inner demons (or at least was in the process of doing so), and he’d started a family of his own with new wife Patti Scialfa in California and was enjoying the fruits of his commercial success.
 
@@ -21,7 +21,7 @@ As the song begins, Bruce recalls the ennui that enveloped him in the 1980s. He 
 *I’m tired of waiting for tomorrow to come or that train to come roaring ’round the bend*  
 *I got a new suit of clothes and a pretty red rose and a woman I can call my friend*
 
-…and right there, we have the key: Patti Scialfa. (Note: I realize it’s dangerous to extrapolate autobiography from a song–if that were always true, we’d have had serious cause for worry after “[Nebraska](http://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)” and most of the Tom Joad album–but in this case, I think we’re on pretty solid ground.)
+…and right there, we have the key: Patti Scialfa. (Note: I realize it’s dangerous to extrapolate autobiography from a song–if that were always true, we’d have had serious cause for worry after “[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)” and most of the Tom Joad album–but in this case, I think we’re on pretty solid ground.)
 
 *These are better days, baby*  
 *Yeah there’s better days shining through*  
@@ -48,11 +48,11 @@ In Patti, Bruce found someone who understood him, who he could open up to, who v
 
 *Now* here’s the album track for comparison. (Fun fact: that’s Randy Jackson from American Idol on bass, and Soozie Tyrell contributes backing vocals, a full decade before she joined the E Street Band (in spirit if not in legal fact)).
 
-[https://www.youtube.com/watch?v=SM3pM8HZ5fE](https://www.youtube.com/watch?v=SM3pM8HZ5fE)
+[Watch on Youtube: Better Days](https://www.youtube.com/watch?v=SM3pM8HZ5fE)
 
 In concert, “Better Days” was a staple of the 1992 and 1993 tours, but it’s only been seen fourteen times since. One of those times was acoustic–a lovely guitar-and-harmonica arrangement, and a duet with Elliot Murphy in Paris from 2005:
 
-[https://videopress.com/embed/OBaFOsgK](https://videopress.com/embed/OBaFOsgK)
+[Watch Video Highlight](https://videopress.com/embed/OBaFOsgK)
 
 **Better Days  
 Recorded:** 1991-1992  
@@ -60,4 +60,4 @@ Recorded:** 1991-1992
 **First performed:** May 6, 1992 (New York City, NY)  
 **Last performed:** February 14, 2017 (Brisbane, Australia)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

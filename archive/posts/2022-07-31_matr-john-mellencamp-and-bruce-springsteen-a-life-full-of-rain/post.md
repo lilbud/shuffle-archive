@@ -1,7 +1,5 @@
 > “Bruce has a wonderful way of having humility and tenacity, all at the same time. He can get his ideas across with humility and an ability to do what he wants to do. He’s run his own band longer than I have, so I don’t have to say, ‘Hey Bruce, how about…?’ He says, ‘How about if I try this?’ and ‘How about if I try that?’ and, he’s Bruce Springsteen — sure, try it.”
 > 
-> 
-> 
 > — John Mellencamp, *Cleveland.com*, February 7, 2022
 
 Word got out quickly.
@@ -30,7 +28,7 @@ It wasn’t the first time Mellencamp praised Bruce’s melodic talents. While m
 
 “A Life Full of Rain” is a moody and contemplative closing track, featuring gruff solo vocals from Mellencamp and an emotive Springsteen guitar solo unlike anything we’ve heard from him on his own albums.
 
-[https://www.youtube.com/watch?v=lDckyH_EAM8](https://www.youtube.com/watch?v=lDckyH_EAM8)
+[Watch on Youtube: John Mellencamp, Bruce Springsteen - A Life Full Of Rain (Visualizer)](https://www.youtube.com/watch?v=lDckyH_EAM8)
 
 It’s not the kind of track one would expect from either John or Bruce (let alone together), but it’s one that sticks with you long after the first listen.
 
@@ -38,5 +36,3 @@ It’s not the kind of track one would expect from either John or Bruce (let alo
 Recorded:** April 10, 2021  
 **Released:** *Strictly a One-Eyed Jack* (2022)  
 **Never performed**
-
- 

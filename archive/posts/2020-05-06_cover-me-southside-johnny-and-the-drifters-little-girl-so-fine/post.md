@@ -4,7 +4,7 @@ He wasn’t kidding.
 
 By late 1976, Bruce’s legal disputes with Mike Appel had forced him into seemingly endless touring, barred from recording new material in the studio. He almost certainly did need the work, so when Steve saw an opportunity to throw a bone Bruce’s way while producing Southside Johnny’s second album, Bruce no doubt leapt at the opportunity.
 
-Bruce ended up with co-author credit on three songs on *This Time It’s For Real*, all with Steven. “Love on the Wrong Side of Town” is the most well-known of the three; “[When You Dance](http://estreetshuffle.com/index.php/2018/08/12/roll-of-the-dice-when-you-dance/)” was actually a retooled early Bruce Springsteen Band song.
+Bruce ended up with co-author credit on three songs on *This Time It’s For Real*, all with Steven. “Love on the Wrong Side of Town” is the most well-known of the three; “[When You Dance](https://estreetshuffle.com/index.php/2018/08/12/roll-of-the-dice-when-you-dance/)” was actually a retooled early Bruce Springsteen Band song.
 
 But “Little Girl So Fine” may be the most interesting one. To say the track wears its influences on its sleeve would be to understate–its influences are practically wearing the shirt.
 
@@ -12,7 +12,7 @@ While I’ve seen no definitive account of who contributed what, we can be prett
 
 This Van Zandt-fronted bluffed rehearsal track from 1976 (under a slightly different name) adds evidence to the extent of Steve’s contributions.
 
-[https://www.youtube.com/watch?v=drPw132jFro](https://www.youtube.com/watch?v=drPw132jFro)
+[Watch on Youtube: Little Girl So Fine (Rehearsal, 1976 / Mono)](https://www.youtube.com/watch?v=drPw132jFro)
 
 The finished lyrics, on the other hand, are almost certainly Bruce’s. Even the title is about as Springsteenian as it gets.
 
@@ -59,7 +59,7 @@ Content-wise, “Little Girl So Fine” is a sweet tribute to the classic croone
 
 Which brings us to the most notable and wonderful aspect of “Little Girl So Fine”: the marvelous backing vocals by The Drifters, who scored hits with a list of Leiber and Staller classics like “There Goes My Baby” and “On Broadway.” Let’s take a listen now to the finished track:
 
-[https://www.youtube.com/watch?v=-eWHFnOuiu0](https://www.youtube.com/watch?v=-eWHFnOuiu0)
+[Watch on Youtube: Little Girl so Fine (2016 Remastered)](https://www.youtube.com/watch?v=-eWHFnOuiu0)
 
 On stage, Little Steven talks about how he reunited The Drifters to perform on “Little Girl So Fine.” Although certainly true in spirit, there have been so many Drifters line-ups (about forty just by the time Southside recorded “Little Girl So Fine”) that the notion of “reuniting” is a tough one to apply to that particular group.
 
@@ -69,11 +69,11 @@ Nevertheless, it’s The Drifters’ contributions that elevates “Little Girl 
 
 It was a highlight of Steve’s Summer of Sorcery tour to hear “Little Girl So Fine” in its rightful glory, in that beautiful arrangement. Let’s hope we haven’t heard the last of it.
 
-[https://www.youtube.com/watch?v=l1IiErAx2P8](https://www.youtube.com/watch?v=l1IiErAx2P8)
+[Watch on Youtube: Little Steven and the Disciples of Soul - Little Girl So Fine @ Leeds O2 Academy 2019](https://www.youtube.com/watch?v=l1IiErAx2P8)
 
 **Little Girl So Fine**  
 **Recorded:** December 1976 or early 1977  
 **Released:** *This Time It’s For Real* (1977)  
 **Never performed live**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

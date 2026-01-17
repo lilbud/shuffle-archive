@@ -4,17 +4,15 @@ In December, he asked Bruce to join him on the album’s second track, “Disord
 
 VH1 aired behind-the-scenes footage of Warren and Bruce’s recording session in a documentary about the album.
 
-[https://videopress.com/embed/kZE8W4C5](https://videopress.com/embed/kZE8W4C5)
+[Watch Video Highlight](https://videopress.com/embed/kZE8W4C5)
 
 Warren lived just long enough to see their performance debut to fan and critical acclaim alike, but he passed away before he won his first-ever Grammy, for Best Rock Vocal Performance (Group or Duo).
 
 Here’s Warren and Bruce’s award-winning performance.
 
-[https://www.youtube.com/watch?v=iWElAh8iLWs](https://www.youtube.com/watch?v=iWElAh8iLWs)
+[Watch on Youtube: Bruce Springsteen & Warren Zevon - Disorder In The House](https://www.youtube.com/watch?v=iWElAh8iLWs)
 
 **Disorder in the House  
 Recorded:** December 18, 2002  
 **Released:** *The Wind* (2003)  
 **Never performed**
-
- 

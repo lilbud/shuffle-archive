@@ -1,6 +1,6 @@
 Stephen Foster’s impact on American music can’t be understated. You know his songs even if you didn’t know he wrote them: “Oh! Susanna,” “Camptown Races,” “Swanee River,” and of course his 1854 classic “Hard Times Come Again No More.”
 
-[https://www.youtube.com/watch?v=SRMN0V4uxY4](https://www.youtube.com/watch?v=SRMN0V4uxY4)
+[Watch on Youtube: "Hard Times Come Again No More" (1905) - Edison Quartet](https://www.youtube.com/watch?v=SRMN0V4uxY4)
 
 What many don’t realize is just how young Foster was when he wrote those songs. He was only 28 when he wrote “Hard Times”; he was only 22 when he wrote “Oh! Susanna.” He was just as much a prodigy in his time as Bruce Springsteen is in ours, writing more than 200 songs in his short life. (Foster died at the age of 37.)
 
@@ -8,7 +8,7 @@ His influence lives on through today. “Hard Times Come Again No More” has be
 
 Bruce is one of many artists who have covered Foster in concert. During his Working on a Dream Tour in recession-era 2009, “Hard Times Come Again No More” was a nightly encore staple, a song of resilience and solidarity–two evergreen Springsteen themes. One memorable performance was captured on his *London Calling: Live in Hyde Park* concert film.
 
-[https://www.youtube.com/watch?v=8nLDj-Vn3AQ](https://www.youtube.com/watch?v=8nLDj-Vn3AQ)
+[Watch on Youtube: Hard Times (Come Again No More) (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=8nLDj-Vn3AQ)
 
 Bruce changed very little of Foster’s lyrics (although he dropped a couple of verses), but that was a late-breaking decision. Backstage at Bruce’s first rehearsal show, *Los Angeles Times* reporter Geoff Boucher observed a notebook opened to a page with Foster’s original lyrics, with large chunks changed and modernized before Bruce changed his mind and decided to go with the original version.
 

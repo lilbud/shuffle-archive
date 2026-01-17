@@ -10,7 +10,7 @@ Still, there’s no contesting the historical significance of “Thundercrack.�
 
 But “Thundercrack” is worthy of consideration and appreciation on its own merits, so let’s take a listen to it together, starting with its earliest known circulating performance, from January 31, 1973.
 
-[https://videopress.com/embed/eziesEzW](https://videopress.com/embed/eziesEzW)
+[Watch Video Highlight](https://videopress.com/embed/eziesEzW)
 
 As we can tell, “Thundercrack” didn’t exactly leave Bruce’s audiences gasping for breath in the beginning. That’s in large part due to the mid-song comedy breaks and extended fadeout section (the latter of which was often so quiet that the band was practically inaudible for long stretches) that sapped the song of its momentum.
 
@@ -18,7 +18,7 @@ Still, “Thundercrack” charms from the outset, immediately putting the audien
 
 Over the next few months, Bruce and the band tightened and heightened their performance. Watch this incredible footage from only three months later, and you’ll see how powerful “Thundercrack” had become in such a short time.
 
-[https://www.youtube.com/watch?v=CWd5ugerSHI](https://www.youtube.com/watch?v=CWd5ugerSHI)
+[Watch on Youtube: Bruce Springsteen - Thundercrack (Live at the Ahmanson Theater, Los Angeles, 1973)](https://www.youtube.com/watch?v=CWd5ugerSHI)
 
 Lyrically, though, “Thundercrack” never evolved. It was fully formed from its first appearance, and for a song so epic in length and varied in musical style, it’s remarkably light in substance. It’s a twelve-minute recitation about an ex-lover with some serious moves on the dance floor, and it’s pretty clear that the dance floor is a metaphor for the bedroom.
 
@@ -96,33 +96,33 @@ It’s unclear what other “shaping” might have been done, but the core perfo
 
 The band was tighter when they went into the studio to record “Thundercrack” (the finished track is “only” eight and a half minutes), but each member plays just as eccentrically as Bruce described.
 
-[https://www.youtube.com/watch?v=XfWdBM632xI](https://www.youtube.com/watch?v=XfWdBM632xI)
+[Watch on Youtube: Thundercrack (Studio Outtake - 1973)](https://www.youtube.com/watch?v=XfWdBM632xI)
 
 At one point considered as the lead-off to Bruce’s second album, “Thundercrack” was ultimately dropped from consideration. It resurfaced as a contender for *Born to Run*, making it through the first two potential song sequences before being dropped–almost certainly for its now out-of-place eccentricity–never to return, at least not until Bruce resurrected and finished it for *Tracks.*
 
 Longtime fans were disappointed that “Thundercrack” wasn’t one of the *Tracks* tracks featured on the Reunion Tour at the turn of the century, but Bruce hadn’t forgotten about it. He just saved it for a hometown crowd. Without any fanfare, he launched into it early in the set at his holiday benefit show in Asbury Park on December 3, 2001. It wasn’t quite the E Street Band (minus Steve and Roy, plus Soozie and the Max Weinberg 7), but it was a joyous and faithful rendition all the same, particularly benefitting from Soozie’s fiddle.
 
-[https://videopress.com/embed/E3R2dicJ](https://videopress.com/embed/E3R2dicJ)
+[Watch Video Highlight](https://videopress.com/embed/E3R2dicJ)
 
 It went over so well that Bruce played it every night of that holiday stand and every night of the next one as well, in 2003.
 
-[https://www.youtube.com/watch?v=0YnJSjl5NTg](https://www.youtube.com/watch?v=0YnJSjl5NTg)
+[Watch on Youtube: Bruce Springsteen: THUNDERCRACK](https://www.youtube.com/watch?v=0YnJSjl5NTg)
 
 “Thundercrack” made its next appearance on (of all places) Bruce’s solo acoustic tour, where it received a handful of outings. But this was a song built for a band; it didn’t work well solo. There was an exception, though.
 
 On November 19, 2005, Bruce wasn’t quite solo. Little Steven and The Big Man joined The Boss for a couple of songs, one of which was “Thundercrack.” Remarkably for a song played dozens of times over Bruce’s career, it was Steve’s very first time playing it. The trio’s performance was sweetly nostalgic.
 
-[https://www.youtube.com/watch?v=nefRdSWc3a4](https://www.youtube.com/watch?v=nefRdSWc3a4)
+[Watch on Youtube: Thundercrack Bruce Springsteen, Little Steven, and "BIG MAN" Clarence Clemons 11/19/2005 FL](https://www.youtube.com/watch?v=nefRdSWc3a4)
 
 “Thundercrack” made its modern E Street Band debut on the Magic Tour. Over the decade that followed, Bruce and the band have played it over two dozen times, almost always in his early stomping grounds but occasionally a bit further afield.
 
-[https://www.youtube.com/watch?v=kA4kDT8dZcI](https://www.youtube.com/watch?v=kA4kDT8dZcI)
+[Watch on Youtube: Bruce Springsteen - Thundercrack (Leeds 7/24/13) cam mix video](https://www.youtube.com/watch?v=kA4kDT8dZcI)
 
 Truth be told, though, “Thundercrack” never seemed to fully click in its modern outings. I was present for six of them (in Philadelphia, Boston, and San Jose), and each time there was a core, hardcore group of fans that embraced the moment while the majority of the audience seemed more bemused than enthused.
 
 I do, however, have a special fondness for that San Jose performance, where Bruce’s normally unerring on-stage instincts failed him when he decided it would be a good idea to add some audience participation to the song’s ending.
 
-[https://www.youtube.com/watch?v=fdNM42qloIY](https://www.youtube.com/watch?v=fdNM42qloIY)
+[Watch on Youtube: Thundercrack - Bruce Springsteen @ San Jose - 24th April 2012](https://www.youtube.com/watch?v=fdNM42qloIY)
 
 Even with a crowd of perfect-pitch singers, the modern E Street Band is too tight to recapture the loose and sloppy magic that makes “Thundercrack” work best. That doesn’t stop the band and fans from occasionally trying, however.
 

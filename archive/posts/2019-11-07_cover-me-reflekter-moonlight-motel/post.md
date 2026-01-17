@@ -8,7 +8,7 @@ So when he sat down to cover it, James Gooch made an incredibly ballsy decision 
 
 I’ll say no more until you listen to it for yourself.
 
-[https://www.youtube.com/watch?v=HauSPkqQm3A](https://www.youtube.com/watch?v=HauSPkqQm3A)
+[Watch on Youtube: Reflekter - Moonlight Motel (Cover)](https://www.youtube.com/watch?v=HauSPkqQm3A)
 
 See what I mean?
 

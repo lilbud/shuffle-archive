@@ -4,28 +4,26 @@ That’s okay, though, because it beggars belief to think that an aspiring rock 
 
 Still, regardless of how many times he’d played it before, our first recording of Bruce covering “Louie Louie” is from just a little later along the Darkness Tour, in St. Bonaventure, New York.
 
-[https://www.youtube.com/watch?v=DrPyqMKGe9E](https://www.youtube.com/watch?v=DrPyqMKGe9E)
+[Watch on Youtube: Bruce Springsteen - "Louie Louie" - St. Bonaventure, 1978-11-10](https://www.youtube.com/watch?v=DrPyqMKGe9E)
 
 What’s that? Can’t make out the lyrics? Well, that’s wholly appropriate, isn’t it, since the most famous version of the song (The Kingsmen’s 1963 cover) is notoriously indecipherable–so much so that it sparked an FBI investigation over its rumored lyrical obscenity.
 
-[https://www.youtube.com/watch?v=1RZJ4ESU52U](https://www.youtube.com/watch?v=1RZJ4ESU52U)
+[Watch on Youtube: The Kingsmen - Louie Louie](https://www.youtube.com/watch?v=1RZJ4ESU52U)
 
 The 1955 original version by Richard Berry, however, was much easier to understand.
 
-[https://www.youtube.com/watch?v=z-2CKsaq5r8](https://www.youtube.com/watch?v=z-2CKsaq5r8)
+[Watch on Youtube: Richard BERRY "Louie Louie" (1957)](https://www.youtube.com/watch?v=z-2CKsaq5r8)
 
 …as was Bruce’s cover during a surprise appearance with Midnight Thunder at The Headliner in Neptune, New Jersey (just outside Asbury Park) during the summer of 1983.
 
-[https://videopress.com/embed/yXVUUdSb](https://videopress.com/embed/yXVUUdSb)
+[Watch Video Highlight](https://videopress.com/embed/yXVUUdSb)
 
 Hm. Maybe that performance was *too* clear and understandable.
 
 Luckily, we’ve got the one performance where Bruce absolutely nailed the balance–his vocals in this version are perfect. Enjoy this terrific clip from Charlotte, North Carolina, on the High Hopes Tour–the last time Bruce has performed the frat rock classic to date.
 
-[https://www.youtube.com/watch?v=JWaQUBrs_sU](https://www.youtube.com/watch?v=JWaQUBrs_sU)
+[Watch on Youtube: Bruce Springsteen - Louie Louie Into Mustang Sally](https://www.youtube.com/watch?v=JWaQUBrs_sU)
 
 **Louie Louie  
 First performed:** September 9, 1978 (South Bend, IN)  
 **Last performed:** April 19, 2014 (Charlotte, NC)
-
- 

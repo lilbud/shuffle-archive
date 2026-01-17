@@ -8,7 +8,7 @@ His entire catalog, that is, except for a half-dozen songs that Appel wanted to 
 
 “Cherokee Queen” was a third.
 
-[https://www.youtube.com/watch?v=jGPDXzVkOhQ?start=68](https://www.youtube.com/watch?v=jGPDXzVkOhQ?start=68)
+[Watch on Youtube: Cherokee Queen Bruce Springsteen Band 1972 03 17, Richmond Arena, Richmond, VA](https://www.youtube.com/watch?v=jGPDXzVkOhQ?start=68)
 
 “Cherokee Queen” remains unreleased (and presumably unrecorded) to this day. We only know it from surviving bootleg recordings from the Bruce Springsteen Band era, and it’s likely to stay that way, thanks to some cringeworthy 50-year-old lyrics that land uncomfortably on modern ears.
 

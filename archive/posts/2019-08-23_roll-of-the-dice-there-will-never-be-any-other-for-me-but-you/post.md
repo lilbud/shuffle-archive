@@ -8,9 +8,9 @@ But something was different about this particular group of songs. They were melo
 
 He very well may have. His first couple of new songs, “[It’s the Little Things That Count](https://estreetshuffle.com/index.php/2022/01/12/roll-of-the-dice-its-the-little-things-that-count/)” and “[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/),” sound like the late-night fantasizing a married man on the road might entertain himself with in his hotel room.
 
-But as the tour wore on, it seemed like Bruce grew bored: “[Sell It and They Will Come](http://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/)” is little more than the musings of a night owl with nothing to do other than watch television, and its follow-up sounds almost like a sequel. At least at first. Because if we listen closely, even these seemingly dashed-off ditties contain some surprisingly deep insights.
+But as the tour wore on, it seemed like Bruce grew bored: “[Sell It and They Will Come](https://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/)” is little more than the musings of a night owl with nothing to do other than watch television, and its follow-up sounds almost like a sequel. At least at first. Because if we listen closely, even these seemingly dashed-off ditties contain some surprisingly deep insights.
 
-[https://videopress.com/embed/SKmqxgge](https://videopress.com/embed/SKmqxgge)
+[Watch Video Highlight](https://videopress.com/embed/SKmqxgge)
 
 “There Will Never Be Any Other for Me But You” was a work-in-progress throughout its short life (34 performances across eight months); Bruce would often name check whatever celebrities were in the gossip columns that week, and his phrasing would vary from night to night–making it a bit challenging to analyze the lyrics.
 
@@ -48,7 +48,7 @@ Despite the crass metaphor, that bridge actually contains surprisingly deep and 
 
 Bruce actually swapped famous names in and out for that verse. Depending on the night and the mood, he might name check Elvis and Priscilla, Jim and Tammy Faye Bakker, Pamela Anderson and Tommy Lee, or “your name here” and Madonna. (He’d change up the second line too, in order to rhyme with whoever he decided to “honor” that night.)
 
-[https://www.youtube.com/watch?v=PIB_IDXSCkU](https://www.youtube.com/watch?v=PIB_IDXSCkU)
+[Watch on Youtube: There'll Never Be Any Other For Me But You Bruce Springsteen 12/10/1996 OH](https://www.youtube.com/watch?v=PIB_IDXSCkU)
 
 But again, the key is in those final lines. Beneath the salacious headlines, Bruce is saying, *I know I’ve been with someone else before, and yes, I thought it was real and lasting. But now I know the difference, and this time I know I have it right.*
 
@@ -60,4 +60,4 @@ Never recorded**
 **First performed:** September 19, 1996 (Providence, RI)  
 **Last performed:** May 10, 1997 (Warsaw, Poland)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

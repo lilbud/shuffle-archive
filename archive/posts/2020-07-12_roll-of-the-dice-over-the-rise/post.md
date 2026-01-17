@@ -1,18 +1,18 @@
 For such an obscure track, “Over the Rise” has fascinating callbacks to several of Bruce’s best songs.
 
-We can hear echoes of both “[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” (both of which immediately pre-date “Over the Rise”), along with a direct reference to “[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” It also mines similar earth as “[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/).” It’s almost certainly not a coincidence that every one of those songs is a “relationship” song.
+We can hear echoes of both “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” and “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” (both of which immediately pre-date “Over the Rise”), along with a direct reference to “[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” It also mines similar earth as “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/).” It’s almost certainly not a coincidence that every one of those songs is a “relationship” song.
 
-Even the title is familiar: Bruce seemed fixated on hill-as-metaphor during those years, as the phrase “over the rise” appears in contemporaries “[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/),” “[Roll of the Dice](http://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)” and “[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)” as well. This songwriting period coincided with a new phase in his life as a family man; Bruce obviously saw this as a new life chapter, and that notion expressed itself in his writing.
+Even the title is familiar: Bruce seemed fixated on hill-as-metaphor during those years, as the phrase “over the rise” appears in contemporaries “[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/),” “[Roll of the Dice](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)” and “[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)” as well. This songwriting period coincided with a new phase in his life as a family man; Bruce obviously saw this as a new life chapter, and that notion expressed itself in his writing.
 
-Bruce wrote “Over the Rise” on the bass, one of a handful of songs he composed that way in late 1990, of which only “[57 Channels (and Nothin’ On)](http://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)” would make it to his next records. The bass riff (if we can call it that–it’s more percussive than melodic) propels us forward even while Bruce’s lyrics tell of being left behind.
+Bruce wrote “Over the Rise” on the bass, one of a handful of songs he composed that way in late 1990, of which only “[57 Channels (and Nothin’ On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)” would make it to his next records. The bass riff (if we can call it that–it’s more percussive than melodic) propels us forward even while Bruce’s lyrics tell of being left behind.
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=SzmJ_HPqE9Q](https://www.youtube.com/watch?v=SzmJ_HPqE9Q)
+[Watch on Youtube: Over The Rise (Studio Outtake - 1990)](https://www.youtube.com/watch?v=SzmJ_HPqE9Q)
 
 When Bruce wrote “Over the Rise” he was a second-time newlywed, determined to not screw it up this time. His lyrics read more like a post-mortem for his first marriage than an omen for his second, because this is one very, very dark song.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/overtherise_lyrics-sheet-231x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/overtherise_lyrics-sheet.jpg)
 
 Almost immediately, we meet a gypsy. Is this the same gypsy from “Brilliant Disguise?” Very possibly–we may even be hearing from the same narrator.
 
@@ -57,6 +57,4 @@ Bruce has never performed “Over the Rise” in public. I suspect he never will
 **Released:** *Tracks* (1998)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
- 
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

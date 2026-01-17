@@ -31,5 +31,3 @@ So that’s that.
 I’ll send another update/reminder as the end approaches, but for now:
 
 Thanks again for reading, today and for as much of the last eight years as you’ve been with me.
-
- 

@@ -8,4 +8,4 @@ But does the world need a “Dancing in the Dark” cover propelled by upright b
 
 Yes. Yes, I think we do. Watch and enjoy–I won’t tell if you can’t resist dancing.
 
-[https://www.youtube.com/watch?v=z-Ed09PZl1c](https://www.youtube.com/watch?v=z-Ed09PZl1c)
+[Watch on Youtube: Dancing in the Dark - The Cash Cows [Bruce Springsteen cover]](https://www.youtube.com/watch?v=z-Ed09PZl1c)

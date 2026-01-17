@@ -18,7 +18,7 @@ Also: I’m going to focus on the “winter mix” for this essay, not the album
 
 Okay, let’s go:
 
-[https://videopress.com/embed/NX1uEPta](https://videopress.com/embed/NX1uEPta)
+[Watch Video Highlight](https://videopress.com/embed/NX1uEPta)
 > You know that song Bruce wrote, “Girls in Their Summer Clothes?” I heard that song and said, “This song should be on the radio, why is that not all over the radio?” I spoke to somebody recently, a Bruce fan, and I said, “Do you know this song? It is the most insightful song about aging. It is a song of experience, actually.” And they said, “No, I don’t know that.” So these songs, they can slip through the cracks of culture. *— Bono, Rolling Stone Magazine, January 2018*
 
 “Girls in Their Summer Clothes” was recorded during the *Magic* sessions, but both in sound and theme, it was really the first track recorded for *Working on a Dream,* an album that’s lyrically all about growing old while musically celebrating the romance of youth. Had Bruce held the song back from *Magic* and featured it as the lead single from his next album instead, I have no doubt that both the single and the album would have received the attention and esteem they deserve.
@@ -27,7 +27,7 @@ It’s impossible to discuss (much less appreciate) the beauty of “Girls in Th
 
 Let’s try an experiment. Put your headphones back on, take a few minutes, and listen to “Born to Run,” recorded and released more than three decades before “Girls in Their Summer Clothes.” Listen to it as if for the first time–pay full attention to the wall of sound and the vitality of the vocals, particularly in the glockenspiel-punctuated bridge.
 
-[https://www.youtube.com/watch?v=z_XiRS8eF8w](https://www.youtube.com/watch?v=z_XiRS8eF8w)
+[Watch on Youtube: Born to Run](https://www.youtube.com/watch?v=z_XiRS8eF8w)
 
 Now go back and do the same thing with “Girls in Their Summer Clothes,” and realize: *that’s the same singer.* 
 
@@ -127,13 +127,13 @@ He had the misfortune of releasing a lush, nostalgic pop album at the outset of 
 
 Perhaps that’s for the better anyway, as none of his full-band performances have ever come close to equaling the perfection of the studio recording.
 
-[https://www.youtube.com/watch?v=-7698h1Qto8](https://www.youtube.com/watch?v=-7698h1Qto8)
+[Watch on Youtube: Bruce Springsteen 3-16-08 Girls in Their Summer Clothes](https://www.youtube.com/watch?v=-7698h1Qto8)
 
 In the decade since the Working on a Dream Tour, Bruce has managed to find a few rare opportunities to play the song that earned him his last Grammy for songwriting, and the most recent time was my favorite.
 
 By request (my thanks to the fan who made the sign), Bruce played an impromptu version of “Girls in Their Summer Clothes” on his acoustic guitar, and for the first time on stage, the sadness and self-awareness at the heart of the song shone through.
 
-[https://www.youtube.com/watch?v=U-OzuuZ-Fg0](https://www.youtube.com/watch?v=U-OzuuZ-Fg0)
+[Watch on Youtube: "Girls in Their Summer Clothes" - Bruce Springsteen, Perth Arena (7 Feb 2014)](https://www.youtube.com/watch?v=U-OzuuZ-Fg0)
 
 If we’re fortunate enough to get at least one more solo acoustic tour, this is one song that I hope becomes a setlist staple. It’s too beautiful to ignore, and it’s one song that Bruce can only grow into, never out of.
 
@@ -143,4 +143,4 @@ Recorded:** March-May 2007
 **First performed:** September 24, 2007 (Asbury Park, NJ)  
 **Last performed:** February 7, 2014 (Perth, Australia)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -8,4 +8,4 @@ When radio station 97.5 KROCK aired a Springsteen special featuring tributes fro
 
 Tizzard’s cover is a deeply empathic one and a great example of how music helps us understand a world much bigger than our own place in it.
 
-[https://www.youtube.com/watch?v=DDdE9O3SQmg](https://www.youtube.com/watch?v=DDdE9O3SQmg)
+[Watch on Youtube: Devils and Dust - Ken Tizzard (Springsteen cover)](https://www.youtube.com/watch?v=DDdE9O3SQmg)

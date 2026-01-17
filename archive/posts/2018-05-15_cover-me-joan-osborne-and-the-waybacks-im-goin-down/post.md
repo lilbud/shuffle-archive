@@ -4,12 +4,10 @@ In 2015, the album was Bruce’s *Born in the U.S.A.,* and special guest Joan Os
 
 If you’re a fan of how Bruce reinvented “[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)” on the Magic Tour, you’ll dig this:
 
-[https://www.youtube.com/watch?v=ADVk3_gwJf8](https://www.youtube.com/watch?v=ADVk3_gwJf8)
+[Watch on Youtube: I'm Goin' Down](https://www.youtube.com/watch?v=ADVk3_gwJf8)
 
 Bonus: Here are the clues that led up to the reveal of *Born in the U.S.A.* as 2015’s featured album. Can you solve the clues? (I’ll post the answers tomorrow in tomorrow’s featured post.)
 
 Clue #1: “We promise to treat you right.”  
 Clue #2: “Smiling rookie flips out on two joints.”  
 Clue #3: “Myrtle Grant, his ex, wanted nightly bar romance.”
-
- 

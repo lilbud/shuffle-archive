@@ -1,6 +1,6 @@
 So this is a thing: a micro-genre of 1970s TV celebrities covering Bruce Springsteen songs.
 
-[Leather Tuscadero](http://estreetshuffle.com/index.php/2019/03/16/cover-me-suzi-quatro-born-to-run/) did one, [Wonder Woman](https://estreetshuffle.com/index.php/2019/07/17/cover-me-lynda-carter-im-on-fire/) did one, and yes: Luke Duke did one.
+[Leather Tuscadero](https://estreetshuffle.com/index.php/2019/03/16/cover-me-suzi-quatro-born-to-run/) did one, [Wonder Woman](https://estreetshuffle.com/index.php/2019/07/17/cover-me-lynda-carter-im-on-fire/) did one, and yes: Luke Duke did one.
 
 And believe it or not, it’s good. Like, *really* good.
 
@@ -10,4 +10,4 @@ But dang if Wopat doesn’t pull it off. His vocal is (mostly) restrained and nu
 
 This is very nicely done. Suspend disbelief and give it a listen.
 
-[https://www.youtube.com/watch?v=wjkCfYT3YU4](https://www.youtube.com/watch?v=wjkCfYT3YU4)
+[Watch on Youtube: Tom Wopat - "The Meeting Across The River"](https://www.youtube.com/watch?v=wjkCfYT3YU4)

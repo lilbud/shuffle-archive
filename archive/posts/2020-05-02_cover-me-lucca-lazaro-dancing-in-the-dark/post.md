@@ -4,4 +4,4 @@ So turn up the volume and get moving to this impossible-to-resist cover remix of
 
 Better days ahead.
 
-[https://www.youtube.com/watch?v=Z4eTmjL1LdE](https://www.youtube.com/watch?v=Z4eTmjL1LdE)
+[Watch on Youtube: Bruce Springsteen remix Dancing in the Dark](https://www.youtube.com/watch?v=Z4eTmjL1LdE)

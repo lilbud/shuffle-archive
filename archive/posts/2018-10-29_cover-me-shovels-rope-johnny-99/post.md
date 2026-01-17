@@ -6,7 +6,7 @@ I’m new to Shovels & Rope. I discovered them by accident when they opened up f
 
 Imagine my surprise when I searched for their music and found this little gem, released as a 7″ vinyl one-off in 2013.
 
-[https://www.youtube.com/watch?v=dxNAz7rVLzU](https://www.youtube.com/watch?v=dxNAz7rVLzU)
+[Watch on Youtube: Johnny 99](https://www.youtube.com/watch?v=dxNAz7rVLzU)
 
 We know from the opening bars that this is going to be an unusual cover–it’s piano-heavy, and both the vocals and instrumentals by husband-and-wife Michael Trent and Carrie Ann Hearst sound like they had pre-funked with Tanqueray and wine.
 
@@ -17,5 +17,3 @@ Shovels & Rope get it. They understand that Jonny’s defiance is a false, manic
 And that last verse… *that’s* how I always imagined Johnny 99 in that courtroom in the end.
 
 A powerful, well-done cover.
-
- 

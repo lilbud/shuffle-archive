@@ -4,13 +4,13 @@ At the very least, we tend to characterize the album as an anthology of love gon
 
 But it didn’t start out that way.
 
-When Bruce sat down in his home studio on January 20, 1987 to start recording songs for his next album, he recorded three songs on that first day: “[Walk Like a Man](http://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/),” a tribute to his father; “[Spare Parts](http://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/),” a song about self-love and -respect; and “When You Need Me,” which may hold the distinction of being the most syrupy song Bruce ever wrote.
+When Bruce sat down in his home studio on January 20, 1987 to start recording songs for his next album, he recorded three songs on that first day: “[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/),” a tribute to his father; “[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/),” a song about self-love and -respect; and “When You Need Me,” which may hold the distinction of being the most syrupy song Bruce ever wrote.
 
-[https://www.youtube.com/watch?v=mimaPIQVUjI](https://www.youtube.com/watch?v=mimaPIQVUjI)
+[Watch on Youtube: When You Need Me (Studio Outtake - 1987)](https://www.youtube.com/watch?v=mimaPIQVUjI)
 
-Only as the recording sessions progressed did Bruce’s marital dissatisfaction work its way to the surface through songs like “[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” “[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/),” and “[One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/).”
+Only as the recording sessions progressed did Bruce’s marital dissatisfaction work its way to the surface through songs like “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” “[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/),” and “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/).”
 
-In its final form, *Tunnel of Love* is actually more balanced than most fans give it credit for: its first three tracks are true-blue love songs, as is the gorgeous, underrated “[Valentine’s Day](http://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/).”
+In its final form, *Tunnel of Love* is actually more balanced than most fans give it credit for: its first three tracks are true-blue love songs, as is the gorgeous, underrated “[Valentine’s Day](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/).”
 
 But whereas “[Ain’t Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/)” had its humble-brag humor, and “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” had its machismo-dipped vulnerability, “When You Need Me” had… well, it had syrup.
 
@@ -56,9 +56,9 @@ Which is exactly how Bruce seems to have treated it: “When You Need Me” has 
 
 **Update #1:** Astute reader Yoli Clavero noted that while Bruce hasn’t performed “When You Need Me” in concert, he did rehearse it way back on March 30, 1993. Here’s that recording below. Gracias, Yoli!
 
-[http://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3?_=2](http://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3?_=2)
 
-<http://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2020/01/14-When-You-Need-Me.mp3>
 
 **Update** #2: I’m humbled today by how sharp my readers are–Magnus Lauglo noticed that in the last verse, the tense shifts to the present: “’cause without you my life just isn’t the same.” That implies that “When You Need Me” is more than just a sweet love song; it’s a song about the bond that persists even after a relationship ends. It deepens the song considerably, and I may have to upgrade my opinion of the song as a result. Thanks, Magnus!
 
@@ -67,4 +67,4 @@ Recorded:** January 10, 1987
 **Released:** *Tracks* (1998)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

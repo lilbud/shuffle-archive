@@ -14,7 +14,7 @@ That’s what happened to Bruce Springsteen on December 8, 1992, when he just co
 
 While he was gone, Roy Bittan vamped with some New Orleans-style honky-tonk.
 
-[https://videopress.com/embed/5QY6ZeFJ](https://videopress.com/embed/5QY6ZeFJ)
+[Watch Video Highlight](https://videopress.com/embed/5QY6ZeFJ)
 
 When he returned to the stage (with an audible sigh of relief), a much happier Springsteen improvised some lyrics on the spot:
 

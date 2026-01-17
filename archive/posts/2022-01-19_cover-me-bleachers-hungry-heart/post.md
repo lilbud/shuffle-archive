@@ -8,10 +8,10 @@ Surprisingly, though, it’s pretty rare for Bleachers to cover one of Bruce’s
 
 But *Bruce Brunch* host Tom Cunningham scored a major get in the summer of 2017 when Antonoff joined him on his Sunday morning radio show (which really should be essential weekly listening for Springsteen fans–you can listen to the show live [here](https://1071theboss.com/special/springsteen-on-sunday/)). Jack played two songs that morning, one of which was an acoustic cover of Bruce’s “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”
 
-[https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F342248932&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F342248932&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
+[Jack HH by Bleachers](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F342248932&show_artwork=true&maxheight=1000&maxwidth=758)
+
+
 
 “Hungry Heart” is a song of restlessness, loneliness, and an ache for fulfillment–none of which comes through in Bruce’s original poppy arrangement.
 
 Antonoff gets it, though, and his version lays it bare with yearning, almost heart-breaking vocals that will have you hearing Bruce’s song in a new light.
-
- 

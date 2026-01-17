@@ -2,11 +2,11 @@ Firing up the waaaaaayback machine today and travelling to Newark State College 
 
 It’s a great recording for its age, and you can even hear Steve introduce the song, and Bruce and Garry banter after it.
 
-[https://videopress.com/embed/tLZCEiNE](https://videopress.com/embed/tLZCEiNE)
+[Watch Video Highlight](https://videopress.com/embed/tLZCEiNE)
 
 Bruce’s version is decidedly fiercer than Dylan’s 1965 original:
 
-[https://www.youtube.com/watch?v=SN1ACh8lzHg](https://www.youtube.com/watch?v=SN1ACh8lzHg)
+[Watch on Youtube: Bob Dylan - It Takes a Lot to Laugh, It Takes a Train to Cry (Official Audio)](https://www.youtube.com/watch?v=SN1ACh8lzHg)
 
 Performed just twice by the band in May 1971–as far as we know, Bruce hasn’t played it publicly since.
 

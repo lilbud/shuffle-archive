@@ -1,6 +1,6 @@
 It feels weird to describe a murder ballad as beautiful, but I can’t help it: Carson and Skylar McKee’s sibling harmonies and acoustic/electric arrangement transform Bruce’s haunting 1982 [title track](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/) into something absolutely lovely.
 
-[https://www.youtube.com/watch?v=_1rqxXVb3SQ](https://www.youtube.com/watch?v=_1rqxXVb3SQ)
+[Watch on Youtube: Nebraska (Bruce Springsteen cover feat. Skylar McKee)](https://www.youtube.com/watch?v=_1rqxXVb3SQ)
 
 Carson’s acoustic-electric guitar underpins their performance with a sinister bass line that never lets us forget that we’re listening to a serial killer’s tale. But dang, those harmonies and that delicate guitar interplay… I just want to listen to this over and over.
 
@@ -8,4 +8,4 @@ This isn’t Carson’s first foray into the Springsteen catalog, however. He re
 
 Enjoy.
 
-[https://www.youtube.com/watch?v=SAkvXiZza3s](https://www.youtube.com/watch?v=SAkvXiZza3s)
+[Watch on Youtube: I'm On Fire (Bruce Springsteen Cover)](https://www.youtube.com/watch?v=SAkvXiZza3s)

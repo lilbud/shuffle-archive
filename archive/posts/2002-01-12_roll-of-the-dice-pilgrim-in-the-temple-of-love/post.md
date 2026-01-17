@@ -26,7 +26,7 @@ For Bruce actually is known to be an aficionado of the naked art scene–he’s 
 
 *“That usually stupefies and satisfies them. Hey, I gotta get through the world somehow.”*
 
-[https://www.youtube.com/watch?v=THuosDWhJC4?start=21](https://www.youtube.com/watch?v=THuosDWhJC4?start=21)
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise - Introduction (From VH1 Storytellers)](https://www.youtube.com/watch?v=THuosDWhJC4?start=21)
 
 Bruce shared that story almost a decade after his last performance of “Pilgrim in the Temple of Love” and in a much different context. By way of introducing “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)“, Bruce used his anecdote to illustrate his theme of a “public face” and a “private face.”
 
@@ -34,7 +34,7 @@ The notion that we have different identities depending on who we’re with and w
 
 “Pilgrim in the Temple of Love” shocks with its graphicness and amuses with its ribald humor, but if we listen closely, it actually has a lot to say about the nature of celebrity. Let’s take a listen.
 
-[https://videopress.com/embed/l23UMDwN](https://videopress.com/embed/l23UMDwN)
+[Watch Video Highlight](https://videopress.com/embed/l23UMDwN)
 
 Now you might be thinking: perhaps this is a song that doesn’t warrant deep analysis, but bear with me. Our story begins on Christmas Eve, as our hero pulls up to a favorite local haunt:
 
@@ -149,7 +149,7 @@ I imagine that for Bruce Springsteen, that momentary freedom from his public fac
 
 **Bonus:** Here’s a rare live performance of “Pilgrim in the Temple of Love” captured on video, from Cincinnati on December 12, 1996.
 
-[https://www.youtube.com/watch?v=YfNiDh9zndQ](https://www.youtube.com/watch?v=YfNiDh9zndQ)
+[Watch on Youtube: Pilgrim In The Temple Of Love Bruce Springsteen 12/10/1996 OH](https://www.youtube.com/watch?v=YfNiDh9zndQ)
 
 **Pilgrim in the Temple of Love  
 Never recorded**  

@@ -8,11 +8,11 @@ Arty grew up in post-Soviet Russia–not exactly a major market for Bruce. But w
 
 *“If you look at his live shows, it’s insane. There is so much energy for a concert that goes up three to four hours and there is just Bruce Springsteen singing the songs, completely controlling the crowd and they love it. There is no bigger inspiration than that.”*
 
-Arty dove into Bruce’s catalog and became particularly enchanted with “[Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/).” It spoke to him, and he adapted it into a new song, “Supposed to Be.”
+Arty dove into Bruce’s catalog and became particularly enchanted with “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/).” It spoke to him, and he adapted it into a new song, “Supposed to Be.”
 
 The first thirty seconds of “Supposed to Be” are clearly lifted from “Atlantic City,” but after that the song becomes Arty’s own.
 
-[https://www.youtube.com/watch?v=GXP7RdiAWTI](https://www.youtube.com/watch?v=GXP7RdiAWTI)
+[Watch on Youtube: ARTY - Supposed To Be (Official Audio)](https://www.youtube.com/watch?v=GXP7RdiAWTI)
 
 Still, Arty insisted on (and succeeded at) getting Bruce’s blessing to use his song, and the result is Bruce’s first songwriting credit (co-writer, to be precise) for an EDM song.
 

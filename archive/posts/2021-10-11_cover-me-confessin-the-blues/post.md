@@ -18,17 +18,17 @@ So Bruce came home to New Jersey, and for a few nights he sat in with the band h
 
 With “Confessin’ the Blues,” the Sundance Blues Band was living up to their name. The song dates back to 1941, when Brown recorded it with the Jay McShann Band.
 
-[https://www.youtube.com/watch?v=xObTsgz1bik](https://www.youtube.com/watch?v=xObTsgz1bik)
+[Watch on Youtube: Confessin' the Blues (Remastered)](https://www.youtube.com/watch?v=xObTsgz1bik)
 
 Over the years, it became a blues standard and inspired covers by rock and roll artists like Chuck Berry and The Rolling Stones, who featured it on their second American studio album.
 
-[https://www.youtube.com/watch?v=QYi7rS93nY0](https://www.youtube.com/watch?v=QYi7rS93nY0)
+[Watch on Youtube: Confessin' The Blues](https://www.youtube.com/watch?v=QYi7rS93nY0)
 
 The Sundance Blues Band version of “Confessin’ the Blues” owes more than a little to Cream, with an arrangement built around a thinly disguised “Sunshine of Your Love” riff.
 
 But while it marked Bruce Springsteen’s return to lead vocals after more than a month’s absence from the Jersey shore scene, his contributions are far overshadowed by the virtuosity of David Sancious, who takes over the spotlight around three minutes into the thirteen-minute performance and never lets go of it.
 
-[https://www.youtube.com/watch?v=yZt6dI2zZJ8](https://www.youtube.com/watch?v=yZt6dI2zZJ8)
+[Watch on Youtube: confessin' the blues](https://www.youtube.com/watch?v=yZt6dI2zZJ8)
 
 A week after that performance, The Bruce Springsteen Band would be performing under its original name and leader again. A week after that, they’d essentially move to Richmond, playing at least nine shows there in February–with Bruce still finding time to audition for Mike Appel in New York City.
 
@@ -41,5 +41,3 @@ Check out Chapter Five of Steve’s *Unrequited Infatuations* to see where the s
 **Confessin’ the Blues  
 First performed:** January 21, 1972 (Neptune, NJ)  
 **Last performed:** September 9, 1972 (Highlands, NJ)
-
- 

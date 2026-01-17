@@ -4,9 +4,9 @@ On the first day of September 1971, The Bruce Springsteen Band (consisting of Br
 
 Buried in the middle of the set was this haunting song, performed virtually as a solo piano number (with Bruce playing, not Sancious, and the rest of the band lurking in the background showing great restraint).
 
-[http://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3?_=1](http://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3?_=1)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/05/05-ITS-TIME-TO-GO-HOME.mp3>
 
 We’re covering walking a dark, lonely road here: the narrator, like Bruce, is a musician, describing the moments immediately following the end of a concert festival. When the music stops, the communal connection is broken, and the introverted artist who just entertained thousands is now isolated and withdrawn from the crowd he so recently commanded:
 
@@ -20,7 +20,7 @@ We’re covering walking a dark, lonely road here: the narrator, like Bruce, is 
 *When you’re standing in the middle of a crowd and you feel so alone*  
 *The party’s over, it’s time to go home*
 
-Is Bruce singing from his imagination, or is this how he truly experiences coming down from his on-stage high? We don’t know, but [this would not be the last time Bruce would visit this theme](http://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/).
+Is Bruce singing from his imagination, or is this how he truly experiences coming down from his on-stage high? We don’t know, but [this would not be the last time Bruce would visit this theme](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/).
 
 There’s also a particularly revealing bridge that Bruce sings with such power and feeling that it’s easy to believe it’s personal:
 
@@ -39,4 +39,4 @@ There’s no resolution, here, just observation. The song ends with the narrator
 **First performed:** September 1, 1971 (Long Branch, NJ)  
 **Last performed:** September 1, 1971 (Long Branch, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

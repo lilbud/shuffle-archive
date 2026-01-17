@@ -12,15 +12,15 @@ At a 1987 tribute concert, Bruce revealed the influence that Chapin had on him, 
 
 Chapin wrote the song in memory of his friend, U.S. Representative Allard K. Lowenstein, who was murdered in early 1980. (“Remember When the Music” is often cited as a tribute to John Lennon, who also was assassinated in 1980, but the song pre-dates that event.)
 
-[https://www.youtube.com/watch?v=jVGgtZ4Qda4](https://www.youtube.com/watch?v=jVGgtZ4Qda4)
+[Watch on Youtube: Harry Chapin - Remember When the Music](https://www.youtube.com/watch?v=jVGgtZ4Qda4)
 
 Technically, Bruce actually covered the “Reprise” version–the acoustic, album-closing track contains an additional verse not included in the full band version of “Remember When the Music” that appears earlier in the album.
 
-[https://www.youtube.com/watch?v=viupdqcXvw0](https://www.youtube.com/watch?v=viupdqcXvw0)
+[Watch on Youtube: Harry Chapin - Remember When the Music (Reprise)](https://www.youtube.com/watch?v=viupdqcXvw0)
 
 In the middle of his performance (which was actually officially released in 1990 on a *Harry Chapin Tribute* compilation), Bruce reflected on the meaning of Harry’s song, noting that there was a time when music was more universal in its power to speak to us. By 1987, Bruce mused, music had splintered and diversified, and perhaps there were downsides as well as upsides to that. (If only Bruce knew what the decades ahead would bring…)
 
-[https://www.youtube.com/watch?v=BMSaVEbHt-U](https://www.youtube.com/watch?v=BMSaVEbHt-U)
+[Watch on Youtube: Bruce Springsteen 1987 Harry Chapin Tribute: Remember When the Music](https://www.youtube.com/watch?v=BMSaVEbHt-U)
 
 Over the years and decades that followed, Bruce would involve and at times immerse himself in causes he believed in, and his social activism became a core component of his public identity.
 
@@ -29,5 +29,3 @@ While Bruce never again performed “Remember When the Music,” to this day he 
 **Remember When the Music**  
 **First performed:** December 7, 1987 (New York City, NY)  
 **Last performed:** December 7, 1987 (New York City, NY)
-
- 

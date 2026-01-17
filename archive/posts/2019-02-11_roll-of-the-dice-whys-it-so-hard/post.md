@@ -10,7 +10,7 @@ But although Bruce is present on the track, it’s actually Steve Van Zandt prov
 
 Take a listen, and you’ll see what I mean:
 
-[https://www.youtube.com/watch?v=Xa69gujpD7g](https://www.youtube.com/watch?v=Xa69gujpD7g)
+[Watch on Youtube: Sundance Blues Band, "Why’s It So Hard" 1972- 01-21](https://www.youtube.com/watch?v=Xa69gujpD7g)
 
 But if “Why’s It So Hard” is musically mesmerizing, lyrically it’s rather forgettable.
 
@@ -39,7 +39,7 @@ This is a mutual breakup song, plain and simple, with spare lyrics that leave ve
 *I’m havin’ trouble movin’ on*  
 *Oh I don’t wanna go…*
 
-If “Why’s It So Hard” is notable for any other reason, it’s because it’s another early example of Bruce grappling with the right balance for a break-up song. (See “[She’s Leaving](http://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/)” for a contemporaneous example with less anger and more self-pity.) I’d argue that Bruce would finally land on the right recipe a year later, but that’s an essay for another day.
+If “Why’s It So Hard” is notable for any other reason, it’s because it’s another early example of Bruce grappling with the right balance for a break-up song. (See “[She’s Leaving](https://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/)” for a contemporaneous example with less anger and more self-pity.) I’d argue that Bruce would finally land on the right recipe a year later, but that’s an essay for another day.
 
 **Why’s It So Hard?  
 Never Recorded**  
@@ -47,4 +47,4 @@ Never Recorded**
 **First performed:** January 21, 1972 (Neptune, NJ)  
 **Last performed:** January 21, 1972 (Neptune, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

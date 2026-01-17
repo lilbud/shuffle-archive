@@ -4,23 +4,23 @@ On the face of it, “The E Street Shuffle” is an odd origin story for the nam
 
 Musically, the studio track is typical of neither the E Street Band’s live or studio sound. If anything, it’s a hat tip to Curtis Mayfield’s “The Monkey Time,” which Major Lance took to #8 on the Billboard Hot 100 a decade before Bruce lifted both the riff and the theme for his own use.
 
-[https://www.youtube.com/watch?v=V9jdPrME7Mw](https://www.youtube.com/watch?v=V9jdPrME7Mw)
+[Watch on Youtube: Major Lance The Monkey Time](https://www.youtube.com/watch?v=V9jdPrME7Mw)
 
 “The E Street Shuffle” also carries the obvious influence of Stevie Wonder’s “Superstition,” which was flying high at the top of the Billboard Hot 100 in early 1973. Stevie’s signature clavinet is all over the funkified “The E Street Shuffle” (played by David Sancious) but absolutely nowhere else in Bruce’s entire catalog before or since.
 
-[https://www.youtube.com/watch?v=ftdZ363R9kQ](https://www.youtube.com/watch?v=ftdZ363R9kQ)
+[Watch on Youtube: Superstition](https://www.youtube.com/watch?v=ftdZ363R9kQ)
 
 “The E Street Shuffle” is a strange signature track lyrically, too–it’s one of Bruce’s more risque songs, densely and tongue-trippingly packed with double entendre.
 
 And yet, there’s something both appropriate and symbolic about our favorite band deriving their name from this strange track. I’ll explain in a bit (or rather, Bruce will); for now, let’s take a good close listen to “The E Street Shuffle.” Pay attention, because there’s a *lot* going on.
 
-[https://www.youtube.com/watch?v=LWLMaZ7H3B0](https://www.youtube.com/watch?v=LWLMaZ7H3B0)
+[Watch on Youtube: The E Street Shuffle](https://www.youtube.com/watch?v=LWLMaZ7H3B0)
 
 Bruce is clearly making a statement in the opening track of his second album. Besides introducing more obvious homages to his musical influences, “The E Street Shuffle” establishes an adventurous, go-for-broke yet what-the-hell attitude that you can only do on your second album (especially when your first one has only been out a few months).
 
 By the time Bruce and the band started recording *Born to Run*, the pressure was high and mounting. Bruce’s third album carries a sense of confidence, desperation and focus, but his second is loose, fun, eclectic, and at times breathtakingly daring.
 
-“The E Street Shuffle” is all of these. Bruce’s guitar-playing matches Sancious’ clavinet funk for funk; the very first E Street horn section (with guest artist Albee Tellone) carries the riff; Richard Blackwell adds some Latin percussion; Bruce even plays a recorder. Years before “[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/),” Bruce and the band add their simulated street chatter like a cacophonous Greek chorus. “The E Street Shuffle” may not represent Bruce’s typical sound, but it certainly introduces key elements of it.
+“The E Street Shuffle” is all of these. Bruce’s guitar-playing matches Sancious’ clavinet funk for funk; the very first E Street horn section (with guest artist Albee Tellone) carries the riff; Richard Blackwell adds some Latin percussion; Bruce even plays a recorder. Years before “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/),” Bruce and the band add their simulated street chatter like a cacophonous Greek chorus. “The E Street Shuffle” may not represent Bruce’s typical sound, but it certainly introduces key elements of it.
 
 (Side note: I’ve always considered the orchestra tune-up introduction to be separate from the song itself, serving more as an introduction for the album than its semi-title track. The fact that it was recorded completely separately only bolsters my opinion. Still, it works perfectly as a lead-in to “The E Street Shuffle” because it telegraphs that something symphonic is on the way only to completely subvert expectations moments later.)
 
@@ -54,7 +54,7 @@ But in the second verse, the scene gets a bit seedier. Bruce’s lyrics are lace
 *She’s deaf in combat down on Lover’s Lane*  
 *She drives all them local boys insane*
 
-There’s an argument to be made that these are simply kids continually on the run from the cops, but there’s a fair bit of intimation that Power Thirteen and Little Angel are early versions of Spanish Johnny and Puerto Rican Jane, sex workers doing their dance every day to get by on a Lover’s Lane that is likely the same ironically named locale from “[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” just a few album tracks away. In the eyebrow-raising bridge, Little Angel has the boys lined up to shuffle her brains out.
+There’s an argument to be made that these are simply kids continually on the run from the cops, but there’s a fair bit of intimation that Power Thirteen and Little Angel are early versions of Spanish Johnny and Puerto Rican Jane, sex workers doing their dance every day to get by on a Lover’s Lane that is likely the same ironically named locale from “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” just a few album tracks away. In the eyebrow-raising bridge, Little Angel has the boys lined up to shuffle her brains out.
 
 *Little Angel say, “Oh, oh, oh, oh, oh*  
 *Everybody form a line*  
@@ -87,29 +87,29 @@ But always, always, there’s music.
 
 Most fans were introduced to “The E Street Shuffle,” when they first placed Bruce’s second album on their turntable, but Bruce had written the song several months earlier and had been performing work-in-progress versions since the spring of 1973.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/theestreetshuffle_early_lyrics-229x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/06/theestreetshuffle_early_lyrics.jpg)
 
 The earliest live recording that broadly circulates is from Halloween night. By that time, *The Wild, The Innocent & The E Street Shuffle* was only days away from release, and the album’s first track was regularly appearing in Bruce’s set list, with roadie/saxophonist Albee Tellone reprising his studio part.
 
 Here’s a rare recording of the original E Street Band performing “The E Street Shuffle,” notable for what is perhaps Bruce’s first recorded reference to his musicians as “E Street.” It’s clear that Bruce isn’t referring to the entire band that way, though–just the horn players for that particular song–but perhaps the seed was already planted. (The E Street Band wouldn’t perform under that name until May 1974.)
 
-[https://www.youtube.com/watch?v=xF78hFYM1Ng](https://www.youtube.com/watch?v=xF78hFYM1Ng)
+[Watch on Youtube: The E Street Shuffle,Bruce Springsteen w/Albee Tellone,The Main Point,10-31-1973](https://www.youtube.com/watch?v=xF78hFYM1Ng)
 
 Not long after the album debuted, Bruce premiered a new, slower arrangement for “The E Street Shuffle,” liberally borrowing from Manfred Mann’s “[Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)” (which Bruce would eventually quote mid-song and then finally debut in late 1975).
 
-[https://www.youtube.com/watch?v=g_qN59YAwo0](https://www.youtube.com/watch?v=g_qN59YAwo0)
+[Watch on Youtube: The E Street Shuffle - Bruce Springsteen (18-10-1975 The Roxy Theatre,West Hollywood, California)](https://www.youtube.com/watch?v=g_qN59YAwo0)
 
 The “slow version” of “The E Street Shuffle” grew into an early-set set piece, often serving as a delivery vehicle for the legend/origin of Bruce and Clarence’s friendship.
 
-[https://www.youtube.com/watch?v=81QcctmsodI](https://www.youtube.com/watch?v=81QcctmsodI)
+[Watch on Youtube: E Street Shuffle Bruce Springsteen Live at the Main Point 2.05.1975](https://www.youtube.com/watch?v=81QcctmsodI)
 
 *Hammersmith Odeon London ’75* captures the “slow version” on video in wonderful quality, but unfortunately the story that night was a bit abridged.
 
-[https://www.youtube.com/watch?v=1-dY01Ex7wc](https://www.youtube.com/watch?v=1-dY01Ex7wc)
+[Watch on Youtube: The E Street Shuffle (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=1-dY01Ex7wc)
 
 That Hammersmith Odeon performance was one of the very last performances of the “slow version” of “The E Street Shuffle.” In fact, within a month the song would disappear from Bruce’s set list altogether for a quarter-century. It would finally resurface during the final stand of the Reunion Tour, appropriately celebrating the end of the band’s rebirth with their namesake song.
 
-[https://www.youtube.com/watch?v=3Rn9JwHtwWs](https://www.youtube.com/watch?v=3Rn9JwHtwWs)
+[Watch on Youtube: Bruce Springsteen - The E Street Shuffle [New York City June 17, 2000]](https://www.youtube.com/watch?v=3Rn9JwHtwWs)
 
 “The E Street Shuffle” made a few one-off appearances during the 2000s, just enough to reassure us that Bruce hadn’t forgotten about it. Beginning with the Working on a Dream Tour in 2009, however, its outings became more frequent, until Bruce finally re-established it as a set list staple on the Wrecking Ball Tour in 2012.
 
@@ -117,15 +117,13 @@ That Hammersmith Odeon performance was one of the very last performances of the 
 
 Here’s one of the best performances from that tour, with The Roots guest-starring:
 
-[https://www.youtube.com/watch?v=35vtIyFOjsY](https://www.youtube.com/watch?v=35vtIyFOjsY)
+[Watch on Youtube: "E Street Shuffle" with The Roots (Live at Roskilde 2012)](https://www.youtube.com/watch?v=35vtIyFOjsY)
 
 In the spring of 2014, almost forty years to the day since the band took their name, the E Street Band was inducted into the Rock and Roll Hall of Fame. The surviving original players were all on hand, and when the modern E Street Band took the stage, Vini Lopez and David Sancious joined them in a one-time-only E Street union.
 
 The first song they played as members of the Rock and Roll Hall of Fame? The only song fit for the occasion.
 
-[https://videopress.com/embed/lBlztKb7](https://videopress.com/embed/lBlztKb7)
-
- 
+[Watch Video Highlight](https://videopress.com/embed/lBlztKb7)
 
 **The E Street Shuffle  
 Recorded:** June-September 1973  
@@ -133,4 +131,4 @@ Recorded:** June-September 1973
 **First performed:** June 6, 1973 (Philadelphia, PA)  
 **Last performed:** September 1, 2023 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

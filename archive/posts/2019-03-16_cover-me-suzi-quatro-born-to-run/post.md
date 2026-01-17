@@ -10,8 +10,4 @@ Quatro even nails a spoken-word bridge, which could have come off as just plain 
 
 This is a seriously well done cover.
 
-[https://www.youtube.com/watch?v=XbFvaQ9-4xQ](https://www.youtube.com/watch?v=XbFvaQ9-4xQ)
-
- 
-
- 
+[Watch on Youtube: Suzi Quatro (New version) - Born to run](https://www.youtube.com/watch?v=XbFvaQ9-4xQ)

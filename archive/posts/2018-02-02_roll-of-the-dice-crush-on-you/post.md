@@ -4,11 +4,11 @@ If you didn’t know better, you might swear that’s exactly what happened the 
 
 Take a listen and tell me Bruce isn’t doing is best Jagger:
 
-[https://www.youtube.com/watch?v=zDN8pvyKYkU](https://www.youtube.com/watch?v=zDN8pvyKYkU)
+[Watch on Youtube: Crush on You](https://www.youtube.com/watch?v=zDN8pvyKYkU)
 
 …and then take a listen to “1 -2 Crush on You” by The Clash and notice the similarities in theme and construction (if not hyperbole).
 
-[https://www.youtube.com/watch?v=5opmz6ao1xM](https://www.youtube.com/watch?v=5opmz6ao1xM)
+[Watch on Youtube: 1-2 Crush on You](https://www.youtube.com/watch?v=5opmz6ao1xM)
 
 Was “Crush on You” influenced by “1 -2 Crush on You?” I’ve never seen Bruce discuss it, but it seems likely. The Clash B-side was released in November 1978. Bruce recorded “Crush on You” in April 1979, so the time frame fits. And come on, it’s not a far leap from the Clash’s chorus of “1 -2 I got a crush on you” to Bruce’s “Ooh ooh, I got a crush on you.”
 
@@ -38,29 +38,29 @@ And that’s why it was so maddening that Bruce refused to play it for the longe
 
 Bruce has referred to it more than once as one of his worst songs. He called it “the stupidest song we’ve ever recorded” before playing it by request (for the firs time in 28 years) in Richmond, and (sarcastically) “a masterpiece” before playing it during the full River album show in New York City in 2009. Thankfully, the 2016 River tour forced him to reclaim the song in order to fulfill his promise of start-to-finish complete album performances, and he seems to have made his peace with it.
 
-Just like with “[All or Nothin’ at All,](http://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)” the song comes alive in concert and is a *ton* of fun–easily one of the highlights of the recent River anniversary tour.
+Just like with “[All or Nothin’ at All,](https://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)” the song comes alive in concert and is a *ton* of fun–easily one of the highlights of the recent River anniversary tour.
 
 Here’s an early performance from the 1980 River tour…
 
-[https://www.youtube.com/watch?v=O6Tb40sU_Ow](https://www.youtube.com/watch?v=O6Tb40sU_Ow)
+[Watch on Youtube: Bruce Springsteen - Crush On You (Live - Landover 1980)](https://www.youtube.com/watch?v=O6Tb40sU_Ow)
 
 …and one from the 2016 River tour:
 
-[https://www.youtube.com/watch?v=Oz4bm1sieHE](https://www.youtube.com/watch?v=Oz4bm1sieHE)
+[Watch on Youtube: ''Crush On You'' - Bruce Springsteen and the E Street Band - Hartford, CT - February 10th, 2016](https://www.youtube.com/watch?v=Oz4bm1sieHE)
 
 I’m torn over which one was more fun. This song *really* needed to be in the setlist from time to time.
 
 Still haven’t had enough “Crush on You?” Check out these outtakes–nothing revelatory here, but a glimpse at the band experimenting with different tempos, endings, and with-or-without sax solo.
 
-[http://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3?_=1](http://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3?_=1)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/02/110-Crush-On-You-1.mp3>
 
-[http://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3?_=2](http://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3?_=2)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/02/111-Crush-On-You-2.mp3>
 
 **“Crush on You”  
 Recorded:** 1979-1980**Released:** *The River* (1980)**First performed:** October 3, 1980 (Ann Arbor, MI)**Last performed:** July 28, 2016 (Oslo, Norway)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

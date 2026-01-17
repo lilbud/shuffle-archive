@@ -8,7 +8,7 @@ There’s only one documented performance of “We’ll All Man the Guns,” and
 
 Take a listen to that Steel Mill performance below. I know it’s a distant recording, but Bruce’s vocals (and even his patter with the band) are remarkably clear–there’s not a single line we can’t make out.
 
-[https://videopress.com/embed/BaRLFbs9](https://videopress.com/embed/BaRLFbs9)
+[Watch Video Highlight](https://videopress.com/embed/BaRLFbs9)
 
 Bruce kind of spoils the song in the introduction, doesn’t he?
 
@@ -82,4 +82,4 @@ Never recorded**
 **First performed:** August 14, 1970 (Richmond, VA)  
 **Last performed:** August 14, 1970 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

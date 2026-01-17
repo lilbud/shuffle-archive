@@ -6,13 +6,13 @@ Much has been written (including an entire book) about that history-making and h
 
 Bruce doesn’t often talk about that show, but we certainly know it made an impression on him, because almost a quarter-century later he paid tribute to it when he opened his second-biggest German show ever with a cover of Wizz Jones’ 1973 folk song, “When I Leave Berlin,” a song written from the perspective of an East German yearning for the freedom of the west.
 
-[https://www.youtube.com/watch?v=iR1qH4Rztig](https://www.youtube.com/watch?v=iR1qH4Rztig)
+[Watch on Youtube: Wizz Jones - "When I Leave Berlin"](https://www.youtube.com/watch?v=iR1qH4Rztig)
 
 When Bruce started playing it, unannounced except as “something we learned just for you” it seemed clear that most of the crowd didn’t recognize it, but Bruce knows his craft: all it takes is the first mention of the name of your current location in song to get an audience revved up.
 
 Had Bruce chosen to use its original arrangement, “When I Leave Berlin” might have fallen flat, but Bruce wisely leveraged the full power of his band–horn section and all–and gave the song an energetic Seeger Sessions-esque treatment.
 
-[https://www.youtube.com/watch?v=MsjkqHT0O-o](https://www.youtube.com/watch?v=MsjkqHT0O-o)
+[Watch on Youtube: When I Leave Berlin (Berlin 05/30/12)](https://www.youtube.com/watch?v=MsjkqHT0O-o)
 
 If you paid close attention to the original and cover versions above, you might have noticed that Bruce made a subtle but significant lyrical change as well:
 
@@ -25,5 +25,3 @@ It was a beautiful performance for an appreciative audience–just one of the ma
 **When I Leave Berlin  
 First performed:** May 30, 2012 (Berlin, Germany)  
 **Last performed:** May 30, 2012 (Berlin, Germany)
-
- 

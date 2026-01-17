@@ -22,7 +22,7 @@ The whispered words are probably innocuous: “I love you,” most likely. Or ma
 
 And now the mystery deepens. What was she doing out there late at night? For that matter, what was *he* doing? Does the couple really share as much as they think they do?
 
-(Literary device note: did you catch the “edge of town” reference? It’s a sly callback to “[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/),” a way to imply impending darkness without literally stating it. Also, for all we know, the couple lives at the edge of town, but Bruce knows that the listener invests in the point-of-view character so that he becomes central, and therefore the edge of town is far away. All in all, a very slick trick: Bruce conveys a lot of information in that one line.)
+(Literary device note: did you catch the “edge of town” reference? It’s a sly callback to “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/),” a way to imply impending darkness without literally stating it. Also, for all we know, the couple lives at the edge of town, but Bruce knows that the listener invests in the point-of-view character so that he becomes central, and therefore the edge of town is far away. All in all, a very slick trick: Bruce conveys a lot of information in that one line.)
 
 *So tell me what I see when I look in your eyes*  
  *Is that you baby or just a brilliant disguise*
@@ -39,7 +39,7 @@ The imagery is significant in its intimacy: if his wife is seeing someone else, 
 *Well I’ve tried so hard baby but I just can’t see*  
  *What a woman like you is doing with me*
 
-…and now we have the final ingredient in this doubt cocktail: insecurity. He’s married out of his league and realize that [with every wish, there comes a curse](http://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/).
+…and now we have the final ingredient in this doubt cocktail: insecurity. He’s married out of his league and realize that [with every wish, there comes a curse](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/).
 
 *Now look at me baby, struggling to do everything right*  
  *And then it all falls apart oh when out go the lights*
@@ -98,13 +98,13 @@ The video for Brilliant disguise is pseudo-live, actually: Bruce sang the vocal 
 
 In my mind, the song continues after Bruce stops singing. Watch his eyes, his face after the last line and you’ll see what I mean. He says a lot without any words at all.
 
-[https://www.youtube.com/watch?v=idnJnjV_8rg](https://www.youtube.com/watch?v=idnJnjV_8rg)
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
-(There is a fantastic [blog post](http://meiertavis.com/archives/1215) by Meirt Avis, the director of the “Brilliant Disguise” video, providing the full backstory for the video concept, production, and shoot—I highly recommend reading it.)
+(There is a fantastic [blog post](https://meiertavis.com/archives/1215) by Meirt Avis, the director of the “Brilliant Disguise” video, providing the full backstory for the video concept, production, and shoot—I highly recommend reading it.)
 
 If there’s a live performance, I’d recommend, it’d be this one from 1990—the first time he performed the song solo, and the first song performed in concert in more than two years off the road, a divorce, a new pairing, and a new son. Bruce’s voice is in finer shape than I’ve heard before or since, and the emotion of the song comes through nakedly.
 
-[https://www.youtube.com/watch?v=03dJ0y_nuXY](https://www.youtube.com/watch?v=03dJ0y_nuXY)
+[Watch on Youtube: Brilliant Disguie (solo acoustic) Bruce Springsteen 11/16/1990 (Christic Benefit)](https://www.youtube.com/watch?v=03dJ0y_nuXY)
 
 “Brilliant Disguise” is ultimately a very personal song, both for the singer and the listener. Your take may differ from mine, as it very likely should. And if so, I’d love to hear it.
 

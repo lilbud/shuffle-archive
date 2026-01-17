@@ -4,7 +4,7 @@ Bruce finally answered his own question on the last track of his [*Wrecking Ball
 
 “We Are Alive” is dense and layered, and to fully appreciate it, you need to really *hear* it. If you can, put on a pair of noise cancelling headphones, and then press play:
 
-[https://www.youtube.com/watch?v=crzGQAoLKW0](https://www.youtube.com/watch?v=crzGQAoLKW0)
+[Watch on Youtube: We Are Alive](https://www.youtube.com/watch?v=crzGQAoLKW0)
 
 Those scratches you hear in the beginning are intentional–not just to evoke the original Johnny Cash composition that “We Are Alive” samples and is preceded by, but to deliberately conjure up the voice from the past that narrates our journey through time. That voice sets the scene, although not the time. Because he employs religious imagery with ancient significance, we get the sense that we are somewhere outside of time.
 
@@ -15,7 +15,7 @@ Those scratches you hear in the beginning are intentional–not just to evoke th
 
 That’s a remarkable first verse, conveying moment both earthly and divine. Perhaps that’s a shiver we feel, from the cool evening air, the implication of violence or the notion of being haunted.
 
-The voice continues painting the scene, accompanied only by his guitar, mirroring the recurring “[Ring of Fire](http://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)” riff through infernal lyrics:
+The voice continues painting the scene, accompanied only by his guitar, mirroring the recurring “[Ring of Fire](https://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)” riff through infernal lyrics:
 
 *Well, above the stars they crackle in fire*  
 *A dead man’s moon throws seven rings*  
@@ -53,7 +53,7 @@ We soar on that chorus, as the “Ring of Fire” motif emerges in full-throated
 *Let your mind rest easy, sleep well my friend*  
 *It’s only our bodies that betray us in the end*
 
-…and none too soon, because in the final verse, the narrator’s body does indeed betray him in a most gory fashion, recalling Bruce’s earlier “[Matamoras Banks](http://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/),” but forgoing poetry for a frank and terrifying nightmare, belied by hand-clapping and a vocal laced with life and resilience.
+…and none too soon, because in the final verse, the narrator’s body does indeed betray him in a most gory fashion, recalling Bruce’s earlier “[Matamoras Banks](https://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/),” but forgoing poetry for a frank and terrifying nightmare, belied by hand-clapping and a vocal laced with life and resilience.
 
 *I awoke last night in the dark and dreamy deep*  
 *From my head to my feet, my body’d gone stone cold*  
@@ -90,4 +90,4 @@ Recorded:** 2011
 **First performed:** March 9, 2012 (New York City, NY)  
 **Last performed:** May 1, 2014 (Tampa, FL)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

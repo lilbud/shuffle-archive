@@ -8,6 +8,6 @@ Tad is a singer-songwriter and one-man band out of Daytona Beach, and he knows t
 
 A great singer, a talented guitarist, and a mean multi-tasker, Tad delivers a performance worthy of a listen even if you think you’ve heard it all.
 
-[https://www.youtube.com/watch?v=nOegzE9M1EQ](https://www.youtube.com/watch?v=nOegzE9M1EQ)
+[Watch on Youtube: I'm On Fire - Bruce Springsteen - Live Loop Cover by Tad Jennings](https://www.youtube.com/watch?v=nOegzE9M1EQ)
 
 For more of Tad’s music–both original and cover–visit his web site [here](https://www.tadjennings.com/).

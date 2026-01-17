@@ -8,15 +8,15 @@ No one really knows what the song was called, because no one’s seen a setlist 
 
 Take a listen and decide for yourself who Bruce is singing about. (Me, I hear a different name in each version, so I think perhaps Bruce just changed the song over the holidays.)
 
-[http://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3?_=1](http://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3?_=1)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/12/05-Sweet-Miss-Sally-online-audio-converter.com_.mp3>
 
 Now compare with this 1971 recording:
 
-[http://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3?_=2](http://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3?_=2)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/12/01-sweet-miss-sally-online-audio-converter.com_.mp3>
 
 Whether it’s Sally or Annie, either way it seems that the woman question is a lady of the evening, a visit with whom is a rite of passage for a young man. The idea of poppas bringing their sons to see her (much less sons begging their poppas to do so) is kind of creepy, though, so let’s not dwell on the lyrics for this one.
 
@@ -27,4 +27,4 @@ Enjoy the jam instead.
 **First performed:** December 3, 1971 (Asbury Park, NJ)  
 **Last performed:** January 21, 1972 (Neptune, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,6 +1,6 @@
 On March 10, 1983, Bruce sat down in his new home studio in his Los Angeles home, switched on a drum machine, and recorded “The Klansman,” a dark reminiscence of a home visit by a KKK recruiter through the eyes of a child.
 
-[https://www.youtube.com/watch?v=MS01q2NXW_Y](https://www.youtube.com/watch?v=MS01q2NXW_Y)
+[Watch on Youtube: Bruce Springsteen - The Klansman (Official Audio)](https://www.youtube.com/watch?v=MS01q2NXW_Y)
 
 Unlike many of other acoustic outtakes from this period, “The Klansman” is virtually fully formed. There are a few lyrical rough edges that suggest that Bruce wasn’t quite done polishing it, but it’s clearly “content complete.” It features Bruce in the taut storytelling mode of his recent *Nebraska* album, but it isn’t hard to imagine “The Klansman” in an electric arrangement on *Born in the U.S.A.* 
 

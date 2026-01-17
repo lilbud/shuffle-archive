@@ -2,7 +2,7 @@
 
 Maybe if Neil Young had set his beloved “Helpless” (first recorded and released by Crosby, Stills, Nash & Young on their 1970 *Deja Vu* album) in Toronto, Bruce would have covered it sooner?
 
-[https://www.youtube.com/watch?v=C8LYOyqJE7k](https://www.youtube.com/watch?v=C8LYOyqJE7k)
+[Watch on Youtube: Helpless](https://www.youtube.com/watch?v=C8LYOyqJE7k)
 
 As it stands, it took Bruce until 1986 to visit Neil’s town in North Ontario, but it was a special moment when he did.
 
@@ -10,12 +10,10 @@ It was at Neil and Pegi Young’s first Bridge School benefit show in 1986, and 
 
 But Neil went first, and in the middle of his set he invited Bruce to the stage, along with Nils Lofgren, a member of both icons’ bands. Side by side for the first time, the three musical legends performed a beautiful acoustic rendition of “Helpless.”
 
-[https://videopress.com/embed/eQqMdMXN](https://videopress.com/embed/eQqMdMXN)
+[Watch Video Highlight](https://videopress.com/embed/eQqMdMXN)
 
 You won’t find that performance on Bruce’s archive release from that night, but that’s only because it’s already been officially released. You can find it on the [*The Bridge Collection, Volume 2*](https://music.apple.com/us/album/the-bridge-school-collection-vol-2-live/208494388)on select streaming services.
 
 **Helpless  
 First performed:** October 13, 1986 (Mountain View, CA)  
 **Last performed:** October 13, 1986 (Mountain View, CA)
-
- 

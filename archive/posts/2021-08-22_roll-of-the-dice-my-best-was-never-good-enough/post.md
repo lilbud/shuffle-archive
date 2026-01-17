@@ -1,18 +1,10 @@
 > “Well, I tell you,” I drawled. “I tell you the way I look at it, a man doesn’t get any more out of life than what he puts into it.”
 > 
-> 
-> 
 > “Umm,” he said, fidgeting. “I guess you’re right, Lou.”
-> 
-> 
 > 
 > “I was thinking the other day, Max; and all of a sudden I had the doggondest thought. It came to me out of a clear sky–the boy is the father to the man. Just like that. The boy is the father to the man.”
 > 
-> 
-> 
 > The smile on his face was getting strained. I could hear his shoes creak as he squirmed. If there’s anything worse than a bore, it’s a corny bore. But how can you brush off a nice friendly fellow who’d give you his shirt if you asked for it?
-> 
-> 
 > 
 > — *Jim Thompson, The Killer Inside Me*
 
@@ -20,7 +12,7 @@ In 1952, Jim Thompson published one of the darkest and most harrowing crime nove
 
 On the surface, Sheriff Lou Ford is an upright, dedicated lawman with an annoying penchant for peppering his patter with tropes and clichés. In truth, it’s all an act intended to disarm and distract from Ford’s inner sociopath, who becomes more and more dominant as the story progresses, as in this scene from a 2010 film adaptation.
 
-[https://www.youtube.com/watch?v=inDXS8n9dX4](https://www.youtube.com/watch?v=inDXS8n9dX4)
+[Watch on Youtube: The Killer Inside Me: Casey Affleck Burns a Bum](https://www.youtube.com/watch?v=inDXS8n9dX4)
 
 I won’t spoil the ending in case you’re inspired to read the book, but let’s just say *The Killer Inside* is not a happy story. It is, however, a gripping and highly regarded tale, praised by luminaries like Stephen King and Stanley Kubrick and inspiring two film adaptations and even a graphic novel serialization.
 
@@ -30,7 +22,7 @@ The year was 1995, and the cable news era was in its infancy. It was maturing ra
 
 Against that backdrop and inspired by Thompson’s novel, Bruce wrote and recorded “My Best Was Never Good Enough,” and sequenced it as the closing track of his next album, [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/).
 
-[https://www.youtube.com/watch?v=fBSvAPlnDOU](https://www.youtube.com/watch?v=fBSvAPlnDOU)
+[Watch on Youtube: My Best Was Never Good Enough](https://www.youtube.com/watch?v=fBSvAPlnDOU)
 
 “It was my parting joke,” Bruce wrote in *Songs*, “and [a] shot at the way pop culture trivializes complicated moral issues, how the nightly news ‘sound bytes’ [sic] and packages life to strip away the dignity of human events.”
 
@@ -73,7 +65,7 @@ That’s a lot for a barely two-minute song comprised entirely of aphorisms, but
 
 Still waters run deep.
 
-[https://www.youtube.com/watch?v=TqJeHXifgLk](https://www.youtube.com/watch?v=TqJeHXifgLk)
+[Watch on Youtube: Bruce Springsteen - My Best Was Never Good Enough - Live 2005 (opening night) video](https://www.youtube.com/watch?v=TqJeHXifgLk)
 
 **My Best Was Never Good Enough  
 Recorded:** March – August 1995  

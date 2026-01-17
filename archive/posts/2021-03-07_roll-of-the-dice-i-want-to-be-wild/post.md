@@ -6,7 +6,7 @@ It had a killer backing track, though, and I mentioned at the time that Bruce wo
 
 Well, this is Bruce’s next attempt. In “I Want to Be Wild,” the E Street Band takes a leap forward, tightening up the backing track, adding a wonderful Big Man sax solo, and a terrific mid-song drum break.
 
-[https://videopress.com/embed/Lf5GkdWj](https://videopress.com/embed/Lf5GkdWj)
+[Watch Video Highlight](https://videopress.com/embed/Lf5GkdWj)
 
 Unfortunately, though, Bruce now sounds like he’s singing underwater… when we can hear him singing at all.
 

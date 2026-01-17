@@ -4,11 +4,11 @@ That fourth class of inductees was an amazing one: The Rolling Stones, The Tempt
 
 Late in the evening, Bill Graham sparked an impromptu jam session with an incredible array of talent crowding the hotel ballroom’s small stage. Bruce was among them–watch closely and you’ll see a couple of close-ups of him on guitar in this rarely seen video of Mick Jagger fronting the amazing (if a bit unwieldy) band on The Rolling Stones’ smash hit, “Start Me Up.”
 
-[https://videopress.com/embed/5x56vvt3](https://videopress.com/embed/5x56vvt3)
+[Watch Video Highlight](https://videopress.com/embed/5x56vvt3)
 
 My favorite part about that video? It’s just as delightfully awkward as The Rolling Stones’ original 1981 video, right down to the way-too-close-at-times camera operator.
 
-[https://www.youtube.com/watch?v=SGyOaCXr8Lw](https://www.youtube.com/watch?v=SGyOaCXr8Lw)
+[Watch on Youtube: The Rolling Stones - Start Me Up - Official Promo](https://www.youtube.com/watch?v=SGyOaCXr8Lw)
 
 That video, of course, became one of the most frequently aired videos during the early days of MTV, and the single peaked just shy of the top spot of the Billboard Hot 100, lingering at #2 for three weeks.
 
@@ -17,5 +17,3 @@ The Rolling Stones would never achieve that level of chart success again. Despit
 **Start Me Up**  
 **First performed:** January 18, 1989 (New York City, NY)  
 **Last performed:** January 18, 1989 (New York City, NY)
-
- 

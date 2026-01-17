@@ -1,6 +1,6 @@
 Given Bruce’s love for everything Stax, “Green Onions” was bound to make an appearance on the E Street Stage sooner or later. Even if you don’t know it by name, you know it by sound–Booker T.’s instrumental B-side to “Behave Yourself” quickly overshadowed its A-side and hit the Billboard Hot 100 during the summer of 1962. Stax rushed an A-side re-release to market in September, barely hitting the shelves before “Green Onions” peaked at #3 the last week of the month.
 
-[https://www.youtube.com/watch?v=0oox9bJaGJ8](https://www.youtube.com/watch?v=0oox9bJaGJ8)
+[Watch on Youtube: Booker T. & The MG's - Green Onions (Official Audio)](https://www.youtube.com/watch?v=0oox9bJaGJ8)
 
 “Green Onions” went on to enshrine itself in rock and soul history, earning a Grammy Hall of Fame Award in 1999 and distinction as the only instrumental in *Rolling Stone’s* 500 Greatest Songs of All Time roster.
 
@@ -8,7 +8,7 @@ In 2009, when Bruce needed some backing music while collecting mid-show sign req
 
 How’d they do? You can listen for yourself below, but just remember: you may not be able to stump the E Street Band, but it’s also pretty dang tough to beat Booker T. and the M.G.’s.
 
-[https://videopress.com/embed/oaPS4mj6](https://videopress.com/embed/oaPS4mj6)
+[Watch Video Highlight](https://videopress.com/embed/oaPS4mj6)
 
 **Green Onions  
 First performed:** November 20, 2009 (Baltimore, MD)  

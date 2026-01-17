@@ -6,7 +6,7 @@ Because if “Surprise, Surprise” is the only “good” song to come out of B
 
 (Bruce may be prone to on-stage exaggeration at times, but this is one story I believe one hundred percent.)
 
-[https://www.youtube.com/watch?v=yEIBlkh4AsM](https://www.youtube.com/watch?v=yEIBlkh4AsM)
+[Watch on Youtube: Surprise, Surprise](https://www.youtube.com/watch?v=yEIBlkh4AsM)
 
 Its glorious Byrdsian production and harmonies may somewhat redeem it, but lyrically “Surprise, Surprise” is as slight as they come. Heck, we’re a quarter of the way through the song before Bruce utters his eleventh non-repeating word, although he manages to get “surprise” out sixteen times in forty-five seconds, which is approaching “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” territory.
 
@@ -49,11 +49,11 @@ It’s very beautiful language, mind you: I mean, who *wouldn’t* want a shinin
 
 Which isn’t to say that “Surprise, Surprise” can’t be very touching in the right context. For instance, on Little Steven’s birthday in 2009, when Bruce serenaded him with the song after presenting him with a birthday cake.
 
-[https://www.youtube.com/watch?v=KADuwwUHbtU](https://www.youtube.com/watch?v=KADuwwUHbtU)
+[Watch on Youtube: Springsteen "Surprise Surprise" Buffalo 11-22-09](https://www.youtube.com/watch?v=KADuwwUHbtU)
 
 It also translates surprisingly well acoustically, primarily because Bruce is able to provide a more tender vocal when he doesn’t have to worry about being overpowered by the band.
 
-[https://www.youtube.com/watch?v=Pg_HcKbWbd4](https://www.youtube.com/watch?v=Pg_HcKbWbd4)
+[Watch on Youtube: Bruce Springsteen Surprise, Surprise Live at Hershey, PA 5-14-14 (Part 6)](https://www.youtube.com/watch?v=Pg_HcKbWbd4)
 
 Like I said, “Surprise, Surprise” is not without its redeeming values. But still: Happy Birthday to You.
 

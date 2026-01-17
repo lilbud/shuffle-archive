@@ -1,30 +1,16 @@
 > *After the Border Patrol van departed carrying the boys who did not run fast enough, Carlitos whistled, the sound echoing in the park beneath sun-glazed downtown office towers.*
 > 
-> 
-> 
 > *“They’re gone!” he shouted in Spanish, inhaling a blast of Octane Booster–a gasoline additive and makeshift drug–from a Coke can. “I chased them off.”*
-> 
-> 
 > 
 > *A dozen youths emerged warily from the trees: homeless illegal immigrants who earn a living in a verdant corner of Balboa Park where the cars circle day and night. Where the drivers in business suits and BMWs seek out children who survive by prostituting themselves and selling drugs.*
 > 
-> 
-> 
 > *Unfazed by the Border Patrol raid, the diminutive Carlitos, 14, led the way through the brush as he described the suburban home of a man who picked him up recently.*
-> 
-> 
 > 
 > *“He has Super-Nintendo, a video, a big television, a pool,” he exclaimed, black hair falling in his eyes. “Like the movies.”*
 > 
-> 
-> 
 > *Carlitos reached a freeway interchange that cuts through the park and gestured at a row of blankets in the dirt where he sleeps beneath a concrete bridge. “We’re from Tijuana, Sinaloa, Mexico City, Guadalajara, Honduras,” he said. “This is our new house.”*
 > 
-> 
-> 
 > *Carlitos and his friends are the children of the border.*
-> 
-> 
 > 
 > *–Sebastian Rotella, “[Children of the Border](https://www.latimes.com/archives/la-xpm-1993-04-03-mn-18653-story.html)” — Los Angeles Times, April 3, 1993*
 
@@ -38,11 +24,11 @@ Bruce discreetly tried to contact Rotella about his article through Terry Magove
 
 Nevertheless, in 1995, Bruce adapted the article into a song, recorded it, and released it on *T[he Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/).* He named the song after the location both the song and article centered on: Balboa Park.
 
-[https://www.youtube.com/watch?v=IWmdBgHjLlY](https://www.youtube.com/watch?v=IWmdBgHjLlY)
+[Watch on Youtube: Balboa Park](https://www.youtube.com/watch?v=IWmdBgHjLlY)
 
 “Balboa Park” is truly a solo recording. Bruce plays guitar and keyboards–the only instruments to be heard–on the track, along with vocals so soft and intimate that it sounds like you’re listening to a story told around a campfire.
 
-The song reads like a musical adaptation of the article. Bruce makes no attempt at a chorus and puts very little effort into a melody. The story’s the thing, and Bruce wants nothing to detract from it. The story of Spider’s Balboa Park is a million miles away from Spanish Johnny’s [57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).
+The song reads like a musical adaptation of the article. Bruce makes no attempt at a chorus and puts very little effort into a melody. The story’s the thing, and Bruce wants nothing to detract from it. The story of Spider’s Balboa Park is a million miles away from Spanish Johnny’s [57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).
 
 *He lay his blanket underneath the freeway as the evening sky grew dark*  
 *Took a sniff of toncho from his coke can, headed through Balboa Park*  
@@ -81,7 +67,7 @@ The vignette that closes the song, though, is Bruce’s–the boys of “Balboa 
 
 Bruce performed “Balboa Park” nightly throughout the Ghost of Tom Joad Tour, but never since. The tale is too intimate, too quiet to translate to any setting other than a small theater. And when he played it each night, Bruce always took care to explain the emotional inspiration for the song–the grace of childhood that a parent wants to protect for as long as possible.
 
-[https://videopress.com/embed/Qot7QYTM](https://videopress.com/embed/Qot7QYTM)
+[Watch Video Highlight](https://videopress.com/embed/Qot7QYTM)
 
 There were as many as fifty boys in Rotella’s original 1993 article. More than a quarter-century on, who knows where or who those boys are now? We don’t, and that’s just one more haunting aspect of “Balboa Park.”
 
@@ -91,4 +77,4 @@ Recorded:** March-August 1995
 **First performed:** November 21, 1995 (New Brunswick, NJ)  
 **Last performed:** May 26, 1997 (Paris, France)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

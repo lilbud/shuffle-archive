@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor’s Note:*** *After last month’s back-to-back behind-the-scenes first-hand accounts from* *[Sandi Pederson](http://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/)* *and* *[Kevin Doyle](http://estreetshuffle.com/index.php/2019/07/02/where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/)**, I figured it would be a long time before I’d have the privilege to feature another exclusive “I was there” report.*
+***Editor’s Note:*** *After last month’s back-to-back behind-the-scenes first-hand accounts from* *[Sandi Pederson](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/)* *and* *[Kevin Doyle](https://estreetshuffle.com/index.php/2019/07/02/where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/)**, I figured it would be a long time before I’d have the privilege to feature another exclusive “I was there” report.*
 
 *Enter Mark Cunningham. Mark first wrote to me last year to share a pair of experiences any Springsteen fan would drool over. Now, a year later, he’s graciously offered to share the first of those stories with us below.* 
 
@@ -16,11 +16,11 @@ My job was to run errands for Bruce and the band. Bruce’s cousin had been doin
 
 Each day, I was sent out to pick up food, supplies, instruments, etc. My down time? Sitting on the side of the stage watching the band go through the songs–an uber fan’s dream come true!
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/06/2002-07-12-300x202.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/06/2002-07-12.jpg)
 
 *Everyone* was so genuine and nice. Bruce really surrounds himself with people like himself. Seeing Bruce and Steve on stage for the first time in many years was a joy to watch. They were really enjoying themselves, lots of laughs and back slaps. A true friendship there.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/rehearsal-300x202.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/rehearsal.jpg)
 
 Standout memories:
 
@@ -39,7 +39,7 @@ It was a very relaxed atmosphere during those three days. I got a “hey” from
 
 On July 19th, I had to drive Bruce’s guitar, harmonica and capo out to Terry McGovern so Terry could bring it to Bruce to his house in Colts Neck for his interview with Ted Koppel. Those items were in my car!
 
-[https://www.youtube.com/watch?v=-pgzJ7Iyg6Q](https://www.youtube.com/watch?v=-pgzJ7Iyg6Q)
+[Watch on Youtube: Bruce Springsteen Empty Sky live nightline 080102](https://www.youtube.com/watch?v=-pgzJ7Iyg6Q)
 
 The final day (July 22nd), they didn’t have much for me to do except run out and get a stopwatch. They ran through the whole set and timed it. I was on stage right and watched the entire performance.
 
@@ -57,7 +57,7 @@ We got to the venue and were the first ones let in. We had our own section right
 
 The rest we all know… Bruce came out early, did an acoustic set then the band later on.
 
-[https://www.youtube.com/watch?v=ar-qvX1F0t4](https://www.youtube.com/watch?v=ar-qvX1F0t4)
+[Watch on Youtube: Bruce Springsteen - Today Show Interview and "The Rising" - 7/30/02](https://www.youtube.com/watch?v=ar-qvX1F0t4)
 
 My first of two stints with Bruce and The E Street Band.
 

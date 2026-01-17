@@ -2,6 +2,4 @@ I’m not the biggest Cher fan, and the whole “bar in the sky” thing is a bi
 
 Also: Darlene Love! She classes up any act.
 
-[https://www.youtube.com/watch?v=Kdg4FejMAZA](https://www.youtube.com/watch?v=Kdg4FejMAZA)
-
- 
+[Watch on Youtube: Cher - Tougher Than The Rest](https://www.youtube.com/watch?v=Kdg4FejMAZA)

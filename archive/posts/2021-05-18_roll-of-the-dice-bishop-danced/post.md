@@ -1,34 +1,18 @@
 > “This next song is kind of a nonsense song. I’ll give you a quick rundown:
 > 
-> 
-> 
 > It’s about a bishop and his wife and this violin player in West Virginia.
-> 
-> 
 > 
 > It’s about how their daughter lost her mother to mathematics while on a business trip in Detroit.
 > 
-> 
-> 
 > It has a Top 40 hook part that if we knew the words, everybody could sing to it.
-> 
-> 
 > 
 > It’s about pancakes and this guy named Muskrat who lives in Richmond, Virginia, who I met when I was playin’ down there. (He plays saxophone.)
 > 
-> 
-> 
 > It’s about James Garner, when he was very popular years ago in his Brit (Bret? Bert?) Maverick TV shows, and it was a well-known Hollywood secret that he had an affair with a mad woman with one eye.
-> 
-> 
 > 
 > It’s about this little boy who told his father that the Indians are still in the woods, only nobody sees ‘em.
 > 
-> 
-> 
 > And it’s about sexual pathos of elderly choirboys in Butte, Montana.”
-> 
-> 
 > 
 > — *Bruce Springsteen, January 31, 1973*
 
@@ -36,7 +20,7 @@ Yeah, I should probably leave it at that.
 
 Because if we accept Bruce’s description verbatim, we end up with an impressionistic mess that’s at least fun to sing; if we treat his plot summary as tongue-in-cheek, however, we end up with a song-length ode to self-pleasure.
 
-[https://www.youtube.com/watch?v=j3k_B-pvusI](https://www.youtube.com/watch?v=j3k_B-pvusI)
+[Watch on Youtube: Bishop Danced (Live at Max's Kansas City - January 1973)](https://www.youtube.com/watch?v=j3k_B-pvusI)
 
 Because Bruce once remarked that if you don’t know what one of his songs is about, it’s about sex, and we should take him at his word.
 
@@ -94,7 +78,7 @@ Because to my knowledge, no one has ever called Bruce on this one–not a fan, n
 
 Because “Bishop Danced” disappeared from Bruce’s set list in early 1973 and didn’t return until 2012, in its first electric full-band arrangement, and Bruce seemed to have forgotten he’d ever played it live before at all.
 
-[https://www.youtube.com/watch?v=8YntGDsYzlY](https://www.youtube.com/watch?v=8YntGDsYzlY)
+[Watch on Youtube: Bruce Springsteen Bishop Danced 2012 05 02 Newark, NJ CamMix Dubbed HD 720p](https://www.youtube.com/watch?v=8YntGDsYzlY)
 
 “Bishop Danced” benefitted from its new arrangement, particularly from Soozie Tyrell’s violin solo and Charlie Giordano’s accordion spotlight. Still, Bruce seemed awfully close to blushing at times.
 

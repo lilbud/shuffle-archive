@@ -2,21 +2,21 @@ Who would have thought a 1962 “[Stand By Me](https://estreetshuffle.com/index.
 
 As any of the 100,000+ lucky fans present for the opening shows know, that’s exactly what happened.
 
-[https://www.youtube.com/watch?v=uc47FFGLt58](https://www.youtube.com/watch?v=uc47FFGLt58)
+[Watch on Youtube: Bruce Springsteen - "Don't Play That Song" (Live 4K HQ Audio) - Amalie Arena Tampa February 1, 2023](https://www.youtube.com/watch?v=uc47FFGLt58)
 
 “Don’t Play That Song (You Lied)” was written by Atlantic Records president Ahmet Ertegun and Betty Nelson, although certainly some credit belongs to Nelson’s husband, the great soul singer Ben E. King.
 
 A year earlier, King had the seed for a song destined to become an enduring standard. With the help of famed songwriters Jerry Leiber and Mike Stoller, King developed “Stand By Me” and made it an instant hit.
 
-[https://www.youtube.com/watch?v=hwZNL7QVJjE](https://www.youtube.com/watch?v=hwZNL7QVJjE)
+[Watch on Youtube: Ben E. King - Stand By Me (Audio)](https://www.youtube.com/watch?v=hwZNL7QVJjE)
 
 Anyone familiar with King’s 1961 hit single will surely recognize the same chassis underneath “Don’t Play That Song,” which King actually released on the same album as its more famous sibling. Instrumentally, they’re virtually the same song.
 
-[https://www.youtube.com/watch?v=SndUjAzSSOQ](https://www.youtube.com/watch?v=SndUjAzSSOQ)
+[Watch on Youtube: Don't Play That Song - Ben E. King](https://www.youtube.com/watch?v=SndUjAzSSOQ)
 
 “Don’t Play That Song” proved a hit single too, barely missing the Top Ten when King released it in 1962. Eight years later, Aretha Franklin notched the same #11 peak when she recorded a cover in a completely different, more swinging arrangement.
 
-[https://www.youtube.com/watch?v=6ktFUwPGWag](https://www.youtube.com/watch?v=6ktFUwPGWag)
+[Watch on Youtube: Aretha Franklin - Don't Play That Song (You Lied) [1970]](https://www.youtube.com/watch?v=6ktFUwPGWag)
 
 Today, both King’s and Franklin’s versions are considered definitive, but as popular as they were, neither directly inspired Bruce’s cover on *Only the Strong Survive*.
 
@@ -24,15 +24,15 @@ Today, both King’s and Franklin’s versions are considered definitive, but as
 
 I’m not sure if Bruce ever publicly acknowledged which version caught his imagination so strongly, but this 1969 version by Derrick Morgan is a compelling candidate.
 
-[https://www.youtube.com/watch?v=7LeCzu3oJzk](https://www.youtube.com/watch?v=7LeCzu3oJzk)
+[Watch on Youtube: DERRICK MORGAN - Don't play that song [1969 - Crab]](https://www.youtube.com/watch?v=7LeCzu3oJzk)
 
 Whatever the inspiration, Bruce definitely leaned in to the beach vibe. With a galvanizing horn section in place of the more sentimental strings and a mid-song patter that claims the song for the Jersey Shore, Bruce’s cover sounds more like something we’d hear at a boardwalk bar than anything else on his 2022 album.
 
-[https://www.youtube.com/watch?v=6bM3L296ZNw](https://www.youtube.com/watch?v=6bM3L296ZNw)
+[Watch on Youtube: Bruce Springsteen - Don't Play That Song (Official Video)](https://www.youtube.com/watch?v=6bM3L296ZNw)
 
 We knew Bruce had a particular fondness for “Don’t Play That Song” when he produced that video and debuted a similar ensemble on *The Tonight Show with Jimmy Fallon* shortly after. So it isn’t at all surprising to see it become the moment in his current show where he first makes his way into the pit and finds connection with the crowd.
 
-[https://www.youtube.com/watch?v=J2gIgmrWnZw](https://www.youtube.com/watch?v=J2gIgmrWnZw)
+[Watch on Youtube: Don’t Play That Song (You Lied)- Springsteen - Orlando Feb 5, 2023](https://www.youtube.com/watch?v=J2gIgmrWnZw)
 
 *Only the Strong Survive* hasn’t exactly been enthusiastically embraced by many fans who wish Bruce would focus on releasing his own new music, but along with “Nightshift,” “Don’t Play That Song” appears to be winning converts nightly on tour. And as always, the song continues to grow in power and polish with each performance.
 

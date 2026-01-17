@@ -4,7 +4,7 @@ Sometimes, Bruce’s unreleased, recorded lyrics stand on their own as poetry. B
 
 All we have to go on is this hand-written lyrics sheet from Bruce’ Steel Mill era…
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/ohnonono-192x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/ohnonono.jpg)
 
 …but even though the verses are legible and fully formed, “Oh No No No” was clearly intended to be about the chorus–an emotional release, a musical primal scream, perhaps? We’ll probably never know.
 
@@ -45,4 +45,4 @@ Still, given what we have here, even if Bruce had finished and recorded the song
 Never recorded  
 Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

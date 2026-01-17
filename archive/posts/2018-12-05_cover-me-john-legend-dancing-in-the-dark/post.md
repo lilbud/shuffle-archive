@@ -4,12 +4,8 @@ But my favorite performance was during “Springsteen Week” in 2012 on the *Th
 
 Check it out:
 
-[https://videopress.com/embed/3QbJHFVh](https://videopress.com/embed/3QbJHFVh)
+[Watch Video Highlight](https://videopress.com/embed/3QbJHFVh)
 
 Bonus: here’s another performance–solo this time–from London in 2013:
 
-[https://www.youtube.com/watch?v=y_zftf3bVUM](https://www.youtube.com/watch?v=y_zftf3bVUM)
-
- 
-
- 
+[Watch on Youtube: John Legend - Dancing In the Dark (Live from iTunes Festival, London, 2013)](https://www.youtube.com/watch?v=y_zftf3bVUM)

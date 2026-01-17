@@ -18,13 +18,13 @@
 
 **1997:** Bruce plays his third of five solo acoustic nights at Sydney’s Capitol Theater.
 
-[https://videopress.com/embed/MEFuhDtd](https://videopress.com/embed/MEFuhDtd)
+[Watch Video Highlight](https://videopress.com/embed/MEFuhDtd)
 
-**2008:** Bruce scores three Grammy Awards: two for “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)” (Best Solo Rock Vocal Performance and Best Rock Song) and one for “[Once Upon a Time in the West](http://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)” (Best Rock Instrumental Performance). Bruce’s current album, *Magic*, is also nominated for Best Rock Album but does not win.
+**2008:** Bruce scores three Grammy Awards: two for “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)” (Best Solo Rock Vocal Performance and Best Rock Song) and one for “[Once Upon a Time in the West](https://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)” (Best Rock Instrumental Performance). Bruce’s current album, *Magic*, is also nominated for Best Rock Album but does not win.
 
-[https://www.youtube.com/watch?v=2f3XaoHqQuQ](https://www.youtube.com/watch?v=2f3XaoHqQuQ)
+[Watch on Youtube: Radio Nowhere](https://www.youtube.com/watch?v=2f3XaoHqQuQ)
 
-[https://www.youtube.com/watch?v=CBTy5EF7upk](https://www.youtube.com/watch?v=CBTy5EF7upk)
+[Watch on Youtube: Once Upon A Time In The West](https://www.youtube.com/watch?v=CBTy5EF7upk)
 
 **2012:** Bruce and the E Street Band rehearse for their upcoming Grammy Awards performance of “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/).”
 
@@ -32,26 +32,26 @@
 
 **2016:** In Hartford’s XL Center, Bruce and the band play “[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” for the first time on the new River Tour.
 
-[https://www.youtube.com/watch?v=6J9EtXyqgd8](https://www.youtube.com/watch?v=6J9EtXyqgd8)
+[Watch on Youtube: Bruce Springsteen-Meet Me In The City, Hartford 2016-02-10](https://www.youtube.com/watch?v=6J9EtXyqgd8)
 
-[https://www.youtube.com/watch?v=4X3JCEs2Czs](https://www.youtube.com/watch?v=4X3JCEs2Czs)
+[Watch on Youtube: Bruce Springsteen-Loose Ends, Hartford 2016-02-10 (Tour debut)](https://www.youtube.com/watch?v=4X3JCEs2Czs)
 
-[https://www.youtube.com/watch?v=iKYu6e29PNY](https://www.youtube.com/watch?v=iKYu6e29PNY)
+[Watch on Youtube: Bruce Springsteen-Point Blank, Hartford 2016-02-10](https://www.youtube.com/watch?v=iKYu6e29PNY)
 
-[https://www.youtube.com/watch?v=GwFWmbWZvq8](https://www.youtube.com/watch?v=GwFWmbWZvq8)
+[Watch on Youtube: Bruce Springsteen-The Price You Pay, Hartford 2016-02-10](https://www.youtube.com/watch?v=GwFWmbWZvq8)
 
-[https://www.youtube.com/watch?v=7t_HpRjcgwg](https://www.youtube.com/watch?v=7t_HpRjcgwg)
+[Watch on Youtube: Bruce Springsteen-Dancing In The Dark, Hartford 2016-02-10](https://www.youtube.com/watch?v=7t_HpRjcgwg)
 
-[https://www.youtube.com/watch?v=dM_BDvIvmcM](https://www.youtube.com/watch?v=dM_BDvIvmcM)
+[Watch on Youtube: Bruce Springsteen "Bobby Jean" 02-10-16 XL Center Hartford CT](https://www.youtube.com/watch?v=dM_BDvIvmcM)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/2016-02-10.png)
 
 **2023:** At the American Airlines Center in Dallas, Soozie is still down for the count with COVID, and now Little Steven is as well. Patti is absent too, as she will be for the rest of the tour, but while the E Street Band is diminished in size, they perform at full strength and tour premiere “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” in the encores.
 
-[https://www.youtube.com/watch?v=XqA3NOz52gM](https://www.youtube.com/watch?v=XqA3NOz52gM)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Detroit Medley [Dallas TX, USA - 10.FEB.2023] Official Audio](https://www.youtube.com/watch?v=XqA3NOz52gM)
 
-[https://www.youtube.com/watch?v=mRFr28PyO64](https://www.youtube.com/watch?v=mRFr28PyO64)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Dallas - 2023-02-10 - Thunder Road](https://www.youtube.com/watch?v=mRFr28PyO64)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/02/Fort_Worth_Star_Telegram_Sun__Feb_12__2023_-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1973_02_15_Page_21.jpg?w=758&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1973_02_15_Page_21-scaled.jpg)

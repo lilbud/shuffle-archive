@@ -43,30 +43,30 @@ Later that year, Woody Guthrie wrote a poem about the event, called “Plane Wre
 
 …and a decade later, college student Martin Hoffman set it to music, and the song known as “Deportee (Plane Wreck at Los Gatos)” was born. It became popular when Pete Seeger recorded and performed it.
 
-[https://www.youtube.com/watch?v=SrRak5-tCr8](https://www.youtube.com/watch?v=SrRak5-tCr8)
+[Watch on Youtube: Pete Seeger sings Woody Guthrie Deportee](https://www.youtube.com/watch?v=SrRak5-tCr8)
 
 Over the years, “Deportee” has been covered too many times to count: Joan Baez, Bob Dylan, Arlo Guthrie, Judy Collins… it seems like any artist with a social activist bent has covered the song at one point or another–including Bruce Springsteen, who first performed the song as a tribute to Woody Guthrie in Los Angeles during the River Tour.
 
-[https://www.youtube.com/watch?v=Ay4AEpEynuc](https://www.youtube.com/watch?v=Ay4AEpEynuc)
+[Watch on Youtube: Bruce Springsteen - DEPORTEE 1981 (audio)](https://www.youtube.com/watch?v=Ay4AEpEynuc)
 
 Fifteen years later, Bruce reprised “Deportee” at a Woody Guthrie tribute concert in Cleveland, and that performance would be officially released four years later on a benefit album entitled *‘Til We Outnumber Them*.
 
-[https://www.youtube.com/watch?v=lAgRmr0DafA](https://www.youtube.com/watch?v=lAgRmr0DafA)
+[Watch on Youtube: Plane Wreck at Los Gatos](https://www.youtube.com/watch?v=lAgRmr0DafA)
 
 Bruce performed the songs on two more occasions in 1996, both on his solo acoustic Ghost of Tom Joad Tour. The first time was as a warm-up for the Guthrie tribute three nights later; the second and was at his tour stop in Fresno, not far from the burial ground of the late victims of that 1948 plane crash.
 
 **Update 5/22/21:** That was the last time Bruce played “Deportee” to date, until the spring of 2021, when Bruce was honored with the Woody Guthrie Prize. The ceremony was virtual this year, but Bruce generously performed a mini-set of Woody’s music, including a lovely performance of “Deportee (Plane Wreck at Los Gatos).”
 
-[https://www.youtube.com/watch?v=7mO4Um2a7lk](https://www.youtube.com/watch?v=7mO4Um2a7lk)
+[Watch on Youtube: Deportee - Bruce Springsteen (13-05-2021 Woody Guthrie Center Award)](https://www.youtube.com/watch?v=7mO4Um2a7lk)
 
 ---
 
 
 *****Recent research suggests that perhaps not all of the doomed flight’s passengers were Mexican. Listen to the interview below for a fascinating postscript to the true story of the plane wreck at Los Gatos.
 
-[http://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3?_=2](http://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3?_=2)
 
-<http://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3>
 
 **Deportee (Plane Wreck at Los Gatos)  
 Recorded:** September 29, 1996  

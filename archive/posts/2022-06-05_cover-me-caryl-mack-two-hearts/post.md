@@ -12,8 +12,6 @@ Like with today’s entry. You may remember Caryl Mack from the late 1990s, when
 
 Although she’d covered it solo during the early lockdown phase of the pandemic, a song called “Two Hearts” calls for some collaborators. So just recently, she assembled her Live from the Firepit band and turned in an absolutely gorgeous performance that’s on heavy rotation for me at the moment.
 
-[https://www.youtube.com/watch?v=uRYz1J4K8Fk](https://www.youtube.com/watch?v=uRYz1J4K8Fk)
+[Watch on Youtube: Two Hearts (Bruce Springsteen Cover) | Live From the Firepit | Caryl Mack](https://www.youtube.com/watch?v=uRYz1J4K8Fk)
 
 “Two Hearts” isn’t the only Springsteen song Mack has added to her repertoire. If you’re in the Nashville area this week, [catch her in concert](https://belmont.churchcenter.com/registrations/events/1301434) on Music Row, where she promises to cover more of Bruce’s music in an event that promises “songs, stories, Springsteen.”
-
- 

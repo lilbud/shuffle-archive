@@ -1,7 +1,5 @@
 > “It’s basically about sex.” — *Bruce Springsteen, February 20, 2003*
 > 
-> 
-> 
 > “Don’t overthink the whole thing.” — *Bruce Springsteen, April 4, 2005*
 
 What do you do if you’re a hot-shot 22-year-old would-be rock star with big dreams, a recording contract, a wide-open future, and the only thing standing in the way of your voice on vinyl is a record exec who can’t hear a single?
@@ -14,7 +12,7 @@ With his debut album *almost* in the can (except for the elusive single) and the
 
 Together with award-winning Broadway conductor, composer and orchestrator (and future *Dancing with the Stars* musical director) Harold Wheeler on piano, the quartet came together in the studio on September 11, 1972 and walked away with what would become the two best-known tracks from Springsteen’s debut album: “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/),” and “Blinded by the Light.”
 
-[https://www.youtube.com/watch?v=xPy82OO6vRg?start=47](https://www.youtube.com/watch?v=xPy82OO6vRg?start=47)
+[Watch on Youtube: Blinded By The Light](https://www.youtube.com/watch?v=xPy82OO6vRg?start=47)
 
 Written hurriedly and contemporaneously, “Blinded” and “Spirit” are cut from similar cloth. Both feature an exotic cast of hedonists in eternal summer; neither bother with plot, character arc, or any kind of deep meaning. But whereas “Spirit in the Night” flaunts its literary influences (it’s practically a scene out of *A Midsummer Night’s Dream*), “Blinded by the Light” dazzles with internal rhymes that whiz past us like stones skipping across Greasy Lake.
 
@@ -22,11 +20,11 @@ In fact, if there’s any deserved criticism to levy at “Blinded by the Light,
 
 When Bruce described the song’s origin in his *VH-1 Storytellers* episode, he bemoaned the banality of the “what came first” question before admitting that in this case, the lyrics preceded the music.
 
-[https://www.youtube.com/watch?v=OP9_lG3nslA](https://www.youtube.com/watch?v=OP9_lG3nslA)
+[Watch on Youtube: Bruce Springsteen - Blinded by the Light - Introduction (From VH1 Storytellers)](https://www.youtube.com/watch?v=OP9_lG3nslA)
 
 That’s not entirely true. It’s possible that he composed the main melody upon completing his lyrical acrobatics. However, we know the bridge arrangement pre-dates “Blinded” by at least a couple of months, because it appears in “[Henry Boy,](https://estreetshuffle.com/index.php/2022/04/08/roll-of-the-dice-henry-boy/)” recorded in June 1972 and performed live on August 10th. That was the same day Bruce submitted his completed (he thought) album to Columbia, only to be sent home by Clive Davis in search of a single.
 
-[https://www.youtube.com/watch?v=lbc5Kus_Lkw](https://www.youtube.com/watch?v=lbc5Kus_Lkw)
+[Watch on Youtube: Henry Boy](https://www.youtube.com/watch?v=lbc5Kus_Lkw)
 
 And as for the electric guitar riff that opens both the track and the album (the only time an electric guitar appears anywhere on [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)), it’s too close to the one that opens The Doobie Brothers’ second album for coincidence. “Listen to the Music” debuted in July and was climbing the Hot 100 the very week Bruce recorded “Blinded” in September. Take a listen below and compare for yourself.
 
@@ -128,7 +126,7 @@ However, Bruce makes sure to slip in at least one key takeaway for the listener,
 
 If there’s a moral to “Blinded by the Light,” here it is: excitement often comes wrapped in risk, and sometimes life is most thrilling when we’re out on a trapeze without a net. It’s the carpe diem clarion call of youth.
 
-[https://www.youtube.com/watch?v=S5Gav2Rsucg?start=79](https://www.youtube.com/watch?v=S5Gav2Rsucg?start=79)
+[Watch on Youtube: Bruce Springsteen - Blinded by the Light - The Story (From VH1 Storytellers)](https://www.youtube.com/watch?v=S5Gav2Rsucg?start=79)
 
 Not many artists score a Number One hit single with the first song on their first album, but Bruce Springsteen can claim membership in that club. It comes with an asterisk, though. Columbia issued his first-ever single in February 1973, shortly after the January release of the album. It tanked without ever charting, as did the album. (*Greetings* sold only about 23,000 copies the year of its release.)
 
@@ -146,31 +144,31 @@ Mann wanted Bruce to make a guest appearance on the track, singing the part at t
 
 As a result, Mann sings that part of the song himself, and it’s one of the very rare times Mann’s voice can actually be heard on a record.
 
-[https://www.youtube.com/watch?v=Rpq35wyDi7I](https://www.youtube.com/watch?v=Rpq35wyDi7I)
+[Watch on Youtube: Blinded by the Light ~ Manfred Mann's Earth Band with lyrics](https://www.youtube.com/watch?v=Rpq35wyDi7I)
 
 Mann’s “Blinded by the Light” may have shown the world how a little imagination and some talented players could transform Springsteen’s mostly acoustic track into an epic showstopper, but Bruce and the E Street Band had already been doing that in concert.
 
 Barely a year after its release, “Blinded” was almost unrecognizable when the E Street Band (in its brief Boom Carter era) performed it in a funky ten-minute arrangement that spotlighted the incredible David Sancious and sounded a lot more BSB than ESB.
 
-[https://www.youtube.com/watch?v=qDIQDpcoV2s](https://www.youtube.com/watch?v=qDIQDpcoV2s)
+[Watch on Youtube: Bruce Springsteen Blinded By The Light (1974 03 09) Audio](https://www.youtube.com/watch?v=qDIQDpcoV2s)
 
 More than three decades later, Bruce took “Blinded by the Light” in an even more daring direction with his short-lived Sessions Band.
 
-[https://www.youtube.com/watch?v=u9VGG2aJgh8](https://www.youtube.com/watch?v=u9VGG2aJgh8)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - Blinded By The Light - The Song (Live In Dublin)](https://www.youtube.com/watch?v=u9VGG2aJgh8)
 
 For a song as well-known as “Blinded by the Light,” it’s surprising that Springsteen has only performed it 81 times over the past fifty years, and 30 of those were in 1972-1976. After that, it completely dropped off Bruce’s set lists for seventeen years, before finally returning for occasional cameo appearances (typically in acoustic form) from the mid-nineties onward.
 
-[https://www.youtube.com/watch?v=ku_KhAX3BIA](https://www.youtube.com/watch?v=ku_KhAX3BIA)
+[Watch on Youtube: Bruce Springsteen - Blinded By The Light - The Song (From VH1 Storytellers)](https://www.youtube.com/watch?v=ku_KhAX3BIA)
 
 “Blinded by the Light” remains a rarity to this day. You’ll find it on many fans’ chase lists, and it’s a badge of honor among fans to know all the words when it turns up for one of its rare appearances (at least once on any given tour). On the last tour, a ten-year-old girl did herself (and her parents, I’m sure) proud when she held up a sign request for “Blinded” that promised, “I know all the words. Try me!”)
 
 Bruce did.
 
-[https://www.youtube.com/watch?v=QTMfT2Pr_P4](https://www.youtube.com/watch?v=QTMfT2Pr_P4)
+[Watch on Youtube: "Blinded by the light" - Bruce Springsteen & special guest"](https://www.youtube.com/watch?v=QTMfT2Pr_P4)
 
 **Bonus:** If there is any segment of E Street Nation that doesn’t care for “Blinded by the Light” it might be the American Sign Language (ASL) interpreters who deserve combat pay for trying to keep up with Springsteen’s lyrics. Watch Bruce’s 2001 Asbury Park community performance below to see a confident interpreter give it her best shot (and apparently do a commendable job).
 
-[https://videopress.com/embed/FpUdQtkf](https://videopress.com/embed/FpUdQtkf)
+[Watch Video Highlight](https://videopress.com/embed/FpUdQtkf)
 
 **Blinded by the Light  
 Recorded:** September 11, 1972  

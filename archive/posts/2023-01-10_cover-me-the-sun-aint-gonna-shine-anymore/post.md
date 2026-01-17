@@ -8,13 +8,13 @@ The Walkers’ version of “The Sun Ain’t Gonna Shine Anymore” is easily a 
 
 It’s actually a cover, though: Frankie Valli recorded the original a year earlier in a slower, statelier, but still lush arrangement that failed to chart.
 
-[https://www.youtube.com/watch?v=qHw8f_B2bVM](https://www.youtube.com/watch?v=qHw8f_B2bVM)
+[Watch on Youtube: The Sun Ain't Gonna Shine (Anymore)](https://www.youtube.com/watch?v=qHw8f_B2bVM)
 
 Valli’s original flew so under the radar that even Springsteen was unaware of it when he decided to record his own version for his 2022 vocal-centric album, *Only the Strong Survive.* Although Valli is certainly no slouch in the singing department, Bruce was captivated by Scott Walker’s rich Orbisonian baritone that reminded him of his early work.
 
 “[T]here was an operatic part of my voice that I used on *Born To Run* and a little bit on [*Darkness*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/),” he told *Rolling Stone’s* Andy Greene, “but then I put it away and just sang with more of a barman’s rock voice for the rest of my work life, for the most part. But on that song, I was able to bring it back again and really sing in that big, round tone that I love to use. ”
 
-[https://www.youtube.com/watch?v=B3ugToQv0c4](https://www.youtube.com/watch?v=B3ugToQv0c4)
+[Watch on Youtube: Bruce Springsteen - The Sun Ain't Gonna Shine Anymore (Official Audio)](https://www.youtube.com/watch?v=B3ugToQv0c4)
 
 Did he ever. Bruce delivers what is easily the standout vocal performance on an album built around them. There’s not a hint of his trademark gruff or growl. This is Bruce in full croon, in a track that sounds like it belongs more on *Western Stars* than *Only the Strong Survive.*
 

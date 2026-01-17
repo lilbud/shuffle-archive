@@ -8,7 +8,7 @@ But it does work, maybe because it barrels ahead so fast and furiously that we d
 
 Check it out and see what I mean:
 
-[https://www.youtube.com/watch?v=_sU7VAP2GU4](https://www.youtube.com/watch?v=_sU7VAP2GU4)
+[Watch on Youtube: Living On The Edge Of The World (Studio Outtake - 1979)](https://www.youtube.com/watch?v=_sU7VAP2GU4)
 
 I’m gonna give myself a hall pass on analyzing the lyrics, because a) they almost all turn up in other officially released Springsteen songs, and b) content-wise, “Living on the Edge of the World” from 1979 is essentially the same song as “[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)” from 1982’s *Nebraska* — even when the lyrics differ.
 
@@ -46,11 +46,11 @@ Others vary a bit:
 
 But even when the lyrics identical, they’re often all out of order. In fact, if you listen carefully to the November 1979 rehearsal sessions below (it’s hard to make out the vocals, but if you concentrate, you can), you’ll realize that Bruce was constantly swapping around the order of lines and verses, suggesting that “Living on the Edge of the World” is less of a narrative and more of a portrait (or perhaps the stream-of-consciousness late-night rambling we might all fall victim to in the same circumstances).
 
-[https://www.youtube.com/watch?v=hshkgRrbZIs](https://www.youtube.com/watch?v=hshkgRrbZIs)
+[Watch on Youtube: Bruce Springsteen Living On The Edge #1](https://www.youtube.com/watch?v=hshkgRrbZIs)
 
-[https://www.youtube.com/watch?v=yMVAp21uWZ8](https://www.youtube.com/watch?v=yMVAp21uWZ8)
+[Watch on Youtube: Bruce Springsteen Living On The Edge #2](https://www.youtube.com/watch?v=yMVAp21uWZ8)
 
-[https://www.youtube.com/watch?v=RSIt_ZWG4nY](https://www.youtube.com/watch?v=RSIt_ZWG4nY)
+[Watch on Youtube: Bruce Springsteen Living On The Edge #3](https://www.youtube.com/watch?v=RSIt_ZWG4nY)
 
 See what I mean?
 
@@ -71,7 +71,7 @@ But even *that’s* not all–check out this 1981 home demo of “Living on the 
 
 Once you get past the “Nebraskafication” of the song, pay careful attention to the last verse…
 
-[https://www.youtube.com/watch?v=jF4Ju9wu7EI](https://www.youtube.com/watch?v=jF4Ju9wu7EI)
+[Watch on Youtube: Bruce Springsteen - Open All Night (early version)](https://www.youtube.com/watch?v=jF4Ju9wu7EI)
 
 *Mister, can you tell me what happened to the seeds*  
 *What happened to the seeds I’ve sown*  
@@ -86,7 +86,7 @@ The bootleg rehearsals above had been circulating for a while with unclear vocal
 
 But “Living on the Edge of the World” has only been performed once*–when Bruce opened with it(!) at MetLife Stadium on the Wrecking Ball Tour. That was a true one-off, head-turning moment (it even throws Bruce and the band toward the end), and you can watch it for yourself below:
 
-[https://www.youtube.com/watch?v=fwmwfjZdrKA](https://www.youtube.com/watch?v=fwmwfjZdrKA)
+[Watch on Youtube: Bruce Springsteen - Living on the Edge of the World - Metlife Stadium - 9-21-12](https://www.youtube.com/watch?v=fwmwfjZdrKA)
 
 *Technically, Bruce has only performed “Living on the Edge” that one time in 2012… at least that’s the only time he’s played it in full with its own melody.
 
@@ -94,7 +94,7 @@ But here’s a bonus: check out this genuine one-off historical curiosity. It’
 
 Listen carefully to the performance, especially around the 3:40 mark, and you’ll see the Bruce clearly hadn’t forgotten about his “lost” song.
 
-[https://www.youtube.com/watch?v=4HUThNRDG0E](https://www.youtube.com/watch?v=4HUThNRDG0E)
+[Watch on Youtube: Bruce Springsteen - "Ramrod/Living on the Edge of the World" - NYC, 1980-11-28](https://www.youtube.com/watch?v=4HUThNRDG0E)
 
 **Living on the Edge of the** World  
 **Recorded:** December 7, 1979  
@@ -102,4 +102,4 @@ Listen carefully to the performance, especially around the 3:40 mark, and you’
 **First performed:** September 21, 2012  
 **Last performed:** September 21, 2012
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

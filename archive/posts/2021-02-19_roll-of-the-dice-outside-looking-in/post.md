@@ -6,11 +6,11 @@ Bruce had already featured the Spector-esque “Born to Run” and the Bo Diddle
 
 Releasing “Outside Looking In” on his follow-up almost certainly would have invited a Buddy Holly comparison. When it comes to wearing one’s influence on one’s sleeve, “Outside Looking In” is the equivalent of a “Peggy Sue” tattoo.
 
-[https://www.youtube.com/watch?v=Ev4XO_RCAag](https://www.youtube.com/watch?v=Ev4XO_RCAag)
+[Watch on Youtube: Outside Looking In](https://www.youtube.com/watch?v=Ev4XO_RCAag)
 
 It’s more than just Max Weinberg’s rumbling percussion; even the chord progression of Bruce’s 1977 [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) outtake is modeled after Buddy Holly’s 1957 classic. It’s not much of a stretch to argue that “Outside Looking In” is basically built on Peggy Sue’s chassis.
 
-[https://www.youtube.com/watch?v=OUesbTObC9A](https://www.youtube.com/watch?v=OUesbTObC9A)
+[Watch on Youtube: Buddy Holly - Peggy Sue HQ](https://www.youtube.com/watch?v=OUesbTObC9A)
 
 The irony of “Outside Looking In,” however, is that content-wise it’s the inverse of “Peggy Sue.”
 
@@ -55,7 +55,7 @@ The only thing that’s crystal clear is that our narrator has had enough of try
 *My life’s the same story, again and again*  
 *I’m on the outside looking in*
 
-[https://www.youtube.com/watch?v=Ye66WuPgyJo](https://www.youtube.com/watch?v=Ye66WuPgyJo)
+[Watch on Youtube: Bruce Springsteen - Outside Lookin' In](https://www.youtube.com/watch?v=Ye66WuPgyJo)
 
 “Outside Looking In” is a clever twist on a rock and roll classic, but it’s one that many listeners wouldn’t recognize beneath its familiar veneer.
 

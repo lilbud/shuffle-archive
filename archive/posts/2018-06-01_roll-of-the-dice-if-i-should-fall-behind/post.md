@@ -8,7 +8,7 @@ Bruce wrote “If I Should Fall Behind” as a wedding song, not just in its lyr
 
 Except for Gary Mallaber’s drums, Bruce plays every instrument on the track. Even if you’re intimately familiar with this song, it’s worth another close listen just to marvel at the care Bruce takes with his delicate guitar work.
 
-[https://www.youtube.com/watch?v=qKOjKKj_TPo](https://www.youtube.com/watch?v=qKOjKKj_TPo)
+[Watch on Youtube: If I Should Fall Behind](https://www.youtube.com/watch?v=qKOjKKj_TPo)
 
 What makes this song so enduringly endearing to fans is its recognition that (in the words of another great Springsteen song) it’s easy for two people to lose each other in this tunnel of love.
 
@@ -33,9 +33,9 @@ The twilight in the song represents years advancing, and as we go through life t
 *So let’s make our steps clear that the other may see*  
 *And I’ll wait for you, and if I should fall behind wait for me*
 
-The narrator of this song–and although I always to separate the writer from the character, it’s almost impossible to do so in this case–doesn’t try to promise otherwise. In fact, he pretty much predicts the bumps in the road ahead. He knows they’re coming, in fact, because he’s already done some walking down his that road alone: Bruce has revealed that the narrator “If I Should Fall Behind” may be the same man who sang “[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/).”
+The narrator of this song–and although I always to separate the writer from the character, it’s almost impossible to do so in this case–doesn’t try to promise otherwise. In fact, he pretty much predicts the bumps in the road ahead. He knows they’re coming, in fact, because he’s already done some walking down his that road alone: Bruce has revealed that the narrator “If I Should Fall Behind” may be the same man who sang “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/).”
 
-[https://videopress.com/embed/3NLub5G0](https://videopress.com/embed/3NLub5G0)
+[Watch Video Highlight](https://videopress.com/embed/3NLub5G0)
 
 But he promises that when he realizes that they’ve drifted apart, he’ll stop and wait. And he asks his love to do the same for him.
 
@@ -59,27 +59,27 @@ And so when Bruce constructed the story arc for the tour setlist, he immediately
 
 To ensure that the message wasn’t missed, Bruce re-arranged the song to showcase the band members individually. He kept the instrumentation spare (except for Clarence’s sax solo, which says as much as any lyrics could), gave the song room to breathe, and capped it off with a closing line in gorgeous full-band harmony. The result is (IMHO) the definitive arrangement of the song.
 
-[https://www.youtube.com/watch?v=RmUG1ffgKFw](https://www.youtube.com/watch?v=RmUG1ffgKFw)
+[Watch on Youtube: Bruce Springsteen - If I Should Fall Behind (Official HD Video)](https://www.youtube.com/watch?v=RmUG1ffgKFw)
 
 But Bruce would still tinker with the song over the years, usually in small ways, but sometimes dramatically. Here’s a light doo-wop version from 1996:
 
-[https://www.youtube.com/watch?v=cTl5lebrDtk](https://www.youtube.com/watch?v=cTl5lebrDtk)
+[Watch on Youtube: Bruce Springsteen - If I Should Fall Behind (solo acoustic 1996)](https://www.youtube.com/watch?v=cTl5lebrDtk)
 
 …a solo piano version from 2012…
 
-[https://www.youtube.com/watch?v=YdpDP4dO9BI](https://www.youtube.com/watch?v=YdpDP4dO9BI)
+[Watch on Youtube: Bruce Springsteen - IF I SHOULD FALL BEHIND (solo piano) 2012 - live](https://www.youtube.com/watch?v=YdpDP4dO9BI)
 
 …and here it is as a waltz, from the 2006 Seeger Sessions Tour:
 
-[https://www.youtube.com/watch?v=FYlZcFuAXmI](https://www.youtube.com/watch?v=FYlZcFuAXmI)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - If I Should Fall Behind (Live In Dublin)](https://www.youtube.com/watch?v=FYlZcFuAXmI)
 
 And a gorgeous, almost falsetto-range solo version from 2012 (this one’s a personal favorite):
 
-[https://www.youtube.com/watch?v=JgxuffUYMSw](https://www.youtube.com/watch?v=JgxuffUYMSw)
+[Watch on Youtube: If I Fall Behind, Bruce Springsteen, Portland, Oregon (11/28/2012)](https://www.youtube.com/watch?v=JgxuffUYMSw)
 
 …and finally, a pro-shot duet with Patti from the 2013 “Stand Up for Heroes” benefit that explores and reinforces the bond between a community and its defenders.
 
-[https://www.youtube.com/watch?v=Yz9Rc2l9sGI](https://www.youtube.com/watch?v=Yz9Rc2l9sGI)
+[Watch on Youtube: If I Should Fall Behind - Bruce Springsteen and Patti Scialfa (live at Stand Up for Heroes 2013)](https://www.youtube.com/watch?v=Yz9Rc2l9sGI)
 
 It’s a pretty safe bet that “If I Should Fall Behind” will never be a stranger to Bruce’s setlist. It’s a song that grows more meaningful as relationships grow longer and stronger.
 
@@ -87,7 +87,7 @@ It’s a pretty safe bet that “If I Should Fall Behind” will never be a stra
 
 Five years after the performance above, and five months after I originally published this essay, Bruce and Patti reprised their Stand Up for Heroes duet, and it was even more sublime. It needs to be shared:
 
-[https://www.youtube.com/watch?v=JkZ7FCpeJWk](https://www.youtube.com/watch?v=JkZ7FCpeJWk)
+[Watch on Youtube: ''If I Should Fall Behind'' - Bruce Springsteen & Patti Scialfa - New York City, NY - Nov. 5th, 2018](https://www.youtube.com/watch?v=JkZ7FCpeJWk)
 
 **If I Should Fall Behind  
 Recorded:** September 1991 – January 1992  
@@ -95,4 +95,4 @@ Recorded:** September 1991 – January 1992
 **First performed:** June 8, 1991 (Beverly Hills, CA)  
 **Last performed:** November 5, 2018 (New York City, NY)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

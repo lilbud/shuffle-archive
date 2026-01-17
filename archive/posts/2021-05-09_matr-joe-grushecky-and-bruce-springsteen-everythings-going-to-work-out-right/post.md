@@ -2,7 +2,7 @@ Bruce Springsteen co-wrote four songs on Joe Grushecky’s 1998 album, *Coming H
 
 *Coming Home* leads off with one of my all-time favorite Grushecky songs. “Everything’s Going to Be All Right” is a warm, optimistic rocker that sets the tone for an album rooted in family and the ties that bind.
 
-[https://www.youtube.com/watch?v=om6WqPrOTUA](https://www.youtube.com/watch?v=om6WqPrOTUA)
+[Watch on Youtube: Everything's Going To Work Out Right](https://www.youtube.com/watch?v=om6WqPrOTUA)
 
 It’s also more than a little unjustly ironic, because it’s Joe’s first track following the artistic success but commercial failure of *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/).* One can’t help but reflect that everything *didn’t* work out right, which makes the opening verse and chorus by this teacher-by-day/rocker-by-night all the more meaningful:
 
@@ -17,11 +17,11 @@ It’s also more than a little unjustly ironic, because it’s Joe’s first tra
 
 “Everything’s Going to Work Out Right” is a song that’s rooted in the personal but resonates universally. There are times when we all need a song like that, especially during a global pandemic–which is why Joe broke it out last summer for his contribution to Feeding America’s Rock for Relief benefit.
 
-[https://www.youtube.com/watch?v=M6sFMtDO6iM](https://www.youtube.com/watch?v=M6sFMtDO6iM)
+[Watch on Youtube: Rock For Relief - Joe Grushecky and The Houserockers - "Everything's Gonna Work Out Right"](https://www.youtube.com/watch?v=M6sFMtDO6iM)
 
 Bruce may not have contributed to “Everything’s Going to Work Out Right,” but he did perform it with Joe and The Houserockers–twice, in fact, on two very appropriate occasions. The first time was at the very first Light of Day benefit in November 2000; the second was at the Flood Aid benefit show that Joe organized four years later to help the victims of Hurricane Ivan. The latter performance was captured on video, a highlight of a great night.
 
-[https://videopress.com/embed/C9lOj0xX](https://videopress.com/embed/C9lOj0xX)
+[Watch Video Highlight](https://videopress.com/embed/C9lOj0xX)
 
 It’s nice to see that Joe keeps this one in rotation, especially when circumstances call for it.
 
@@ -32,5 +32,3 @@ Maybe it’s the teacher in him.
 **Everything’s Going to Work Out Right  
 First performed:** November 3, 2000 (Asbury Park, NJ)  
 **Last performed:** December 2, 2004 (Pittsburgh, PA)
-
- 

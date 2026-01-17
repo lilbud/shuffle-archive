@@ -20,15 +20,15 @@ But Robbin brought more than just his vocal talents to the band–he also brough
 
 Steel Mill’s version of “Train Ride” was a far cry from Mercy Flight’s. Robbin’s new band was a *rock* band, not a rock-and-roll band; Steel Mill’s version of “Train Ride” is a fourteen-minute hard-rocking guitar jam that would be unrecognizable if not for its lyrics.
 
-[https://www.youtube.com/watch?v=uZV-rKsHjEg](https://www.youtube.com/watch?v=uZV-rKsHjEg)
+[Watch on Youtube: Bruce Springsteen and Steel Mill: Train Ride 1970 11 27, Sunshine In, Asbury Park, NJ](https://www.youtube.com/watch?v=uZV-rKsHjEg)
 
 That’s Robbin on lead vocals (it’s his song, after all), but Bruce is clearly present on guitar and backing vocals. Steel Mill continued to cover (if we can use that term when the song’s author is actually in the band) “Train Ride” through their very last shows in early 1971.
 
 When Steel Mill disbanded, Bruce formed The Bruce Springsteen Band before landing a recording contract with Columbia Records the following year. Robbin landed his own record deal a few years later and had some modest success both under his own name and with his eponymous band. In 1982, he finally released his 1969 composition under his own name.
 
-[https://www.youtube.com/watch?v=jAUWgythA9I](https://www.youtube.com/watch?v=jAUWgythA9I)
+[Watch on Youtube: Trainride](https://www.youtube.com/watch?v=jAUWgythA9I)
 
-[https://www.youtube.com/watch?v=P1kRXUzgf-Q](https://www.youtube.com/watch?v=P1kRXUzgf-Q)
+[Watch on Youtube: Robbin Thompson Band - "Train Ride" (1981)](https://www.youtube.com/watch?v=P1kRXUzgf-Q)
 
 Robbin and Bruce made a few appearances together over the decades that followed, as recently as the Magic Tour. Sadly, he passed away in 2015, the second of Bruce’s Steel Mill bandmates lost to the great hereafter.
 
@@ -41,5 +41,3 @@ Hazy Dave is still active today, along with his group called (I kid you not) The
 **Train Ride  
 First performed:** October 17, 1970 (West Long Branch, NJ)  
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
-
- 

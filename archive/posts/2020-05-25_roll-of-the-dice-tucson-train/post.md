@@ -4,13 +4,13 @@
 
 It’s also–by far–Bruce’s warmest, most optimistic, and most life-affirming album. The entire album is imbued with the musical equivalent of autumn sunlight.
 
-*Western Stars* is a collection of late-in-life character studies, and most of the characters have lived quite well. Some continue moving forward (“[Hitch Hikin’,](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)” “[The Wayfarer](https://estreetshuffle.com/index.php/2022/01/29/roll-of-the-dice-the-wayfarer/)“), while some can’t take their eyes off the past (“[Moonlight Motel,](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)” “[Chasin’ Wild Horses](http://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/)“). Some are just content to be where they are (“[Drive Fast (The Stuntman)](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/)” and the album’s [title track](http://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)).
+*Western Stars* is a collection of late-in-life character studies, and most of the characters have lived quite well. Some continue moving forward (“[Hitch Hikin’,](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)” “[The Wayfarer](https://estreetshuffle.com/index.php/2022/01/29/roll-of-the-dice-the-wayfarer/)“), while some can’t take their eyes off the past (“[Moonlight Motel,](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)” “[Chasin’ Wild Horses](https://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/)“). Some are just content to be where they are (“[Drive Fast (The Stuntman)](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/)” and the album’s [title track](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)).
 
 But so finely and lushly realized are these songs and that only after several listens might we realize: *nothing happens in any of them*. There are no story arcs, and the characters go through no change or transformation. *Western Stars* is a collection of internal monologues–every song a first-person musing of a man on the road of *now*, occasionally at an intersection with *then*.
 
 And at the emotional center of the album, there is “Tucson Train,” the album’s purest pop song, combining a warm riff, a catchy hook, and a metronomic train gimmick to irresistible effect–and yet there’s some really sophisticated songwriting at work as well.
 
-[https://www.youtube.com/watch?v=bsH4URIWNRE](https://www.youtube.com/watch?v=bsH4URIWNRE)
+[Watch on Youtube: Bruce Springsteen - Tucson Train (Official Video)](https://www.youtube.com/watch?v=bsH4URIWNRE)
 
 “Tucson Train” is about redemption and self-determination, about forgiving oneself and making the most of second chances. More than any song on the album, “Tucson Train” is about moving forward and atoning for past mistakes by letting go of them.
 
@@ -84,15 +84,15 @@ In the year since its release, Bruce has only performed “Tucson Train” live 
 
 It’s a beautiful performance, but it doesn’t quite measure up to the album track. The strings are a bit too far forward, and the warm french horns a tad too buried. Still, it’s a performance worth owning in both video and audio format.
 
-[https://www.youtube.com/watch?v=dEB0HZeGYQ8](https://www.youtube.com/watch?v=dEB0HZeGYQ8)
+[Watch on Youtube: Bruce Springsteen - Tucson Train (Film Version - Official Audio)](https://www.youtube.com/watch?v=dEB0HZeGYQ8)
 
 **Bonus**: While the filmed *Western Stars* performance are still working their way through the paid streaming services, Bruce has published a few free excerpts on his YouTube page. Here’s an incomplete clip of his only known (to date) live performance of “Tucson Train.”
 
-[https://www.youtube.com/watch?v=Pctwuj8s2l0](https://www.youtube.com/watch?v=Pctwuj8s2l0)
+[Watch on Youtube: Bruce Springsteen - Tucson Train (From The Film Western Stars)](https://www.youtube.com/watch?v=Pctwuj8s2l0)
 
 **Tucson Train  
 Recorded:** Unknown**Released:** *Western Stars* (2019)  
 **First performed:** April 2019 (Colts Neck, NJ)  
 **Last performed:** April 2019 (Colts Neck, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,6 +1,6 @@
 It showed up for the first time in a Bruce Springsteen Band set list, but one listen to “Do It With a Feeling” is all it takes to convince that Bruce wrote it for Steel Mill.
 
-[https://videopress.com/embed/bhuDuZRb](https://videopress.com/embed/bhuDuZRb)
+[Watch Video Highlight](https://videopress.com/embed/bhuDuZRb)
 
 The Bruce Springsteen Band debuted “Do It With a Feeling” only twelve days into the band’s young life (as far as we know at least–set list details are sketchy from that era). As prolific as Bruce was at the time, though, this is clearly a Steel Mill song. (For a long time, the audio above was even believed to be a Steel Mill performance.)
 

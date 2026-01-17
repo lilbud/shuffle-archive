@@ -6,7 +6,7 @@ What’s particularly intriguing about “Rendezvous,” though, is that Bruce c
 
 From its very first outing, “Rendezvous” sounds like it was written to be performed live.
 
-[https://www.youtube.com/watch?v=erYlQgL9v4I](https://www.youtube.com/watch?v=erYlQgL9v4I)
+[Watch on Youtube: Bruce Springsteen - RENDEZVOUS 1976 (audio)](https://www.youtube.com/watch?v=erYlQgL9v4I)
 
 With Max Weinberg’s pounding intro, Danny Federici’s glockenspiel (for my money, the hallmark of the E Street Band sound even more than Clarence’s sax), a killer hook, and soaring vocals that you can’t help but sing along with, “Rendezvous” is as perfect a pop song as Bruce has ever written, almost certainly destined for hit single status.
 
@@ -14,7 +14,7 @@ So of course he couldn’t release it.
 
 By the time Bruce was allowed back in the studio, his songwriting had taken a darker turn, and his next album would reflect more mature and somber themes. Trifles like “Rendezvous” were relegated to the vault; the E Street studio recording wouldn’t be released for more than three decades after it was recorded, on Bruce’s 2010 pop-album-that-might-have been-but-never-was, *The Promise*.
 
-[https://www.youtube.com/watch?v=0ena3tWYo-g](https://www.youtube.com/watch?v=0ena3tWYo-g)
+[Watch on Youtube: Rendezvous](https://www.youtube.com/watch?v=0ena3tWYo-g)
 
 Astute listeners with the patience to listen to dozens of bootlegs know that Bruce tinkered with the lyrics to “Rendezvous” over a two-and-a-half-year period before he shelved the song.
 
@@ -64,29 +64,29 @@ Because it enjoyed so many outings between 1976 and 1978, “Rendezvous” was b
 
 When Bruce released his four-disc career compendium of outtakes in 1998, it was a given that “Rendezvous” belonged on *Tracks*. However, Bruce chose not to release the studio version, opting instead for its final (at the time, at least) live performance from Uniondale on New Years Eve, 1980.
 
-[https://www.youtube.com/watch?v=3H72_itMglQ](https://www.youtube.com/watch?v=3H72_itMglQ)
+[Watch on Youtube: Rendezvous (Live at Nassau Coliseum, Uniondale, NY - December 1980)](https://www.youtube.com/watch?v=3H72_itMglQ)
 
 To my knowledge, Bruce has never commented on why he chose the live version over the studio version, but it was clearly the right choice. I’d like to think he recognized that the studio version had inferior lyrics, but even if he didn’t–the 1980 performance is bright, tight, and just uptempo enough to elevate “Rendezvous” to a true rocker.
 
 Once it was officially released (twice–it made the cut for *18 Tracks* as well), “Rendezvous” was one of the first and most frequently performed *Tracks* tracks on the Reunion Tour. Bruce performed “Rendezvous” with the E Street Band almost two dozen times in 1999 and 2000, right up to the very last stand of the tour.
 
-[https://www.youtube.com/watch?v=F3ZjNIB3CdM](https://www.youtube.com/watch?v=F3ZjNIB3CdM)
+[Watch on Youtube: Rendezvous - Bruce Springsteen (17-06-2000 Madison Square Garden, New York)](https://www.youtube.com/watch?v=F3ZjNIB3CdM)
 
 It’s made cameo appearances in every E Street Band tour since, right up through the very last one.
 
-[https://www.youtube.com/watch?v=lGxg5Atl1Mk](https://www.youtube.com/watch?v=lGxg5Atl1Mk)
+[Watch on Youtube: Rendevouz - Bruce Springsteen - Sydney Qudos Arena - 9th February 2017](https://www.youtube.com/watch?v=lGxg5Atl1Mk)
 
 I don’t expect Bruce to break that streak. As oxymoronic as it sounds, “Rendezvous” is a dependable rarity bound to appear once more when the E Street Band takes to the road again.
 
 **Bonus #1:** Long before Bruce released his studio version of “Rendezvous,” a studio outtake recorded a few months earlier managed to escape as a bootleg. That outtake was one of the very first songs recorded during the *Darkness on the Edge of Town* sessions (it may, in fact, hail from the very first day), and you can hear it below. Despite some early audio dropouts, it’s a great recording in a much more guitar-driven arrangement than we’re used to hearing.
 
-[https://www.youtube.com/watch?v=sQKhsmH98E4](https://www.youtube.com/watch?v=sQKhsmH98E4)
+[Watch on Youtube: Bruce Springsteen - Rendezvous (Studio Version)](https://www.youtube.com/watch?v=sQKhsmH98E4)
 
 **Bonus #2:** Bruce knew “Rendezvous” wasn’t going to find a home on one of his albums, but he seemed determined to find some adoptive parents for it. Bruce first donated the song to Greg Kihn, who released [his cover](https://estreetshuffle.com/index.php/2018/07/17/cover-me-greg-kihn-band-rendezvous/) in 1979, followed by Gary U.S. Bonds, who covered it on his *On the Line* album in 1982.
 
 But he also tried giving “Rendezvous” to The Knack in 1978, offering the band a choice between that song and “[Don’t Look Back](https://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/).” They chose the latter, so we never got to hear what The Knack might have done with “Rendezvous.” However: someone actually recorded Bruce *teaching* The Knack how to play “Rendezvous” before the band ultimately decided to pass on it, and that recording escaped as well. It’s a fun listen and a glimpse at what an acoustic arrangement of “Rendezvous” might have sounded like.
 
-[https://videopress.com/embed/d4wU6cXH](https://videopress.com/embed/d4wU6cXH)
+[Watch Video Highlight](https://videopress.com/embed/d4wU6cXH)
 
 **Rendezvous  
 Recorded:** September 29, 1977  

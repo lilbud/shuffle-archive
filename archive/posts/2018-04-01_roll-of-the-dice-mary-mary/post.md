@@ -4,7 +4,7 @@ So says the songwriter, in his release notes for his *[American Beauty](https://
 
 Apparently “Mary Mary” came pretty darn close, but it’s easy to see how this light, quiet love song would have been overpowered by the fierce rockers and deep musings on the album.
 
-[https://www.youtube.com/watch?v=VLzsyOtyA2Q](https://www.youtube.com/watch?v=VLzsyOtyA2Q)
+[Watch on Youtube: Mary Mary](https://www.youtube.com/watch?v=VLzsyOtyA2Q)
 
 Set (presumably) in Boston’s Charlestown neighborhood, “Mary Mary” is the story of a lost love.
 
@@ -32,4 +32,4 @@ Like the narrator, we’re destined to never know where Mary’s gone to, but we
 Recorded:** 2007**Released:** *American Beauty* (2014)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

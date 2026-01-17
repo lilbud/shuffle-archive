@@ -1,26 +1,14 @@
 > *The “radio man” is coming. That’s how my grandfather is known… I am simply the young protégé grandson of the “radio man.”*
 > 
-> 
-> 
 > *[My grandparents’] house was old and soon to be noticeably decrepit. One kerosene stove in the living room was* *all we had to heat the whole place.*
-> 
-> 
 > 
 > *My grandparents fell into a state of poor hygiene and care that would shock and repel me now… But I loved them and that house.*
 > 
-> 
-> 
 > *The grinding hypnotic power of this ruined place and these people would never leave me. I visit it in* *my dreams today, returning over and over, wanting to go back. It was a place where I felt an ultimate* *security, full license and a horrible unforgettable boundary-less love.*
-> 
-> 
 > 
 > *Soon… my grandfather would be dead and my grandmother would be filled with cancer.*
 > 
-> 
-> 
 > *One night at the age of three, Pam left my parents’ room and for the only time in her young life climbed into my grandmother’s bed. She slept there all night, lying beside my grandmother as she died. In the morning, my mother checked on my grandma and she was still. When I came home from school that day, my world collapsed. Tears, grief, weren’t enough. I wanted death. I needed to join her. Even as a teenager, I could not imagine a world without her.*
-> 
-> 
 > 
 > — Bruce Springsteen, *Born to Run*
 
@@ -34,7 +22,7 @@ Half therapy and half love letter to his late grandparents, “Randolph Street�
 
 Bruce’s beloved grandmother passed away on December 17, 1965. Bruce recorded “Randolph Street” more than six years later, but the love, loss, and longing are still fresh in his vocals.
 
-[https://www.youtube.com/watch?v=c8mnnlidpkA](https://www.youtube.com/watch?v=c8mnnlidpkA)
+[Watch on Youtube: Early Springsteen: Randolph Street](https://www.youtube.com/watch?v=c8mnnlidpkA)
 
 Bruce’s lyrics are uncharacteristically (for the time) straightforward, and they line up with his later recollections and autobiography neatly–so much so that they leave little room or need for analysis.
 

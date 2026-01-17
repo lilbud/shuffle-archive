@@ -12,7 +12,7 @@ It probably had nothing to do with its inspiration, a country singer named David
 
 It’s probably just happenstance that the song Coe inspired–made famous by Glenn Campbell (but originally written and recorded by Larry Weiss)–was about an obscure singer questing for stardom but just barely scraping by, just like Bruce was at the time.
 
-[https://www.youtube.com/watch?v=8kAU3B9Pi_U](https://www.youtube.com/watch?v=8kAU3B9Pi_U)
+[Watch on Youtube: Glen Campbell - Rhinestone Cowboy](https://www.youtube.com/watch?v=8kAU3B9Pi_U)
 
 It’s a *complete* coincidence that at the very moment Bruce exploded into mainstream stardom with *Born to Run* in the autumn of 1975, Campbell’s song was riding the top of the charts.
 
@@ -24,10 +24,8 @@ Nope, “Rhinestone Cowboy” was just a lovely song to end a film with.
 
 Sometimes a rhinestone is just… well, a rhinestone.
 
-[https://www.youtube.com/watch?v=NcnM3nju2uQ](https://www.youtube.com/watch?v=NcnM3nju2uQ)
+[Watch on Youtube: Bruce Springsteen - Rhinestone Cowboy (Film Version - Official Audio)](https://www.youtube.com/watch?v=NcnM3nju2uQ)
 
 **Rhinestone Cowboy  
 Released:** *Western Stars: Songs From the Film (2019)***First performed:** April 2019  
 **Last performed:** April 2019
-
- 

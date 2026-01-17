@@ -10,11 +10,11 @@ And finally, more than a decade after *that,* Bruce finally put this dark, decep
 
 Geez. You’d think the guy was embarrassed about the song or something. It’s not as if it couldn’t have fit on *Nebraska–*it’s not even two minutes long! But the most likely reason for “The Big Payback” not making it onto *Nebraska* is that it’s too close in sound to “Open All Night.” The two songs start out virtually identically, in fact. Take a listen to the A-side:
 
-[https://www.youtube.com/watch?v=TxuXBj3EjOs](https://www.youtube.com/watch?v=TxuXBj3EjOs)
+[Watch on Youtube: Open All Night](https://www.youtube.com/watch?v=TxuXBj3EjOs)
 
 …and now listen to the B-side:
 
-[https://www.youtube.com/watch?v=Aw4gWPl_YP4](https://www.youtube.com/watch?v=Aw4gWPl_YP4)
+[Watch on Youtube: The Big Payback (Single B-side - 1982)](https://www.youtube.com/watch?v=Aw4gWPl_YP4)
 
 I’d argue that “The Big Payback” is just as taut and edgy as “Open All Night” but even more fun to sing along to.
 
@@ -76,4 +76,4 @@ So maybe Bruce will someday remember about “The Big Payback” and give Bobby 
 **Released:** *The Essential Bruce Springsteen* (2003)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

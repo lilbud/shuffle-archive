@@ -2,11 +2,11 @@
 
 Bruce has covered it sixteen times over the years, unsurprisingly since he once proclaimed that “any bar band worth its salt has got to know this one.” Here’s what I think is their best take, from Tacoma in 1984.
 
-[https://videopress.com/embed/Fh9LVVK3](https://videopress.com/embed/Fh9LVVK3)
+[Watch Video Highlight](https://videopress.com/embed/Fh9LVVK3)
 
 Bonus footage: check out this high-quality video from the original artists.
 
-[https://www.youtube.com/watch?v=BcU3b_OfGrs](https://www.youtube.com/watch?v=BcU3b_OfGrs)
+[Watch on Youtube: Wooly Bully Sam Sham Pharaohs ReProCut Video JAR-ReMix HiQ Hybrid JARichardsFilm](https://www.youtube.com/watch?v=BcU3b_OfGrs)
 
 **Wooly Bully  
 First performed:** September 19, 1982 (Asbury Park, NJ)  

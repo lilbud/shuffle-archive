@@ -4,8 +4,6 @@ He’s got roots in New Jersey too, though, and he does them proud with his cove
 
 For anyone wondering right now how we begin again: We start by rising up.
 
-[https://www.youtube.com/watch?v=JWg4KrJSqZ0](https://www.youtube.com/watch?v=JWg4KrJSqZ0)
+[Watch on Youtube: Montview at Home - My City of Ruins (Bruce Springsteen cover)](https://www.youtube.com/watch?v=JWg4KrJSqZ0)
 
 Thank you, Adam and Leena. I needed that.
-
- 

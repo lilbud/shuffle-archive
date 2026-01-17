@@ -2,11 +2,11 @@ In later years, we’d call it an homage; in earlier years, we’d call it imita
 
 One of the best early examples of this is Bruce’s Steel Mill/Bruce Springsteen Band-era song, “Goin’ Back to Georgia,” one of the very first songs Bruce ever recorded in the studio.
 
-In fact, it was only his second time ever in a recording studio. [The first time](http://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/) was with his high school band, The Castiles, in his hometown of Freehold in 1966. Four years later, it was Bruce’s band Steel Mill with him at Pacific Recording Studio in San Mateo, at the invitation of local promoter Bill Graham following a couple of very successful gigs at Graham’s Filmore West club.
+In fact, it was only his second time ever in a recording studio. [The first time](https://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/) was with his high school band, The Castiles, in his hometown of Freehold in 1966. Four years later, it was Bruce’s band Steel Mill with him at Pacific Recording Studio in San Mateo, at the invitation of local promoter Bill Graham following a couple of very successful gigs at Graham’s Filmore West club.
 
 The band knocked out three songs in a single take each, and one of them was this recording of “Goin’ Back to Georgia.” Take a listen and see if you can pick out the band he had in mind when he did this one.
 
-[https://www.youtube.com/watch?v=qPmM1-NWCCg](https://www.youtube.com/watch?v=qPmM1-NWCCg)
+[Watch on Youtube: Bruce Springsteen and Steel Mill: Goin' Back to Georgia (studio version)](https://www.youtube.com/watch?v=qPmM1-NWCCg)
 
 If that doesn’t sound like an Allman Brothers song to you, then you probably haven’t listened to the Allman Brothers.
 
@@ -39,7 +39,7 @@ Bruce performed “Goin’ Back to Georgia” regularly with Steel Mill, and it 
 
 But here’s one of my favorites–from one of the very last Steel Mill concerts, on January 18, 1971 at D’Scene in South Amboy, New Jersey. By this time, Robbin Thompson had joined the band as a secondary vocalist, and in this performance–at times polished, at times very loose–Bruce and Robbin trade off on the lead vocals. As a bonus, we also get to hear a very young (21 years old) Bruce practice his early stage shtick. Enjoy.
 
-[https://www.youtube.com/watch?v=KY5oUCPdx14](https://www.youtube.com/watch?v=KY5oUCPdx14)
+[Watch on Youtube: Robbin Thompson w/Steel Mill, Going Back to Georgia,1971-01-18 - D'SCENE, SOUTH AMBOY, NJ](https://www.youtube.com/watch?v=KY5oUCPdx14)
 
 **Goin’ Back to Georgia**  
 **Recorded:** February 22, 1970  
@@ -47,4 +47,4 @@ But here’s one of my favorites–from one of the very last Steel Mill concerts
 **First performed:** February 28, 1970 (Richmond, VA) (and probably earlier, although we lack documentation)  
 **Last performed:** October 23, 1971 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

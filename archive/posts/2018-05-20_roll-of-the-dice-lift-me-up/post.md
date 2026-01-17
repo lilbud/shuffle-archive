@@ -4,7 +4,7 @@ First off: If you haven’t seen John Sayles’ brilliant film *Limbo*, go find 
 
 That said, let’s tackle “Lift Me Up” on its own.
 
-[https://www.youtube.com/watch?v=71g3Wzgev8U](https://www.youtube.com/watch?v=71g3Wzgev8U)
+[Watch on Youtube: Bruce Springsteen - Lift Me Up](https://www.youtube.com/watch?v=71g3Wzgev8U)
 
 Bruce wrote “Lift Me Up” on request from *Limbo* director John Sayles and producer Maggie Renzi, who ran into Bruce at an airport and asked if he could provide a song for the end of the film–something that was simultaneously about healing and risk.
 
@@ -30,7 +30,7 @@ The chains and rings may be metaphor, but they may also be literal–a wedding r
 *Veiled behind the morning clouds*  
 *I’ll take the fate the daylight brings*
 
-The final verse has echoes of “[Countin’ on a Miracle](http://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/),” with the narrator savoring every detail, every sensation, in case they never come again:
+The final verse has echoes of “[Countin’ on a Miracle](https://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/),” with the narrator savoring every detail, every sensation, in case they never come again:
 
 *Your skin, your hand upon my neck*  
 *This skin, your fingers on my skin*  
@@ -41,7 +41,7 @@ After a final chorus, the songs drifts leisurely into the sky, lifted by Bruce�
 
 “Lift Me Up” is too delicate for a full band concert, but Bruce did perform it once–and only once–on his 2005 solo tour. Here’s that performance, from Columbus, OH, July 31, 2005. It’s so quiet and restrained that must have taken consider effort on both Bruce’s and the audience’s part to create a bubble for the song to live in.
 
-[https://www.youtube.com/watch?v=8dJ7MLK8OeI](https://www.youtube.com/watch?v=8dJ7MLK8OeI)
+[Watch on Youtube: Bruce Springsteen- Lift Me Up (Acoustic)](https://www.youtube.com/watch?v=8dJ7MLK8OeI)
 
 For an obscure track that few mainstream fans are aware exists, “Lift Me Up” is surprisingly easy to find: in addition to the soundtrack for *Limbo*, you can find it on *The Essential Bruce Springsteen*, playing over the end credits on the 2001 release of *The Complete Video Anthology* and on the official archive release for the Columbus 2005 show.
 
@@ -53,4 +53,4 @@ Recorded:** Oct 1998 – Jan 1999
 **First performed:** July 31, 2005 (Columbus, OH)  
 **Last performed:** July 31, 2005 (Columbus, OH)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

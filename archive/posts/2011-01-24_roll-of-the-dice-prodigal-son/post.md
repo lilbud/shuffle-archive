@@ -1,18 +1,18 @@
-A couple of weeks ago, we examined “[Family Song,](http://estreetshuffle.com/index.php/2020/02/23/roll-of-the-dice-family-song/)” an original Springsteen song that Bruce wrote in the aftermath (or maybe even during) his West Coast reunion with his family in the winter of 1971-72.
+A couple of weeks ago, we examined “[Family Song,](https://estreetshuffle.com/index.php/2020/02/23/roll-of-the-dice-family-song/)” an original Springsteen song that Bruce wrote in the aftermath (or maybe even during) his West Coast reunion with his family in the winter of 1971-72.
 
 Because we now know so much about Bruce’s early life, when we listen to “Family Song” we focus primarily on its autobiographical content–it’s such an intimate song that it almost sounds like a therapy assignment.
 
 But there’s another influence at work in family song, and it’s the impression that his parents’ new home state of California made on him during his extended visit. (For many years in fact, “Family Song” was known by fans under another name–“California (You’re a Woman).”)
 
-But if Bruce seemed to romanticize California in “Family Song,” that doesn’t mean he was blind to its seedier side. He wrote another song around this time called “[Hollywood Kids](http://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)” that painted a seamy street scene as seen through the eyes of an alienated musician.
+But if Bruce seemed to romanticize California in “Family Song,” that doesn’t mean he was blind to its seedier side. He wrote another song around this time called “[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)” that painted a seamy street scene as seen through the eyes of an alienated musician.
 
 And then there’s “Prodigal Son.”
 
-[https://www.youtube.com/watch?v=6FmfhJl-o3I](https://www.youtube.com/watch?v=6FmfhJl-o3I)
+[Watch on Youtube: BRUCE SPRINGSTEEN - prodigal son](https://www.youtube.com/watch?v=6FmfhJl-o3I)
 
 Presumably, Bruce wrote “Prodigal Son” around the same time as “Family Song” and “Hollywood Kids,” because he recorded them all around the same time in early 1972, after he returned home from San Mateo. We can think of them as Bruce’s early California trilogy, because they were each clearly infused with if not inspired by the vivid impressions that California must have made on a New Jersey kid spending his first extended period of time out of state.
 
-And if “Family Song” paved the way for more revealing autobiographical songs down the road like “[Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” or “[The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/),” we can look at “Prodigal Son” as one of Bruce’s earliest “saga songs” that paved the way for “[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” just a couple of months later.
+And if “Family Song” paved the way for more revealing autobiographical songs down the road like “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” or “[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/),” we can look at “Prodigal Son” as one of Bruce’s earliest “saga songs” that paved the way for “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” just a couple of months later.
 
 It’s clear from the outset that Bruce is writing about California, but we should note the subtlety and poetry he employs even at the tender age of 22. He never name checks the state even once, but the locale is unmistakable:
 
@@ -57,7 +57,7 @@ As the song continues, Bruce zooms the camera in his mind’s eye in on the city
 *And you’re starting to think about writing a book*  
 *But now you won’t pledge allegiance to anything*
 
-Strangely enough, there actually was someone out there who had lost the use of his legs thanks to the U.S. defense department and who was starting to think about writing a book. Five years down the road, Bruce would read that book and meet the author; ten years down the road that book would inspire [one of Bruce’s best-known songs](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/).
+Strangely enough, there actually was someone out there who had lost the use of his legs thanks to the U.S. defense department and who was starting to think about writing a book. Five years down the road, Bruce would read that book and meet the author; ten years down the road that book would inspire [one of Bruce’s best-known songs](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/).
 
 Bruce continues, and the song gets increasingly and vividly adult-themed:
 

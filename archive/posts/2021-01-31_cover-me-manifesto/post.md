@@ -4,7 +4,7 @@ By all accounts, it was a joyous and raucous (if standard) main set, but when Br
 
 Reading from a carefully prepared script in Spanish, Bruce recalled the last time he was in the neighborhood, on the Human Rights Now! Tour in 1988.
 
-[https://videopress.com/embed/bxa38TBl](https://videopress.com/embed/bxa38TBl)
+[Watch Video Highlight](https://videopress.com/embed/bxa38TBl)
 
 Here’s the English translation of Bruce’s words:
 
@@ -22,13 +22,13 @@ One of the most prominent folk singers on the New Song scene was Victor Jara, a 
 
 Jara was immensely popular not just in Chile but in other countries as well, even in the American folk music scene. An early supporter of Allende, Jara played free concerts, volunteered as an organizer, and wrote the theme song for Allende’s 1970 presidential campaign, *Venceremos*.
 
-[https://www.youtube.com/watch?v=LY8Won9BszI](https://www.youtube.com/watch?v=LY8Won9BszI)
+[Watch on Youtube: Victor Jara - Venceremos](https://www.youtube.com/watch?v=LY8Won9BszI)
 
 Not all Chileans looked favorably on the Allende administration, however. Over the course of Allende’s three years in office, racial tensions increased between wealthy white citizens and the poor indigenous descendants, inflation rose and wages dropped, and a strong resistance formed in the national congress. With secret support for the resistance from the U.S. government, conditions for a coup ripened.
 
 The very last song Jara wrote before the coup was “Manifesto,” released only posthumously.
 
-[https://www.youtube.com/watch?v=uj-3mpjDC8M](https://www.youtube.com/watch?v=uj-3mpjDC8M)
+[Watch on Youtube: Victor Jara - Manifiesto (audio oficial)](https://www.youtube.com/watch?v=uj-3mpjDC8M)
 
 “Manifesto” is a song about what it means to be a politically outspoken musician. Jara’s lyrics, translated below, have resonated with artists ever since.
 
@@ -84,7 +84,7 @@ In the many years since his death, countless artists have paid tribute to Jara a
 
 On September 12, 2013, it was Bruce’s turn. Forty years to the day of Jara’s capture and detainment, Bruce introduced his encores with a moving rendition of Jara’s “Manifesto,” performed only with Nils and Curt Ramm as accompaniment.
 
-[https://videopress.com/embed/ydXD0fBP](https://videopress.com/embed/ydXD0fBP)
+[Watch Video Highlight](https://videopress.com/embed/ydXD0fBP)
 
 The crowd roared in recognition and appreciation and then listened raptly and respectfully while Bruce, Nils, and Curt kept Jara’s legacy alive.
 
@@ -95,5 +95,3 @@ He couldn’t have picked a more perfect segue.
 **Manifesto  
 First performed:** September 12, 2013 (Santiago, Chile)  
 **Last performed:** September 12, 2013 (Santiago, Chile)
-
- 

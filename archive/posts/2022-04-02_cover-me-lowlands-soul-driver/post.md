@@ -4,7 +4,7 @@ Let’s continue our spotlight series on covers of lesser-known Springsteen song
 
 That didn’t stop Italian roots/rock band Lowlands from covering it, though. Early in their decade-long career, they contributed a terrific version of it for the Italian tribute album *For You 2.* 
 
-[https://www.youtube.com/watch?v=-KbayqhTOK4](https://www.youtube.com/watch?v=-KbayqhTOK4)
+[Watch on Youtube: Soul Driver (Remastered) (feat. Chris Cacavas)](https://www.youtube.com/watch?v=-KbayqhTOK4)
 
 Lowlands’s version of “Soul Driver” is considerably moodier and broodier than Bruce’s eccentric original, thanks to a folk-tinged arrangement that lends the song a timeless feel. (The original is one of the most dated-sounding songs in Bruce’s catalog.)
 

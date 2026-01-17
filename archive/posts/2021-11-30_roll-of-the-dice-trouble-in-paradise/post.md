@@ -2,7 +2,7 @@ Bruce Springsteen released “[Brilliant Disguise](https://estreetshuffle.com/in
 
 Because “Trouble in Paradise” is most definitely the period at the end of his earlier song’s sentence.
 
-[https://www.youtube.com/watch?v=iaasO-GTR24](https://www.youtube.com/watch?v=iaasO-GTR24)
+[Watch on Youtube: Trouble In Paradise (Studio Outtake - 1989)](https://www.youtube.com/watch?v=iaasO-GTR24)
 
 “Trouble in Paradise” began its life as a Don Henley song. Or rather, as a Roy Bittan song, who wrote the music with Henley in mind, according to Brian Hiatt in *Stories Behind the Songs*. It sounds that way, too–this is a track that bears little to no musical resemblance to any other song in Bruce’s catalog. Like many of the songs on *Human Touch*, “Trouble in Paradise” is synth-forward, but with sparer instrumentation, a more understated production and a late-eighties soft rock feel.
 

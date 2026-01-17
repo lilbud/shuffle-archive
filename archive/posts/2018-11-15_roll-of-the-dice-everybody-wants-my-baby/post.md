@@ -4,11 +4,11 @@ And then there are the genuine lost gems, songs that were far enough along that 
 
 Case in point: “Everybody Wants My Baby.”
 
-[https://www.youtube.com/watch?v=4AzrDM6NnnQ](https://www.youtube.com/watch?v=4AzrDM6NnnQ)
+[Watch on Youtube: Bruce Springsteen Everybody Wants my Baby](https://www.youtube.com/watch?v=4AzrDM6NnnQ)
 
 Lyrically, this is not new ground for Bruce: The out-of-her-league guy paired with the ain’t-a-beauty-but-hey-she’s-alright girl is kind of his stock in trade.
 
-And in fact, from the second verse forward, the lyrics are substantively very similar to “[I Wanna Be With You](http://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/),” written and recorded around the same time:
+And in fact, from the second verse forward, the lyrics are substantively very similar to “[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/),” written and recorded around the same time:
 
 *Everybody, everybody starts talking*  
 *Late at night my baby goes out walking*  
@@ -56,7 +56,7 @@ But then the song bends into a curve:
 
 Yeah, he’s hooked, that’s for sure–but he’s also starting to show signs of paranoia. Perhaps everybody *does* want his baby, and his baby seems to be encouraging it–at least as seen through his lens. The narrator doesn’t know what he’s going to do about it, and because Bruce never developed “Everybody Wants My Baby” into a finished song, we never find out either.
 
-Bruce may have abandoned the song, but he didn’t abandon its themes: He would contemporaneously explore devotion to the girl next door in “I Wanna Be With You,” and many years later he would revisit the consequence of fishing out of one’s league in “[With Every Wish.](http://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/)”
+Bruce may have abandoned the song, but he didn’t abandon its themes: He would contemporaneously explore devotion to the girl next door in “I Wanna Be With You,” and many years later he would revisit the consequence of fishing out of one’s league in “[With Every Wish.](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/)”
 
 “Everybody Wants My Baby,” however, remains an unfinished work.
 
@@ -64,4 +64,4 @@ Bruce may have abandoned the song, but he didn’t abandon its themes: He would 
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

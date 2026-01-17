@@ -2,19 +2,19 @@ You wouldn’t think you could draw a straight line from Bruce Springsteen throu
 
 It’s well-known that Weinberg and Bittan are all over Meat Loaf’s immortal 1977 *Bat Out of Hell* album.
 
-[https://www.youtube.com/watch?v=a136H5K3OKw](https://www.youtube.com/watch?v=a136H5K3OKw)
+[Watch on Youtube: Paradise By the Dashboard Light](https://www.youtube.com/watch?v=a136H5K3OKw)
 
 It’s less-known that for years after *Bat Out of Hell,* composer/producer Jim Steinman continued to tap Max and Roy for studio sessions.
 
 That led to Max and Roy appearing on Bonnie Tyler’s “Total Eclipse of the Heart” in 1982, giving the E Streeters a claim that their Boss couldn’t match: performing on a #1 hit single.
 
-[https://www.youtube.com/watch?v=lcOxhH8N3Bo](https://www.youtube.com/watch?v=lcOxhH8N3Bo)
+[Watch on Youtube: Bonnie Tyler - Total Eclipse of the Heart (Turn Around) (Official Video)](https://www.youtube.com/watch?v=lcOxhH8N3Bo)
 
 And in 1983, six years after their first collaboration on *Bat Out of Hell*, Steinman drafted Weinberg and Bittan for yet another session–this time for a new track for Australian duo Air Supply’s upcoming *Greatest Hits* album.
 
 The track was called “Making Love Out of Nothing at All,” and like “Total Eclipse of the Heart” and every track on *Bat Out of Hell*, it was written and composed by Steinman.
 
-[https://www.youtube.com/watch?v=DN12Emz4XfY](https://www.youtube.com/watch?v=DN12Emz4XfY)
+[Watch on Youtube: Air Supply - Making Love Out Of Nothing At All (Original Version)](https://www.youtube.com/watch?v=DN12Emz4XfY)
 
 Like “Total Eclipse of the Heart” before it, “Making Love Out of Nothing at All” became a smash hit, kept from the top spot on the Billboard Top 100 by Tyler’s hit, which means that for three weeks in 1983, Steinman’s songs commanded both the #1 and #2 slots.
 
@@ -32,6 +32,6 @@ But hey, like I always say: if you’re gonna cover Bruce, do it better or do it
 
 This is different.
 
-[https://www.youtube.com/watch?v=4RrVxoFQJRs](https://www.youtube.com/watch?v=4RrVxoFQJRs)
+[Watch on Youtube: Sandy](https://www.youtube.com/watch?v=4RrVxoFQJRs)
 
 **Update 3/17/21:** Reader Joe Lewin reminded me that The Hollies’ cover of “4th of July, Asbury Park (Sandy)” (released a decade prior to Air Supply’s) featured the same lyrical surgery, so it was very likely an influence as well.

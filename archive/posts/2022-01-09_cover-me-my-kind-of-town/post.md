@@ -12,28 +12,26 @@ Stevie rejoined the band on April 29th for the European leg of the tour, which k
 
 When the band took the stage that night, Little Steven was conspicuously absent. But only for the moment, because Bruce promptly welcomed his best friend back to the stage in full Frankie the Fixer mode. And when Frankie took the mic, he channeled a different Frank altogether.
 
-[https://www.youtube.com/watch?v=qr6P2cFhWY4](https://www.youtube.com/watch?v=qr6P2cFhWY4)
+[Watch on Youtube: My kind of town - -pro shot 2014 - steve van zandt- bruce springsteen](https://www.youtube.com/watch?v=qr6P2cFhWY4)
 
 Is there any genre out of reach out of the E Street Band? With their Wrecking Ball Tour horn section, they tackled Frank Sinatra’s 1964 “My Kind of Town” single (from the movie *Robin and the 7 Hoods*) with as much suppleness as they bring to Bruce’s own catalog.
 
-[https://www.youtube.com/watch?v=don1x4DHn2A](https://www.youtube.com/watch?v=don1x4DHn2A)
+[Watch on Youtube: My Kind of Town (Frank Sinatra) | Robin and the 7 Hoods | Warner Archive](https://www.youtube.com/watch?v=don1x4DHn2A)
 
 And let’s talk about those pipes! We rarely get to hear Stevie get a vocal spotlight moment on the E Street stage, and certainly not a song-length one. He certainly made the most of it, taking to a Sinatra standard with surprising ease.
 
 There was a reason he seemed so comfortable with the song: it wasn’t the first time he’d performed it. He’d memorably performed it on an early episode of *Lilyhammer*, which is why the crowd reacted with such delight when he reprised it that night with Bruce and the band.
 
-[https://www.youtube.com/watch?v=A_-9HZuyaTs](https://www.youtube.com/watch?v=A_-9HZuyaTs)
+[Watch on Youtube: Little Steven - My Kind Of Town (From "Lilyhammer") ft. The Interstellar Jazz Renegades](https://www.youtube.com/watch?v=A_-9HZuyaTs)
 
 He’d covered it before, and he’d cover it again: When a *Lilyhammer* soundtrack album was released the following year, Little Steven’s cover of “My Kind of Town” was the album’s lead single.
 
 Stevie performed the song on the promotional tour that followed, including this great team-up with Jimmy Fallon on *The Tonight Show*.
 
-[https://videopress.com/embed/aqbx90Zx](https://videopress.com/embed/aqbx90Zx)
+[Watch Video Highlight](https://videopress.com/embed/aqbx90Zx)
 
 *Lilyhammer* wrapped production after only three acclaimed seasons (including a great Bruce cameo in the final episode), but the *original* original Netflix series is still available to stream. If you haven’t checked it out yet, now’s a great time to do so.
 
 **My Kind of Town**  
 **First performed:** April 29, 2013 (Oslo, Norway)  
 **Last performed:** April 29, 2013 (Oslo, Norway)
-
- 

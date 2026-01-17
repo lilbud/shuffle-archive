@@ -10,7 +10,7 @@ Eventually, we found out what we were working on. A&M was chosen for a few reaso
 
 January 28 was picked because it was the night of the American Music Awards and most of the artists would be in town for that.
 
-[https://www.youtube.com/watch?v=xWtEMoMNDeU](https://www.youtube.com/watch?v=xWtEMoMNDeU)
+[Watch on Youtube: Bruce Springsteen Favorite Pop Single Award-AMA 1985](https://www.youtube.com/watch?v=xWtEMoMNDeU)
 
 I arrived at work at 9:00 AM for a 9 PM session. Along with all the other assistants on staff, we began setting up. The track had been recorded the previous week, so we would be doing the vocal session only. We got envelopes with badges and charts of where people would be standing for the solos and where they would be standing for the chorus. We were told we would be recording the choruses at the end of the song first, so that most of the singers could leave when they were done. We set up microphones and headsets for the large group.
 
@@ -32,7 +32,7 @@ When he finished, I turned and thanked him. Being a huge Dylan fan, I needed to 
 
 Finally, the chorus part wrapped up around 2:00 AM. We set the mics up in a semicircle for the soloists. We did the first run through. Quincy Jones heard it and said it was great, so many personalities. There were three or four singers around each microphone. Around the first mic was Lionel Ritchie, Stevie Wonder, Paul Simon and Kenny Rogers. Paul Simon was significantly shorter than the other three and too low in front of the mic. Humberto turned to me and said, “Get a box for Paul Simon to stand on.” This was the last thing I wanted to do. I opened the door to the studio, found another assistant (a good friend of mine) and said, “Get a box for Paul Simon to stand on,” turned and went back in the booth. Reluctantly, my friend found a box. He was maybe fifteen feet away from Paul Simon when he was spotted. Paul Simon knew what the box was for and waved him off (at the 22:40 mark in the video below). He just stretched a little when he sang.
 
-[https://www.youtube.com/watch?v=zbJtDnZX8tM](https://www.youtube.com/watch?v=zbJtDnZX8tM)
+[Watch on Youtube: We Are The World THE STORY BEHIND THE SONG(日本語字幕)](https://www.youtube.com/watch?v=zbJtDnZX8tM)
 
 After we got the solos done, it was time for the vamping during the chorus. It was probably around 4:00 when Bob Dylan started his. He seemed very uncomfortable. He couldn’t get it. He and Stevie Wonder went over to the piano and worked on his part. They kept doing it over and over. Each time they did, Dylan sounded better. Finally, he did it one time and I thought to myself, “Wow! That’s Bob Dylan!”
 
@@ -44,7 +44,7 @@ Dylan finished and it was now Bruce’s turn. Dylan and Springsteen, those were 
 
 After a few more soloists, we were done. By 7:00, they were all gone. By 9:00, the mics and headsets were put away and the studio readied for the next session. The guys all got together in the A&M Studio lounge and talked about what we saw and heard during the night. Finally, 11:00 in the morning, 26 hours after I arrived at work, I went home and went to sleep.
 
-[https://www.youtube.com/watch?v=9AjkUyX0rVw](https://www.youtube.com/watch?v=9AjkUyX0rVw)
+[Watch on Youtube: U.S.A. For Africa - We Are the World](https://www.youtube.com/watch?v=9AjkUyX0rVw)
 
 What's your story?
 

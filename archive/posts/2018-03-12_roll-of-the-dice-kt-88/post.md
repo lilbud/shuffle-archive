@@ -12,4 +12,4 @@ Here’s one of the band’s final performances, from the summer of 1970.
 First performed:** September 20, 1969 (Richmond, VA)  
 **Last performed:** August 14, 1970 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

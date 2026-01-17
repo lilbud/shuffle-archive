@@ -6,15 +6,17 @@ But I don’t think “The Price You Pay” is any of those things. To my mind, 
 
 But let’s start in 1978, with a fateful motel poolside meeting. Let’s let Bruce tell the story:
 
-[https://cdn.embedly.com/widgets/media.html?src=https%3A%2F%2Fw.soundcloud.com%2Fplayer%2F%3Fvisual%3Dtrue%26url%3Dhttp%253A%252F%252Fapi.soundcloud.com%252Ftracks%252F268169474%26show_artwork%3Dtrue%26secret_token%3Ds-cJlpT&amp;url=https%3A%2F%2Fsoundcloud.com%2Faudible%2Fborn-on-the-fourth-of-july%2Fs-cJlpT&amp;image=http%3A%2F%2Fi1.sndcdn.com%2Fartworks-000167511522-b8th0v-t500x500.jpg&amp;key=205dfc3e29a54717b61d110ab0ac5a3d&amp;type=text%2Fhtml&amp;schema=soundcloud](https://cdn.embedly.com/widgets/media.html?src=https%3A%2F%2Fw.soundcloud.com%2Fplayer%2F%3Fvisual%3Dtrue%26url%3Dhttp%253A%252F%252Fapi.soundcloud.com%252Ftracks%252F268169474%26show_artwork%3Dtrue%26secret_token%3Ds-cJlpT&amp;url=https%3A%2F%2Fsoundcloud.com%2Faudible%2Fborn-on-the-fourth-of-july%2Fs-cJlpT&amp;image=http%3A%2F%2Fi1.sndcdn.com%2Fartworks-000167511522-b8th0v-t500x500.jpg&amp;key=205dfc3e29a54717b61d110ab0ac5a3d&amp;type=text%2Fhtml&amp;schema=soundcloud)
+[Watch Video](https://cdn.embedly.com/widgets/media.html?src=https%3A%2F%2Fw.soundcloud.com%2Fplayer%2F%3Fvisual%3Dtrue%26url%3Dhttp%253A%252F%252Fapi.soundcloud.com%252Ftracks%252F268169474%26show_artwork%3Dtrue%26secret_token%3Ds-cJlpT&url=https%3A%2F%2Fsoundcloud.com%2Faudible%2Fborn-on-the-fourth-of-july%2Fs-cJlpT&image=http%3A%2F%2Fi1.sndcdn.com%2Fartworks-000167511522-b8th0v-t500x500.jpg&key=205dfc3e29a54717b61d110ab0ac5a3d&type=text%2Fhtml&schema=soundcloud)
 
-Bruce’s meeting and friendship with Ron Kovic sparked Bruce’s interest in veteran’s affairs, leading in short order to a benefit concert and songs that confronted the Vietnam veteran’s experience head-on (“[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/),” “[Vietnam](http://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/),” and “[Born in the U.S.A](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/).”).
 
-But Bruce had been grappling with the Vietnam war since he was a teenager. As far back as his Steel Mill Days, we have recordings of original Springsteen compositions like “[The War is Over](http://estreetshuffle.com/index.php/2019/03/23/roll-of-the-dice-the-war-is-over/)” that keenly acknowledge and rage against the human cost of war.
 
-[https://www.youtube.com/watch?v=VEaRsvkobrk](https://www.youtube.com/watch?v=VEaRsvkobrk)
+Bruce’s meeting and friendship with Ron Kovic sparked Bruce’s interest in veteran’s affairs, leading in short order to a benefit concert and songs that confronted the Vietnam veteran’s experience head-on (“[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/),” “[Vietnam](https://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/),” and “[Born in the U.S.A](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/).”).
 
-We even have [a notebook of unrecorded handwritten lyrics](http://estreetshuffle.com/index.php/2019/01/05/roll-of-the-dice-clouds/) by an eighteen-year-old Springsteen that reveal a deep empathy for his peers serving in the war.
+But Bruce had been grappling with the Vietnam war since he was a teenager. As far back as his Steel Mill Days, we have recordings of original Springsteen compositions like “[The War is Over](https://estreetshuffle.com/index.php/2019/03/23/roll-of-the-dice-the-war-is-over/)” that keenly acknowledge and rage against the human cost of war.
+
+[Watch on Youtube: Steel Mill - The War Is Over (Live At The Matrix 1970)](https://www.youtube.com/watch?v=VEaRsvkobrk)
+
+We even have [a notebook of unrecorded handwritten lyrics](https://estreetshuffle.com/index.php/2019/01/05/roll-of-the-dice-clouds/) by an eighteen-year-old Springsteen that reveal a deep empathy for his peers serving in the war.
 
 It’s not surprising that the war weighed so heavily on Bruce’s mind: his Castiles bandmate Bart Haynes had already been killed in action mere months prior to Bruce’s 1968 notebook compositions; his local musical idol Walter Cichon went MIA just weeks before.
 
@@ -22,9 +24,9 @@ When Bruce was himself drafted in 1969, he was understandably terrified, convinc
 
 But as Bruce realized–probably not at the moment, but certainly later–there was a price to be paid for his safety: living with the knowledge that someone else went in his place.
 
-[https://videopress.com/embed/tUAdpU2d](https://videopress.com/embed/tUAdpU2d)
+[Watch Video Highlight](https://videopress.com/embed/tUAdpU2d)
 
-So it’s no wonder that Kovic’s book touched a raw nerve when Bruce read it. By the end of the Darkness Tour, Kovic and his experience were still very top of mind for Bruce–at the famed Winterland show in December 1978, Bruce dedicated “[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” to Kovic, mentioning both author and book by name.
+So it’s no wonder that Kovic’s book touched a raw nerve when Bruce read it. By the end of the Darkness Tour, Kovic and his experience were still very top of mind for Bruce–at the famed Winterland show in December 1978, Bruce dedicated “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)” to Kovic, mentioning both author and book by name.
 
 So when the tour ended and Bruce began writing songs for what would become *The River*, it’s reasonable to assume that Kovic and his fellow veterans were still very much a presence–if not overtly, than at least subconsciously.
 
@@ -32,7 +34,7 @@ Perhaps in early 1979, Bruce wasn’t ready to confront his survivor’s guilt a
 
 Here’s an early studio version of “The Price You Pay,” recorded in June 1979. It lacks the harmonies of the version that would see the light of day on *The River*, but more importantly it includes a completely different third verse as well–one that gives away the game.
 
-[https://www.youtube.com/watch?v=jkUEiMDH6yU](https://www.youtube.com/watch?v=jkUEiMDH6yU)
+[Watch on Youtube: Bruce Springsteen The Price You Pay alternate take](https://www.youtube.com/watch?v=jkUEiMDH6yU)
 
 I believe “The Price You Pay” is Bruce’s earliest attempt to come to terms with his decision to avoid serving in the war. He had a vision of his life in front of him, along with clear aspirations and ambitions–and he made a choice to pursue rather than risk his ability to achieve them.
 
@@ -89,19 +91,19 @@ Bruce may also be writing about the emotional distance and isolation he’d allo
 
 This last verse is one of the most dramatic in Bruce’s catalog, the last line voiced in both desperation and futility. And again, the imagery works whether taken literally (a memorial to fallen soldiers) or metaphorically (a reminder of the cost one doesn’t want to admit one pays, a reminder that you can never look away from).
 
-“The Price You Pay” is one of the most emotionally wrenching songs of Bruce’s River period, and it’s right at home with album-mates “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/),” “[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/),” “Stolen Car” and “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/),” all of which deal with the costs imposed by our life decisions. Clearly, “The Price You Pay” wasn’t a one-off cathartic exercise.
+“The Price You Pay” is one of the most emotionally wrenching songs of Bruce’s River period, and it’s right at home with album-mates “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/),” “[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/),” “Stolen Car” and “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/),” all of which deal with the costs imposed by our life decisions. Clearly, “The Price You Pay” wasn’t a one-off cathartic exercise.
 
 Bruce obviously viewed “The Price You Pay” as an important song as well–it was one of only seven *River* songs that were slated to be released on the album when Bruce handed it in to the record company as a single album (and then subsequently revoked the album when he decided it needed to be “bigger”).
 
 Here’s that finished version–with the same lyrics as the version above (except for the word “everlasting,” now replaced with “restless”)–finally released in 2015 on *The Ties That Bind: The River Collection*.
 
-[https://www.youtube.com/watch?v=hfe7cqtcPV8](https://www.youtube.com/watch?v=hfe7cqtcPV8)
+[Watch on Youtube: The Price You Pay](https://www.youtube.com/watch?v=hfe7cqtcPV8)
 
 Now here’s where things get strange.
 
 When Bruce pulled the album back, expanded it, and released it as a double album, the final version of *The River* still included “The Price You Pay,” but inexplicably, the third verse had been completely replaced.
 
-[https://www.youtube.com/watch?v=sAUtCPtDQ4Y](https://www.youtube.com/watch?v=sAUtCPtDQ4Y)
+[Watch on Youtube: The Price You Pay](https://www.youtube.com/watch?v=sAUtCPtDQ4Y)
 
 Instead of:
 
@@ -135,11 +137,11 @@ Perhaps he still wasn’t ready to confront his survivor’s guilt (although if 
 
 We may never know. But whatever prompted Bruce to make the switch, it didn’t take him long to have second thoughts about it. “The Price You Pay” was the second-to-last song from *The River* to receive a concert outing. Bruce finally played it in Los Angeles on Halloween night in 1980, in the beautiful acoustic arrangement below.
 
-[https://videopress.com/embed/uLkF4Ijg](https://videopress.com/embed/uLkF4Ijg)
+[Watch Video Highlight](https://videopress.com/embed/uLkF4Ijg)
 
 That first performance turned out to be the *only* performance of the album version for almost three decades. On the very next night, Bruce inexplicably (but wisely) substituted the original third verse for the album version, no doubt confusing fans who for years afterward assumed he’d written new lyrics for the occasion.
 
-[https://videopress.com/embed/9KE6s8Cy](https://videopress.com/embed/9KE6s8Cy)
+[Watch Video Highlight](https://videopress.com/embed/9KE6s8Cy)
 
 The original lyrics stayed in the song for the remainder of the River Tour.
 
@@ -163,13 +165,13 @@ I can’t answer that one, either, although I suspect there’s insight to be gl
 
 With no introduction or fanfare, Bruce opened the show with the triumphant return of “The Price You Pay.” However, observant fans couldn’t help but notice that in doing so, Bruce had reverted to the *River* album lyrics.
 
-[https://www.youtube.com/watch?v=46dEVLFvze4](https://www.youtube.com/watch?v=46dEVLFvze4)
+[Watch on Youtube: Springsteen - The Price you Pay - The Spectrum October 20, 2009](https://www.youtube.com/watch?v=46dEVLFvze4)
 
 Maybe there’s nothing to read into that. Perhaps Bruce simply decided to bring back the song, and when his crew retrieved the lyrics on the teleprompter, they were from the “official” album version.
 
 But it was notable nonetheless. Ever after (the song made a cameo on the Wrecking Ball Tour and the High Hopes Tour before becoming a regular on the 2016 River Tour), Bruce has performed the album lyrics instead of the original ones.
 
-[https://www.youtube.com/watch?v=UA1PdIpvh00](https://www.youtube.com/watch?v=UA1PdIpvh00)
+[Watch on Youtube: Bruce Springsteen - Barcelona 14-05-16 - The Price You Pay (dubbed audio)](https://www.youtube.com/watch?v=UA1PdIpvh00)
 
 Now that the reprised River Tour is behind us, it’s unclear whether we’ll ever hear Bruce play “The Price You Pay” in concert again, let alone in its original form. And given his coy reluctance to address the matter directly, it’s unlikely that we’ll ever hear him relate the reasons behind the song’s curious history.
 
@@ -181,4 +183,4 @@ But “The Price You Pay” remains one of Bruce’s most powerful, poignant, an
 **First performed:** October 31, 1980 (Los Angeles, CA)  
 **Last performed:** July 28, 2016 (Oslo, Norway)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -33,3 +33,6 @@ media.py
 
 # book test
 notes/booktest/
+
+# zip file backups
+*.zip

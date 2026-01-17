@@ -4,7 +4,7 @@ There’s darkness, there’s [Darkness](https://estreetshuffle.com/index.php/20
 
 And you’d be hard pressed to find a song in Bruce’s catalog with more *darkness* than “Something in the Night.”
 
-[https://www.youtube.com/watch?v=5q_JZGV05Rk](https://www.youtube.com/watch?v=5q_JZGV05Rk)
+[Watch on Youtube: Something in the Night](https://www.youtube.com/watch?v=5q_JZGV05Rk)
 
 That pullquote at the top comes from Bruce’s biography, and he places that moment of self-reckoning in the *Nebraska/Born in the U.S.A.* era.
 
@@ -36,7 +36,7 @@ When Bruce first debuted it on stage in the summer of 1976 (almost a year before
 
 Watch this early performance (only six days after Bruce first debuted it), and you’ll see what I mean.
 
-[https://www.youtube.com/watch?v=ioQ2eF1XbYY](https://www.youtube.com/watch?v=ioQ2eF1XbYY)
+[Watch on Youtube: Something In The Night (Red Bank, NJ 76) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=ioQ2eF1XbYY)
 
 In its early incarnations (“Something in the Night” changed *a lot* over the course of its development), the night represented promise, and Bruce’s characters were in search of its secrets. They *looked for* something in the night; they *rumbled over* something in the night; they tore into its heart.
 
@@ -53,7 +53,7 @@ What became known as the Lawsuit Tour started just eleven days later, and at the
 *Said she was born with nothing, said she was better off that way*  
 *As soon as you got something, somebody comes along and they try to take it away*
 
-[https://videopress.com/embed/qFe8KwC4](https://videopress.com/embed/qFe8KwC4)
+[Watch Video Highlight](https://videopress.com/embed/qFe8KwC4)
 
 Although Bruce would demur when asked, it requires credulity to suggest that those lines weren’t informed by Bruce’s anger at the time.
 
@@ -71,7 +71,7 @@ The 1976 leg of the tour ended shortly after that, and when it resumed in Februa
 *But the street’s a living soul, there’s nothing here in sight*  
 *Just mutations that gone wrong something in the night*
 
-[https://videopress.com/embed/6hwGAQgh](https://videopress.com/embed/6hwGAQgh)
+[Watch Video Highlight](https://videopress.com/embed/6hwGAQgh)
 
 We have a new bridge and final verse, too (although Bruce had added them in late ’76), and these would survive to the final version:
 
@@ -110,7 +110,7 @@ That take appears on the final album, and although *Darkness* bears the name of 
 
 There’s something about the darkness, the emptiness, and of course that album-perfect arrangement (down to that all-important skipped beat) that perfectly suits the song.
 
-[https://www.youtube.com/watch?v=8yYz7ST5ByY](https://www.youtube.com/watch?v=8yYz7ST5ByY)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Something in the Night (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=8yYz7ST5ByY)
 
 **Something in the Night  
 Recorded:** June 1, 1977  

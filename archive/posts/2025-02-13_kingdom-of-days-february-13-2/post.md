@@ -4,18 +4,16 @@
 
 **1971:** Bruce jams at an open mic night at The Upstage in Asbury Park.
 
-**1977:** After performing “[Tenth Avenue Freeze-Out,](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” Bruce and the E Street Band take a mid-show intermission for the first time, as the Lawsuit Tour continues its Canadian leg with a show at Toronto’s Maple Leaf Gardens.
+**1977:** After performing “[Tenth Avenue Freeze-Out,](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” Bruce and the E Street Band take a mid-show intermission for the first time, as the Lawsuit Tour continues its Canadian leg with a show at Toronto’s Maple Leaf Gardens.
 
-[https://videopress.com/embed/A8Zbtavl](https://videopress.com/embed/A8Zbtavl)
+[Watch Video Highlight](https://videopress.com/embed/A8Zbtavl)
 
-[https://www.youtube.com/watch?v=HG6s_r170oE](https://www.youtube.com/watch?v=HG6s_r170oE)
+[Watch on Youtube: Bruce Springsteen - 2-13-77 Toronto Concert](https://www.youtube.com/watch?v=HG6s_r170oE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/02/The_Toronto_Star_1977_02_14_19.jpg?w=758&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/02/The_Toronto_Star_1977_02_14_19-scaled.jpg)
 
 **1981:** Bruce and the band play Mississippi State University along the River Tour.
 
-[https://videopress.com/embed/ClPPlc19](https://videopress.com/embed/ClPPlc19)
+[Watch Video Highlight](https://videopress.com/embed/ClPPlc19)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/02/1981-02-13.jpg)
-
- 

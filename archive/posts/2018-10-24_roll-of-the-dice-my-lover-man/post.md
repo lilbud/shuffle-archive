@@ -14,11 +14,11 @@ I think the more interesting question is: what made him write about the subject 
 
 If Bruce gives us any clue at all as to his motivation for the song, it’s probably found not in the lyrics but rather the music. Take a listen:
 
-[https://www.youtube.com/watch?v=n-jzr3jSDX0](https://www.youtube.com/watch?v=n-jzr3jSDX0)
+[Watch on Youtube: My Lover Man (Studio Outtake - 1990)](https://www.youtube.com/watch?v=n-jzr3jSDX0)
 
-Sound familiar? Musically, “My Lover Man” is *darn* close to “[Brilliant Disguise.](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” They have similar percussion tracks, bass lines, and instrumentation, and I don’t think that’s accidental. Listen for yourself:
+Sound familiar? Musically, “My Lover Man” is *darn* close to “[Brilliant Disguise.](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” They have similar percussion tracks, bass lines, and instrumentation, and I don’t think that’s accidental. Listen for yourself:
 
-[https://www.youtube.com/watch?v=idnJnjV_8rg](https://www.youtube.com/watch?v=idnJnjV_8rg)
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
 We don’t know exactly when Bruce wrote “My Lover Man,” but we do know that he recorded it in late 1990, three years after the release of *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/),* which featured “Brilliant Disguise” as a centerpiece of an album about troubled relationships. That was Bruce’s last album before recording “My Lover Man,” and it doesn’t seem a stretch to wonder if those songs were still top of mind for him.
 
@@ -79,4 +79,4 @@ And who wouldn’t envy that?
 **My Lover Man****Recorded:** December 4, 1990  
 **Released:** *Tracks (1998)***Never** **performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

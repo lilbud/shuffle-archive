@@ -8,7 +8,7 @@ We can thank Father Fred Coleman for that. He was the one who saw the boys’ po
 
 One of the songs he captured for us on tape was a cover of Lee Dorsey’s funky 1965 single, “Get Out of My Life, Woman,” which peaked at #44 on the Billboard Hot 100 and #5 on the R&B chart in 1966.
 
-[https://www.youtube.com/watch?v=uxp0Kfgpft8](https://www.youtube.com/watch?v=uxp0Kfgpft8)
+[Watch on Youtube: Lee Dorsey - Get Out Of My Life Woman](https://www.youtube.com/watch?v=uxp0Kfgpft8)
 
 Although Bruce and the boys were almost certainly aware of the original, given its popularity just a year before they covered it, their arrangement was also clearly influenced by The Paul Butterfield Blues Band’s cover, released in the summer of 1966.
 
@@ -16,10 +16,8 @@ https://www.youtube.com/watch?v=Ub35rttSDYs
 
 We can hear that version inform The Castiles’ performance at their September 1967 gig at The Left Foot in Freehold. It’s more rock than funk, and more urgent than either Dorsey’s or Butterfield’s versions. Only a minute of audio circulates, but it’s enough for us to get an appreciation for the young band’s growing ability to make an established song their own.
 
-[https://videopress.com/embed/EcoWtAga](https://videopress.com/embed/EcoWtAga)
+[Watch Video Highlight](https://videopress.com/embed/EcoWtAga)
 
 **Get Out of My Life, Woman**  
 **First performed:** September 16, 1967 (Freehold, NJ)  
 **Last performed:** September 16, 1967 (Freehold, NJ)
-
- 

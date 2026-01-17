@@ -6,7 +6,7 @@ Written in late 2012 by request from President Obama, this became the unofficial
 
 And the moral for Barack Obama was: be careful what you wish for. Because when you ask Bruce Springsteen to write a campaign song for you, and he does, you kind of have to use it at that point. Which is how we wound up with this:
 
-[https://www.youtube.com/watch?v=Q1W7HEaT9kw](https://www.youtube.com/watch?v=Q1W7HEaT9kw)
+[Watch on Youtube: Bruce Springsteen sings his Obama campaign song](https://www.youtube.com/watch?v=Q1W7HEaT9kw)
 
 The song actually grew by a couple of lines over the three weeks and seven rallies where her performed it, but it wasn’t the stronger for it. Obama won anyway.
 
@@ -17,4 +17,4 @@ Somehow, I don’t think we’re going to see this one included in a box set any
 **First performed:** October 18, 2012 (Parma, OH)  
 **Last performed:** November 5, 2012 (Columbus, OH)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

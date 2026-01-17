@@ -2,7 +2,7 @@
 
 Listening the to the earliest known recording of “Jumbeliah” below–from the latter of the only two concerts Dr. Zoom and the Sonic Boom is known to have played, back in 1971–it’s easier to hear Bruce’s seventies songwriting style emerging:
 
-[https://www.youtube.com/watch?v=QbM_9G1GQg0](https://www.youtube.com/watch?v=QbM_9G1GQg0)
+[Watch on Youtube: Jumbelia / Jambalaya by Bruce Springsteen](https://www.youtube.com/watch?v=QbM_9G1GQg0)
 
 What’s particularly remarkable is how tight the lyrics are: Bruce’s early work sometimes feels like it truly was written with thesaurus and rhyming dictionary in hand (as he was fond of half-joking in later years), full of florid imagery, colorfully named characters and pinpoint geography.
 
@@ -52,12 +52,12 @@ But before I do, there’s one other lyrical coincidence I can’t let slide:
 
 What do you know… it looks like Bruce had his eighties look in mind long before *Born in the U.S.A.*
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/bandana-240x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/bandana.jpg)
 
-[https://videopress.com/embed/aurpq2vn](https://videopress.com/embed/aurpq2vn)
+[Watch Video Highlight](https://videopress.com/embed/aurpq2vn)
 
 **Jumbeliah****Never recorded  
 First performed:** May 14, 1971 (Asbury Park, NJ)  
 **Last performed:** September 1, 1971 (Long Branch, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

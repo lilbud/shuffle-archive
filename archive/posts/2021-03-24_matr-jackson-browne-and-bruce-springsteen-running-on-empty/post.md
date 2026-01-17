@@ -8,7 +8,7 @@ Such was the inspiration for one of *Rolling Stone’s* 500 Greatest Songs of Al
 
 On August 27, 1977, Jackson performed and recorded live his new and unreleased song at his show in Columbia, Maryland, and when he released it as the title track of his live album later that year, “Running on Empty” went to #11 and spent seventeen weeks on the Billboard Hot 100. It carried the album to multi-platinum status and cemented it as Browne’s best-selling album ever.
 
-[https://www.youtube.com/watch?v=IKnnh8VDULs](https://www.youtube.com/watch?v=IKnnh8VDULs)
+[Watch on Youtube: Jackson Browne - Running On Empty - OFFICIAL VIDEO MONTAGE](https://www.youtube.com/watch?v=IKnnh8VDULs)
 
 Bruce and Jackson are almost the same age–only eleven months and change separate them. They played the same venues as young working musicians, and they both released their first albums at the age of 23.
 
@@ -20,7 +20,7 @@ By the time Jackson wrote and recorded “Running on Empty,” his wife had comm
 
 Bruce first teamed up with Jackson on “Running on Empty” at the Survival Sunday benefit show in New York’s Central Park on June 12, 1982, with Bruce mostly in a supporting role.
 
-[https://www.youtube.com/watch?v=hrYx5FN2RiY](https://www.youtube.com/watch?v=hrYx5FN2RiY)
+[Watch on Youtube: Bruce Springsteen & Jackson Browne - Running On Empty](https://www.youtube.com/watch?v=hrYx5FN2RiY)
 
 They played it together twice more in the eighties, but both performances are muddy recordings and similar arrangements to their Survival Sunday debut–hardly must-listens.
 
@@ -28,12 +28,10 @@ But in 2004, Jackson opened for Bruce and the E Street Band at a single show on 
 
 Unlike their previous performances, they traded lead vocals this time, and for the first time we get to hear Bruce truly connect with “Running on Empty” as an older, wiser, veteran of the road.
 
-[https://www.youtube.com/watch?v=SnnL8wEDNJM](https://www.youtube.com/watch?v=SnnL8wEDNJM)
+[Watch on Youtube: Bruce Springsteen & Jackson Browne - Running On Empty](https://www.youtube.com/watch?v=SnnL8wEDNJM)
 
 Bruce and Jackson have performed “Running on Empty” since (the last time was exactly 25 years to the day from their very first), and they’ll likely perform it again. Like “Born to Run,” it captures the lure of the road, but “Running on Empty” also captures its toll–something with which Bruce would only later become familiar.
 
 **Running on Empty  
 First performed:** June 12, 1982 (New York City, NY)  
 **Last performed:** June 12, 2007 (Red Bank, NJ)
-
- 

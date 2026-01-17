@@ -4,8 +4,6 @@ But if you’d asked me which of Bruce’s songs I’d expect her to choose, “
 
 But cover it she did, on her 1999 album *Doffing,* in an a capella fashion that honors the original while showcasing her amazing voice.
 
-[https://www.youtube.com/watch?v=Wth09X6_QA4](https://www.youtube.com/watch?v=Wth09X6_QA4)
+[Watch on Youtube: Ain't Got You](https://www.youtube.com/watch?v=Wth09X6_QA4)
 
 It’s a cool, soulful performance of a rarely covered, under-the-radar Springsteen original. The rest of the album is pretty great too, spanning a rock spectrum from soul to folk in Watson’s own style–it’s worth checking out.
-
- 

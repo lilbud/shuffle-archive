@@ -2,7 +2,7 @@ How could something so bad come from something so good?
 
 That’s the question at the heart of “Loose End,”* one of the best Springsteen tracks to ever get left off an album.
 
-[https://www.youtube.com/watch?v=52tXpQId_gY](https://www.youtube.com/watch?v=52tXpQId_gY)
+[Watch on Youtube: Loose Ends (Studio Outtake - 1979)](https://www.youtube.com/watch?v=52tXpQId_gY)
 
 It wasn’t supposed to be that way, though. When Bruce first sent his fifth studio album to his record label, it was only a single disc entitled *The Ties That Bind*, and “Loose End” was the closing song.
 
@@ -55,15 +55,15 @@ Recorded only a few months shy of Springsteen’s 30th birthday, “Loose End”
 
 There’s so much going on in “Loose End,” in fact, that it took many attempts to get it right–and even then, Bruce released two distinct versions–one on his 1998 *Tracks* box set, the other in his *The Ties That Bind: The River Collection* box set. Take a listen to the latter below and see if you can pick out the differences. (The most obvious is the coda.)
 
-[https://www.youtube.com/watch?v=7RvmALTXl1Y](https://www.youtube.com/watch?v=7RvmALTXl1Y)
+[Watch on Youtube: Loose Ends](https://www.youtube.com/watch?v=7RvmALTXl1Y)
 
 In concert, “Loose End” has always been a rarity, played less then three dozen times to date, and never prior to the Reunion Tour in 1999. Here’s that debut performance, captured on video in Paris on June 3, 1999.
 
-[https://www.youtube.com/watch?v=NKBJOMd98Xg](https://www.youtube.com/watch?v=NKBJOMd98Xg)
+[Watch on Youtube: Bruce Springsteen - Loose Ends (Live 1999-06-03)](https://www.youtube.com/watch?v=NKBJOMd98Xg)
 
 Since then, “Loose End” has remained elusive, never missing an E Street Band Tour but never making more than a few cameo appearances per tour. With its majestic melody and powerful lyrics, “Loose End” remains on many fans’ chase list and seems likely to return to the E Street stage in 2023.
 
-[https://www.youtube.com/watch?v=riKDqDaY6RM](https://www.youtube.com/watch?v=riKDqDaY6RM)
+[Watch on Youtube: Bruce Springsteen - Loose Ends (Philadelphia, October 20, 2009)](https://www.youtube.com/watch?v=riKDqDaY6RM)
 
 **Loose End  
 Recorded:** July 18, 1979  

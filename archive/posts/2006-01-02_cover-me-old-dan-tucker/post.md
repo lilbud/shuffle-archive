@@ -12,29 +12,29 @@ On March 19, 2005, Bruce re-convened the original players from 1997 and added Li
 
 One of the songs recorded during that second Seeger Session was a rollicking cover of the traditional song, “Old Dan Tucker,” first recorded by Harry C. Browne in 1916 (although the song dates back much farther via oral tradition).
 
-[https://www.youtube.com/watch?v=sGFuqoYoiQQ](https://www.youtube.com/watch?v=sGFuqoYoiQQ)
+[Watch on Youtube: Old Dan Tucker Harry C. Browne (1916) Colombia A1999](https://www.youtube.com/watch?v=sGFuqoYoiQQ)
 
 “Old Dan Tucker” is a true folk song, its origins unknown and its variants countless. Pete Seeger notably recorded and popularized “Old Dan Tucker” in 1957, just one of many covers across the decades.
 
-[https://www.youtube.com/watch?v=Kxn6lXyRHPI](https://www.youtube.com/watch?v=Kxn6lXyRHPI)
+[Watch on Youtube: Ole Dan Tucker by Pete Seeger](https://www.youtube.com/watch?v=Kxn6lXyRHPI)
 
 If you’re a child of the 1970s like me, you probably learned “Old Dan Tucker” from the television show *Little House on the Prairie,* where it was sung often by Victor French in character as Mr. Edwards. (It should be noted that French did a pretty great Springsteen impression long before Bruce was even famous.)
 
-[https://www.youtube.com/watch?v=Jz8JctpeNwg](https://www.youtube.com/watch?v=Jz8JctpeNwg)
+[Watch on Youtube: Mr. Edwards (Victor French) - Old Dan Tucker](https://www.youtube.com/watch?v=Jz8JctpeNwg)
 
 “Old Dan Tucker” proved a natural for Bruce to cover; with its humorously surreal lyrics, “Old Dan Tucker” sounds like it might have been written by Bruce circa 1972-73.
 
-[https://www.youtube.com/watch?v=OG1ctA7FXyU](https://www.youtube.com/watch?v=OG1ctA7FXyU)
+[Watch on Youtube: Old Dan Tucker](https://www.youtube.com/watch?v=OG1ctA7FXyU)
 
 Bruce added it to the album in the lead-off spot, and it featured nightly in the opening pack throughout his 2006 tour. In fact, “Old Dan Tucker” is the first song Bruce is known to have rehearsed with the Sessions Band when they started preparing for their tour that March.
 
 When the Seeger Sessions Tour kicked off at the New Orleans Jazz & Heritage Festival the following month, “Old Dan Tucker” was front and center, providing an immediate spotlight for banjoist Greg Liszt.
 
-[https://www.youtube.com/watch?v=QI5qZylXUEQ](https://www.youtube.com/watch?v=QI5qZylXUEQ)
+[Watch on Youtube: Old Dan Tucker (Live at the New Orleans Jazz & Heritage Festival, 2006)](https://www.youtube.com/watch?v=QI5qZylXUEQ)
 
 And when Bruce wound the tour down, “Old Dan Tucker” was one of the songs captured live at Bruce’s final Dublin show in November 2006.
 
-[https://www.youtube.com/watch?v=fO0yV_HcXx4](https://www.youtube.com/watch?v=fO0yV_HcXx4)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - Old Dan Tucker (Live In Dublin)](https://www.youtube.com/watch?v=fO0yV_HcXx4)
 
 Curiously, though, while several Seeger Sessions songs have re-appeared in the years since, “Old Dan Tucker” isn’t among them. It remains an artifact of Bruce’s 2006 tour and hasn’t been heard from since.
 

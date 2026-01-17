@@ -4,7 +4,7 @@ Sometimes he’d introduce it with a story about a girl who did a body shot of t
 
 Whatever the night’s story, Bruce told it with the barest hint of discretion, a twinkle in his eye, and a disclaimer that all of the events happened “a very, very long time ago”… if they happened at all.
 
-[https://videopress.com/embed/DDiHI0Mz](https://videopress.com/embed/DDiHI0Mz)
+[Watch Video Highlight](https://videopress.com/embed/DDiHI0Mz)
 
 Our tale starts innocently enough, although our narrator’s inner voice knows better from the outset.
 

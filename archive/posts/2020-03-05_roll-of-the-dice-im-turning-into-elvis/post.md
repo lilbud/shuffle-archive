@@ -12,7 +12,7 @@ Also fun.
 
 “I’m Turning Into Elvis” unreels like a shaggy dog story, each verse its own I-can-top-that vignette. It needs no analysis, because there’s zero subtext. So just enjoy:
 
-[https://videopress.com/embed/ZEiX8nVY](https://videopress.com/embed/ZEiX8nVY)
+[Watch Video Highlight](https://videopress.com/embed/ZEiX8nVY)
 
 *I woke up in the morning, and I had on blue suede shoes*  
 *The pillow crushed my hair into a shiny black pompadour and on my arm was one blue tattoo*  
@@ -53,7 +53,7 @@ That performance was actually from Bruce’s show in Memphis in November 1996–
 
 Bruce envisioned the song as “a talking blues… You could have a competition where everyone could send in their own verses.”
 
-He took that notion to heart–over the course of the Ghost of Tom Joad Tour, he’d use that same concept (and sometimes the same melody) to write other talking blues songs like “[Sell It and They Will Come](http://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/)” and “[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/).” (Hey, a rock star/family man’s gotta do *something* to entertain themselves at night on the road.) A decade later, in fact, he was still using it for songs like [Yankees Win](http://estreetshuffle.com/index.php/2019/06/23/roll-of-the-dice-yankees-win/).”
+He took that notion to heart–over the course of the Ghost of Tom Joad Tour, he’d use that same concept (and sometimes the same melody) to write other talking blues songs like “[Sell It and They Will Come](https://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/)” and “[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/).” (Hey, a rock star/family man’s gotta do *something* to entertain themselves at night on the road.) A decade later, in fact, he was still using it for songs like [Yankees Win](https://estreetshuffle.com/index.php/2019/06/23/roll-of-the-dice-yankees-win/).”
 
 But “I’m Turning Into Elvis” was where it started. One wonders just how many other variations are scrawled through the pages of Bruce’s notebook, unheard except for the hotel guests in the room next door.
 
@@ -63,4 +63,4 @@ Never recorded**
 **First performed:** April 5, 1995 (New York City, NY)  
 **Last performed:** November 19, 1996 (Memphis, TN)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

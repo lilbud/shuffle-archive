@@ -8,11 +8,11 @@ While the group included all the core BSB players, technically they were still a
 
 The set list that day included Bruce’s only known performance of an original song called “Last Night in Texas.” It may be a bit generous to call it an original song, however, because Bruce built it on the chassis of a Sonny Boy Williamson blues single from 1963 called “One Way Out.”
 
-[https://www.youtube.com/watch?v=x2An9nyzMW4](https://www.youtube.com/watch?v=x2An9nyzMW4)
+[Watch on Youtube: SONNY BOY WILLIAMSON W/ BUDDY GUY - ONE WAY OUT - 1963](https://www.youtube.com/watch?v=x2An9nyzMW4)
 
 “One Way Out” was a comic blues tale, the dilemma of a cheating lover trying desperately to escape out the bedroom window before getting caught. Bruce lifted the music from “One Way Out” but completely rewrote the lyrics, turning it into an itinerant musician’s travelogue as he prepares to move on to the next town.
 
-[https://videopress.com/embed/rXhuhsZF](https://videopress.com/embed/rXhuhsZF)
+[Watch Video Highlight](https://videopress.com/embed/rXhuhsZF)
 
 The fifty-plus-year-old soundboard recording above is astoundingly clear, allowing us to fully appreciate the technical proficiency of the players–particularly some scorching Springsteen guitar solos (starting around the 2:30 mark) competing against David Sancious’ organ solos (starting at the four-minute mark), and an all-out jam (featuring Southside Johnny on harmonica) that breaks out a minute later.
 

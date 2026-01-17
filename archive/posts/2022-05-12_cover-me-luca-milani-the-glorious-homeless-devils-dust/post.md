@@ -6,10 +6,8 @@ Italian singer-songwriter Luca Milani saw the song’s potential as a straight-u
 
 It works spectacularly, preserving enough of the original arrangement to be instantly recognizable but adding urgency and dramatic emphasis that amplify the power of Bruce’s lyrics rather than obfuscate them. Take a look and listen for yourself:
 
-[https://www.youtube.com/watch?v=7LZVF9euwEI](https://www.youtube.com/watch?v=7LZVF9euwEI)
+[Watch on Youtube: LUCA MILANI & The Glorious Homeless - Devils & Dust (Bruce Springsteen)](https://www.youtube.com/watch?v=7LZVF9euwEI)
 
 The *Cover Me* competition for 2022 is underway, with new entries appearing by the day. If you’re interested in entering, you can find full details and rules [here](https://www.noiespringsteen.com/contest/). (But move quickly–the entry deadline is May 31st!)
 
 If this year’s crop of entries are as outstanding as last years, you can expect to be seeing features on contest entrants here throughout the summer. In the meantime, if you like what you heard here, check out Luca Milani’s original music [here](https://www.luca-milani.com/).
-
- 

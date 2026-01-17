@@ -4,7 +4,7 @@ You wouldn’t be reading this if you didn’t.
 
 If you’re a fan of rock and roll from any era, sooner or later you’ve done The Twist. *Everybody* has.
 
-[https://www.youtube.com/watch?v=im9XuJJXylw](https://www.youtube.com/watch?v=im9XuJJXylw)
+[Watch on Youtube: The Twist - Chubby Checker](https://www.youtube.com/watch?v=im9XuJJXylw)
 
 Chubby Checker’s version (it was a cover) was a monster hit–the biggest hit single ever, in fact, and the only non-Christmas song to ever reach the top of the Billboard Hot 100 a second time after its first run up the charts.
 
@@ -14,19 +14,19 @@ He was playing a show with The Sensational Nightingales, a gospel group, who had
 
 Since they couldn’t release it themselves, they shopped their song around. First they approached Little Joe and The Thrillers, who had released a very (almost suspiciously) similar sounding song called “Let’s Do The Slop” a few years earlier.
 
-[https://www.youtube.com/watch?v=TONcz9aK_fQ](https://www.youtube.com/watch?v=TONcz9aK_fQ)
+[Watch on Youtube: Let's Do The Slop](https://www.youtube.com/watch?v=TONcz9aK_fQ)
 
 Little Joe was interested, but his label balked at the sexual connotations of the title and lyrics. Ballard, however, had no such reservations. In fact, he thought the song could stand to be livened up a bit, and he knew just how to do it: he’d recorded a song called “Is Your Love for Real” in 1957, and the melody for that song was a close enough fit to graft onto the lyrics of “The Twist.”
 
-[https://www.youtube.com/watch?v=3Nt42fMckbc](https://www.youtube.com/watch?v=3Nt42fMckbc)
+[Watch on Youtube: Hank Ballard - Is Your Love for Real?](https://www.youtube.com/watch?v=3Nt42fMckbc)
 
 We can hear the similarity to “Is Your Love for Real” in Ballard’s original recording of “The Twist,” but what’s just as noticeable are the lyrics, which differ significantly from the song we know and love today.
 
-[https://www.youtube.com/watch?v=JqPt8wdvgWk](https://www.youtube.com/watch?v=JqPt8wdvgWk)
+[Watch on Youtube: Hank Ballard & The Midnighters - The Twist alternate version](https://www.youtube.com/watch?v=JqPt8wdvgWk)
 
 Presumably those were the lyrics he’d heard The Sensational Nightingales sing, but when Ballard released his own version in late 1958, he’d changed the lyrics to the more familiar ones.
 
-[https://www.youtube.com/watch?v=ROtNE-Shi2E](https://www.youtube.com/watch?v=ROtNE-Shi2E)
+[Watch on Youtube: Hank Ballard - The Twist](https://www.youtube.com/watch?v=ROtNE-Shi2E)
 
 Ballard released “The Twist” in the early days of 1959. It generated some airplay initially, peaking at #16 on the Billboard Hot R&B chart, but it wasn’t until Ballard had a subsequent hit that interest piqued in his earlier work. A year after its first run up the charts, “The Twist” peaked at #6 on the R&B chart and #28 on the Hot 100.
 
@@ -36,7 +36,7 @@ Evans was only eighteen years old when he recorded “The Twist,” and the only
 
 Clark asked Checker to record a cover of “The Twist” doing his best Hank Ballard impression, and the result was… well, immortal. Clark had Checker perform the song on television, and it became an immediate hit, rocketing all the way to #1 on the Billboard Hot 100.
 
-[https://www.youtube.com/watch?v=XmR00cErBdw](https://www.youtube.com/watch?v=XmR00cErBdw)
+[Watch on Youtube: Chubby Checker "The Twist"](https://www.youtube.com/watch?v=XmR00cErBdw)
 
 Checker’s version of “The Twist” sounded so much like Ballard’s that even Ballard was confused when he first heard it–it sounded like a new version with himself singing on it.
 
@@ -58,7 +58,7 @@ At the end of their set, Joe, Bruce, Garland, and Gary U.S. Bonds all took the s
 
 Toward the end of the song, Bonds took over. He segued the band into “Peppermint Twist,” a 1961 song by Joey Dee and The Starliters (another New Jersey band) that not only rode Checker’s coattails to the top of the Hot 100, it stomped on them, dethroning Checker from his second reign in the process.
 
-[https://www.youtube.com/watch?v=7WIvZu4dPQQ](https://www.youtube.com/watch?v=7WIvZu4dPQQ)
+[Watch on Youtube: Joey Dee & The Starliters - Peppermint Twist.](https://www.youtube.com/watch?v=7WIvZu4dPQQ)
 
 “Peppermint Twist” was only one of many Twist-themed songs spawned by Checker’s record-setting single. While Joey Dee and The Starliters were scoring a hit with “Peppermint Twist,” another local group called The Top Notes recorded their own Twist tribute.
 

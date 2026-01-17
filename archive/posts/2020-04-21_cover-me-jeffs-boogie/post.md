@@ -2,11 +2,11 @@
 
 No kidding. The B-side to The Yardbirds’ 1996 hit single “Over Under Sideways Down” is jaw-droppingly impressive enough to intimidate even the most accomplished guitar players.
 
-[https://www.youtube.com/watch?v=L4DdAs0PddQ](https://www.youtube.com/watch?v=L4DdAs0PddQ)
+[Watch on Youtube: The Yardbirds- Over, Under, Sideways, Down](https://www.youtube.com/watch?v=L4DdAs0PddQ)
 
 In 2011, Bruce and Little Steven reminisced about unsuccessfully trying to learn how to play Jeff Beck’s ultimate challenge, only to settle for faking their way through it.
 
-[https://videopress.com/embed/zRYMsFHS](https://videopress.com/embed/zRYMsFHS)
+[Watch Video Highlight](https://videopress.com/embed/zRYMsFHS)
 
 What does it sound like when you fake your way through “Jeff’s Boogie?” We’re about to find out–because not only was Bruce Springsteen brave enough to try it in public, he did it *at the age of seventeen.*
 
@@ -16,7 +16,7 @@ On the night of September 16, 1967, Bruce’s very first band played a show at T
 
 How did he do? Listen for yourself:
 
-[https://www.youtube.com/watch?v=tz-S0u5YlNg](https://www.youtube.com/watch?v=tz-S0u5YlNg)
+[Watch on Youtube: Bruce Springsteen and The Castiles: Jeff's Boogie 1967 09 16, The Left Foot Club, Freehold, NJ](https://www.youtube.com/watch?v=tz-S0u5YlNg)
 
 Maybe Jeff Beck didn’t need to sweat the competition at the moment, but for a teenager fronting a high school band, that was pretty good.
 
@@ -29,5 +29,3 @@ But thankfully we have that 1967 recording of an aspiring rock star full of spit
 **Jeff’s Boogie  
 First performed:** September 16, 1967 (Freehold, NJ)  
 **Last performed:** November 23, 1971 (Linden, NJ)
-
- 

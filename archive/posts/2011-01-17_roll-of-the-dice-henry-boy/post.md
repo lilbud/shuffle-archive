@@ -8,7 +8,7 @@ He even recorded a demo for publishing purposes, to encourage other artists to r
 
 Sure, Bruce’s “Henry Boy” lyrics were cryptic and trip-tic, but so was pretty much everything Bruce was writing during that period. The melody, though… now *there* was a hook. Take a listen:
 
-[https://www.youtube.com/watch?v=lbc5Kus_Lkw](https://www.youtube.com/watch?v=lbc5Kus_Lkw)
+[Watch on Youtube: Henry Boy](https://www.youtube.com/watch?v=lbc5Kus_Lkw)
 
 “Henry Boy” is clearly the musical ancestor of two of Bruce’s most well-known songs. He would repurpose the verse melody eight months later for “Rosalita (Come Out Tonight),” and he’d upcycle the bridge even sooner–it would appear in “Blinded by the Light” within three months.
 
@@ -16,7 +16,7 @@ Lyrically, Bruce was already in “Blinded” mode, rhyming dictionary at the re
 
 In his only known live performance–captured by Barry Rebo on video below–Bruce coyly introduced it as “a song about being new in town”… before slyly adding an “I think” under his breath.
 
-[https://www.youtube.com/watch?v=BpKsq8Y7_EY](https://www.youtube.com/watch?v=BpKsq8Y7_EY)
+[Watch on Youtube: Bruce Springsteen Henry Boy 1972](https://www.youtube.com/watch?v=BpKsq8Y7_EY)
 
 Henry may have been new in town, but there’s a bit more going on in the song than that.
 

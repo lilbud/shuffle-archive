@@ -2,19 +2,19 @@ It wasn’t his biggest hit (it wasn’t even his biggest hit that year), but it
 
 Chuck Berry recorded “Carol” on May 2, 1958, and by mid-September it had caught fire thanks to its famous guitar lick, reaching #9 on the Billboard R&B chart and #18 on the Hot 100.
 
-[https://www.youtube.com/watch?v=3MC9CRL1cX4](https://www.youtube.com/watch?v=3MC9CRL1cX4)
+[Watch on Youtube: Chuck Berry - Carol](https://www.youtube.com/watch?v=3MC9CRL1cX4)
 
 “Carol” wasn’t a hit overseas, but if it didn’t reach a big audience it at least reached an influential one. The Beatles loved the track and performed it in their *Pop Go the Beatles* performance on the BBC in 1963.
 
-[https://www.youtube.com/watch?v=IYUw-0NDicE](https://www.youtube.com/watch?v=IYUw-0NDicE)
+[Watch on Youtube: Carol (Live At The BBC For "Pop Go The Beatles" / 16th July, 1963)](https://www.youtube.com/watch?v=IYUw-0NDicE)
 
 And a year later, The Rolling Stones recorded it for their debut album (and released a live version five years after that).
 
-[https://www.youtube.com/watch?v=jwgZ8Xj1Og4](https://www.youtube.com/watch?v=jwgZ8Xj1Og4)
+[Watch on Youtube: Carol](https://www.youtube.com/watch?v=jwgZ8Xj1Og4)
 
 Berry’s stamp was all over Bruce Springsteen’s Born to Run Tour too, with “Carol” making no less than sixteen appearances during the summer and fall of 1975, including a raucous performance at The Roxy in Los Angeles on Berry’s 49th birthday.
 
-[https://www.youtube.com/watch?v=kDnTDJjMi1s](https://www.youtube.com/watch?v=kDnTDJjMi1s)
+[Watch on Youtube: Carol (Live at The Roxy, West Hollywood, CA - 10/18/1975)](https://www.youtube.com/watch?v=kDnTDJjMi1s)
 
 According to Bruce, he’d been playing “Carol” on stage in bars long before that night, since right about the time The Stones released their version. No record of him covering it that early survives, but there are certainly many surviving recordings from post-*Born to Run* bar gigs: no less than twenty known performances between 1977 and 1989, with artists like former Steel Mill bandmate Robbin Thompson….
 

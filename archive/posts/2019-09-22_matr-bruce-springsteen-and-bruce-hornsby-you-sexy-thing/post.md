@@ -1,6 +1,6 @@
 What’s more unlikely than Bruce Springsteen covering “You Sexy Thing,” the surprise 1975 B-side smash hit (it ranked #22 for the entire year) by Hot Chocolate?
 
-[https://www.youtube.com/watch?v=4DwEni2N_-A](https://www.youtube.com/watch?v=4DwEni2N_-A)
+[Watch on Youtube: Hot Chocolate - You Sexy Thing (ZDF Disco, 24.04.1976)](https://www.youtube.com/watch?v=4DwEni2N_-A)
 
 How about turning it into a steamy duet with a fellow Bruce?
 
@@ -8,7 +8,7 @@ On the evenings of December 7 and 8 during Bruce’s 2001 holiday show stand in 
 
 Take a listen to one of my favorite under-the-radar covers:
 
-[https://videopress.com/embed/pgrQg0c6](https://videopress.com/embed/pgrQg0c6)
+[Watch Video Highlight](https://videopress.com/embed/pgrQg0c6)
 
 Bruce teased fans with “You Sexy Thing” snippets more than a dozen times in the decade that followed, but these two special nights remain the only two times Bruce has ever played it in full.
 

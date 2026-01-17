@@ -14,6 +14,4 @@ I hope I have plenty of time before the dice turn up that song for me to write a
 
 Give a listen to this tender, acoustic interpretation of “Tougher Than the Rest.”
 
-[https://www.youtube.com/watch?v=B_tIeud0xPo](https://www.youtube.com/watch?v=B_tIeud0xPo)
-
- 
+[Watch on Youtube: Tougher Than the Rest](https://www.youtube.com/watch?v=B_tIeud0xPo)

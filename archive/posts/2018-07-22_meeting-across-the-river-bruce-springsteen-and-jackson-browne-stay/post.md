@@ -6,11 +6,11 @@ But the concerts were significant for another reason: the subsequent triple-albu
 
 One of the songs they performed was a cover of Maurice Williams’ “Stay,” and Jackson and Rosemary Butler joined the band for that special performance. Here’s a look at that moment. The video quality is rough, but the audio is wonderful.
 
-[https://www.youtube.com/watch?v=IbV8A6Ruqa0](https://www.youtube.com/watch?v=IbV8A6Ruqa0)
+[Watch on Youtube: Bruce Springsteen & the E Street Band with Jackson Browne - Stay (No Nukes 1979 RARE)](https://www.youtube.com/watch?v=IbV8A6Ruqa0)
 
 “Stay” was first recorded and released in 1960 by Maurice Williams and The Zodiacs. Williams wrote the song when he was only fifteen years old. The song went to number one, and has been covered extensively over the years (including by Jackson Browne). It remains the shortest song ever to reach number one.
 
-[https://www.youtube.com/watch?v=YbCV_fTyedk](https://www.youtube.com/watch?v=YbCV_fTyedk)
+[Watch on Youtube: Stay](https://www.youtube.com/watch?v=YbCV_fTyedk)
 
 **Stay**  
 **First performed:** September 21, 1979 (New York City, NY)  

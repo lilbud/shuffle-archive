@@ -18,7 +18,7 @@ When the tour ended the next day, so did Springsteen’s bully pulpit. Still see
 
 “I wrote some of [*Magic*] the minute I came off *The Rising,”* Springsteen told Joe Levy in *Rolling Stone* in 2007. “My idea was to pick up with the political and social results of what came out of the tragedy of 9/11. ‘Livin’ in the Future’ I’ve had since then. It’s about how terribly fucked up things have gotten. It’s a song about apathy, and how what you never thought could happen has happened already.”
 
-[https://www.youtube.com/watch?v=I6x06jXRD70](https://www.youtube.com/watch?v=I6x06jXRD70)
+[Watch on Youtube: Livin' In the Future](https://www.youtube.com/watch?v=I6x06jXRD70)
 
 For such a bitter song, “Livin’ in the Future” sure is bouncy. Its backing track is an amalgam of “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” and Gary U.S. Bond’s “[Out of Work](https://estreetshuffle.com/index.php/2021/04/18/rotd-matr-gary-u-s-bonds-bruce-springsteen-and-the-e-street-band-out-of-work/)” (which Springsteen wrote), and it has the strut and swagger of both. That’s intentional.
 
@@ -105,11 +105,11 @@ Maybe we don’t know what 2023 holds in store for us, but we at least know this
 
 “Livin’ in the Future” was the first song written for *Magic,* and it was the centerpiece of every show on the tour. Each night (even during his European shows), Bruce took a moment during the song’s introduction to make sure his audience understood his message.
 
-[https://www.youtube.com/watch?v=Pq4GKUP3OUE](https://www.youtube.com/watch?v=Pq4GKUP3OUE)
+[Watch on Youtube: Bruce Springsteen, Livin' in the future, Live in Stockholm](https://www.youtube.com/watch?v=Pq4GKUP3OUE)
 
 More than any other song on the album or in the set list, “Livin’ in the Future” carried Springsteen’s message for the tour: *Don’t think it can’t happen here. It already has, but it’s not too late. Wake up.*
 
-[https://www.youtube.com/watch?v=lTwYHUMbAx0](https://www.youtube.com/watch?v=lTwYHUMbAx0)
+[Watch on Youtube: Livin´ in the Future - Bruce Springsteen (22-04-2008 St Pete Times Forum, Tampa, Florida)](https://www.youtube.com/watch?v=lTwYHUMbAx0)
 
 When the tour ended, Bruce put his money where his mouth was, hitting the road with presidential candidate Barack Obama to galvanize swing state voters in the hopes of a better outcome in 2008 than in 2004.
 

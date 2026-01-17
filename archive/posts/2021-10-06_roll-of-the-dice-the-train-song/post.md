@@ -8,7 +8,7 @@ We’ve listened to two of them together before: “[He’s Guilty](https://estr
 
 Let’s take a listen to “The Train Song.”
 
-[https://videopress.com/embed/FxO6jjnA](https://videopress.com/embed/FxO6jjnA)
+[Watch Video Highlight](https://videopress.com/embed/FxO6jjnA)
 
 See what I mean? That’s one heck of a curve ball.
 
@@ -63,7 +63,7 @@ The problem’s in the execution.
 
 **Bonus:** Bruce and Steel Mill performed “The Train Song” live in concert only once that we know of, a month before they took it into the studio. Given the scarcity of set lists from that period, though, and the likelihood that they would have performed any song they recorded at least a few times, odds are there were more undocumented performances as well.
 
-[https://www.youtube.com/watch?v=BM7k_WmzfIM](https://www.youtube.com/watch?v=BM7k_WmzfIM)
+[Watch on Youtube: Steel Mill - The Train Song (Live At The Matrix 1970)](https://www.youtube.com/watch?v=BM7k_WmzfIM)
 
 **The Train Song  
 Recorded:** February 22, 1970  

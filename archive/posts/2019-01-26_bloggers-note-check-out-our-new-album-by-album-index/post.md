@@ -1,8 +1,8 @@
 I’m pleased to announce a new feature of the site–one that several of you have written me to request:
 
-We now have an [Album-by-Album Index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/) for the *Roll of the Dice* series, added to our top menu.
+We now have an [Album-by-Album Index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/) for the *Roll of the Dice* series, added to our top menu.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/albums-300x200.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/01/albums.jpg)
 
 It’s always been a challenge to keep this site constantly updated with new content every day; now that I’m 387 days in, I realize it’s also a challenge to sift through past articles.
 
@@ -13,5 +13,3 @@ Now you can! The index has all of Bruce’s original songs, album by album, with
 For now, the index only covers the *Roll of the Dice* series of essays on Bruce’s original work; as I get time, I’ll add links for other artists’ covers of Bruce’s material as well, as well as a calendar for easy *Kingdom of Days* browsing.
 
 As always, thanks for reading, commenting, following, and sharing. I hope you stick with me as I work my way through Bruce’s entire catalog of originals and covers–we’re almost 400 in, but there’s over 1,000 to go!
-
- 

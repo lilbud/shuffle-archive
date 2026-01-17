@@ -4,9 +4,9 @@ But I’m not sure whether “I’ll Work For Your Love” is truly Valentine’
 
 There’s a lot of worship going on here, but it’s not clear to me whether the narrator even knows the object of his idolatry. Give a listen:
 
-[https://www.youtube.com/watch?v=WkWluPIMviE](https://www.youtube.com/watch?v=WkWluPIMviE)
+[Watch on Youtube: I'll Work for Your Love](https://www.youtube.com/watch?v=WkWluPIMviE)
 
-Seriously, there must be almost as much religious imagery here as in “[Jesus Was an Only Son](http://estreetshuffle.com/index.php/2018/04/25/roll-of-the-dice-jesus-was-an-only-son/),” and at least there it was all literal. In “I’ll Work For Your Love,” the metaphor starts in the second line and never stops.
+Seriously, there must be almost as much religious imagery here as in “[Jesus Was an Only Son](https://estreetshuffle.com/index.php/2018/04/25/roll-of-the-dice-jesus-was-an-only-son/),” and at least there it was all literal. In “I’ll Work For Your Love,” the metaphor starts in the second line and never stops.
 
 The setting is pure Springsteen: a nameless bar where an anonymous patron fantasizes about Theresa, who is presumably the bartender, judging from the opening line:
 
@@ -44,19 +44,19 @@ But working for her love is gonna take a lot more (or a lot less) than driving a
 
 Am I a Valentine’s buzzkill? Well, let me fix that:
 
-When Bruce performs this song live, there’s no question that he delivers it as a love song–in fact, he dedicates it specifically *to* the lovers in the room almost every time he plays it. In true Springsteen fashion, the chorus of the song has more power than the verses, but Bruce seems happier to embrace that here than he does for, say, “[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)”
+When Bruce performs this song live, there’s no question that he delivers it as a love song–in fact, he dedicates it specifically *to* the lovers in the room almost every time he plays it. In true Springsteen fashion, the chorus of the song has more power than the verses, but Bruce seems happier to embrace that here than he does for, say, “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)”
 
-[https://www.youtube.com/watch?v=hFcMchbqny4](https://www.youtube.com/watch?v=hFcMchbqny4)
+[Watch on Youtube: MULTICAM-I'll work for your love-Bruce Springsteen (Stockholm 2007) BEST AUDIO.flv](https://www.youtube.com/watch?v=hFcMchbqny4)
 
 But there was one particular performance that I bore witness to that made this song resonate in a way I never expected. It came at the very end of the Working on a Dream Tour, at a show that many of us at the time feared might be the very last E Street Band show.
 
 As the final encore set of the tour began, Bruce pulled this song out by his own request. It hadn’t been played at all on the tour, and Bruce made it explicitly clear that this song was also his promise to his audience–that he would never stop working for our love.
 
-[https://www.youtube.com/watch?v=6MgLp46U4oo](https://www.youtube.com/watch?v=6MgLp46U4oo)
+[Watch on Youtube: Bruce Springsteen-I'll Work For Your Love -11/22/09 Buffalo, NY](https://www.youtube.com/watch?v=6MgLp46U4oo)
 
 He did it again at the end of the High Hopes Tour five years later, this time more tenderly:
 
-[https://www.youtube.com/watch?v=ENCL6J0hidU](https://www.youtube.com/watch?v=ENCL6J0hidU)
+[Watch on Youtube: I'll Work for your Love - Springsteen - Mohegan Sun Arena, CT - May 17, 2014](https://www.youtube.com/watch?v=ENCL6J0hidU)
 
 I was lucky enough to be at both of those shows, and ever since then, I hear this song as a love note from Bruce to his fans. It may be completely belied by the lyrics, but hey: at least I’m aware of the contradiction.
 
@@ -68,4 +68,4 @@ In music, as with all great art, we receive the way need to. So maybe it’s Val
 **First performed:** November 5, 2007 (Auburn Hill, MI)  
 **Last performed:** November 7, 2022 (New York, NY)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

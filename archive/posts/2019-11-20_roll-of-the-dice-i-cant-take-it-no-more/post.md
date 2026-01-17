@@ -2,7 +2,7 @@ For at least a few months from the autumn of 1970 through the early weeks of 197
 
 For the vast majority of us who didn’t… well, I’d venture to say that we didn’t miss out on much when it comes to “I Can’t Take It No More.”
 
-[https://www.youtube.com/watch?v=n8XC7FDCgY4](https://www.youtube.com/watch?v=n8XC7FDCgY4)
+[Watch on Youtube: Bruce Springsteen - I Can't Take It No More (AUDIO Live in New Jersey, 1971)](https://www.youtube.com/watch?v=n8XC7FDCgY4)
 
 Compared even to Bruce’s contemporaneous songwriting, “I Can’t Take It No More” lacks depth and subtlety. Like much of his early Steel Mill work, Bruce seems to have intended “I Can’t Take It No More” primarily as a guitar showcase.
 
@@ -60,4 +60,4 @@ Never recorded**
 **First performed:** October 11, 1970 (Richmond, VA)  
 **Last performed:** January 18, 1971 (South Amboy, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

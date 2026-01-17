@@ -6,6 +6,6 @@ The results are usually mixed, because the original is so deeply embedded in pop
 
 Enter Mad Hatter’s Daughter. The Hamburg duo have been performing since 2016, and Kira Isles’ smoky, emotive vocals prove perfect for their lonely, contemplative arrangement. Theirs is one of the few versions of “Dancing in the Dark” where you can really *feel* the song.
 
-[https://www.youtube.com/watch?v=KD9fnGodFhw](https://www.youtube.com/watch?v=KD9fnGodFhw)
+[Watch on Youtube: MAD Unplugged | Dancing in the Dark | Bruce Springsteen Cover | Acoustic Session](https://www.youtube.com/watch?v=KD9fnGodFhw)
 
 Mad Hatter’s Daughter may be relatively new, but they’ve already got a great portfolio of original and cover acoustic performances that’s well worth checking out. Catch their videos [here](https://www.youtube.com/channel/UCpJzQeSeYbqvkPXRoLlJ1cQ/videos?view=0&sort=dd&shelf_id=1), or visit their [website](https://madhattersdaughter.com/) for their latest music.

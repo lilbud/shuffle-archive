@@ -10,7 +10,7 @@ Bruce wrote “Southern Sun” in a period of prolific songwriting following a c
 
 Bruce performed it a least a couple of times with The Bruce Springsteen Band in early 1972, and when his new manager Mike Appel got him an audition with John Hammond at Columbia Records, “Southern Sun” was one of the songs Bruce demoed with Hammond the following day. Take a listen to that recording; you’ll hear Hammond introduce it below.
 
-[https://videopress.com/embed/7drTKC7h](https://videopress.com/embed/7drTKC7h)
+[Watch Video Highlight](https://videopress.com/embed/7drTKC7h)
 
 Although he recorded it, Hammond wasn’t particularly impressed with “Southern Sun.” That’s understandable, since it’s not a particularly impressive song.
 
@@ -49,7 +49,7 @@ How rooted in actual events was “Southern Sun”? Did Bruce really meet his De
 
 Still, Bruce took another crack at recording the song a few weeks later. This is a more confident performance, but the song itself is no stronger.
 
-[https://videopress.com/embed/HkBcTOi5](https://videopress.com/embed/HkBcTOi5)
+[Watch Video Highlight](https://videopress.com/embed/HkBcTOi5)
 
 By now, I should know not to make absolute statements–after all, “If I Was the Priest” eventually saw the light of day–but I’ll go out on a limb and predict we’re not likely to hear any official studio or live recording of “Southern Sun” any time soon.
 

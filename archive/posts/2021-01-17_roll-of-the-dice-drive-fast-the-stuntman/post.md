@@ -1,7 +1,5 @@
 > In “Drive Fast,” I had that metaphor of the stuntman (which is always a metaphor of risk) and this idea that we all have our broken pieces. What frightens and what exhilarates and inspires us are often very close together. Those feelings are the essence of what drives us to risk, in life and in love.
 > 
-> 
-> 
 > Everybody’s broken in some way–physically, emotionally, spiritually. In this life, nobody gets away unhurt. I wrote a song about a guy not just finding the fearlessness to do his job, but the fearlessness to risk being with somebody that you love. We’re always trying to find somebody whose broken pieces fit with our broken pieces, and something whole emerges. — Bruce Springsteen, *Western Stars*
 
 This is my sixth *Roll of the Dice* entry for *Western Stars*, and I’m well aware that I’ve already rated three of the previous five among Bruce’s finest songs ever.
@@ -16,7 +14,7 @@ But it’s my favorite track on the album and a contender (if not the title hold
 
 Let’s take a listen together.
 
-[https://www.youtube.com/watch?v=lyEfKM3nYXY](https://www.youtube.com/watch?v=lyEfKM3nYXY)
+[Watch on Youtube: Bruce Springsteen - Drive Fast (The Stuntman) (Official Audio)](https://www.youtube.com/watch?v=lyEfKM3nYXY)
 
 Bruce hasn’t left me much to analyze–his pull quote at the top of this essay (from his introduction to the song in the film version of *Western Stars*) pretty much says it all. But I’ll give it a shot anyway.
 
@@ -104,7 +102,7 @@ There’s something about Bruce’s face during the performance that mesmerizes�
 
 Watch for the moment when our nine-year-old hero climbs his tree. The lighting in that moment is masterful and deliberate. It recreates the character’s moment of emotional dawn, and Bruce’s eyes in that moment say far more than his voice can. It’s probably my favorite moment in the entire film.
 
-[https://www.youtube.com/watch?v=ag-U2K5tWKY](https://www.youtube.com/watch?v=ag-U2K5tWKY)
+[Watch on Youtube: Drive Fast (The Stuntman) - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=ag-U2K5tWKY)
 
 **Drive Fast (The Stuntman)  
 Recorded:** 2010-2018  

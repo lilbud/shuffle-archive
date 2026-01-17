@@ -1,6 +1,6 @@
 Sometimes the dice are kind to me.
 
-After the thesis-worthy “[Moonlight Motel](http://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)” the other day, I’m grateful for a song that isn’t about the lyrics at all.
+After the thesis-worthy “[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)” the other day, I’m grateful for a song that isn’t about the lyrics at all.
 
 “The Fever” isn’t about the lyrics, and it’s only partially about the music, which simmers and smolders for most of its seven-and-half minutes.
 
@@ -8,13 +8,13 @@ After the thesis-worthy “[Moonlight Motel](http://estreetshuffle.com/index.php
 
 “The Fever” is a song out of time, even *at* the time. A throwback to late-night R&B soul ballads, “The Fever” sounds completely unlike anything we’ve come to associate as the E Street sound. (That’s probably at least in part due to the song’s pre-E Street origins–a copy of the original lyrics dated 1971 resides at the Hard Rock Cafe in Sydney.) “The Fever” is sultry, languorous, and somehow simultaneously loose and taut. It sounds like the kind of song you’d hear in a movie soundtrack, at a smoky club or a seamy casino (like in the 2007 film, *Lucky You*.)
 
-[https://videopress.com/embed/oAEv8Epy](https://videopress.com/embed/oAEv8Epy)
+[Watch Video Highlight](https://videopress.com/embed/oAEv8Epy)
 
 “The Fever” swings. It struts. It seduces. Read any review of “The Fever” from its debut in select markets as an “official bootleg” (more on that later) to the present, and you’ll see the phrase “slow burn.” There’s no better descriptor.
 
 There’s only one right way to listen to “The Fever,” and that’s in the dark with headphones.
 
-[https://www.youtube.com/watch?v=NXPDwAYdCsg](https://www.youtube.com/watch?v=NXPDwAYdCsg)
+[Watch on Youtube: The Fever (Studio Outtake - 1973)](https://www.youtube.com/watch?v=NXPDwAYdCsg)
 
 We know we’re listening to something special before Bruce ever sings a note. Vini Lopez’s rhythmic imprecision is an immediate scene-setter: we imagine ourselves shuffling home from our daily grind. Combined with background finger-snapping, it *almost* sounds like the setup for a scene out of *West Side Story,* but when Garry Tallent enters after about 30 seconds, unusually high in the mix, we instinctively know that it’s been a long slog of a day.
 
@@ -45,7 +45,7 @@ At night, his memory takes over, and loss becomes need becomes hunger. Neither t
 
 The narrator has more words to say, but no additional content. Like the narrator’s fever for the girl, Bruce’s lyrics and vocals build in intensity without ever being granted the gift of relief. (Speaking of, that last line of the chorus is one of Bruce’s most delightful double entendres on record, even if Bruce steps on it the first time.)
 
-We also have to note Clarence’s essential contributions. In my opinion, “when he’s got the fever for a girl” edges out “[kid, you better get the picture](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” for Clarence’s best cameo vocal. But oh, that mid-song solo… “Jungleland” and “[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” deservedly get the love, but Clarence’s performance in “The Fever” is sorely under-appreciated.
+We also have to note Clarence’s essential contributions. In my opinion, “when he’s got the fever for a girl” edges out “[kid, you better get the picture](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” for Clarence’s best cameo vocal. But oh, that mid-song solo… “Jungleland” and “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” deservedly get the love, but Clarence’s performance in “The Fever” is sorely under-appreciated.
 
 *Well I can remember coming home*  
 *See you standing at the stove*  
@@ -82,19 +82,19 @@ Thankfully, his manager Mike Appel had other ideas. Appel secretly sent out cass
 
 In fact, radio station KLOL in Houston received so many phone-in requests for “The Fever” that Bruce was pretty much forced to play it when he dropped by the studio with the (still unnamed) E Street Band in early March 1974. It’s strange to hear “The Fever” played acoustically with Danny’s accordion standing in for the piano, but it works thanks to the band’s ability to conjure the song’s cool vibe on command.
 
-[https://www.youtube.com/watch?v=XYFWFMg0Z1w](https://www.youtube.com/watch?v=XYFWFMg0Z1w)
+[Watch on Youtube: Bruce Springsteen - 08 - The fever](https://www.youtube.com/watch?v=XYFWFMg0Z1w)
 
 But aside from its outing in Houston (Bruce played it in concert the following night), “The Fever” received nothing but neglect from Bruce throughout the Wild & Innocent and *Born to Run* years.
 
 Bruce finally gave his song up for adoption to Southside Johnny, who recorded a bold, brassy version of “The Fever” for his 1976 debut album. If Bruce’s original simmers, Southside’s cover swaggers.
 
-[https://www.youtube.com/watch?v=5aDLeWoxbms](https://www.youtube.com/watch?v=5aDLeWoxbms)
+[Watch on Youtube: Southside Johnny & The Asbury Jukes - The Fever](https://www.youtube.com/watch?v=5aDLeWoxbms)
 
 “The Fever” quickly became Southside’s signature song, and Bruce seemed content his song had found a home with someone who loved it more than he did.
 
 But then came the Darkness Tour and an early Texas stand, and by popular demand out came “The Fever,” just as strong on stage as it was on cassette.
 
-[https://www.youtube.com/watch?v=7zVE9hCecu8](https://www.youtube.com/watch?v=7zVE9hCecu8)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - The Fever (Live in Houston, 1978)](https://www.youtube.com/watch?v=7zVE9hCecu8)
 
 And with Philly on the schedule just a couple of weeks later, Bruce ended up keeping it in the set list. (In true Philly style, Bruce tells of kids running up on stage, yelling “BRUCE! FEVER!” in his ear.)
 
@@ -112,7 +112,7 @@ Steve brought Bruce, Roy, Garry, and Clarence with him to catch Southside and th
 
 Just watch the comfort and chemistry between these two legendary bandleaders, and how at ease the bands are with each other. For an appearance that couldn’t have been planned or rehearsed, it was absolutely electric.
 
-[https://www.youtube.com/watch?v=yQ3amVBypEk](https://www.youtube.com/watch?v=yQ3amVBypEk)
+[Watch on Youtube: Southside Johnny (with Bruce Springsteen) - The Fever](https://www.youtube.com/watch?v=yQ3amVBypEk)
 
 After the Darkness Tour ended, it seemed like the only way to ever hear “The Fever” live again was to catch Southside Johnny in concert. But when word spread of a multi-disc box set of unreleased outtakes on the way in 1998, Springsteen fans rejoiced. *Surely* “The Fever” would be included!
 
@@ -124,17 +124,17 @@ He put it out on something the following year: an odd compilation/sampler of out
 
 And with “The Fever” finally available as an official cut, the song finally returned to the E Street Band’s set list with a cameo appearance on the Reunion Tour (in Philly, naturally).
 
-[https://www.youtube.com/watch?v=MoDioC_xxh4](https://www.youtube.com/watch?v=MoDioC_xxh4)
+[Watch on Youtube: The Fever Bruce Springsteen (Philly '99)](https://www.youtube.com/watch?v=MoDioC_xxh4)
 
 “The Fever” has remained a rarity in the post-Reunion era, although it’s a fairly safe bet you’ll get it if you regularly catch Bruce’s shows in Philadelphia, where “The Fever” has made three appearances since 2009, most recently at Bruce’s U.S. record-setting marathon show in 2016.
 
-[https://www.youtube.com/watch?v=8AYYgKiNygE](https://www.youtube.com/watch?v=8AYYgKiNygE)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - The Fever (live in Philadelphia 2016)](https://www.youtube.com/watch?v=8AYYgKiNygE)
 
 Bruce can’t seem to shake “The Fever,” despite how much and how often he professes to try, and his fans certainly don’t want him to. We’ll likely continue to see it make rare appearances here and there when Bruce plays in his longtime strongholds.
 
 I’ll leave you with a rare solo electric piano performance of “The Fever” from Bruce’s 2005 tour, played by request in Boston. It’s a great performance, but true to fashion, Bruce can’t resist getting a dig in first. Enjoy this seldom-heard performance of what Bruce called “an annoying fan favorite.”
 
-[https://videopress.com/embed/iEdaryZ4](https://videopress.com/embed/iEdaryZ4)
+[Watch Video Highlight](https://videopress.com/embed/iEdaryZ4)
 
 **The Fever  
 Recorded:** May 16, 1973  
@@ -142,4 +142,4 @@ Recorded:** May 16, 1973
 **First performed:** March 15, 1973 (Boston, MA)  
 **Last performed:** July 6, 2019 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

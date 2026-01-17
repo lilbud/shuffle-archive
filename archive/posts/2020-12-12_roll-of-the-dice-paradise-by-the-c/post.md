@@ -4,13 +4,13 @@ By 1978, Bruce’s catalog had already grown far too large for his set lists to 
 
 That meant Bruce needed an opening song for the second set, something that would ease fans back into the show while late stragglers found their way back to their seats. Bruce found his solution in a “new” instrumental he debuted on the very first night of the tour.
 
-[https://www.youtube.com/watch?v=JEpgduWWhQU](https://www.youtube.com/watch?v=JEpgduWWhQU)
+[Watch on Youtube: Paradise By The "C" (Live at the Roxy Theatre, W. Hollywood, CA - July 1978)](https://www.youtube.com/watch?v=JEpgduWWhQU)
 
 The instrumental was sax-centric, providing Clarence Clemons with a song-length chance to shine. Always a fan favorite, Clarence commanded the audience’s attention, but since there were no lyrics, it wasn’t a big deal if conversations wrapped up around you or late arrivals clambered over you.
 
 Clarence may have been the song’s focal point, but that didn’t mean he was the only featured player: Danny Federici’s organ is almost as prominent, and Max’s late-song extended drumroll tightly coiled both the band and the crowd’s energy for an explosive release that seemed to signal the true arrival of the second set.
 
-[https://www.youtube.com/watch?v=YE67z_8x9tQ](https://www.youtube.com/watch?v=YE67z_8x9tQ)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Paradise By The C (Largo, 1978)](https://www.youtube.com/watch?v=YE67z_8x9tQ)
 
 “Paradise by the ‘C'” accomplished all this while also epitomizing the Jersey Shore sound. You might have been seeing the band in a theater or arena, but you felt like you were in a boardwalk bar.
 
@@ -28,13 +28,13 @@ The name stuck, at least until Bruce released his 1986 box set, *Live 1975-85*, 
 
 The fact that it was included on the box set at all was a bit of a head-scratcher; by that time Bruce hadn’t played it in eight years. He resurrected it briefly on the Tunnel of Love Tour in 1988, however, where the song benefited from the full horn section that accompanied the E Street Band that year.
 
-[https://www.youtube.com/watch?v=9ENAcksMG64](https://www.youtube.com/watch?v=9ENAcksMG64)
+[Watch on Youtube: Bruce Springsteen - Paradise by the C - East Berlin 1988](https://www.youtube.com/watch?v=9ENAcksMG64)
 
 But as far as fans knew, no actual studio version of “Paradise by the ‘C'” had ever been recorded.
 
 Flash forward to 2015, and the release of *The Ties That Bind: The River Collection.* Included with that revelatory box set was a disc of River-era studio outtakes, and among them was “Paradise by the ‘C’,” billed as a 1980 outtake.
 
-[https://www.youtube.com/watch?v=Fh6bjjAY6E8](https://www.youtube.com/watch?v=Fh6bjjAY6E8)
+[Watch on Youtube: Paradise By The "C" (Studio Outtake - 1980)](https://www.youtube.com/watch?v=Fh6bjjAY6E8)
 
 That was a genuine surprise, as no record of such a recording previously existed. Brucebase suggests that this is not actually a studio recording but rather a multi-track live recording (likely a soundcheck) from Bruce’s 1978 show in Phoenix, but notes that this is “in some dispute.”
 
@@ -44,7 +44,7 @@ Live or canned, this was still the first time that “Paradise by the ‘C” wa
 
 That didn’t mean the song hadn’t been kept alive, though: Clarence reprised his E Street star turn with his own band over the years and released his own live cover in 2001.
 
-[https://www.youtube.com/watch?v=J5pQhswT_AA](https://www.youtube.com/watch?v=J5pQhswT_AA)
+[Watch on Youtube: Paradise By the C](https://www.youtube.com/watch?v=J5pQhswT_AA)
 
 To this day, “Paradise by the ‘C'” remains Bruce’s only officially released original instrumental, but that’s not why or how it will be remembered.
 

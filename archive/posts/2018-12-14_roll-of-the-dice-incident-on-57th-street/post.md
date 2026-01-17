@@ -2,7 +2,7 @@ Bruce recorded “Incident on 57th Street” on his 24th birthday.
 
 Let that sink in while you listen to what is arguably Bruce’s first songwriting masterpiece:
 
-[https://www.youtube.com/watch?v=ioQcvijom28](https://www.youtube.com/watch?v=ioQcvijom28)
+[Watch on Youtube: Incident on 57th Street](https://www.youtube.com/watch?v=ioQcvijom28)
 
 When I sit down to write these essays, I usually have a hook. An angle, some aspect of the song to approach it from, a lens to view it through. Often it’s the lyrics, sometimes the music, frequently the history, notable performances, or some other interesting facet.
 
@@ -12,7 +12,7 @@ Everything about it is perfect: the lyrics, in which Bruce finally cements the m
 
 Ask a thousand Springsteen fans for their top five Springsteen songs, and you’ll get a thousand different answers. But odds are that “Incident” will have the highest hit rate.
 
-Bruce had certainly floated with “epic” storytelling before. One might argue, for instance, that “[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” qualifies as his first on-record epic, but I’d argue that song is more of a street painting than a story, and that Bruce gets a little lost in metaphor at the expense of connection and clarity. I’d make a similar argument about “New York City Serenade,” sister song to “Incident” from the same album side; NYCS has even stronger orchestration than “Incident” but oversteps from romantic to pastoral. And there are certainly a number of pre-fame outtakes that show glimmers and glimpses of what was to come but that never quite gel.
+Bruce had certainly floated with “epic” storytelling before. One might argue, for instance, that “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” qualifies as his first on-record epic, but I’d argue that song is more of a street painting than a story, and that Bruce gets a little lost in metaphor at the expense of connection and clarity. I’d make a similar argument about “New York City Serenade,” sister song to “Incident” from the same album side; NYCS has even stronger orchestration than “Incident” but oversteps from romantic to pastoral. And there are certainly a number of pre-fame outtakes that show glimmers and glimpses of what was to come but that never quite gel.
 
 No, “Incident on 57th Street” is where Bruce finally nailed what he’d spent years reaching for. Without it, there would be no “Jungleland” (which some posit is a sequel to “Incident,” in theme if not in character), no “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/),” no “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/).”
 
@@ -110,7 +110,7 @@ The street is empty now, and Johnny is lost in thought, wrestling with a dilemma
 *Janey sleeps in sheets damp with sweat; Johnny sits up alone and watches her dream on, dream on*  
 *And the sister prays for lost souls, then breaks down in the chapel after everyone’s gone*
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/12/incidentlyrics-238x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/12/incidentlyrics.jpg)
 
 Johnny may have called down to his compadres (who, by the way, are not children–their “play” is decidedly less innocent), but he’s really talking to himself. He’s lost in thought, unable to sleep. The line about the sister praying for lost souls in the nearby chapel–that’s not a throwaway line either. It’s foreshadowing, and because it happens within Johnny’s earshot and notes it, we know that he knows it’s foreshadowing, too.
 
@@ -142,45 +142,45 @@ With a song so carefully crafted, it’s not surprising that Bruce is meticulous
 
 In fact, we only have one existing recording of the song performed live by the original E Street Band. Days after their show in Nashville on January 29, 1974, Bruce fired Vini. David Sancious left six months later. So what you’re about to hear below is the only performance of “Incident on 57th Street” with both (or even either of) Lopez and Sancious. Things to note: the extended, ethereal intro, Vini’s almost-distracting drumming (it’s a bit too much at times, although perfect in the third verse), Danny’s powerful presence (he’s usually more restrained in this song)…. but the thing that leaps out at us the most is the unique ending. Take a listen:
 
-[https://www.youtube.com/watch?v=vi3gv3GLZ3s](https://www.youtube.com/watch?v=vi3gv3GLZ3s)
+[Watch on Youtube: Bruce Springsteen - INCIDENT ON 57TH STREET 1974 (audio)](https://www.youtube.com/watch?v=vi3gv3GLZ3s)
 
 The next performance to be captured on bootleg was seven months later–but it was a significant one. When the lights dimmed at showtime and the E Street Band took the stage, they were accompanied by someone new: Suki Lahav, who reprised her studio vocals and added gorgeous violin accompaniment to an absolutely stunning new arrangement. Listen in on the debut of Bruce’s stripped-down, acoustic “Incident on 57th Street.”
 
-[https://www.youtube.com/watch?v=obc5Z6xUqy0](https://www.youtube.com/watch?v=obc5Z6xUqy0)
+[Watch on Youtube: Bruce Springsteen - INCIDENT ON 57th STREET 1974 (audio)](https://www.youtube.com/watch?v=obc5Z6xUqy0)
 
 Suki would join the band as a featured guest performer a month later, and “Incident” would remain a setlist showpiece throughout her tenure.
 
 In February 1975, Bruce and the band played the Main Point in Bryn Mawr, PA, where they opened with “Incident.” That single performance–captured and broadcast on the radio in crystal clarity–is my personal all-time favorite Springsteen performance. Bar none. Without even a close second. Bruce and Suki are magnificent, and the siren sound effect that closes the song is a beautiful touch–so perfectly and naturally placed that for many, many years I believed it was real.
 
-[https://www.youtube.com/watch?v=Yk8iXy-aw30](https://www.youtube.com/watch?v=Yk8iXy-aw30)
+[Watch on Youtube: Bruce Springsteen & The E'Street Band Live at the Main Point '75 - Incident On 57th Street](https://www.youtube.com/watch?v=Yk8iXy-aw30)
 
 I still get chills when I listen to that.
 
 Amazingly, we have *video* of their performance from the very next night! Too bad the audio isn’t as clear as it is above, but it’s still worth viewing:
 
-[https://www.youtube.com/watch?v=w0IMRkIuBrw](https://www.youtube.com/watch?v=w0IMRkIuBrw)
+[Watch on Youtube: Bruce Springsteen - Incident on 57th Street - Widener 1975](https://www.youtube.com/watch?v=w0IMRkIuBrw)
 
 “Incident” remained a frequent setlist highlight throughout the Born to Run, Lawsuit, and Chicken Scratch tours, all the way into the early days of the Darkness Tour.
 
 But then it disappeared. Between 1978 and 1999, “Incident” came out only once (in an arrangement very similar to modern performances), during the year-closing 1980 River Tour stand at Nassau Coliseum. Fortunately, not only was that one-off performance captured on tape, it was captured professionally–and released on EP in Europe in 1986.
 
-[https://www.youtube.com/watch?v=NbmLwUiJ6QA](https://www.youtube.com/watch?v=NbmLwUiJ6QA)
+[Watch on Youtube: Incident on 57th Street (Live at Nassau Coliseum, Uniondale, NY - December 1980)](https://www.youtube.com/watch?v=NbmLwUiJ6QA)
 
 For almost twenty years, “Incident” went missing in action. Fans began to wonder if they’d *ever* hear it again. So imagine the delight of the fans in attendance when Bruce and the E Street Band opened their final Reunion Tour show in Philadelphia with it, as powerful and majestic as ever:
 
-[https://videopress.com/embed/S2mzhjFW](https://videopress.com/embed/S2mzhjFW)
+[Watch Video Highlight](https://videopress.com/embed/S2mzhjFW)
 
 (It’s amazing that we have so many well-preserved documents of such a rare song, let alone historically significant ones.)
 
 Bruce played “Incident” a few more times on the Reunion Tour and the holiday shows that followed, but it wasn’t until the Rising Tour that it made more frequent appearances, getting more than a dozen outings. One of the earliest performances on that tour was a gorgeous solo piano rendition, captured professionally and released on Bruce’s video document *Live in Barcelona.* Believe it or not, this 2003 performance was the first time European fans ever got to hear the song performed live on their own continent.
 
-[https://www.youtube.com/watch?v=qbRtk9-jcL0](https://www.youtube.com/watch?v=qbRtk9-jcL0)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Incident on 57th Street (Live In Barcelona)](https://www.youtube.com/watch?v=qbRtk9-jcL0)
 
 Aside from the brief Vote for Change and Seeger Sessions tours, “Incident on 57th Street” hasn’t missed a tour ever since. It remains a rarity however, only coming out a few times on any given tour, and it remains high on many long-time fans’ chase-list to this day.
 
 I’ll leave you with one of Bruce’s most recent performances, from the show where the 2016 River Tour transformed in to the “Autobiography” tour. When Bruce decided to structure his setlists to feature his best work over the years, it was the one time when “Incident on 57th Street” absolutely *had* to be a nightly regular.
 
-[https://www.youtube.com/watch?v=Ez2tGloaHXk](https://www.youtube.com/watch?v=Ez2tGloaHXk)
+[Watch on Youtube: Bruce Springsteen - Incident On 57th Street (E Rutherford 8/30/16) cam mix video](https://www.youtube.com/watch?v=Ez2tGloaHXk)
 
 **Incident on 57th Street  
 Recorded:** September 23, 1973  
@@ -188,4 +188,4 @@ Recorded:** September 23, 1973
 **First performed:** October 13, 1973 (Washington, DC)  
 **Last performed:** January 22, 2017 (Perth, Australia)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

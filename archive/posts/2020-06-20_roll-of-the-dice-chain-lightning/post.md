@@ -1,12 +1,12 @@
-If “[State Trooper](http://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)” and “[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)” had a love child, it would have been “Chain Lightning.”
+If “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)” and “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)” had a love child, it would have been “Chain Lightning.”
 
-[https://www.youtube.com/watch?v=xbuW4XrNVFU](https://www.youtube.com/watch?v=xbuW4XrNVFU)
+[Watch on Youtube: Chain Lightning (Studio Outtake - 1980)](https://www.youtube.com/watch?v=xbuW4XrNVFU)
 
 Actually, it’s probably the other way around, since “Chain Lightning” came first.
 
 But if you listen to the track above, in addition to the prominent “State Trooper” guitar line, and the obvious “Pink Cadillac” bass and percussion, you can also hear the likely influence of Henry Mancini’s 1959 instrumental, “Peter Gunn.”
 
-[https://www.youtube.com/watch?v=nz3WMFEC9Gs](https://www.youtube.com/watch?v=nz3WMFEC9Gs)
+[Watch on Youtube: Peter Gunn - Henry Mancini](https://www.youtube.com/watch?v=nz3WMFEC9Gs)
 
 (It’s odd to think there might be a through line from “Peter Gunn” to *Nebraska,* but Bruce Springsteen is such a musical sponge that one can taste all sorts of individual ingredients in his recipes.)
 
@@ -14,13 +14,13 @@ In any event, while Bruce and the E Street Band recorded “Chain Lightning” i
 
 The track came as a bit of a surprise to hardcore fans, however, because a very different rehearsal bootleg had been circulating for years. It’s clear that Bruce changed the arrangement quite a bit between this rehearsal and the final studio take, The earlier version is a faster, fiercer, almost punk arrangement. Take a listen:
 
-[https://www.youtube.com/watch?v=6CeHuKvkITU](https://www.youtube.com/watch?v=6CeHuKvkITU)
+[Watch on Youtube: Bruce Springsteen Chain Lightning](https://www.youtube.com/watch?v=6CeHuKvkITU)
 
 That rehearsal appears to have been an outlier. If we trace the origins of “Chain Lightning” back to Bruce’s earliest home demo recordings of it (almost a full year earlier than the studio track), we hear an acoustic arrangement that’s very close to the official band one:
 
-[https://www.youtube.com/watch?v=p1WkLfVVbeg](https://www.youtube.com/watch?v=p1WkLfVVbeg)
+[Watch on Youtube: Bruce Springsteen Chain Lightning #1](https://www.youtube.com/watch?v=p1WkLfVVbeg)
 
-[https://www.youtube.com/watch?v=zbgcliyaheA](https://www.youtube.com/watch?v=zbgcliyaheA)
+[Watch on Youtube: Bruce Springsteen Chain Lightning #2](https://www.youtube.com/watch?v=zbgcliyaheA)
 
 https://www.youtube.com/watch?v=p1WkLfVVbeghttps://www.youtube.com/watch?v=zbgcliyaheAhttps://www.youtube.com/watch?v=Ssz0v6OXUZk
 
@@ -65,4 +65,4 @@ Still, “Chain Lightning” practically begs for an E Street Band outing. We ha
 **Recorded:** February 17, 1980  
 **Released:** *The River: Outtakes* (2015)**Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

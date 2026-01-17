@@ -2,7 +2,7 @@ No fooling: Lorde made her first public performing appearance in almost two year
 
 Together at the piano, Lorde and Marlon covered one of Bruce’s best songs, “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/),” and it was just beautiful.
 
-[https://videopress.com/embed/OxW9Zavv](https://videopress.com/embed/OxW9Zavv)
+[Watch Video Highlight](https://videopress.com/embed/OxW9Zavv)
 
 Lorde is no stranger to covering Bruce–she performed “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)” in concert several times on her *Melodrama* tour in 2017. And of course the respect is mutual: Bruce famously covered Lorde’s breakout hit “Royals” in 2014.
 

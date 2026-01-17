@@ -16,10 +16,8 @@ I know very little about this three-man combo. I have no idea where they’re fr
 
 But I do know that they absolutely nail “Cross My Heart,” preserving the original’s bass backbone while taking the pace up a notch and filling in the instrumental breaks with some terrific guitar solos.
 
-[https://www.youtube.com/watch?v=Xed3k-mLbnI](https://www.youtube.com/watch?v=Xed3k-mLbnI)
+[Watch on Youtube: THE MANDRILLOS - Cross My Heart (Cover)](https://www.youtube.com/watch?v=Xed3k-mLbnI)
 
 I always knew that “Cross My Heart” had the potential to be a solid rocker, and The Mandrillos prove it.
 
 Now if only we could hear what the E Street Band could do with it…
-
- 

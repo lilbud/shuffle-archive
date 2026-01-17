@@ -4,7 +4,7 @@ Because while Bruce leads the E Street Band through old warhorses and nightly sp
 
 Case in point: Bob Dylan’s “One of Us Must Know (Sooner or Later)” from his 1966 album *Blonde on Blonde.* Released as a single, “One of Us Must Know” only peaked at #33 in the U.K. and didn’t even crack the Top 100 in the U.S. Even on their list of “Greatest Bob Dylan Songs,” *Rolling Stone* ranked it only #82.
 
-[https://www.youtube.com/watch?v=Bq-bNR-z7Nk](https://www.youtube.com/watch?v=Bq-bNR-z7Nk)
+[Watch on Youtube: Bob Dylan - One of Us Must Know (Sooner or Later) (Official Audio)](https://www.youtube.com/watch?v=Bq-bNR-z7Nk)
 
 And yet, there’s something about it that earns one’s attention. Maybe it’s the nine hours of craftsmanship and 24 takes that went into it; maybe it’s Dylan’s mesmerizing, surly-yet-contrite vocals; perhaps it’s the piano-and-organ-borne backing track that sounds like it was tailor-made for the E Street Band.
 
@@ -14,7 +14,7 @@ The 1988 tour is famous among fans for generating some unique soundcheck covers,
 
 Toward the end of the rehearsal, Bruce turned his attention to Dylan, opening his songbook to “[Just Like a Woman](https://estreetshuffle.com/index.php/2018/05/08/cover-me-just-like-a-woman/)” and following up with “One of Us Must Know” (a telling selection given what was going on in his personal life at the moment).
 
-[https://www.youtube.com/watch?v=z-4XXv_gTHo](https://www.youtube.com/watch?v=z-4XXv_gTHo)
+[Watch on Youtube: ONE OF US MUST KNOW SOONER OR LATER ( cover Bob Dylan )](https://www.youtube.com/watch?v=z-4XXv_gTHo)
 
 Sure enough, Roy Bittan is appropriately front and center in the too-brief two-minute clip, and while the taper was too distant to catch Bruce’s vocals clearly, we get a very good sense of how majestic an E Street Band cover might have sounded if they ever attempted it live.
 

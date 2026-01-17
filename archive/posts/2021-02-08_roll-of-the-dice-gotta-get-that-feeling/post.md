@@ -4,11 +4,11 @@ Let’s say he struck silver.
 
 The song itself is a great one. Clearly intended as a Phil Spector/girl group homage (Bruce had recorded with Ronnie Spector only a few months prior), Bruce makes his inspiration known before we’re even three seconds into the song.
 
-[https://www.youtube.com/watch?v=EN4Y720DA_Y](https://www.youtube.com/watch?v=EN4Y720DA_Y)
+[Watch on Youtube: Gotta Get That Feeling](https://www.youtube.com/watch?v=EN4Y720DA_Y)
 
 It’s hard to know whether that “[Be My Baby](https://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)“-esque introduction is recent or vintage, but given its absence from the bootlegged track that circulated many years before Bruce officially released his song on *The Promise*, it may be a more modern addition. Compare for yourself:
 
-[https://www.youtube.com/watch?v=DQ1LfLDrDrU](https://www.youtube.com/watch?v=DQ1LfLDrDrU)
+[Watch on Youtube: Bruce Springsteen Get that Feeling](https://www.youtube.com/watch?v=DQ1LfLDrDrU)
 
 Now that we’ve heard both tracks, it’s obvious that Bruce enhanced his original backing track for “Gotta Get That Feeling” for its 2010 release (it does appear to be the same track underneath) far beyond its percussion: for one thing, there’s a wonderful sax solo from Clarence and an entire horn section that brings the song to lush, romantic life.
 
@@ -16,7 +16,7 @@ But that’s also the problem, because Bruce’s modern vocals are just a bit st
 
 But from its title through its lyrics, “Gotta Get That Feeling” demands a desperation and yearning that’s missing from Bruce’s 2010 vocals but very, very present in his original 1977 version. Even in the very early work-in-progress below from early August, we can hear a passion that’s absent from the officially released track. The difference is most pronounced, though, in the final verse of the official track and the outtake version above.
 
-[https://videopress.com/embed/sQG6YdXe](https://videopress.com/embed/sQG6YdXe)
+[Watch Video Highlight](https://videopress.com/embed/sQG6YdXe)
 
 Bruce may have re-recorded his vocal for the official release, but his lyrics closely match the 1977 outtake. He tightened some lines and softened some others (the original version has too much “I” and not enough “we”), but substantively the song is unchanged.
 
@@ -50,11 +50,11 @@ Thirty-three years down the road, though, Bruce was finally ready to release his
 
 Bruce debuted “Gotta Get That Feeling” at his “[Carousel concert](https://estreetshuffle.com/index.php/2020/12/07/where-the-band-was-asbury-park-december-7-2010-mariettas-story/)” in 2010, best remembered now as Clarence’s last public performance with Bruce and the E Street Band. It’s a beautifully filmed and recorded performance, but I can’t help but be a little sad during Clarence’s solo. When the Big Man stares robotically from his stool while Bruce hovers near his former foil, I’m haunted by the ghosts of their past performances when their chemistry and energy crackled and sizzled from the stage.
 
-[https://www.youtube.com/watch?v=itpktRH1iig](https://www.youtube.com/watch?v=itpktRH1iig)
+[Watch on Youtube: Bruce Springsteen - Gotta Get That Feeling (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=itpktRH1iig)
 
 The next and last time Bruce played “Gotta Get That Feeling” in public to date (the second time was at a private benefit), The Big Man was two years gone. His ghost was now a familiar and comforting presence on the E Street stage, no doubt smiling approvingly at Ed Manion’s rare spotlight moment.
 
-[https://www.youtube.com/watch?v=EcnvfGT4Ygc](https://www.youtube.com/watch?v=EcnvfGT4Ygc)
+[Watch on Youtube: Bruce Springsteen - Gotta Get That Feeling (Leeds, July 24, 2013) [with dubbed audio]](https://www.youtube.com/watch?v=EcnvfGT4Ygc)
 
 If Bruce and the band never play “Gotta Get That Feeling” again, at least they finally nailed a perfect performance, summoning both the passion of youth and the artistry of age.
 

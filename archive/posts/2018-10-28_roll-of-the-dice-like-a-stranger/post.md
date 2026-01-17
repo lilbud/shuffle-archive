@@ -2,7 +2,7 @@ You know, for a guy who likes to profess that he didn’t write songs about rela
 
 Maybe they don’t count because they were never released. Still, even a casual listen to songs like “Like a Stranger” reveals that Bruce was grappling with relationships through song even when he was relatively new to them.
 
-[https://www.youtube.com/watch?v=ZVcW1yVSrN0](https://www.youtube.com/watch?v=ZVcW1yVSrN0)
+[Watch on Youtube: The Bruce Springsteen Band, "Like a Stranger" 1972-02-04](https://www.youtube.com/watch?v=ZVcW1yVSrN0)
 
 There’s not a lot known about “Like a Stranger.” Bruce never recorded it, and he hasn’t spoken about it. We haven’t seen any lyric sheets turn up, so it’s hard to even estimate when Bruce wrote it.
 
@@ -71,4 +71,4 @@ Never Recorded**
 
 *evidence suggests “Like a Stranger” was performed in 1971 as well, but we cannot pin to a particular date(s)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

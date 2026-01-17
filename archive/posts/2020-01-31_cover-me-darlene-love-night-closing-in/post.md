@@ -8,7 +8,7 @@ Until 2014, that is, when something stirred Steve into action. Calling in favors
 
 Bruce contributed two original songs to the project, one of which is the *very* Spectorish “Night Closing In.”
 
-[https://www.youtube.com/watch?v=tCBC4IV8GdM](https://www.youtube.com/watch?v=tCBC4IV8GdM)
+[Watch on Youtube: Night closing in - Darlene Love (Composed by Bruce Springsteen)](https://www.youtube.com/watch?v=tCBC4IV8GdM)
 
 “Night Closing In” is a song of heartbreak. It’s about those first few days after a break-up, when you wake up in the morning and all seems right… until you remember.
 
@@ -43,7 +43,7 @@ This one is perfect as is.
 
 **Bonus:** Here’s Darlene’s live performance of “Night Closing In” (with Little Steven) from shortly after her record release in 2015.
 
-[https://www.youtube.com/watch?v=N-5FXMhnKMg](https://www.youtube.com/watch?v=N-5FXMhnKMg)
+[Watch on Youtube: Darlene Love Night Closing In 2015](https://www.youtube.com/watch?v=N-5FXMhnKMg)
 
 **Night Closing In  
 Recorded:** 2014-2015  

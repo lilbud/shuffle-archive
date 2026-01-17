@@ -10,19 +10,19 @@ Still, while Bruce has performed the song on stage several times over the years,
 
 Bruce’s first run at the song was way back in 1982, during one of his “open secret” Stone Pony gigs with Cats on a Smooth Surface.
 
-[https://videopress.com/embed/y2WUEbRW](https://videopress.com/embed/y2WUEbRW)
+[Watch Video Highlight](https://videopress.com/embed/y2WUEbRW)
 
 The next time Bruce played “The Wanderer,” it was with such a stellar assemblage of talent that the camera doesn’t even register his presence. (He’s there, though, off to the far left, providing backing to the original artist himself and an all-star Hall of Fame jam band in January 1989.
 
-[https://videopress.com/embed/fIJa2LOv](https://videopress.com/embed/fIJa2LOv)
+[Watch Video Highlight](https://videopress.com/embed/fIJa2LOv)
 
 In the mid-nineties, Bruce played the song with Dion once again, but this time both men were guests of Joe Grushecky during Joe’s local appearances (one in Long Branch in 1994, the other in New York City the following year).
 
-[https://videopress.com/embed/2pX9wsJ2](https://videopress.com/embed/2pX9wsJ2)
+[Watch Video Highlight](https://videopress.com/embed/2pX9wsJ2)
 
 It took a request sign to finally get Bruce to play the song with the E Street Band–almost ten years ago in Des Moines, Iowa. It took them a minute to work it out, but once they did… let’s just say it was worth the wait.
 
-[https://www.youtube.com/watch?v=kg2AOVXpqU4](https://www.youtube.com/watch?v=kg2AOVXpqU4)
+[Watch on Youtube: Bruce Springsteen The Wanderer Des Moines 9/21/09](https://www.youtube.com/watch?v=kg2AOVXpqU4)
 
 **The Wanderer  
 First performed:** July 25, 1982 (Asbury Park, NJ)  

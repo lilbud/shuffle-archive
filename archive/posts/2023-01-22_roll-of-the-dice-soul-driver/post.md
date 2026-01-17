@@ -12,7 +12,7 @@ The sad thing is: it didn’t have to be that way.
 
 Take, for example, “Soul Driver.” One of the earliest songs written and recorded for *Human Touch*, it seems to have started as a Springsteen-Bittan collaboration like “Real World” and “[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/).” Unlike the other two songs, however, Bruce decided to write his own music for it. He debuted the finished song at his acoustic Christic Institute concerts in November 1990, almost a year-and-a-half before it saw official release.
 
-[https://www.youtube.com/watch?v=Igvu_8v0agw](https://www.youtube.com/watch?v=Igvu_8v0agw)
+[Watch on Youtube: Soul Driver (Live at The Shrine, Los Angeles, CA - 11/16/90 - Official Audio)](https://www.youtube.com/watch?v=Igvu_8v0agw)
 
 As originally presented to the public, “Soul Driver” was an intimate, moody, devotional that married biblical metaphor with carnival imagery to moving effect.
 
@@ -46,7 +46,7 @@ Fortune or fate? Both are fickle. Love is the only constant–if you choose corr
 
 It’s a gorgeous song, laced with love and tinged with danger–all of which shine through in that original 1990 performance. But when the rest of the world first heard “Soul Driver” fifteen months later, it sounded…. well, different.
 
-[https://www.youtube.com/watch?v=5jM3VmsUl7I](https://www.youtube.com/watch?v=5jM3VmsUl7I)
+[Watch on Youtube: Bruce Springsteen - Soul Driver (Audio)](https://www.youtube.com/watch?v=5jM3VmsUl7I)
 
 On paper, there were plenty of reasons for high expectations. For one thing, the studio version of “Soul Driver” features the return of David Sancious, absent from Bruce’s catalog since “Born to Run.” For another, it features backing vocals from the legendary Sam Moore. With Randy Jackson on bass and Toto’s Jeff Pocaro on drums, “Soul Driver” promised quite a musical pedigree.
 
@@ -54,13 +54,13 @@ So what went wrong? Let’s chalk it up to a desire to experiment, to break away
 
 Reportedly, Bruce soured quickly on the arrangement once the album was released. When he performed it on stage months later, he stripped it back to something resembling an electric version of the original arrangement.
 
-[https://www.youtube.com/watch?v=QOv6QduVD0o](https://www.youtube.com/watch?v=QOv6QduVD0o)
+[Watch on Youtube: Soul Driver - Bruce Springsteen (22-09-1992 Warner Hollywood Studios,Los Ángeles,California)](https://www.youtube.com/watch?v=QOv6QduVD0o)
 
 Although Bruce performed it all throughout 1992, by the time the tour resumed after the holiday break, “Soul Driver” vanished from the set list, returning only for a cameo appearance in England that spring.
 
 In the years since, “Soul Driver” has appeared only once, when Bruce shocked his Portland fans by opening his 2005 acoustic show by performing it on the electric piano.
 
-[https://www.youtube.com/watch?v=-hWWOHqCtLU](https://www.youtube.com/watch?v=-hWWOHqCtLU)
+[Watch on Youtube: Bruce Springsteen - SOUL DRIVER 2005 (audio)](https://www.youtube.com/watch?v=-hWWOHqCtLU)
 
 Like his very first performance fifteen years earlier, Bruce’s final (to date) and finest performance of “Soul Driver” was quiet, intimate, and personal–like a whisper into a lover’s ear. It’s a great argument for why some songs should stay simple and spare.
 
@@ -68,7 +68,7 @@ If only he’d realized that when recording the album.
 
 **Bonus:** Here’s some terrific and rare footage of Bruce and his band rehearsing “Soul Driver” in an empty, dimly lit venue. It totally works.
 
-[https://www.youtube.com/watch?v=ziVw8itIXVU](https://www.youtube.com/watch?v=ziVw8itIXVU)
+[Watch on Youtube: Bruce Springsteen - Soul Driver (rehearsal)](https://www.youtube.com/watch?v=ziVw8itIXVU)
 
 **Soul Driver  
 Recorded:** January 1990  

@@ -8,7 +8,7 @@ We gotta give Bruce some points though: first, because he anticipated the reques
 
 The occasion was captured in terrific audio and HD multi-cam quality, so enjoy Bruce Springsteen and The E Street Band covering Bobby Pickett’s 1962 novelty hit, “Monster Mash,” for the first and only time.
 
-[https://www.youtube.com/watch?v=2B-9GgbK9dk](https://www.youtube.com/watch?v=2B-9GgbK9dk)
+[Watch on Youtube: Bruce Springsteen Monster Mash Rochester, NY 10-31-2012 with Intro](https://www.youtube.com/watch?v=2B-9GgbK9dk)
 
 Yeah, that reggae arrangement doesn’t really do the song any favors. Bruce realizes it a couple of minutes into the song but does his game best to carry it to conclusion.
 
@@ -16,7 +16,7 @@ Unfortunately, though, he compensates with shtick. He obviously didn’t rehears
 
 Still, it was great fun–and isn’t that the point of a novelty song? And when it comes to hamming it up to “Monster Mash,” it’s pretty tough to beat the original artist:
 
-[https://www.youtube.com/watch?v=vNuVifA7DSU](https://www.youtube.com/watch?v=vNuVifA7DSU)
+[Watch on Youtube: Bobby Pickett "Monster Mash"](https://www.youtube.com/watch?v=vNuVifA7DSU)
 
 “Monster Mash” was a huge hit around Halloween when it was originally released, and it’s been a seasonal favorite ever since–so maybe it’s not out of the question for Bruce to give it another shot someday.
 

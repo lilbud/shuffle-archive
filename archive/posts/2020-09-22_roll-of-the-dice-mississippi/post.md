@@ -1,4 +1,4 @@
-Bruce adapted classic literature in song long before “[The Ghost of Tom Joad.](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)”
+Bruce adapted classic literature in song long before “[The Ghost of Tom Joad.](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)”
 
 In the autumn of 1968, nineteen-year-old Bruce Springsteen put pen to paper and wrote a song called “Mississippi,” featuring two friends drifting down the great river on a raft on a beautiful, lazy summer day. One of them was named Jim, and although the narrator never identifies himself, it’s not too difficult to figure out his name, too.
 
@@ -39,15 +39,15 @@ In the autumn of 1968, nineteen-year-old Bruce Springsteen put pen to paper and 
 
 Bruce never recorded his adaptation of *Adventures of Huckleberry Finn*, but he did include some margin notes (for example, “Instead of A minor use D”) that at least tell us he envisioned “Mississippi” as a song rather than a poem.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/mississippi_lyrics1-204x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/mississippi_lyrics1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/mississippi_lyrics2-204x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/mississippi_lyrics2.jpg)
 
-“Mississippi” is one of the many unrecorded, unreleased songs Bruce transcribed in his 1968 Notebook. Discover others in the series [here](http://estreetshuffle.com/index.php/tag/1968-notebook/).
+“Mississippi” is one of the many unrecorded, unreleased songs Bruce transcribed in his 1968 Notebook. Discover others in the series [here](https://estreetshuffle.com/index.php/tag/1968-notebook/).
 
 **Mississippi  
 Never recorded**  
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

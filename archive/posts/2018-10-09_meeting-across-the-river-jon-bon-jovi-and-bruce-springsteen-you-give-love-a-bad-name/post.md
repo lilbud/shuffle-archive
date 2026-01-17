@@ -2,11 +2,11 @@ On January 31, 1998, Bruce joined Jon Bon Jovi on stage at the Count Basie Theat
 
 Together they played a one-time-only rendition of Bon Jovi’s first number one hit, “You Give Love a Bad Name,” with Bruce taking lead vocals on the second verse.
 
-[https://www.youtube.com/watch?v=0Kh1qeu3bNM](https://www.youtube.com/watch?v=0Kh1qeu3bNM)
+[Watch on Youtube: Bruce Springsteen & Bon Jovi 11. You Give Love A Bad Name](https://www.youtube.com/watch?v=0Kh1qeu3bNM)
 
 And just because we all need to be reminded from time to time that rock stars used to look like this, here’s the original 1986 single from *Slippery When Wet.*
 
-[https://www.youtube.com/watch?v=KrZHPOeOxQQ](https://www.youtube.com/watch?v=KrZHPOeOxQQ)
+[Watch on Youtube: Bon Jovi - You Give Love A Bad Name (Official Music Video)](https://www.youtube.com/watch?v=KrZHPOeOxQQ)
 
 **You Give Love a Bad Name  
 First performed:** January 31, 1998 (Red Bank, NJ)  

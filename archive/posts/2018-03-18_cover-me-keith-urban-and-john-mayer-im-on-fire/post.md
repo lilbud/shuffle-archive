@@ -2,6 +2,4 @@ There are enough covers of “[I’m on Fire](https://estreetshuffle.com/index.p
 
 From their 2010 concert at the Gorge Amphitheater in George, WA.
 
-[https://www.youtube.com/watch?v=RMMD891A7V4](https://www.youtube.com/watch?v=RMMD891A7V4)
-
- 
+[Watch on Youtube: Mayer / Urban - I'm On Fire - The Gorge - 8/28/2010](https://www.youtube.com/watch?v=RMMD891A7V4)

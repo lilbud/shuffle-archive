@@ -2,8 +2,6 @@
 
 It’s also dark and alienated, which is how a lot of us were feeling in the middle of 2020. Maybe that’s what prompted Mosshart to record a cover and produce a video of it during her at-home sessions that summer.
 
-[https://www.youtube.com/watch?v=sy7m7KUuwPs](https://www.youtube.com/watch?v=sy7m7KUuwPs)
+[Watch on Youtube: Alison Mosshart - State Trooper (Bruce Springsteen Cover)](https://www.youtube.com/watch?v=sy7m7KUuwPs)
 
 Mosshart’s version is intense and ominous, laden with eerie effects and a few appropriately salty liberties with Bruce’s lyrics. Oh and she nails that scream, too. If this cover doesn’t make your arm hair stand on end, you’re not paying close enough attention.
-
- 

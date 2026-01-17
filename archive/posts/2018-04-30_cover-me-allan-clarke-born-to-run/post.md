@@ -2,12 +2,10 @@ Strange but true: Allan Clarke was introduced to Bruce’s music by a music publ
 
 Clarke promptly recorded it and planned it for immediate release:
 
-*Well, I was just knocked out with the sound and the energy of ‘Born To Run’. It made me just want to do that track, I just wanted to sing it. So I went in the studio and I recorded it. I was very, very pleased with the outcome. I took it to EMI who said ‘Hey great. Good job.’ They then sat on it. It was ready to be released as a single but they went on strike.* (source: [The Strange Brew, “Allan Clarke – Would You Believe?](http://thestrangebrew.co.uk/allan-clarke-hollies-microsite/would-you-believe/)“)
+*Well, I was just knocked out with the sound and the energy of ‘Born To Run’. It made me just want to do that track, I just wanted to sing it. So I went in the studio and I recorded it. I was very, very pleased with the outcome. I took it to EMI who said ‘Hey great. Good job.’ They then sat on it. It was ready to be released as a single but they went on strike.* (source: [The Strange Brew, “Allan Clarke – Would You Believe?](https://thestrangebrew.co.uk/allan-clarke-hollies-microsite/would-you-believe/)“)
 
 By the time EMI released Clarke’s version, Bruce’s had already been released, resulting in both songs vying for airplay in 1975.
 
 We know which one won.
 
-[https://www.youtube.com/watch?v=K9pQjDaxAKE](https://www.youtube.com/watch?v=K9pQjDaxAKE)
-
- 
+[Watch on Youtube: Allan Clarke - Born To Run](https://www.youtube.com/watch?v=K9pQjDaxAKE)

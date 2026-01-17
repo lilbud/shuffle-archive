@@ -2,7 +2,7 @@
 
 There’s a brief moment at the 1:50 mark of Manfred Mann’s “Pretty Flamingo” where Paul Jones breaks with the lyrics for a moment and allows himself a wry, wistful “Ha!”
 
-[https://www.youtube.com/watch?v=sTxzmLyVFYY](https://www.youtube.com/watch?v=sTxzmLyVFYY)
+[Watch on Youtube: Manfred Mann - Pretty Flamingo](https://www.youtube.com/watch?v=sTxzmLyVFYY)
 
 It’s almost certainly an unscripted moment, and yet the entire song is packed in that “Ha!”
 
@@ -18,11 +18,11 @@ We’ve all been in that moment at least once, and we can tell that Paul Jones h
 
 The universality of that feeling helped carry Manfred Mann’s single all the way to #1 in the U.K. in the spring of 1966. (It notched only as high as #29 in the U.S.) But it was that “Ha!” that Bruce Springsteen dialed into when he started covering it on the Born to Run Tour in 1975.
 
-[https://www.youtube.com/watch?v=B5Zw_6PLuQM](https://www.youtube.com/watch?v=B5Zw_6PLuQM)
+[Watch on Youtube: Bruce Springsteen - PRETTY FLAMINGO 1975 (audio)](https://www.youtube.com/watch?v=B5Zw_6PLuQM)
 
 From that very first performance in Houston, Bruce prefaced his cover of “Pretty Flamingo” with a shaggy dog story that would only grow in length, cast, color, and detail with every telling, eventually outsizing the song itself.
 
-[https://www.youtube.com/watch?v=RiC3w8lzbJ0](https://www.youtube.com/watch?v=RiC3w8lzbJ0)
+[Watch on Youtube: Bruce Springsteen - PRETTY FLAMINGO 1976 (audio)](https://www.youtube.com/watch?v=RiC3w8lzbJ0)
 
 But no matter how ridiculously charming the detail–Clarence playing the saxophone while riding a bike in short pants, Bruce shaking his maracas on a street corner as the girl walks by–the entire story is just Bruce’s equivalent of Paul Jones’ fleeting “Ha!”, and Bruce milks it for minutes in order to allow himself a few minutes of pure, unbridled, unapologetic romance with the song itself.
 
@@ -30,7 +30,7 @@ You can’t listen to Bruce Springsteen sing “Pretty Flamingo” and not insta
 
 As Bruce admitted during what is probably my favorite single “Pretty Flamingo” performance (from his 2014 High Hopes Tour), we’ve all lived that story at some point, and in that moment it’s the *only* story.
 
-[https://www.youtube.com/watch?v=L44FZ1_KB0k](https://www.youtube.com/watch?v=L44FZ1_KB0k)
+[Watch on Youtube: Pretty Flamingo - Bruce Springsteen Live (4/24/2014)](https://www.youtube.com/watch?v=L44FZ1_KB0k)
 
 Bruce’s performance that night was almost a capella, with warm vocals imbued with nostalgia and emotional memory. And then he makes eye contact with his wife, and the band finally enters as he and we remember that the real thing is so much richer, more complex, more beautiful, and more rewarding than that first moment of infatuation.
 
@@ -40,10 +40,8 @@ Because maybe he can’t. And maybe she won’t.
 
 But what if they did?
 
-[https://www.youtube.com/watch?v=kPcul80-FMc](https://www.youtube.com/watch?v=kPcul80-FMc)
+[Watch on Youtube: Bruce Springsteen Pretty Flamingo with story 8/30/16 MetLife Stadium, NJ](https://www.youtube.com/watch?v=kPcul80-FMc)
 
 **Pretty Flamingo  
 First performed:** September 13, 1975 (Houston, TX)  
 **Last performed:** August 30, 2016 (East Rutherford, NJ)
-
- 

@@ -2,7 +2,7 @@ Bruce may have written it for a completely different context, but for my money t
 
 Dutch band Krezip recognized that from the start when they covered it for their New Years Eve performance a few months back on the television show *Matthijs Gaat Door*.
 
-[https://www.youtube.com/watch?v=clx51JZYu2Y](https://www.youtube.com/watch?v=clx51JZYu2Y)
+[Watch on Youtube: Krezip - The Rising | Matthijs Gaat Door](https://www.youtube.com/watch?v=clx51JZYu2Y)
 
 “The Rising” is an appropriate song for the band: Krezip started way back in 1997, and if you’re thinking that their lead singer Jacqueline Govaert looks way too young for that to be true, that’s because she started her band when she was in high school.
 
@@ -13,5 +13,3 @@ Now, with optimism on the rise and the end of this dark tunnel growing ever clos
 This is a great performance that pays tribute to Bruce’s original album arrangement but feels fresh and new at the same time.
 
 Keep that mask on, roll your sleeve up, get that shot, and come on up for The Rising.
-
- 

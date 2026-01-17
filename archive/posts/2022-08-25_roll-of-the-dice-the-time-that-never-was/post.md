@@ -6,7 +6,7 @@ Other than a studio log that referenced its title, no one even knew it existed u
 
 But oh, was it ever worth the wait.
 
-[https://www.youtube.com/watch?v=EGwvS9NpCoQ](https://www.youtube.com/watch?v=EGwvS9NpCoQ)
+[Watch on Youtube: The Time That Never Was (Studio Outtake - 1980)](https://www.youtube.com/watch?v=EGwvS9NpCoQ)
 
 “The Time That Never Was” is classic Darkness/River-era Springsteen. Lyrically, it explores the same themes as “The River,” but it’s paired with a lush, romantic backing track that would be right at home on *The Promise* (or the soundtrack to *Eddie and the Cruisers*, which is what this song constantly evokes for me).
 

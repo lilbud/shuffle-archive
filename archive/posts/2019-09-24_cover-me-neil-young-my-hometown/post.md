@@ -8,8 +8,8 @@ That album, *A Letter Home,* features an array of cover songs that Neil felt wou
 
 See for yourself–watch the video below, as Neil records the track directly to vinyl. If not for the specific references, you’d think it was recorded in the 1930s rather than in 2014.
 
-[https://www.youtube.com/watch?v=gS5SMdn3AB8](https://www.youtube.com/watch?v=gS5SMdn3AB8)
+[Watch on Youtube: Neil Young - My Hometown](https://www.youtube.com/watch?v=gS5SMdn3AB8)
 
-Bonus: on May 13, 2014, Neil and Jack made a guest appearance on *The Tonight Show*, where Neil discussed the inspiration for the album, and for “My Hometown” specifically, somehow segueing from there to Bruce and “Neil’s” cover of “[Whip My Hair](http://estreetshuffle.com/index.php/2019/09/05/matr-bruce-springsteen-and-jimmy-fallon-whip-my-hair/).”
+Bonus: on May 13, 2014, Neil and Jack made a guest appearance on *The Tonight Show*, where Neil discussed the inspiration for the album, and for “My Hometown” specifically, somehow segueing from there to Bruce and “Neil’s” cover of “[Whip My Hair](https://estreetshuffle.com/index.php/2019/09/05/matr-bruce-springsteen-and-jimmy-fallon-whip-my-hair/).”
 
-[https://www.youtube.com/watch?v=5GqFk97pmSw](https://www.youtube.com/watch?v=5GqFk97pmSw)
+[Watch on Youtube: Neil Young Recalls Jimmy's "Whip My Hair" Impression](https://www.youtube.com/watch?v=5GqFk97pmSw)

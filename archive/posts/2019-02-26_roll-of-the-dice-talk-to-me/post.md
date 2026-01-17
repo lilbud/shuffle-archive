@@ -4,15 +4,15 @@ If you’re lucky enough to get it at one of your shows, it means that Bruce is 
 
 Maybe he’ll pout adorably while his wife snubs him on stage, like in Tampa in 2012…
 
-[https://www.youtube.com/watch?v=O3vJ2-IZqME](https://www.youtube.com/watch?v=O3vJ2-IZqME)
+[Watch on Youtube: Talk to Me - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=O3vJ2-IZqME)
 
 …or maybe he’ll do a little bro-miserating with Southside Johnny (to whom Bruce originally gave the song way back in 1978), like he did in Madrid in 2013. (Seriously, watch this one, these two old friends crack me up every time. Poor Southside’s knees–that was just plain mean of Bruce.)
 
-[https://www.youtube.com/watch?v=LGCdvSrVZ8c](https://www.youtube.com/watch?v=LGCdvSrVZ8c)
+[Watch on Youtube: Bruce Springsteen & Southside Johnny | Talk To Me - Madrid - 17/06/2012 (Multicam/Dubbed)](https://www.youtube.com/watch?v=LGCdvSrVZ8c)
 
 Or maybe he’ll solicit a little enlightenment from the audience, like he did in Uncasville at the end of the High Hopes Tour. (New clip alert!)
 
-[https://www.youtube.com/watch?v=DPgxSDkNp7E](https://www.youtube.com/watch?v=DPgxSDkNp7E)
+[Watch on Youtube: Bruce Springsteen - "Talk to Me" - Uncasville, 2014-05-17](https://www.youtube.com/watch?v=DPgxSDkNp7E)
 
 For a man who professed every night on Broadway to be an expert at writing about experiences with which he had no direct experience, one nevertheless suspects from these “Talk to Me” performances that Bruce was more than passingly familiar with the situation he was spoofing. (It certainly rings true to me, and I have a *lot* of first-hand experience.)
 
@@ -22,7 +22,7 @@ Perhaps it’s because “Talk to Me” occupies such an obscure place in Bruce�
 
 Like many of Bruce’s classic songs, we can trace the origin of “Talk to Me” way back to a seemingly improvised vamp before breaking into “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” on Bruce’s 1976 “Lawsuit Tour.” (You’ll hear it around the 2:40 mark below.)
 
-[https://www.youtube.com/watch?v=j145EJBFIs4](https://www.youtube.com/watch?v=j145EJBFIs4)
+[Watch on Youtube: Bruce Springsteen - "She's the One" - Philadelphia, 1976-10-27](https://www.youtube.com/watch?v=j145EJBFIs4)
 
 The Lawsuit Tour earned its unofficial name from the legal battle between Bruce and former manager Mike Appel that kept Bruce out of the studio for the critical years that followed the release of Bruce’s breakthrough smash album, *Born to Run.* Bruce and the E Street Band had to stay on the road for almost two years in order to earn a living–hence the nickname that attached itself to the tour’s final legs.
 
@@ -30,17 +30,17 @@ Bruce finally got the legal green light to start recording again when he and App
 
 One of the earliest songs Bruce recorded during those sessions was “Talk to Me,” with takes logged as early as July. Musically, it appears that “Talk to Me” was in its final form early on–the backing track below dates back to August 1977. It’s missing Bruce’s vocals as well as the horns, but musically, it’s clearly the song we know and love. It’s worth listening to it all the way through just to appreciate how Roy’s prominent presence in the mix–he really gets a chance to shine here:
 
-[https://www.youtube.com/watch?v=0CbEa_Y8L9k](https://www.youtube.com/watch?v=0CbEa_Y8L9k)
+[Watch on Youtube: Bruce Springsteen - Talk To Me (instrumental)](https://www.youtube.com/watch?v=0CbEa_Y8L9k)
 
 Bruce and the E Street Band worked on the song all summer long and as late as mid-October, eventually landing on the finished track that Bruce would release…. *twenty-three years* later.
 
-[https://www.youtube.com/watch?v=KAbrO_SSq_E](https://www.youtube.com/watch?v=KAbrO_SSq_E)
+[Watch on Youtube: Talk to Me](https://www.youtube.com/watch?v=KAbrO_SSq_E)
 
 That’s right: Bruce sat on the song for almost a quarter of a century before releasing it on his 2010 album, *The Promise,* a collection of songs recorded during the Darkness sessions but that didn’t make it to the album.
 
-One listen to the song, and it’s obvious to see why “Talk to Me” didn’t make the *Darkness* cut. Like “[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/),” “[I Wanna Be With You](http://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/),” and “[Ain’t Good Enough for You](http://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/),” “Talk to Me” struck the wrong thematic chord. Bruce was writing and recording a number of light-hearted romantic (or anti-romantic) comedies, but ultimately he decided his next album would take a darker, more serious turn.
+One listen to the song, and it’s obvious to see why “Talk to Me” didn’t make the *Darkness* cut. Like “[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/),” “[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/),” and “[Ain’t Good Enough for You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/),” “Talk to Me” struck the wrong thematic chord. Bruce was writing and recording a number of light-hearted romantic (or anti-romantic) comedies, but ultimately he decided his next album would take a darker, more serious turn.
 
-But that only explains why “Talk to Me” didn’t surface on the *Darkness* album; it doesn’t explain why it didn’t make *The River* (where it would have been right at home alongside songs like “[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” and “I’m a Rocker”) or even the *Tracks* box set.
+But that only explains why “Talk to Me” didn’t surface on the *Darkness* album; it doesn’t explain why it didn’t make *The River* (where it would have been right at home alongside songs like “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” and “I’m a Rocker”) or even the *Tracks* box set.
 
 To answer that question, we need look no further than Bruce’s partner-in-crime in the Madrid clip above, Southside Johnny.
 
@@ -48,7 +48,7 @@ When Bruce realized “Talk to Me” wasn’t going to see the light of day on h
 
 “Talk to Me” became the centerpiece of *Hearts of Stone*, as well as its lead single (although it failed to chart).
 
-[https://www.youtube.com/watch?v=XjgKpNOtqGc](https://www.youtube.com/watch?v=XjgKpNOtqGc)
+[Watch on Youtube: Talk to Me](https://www.youtube.com/watch?v=XjgKpNOtqGc)
 
 If that backing track sounds awfully similar to Bruce’s version, there are two good reasons for that: not only did Bruce gift the song itself to Southside, he also gave him the backing track from the E Street Band’s recording session.
 
@@ -91,7 +91,7 @@ Let’s just enjoy the song as a light-hearted romp and laugh at the goofy self-
 
 **Bonus:** if you want to hear a great Bruce and Southside team-up on “Talk to Me” minus the mid-song comedic break, take a listen to this fantastic holiday show performance from 2003.
 
-[https://www.youtube.com/watch?v=xabSr3O3zfo](https://www.youtube.com/watch?v=xabSr3O3zfo)
+[Watch on Youtube: Southside Johnny & Bruce Springsteen - Talk To Me 2003](https://www.youtube.com/watch?v=xabSr3O3zfo)
 
 **Talk to Me**  
 **Recorded:** July-October 1977  
@@ -99,4 +99,4 @@ Let’s just enjoy the song as a light-hearted romp and laugh at the goofy self-
 **First performed:** September 26, 1991 (Asbury Park, NJ)  
 **Last performed:** November 16, 2019 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

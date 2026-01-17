@@ -14,7 +14,7 @@ The travel itself was smooth, but on the day of the show, luck threw me a curveb
 
 So yeah, I wasn’t in a great mood before the show: I’d spent more money than I’d planned to, and I’d been spoiled for so long that I hadn’t even considered the possibility that I’d be shut out on the floor. But then, while I was stewing about my rotten luck, I noticed we could hear the sound check… and I couldn’t believe what I was hearing:
 
-[https://www.youtube.com/watch?v=6L4kMZsy6-E](https://www.youtube.com/watch?v=6L4kMZsy6-E)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - When You Walk In The Room | Rehearsal- St. Louis 2008| audio](https://www.youtube.com/watch?v=6L4kMZsy6-E)
 
 “[When You Walk in the Room](https://estreetshuffle.com/index.php/2020/10/08/cover-me-when-you-walk-in-the-room/)” hadn’t been played in *32 years*, and it was one of my favorite covers from the Born to Run Tour bootlegs. My grumpiness vanished instantly–if that was a hint of what was to come, I didn’t care where the heck I was sitting as long as I was in the house.
 
@@ -28,23 +28,23 @@ Bruce was opening the show with a cover of The Crystals’ “[Then (S)he Kissed
 
 Holy. Freaking. Moley.
 
-[https://www.youtube.com/watch?v=Y0GfHJGmLQ8](https://www.youtube.com/watch?v=Y0GfHJGmLQ8)
+[Watch on Youtube: Then She Kissed Me ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=Y0GfHJGmLQ8)
 
-Bruce rocketed from there into “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/),” the usual opener, and then into “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/),” “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/),” and “[Spirit in the Night](http://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/).”
+Bruce rocketed from there into “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/),” the usual opener, and then into “[Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/),” “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/),” and “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/).”
 
-[https://www.youtube.com/watch?v=LueDvFdv3VI](https://www.youtube.com/watch?v=LueDvFdv3VI)
+[Watch on Youtube: Adam Raised a Cain ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=LueDvFdv3VI)
 
-[https://www.youtube.com/watch?v=OJhrUKCwxiw](https://www.youtube.com/watch?v=OJhrUKCwxiw)
+[Watch on Youtube: Springsteen - St. Louis - Spirit in the Night - Short Clip](https://www.youtube.com/watch?v=OJhrUKCwxiw)
 
-Then it was sign collection time–and there were some *great* ones down on the floor. I sent silent thanks to my would-be pit comrades and hoped and wished for Bruce to pick the gems. But from my vantage points, the only signs Bruce was grabbing that I could read were for old faithfuls like “[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/),” “[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/),” and “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/).” Any of them would be wonderful additions to the setlist, but all of them were semi-regulars already. Maybe this wild card block would prove to be a dud?
+Then it was sign collection time–and there were some *great* ones down on the floor. I sent silent thanks to my would-be pit comrades and hoped and wished for Bruce to pick the gems. But from my vantage points, the only signs Bruce was grabbing that I could read were for old faithfuls like “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/),” “[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/),” and “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/).” Any of them would be wonderful additions to the setlist, but all of them were semi-regulars already. Maybe this wild card block would prove to be a dud?
 
 Then Bruce chose his first sign, and boom: “[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)” — my first time hearing it, and one of my absolute favorites from *Tracks*.
 
-[https://www.youtube.com/watch?v=XYGsL513wfY](https://www.youtube.com/watch?v=XYGsL513wfY)
+[Watch on Youtube: Rendezvous ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=XYGsL513wfY)
 
 Next up: “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/),” but before he played it, Bruce put on a mischievous smile and promised that after that song, we’d play “Challenge the Band!” I spent much of the song wondering what was going to happen next.
 
-[https://www.youtube.com/watch?v=CF1wVUe2WV8](https://www.youtube.com/watch?v=CF1wVUe2WV8)
+[Watch on Youtube: For You ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=CF1wVUe2WV8)
 
 Here’s what happened next: Bruce kept the next sign close to his vest while he explained that since he’d started taking requests earlier in the tour, fans had gotten pretty “sassy,” trying their best to stump him and the band with obscurity after obscurity. Bruce clearly relished the game, declaring “the elephant never forgets!” And then he revealed not one but two (!) signs for “[Mountain of Love.](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)”
 
@@ -54,29 +54,29 @@ My very first bootleg–the one that got me started on this whole obsessions–w
 
 Bruce spent so much time figuring out the song with the band that I started to worry he was going to abandon it–but after a long minute or two, they’d worked it out and launched into a perfect performance, as if they’d never stopped playing it after the Born to Run Tour.
 
-[https://www.youtube.com/watch?v=VtrYk0ojaN0](https://www.youtube.com/watch?v=VtrYk0ojaN0)
+[Watch on Youtube: Mountain of Love ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=VtrYk0ojaN0)
 
 We were now eight songs in, and if you counted the soundcheck, I’d already heard three songs that Bruce hadn’t performed in over three decades, and four songs I’d never heard live.
 
 But like I said: Bruce was just getting started. “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” was next, by request–the first time I’d heard it played so early in the show. Gem after gem after gem.
 
-[https://www.youtube.com/watch?v=JwSys21op4Y](https://www.youtube.com/watch?v=JwSys21op4Y)
+[Watch on Youtube: Backstreets ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=JwSys21op4Y)
 
-The show returned to earth after that, but in a show like this, that just meant the surprises were smaller ones: “[Gypsy Biker](http://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)” returned after being absent for almost two months, and while “Because the Night” led to its customary “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” follow-up, Bruce stunned us with yet *another* old-school mini-throwback, teasing us with a little “[Not Fade Away](http://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)” during the “She’s the One” intro like he used to back in the seventies. Bruce was feeling *seriously* nostalgic, it seemed.
+The show returned to earth after that, but in a show like this, that just meant the surprises were smaller ones: “[Gypsy Biker](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)” returned after being absent for almost two months, and while “Because the Night” led to its customary “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” follow-up, Bruce stunned us with yet *another* old-school mini-throwback, teasing us with a little “[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)” during the “She’s the One” intro like he used to back in the seventies. Bruce was feeling *seriously* nostalgic, it seemed.
 
 After “[Livin’ in the Future](https://estreetshuffle.com/index.php/2023/06/24/roll-of-the-dice-livin-in-the-future/),” the band played “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/),” another personal premiere for me (and honestly, one that I could have done without–if I ranked every song Bruce ever released, “Cover Me” would be at the very bottom. But I appreciated the rarity factor, and the crowd ate it up.)
 
-And then after “[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/),” when I’d long since decided the show couldn’t possibly top the wild card sign requests, Bruce took one more and played my very first “[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/).” I recognized those piano notes instantly, and I was so stunned I couldn’t even react. “Drive All Night” at the time was my most-wished-for song, and even though I knew he recently played it in Europe, I didn’t expect to hear it here. It was absolutely glorious, one of those time-stands-still moments that I remember vividly to this day.
+And then after “[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/),” when I’d long since decided the show couldn’t possibly top the wild card sign requests, Bruce took one more and played my very first “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/).” I recognized those piano notes instantly, and I was so stunned I couldn’t even react. “Drive All Night” at the time was my most-wished-for song, and even though I knew he recently played it in Europe, I didn’t expect to hear it here. It was absolutely glorious, one of those time-stands-still moments that I remember vividly to this day.
 
-[https://www.youtube.com/watch?v=sk79Bgl_7Ms](https://www.youtube.com/watch?v=sk79Bgl_7Ms)
+[Watch on Youtube: Drive All Night ~ Bruce Springsteen St Louis 8/23/2008](https://www.youtube.com/watch?v=sk79Bgl_7Ms)
 
-Finally, the show came in for its final approach, finishing the main set with the traditional block of “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/),” “Last to Die,” “[Long Walk Home,](http://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” and “[Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” (with not one but *two* false endings). But I had faith that Bruce was going to make sure that the encores measured up to the amazing main set.
+Finally, the show came in for its final approach, finishing the main set with the traditional block of “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/),” “Last to Die,” “[Long Walk Home,](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” and “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” (with not one but *two* false endings). But I had faith that Bruce was going to make sure that the encores measured up to the amazing main set.
 
-First up was “[Girls in Their Summer Clothes,](http://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)” always a highlight for me. But immediately after, Bruce once gain ventured into audible territory, taking a sign request for “Jungleland.”
+First up was “[Girls in Their Summer Clothes,](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)” always a highlight for me. But immediately after, Bruce once gain ventured into audible territory, taking a sign request for “Jungleland.”
 
-Let me just pause for a minute and point out: we had by this point had “Backstreets, “Drive All Night,” and “Jungleland” all in one show. Most fans are grateful if they get even one “epic” song per show–we had all three. But that also worried me a bit: usually when “Jungleland” appears in the encores, it essentially takes the place of two songs because of its length. Would this turn out to be an abbreviated encore set? Far from it: Bruce immediately launched into rocking “[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/),” and since we knew the “Born to Run,” “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” and “[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)” standards were sure to follow (they did), it was clear we were getting a full-length encore–maybe even a final song after “American Land,” as Bruce had started to do on this leg.
+Let me just pause for a minute and point out: we had by this point had “Backstreets, “Drive All Night,” and “Jungleland” all in one show. Most fans are grateful if they get even one “epic” song per show–we had all three. But that also worried me a bit: usually when “Jungleland” appears in the encores, it essentially takes the place of two songs because of its length. Would this turn out to be an abbreviated encore set? Far from it: Bruce immediately launched into rocking “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/),” and since we knew the “Born to Run,” “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” and “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)” standards were sure to follow (they did), it was clear we were getting a full-length encore–maybe even a final song after “American Land,” as Bruce had started to do on this leg.
 
-[https://www.youtube.com/watch?v=wNTL5cx2rME](https://www.youtube.com/watch?v=wNTL5cx2rME)
+[Watch on Youtube: Springsteen St Louis 8/23/08- Dancing in the Dark](https://www.youtube.com/watch?v=wNTL5cx2rME)
 
 Well, we didn’t get a final song after “American Land.”
 
@@ -84,15 +84,15 @@ We got *three*. Bruce just would not stop playing, and we didn’t want him to.
 
 First up: a “Thunder Road” request and dedication, going out to Olympian Michael Phelps.
 
-[https://www.youtube.com/watch?v=CKDy3JF124Q](https://www.youtube.com/watch?v=CKDy3JF124Q)
+[Watch on Youtube: Springsteen Thunder Road St Louis 8/23/08](https://www.youtube.com/watch?v=CKDy3JF124Q)
 
-Then–just when it seemed the band had taken their final bows, Bruce caught a sign for “[Little Queenie](http://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)” in the stands and launched into a loose-as-a-goose rendition that didn’t seem like it would *ever* end.
+Then–just when it seemed the band had taken their final bows, Bruce caught a sign for “[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)” in the stands and launched into a loose-as-a-goose rendition that didn’t seem like it would *ever* end.
 
-[https://www.youtube.com/watch?v=oncRaQa76qA](https://www.youtube.com/watch?v=oncRaQa76qA)
+[Watch on Youtube: Bruce Springsteen -- LITTLE QUEENIE --- St. Louis 2008](https://www.youtube.com/watch?v=oncRaQa76qA)
 
 Surely *that* was the end–but no, Bruce had one last dedication to make, this time for Sophie Satanovsky, who was in the stands and caught Bruce’s eye throughout the show. (See the video below for Sophie’s story–one of the classic “Legends of Springsteen” installments.) 
 
-[https://www.youtube.com/watch?v=ezPRW1wt0NE](https://www.youtube.com/watch?v=ezPRW1wt0NE)
+[Watch on Youtube: Springsteen - The Satanovskys & St. Louis Movie - 1/27/81](https://www.youtube.com/watch?v=ezPRW1wt0NE)
 
 The band exchanged bemused glances–how long exactly was Bruce intending to keep them on-stage? A final “Twist and Shout” later, the show was finally over, but not the night–I wandered into a local bar and relived the show with fellow fans, all of us amazed at what we’d just witnessed.
 
@@ -107,7 +107,3 @@ Oh, and I never did get to hear “When You Walk in the Room” that night. Bruc
 **Bonus:** Here’s another soundcheck highlight–I’m glad I didn’t hear this one at the time, or it would have spoiled the first surprise.
 
 https://youtu.be/geYTbeoe2Lc
-
- 
-
- 

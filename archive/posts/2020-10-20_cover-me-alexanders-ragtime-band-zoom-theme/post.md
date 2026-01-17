@@ -8,7 +8,7 @@ The thing is: by no stretch is “Zoom Theme” an original Springsteen song. Re
 
 Here’s the original, first recorded by Arthur Collins and Byron Harlan in 1911.
 
-[https://www.youtube.com/watch?v=x9VGvaDRxNQ](https://www.youtube.com/watch?v=x9VGvaDRxNQ)
+[Watch on Youtube: 1911 Collins and Harlan - Alexander’s Ragtime Band](https://www.youtube.com/watch?v=x9VGvaDRxNQ)
 
 That recording was an instant smash success. For ten solid weeks, it was the most popular song in the United States, and it kicked off an entire ragtime craze.
 
@@ -20,7 +20,7 @@ Nevertheless, when Bruce adopted his Dr. Zoom persona in the spring of 1971 and 
 
 The recording quality is just fine, mind you, but the performance–well, let’s just say Dr. Zoom and the Sonic Boom were known for embracing the absurd.
 
-[https://www.youtube.com/watch?v=lFLAhgH-E1A](https://www.youtube.com/watch?v=lFLAhgH-E1A)
+[Watch on Youtube: zoom theme ( a rewrite of Irving Berlin's "Alexander's Ragtime Band".)](https://www.youtube.com/watch?v=lFLAhgH-E1A)
 
 See what I mean? The only thing re-written about it is the song’s title refrain, and the performance… well, it’s not completely without merit, I suppose: “Funky” Garry Tallent gets a rare moment in the spotlight on this tuba-led arrangement.
 
@@ -29,5 +29,3 @@ Other than that, though… well, let’s just agree to treat this as a cover rat
 **Alexander’s Ragtime Band (Zoom Theme)  
 First performed:** May 14, 1971 (Asbury Park, NJ)  
 **Last performed:** May 15, 1971 (Union, NJ)
-
- 

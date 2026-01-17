@@ -4,7 +4,7 @@ How talented a songwriter is Bruce Springsteen?
 
 So talented that he can write and record a killer pop song and later have zero recollection of ever having done so.
 
-[https://www.youtube.com/watch?v=IDbWHINPY0Q](https://www.youtube.com/watch?v=IDbWHINPY0Q)
+[Watch on Youtube: Give The Girl A Kiss (Studio Outtake - 1977)](https://www.youtube.com/watch?v=IDbWHINPY0Q)
 
 That *Rolling Stone* quote wasn’t a joke: Bruce admitted to Mark Hagen in the January 1999 issue of *Mojo*, “I didn’t even know that ‘Give the Girl a Kiss’ existed… wow, that’s pretty, that’s fun.”
 
@@ -14,13 +14,13 @@ So it’s a little hard to definitively pin down the inspiration for the song, w
 
 Still, it seems highly likely that “Give the Girl a Kiss” was inspired at least in part by “Give Him a Great Big Kiss,” which The Shangri-Las took to #18 in 1964.
 
-[https://www.youtube.com/watch?v=o-NhojnwMh8](https://www.youtube.com/watch?v=o-NhojnwMh8)
+[Watch on Youtube: The Shangri-Las - Give Him A Great Big Kiss](https://www.youtube.com/watch?v=o-NhojnwMh8)
 
 Although the songs are different in style, the similar titles and choruses (“Tell her that you love her, tell her that you need her” vs. “Tell him that I love him, tell him that I care”) are a pretty unmistakable hat tip.
 
 Musically and stylistically though, “Give the Girl a Kiss” owes more to contemporary Springsteen originals like “So Young and in Love,” “[Paradise by the C,](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/)” and and “[Action in the Streets](https://estreetshuffle.com/index.php/2022/06/27/roll-of-the-dice-action-in-the-streets/)” (which are all basically the same song anyway).
 
-[https://www.youtube.com/watch?v=lyo0rHLAP8s](https://www.youtube.com/watch?v=lyo0rHLAP8s)
+[Watch on Youtube: So Young And In Love (Studio Outtake - 1974)](https://www.youtube.com/watch?v=lyo0rHLAP8s)
 
 But oh, those lyrics: pure pop perfection.
 
@@ -50,13 +50,13 @@ But oh, those lyrics: pure pop perfection.
 
 The romantic pep talk is a recipe that never fails. It’s a girl group staple (and we know Bruce loves his girl groups), not only for The Shangri-Las but also notably for The Exciters.
 
-[https://www.youtube.com/watch?v=G2sH6h0ViDg](https://www.youtube.com/watch?v=G2sH6h0ViDg)
+[Watch on Youtube: The Exciters - Tell Him](https://www.youtube.com/watch?v=G2sH6h0ViDg)
 
 (That song would go on to have special significance for Bruce after he was struck by a red-headed woman performing it in a club one night, but that would be a few years up the road.)
 
 Billy Joel would try his hand at a similar confection a few years later as well.
 
-[https://www.youtube.com/watch?v=p0pM5dm--yQ](https://www.youtube.com/watch?v=p0pM5dm--yQ)
+[Watch on Youtube: Billy Joel - Tell Her About It (Official Video)](https://www.youtube.com/watch?v=p0pM5dm--yQ)
 
 But Bruce distilled the recipe down to its one essential ingredient: the kiss. And in combining those almost-exasperated lyrics with an ultra-carefree, swinging melody, he conjures a protagonist that comes off as encouraging rather than frustrated.
 
@@ -95,7 +95,7 @@ Once “Give the Girl a Kiss” was officially released on *Tracks,* Bruce waste
 
 If he meant it didn’t fit with the album’s theme, well, duh. But if Bruce doubted “Give the Girl a Kiss” as a piece of power pop, he needn’t have worried. Watch this delightful debut build to a hilariously comical (and obviously pre-planned) climax:
 
-[https://www.youtube.com/watch?v=DJbzwgaln84](https://www.youtube.com/watch?v=DJbzwgaln84)
+[Watch on Youtube: Give The Girl A Kiss Bruce Springsteen (NJ 1999)](https://www.youtube.com/watch?v=DJbzwgaln84)
 
 With a debut like that, why did “Give the Girl a Kiss” disappear for a decade after only two outings on the Reunion Tour? I have no idea–perhaps Bruce simply forgot about it again. We didn’t hear it again until Bruce’s 2009 show in Hershey, and even then it was only in response to a venue-appropriate sign request.
 
@@ -103,7 +103,7 @@ But Bruce’s best “Give the Girl a Kiss” was his last one, this time on the
 
 Watch this wonderful performance from Charlottesville in 2012, featuring a loose Bruce at his funniest, and get your signs ready for the next tour–because we need to hear “Give the Girl a Kiss” again soon.
 
-[https://www.youtube.com/watch?v=YN6n0O00DMQ](https://www.youtube.com/watch?v=YN6n0O00DMQ)
+[Watch on Youtube: Bruce Springsteen - Give The Girl A Kiss (ALL) - Charlottesville-10/23/12](https://www.youtube.com/watch?v=YN6n0O00DMQ)
 
 (As of this writing, lovestreet.com is still available.)
 
@@ -113,4 +113,4 @@ Recorded:** November 10, 1977 (brass recorded in 1998)
 **First performed:** March 19, 1999 (Asbury Park, NJ)  
 **Last performed:** October 23, 2012 (Charlottesville, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

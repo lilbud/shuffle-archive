@@ -1,6 +1,6 @@
 We can hear the E Street connection in Garland Jeffreys’ “R.O.C.K.” from its very first notes–that’s Roy Bittan featured prominently on piano throughout.
 
-[https://www.youtube.com/watch?v=p4fpSxuTc7c](https://www.youtube.com/watch?v=p4fpSxuTc7c)
+[Watch on Youtube: Garland Jeffreys - R.O.C.K](https://www.youtube.com/watch?v=p4fpSxuTc7c)
 
 Buried deep on Jeffreys’ 1981 album *Escape Artist* (produced by Bob Clearmountain and featuring Danny Federici’s keyboards as well as Roy’s piano), “R.O.C.K.” is an irresistible anthem that demands to be played at full volume.
 
@@ -10,7 +10,7 @@ Or to be more accurate, they played it three times, once nightly during Bruce’
 
 Here’s a wonderful clip from the second night, with Garland and Bruce backed by The Max Weinberg 7.
 
-[https://videopress.com/embed/4WU9SDS9](https://videopress.com/embed/4WU9SDS9)
+[Watch Video Highlight](https://videopress.com/embed/4WU9SDS9)
 
 Bruce and Garland certainly lifted the show, and you can clearly sense their mutual esteem and affection.
 

@@ -14,19 +14,17 @@ In December a core group of artists recorded the backing track, and on January 1
 
 Once the backing track and “choir” were captured, local legends contributed their talents for vocal and instrumental solos. Bruce and Clarence contributed instantly recognizable guitar and sax solos, and as for spotlight vocalists, see how many you can recognize.
 
-[https://www.youtube.com/watch?v=cEvOLMT9v_w](https://www.youtube.com/watch?v=cEvOLMT9v_w)
+[Watch on Youtube: We got the love by J.A.M. 86](https://www.youtube.com/watch?v=cEvOLMT9v_w)
 
 The single was released on May 16, 1986 and garnered national media attention, largely thanks to Bruce’s participation.
 
-[https://www.youtube.com/watch?v=3jTWHPBsRdw](https://www.youtube.com/watch?v=3jTWHPBsRdw)
+[Watch on Youtube: U68: JAM '86 News Story [1986]](https://www.youtube.com/watch?v=3jTWHPBsRdw)
 
 Jersey Artists for Mankind remained active through the remainder of the decade, assembling in various combinations and venues to continue their mission to combat local hunger, but they never again received the media spotlight that greeted the release of their 1986 single.
 
-[https://www.youtube.com/watch?v=BjHyHfCrBPI](https://www.youtube.com/watch?v=BjHyHfCrBPI)
+[Watch on Youtube: JERSEY ARTISTS FOR MANKIND - We've got the love](https://www.youtube.com/watch?v=BjHyHfCrBPI)
 
 **We’ve Got the Power  
 Recorded:** December 1985-February 1986  
 **Released:** *We’ve Got the Power* (single, 1986)  
 **Never performed live**
-
- 

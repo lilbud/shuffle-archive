@@ -8,11 +8,11 @@ Summoning Nils, Garry, Southside Johnny, Soozie, Patti, and Lisa Lowell all to t
 
 Willams’ 1952 original was a massive hit, topping the country charts for fourteen weeks. An ode to Cajun food, drink, and revelry, the song quickly became a genre standard covered by every one from Elvis to Garth Brooks.
 
-[https://www.youtube.com/watch?v=A1SFjLOr4QE](https://www.youtube.com/watch?v=A1SFjLOr4QE)
+[Watch on Youtube: Jambalaya (On The Bayou)](https://www.youtube.com/watch?v=A1SFjLOr4QE)
 
 As for the version by Bruce and company: it’s loose, fun, and clearly improvised, with Bruce calling out solos for Soozie and Southside and arranging on the spot in fine Seeger Sessions fashion–which isn’t surprising, because although that album was still six years in the future, the first recording session for it was actually a couple of years in the past.
 
-[https://www.youtube.com/watch?v=fukHYvvT7B0](https://www.youtube.com/watch?v=fukHYvvT7B0)
+[Watch on Youtube: Bruce Springsteen - JAMBALAYA (ON THE BAYOU) 2000 (audio)](https://www.youtube.com/watch?v=fukHYvvT7B0)
 
 The band that gave rise to the Sessions Band–The Gotham Playboys–actually played “Jambalaya (On the Bayou)” with Bruce at his birthday party in 1998, so maybe that’s what was in Bruce’s mind that December day in 2000.
 

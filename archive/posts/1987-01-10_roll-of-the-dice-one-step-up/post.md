@@ -8,7 +8,7 @@ Bruce plays every instrument on the track (guitar, bass, mandolin, keyboards, ha
 
 Even the official video is outstanding. Bruce’s videos don’t always measure up to the bar set by the songs that inspire them, but the video for “One Step Up” is soul-piercing, thanks almost entirely to the close-ups of Bruce’s face, so authentically torn, tempted, mournful, and guilt-ridden that one has to wonder if he was acting or genuinely feeling.
 
-[https://www.youtube.com/watch?v=MkFQHScyti0](https://www.youtube.com/watch?v=MkFQHScyti0)
+[Watch on Youtube: Bruce Springsteen - One Step Up (Official Video)](https://www.youtube.com/watch?v=MkFQHScyti0)
 
 We know that Bruce wrote “One Step Up” during the time his brief marriage to Julianne Phillips was deteriorating, so it’s tempting to label the song as autobiographical. But I shy away from making assumptions like that–let’s just say that “One Step Up” was inspired by the inner conflict and dialogue that probably preoccupied him during that time, whether the events were literal or not.
 
@@ -122,7 +122,7 @@ The sign caught Patti’s eye long before it caught Bruce’s, and she lobbied h
 
 The performance that followed was magical. Bruce started the song solo, calling for the band to come in “easy” after the first verse. On the final verse, Bruce seemed to lose himself in the song, locking his eyes on his wife across the stage as they sang the coda.
 
-[https://www.youtube.com/watch?v=neVEk4pdmkY](https://www.youtube.com/watch?v=neVEk4pdmkY)
+[Watch on Youtube: Bruce Springsteen - One Step Up](https://www.youtube.com/watch?v=neVEk4pdmkY)
 
 If you were in the room with us, you’d have known–like we did–that Bruce was going to call his wife to his side even before he did so. The video above can’t quite capture the emotion we all felt between them, but you can clearly hear the crowd recognize it as Patti walked over to her husband.
 

@@ -6,7 +6,7 @@ And yet, *Tunnel of Love* is truly one of Bruce Springsteen’s most thematicall
 
 *Tunnel of Love* is about choices.
 
-[https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU](https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
+[Watch on Youtube: Tunnel of Love](https://www.youtube.com/playlist?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
 
 It’s about the choices we make in life. Have we made the right ones? What do we do when we realize we’ve made the wrong ones? What if we never know? What if we simply refuse to choose?
 
@@ -16,7 +16,7 @@ Without exception, every song on *Tunnel of Love* concerns the consequences of c
 
 Over the weeks and months that followed, Bruce recorded song after song, all in *Nebraska* fashion at home by himself. (He’d eventually ask his bandmates to contribute overdubs to fill out the tracks.)
 
-[https://www.youtube.com/watch?v=Ms1q_1m69ng](https://www.youtube.com/watch?v=Ms1q_1m69ng)
+[Watch on Youtube: Bruce Springsteen: Inside Tunnel of Love on VH1 1988](https://www.youtube.com/watch?v=Ms1q_1m69ng)
 
 At first, the songs featured optimism, or at least acceptance.
 
@@ -44,7 +44,9 @@ By the time these songs were in the can, Bruce and his first wife Julianne Phill
 - “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/),” the title track that celebrates the bravery of committing to love when you’ve had enough experience to understand exactly what that entails
 
 
-[https://videopress.com/embed/pXf5J7uB](https://videopress.com/embed/pXf5J7uB)
+[Watch Video Highlight](https://videopress.com/embed/pXf5J7uB)
+
+
 
 When it was released in October 1987, *Tunnel of Love* earned critical acclaim for its introspective content on the heels of Bruce’s previous album, the poppy, mega-hit *Born in the U.S.A.* Its first two singles (“Brilliant Disguise” and “Tunnel of Love”) cracked the Top Ten, and “One Step Up” peaked at #13. The album itself went to #1 in the U.S. and the U.K. and was eventually certified triple platinum.
 

@@ -6,7 +6,7 @@ The honor goes to 10,000 Maniacs, who took the song to #11 in 1994, two notches 
 
 10,000 Maniacs recorded the song live during their *MTV Unplugged* performance in 1993, just before Natalie Merchant left the band to go solo. To this day, it remains their greatest hit.
 
-[https://videopress.com/embed/uQIQAQCA](https://videopress.com/embed/uQIQAQCA)
+[Watch Video Highlight](https://videopress.com/embed/uQIQAQCA)
 
 But what do you do when your greatest hit comes right at the moment when your lead singer quits?
 
@@ -14,8 +14,8 @@ You go on, of course. The band hired Mary Ramsey to replace Natalie Merchant, an
 
 In fact, 10,000 Maniacs released a *second* official release of “Because the Night,” this time with Ramsey on lead vocals and viola, and it’s pretty great. In fact, I like it even better than Merchant’s version.
 
-[https://www.youtube.com/watch?v=aVn-0HJ6c34](https://www.youtube.com/watch?v=aVn-0HJ6c34)
+[Watch on Youtube: Because The Night (Live)](https://www.youtube.com/watch?v=aVn-0HJ6c34)
 
 10,000 Maniac still performs “Because the Night” in concert, and it’s become a highlight of their shows. I’ll leave you with a great video from one of their most recent shows, at Mohegan Sun Casino on February 6, 2020.
 
-[https://www.youtube.com/watch?v=7WapYN6bVJo](https://www.youtube.com/watch?v=7WapYN6bVJo)
+[Watch on Youtube: 10,000 Maniacs - Because The Night (Bruce Springsteen cover) - 2/8/20 - Mohegan Sun - Wolf Den - CT](https://www.youtube.com/watch?v=7WapYN6bVJo)

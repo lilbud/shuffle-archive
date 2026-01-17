@@ -2,7 +2,7 @@ In late 1987, Bruce signed on to a Woody Guthrie tribute project called *Folkway
 
 Bruce contributed not one but two songs to the project: We looked at the first one (“[I Ain’t Got No Home](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)“) a few years ago. Today we take a listen to the second–a reworking of Woody’s “Vigilante Man.”
 
-[https://www.youtube.com/watch?v=EcKbeSPE-uA](https://www.youtube.com/watch?v=EcKbeSPE-uA)
+[Watch on Youtube: Vigilante Man - Woody Guthrie](https://www.youtube.com/watch?v=EcKbeSPE-uA)
 
 As Guthrie originally conceived it, “Vigilante Man” was set in the same period as *The Grapes of Wrath.* The titular vigilantes were self-appointed “defenders” against the migrant workers fleeing the dust bowl for the promised land of California.
 
@@ -59,13 +59,13 @@ Musically, though, Bruce completely reinvents the song as a taut, suspenseful ro
 
 It’s a terrific E Street Band recording, and the last one before Bruce put the band on hiatus. Yet it’s one of Bruce’s most under-the-radar tracks, with many fans unaware of its existence even though it merited an official music video, too.
 
-[https://www.youtube.com/watch?v=eKXILNMXxs0?start=2](https://www.youtube.com/watch?v=eKXILNMXxs0?start=2)
+[Watch on Youtube: Bruce Springsteen - Vigilante Man](https://www.youtube.com/watch?v=eKXILNMXxs0?start=2)
 
 That video was filmed at a soundcheck at Madison Square Garden on May 19, 1988. Bruce officially debuted the song later that night, and he played it during the next two shows as well.
 
 But other than a one-off in the UK a month later, we haven’t heard from “Vigilante Man” since. Here’s Bruce’s last performance of Guthrie’s reinvented classic–an expanded, five-and-a-half-minute performance from Bruce’s Tunnel of Love show in Birmingham.
 
-[https://www.youtube.com/watch?v=YemLdhH1Ev8](https://www.youtube.com/watch?v=YemLdhH1Ev8)
+[Watch on Youtube: Vigilante Man - Bruce Springsteen (21-06-1988 Villa Park, Birmingham, England)](https://www.youtube.com/watch?v=YemLdhH1Ev8)
 
 **Vigilante Man  
 Recorded:** Late 1987 – Early 1988  

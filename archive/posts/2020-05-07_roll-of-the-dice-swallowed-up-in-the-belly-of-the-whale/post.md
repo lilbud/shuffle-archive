@@ -4,9 +4,9 @@ When it’s the album’s summational track.
 
 That’s arguably the case with “Swallowed Up (In the Belly of the Whale),” which Bruce appended to the special edition of his [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)album in 2011.
 
-*Wrecking Ball* is not only one of Bruce’s most cohesive albums, it’s the one with the strongest narrative arc. Starting off defiantly with the anthemic “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/),” Bruce descends from anger to surrender, bottoming out with “[This Depression](http://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)” before climbing out towards “[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” and closing with the eternal “[We Are Alive](http://estreetshuffle.com/index.php/2018/09/15/roll-of-the-dice-we-are-alive/).”
+*Wrecking Ball* is not only one of Bruce’s most cohesive albums, it’s the one with the strongest narrative arc. Starting off defiantly with the anthemic “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/),” Bruce descends from anger to surrender, bottoming out with “[This Depression](https://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)” before climbing out towards “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” and closing with the eternal “[We Are Alive](https://estreetshuffle.com/index.php/2018/09/15/roll-of-the-dice-we-are-alive/).”
 
-And then, almost as an afterthought, comes two bonus tracks: “Swallowed Up (In the Belly of the Whale)” and “[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/).”
+And then, almost as an afterthought, comes two bonus tracks: “Swallowed Up (In the Belly of the Whale)” and “[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/).”
 
 The latter makes sense as a bonus track–although it’s not a completely square peg in the album’s roundly economic theme, Bruce had already given it an official release as a live performance back in 2006.
 
@@ -18,7 +18,7 @@ By contrast, “Swallowed Up” packs just as much emotional wallop without ever
 
 Let’s take a listen. But first–and I know I say this often, but this time it’s *really* necessary–put on your headphones. and turn up the volume. And if you can, turn out the lights.
 
-[https://www.youtube.com/watch?v=LboAVgvL_jc](https://www.youtube.com/watch?v=LboAVgvL_jc)
+[Watch on Youtube: Swallowed Up (In The Belly Of The Whale)](https://www.youtube.com/watch?v=LboAVgvL_jc)
 
 “Swallowed Up” is so intimate that we can actually hear the ambiance of the room Bruce recorded it in. If you listen clearly, even in the song’s opening measures, you can hear every movement Bruce makes, every tap of a fingertip against his guitar.
 
@@ -80,4 +80,4 @@ Recorded:** 2011
 **Released:** *Wrecking Ball* (2012)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

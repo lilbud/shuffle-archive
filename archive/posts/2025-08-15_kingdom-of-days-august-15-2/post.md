@@ -4,7 +4,7 @@
 
 **1975:** On Night Three of Bruce’s legendary stand at New York City’s Bottom Line, the early show is broadcast live on WNEW-FM, resulting in one of Bruce’s most widely bootlegged shows ever. Listen to that historic broadcast below.
 
-[https://www.youtube.com/playlist?list=PLmxwNSnqgfedcTVTpET4evBCavu-lOISm](https://www.youtube.com/playlist?list=PLmxwNSnqgfedcTVTpET4evBCavu-lOISm)
+[Watch on Youtube: Bruce Springsteen - "The punk meets the godfather"](https://www.youtube.com/playlist?list=PLmxwNSnqgfedcTVTpET4evBCavu-lOISm)
 
 There’s no audio from the late show, and that’s too bad: it features the last known performance of “New York City Serenade” for 24 years.
 
@@ -12,52 +12,52 @@ There’s no audio from the late show, and that’s too bad: it features the las
 
 **1978:** Bruce and the E Street Band deliver a scorching performance at Washington DC’s Capital Center (actually in Largo, Maryland)–and we know just how good it was because we can see for ourselves: this show is captured in stunning quality (for the time). Watch below to see the E Street Band at the height of their powers.
 
-[https://videopress.com/embed/YnjIaFFn](https://videopress.com/embed/YnjIaFFn)
+[Watch Video Highlight](https://videopress.com/embed/YnjIaFFn)
 
-[https://videopress.com/embed/j6U6TOXs](https://videopress.com/embed/j6U6TOXs)
+[Watch Video Highlight](https://videopress.com/embed/j6U6TOXs)
 
-**1982:** Bruce joins Cats on a Smooth Surface at their fourth anniversary party at The Stone Pony. Amazingly, the set was captured on film–check out “[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and “[Sweet Soul Music](http://estreetshuffle.com/index.php/2019/11/01/cover-me-sweet-soul-music/)” below.
+**1982:** Bruce joins Cats on a Smooth Surface at their fourth anniversary party at The Stone Pony. Amazingly, the set was captured on film–check out “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and “[Sweet Soul Music](https://estreetshuffle.com/index.php/2019/11/01/cover-me-sweet-soul-music/)” below.
 
-[https://videopress.com/embed/5WvffBvQ](https://videopress.com/embed/5WvffBvQ)
+[Watch Video Highlight](https://videopress.com/embed/5WvffBvQ)
 
 **1985:** Bruce and the E Street Band play their second of two nights at Philadelphia’s Veterans Stadium on the Born in the U.S.A. Tour.
 
-[https://www.youtube.com/watch?v=m8p5z71YIrY](https://www.youtube.com/watch?v=m8p5z71YIrY)
+[Watch on Youtube: Bruce Springsteen August 15, 1985 Philadelphia](https://www.youtube.com/watch?v=m8p5z71YIrY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15a-265x300.png)
+![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15b-300x161.png)
+![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15b.png)
 
 **2002:** Bruce brings the Rising Tour to Detroit for one night at The Palace of Auburn Hills, where the set list remains unchanged for the fourth consecutive show–but that’s about to change.
 
-[https://www.youtube.com/playlist?list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3](https://www.youtube.com/playlist?list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3)
+[Watch on Youtube: Auburn Hill 15/08/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-15-300x98.png)
+![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-15.png)
 
-**2008:** The Magic Tour enters its final month with a return to indoor arenas, starting with this show in Jacksonville. Bruce tour premieres “[You Can’t Sit Down](http://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/),” played for the first time in almost a decade, as well as “[Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/).”
+**2008:** The Magic Tour enters its final month with a return to indoor arenas, starting with this show in Jacksonville. Bruce tour premieres “[You Can’t Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/),” played for the first time in almost a decade, as well as “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/).”
 
-[https://videopress.com/embed/oc0WivO0](https://videopress.com/embed/oc0WivO0)
+[Watch Video Highlight](https://videopress.com/embed/oc0WivO0)
 
-[https://www.youtube.com/watch?v=c7R8BLSvYEQ](https://www.youtube.com/watch?v=c7R8BLSvYEQ)
+[Watch on Youtube: Springsteen Fans](https://www.youtube.com/watch?v=c7R8BLSvYEQ)
 
-**2012:** Night Two at Boston’s Fenway Park brings an embarrassment of riches, from an opening “Thunder Road” with just Bruce and Roy, to an almost completely audibled opening pack, to the first “[Knock on Wood](https://estreetshuffle.com/index.php/2021/04/02/cover-me-knock-on-wood/)” in 36 years, to the first “[Prove It ’78](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” in the U.S.A. since ’78, a guest-spot by Ken Casey, and so much more. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26943/bruce-springsteen-fenway-park-boston-ma-08-15-2012-mp3-flac-or-online-music-streaming.html). For more highlights from this show, see my [*Where the Band Was*](http://estreetshuffle.com/index.php/2018/08/15/where-the-band-was-boston-august-15-2012/) report.
+**2012:** Night Two at Boston’s Fenway Park brings an embarrassment of riches, from an opening “Thunder Road” with just Bruce and Roy, to an almost completely audibled opening pack, to the first “[Knock on Wood](https://estreetshuffle.com/index.php/2021/04/02/cover-me-knock-on-wood/)” in 36 years, to the first “[Prove It ’78](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” in the U.S.A. since ’78, a guest-spot by Ken Casey, and so much more. This show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,26943/bruce-springsteen-fenway-park-boston-ma-08-15-2012-mp3-flac-or-online-music-streaming.html). For more highlights from this show, see my [*Where the Band Was*](https://estreetshuffle.com/index.php/2018/08/15/where-the-band-was-boston-august-15-2012/) report.
 
-[https://videopress.com/embed/FaVCWMDK](https://videopress.com/embed/FaVCWMDK)
+[Watch Video Highlight](https://videopress.com/embed/FaVCWMDK)
 
-[https://videopress.com/embed/b3Y5W7XT](https://videopress.com/embed/b3Y5W7XT)
+[Watch Video Highlight](https://videopress.com/embed/b3Y5W7XT)
 
-[https://www.youtube.com/watch?v=n8kIjzIZL5g](https://www.youtube.com/watch?v=n8kIjzIZL5g)
+[Watch on Youtube: Bruce Springsteen - Prove It All Night (3cam mix with dubbed audio) 2012-08-15 Fenway Park, Boston](https://www.youtube.com/watch?v=n8kIjzIZL5g)
 
-[https://www.youtube.com/watch?v=xkYYNPzRljs](https://www.youtube.com/watch?v=xkYYNPzRljs)
+[Watch on Youtube: Bruce Springsteen and the E Street Band "Prove It All Night '78" 8/15/2012](https://www.youtube.com/watch?v=xkYYNPzRljs)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gloria Steinem.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/gloriasteinem-300x296.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/08/gloriasteinem.jpg)
 
-[https://videopress.com/embed/8Air139W](https://videopress.com/embed/8Air139W)
+[Watch Video Highlight](https://videopress.com/embed/8Air139W)
 
 **2024:** Almost a year after their originally scheduled date, Bruce and the E Street Band perform their first of two shows at PPG Paints Arena in Pittsburgh.
 
-[https://www.youtube.com/watch?v=9Mk_nzE6UzQ](https://www.youtube.com/watch?v=9Mk_nzE6UzQ)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance + “Seeds” - Pittsburgh, PA - August 15, 2024](https://www.youtube.com/watch?v=9Mk_nzE6UzQ)
 
-[https://www.youtube.com/watch?v=_tTe-WKKKow](https://www.youtube.com/watch?v=_tTe-WKKKow)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - “Letter to You” - Pittsburgh, PA - August 15, 2024](https://www.youtube.com/watch?v=_tTe-WKKKow)

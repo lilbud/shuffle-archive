@@ -1,20 +1,20 @@
 There’s something about Carole King’s nostalgic “Goin’ Back” that grabs hold of the hearts of musicians in their mid-twenties.
 
-[https://www.youtube.com/watch?v=AWzgbleoZYE](https://www.youtube.com/watch?v=AWzgbleoZYE)
+[Watch on Youtube: Goin' Back - Carole King](https://www.youtube.com/watch?v=AWzgbleoZYE)
 
 King wrote her nostalgic classic at the age of 24, even though she didn’t release it for another four years.
 
 Goldie was the first artist to record “Goin’ Back,” at the age of 26, but her version strayed too far from King’s lyrics, and she had the song withdrawn after only a few weeks.
 
-[https://www.youtube.com/watch?v=zTUI8uaD7d0](https://www.youtube.com/watch?v=zTUI8uaD7d0)
+[Watch on Youtube: Goldie - Goin`Back ( original version pre- Dusty Springfield )](https://www.youtube.com/watch?v=zTUI8uaD7d0)
 
 That made room for Dusty Springfield’s version. She released her single in 1966 at the age of 27, and it became an international hit (except in the U.S., where it strangely was never released as a single).
 
-[https://www.youtube.com/watch?v=XvWiiUgT8Nk](https://www.youtube.com/watch?v=XvWiiUgT8Nk)
+[Watch on Youtube: Dusty Springfield - Goin' Back.](https://www.youtube.com/watch?v=XvWiiUgT8Nk)
 
 The Byrds released a cover of “Goin’ Back” the following year; Roger McGuinn had just turned 25 at the time. Their version peaked at #89 on the Billboard Hot 100.
 
-[https://www.youtube.com/watch?v=pqHb7RFpoxU](https://www.youtube.com/watch?v=pqHb7RFpoxU)
+[Watch on Youtube: The Byrds - Going Back](https://www.youtube.com/watch?v=pqHb7RFpoxU)
 
 Why do artists tend to cover “Goin’ Back” at that particular age? Probably because King’s song is about a young adult’s last gasp of rebellion. In her lyrics, we hear her determination to stay young at heart, but it’s tinged with self-knowledge that she’s only delaying the inevitable.
 
@@ -26,7 +26,7 @@ Maybe that’s why Bruce played “Goin’ Back” throughout his stand at The R
 
 And then never again.
 
-[https://www.youtube.com/watch?v=bGlXR-H2IuM](https://www.youtube.com/watch?v=bGlXR-H2IuM)
+[Watch on Youtube: Bruce Springsteen "Goin' Back" Live at The Roxy, Oct. 18th, 1975](https://www.youtube.com/watch?v=bGlXR-H2IuM)
 
 Bruce’s arrangement was gorgeous and his vocals warm, longing, and impassioned. King must have been impressed.
 
@@ -36,10 +36,8 @@ But he also acknowledged one other notable cover by 24-year-old Nils Lofgren. Ni
 
 Enjoy this rare footage of a very young Nils Lofgren performing Carole King’s “Goin’ Back” on *The Old Grey Whistle Test* from November 4, 1975.
 
-[https://www.youtube.com/watch?v=rSBeEHUAfok](https://www.youtube.com/watch?v=rSBeEHUAfok)
+[Watch on Youtube: Nils Lofgren - Goin' Back - The Old Grey Whistle Test](https://www.youtube.com/watch?v=rSBeEHUAfok)
 
 **Goin’ Back  
 First performed:** October 16, 1975 (West Hollywood, CA)  
 **Last performed:** October 19, 1975 (West Hollywood, CA)
-
- 

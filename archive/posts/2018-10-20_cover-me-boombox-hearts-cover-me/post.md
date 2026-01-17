@@ -6,4 +6,4 @@ Self-described “melancholy lo-fi indie” band The Boombox Hearts takes the la
 
 Plus: when’s the last time you heard someone add a trombone solo when covering a Springsteen song?
 
-[https://www.youtube.com/watch?v=0cECsZXs2EI](https://www.youtube.com/watch?v=0cECsZXs2EI)
+[Watch on Youtube: The Boombox Hearts ~ Cover Me ∞Bruce Springsteen Cover∞](https://www.youtube.com/watch?v=0cECsZXs2EI)

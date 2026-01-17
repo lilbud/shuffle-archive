@@ -6,6 +6,4 @@ So how about we just give a hall pass to anyone who wants to try something new w
 
 Play it over your Sunday morning coffee–that’s what I’m doing right now.
 
-[https://www.youtube.com/watch?v=PIMUugdAXsY](https://www.youtube.com/watch?v=PIMUugdAXsY)
-
- 
+[Watch on Youtube: River City Extension - Hungry Heart (by Bruce Springsteen) - Audiotree Live](https://www.youtube.com/watch?v=PIMUugdAXsY)

@@ -4,7 +4,7 @@ And then there are the throwaway songs, weightless in substance without even the
 
 Let’s compare. Here’s the original–
 
-[https://www.youtube.com/watch?v=Jtxt5GG-GIE](https://www.youtube.com/watch?v=Jtxt5GG-GIE)
+[Watch on Youtube: All Or Nothin' At All](https://www.youtube.com/watch?v=Jtxt5GG-GIE)
 
 Ouch, those lyrics. It’s like he isn’t even trying. When the cleverest lyric of a song is:
 
@@ -17,9 +17,9 @@ So yeah, the chorus says it all: the narrator wants his love to give him all of 
 
 (Bonus: If you like the released version above, check out the studio outtake below–it’s almost a minute longer!)
 
-[http://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3?_=3](http://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3?_=3)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/01/07-All-Or-Nothin-At-All-online-audio-converter.com_.mp3>
 
 Bruce knows this song doesn’t rank among his best work; it’s probably why he’s only ever performed it eight times, and only twice (by request, somehow) since 1992.
 
@@ -27,7 +27,7 @@ The last time he played it was in Woodlands, Texas, in 2014, and wouldn’t you 
 
 Even Bruce knew this was a clunker–watch how sheepish he is about playing this song in the beginning; he even stops momentarily to invite the befuddled audience to applaud. And then: magic. He fully commits to the song, and somehow… without the overproduction, with the power of the full E Street Band, and the addition of the horn section… it works. Bruce goes for broke and relishes the silliness of the song. And I gotta tell you: it was a ton of fun.
 
-[https://www.youtube.com/watch?v=Zi90Z2UDxik](https://www.youtube.com/watch?v=Zi90Z2UDxik)
+[Watch on Youtube: Bruce Springsteen - All Or Nothin At All - live in Houston 2014](https://www.youtube.com/watch?v=Zi90Z2UDxik)
 
 So yeah, I still hate the song on the album. But I’ll sneak a listen from time to time on the bootleg.
 
@@ -36,4 +36,4 @@ Recorded:** 1990-1991
 **Released:** *Human Touch* (1992)**First performed:** June 17, 1992 (Stockholm, Sweden)  
 **Last performed:** May 6, 2014 (Woodlands, TX)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

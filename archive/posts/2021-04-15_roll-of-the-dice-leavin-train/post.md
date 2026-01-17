@@ -4,17 +4,17 @@ I mean, it’s not like it’s a bad song.
 
 Musically, it’s built around a great guitar riff, riding a chugging chassis that sounds for all the world like a barreling train; lyrically, it has a great central metaphor–the notion that one’s eyes might reveal one’s emotional departure long before their physical one is brilliant.
 
-[https://www.youtube.com/watch?v=agtJ2_ztgNo](https://www.youtube.com/watch?v=agtJ2_ztgNo)
+[Watch on Youtube: Leavin' Train (Studio Outtake - 1990)](https://www.youtube.com/watch?v=agtJ2_ztgNo)
 
 The problem with “Leavin’ Train” is that its songwriter *isn’t* any other artist, and there’s nothing in this song that Bruce hasn’t done better elsewhere in his catalog.
 
 Want a hard-drivin’ train song with a killer guitar solo? Look to [“Burnin’ Train.](https://estreetshuffle.com/index.php/2022/01/14/roll-of-the-dice-burnin-train/)” (The apostrophe is apparently a required ingredient in this micro-genre.)
 
-[https://www.youtube.com/watch?v=tTwpR6SCyRw](https://www.youtube.com/watch?v=tTwpR6SCyRw)
+[Watch on Youtube: Bruce Springsteen - Burnin' Train (Official Audio)](https://www.youtube.com/watch?v=tTwpR6SCyRw)
 
 Want a song that will wrench your heart and fill your soul with dread over the surety of impending but unconfirmed betrayal? Seek out “[Brilliant Disguise.](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)”
 
-[https://www.youtube.com/watch?v=idnJnjV_8rg](https://www.youtube.com/watch?v=idnJnjV_8rg)
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
 In fact, “Leavin’ Train” is basically a re-write of “Brilliant Disguise,” but with less nuance and artfulness.
 
@@ -80,7 +80,7 @@ So yeah, Bruce made a wise move relegating “Leavin’ Train” to outtake stat
 
 Both performances were a little rough at times, but both were redeemed by smoking guitar jams, particularly on Night Two.
 
-[https://www.youtube.com/watch?v=XnXFqQmSAT0](https://www.youtube.com/watch?v=XnXFqQmSAT0)
+[Watch on Youtube: Bruce Springsteen - 2014-05-23 Pittsburgh - Leavin' Train](https://www.youtube.com/watch?v=XnXFqQmSAT0)
 
 Will we ever hear from “Leavin’ Train” again?
 

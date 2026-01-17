@@ -6,11 +6,11 @@ In 1962, Elvis Presley was already an established movie star. He was a prolific 
 
 First out of the gate was *Follow That Dream,* hyped by the studio as Elvis’ “funniest, happiest, dreamiest motion picture!”
 
-[https://www.youtube.com/watch?v=ljm1EqLxAGk](https://www.youtube.com/watch?v=ljm1EqLxAGk)
+[Watch on Youtube: Follow That Dream | 1962 | Theatrical Trailer](https://www.youtube.com/watch?v=ljm1EqLxAGk)
 
 Elvis recorded six songs for the movie, four of which were released on a soundtrack EP, including the film’s title track, a bouncy rockabilly confection that peaked at #15 on the Billboard Hot 100.
 
-[https://www.youtube.com/watch?v=zD0xsv2BHFw](https://www.youtube.com/watch?v=zD0xsv2BHFw)
+[Watch on Youtube: Follow That Dream (Remastered)](https://www.youtube.com/watch?v=zD0xsv2BHFw)
 
 (Little known but true story: during the filming of *Follow That Dream*, a crew member named Earl Jernigan brought his ten-year-old nephew to the set to meet The King. The boy had little interest in rock and roll, but he loved movies and jumped at chance to see one being made. Elvis noticed the young set visitor and spent a few minutes talking to him, igniting a brand new passion in the boy. From that day forward, little Tom Petty was determined to be a rock and roll star when he grew up.)
 
@@ -25,5 +25,3 @@ He began using and then abusing prescription drugs to help him perform, and then
 He was trapped on a treadmill until he finally collapsed and died in 1977.
 
 Elvis’ death had a profound effect on Bruce Springsteen, whose star was just starting to rise at the moment Presley’s went out. He’d
-
- 

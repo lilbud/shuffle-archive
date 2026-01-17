@@ -2,7 +2,7 @@ At the height of the Great Pandemic, when pleasant surprises were in short suppl
 
 And not just his own fans, but E Street Nation as well–because the lead single from the album featured a very special guest star who hadn’t been seen in public much since the start of lockdown.
 
-[https://www.youtube.com/watch?v=E4uA85iWsIg](https://www.youtube.com/watch?v=E4uA85iWsIg)
+[Watch on Youtube: Bleachers - Chinatown (Official Video) ft. Bruce Springsteen](https://www.youtube.com/watch?v=E4uA85iWsIg)
 
 “Chinatown” centers on the dichotomous relationship between New York and New Jersey, and if there’s anyone who represents that better than Antonoff, it’s Bruce Springsteen.
 
@@ -18,11 +18,11 @@ Now, it’s one thing to get Bruce Springsteen to appear on your album track. It
 
 There was only one problem, though, and Antonoff sheepishly confessed to it to Jimmy Fallon on *The Tonight Show*.
 
-[https://videopress.com/embed/SBGt1vfF](https://videopress.com/embed/SBGt1vfF)
+[Watch Video Highlight](https://videopress.com/embed/SBGt1vfF)
 
 So despite breaking the law to do so, Antonoff managed to get Bruce to appear on both the song and the video. Then he decided to go for the hat trick, assembling his band and guest vocalist for a live session on the roof of Electric Lady Studios in Greenwich Village.
 
-[https://www.youtube.com/watch?v=4POQtHyD2Yg](https://www.youtube.com/watch?v=4POQtHyD2Yg)
+[Watch on Youtube: Bleachers - Chinatown (BLEACHERS ON THE ROOF live at electric lady) ft. Bruce Springsteen](https://www.youtube.com/watch?v=4POQtHyD2Yg)
 
 Jack’s vocals are clearer in the live version, and Bruce’s are more prominent, dominating the chorus throughout the song.
 
@@ -30,7 +30,7 @@ Bruce also plays acoustic guitar throughout the song, and the resulting video wa
 
 **Update 1/3/2024:** Since this article was first published, Bruce made a guest appearance with Bleachers on “Chinatown” at Radio City Music Hall in 2022. Here’s that performance below.
 
-[https://www.youtube.com/watch?v=pRkOjCufff8](https://www.youtube.com/watch?v=pRkOjCufff8)
+[Watch on Youtube: Bleachers & Bruce Springsteen - Chinatown (Live at Radio City Music Hall)](https://www.youtube.com/watch?v=pRkOjCufff8)
 
 **Chinatown  
 Recorded:** 2020  

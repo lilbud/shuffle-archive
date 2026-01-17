@@ -1,7 +1,5 @@
 > The father comes to be near his son. He digs through the smoking steel with a small Army pick and shovel. ”Where are you, boy?” he asks. It has been the same routine for months.
 > 
-> 
-> 
 > — Charlie Leduff, “Still Digging for Lost Sons After a Million Tons of Pain,” *New York Times*, January 8, 2002
 
 In the aftermath of September 11th, 2001, a community of retired police officers and firefighters spent months on end searching for their friends and family in the rubble of the World Trade Center.
@@ -18,7 +16,7 @@ So “Down in the Hole” became one of only two known outtakes from *The Rising
 
 Original indeed. Other than the addition of some 2013 overdubs, what we hear on the *High Hopes* track is essentially the original 2002 recording, right down to the spectral backing vocals by the entire Springsteen family, including twelve-year-old Evan, eleven-year-old Jessica, and eight-year old Sam.
 
-[https://www.youtube.com/watch?v=eAS1zdocVwI](https://www.youtube.com/watch?v=eAS1zdocVwI)
+[Watch on Youtube: Down in the Hole](https://www.youtube.com/watch?v=eAS1zdocVwI)
 
 It’s understandable why Bruce decided only one of “Empty Sky” or “Down in the Hole” should appear on *The Rising*. It’s debatable whether he chose the right song. Both are poignant and powerful (we’ll examine “Empty Sky” sometime in the next year), but “Down in the Hole” is downright brutal.
 

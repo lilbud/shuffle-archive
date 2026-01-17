@@ -14,7 +14,7 @@ But the point is: America’s back! Just look at the job creation numbers if you
 
 Hey, that saw blade sure is shiny. Can we see a magic trick?
 
-[https://www.youtube.com/watch?v=kH-ZGL0uJCA](https://www.youtube.com/watch?v=kH-ZGL0uJCA)
+[Watch on Youtube: Magic](https://www.youtube.com/watch?v=kH-ZGL0uJCA)
 
 Bruce Springsteen released “Magic” in 2007, but it’s only grown in importance and relevance since then. This year in particular, it’s almost a mantra. There’s not a day that goes by that Bruce’s lyrics don’t echo in my brain.
 
@@ -83,7 +83,7 @@ We think we’ve been protecting our freedom, securing it–but it’s been stea
 
 That’s the core message at the heart of “Magic”: When we demonize each other, we clear a path for the demons to come to power.
 
-Gaslighting won’t fool all of the people, but it’ll fool enough of us to divide us against each other. And once that happens… well, Bruce drives it home in the last verse with lyrics that are almost certainly an intentional inversion of “[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).”
+Gaslighting won’t fool all of the people, but it’ll fool enough of us to divide us against each other. And once that happens… well, Bruce drives it home in the last verse with lyrics that are almost certainly an intentional inversion of “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).”
 
 *Now there’s a fire down below*  
 *But it’s coming up here*  
@@ -145,7 +145,7 @@ So feel to reach out to me through the blog or wherever else we engage on-line, 
 
 *This* is what will be.
 
-[https://www.youtube.com/watch?v=hgzYSwLqQcc](https://www.youtube.com/watch?v=hgzYSwLqQcc)
+[Watch on Youtube: Bruce Springsteen - Magic (Live Toronto 15.10.2007)](https://www.youtube.com/watch?v=hgzYSwLqQcc)
 
 **Magic  
 Recorded:** March-May, 2007  
@@ -153,4 +153,4 @@ Recorded:** March-May, 2007
 **First performed:** September 25, 2007 (Asbury Park, NJ)  
 **Last performed:** June 23, 2008 (Antwerp, Belgium)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

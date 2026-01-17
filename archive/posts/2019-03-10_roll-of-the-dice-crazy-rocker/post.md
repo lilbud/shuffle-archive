@@ -14,7 +14,7 @@ This song is all about the riff, all about the jam, all about the ESB-meets-CCR 
 
 Turn this one waaaaay up loud, and just think about what a show-stopper it would have been… if only Bruce had finished the dang song!
 
-[https://www.youtube.com/watch?v=-5VDqVVuGtI](https://www.youtube.com/watch?v=-5VDqVVuGtI)
+[Watch on Youtube: Crazy Rocker - Bruce Springsteen](https://www.youtube.com/watch?v=-5VDqVVuGtI)
 
 “Crazy Rocker” is such a mystery that we don’t even have a studio log entry for it. We can date it to the Darkness on the Edge of Town sessions, and we can speculate about other unknown titles in the log that it might map to, but that’s about it.
 
@@ -29,4 +29,4 @@ Recorded:** August 1977
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

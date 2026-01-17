@@ -23,7 +23,7 @@ Bruce was so far along in planning the *Murder Incorporated* album, in fact, tha
 
 When I wrote about “Little Girl (Like You)” last spring, I wasn’t very kind in my assessment. “One Love” is better (faint praise that may be), but it still suffers from an overly simple conceit, a lack of imagination, and Bruce’s newfound fascination with drum machines. Take a listen to the original home demo:
 
-[https://www.youtube.com/watch?v=IyHiN-dF04A](https://www.youtube.com/watch?v=IyHiN-dF04A)
+[Watch on Youtube: Bruce Springsteen One love](https://www.youtube.com/watch?v=IyHiN-dF04A)
 
 “One Love” doesn’t demand much in the way of lyrical analysis; Bruce never even dips a toe into metaphor.
 
@@ -54,7 +54,7 @@ By the time we’ve finished that first verse, we pretty much get the idea: like
 
 When *Tracks II: The Lost Albums* was announced with “One Love” included, I wondered if we’d finally hear a more polished version of the song. In a sense, I guess we do: the official release lops off the extended intro and fade-out, so the album version is considerably shorter. But it’s still the same recording otherwise.
 
-[https://www.youtube.com/watch?v=qyp6Sh6tjC4](https://www.youtube.com/watch?v=qyp6Sh6tjC4)
+[Watch on Youtube: Bruce Springsteen - One Love (Official Audio)](https://www.youtube.com/watch?v=qyp6Sh6tjC4)
 
 The best we can say about “One Love” is that it’s a simple but earnest and bouncy love song that probably wouldn’t have stood the test of time had it been released as a B-side as intended back in the mid-eighties.
 

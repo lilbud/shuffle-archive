@@ -18,11 +18,11 @@ We could take Bruce at his word, but I personally think his explanation is a bit
 
 But take a listen with fresh ears, and then decide for yourself.
 
-[https://www.youtube.com/watch?v=SAMkFVJ-ews](https://www.youtube.com/watch?v=SAMkFVJ-ews)
+[Watch on Youtube: Bruce Springsteen - Lonesome Day](https://www.youtube.com/watch?v=SAMkFVJ-ews)
 
 (A note about the video: it’s one of Bruce’s weaker ones, full of Springsteenian tropes and on-the-nose illustrations, but it’s remarkable for the vocal: it’s a different performance than the album track. Bruce performed the song live for take after take for *sixteen hours*. You can compare it with the official album track below and decide for yourself which version you like best.)
 
-[https://www.youtube.com/watch?v=VuBRgq6nT7s](https://www.youtube.com/watch?v=VuBRgq6nT7s)
+[Watch on Youtube: Bruce Springsteen - Lonesome day (The Rising Album)](https://www.youtube.com/watch?v=VuBRgq6nT7s)
 
 We’ll get back to the lyrics in a minute, but let’s take a moment to talk about the music.
 
@@ -83,15 +83,17 @@ But to me, “Lonesome Day” has always felt like a relationship song rather th
 
 Nevertheless, “Lonesome Day” has become a set list staple for the modern-day E Street Band, appearing (often nightly) on every single tour since *The Rising.* From the beginning, fans knew what to do when Bruce played it, pumping their fists on every “It’s alright” as if in some kind of rock and roll group therapy.
 
-[https://www.youtube.com/watch?v=ejQxbCarUew](https://www.youtube.com/watch?v=ejQxbCarUew)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Lonesome Day (Live In Barcelona)](https://www.youtube.com/watch?v=ejQxbCarUew)
 
 In its 381 appearances to date, Bruce has rarely altered the arrangement for “Lonesome Day,” performing it time and again the way he recorded it on the album.
 
-[https://www.youtube.com/watch?v=whloscQmwRE](https://www.youtube.com/watch?v=whloscQmwRE)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Lonesome Day (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=whloscQmwRE)
 
 But on his solo tour in 2005, Bruce found an acoustic arrangement that downplayed the rage and dialed up the hurt. Take a listen to Bruce’s performance from August 13, 2005 in Vancouver, British Columbia.
 
-[https://videopress.com/embed/IaSVvsd3](https://videopress.com/embed/IaSVvsd3)
+[Watch Video Highlight](https://videopress.com/embed/IaSVvsd3)
+
+
 
 Even though he’d been performing it acoustically for months, there was something different about “Lonesome Day” that night. Even now, fifteen years later, I’m haunted by the “it’s alright” refrain from that performance. Bruce delivered it in a way he’d never done before, and it’s impossible not to be filled with empathy for the narrator’s inner child.
 
@@ -107,4 +109,4 @@ Recorded:** February-March 2002
 **First performed:** July 25, 2002 (Asbury Park, NJ)  
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

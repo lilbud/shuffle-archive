@@ -8,11 +8,11 @@ The band had a guest-star that night as well: Southside Johnny joined the band o
 
 Take a listen to this amazing recording (just in its mere existence all these years later) from that once-only performance of Southside Johnny fronting The Bruce Springsteen Band on Marvin Gaye’s “Ain’t That Peculiar.”
 
-[https://www.youtube.com/watch?v=WlNyiUnYHQg](https://www.youtube.com/watch?v=WlNyiUnYHQg)
+[Watch on Youtube: Ain't that peculiar ( Marvin Gaye cover )](https://www.youtube.com/watch?v=WlNyiUnYHQg)
 
 Gaye’s original recording is one of his best-known and -loved Motown classics, but obviously that didn’t stop Bruce from dramatically re-interpreting it. Compare the clip above with Gaye’s original recording below to fully appreciate just how inventive this young band was with their arrangements.
 
-[https://www.youtube.com/watch?v=bCvsikXZ9wk](https://www.youtube.com/watch?v=bCvsikXZ9wk)
+[Watch on Youtube: Ain't That Peculiar-Marvin Gaye](https://www.youtube.com/watch?v=bCvsikXZ9wk)
 
 **Ain’t That Peculiar**  
 **First performed:** November 13, 1971 (Asbury Park, NJ)  

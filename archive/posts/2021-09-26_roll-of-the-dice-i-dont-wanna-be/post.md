@@ -6,7 +6,7 @@ None of the singers (including Bruce himself) were miked, which means that any v
 
 Occasionally, though, one of the band members would stand close enough to the boom box to be clearly picked up, and that’s hilariously the case with today’s entry. See if you can guess who it was:
 
-[https://videopress.com/embed/Sn7CZSA8](https://videopress.com/embed/Sn7CZSA8)
+[Watch Video Highlight](https://videopress.com/embed/Sn7CZSA8)
 
 We likely wouldn’t even know the title of this abandoned song had The Big Man not been standing so close to the recorder, but we can’t possibly miss him or his shouted “I Don’t Wanna Be!” vocals.
 

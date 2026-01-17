@@ -2,7 +2,7 @@ Don’t be fooled by the title: Bruce Springsteen’s fourth studio album isn’
 
 If *Born to Run* is unbridled romance, *Darkness on the Edge of Town* is unvarnished realism.
 
-[https://www.youtube.com/playlist?list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs](https://www.youtube.com/playlist?list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
+[Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/playlist?list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
 
 And that’s easy enough to understand: if you’d just settled a years-long lawsuit with your former manager that barred you from recording new music and forced you into a never-ending hardscrabble tour of secondary towns and tertiary venues, the romance would probably have been beaten out of you too.
 

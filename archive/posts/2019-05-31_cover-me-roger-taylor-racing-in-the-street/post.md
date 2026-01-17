@@ -10,6 +10,4 @@ Well, Roger Taylor did at least, and that’s what led him to record a cover of 
 
 Does it work? You decide.
 
-[https://www.youtube.com/watch?v=RdNiTbMVmb4](https://www.youtube.com/watch?v=RdNiTbMVmb4)
-
- 
+[Watch on Youtube: Roger Taylor - Racing In The Streets](https://www.youtube.com/watch?v=RdNiTbMVmb4)

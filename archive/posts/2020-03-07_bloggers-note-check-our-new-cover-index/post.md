@@ -2,7 +2,7 @@ I’ve been meaning to get the sprawling *Cover Me* section of the blog under co
 
 This morning, though, friend (and copy editor) of the blog Lori Pierce suggested that *maybe* it was time, and that was just the nudge I needed. (Thanks, Lori!)
 
-So if you’re interested in seeing what other artists do with Bruce’s songs (and my blog stats suggest you might be), check out our [new index of cover songs](http://estreetshuffle.com/index.php/cover-index/) profiled on this site. I add new covers every week, and I’ll update the inbox each time I do.
+So if you’re interested in seeing what other artists do with Bruce’s songs (and my blog stats suggest you might be), check out our [new index of cover songs](https://estreetshuffle.com/index.php/cover-index/) profiled on this site. I add new covers every week, and I’ll update the inbox each time I do.
 
 **Note**: I’ve only included Bruce’s songs covered by other artists; indexing the inverse is a project for another day.
 

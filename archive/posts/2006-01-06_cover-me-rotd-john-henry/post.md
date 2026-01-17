@@ -10,11 +10,11 @@ And it appears to be based at least in part on a real person and real events. In
 
 The ballad of “John Henry” changes and grows as all great legends do, from the first known recording in 1924 by Fiddlin’ John Carson…
 
-[https://www.youtube.com/watch?v=N8a-d-GAwKA](https://www.youtube.com/watch?v=N8a-d-GAwKA)
+[Watch on Youtube: John Henry Blues](https://www.youtube.com/watch?v=N8a-d-GAwKA)
 
 to Pete Seeger’s version that inspired Bruce’s own.
 
-[https://www.youtube.com/watch?v=A9Zt0O2lyhk](https://www.youtube.com/watch?v=A9Zt0O2lyhk)
+[Watch on Youtube: John Henry -Pete Seeger](https://www.youtube.com/watch?v=A9Zt0O2lyhk)
 
 But even Pete claimed not to know the song’s original lyrics and melody. Those appear to be lost to time, since the ballad first started circulating in the 1870s, a good half-century before it was ever recorded.
 
@@ -24,11 +24,11 @@ Bruce took inspiration from Seeger’s version, arranging “John Henry” as a 
 
 On March 19, 2005, Bruce took a break from rehearsals for his upcoming solo acoustic tour and summoned The Gotham Playboys (the core of what would eventually become the Sessions Band) to his home and recorded “John Henry,” along with seven other folk songs that would be released the following year (and one that still isn’t). Remarkably, that session was captured on film, and Bruce looks and sounds like he was having the time of his life.
 
-[https://www.youtube.com/watch?v=bqxjHzff-Qo](https://www.youtube.com/watch?v=bqxjHzff-Qo)
+[Watch on Youtube: Bruce Springsteen - John Henry (The Seeger Sessions)](https://www.youtube.com/watch?v=bqxjHzff-Qo)
 
 Bruce had a great time performing it on stage too. He featured “John Henry” prominently and early in the set throughout his 2006 tour, and even an on-stage wardrobe malfunction with his pants in New Orleans couldn’t throw Bruce off his game. (His officially released video omits that part.)
 
-[https://www.youtube.com/watch?v=hIh74VC7oXc](https://www.youtube.com/watch?v=hIh74VC7oXc)
+[Watch on Youtube: John Henry (Live at the New Orleans Jazz & Heritage Festival, 2006)](https://www.youtube.com/watch?v=hIh74VC7oXc)
 
 “John Henry” isn’t one of the Seeger Sessions songs to make the E Street transition, though. While it appeared in every show of the Seeger Sessions Tour, it hasn’t been heard from since that tour’s finale in Belfast.
 

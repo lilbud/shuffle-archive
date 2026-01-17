@@ -2,7 +2,7 @@
 
 I have to agree.
 
-[https://www.youtube.com/watch?v=rNH1lwkS-B8](https://www.youtube.com/watch?v=rNH1lwkS-B8)
+[Watch on Youtube: Homestead](https://www.youtube.com/watch?v=rNH1lwkS-B8)
 
 “Homestead” is a populist anthem about an unemployed steelworker in the Monongahela Valley, and if that sounds a bit derivative of a certain Springsteen song, you might be surprised to learn which came first.
 
@@ -78,7 +78,7 @@ Joe’s lyrics were definitively Pittsburgh, however. I’d always been struck b
 
 Joe and Bruce have performed “Homestead” together nineteen times over the years since its debut, including every night of Joe’s legendary October Assault mini-tour following the release of the album in 1995.
 
-[https://www.youtube.com/watch?v=u7jDtLFtVnU](https://www.youtube.com/watch?v=u7jDtLFtVnU)
+[Watch on Youtube: Homestead - Bruce Springsteen & Joe Grushecky The Houserockers (20-10-1995 Nick's Fat City)](https://www.youtube.com/watch?v=u7jDtLFtVnU)
 
 It’s been more than a decade since we’ve last seen them perform it together on stage, but it’s difficult to believe we won’t see them do it again. Their team-ups are hard to predict but ongoing, and “Homestead” remains one of their best collaborations.
 

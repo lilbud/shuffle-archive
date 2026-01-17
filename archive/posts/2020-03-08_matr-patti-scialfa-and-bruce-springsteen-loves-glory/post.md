@@ -8,7 +8,7 @@ And while I realize that some Springsteen fans don’t particularly take to her 
 
 Originally released on her debut *Rumble Doll* album (her second best, in my opinion), “Loves Glory” features what may be Patti’s finest-ever vocal performance.
 
-[https://www.youtube.com/watch?v=zgAouJJZZiM](https://www.youtube.com/watch?v=zgAouJJZZiM)
+[Watch on Youtube: Loves Glory](https://www.youtube.com/watch?v=zgAouJJZZiM)
 
 Beautiful, resolute, and unabashedly romantic, Patti takes flight just past the two-minute mark with soaring vocals that still give me goosebumps every time I listen.
 
@@ -18,7 +18,7 @@ So why am I featuring it on a Bruce-focused blog? Because one time only, back in
 
 You won’t hear his voice, but you can hear Bruce on backing guitar in the live recording below. But trust me, don’t pay attention to Bruce on this one. He’s superfluous here–this is Patti’s star turn.
 
-[https://videopress.com/embed/QYGFvk0x](https://videopress.com/embed/QYGFvk0x)
+[Watch Video Highlight](https://videopress.com/embed/QYGFvk0x)
 
 It’s been more than a dozen years since Patti’s last album; I think we’re more than due for a new one.
 
@@ -27,5 +27,3 @@ And since Bruce doesn’t seem to be quite ready to tour yet, is it too much to 
 **Loves Glory  
 First performed:** January 31, 1998 (Red Bank, NJ)  
 **Last performed:** January 31, 1998 (Red Bank, NJ)
-
- 

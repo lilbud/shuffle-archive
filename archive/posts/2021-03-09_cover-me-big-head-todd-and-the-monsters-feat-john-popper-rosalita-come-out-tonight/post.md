@@ -6,10 +6,8 @@ Well, Big Head Todd and the Monsters’ cover of “Rosalita (Come Out Tonight)�
 
 What it is, though, is *fun*.
 
-[https://www.youtube.com/watch?v=OshNg-N3w6Y](https://www.youtube.com/watch?v=OshNg-N3w6Y)
+[Watch on Youtube: Big Head Todd and the Monsters - "Rosalita (Come Out Tonight)" - ft. John Popper](https://www.youtube.com/watch?v=OshNg-N3w6Y)
 
 Filmed professionally, directed energetically, and featuring a lead vocal trade-off between BHTM’s lead singer Todd Park Mohr and Blues Traveler’s John Popper (whose instantly recognizable harmonica stands in for The Big Man’s saxophone), BHTM’s 2019 cover is exception-worthy for its musicality and the fun factor of seeing Popper and Park Mohr teaming up and having the time of their lives.
 
 Rosie has been known to come out from time to time during Big Head Todd and the Monsters concerts, so if you catch them the next time they’re in town, maybe you’ll get to see them play it live!
-
- 

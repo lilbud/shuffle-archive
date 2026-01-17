@@ -6,7 +6,7 @@ The *Philadelphia Inquirer* said it *“*just might be the worst song Springstee
 
 Ladies and gentlemen, I give you Bruce Springsteen’s “Queen of the Supermarket.”
 
-[https://www.youtube.com/watch?v=Wfvp5XHbM9U](https://www.youtube.com/watch?v=Wfvp5XHbM9U)
+[Watch on Youtube: Queen Of The Supermarket](https://www.youtube.com/watch?v=Wfvp5XHbM9U)
 
 I love it. I always have, since I first heard it.
 
@@ -33,7 +33,7 @@ For the object of the singer’s affection to be overshadowed by her surrounding
 
 Heck, even the instrumental track is brilliant. Watch the “making of” video below and listen to that introduction again.
 
-[https://www.youtube.com/watch?v=p4uhxxrzoYk](https://www.youtube.com/watch?v=p4uhxxrzoYk)
+[Watch on Youtube: Bruce Springsteen Working On A Dream - Making Of Queen Of The Supermarket and VideoClip](https://www.youtube.com/watch?v=p4uhxxrzoYk)
 
 Notice how Bruce has Roy syncopate mid-bar? That’s Bruce creating a background of delayed gratification to offset the foreground of instant gratification. Genius, I tell you.
 
@@ -107,7 +107,7 @@ But it tends not to work in concert. For one thing, it’s too delicate to trans
 
 To the degree that it works at all, it works best as a quiet acoustic number. Here’s such a performance from the Wrecking Ball Tour in 2013:
 
-[https://www.youtube.com/watch?v=IEzGTq49Gls](https://www.youtube.com/watch?v=IEzGTq49Gls)
+[Watch on Youtube: Bruce Springsteen 2013-05-07 Turku - Queen Of The Supermarket](https://www.youtube.com/watch?v=IEzGTq49Gls)
 
 So there. Mock it if you must, but you’ll not convince me that “Queen of the Supermarket” doesn’t rank among the best songs of Bruce’s 21st century catalog.
 
@@ -117,4 +117,4 @@ I’m in love with “Queen of the Supermarket.”
 Recorded:** 2007-2008**Released:** *Working on a Dream* (2009)  
 **First performed:** May 6, 2009 (Stockholm, Sweden)**Last performed:** May 7, 2013 (Turku, Finland)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

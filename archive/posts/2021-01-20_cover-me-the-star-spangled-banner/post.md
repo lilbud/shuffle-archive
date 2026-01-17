@@ -20,7 +20,7 @@ America had held the line.
 
 The British detained Key’s ship for another two days. Able to do little else, Key was moved to write. By the time he left the ship, he’d written his account of the previous day on the back of a letter, a poem paired to the music of a popular song in the U.S. at the time: “To Anacreon in Heaven.”
 
-[https://www.youtube.com/watch?v=3eg7z0-6Nhc](https://www.youtube.com/watch?v=3eg7z0-6Nhc)
+[Watch on Youtube: To Anacreon in Heaven](https://www.youtube.com/watch?v=3eg7z0-6Nhc)
 
 Key finished the song a few days later from safety. He gave a copy of it to his brother-in-law, a militia commander at Fort McHenry, who shared it with the local newspaper, *The Baltimore Patriot*.
 
@@ -86,10 +86,8 @@ On this day, the 20th of January in the year 2021, remember and reflect on the s
 
 Play it, Bruce.
 
-[https://www.youtube.com/watch?v=eCDBfSWyhiY](https://www.youtube.com/watch?v=eCDBfSWyhiY)
+[Watch on Youtube: Bruce Springsteen - Star Spangled Banner](https://www.youtube.com/watch?v=eCDBfSWyhiY)
 
 **The Star-Spangled Banner  
 First performed:** October 1, 2004 (Philadelphia, PA)  
 **Last performed:** October 13, 2004 (East Rutherford, NJ)
-
- 

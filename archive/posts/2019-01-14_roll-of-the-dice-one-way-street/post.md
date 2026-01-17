@@ -2,7 +2,7 @@ Oh, Bruce.
 
 I understand why you had to re-record the vocals for “One Way Street.” The bootleg version we’d heard for years was lovely but a bit awkward at times. With lines like “If and oh my darling I, I must confess” and “It’s mmmm we, we are the same kind,” it’s clear that this was a rehearsal run.
 
-And thanks for re-recording *all* the vocals over the original backing track. That hybrid mash-up of 30-year-old Bruce and 60-year-old Bruce that you used on other songs on *The Promise* is really jarring at times. (I’m looking at you, “[The Brokenhearted](http://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/).”) Much better to just redo the vocals in their entirety.
+And thanks for re-recording *all* the vocals over the original backing track. That hybrid mash-up of 30-year-old Bruce and 60-year-old Bruce that you used on other songs on *The Promise* is really jarring at times. (I’m looking at you, “[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/).”) Much better to just redo the vocals in their entirety.
 
 Thanks also for keeping that gorgeous instrumental track, especially Clarence’s solo. (Did you have to ditch Danny’s though? Sure, the song was a bit long. Shaving a minute-and-a-half from the run time wasn’t a bad decision, but Danny…)
 
@@ -16,7 +16,7 @@ Your original 1977 take of “One Way Street” struck the perfect balance betwe
 
 Let’s take a listen together, and I’ll show you what I mean. First the 1977 version, which you never released:
 
-[https://www.youtube.com/watch?v=r1cenir2dl8](https://www.youtube.com/watch?v=r1cenir2dl8)
+[Watch on Youtube: Bruce Springsteen - One Way Street](https://www.youtube.com/watch?v=r1cenir2dl8)
 
 See what I mean? Yeah, it’s obvious that the guy loves the girl, and that their love was doomed from the start. That much is true in both versions. But whereas 2010 Bruce is wistful and philosophical about it, 1977 Bruce is bitter and borderline obsessed. I wonder if that has something to do with the age and experience that those extra decades bring?
 
@@ -71,7 +71,7 @@ Which you eventually did more than 30 years later.
 
 Let’s listen to that one, from your 2010 album, *The Promise*.
 
-[https://www.youtube.com/watch?v=SNK0VH4wvO0](https://www.youtube.com/watch?v=SNK0VH4wvO0)
+[Watch on Youtube: One Way Street](https://www.youtube.com/watch?v=SNK0VH4wvO0)
 
 See how right off the bat, the song loses its edge:
 
@@ -109,11 +109,11 @@ I love you, Bruce, but this is not your best moment on vinyl. This version of �
 
 I have to give you points back for your live performances, though. That Light of Day performance from 2011 with Joe Grushecky and The Houserockers was just gorgeous, and your vocal is as soulful as I’ve ever heard you. An absolute show-stopper.
 
-[https://www.youtube.com/watch?v=uJ9URfUecl4](https://www.youtube.com/watch?v=uJ9URfUecl4)
+[Watch on Youtube: One Way Street - Springsteen & Joe Gruschecky](https://www.youtube.com/watch?v=uJ9URfUecl4)
 
 Your only E Street Band performance (other than the private carousel concert when the album came out) from 2013 can’t quite match that Houserockers version, but it’s nice to hear the song brought to life in its original arrangement.
 
-[https://www.youtube.com/watch?v=pYMB3Bpm_oo](https://www.youtube.com/watch?v=pYMB3Bpm_oo)
+[Watch on Youtube: Bruce Springsteen - One Way Street (Live 2013)](https://www.youtube.com/watch?v=pYMB3Bpm_oo)
 
 But if you’re ever in the mood to play it in concert again, maybe give the original lyrics a try? Or maybe just play “Hearts of Stone” instead… that song gets me every time.
 
@@ -123,4 +123,4 @@ Recorded:** June 17, 1977 (backing track), 2010 (vocals)
 **First performed:** December 7, 2010 (Asbury Park, NJ)  
 **Last performed:** July 5, 2013 (Monchengladbach, Germany)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

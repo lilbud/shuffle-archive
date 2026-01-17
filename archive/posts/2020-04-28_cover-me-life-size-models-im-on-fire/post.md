@@ -10,10 +10,10 @@ There are zillions of versions out there, some better than others, but rarely do
 
 Trust me on this–take a listen:
 
-[https://www.youtube.com/watch?v=X16M1G5TWwE](https://www.youtube.com/watch?v=X16M1G5TWwE)
+[Watch on Youtube: Life Size Models - I'm on Fire [Bruce Springsteen Cover]](https://www.youtube.com/watch?v=X16M1G5TWwE)
 
 “I’m on Fire” may be a new single, but it’s been part of the band’s sets for a while. Here’s a fantastic live performance from 2018. Turn up your volume first, though, because this one rocks even harder. (Skip to 43:15)
 
-[https://www.youtube.com/watch?v=aqgCrZ4N7Ko?start=2593](https://www.youtube.com/watch?v=aqgCrZ4N7Ko?start=2593)
+[Watch on Youtube: Life Size Models Live at Art Boutiki Music Hall](https://www.youtube.com/watch?v=aqgCrZ4N7Ko?start=2593)
 
 If you liked Life Size Models’ take on “I’m on Fire,” check out “Cusack, 1984” and their other music [here](https://www.lifesizemodelsband.com/about).

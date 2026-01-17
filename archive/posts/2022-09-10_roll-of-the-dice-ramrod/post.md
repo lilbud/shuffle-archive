@@ -1,7 +1,5 @@
 > “This guy, he’s there, but he’s really *not* there no more. He’s the guy in ‘[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)‘–either guy, actually. But he’s also the guy, in the end, who says, ‘I’ll give you the word, now, sugar, we’ll go ramrodding forever more.’ I don’t know, that’s a real sad line to me, sometimes.”
 > 
-> 
-> 
 > — Bruce Springsteen to Dave Marsh, *Musician*, February 1981
 
 I call bullshit.
@@ -14,13 +12,13 @@ Despite Bruce’s coy comments to the contrary, “Ramrod” is neither sad nor 
 
 It’s a sex song.
 
-[https://www.youtube.com/watch?v=BEhmiGQvjOY](https://www.youtube.com/watch?v=BEhmiGQvjOY)
+[Watch on Youtube: Ramrod](https://www.youtube.com/watch?v=BEhmiGQvjOY)
 
 “Ramrod” is as deep as its sister song, “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/).” Both are laced liberally with double entendre, both are built on car-as-metaphor-for-genitalia chassis, and both are impossible to resist on record and in concert.
 
 And come on: even if you didn’t know Bruce is singing about his character’s penis, you *kind of* knew, didn’t you? Especially if you’ve seen him perform it live:
 
-[https://videopress.com/embed/8ps8Tagv](https://videopress.com/embed/8ps8Tagv)
+[Watch Video Highlight](https://videopress.com/embed/8ps8Tagv)
 
 “Ramrod” is as big a celebration of life as anything Bruce has ever written, and if there’s anything about the narrator to be pitied, perhaps its his somewhat naïve notion that marriage is the key to everlasting sex.
 
@@ -64,23 +62,25 @@ And that’s pretty much the whole song, lyrically at least.
 
 This is the E Street Band at their most cocksure. For an artist famous for arrangements that belie his lyrics, “Ramrod” features an absolutely perfect pairing.
 
-[https://www.youtube.com/watch?v=RJVauHVQ-X0](https://www.youtube.com/watch?v=RJVauHVQ-X0)
+[Watch on Youtube: Bruce Springsteen - Ramrod (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=RJVauHVQ-X0)
 
 And yet despite all that, I’d argue that to truly appreciate “Ramrod,” one must witness it. As much as or more so than any other song in Springsteen’s catalog, “Ramrod” is a visual song. It’s positively kinetic, in fact, as any of the many professionally recorded performances over the years will attest.
 
-[https://www.youtube.com/watch?v=Tv_7WMPpzb4](https://www.youtube.com/watch?v=Tv_7WMPpzb4)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Ramrod (Live in New York City)](https://www.youtube.com/watch?v=Tv_7WMPpzb4)
 
-[https://www.youtube.com/watch?v=kmN4CNTni3I](https://www.youtube.com/watch?v=kmN4CNTni3I)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Ramrod (Live In Barcelona)](https://www.youtube.com/watch?v=kmN4CNTni3I)
 
 Over the years, “Ramrod” has only grown in length, power, and schtick, and if you catch it today you’re likely to also catch Bruce and Stevie at their goofiest… especially if there’s a full moon.
 
-[https://videopress.com/embed/BhBwRNao](https://videopress.com/embed/BhBwRNao)
+[Watch Video Highlight](https://videopress.com/embed/BhBwRNao)
+
+
 
 “Ramrod” isn’t always faithful to its album arrangement. Bruce had a two-year dalliance with an alternate Latin-influenced arrangement in both acoustic and full-band (Sessions Band, that is) versions that breathed new life into the 1980 rocker.
 
-[https://www.youtube.com/watch?v=aBnk2vuep7s](https://www.youtube.com/watch?v=aBnk2vuep7s)
+[Watch on Youtube: Ramrod - Bruce Springsteen (17-05-2005 Tower Theatre de Upper Darby,Philadelphia)](https://www.youtube.com/watch?v=aBnk2vuep7s)
 
-[https://www.youtube.com/watch?v=GN457GBO5NI](https://www.youtube.com/watch?v=GN457GBO5NI)
+[Watch on Youtube: Ramrod - Bruce Springsteen (10-10-2006 PalaLottomatica, Roma, Italia)](https://www.youtube.com/watch?v=GN457GBO5NI)
 
 But no matter what the form, “Ramrod” is an opportunity for Bruce to cut loose, which is why it’s become a perennial encore staple. If you’re a gambler, feel free to place your bets now: odds are good we’ll be hearing “Ramrod” in concert throughout 2023.
 

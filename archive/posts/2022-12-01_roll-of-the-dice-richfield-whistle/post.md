@@ -8,7 +8,7 @@ However, by the end of the second verse, “Richfield Whistle” establishes its
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=Gn1OcjnKDsw](https://www.youtube.com/watch?v=Gn1OcjnKDsw)
+[Watch on Youtube: Bruce Springsteen - Richfield Whistle (RARE home demo 1983)](https://www.youtube.com/watch?v=Gn1OcjnKDsw)
 
 The early verses are very similar to “James Lincoln Deere,” but the few changes are significant. James is still Remington-born, and he still finds himself in Richfield Prison. But whereas James Lincoln ends up behind bars for the cruel crime he commits late in the song, James Lucas has already served his sentence by the time we meet him.
 

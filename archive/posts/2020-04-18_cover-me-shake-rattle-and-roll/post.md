@@ -8,19 +8,19 @@ Bruce made several appearances that night, but none more anticipated than his le
 
 First out of the gate: a cover of Big Joe Turner’s “Shake, Rattle and Roll.” Truth be told, it wasn’t a particularly impressive cover. The tempo was plodding, the band too muscular (it would be several years before they’d learn to swing), and the overall effect was one of sluggishness. It certainly didn’t convey the sexual heat of the original.
 
-[https://www.youtube.com/watch?v=viNpxPSxQDE](https://www.youtube.com/watch?v=viNpxPSxQDE)
+[Watch on Youtube: Bruce Springsteen | Shake, Rattle And Roll - Cleveland - 02/09/1995](https://www.youtube.com/watch?v=viNpxPSxQDE)
 
 Big Joe Turner’s risque 1954 original was much lighter on its feet (even if Turner had to slur his lyrics to slip them by the censors). It peaked at #22 on the Billboard pop chart, and *Rolling Stone* ranked it #127 on their 500 Greatest Songs of All Time.
 
-[https://www.youtube.com/watch?v=Y9wTQsAgktg](https://www.youtube.com/watch?v=Y9wTQsAgktg)
+[Watch on Youtube: JOE TURNER Shake, Rattle and Roll 78 rpm 1954](https://www.youtube.com/watch?v=Y9wTQsAgktg)
 
 Turner brought even more energy to live performances of the song–check out this remarkably preserved contemporary performance from shortly after the song was released.
 
-[https://www.youtube.com/watch?v=YhELpSeeipg](https://www.youtube.com/watch?v=YhELpSeeipg)
+[Watch on Youtube: BIG JOE TURNER. Shake, Rattle & Roll. Live 1954 Performance from Rhythm & Blues Revue](https://www.youtube.com/watch?v=YhELpSeeipg)
 
 But the most famous version of the song is Bill Haley’s quick follow-up cover, released later that year. Haley’s version made it all the way to #7 on the chart.
 
-[https://www.youtube.com/watch?v=8B7xr_EjbzE](https://www.youtube.com/watch?v=8B7xr_EjbzE)
+[Watch on Youtube: Shake, Rattle and Roll - Bill Haley and his Comets](https://www.youtube.com/watch?v=8B7xr_EjbzE)
 
 Both versions were big hits, and “Shake, Rattle and Roll” became the first massive rock and roll hit and an instant standard–known, loved and covered by rock musicians in every generation since.
 
@@ -32,10 +32,8 @@ The scene was Borussia-Park in Mönchengladbach, Germany on the evening of July 
 
 Here’s that much, much, *much* better cover of “Shake, Rattle and Roll” — the last time Bruce has performed it to date.
 
-[https://www.youtube.com/watch?v=JUpCYsHNGfA](https://www.youtube.com/watch?v=JUpCYsHNGfA)
+[Watch on Youtube: Bruce Springsteen - Shake, rattle & Roll live in Mönchengladbach 05/07/13](https://www.youtube.com/watch?v=JUpCYsHNGfA)
 
 **Shake, Rattle and Roll  
 First performed:** September 2, 1995 (Cleveland, OH)  
 **Last performed:** July 5, 2013 (Mönchengladbach, Germany)
-
- 

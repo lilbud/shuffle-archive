@@ -2,7 +2,7 @@ Toward the end of the era when recorded music was primarily delivered via circul
 
 The practice dates back at least as far as The Beatles and their *Abbey Road* album, which included a 23-second medley outtake called “Her Majesty” that accidentally ended up at the end of the album thanks to an over-tired eighteen-year-old audio engineer and the startled band’s amused reaction when they first heard the playback.
 
-[https://www.youtube.com/watch?v=Mh1hKt5kQ_4](https://www.youtube.com/watch?v=Mh1hKt5kQ_4)
+[Watch on Youtube: Her Majesty (Remastered 2009)](https://www.youtube.com/watch?v=Mh1hKt5kQ_4)
 
 Hidden tracks popped up on other albums from time to time, but when digital CDs arrived on the scene, the quirky practice bloomed into a bona fide fad.
 
@@ -12,7 +12,7 @@ In the 1990s glory days of the compact disc, it seemed everyone was releasing di
 
 Bruce Springsteen, however, avoided it completely until his 2007 album *Magic*, which included an unlisted track called “[Terry’s Song.](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)”
 
-[https://www.youtube.com/watch?v=jo9tv7J0HR8](https://www.youtube.com/watch?v=jo9tv7J0HR8)
+[Watch on Youtube: Terry's Song](https://www.youtube.com/watch?v=jo9tv7J0HR8)
 
 That track wasn’t hidden so much as as unacknowledged; it was a late addition to the album after Bruce wrote and recorded it as a tribute for the late Terry Magovern, Bruce’s friend and assistant, after Magovern passed away just weeks before the album’s release. The album had already been completed, and in fact early copies of it didn’t include the extra track at all.
 
@@ -20,7 +20,7 @@ Three years later, though, Bruce released an album with a track that was hidden 
 
 Bruce was so determined to hide the song that he didn’t even make it a separate track. Even today, the only way to listen to an official recording of it is to play through the first three minutes or so of “City at Night” until “The Way” kicks in.
 
-[https://www.youtube.com/watch?v=rtI5TxfhhUU](https://www.youtube.com/watch?v=rtI5TxfhhUU)
+[Watch on Youtube: City of Night](https://www.youtube.com/watch?v=rtI5TxfhhUU)
 
 “The Way” certainly wasn’t a last-minute recording like “Terry’s Song.” Bruce recorded it with the E Street Band more than three decades earlier.
 

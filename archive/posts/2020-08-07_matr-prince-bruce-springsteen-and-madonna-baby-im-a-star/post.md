@@ -12,15 +12,17 @@ Still, the power trio never managed to share a stage… except for that one nigh
 
 And then, that one time only, Prince, Bruce Springsteen (on guitar) and Madonna (on tambourine) performed together on Prince’s “Baby, I’m a Star.” Listen to that nineteen-minute(!) performance below–you’ll hear Bruce take a lengthy guitar solo around the seven-minute mark.
 
-[https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F282257711&amp;show_artwork=true&amp;maxwidth=758&amp;maxheight=1000&amp;dnt=1](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F282257711&amp;show_artwork=true&amp;maxwidth=758&amp;maxheight=1000&amp;dnt=1)
+[LA Forum Baby I'm A Star (feat Madonna & Bruce Springsteen) by User THE GREAT VANNELLI 3](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F282257711&show_artwork=true&maxwidth=758&maxheight=1000&dnt=1)
+
+
 
 The original album version of “Baby I’m a Star” was much shorter, of course. Released as the B-side to “Take Me With U” in 1984 it clocked in at a mere four-and-half minutes.
 
-[https://www.youtube.com/watch?v=4YdPZ1J0KrE](https://www.youtube.com/watch?v=4YdPZ1J0KrE)
+[Watch on Youtube: Baby I'm a Star](https://www.youtube.com/watch?v=4YdPZ1J0KrE)
 
 On stage, though, “Baby I’m a Star” was epic-length even from the early days of the Purple Rain Tour–like Bruce, Prince made the most of every song, holding band and audience alike in tight formation.
 
-[https://www.youtube.com/watch?v=9Lgf2VU_M70](https://www.youtube.com/watch?v=9Lgf2VU_M70)
+[Watch on Youtube: Prince - Baby I'm A Star (Live 1984) [Official Video]](https://www.youtube.com/watch?v=9Lgf2VU_M70)
 
 Unconfirmed rumors abound that Bruce was on stage for more than just that one song that night. I’ve heard other tracks from that show’s bootleg, however, and I’m skeptical.
 
@@ -29,5 +31,3 @@ This is likely a truly one-time-only performance.
 **Baby I’m a Star|  
 First performed:** February 23, 1985 (Inglewood, CA)  
 **Last performed:** February 23, 1985 (Inglewood, CA)
-
- 

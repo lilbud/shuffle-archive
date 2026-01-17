@@ -22,7 +22,7 @@ So again: why?
 
 To answer that, we must first take a deep listen to the song. Let’s do it together.
 
-[https://www.youtube.com/watch?v=E_0pQTEhj8A](https://www.youtube.com/watch?v=E_0pQTEhj8A)
+[Watch on Youtube: Bruce Springsteen - Rainmaker (Official Audio)](https://www.youtube.com/watch?v=E_0pQTEhj8A)
 
 The rainmaker in “Rainmaker” is metaphor, of course, but it’s a metaphor grounded in real life.
 

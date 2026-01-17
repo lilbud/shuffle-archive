@@ -8,7 +8,7 @@ A lifelong fan (seriously: Noah attended his first show when he was eight years 
 
 It might sound a lot like this.
 
-[https://www.youtube.com/watch?v=negPEfAT308](https://www.youtube.com/watch?v=negPEfAT308)
+[Watch on Youtube: Noah Chenfeld - Born To Run [Bruce Springsteen cover]](https://www.youtube.com/watch?v=negPEfAT308)
 
 Numb and gauzy, Noah’s version of “Born to Run” is an ironic, sad reminder of all we’re missing right now.
 
@@ -16,6 +16,6 @@ The subtle second cover? Well, that one’s in-your-face, too–in a different w
 
 You might have already caught it, but if not: Noah took inspiration from Bruce’s video for “[Brilliant Disguise,](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” pulling off a double homage to our favorite songwriter.
 
-[https://www.youtube.com/watch?v=idnJnjV_8rg](https://www.youtube.com/watch?v=idnJnjV_8rg)
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
 Check out more of Noah’s music [here](https://www.youtube.com/channel/UCYz4nxwjAPu27509GOGzjlA).

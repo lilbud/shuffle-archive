@@ -6,7 +6,7 @@ Bruce performed it just shy of two dozen times during his 1977 “Lawsuit Tour,�
 
 The first time he performed it (opening night in Albany), the song’s title didn’t even appear in the lyrics.
 
-[https://www.youtube.com/watch?v=0djlWR3VncE](https://www.youtube.com/watch?v=0djlWR3VncE)
+[Watch on Youtube: Action In The Streets (Live at the Palace Theatre, Albany, NY - 02/07/77 - Official Audio)](https://www.youtube.com/watch?v=0djlWR3VncE)
 
 And despite benefiting from two stellar soundboard archive releases, it still sounds like Bruce was either partially bluffing the lyrics each night or else realized that for a song like “Action in the Streets,” diction didn’t really matter. Certainly, the lyrics don’t. “Action in the Streets” is basically a song-length “everybody dance!”
 
@@ -43,7 +43,7 @@ But on a summer night at the Wonder Bar in Asbury Park in 2011, eyebrows were ra
 
 The set started with a familiar melody that fooled most who recognized it into expecting “So Young and in Love.” By the time Bowen entered with his vocals, however, hardcore fans knew they were witnessing the return of “Action in the Streets” after an almost 35-year absence.
 
-[https://www.youtube.com/watch?v=GDXOZ-0WTRo](https://www.youtube.com/watch?v=GDXOZ-0WTRo)
+[Watch on Youtube: Bruce Springsteen/Sensational Soul Cruisers ~ Action In The Street ~ Video by Rose A Montana](https://www.youtube.com/watch?v=GDXOZ-0WTRo)
 
 For the few in attendance, it was a magical throwback to a simpler time–one not likely to be repeated again. As for that instrumental, though… Bruce seems too fond of it for us to have seen the last of it.
 

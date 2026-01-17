@@ -6,13 +6,13 @@ Bruce’s list also includes Elvis, The Beatles, The Rolling Stones, Bob Dylan, 
 
 There was one Four Tops song that almost made the Springsteen concert cut, though: their 1965 hit “Something About You.”
 
-[https://www.youtube.com/watch?v=HuAaCgojI90](https://www.youtube.com/watch?v=HuAaCgojI90)
+[Watch on Youtube: The Four Tops .... Something About You.1965](https://www.youtube.com/watch?v=HuAaCgojI90)
 
 “Something About You” climbed as high as #19 on the Billboard Hot 100 that year, and to #9 on the R&B Chart. And while it may not have been Bruce’s desert island song of choice (that honor belongs to “Baby, I Need Your Loving”), it did inspire one of Bruce’s own singles.
 
 The riff from “Something About You” bears a strong resemblance to “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/),” and when Bruce broke out the latter song during the Born in the U.S.A. Tour, he didn’t even try to hide his influence.
 
-[https://www.youtube.com/watch?v=VCmpqCRlVA4](https://www.youtube.com/watch?v=VCmpqCRlVA4)
+[Watch on Youtube: Bruce Springsteen - Pink Cadillac [Philadelphia, August 14, 1985]](https://www.youtube.com/watch?v=VCmpqCRlVA4)
 
 But it would take a few more years before Bruce would play the original on stage–and even then only during a rehearsal. One January day at the Expo Theater in Fort Monmouth, New Jersey, Bruce and the E Street Band took a break from practicing their new *Tunnel of Love* material and tackled the Four Tops classic instead.
 
@@ -27,5 +27,3 @@ Springsteen never did get around to performing it on stage, then or ever. But th
 **Something About You  
 First performed:** January 28, 1988 (Fort Monmouth, NJ) (soundcheck only)  
 **Last performed:** January 28, 1988 (Fort Monmouth, NJ) (soundcheck only)
-
- 

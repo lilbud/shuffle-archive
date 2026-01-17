@@ -18,9 +18,9 @@ He was the band’s tambourine player and backing vocalist from October 1965 unt
 
 Bob Alfano was the last member to join The Castiles. He followed the band’s leader to his next group as well. Although he turned down an offer to play on his bandmate’s first album, Alfano stayed active in the local music scene until his death in 2007.
 
-[http://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3?_=7](http://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3?_=7)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3?_=7)
 
-<http://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3>
 
 ---
 
@@ -60,7 +60,7 @@ In the summer of 2018, Bruce flew to his bedside to say goodbye to his old frien
 
 Fifty-three years after joining his very first band, Bruce Springsteen found himself the last man standing.
 
-[https://videopress.com/embed/yTlxwBCj](https://videopress.com/embed/yTlxwBCj)
+[Watch Video Highlight](https://videopress.com/embed/yTlxwBCj)
 
 The last surviving member of The Castiles found himself profoundly affected by that realization and keenly aware that his tomorrows were considerably fewer in number than his yesterdays.
 
@@ -70,7 +70,7 @@ Over the course of about ten days in April 2019, Bruce wrote the songs that woul
 
 The first song–the one that established the theme for the album and inspired all that came after–was “Last Man Standing.”
 
-[https://www.youtube.com/watch?v=8ldvyBNYqCY](https://www.youtube.com/watch?v=8ldvyBNYqCY)
+[Watch on Youtube: Bruce Springsteen - Last Man Standing](https://www.youtube.com/watch?v=8ldvyBNYqCY)
 
 Bruce wrote “Last Man Standing” on an acoustic guitar given to him by an anonymous Italian fan as Bruce exited the Walter Kerr Theater one evening. He was intrigued by the quality of the guitar and its mysterious origin, and he kept it in his living room where it sat neglected until Bruce reached for it as inspiration struck.
 
@@ -136,7 +136,7 @@ Bruce recorded “Last Man Standing” just prior to the pandemic of 2020, and h
 
 The first was shortly after the song’s release in October 2020 when Bruce appeared on Malcolm Gladwell and Rick Rubin’s podcast, *Broken Record.*
 
-[https://www.youtube.com/watch?v=CNsrCkJ_VBc](https://www.youtube.com/watch?v=CNsrCkJ_VBc)
+[Watch on Youtube: Bruce Springsteen - Last Man Standing (solo acoustic)](https://www.youtube.com/watch?v=CNsrCkJ_VBc)
 
 The second was just a couple of weeks ago during Bruce’s interview with Howard Stern.
 
@@ -148,7 +148,7 @@ As the genesis for *Letter to You*, “Last Man Standing” seems like a pretty 
 
 **Update 1/3/2024:** With World Tour 2023 behind us, we now know that of course “Last Man Standing” did indeed feature nightly–but as an affecting solo performance rather than with the full band (although Curt Ramm played a moving trumpet solo during the bridge).
 
-[https://www.youtube.com/watch?v=loLoscZVRzI](https://www.youtube.com/watch?v=loLoscZVRzI)
+[Watch on Youtube: Bruce Springsteen - Last Man Standing - St. Paul, MN - 3/5/2023](https://www.youtube.com/watch?v=loLoscZVRzI)
 
 **Last Man Standing  
 Recorded:** November 18-22, 2019  

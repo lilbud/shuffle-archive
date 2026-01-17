@@ -4,7 +4,7 @@ What’s to explain the ambivalence from both fans and artist?
 
 Heck if I know. It’s a great pop song–light in substance, dense in orchestration, and uplifting in spirit. It doesn’t carry the heft of Bruce’s more ambitious work, but like much of *Working on a Dream,* it isn’t meant to.
 
-[https://www.youtube.com/watch?v=yiJdnNqK8d4](https://www.youtube.com/watch?v=yiJdnNqK8d4)
+[Watch on Youtube: What Love Can Do](https://www.youtube.com/watch?v=yiJdnNqK8d4)
 
 *Working on a Dream* is an interesting animal. Lyrically, it’s a meditation on aging, and the wisdom acquired through life experience. Musically, it’s an homage to the lush arrangements of California sixties pop, which was originally the domain of the young.
 
@@ -76,11 +76,11 @@ I choose to believe he was simply early.
 
 For now, though, enjoy the one and only time Bruce performed the song live–in Philadelphia, late in the Working on a Dream Tour.
 
-[https://www.youtube.com/watch?v=S5G0JiAHUIo](https://www.youtube.com/watch?v=S5G0JiAHUIo)
+[Watch on Youtube: Bruce Springsteen - WHAT LOVE CAN DO - SUB ITA](https://www.youtube.com/watch?v=S5G0JiAHUIo)
 
 **Bonus:** Here’s some brief footage of Bruce playing an acoustic “What Love Can Do” from the *Working on a Dream* recording sessions.
 
-[https://videopress.com/embed/peRsvJRB](https://videopress.com/embed/peRsvJRB)
+[Watch Video Highlight](https://videopress.com/embed/peRsvJRB)
 
 **What Love Can Do**  
 **Recorded:** mid-2007  
@@ -88,4 +88,4 @@ For now, though, enjoy the one and only time Bruce performed the song live–in 
 **First performed:** October 14, 2009  
 **Last performed:** October 14, 2009
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

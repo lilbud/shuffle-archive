@@ -4,9 +4,9 @@ Springsteen scholars have spent decades documenting song fragments and recording
 
 For example: “The Informer,” known to us only because its title appeared along with a snippet of lyrics in the documentary included with *The Ties That Bind: The River Collection* in 2015. Here’s a screen cap:
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/04/Theinformer-300x168.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/04/Theinformer.jpg)
 
-Are there more lyrics than these? Did Bruce ever record the song? Did it morph into something else? (The lyrics we can read hint at some shared DNA with “[Whitetown](http://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/).”)
+Are there more lyrics than these? Did Bruce ever record the song? Did it morph into something else? (The lyrics we can read hint at some shared DNA with “[Whitetown](https://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/).”)
 
 We don’t know, and we probably won’t know, unless Bruce chooses to tell.
 
@@ -25,4 +25,4 @@ For now, “The Informer” remains an enigma. But someday, maybe, that vault wi
 Never recorded or released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

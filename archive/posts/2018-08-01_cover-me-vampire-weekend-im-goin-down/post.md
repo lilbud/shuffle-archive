@@ -4,8 +4,6 @@ Just after they premiered it in Vancouver, the band made a special stop to play 
 
 Fortunately, “[I’m Goin’ Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)” was on the setlist, so we now have a wonderfully shot and recorded acoustic rendition to enjoy.
 
-[https://www.youtube.com/watch?v=CZUMEIHLwGs](https://www.youtube.com/watch?v=CZUMEIHLwGs)
+[Watch on Youtube: Vampire Weekend "I'm Going Down" Acoustic Springsteen Cover](https://www.youtube.com/watch?v=CZUMEIHLwGs)
 
 The band continued to perform “I’m Goin’ Down” through the rest of the summer and early fall, but it doesn’t appear to have made their setlist since.
-
- 

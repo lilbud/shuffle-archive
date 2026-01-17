@@ -6,7 +6,7 @@ You’d probably feel bewildered. Betrayed. Bereft.
 
 You’d probably feel a lot like the narrator of “America Under Fire,” written and performed by 20-year-old Bruce Springsteen with Steel Mill at the height of the Vietnam War.
 
-[https://www.youtube.com/watch?v=ZifhQzfFgSM](https://www.youtube.com/watch?v=ZifhQzfFgSM)
+[Watch on Youtube: Bruce Springsteen and Steel Mill: America Under Fire 1970 01 13, The Matrix, San Francisco, CA](https://www.youtube.com/watch?v=ZifhQzfFgSM)
 
 With only three known performances (only one of which was recorded and circulates), “America Under Fire” is one of the rarer and more elusive early Springsteen originals. It exhibits the extraordinary degree of empathy young Bruce (who had never served) had already developed–empathy his narrator is in desperate search of.
 

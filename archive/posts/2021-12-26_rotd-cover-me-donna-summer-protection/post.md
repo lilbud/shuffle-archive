@@ -6,13 +6,13 @@ Geffen’s artist was reigning disco queen Donna Summer, and his friend Jon Land
 
 Bruce set about writing a song that had one foot in the disco arena and one foot in rock. It turned out great–so great, in fact, that Landau wouldn’t let his client give “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)” away.
 
-[https://www.youtube.com/watch?v=s3tqIk8TPWM](https://www.youtube.com/watch?v=s3tqIk8TPWM)
+[Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
 Landau convinced Bruce to hang on to “Cover Me” (it became the follow-up single to “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” and peaked at #7 in 1984), urging him instead to write something just like it, but different.
 
 He did exactly that. Bruce wrote “Protection,” another disco-influenced song that was the lyrical polar opposite of “Cover Me” and recorded a demo with the E Street Band.
 
-[https://www.youtube.com/watch?v=UMIs8Y23mBc](https://www.youtube.com/watch?v=UMIs8Y23mBc)
+[Watch on Youtube: Bruce Springsteen - Protection](https://www.youtube.com/watch?v=UMIs8Y23mBc)
 
 Where “Cover Me” featured a narrator begging for the shelter of his partner’s love, the narrator of the anti-“Cover Me” needs protection *from* his lover.
 
@@ -60,7 +60,7 @@ Summer loved the demo of “Protection” so Bruce flew out to Hollywood to work
 
 Still, Bruce spent a few days with Donna working on the song, and he appears on her officially released track, playing lead guitar and contributing backing vocals on a backing track that sounds very similar to the E Street Band’s version. (Roy Bittan also performs on the track.)
 
-[https://www.youtube.com/watch?v=hBzoIJdPiZI](https://www.youtube.com/watch?v=hBzoIJdPiZI)
+[Watch on Youtube: Protection Donna Summer](https://www.youtube.com/watch?v=hBzoIJdPiZI)
 
 Donna released “Protection” as the second single from her self-titled album in early 1983, but it didn’t chart. It did, however, earn her a Grammy nomination for Best Female Rock Vocal Performance. (She lost to Pat Benatar.) In her album liner notes, she thanked Bruce for “hangin’ out and workin’ out” on the song.
 
@@ -68,7 +68,7 @@ Donna released “Protection” as the second single from her self-titled album 
 
 As for Bruce’s own version, it remains complete but unreleased in his vault. To this day, he’s never performed it in concert, although he may have come close in 1988, when he rehearsed it for the Tunnel of Love Express Tour.
 
-[https://videopress.com/embed/QGAplFJi](https://videopress.com/embed/QGAplFJi)
+[Watch Video Highlight](https://videopress.com/embed/QGAplFJi)
 
 Despite Summer’s inclusion of it on her own album, “Protection” was at one point a contender for *Born in the U.S.A.* as well, with Landau in particular lobbying for its inclusion. If the long-rumored *Born in the U.S.A.* anniversary box set ever sees the light of day, there’s a good chance we may finally see an official release of Bruce’s version of “Protection.”
 

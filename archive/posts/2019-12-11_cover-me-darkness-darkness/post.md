@@ -1,6 +1,6 @@
 “Darkness, Darkness” never got anywhere close to being a hit for The Youngbloods. Even though the band released it as a single twice (once in 1969 and then again the following year), it took the second attempt for it to even crack the Top 100.
 
-[https://www.youtube.com/watch?v=ORSD_u2upP4](https://www.youtube.com/watch?v=ORSD_u2upP4)
+[Watch on Youtube: The Youngbloods - Darkness, Darkness](https://www.youtube.com/watch?v=ORSD_u2upP4)
 
 That didn’t stop Jesse Colin Young’s anti-war song from inspiring a host of covers over the years from Robert Plant, Ann and Nancy Wilson, Eric Burdon, Cowboy Junkies, and more.
 
@@ -10,7 +10,7 @@ It’s not surprising that “Darkness, Darkness” resonated with Bruce. With l
 
 But it’s a little bit surprising that Bruce chose to arrange “Darkness, Darkness” as a twelve-minute instrumental jam rather than include its lyrics.
 
-[https://www.youtube.com/watch?v=QGTbr0ShG_c](https://www.youtube.com/watch?v=QGTbr0ShG_c)
+[Watch on Youtube: Darkness Darkness Bruce Springsteen Band 1972 02 04, Back Door Club, Richmond, VA](https://www.youtube.com/watch?v=QGTbr0ShG_c)
 
 Why’d he do that? Beats me, but the Bruce Springsteen Band still manages to communicate the narrator’s dread and horror even without the lyrics.
 

@@ -2,7 +2,7 @@ It’s always fun (for me, at least) when the dice turn up a mini-theme.
 
 For the second time this week, we’re examining an officially released song that shares a whole lot of DNA with another released song. The other day, we looked at lyrical twins “[Be True](https://estreetshuffle.com/index.php/2019/04/03/roll-of-the-dice-mary-lou/)” and “[Mary Lou](https://estreetshuffle.com/index.php/2019/04/03/roll-of-the-dice-mary-lou/);” today, we take a look at “Come On (Let’s Go Tonight),” the musical twin of “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/).”
 
-[https://www.youtube.com/watch?v=j_LBQD2nghw](https://www.youtube.com/watch?v=j_LBQD2nghw)
+[Watch on Youtube: Come On (Let's Go Tonight)](https://www.youtube.com/watch?v=j_LBQD2nghw)
 
 If Bruce hadn’t released it on *The Promise* in 2010, I’d probably be covering “Come On (Let’s Go Tonight)” as an early draft of “Factory” instead of as a song in its own right.
 

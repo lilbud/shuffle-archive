@@ -20,7 +20,7 @@ Okay, enough tangents. Although I’ve dreaded this moment, it’s time to take 
 
 Don’t make me do it alone, okay?
 
-[https://www.youtube.com/watch?v=s3tqIk8TPWM](https://www.youtube.com/watch?v=s3tqIk8TPWM)
+[Watch on Youtube: Cover Me](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
 Why does this song elicit such a visceral reaction from me?
 
@@ -28,7 +28,7 @@ Well, it’s not the lyrics. I mean, they’re not particularly profound, but th
 
 In fact, Bruce himself made that argument implicitly, when he recast “Cover Me” almost a year and a half after he recorded it, as the unreleased outtake “[Drop On Down and Cover Me](https://estreetshuffle.com/index.php/2019/12/18/roll-of-the-dice-drop-on-down-and-cover-me/).”
 
-[https://www.youtube.com/watch?v=4iQh-UzJiH4](https://www.youtube.com/watch?v=4iQh-UzJiH4)
+[Watch on Youtube: Bruce Springstenn - Drop On Down And Cover Me](https://www.youtube.com/watch?v=4iQh-UzJiH4)
 
 “Drop on Down and Cover Me” is so far superior to “Cover Me” in every way that I am to this day mystified as to what made Bruce revert to the earlier version instead. Heck, even the guitar solo (the sole redeeming feature of “Cover Me”) is stronger in “Drop on Down and Cover Me.”
 
@@ -86,33 +86,33 @@ Lacking any substantive lyrics to distract from or elevate the backing track, �
 
 It wasn’t enough. After a rough opening, Baker finds his footing for a couple of minutes, but it quickly goes off the rails at around the 2:40 mark and becomes almost a parody of an 80s dance song.
 
-[https://www.youtube.com/watch?v=G_TZnp6AZaY](https://www.youtube.com/watch?v=G_TZnp6AZaY)
+[Watch on Youtube: Bruce Springsteen - Cover Me (Undercover Mix)](https://www.youtube.com/watch?v=G_TZnp6AZaY)
 
 Baker’s “Undercover” mix was accompanied by two shorter “dub” mixes. They weren’t much better.
 
-[https://www.youtube.com/watch?v=FpLXbQ119xc](https://www.youtube.com/watch?v=FpLXbQ119xc)
+[Watch on Youtube: Bruce Springsteen - Cover Me (Dub 1)](https://www.youtube.com/watch?v=FpLXbQ119xc)
 
-[https://www.youtube.com/watch?v=fpscKAcLEBE](https://www.youtube.com/watch?v=fpscKAcLEBE)
+[Watch on Youtube: Bruce Springsteen - Cover Me (Dub 2)](https://www.youtube.com/watch?v=fpscKAcLEBE)
 
 Caught between worlds, “Cover Me” works in neither its rock nor club mix form. And yet, it was a bona fide hit, peaking at #7 in the summer of 1984, the second of a record-tying string of seven Top Ten singles from a single album. Only Michael Jackson, Janet Jackson, and Drake have ever equaled that feat. (Strangely, though, for the peak era of MTV, Bruce never filmed a video for “Cover Me.”)
 
 So naturally, Bruce kept “Cover Me” in his set lists throughout the Born in the U.S.A. Tour, prefixing it with an ominous introduction that only served to raise expectations before dashing them. (Bruce’s guitar solo worked pretty well live, though.)
 
-[https://www.youtube.com/watch?v=betZWo0gZrc](https://www.youtube.com/watch?v=betZWo0gZrc)
+[Watch on Youtube: Cover Me - Bruce Springsteen - Paris 85](https://www.youtube.com/watch?v=betZWo0gZrc)
 
 “Cover Me” stuck around on the next tour, too. On the Tunnel of Love Express Tour, Bruce gave Patti one of her first spotlight moments with a Martha Reeves-inspired intro, and the horn section made the riff sound slightly less dated. Otherwise, though, the arrangement was the same.
 
-[https://www.youtube.com/watch?v=__ujWoXLYUw](https://www.youtube.com/watch?v=__ujWoXLYUw)
+[Watch on Youtube: Bruce Springsteen - Cover Me (Montain View, May 3, 1988)](https://www.youtube.com/watch?v=__ujWoXLYUw)
 
 Bruce kept “Cover Me” in heavy rotation through one last tour in 1992, and I actually think it fared somewhat better in the hands of his new touring band.
 
-[https://www.youtube.com/watch?v=ZGmUQEQy1gs](https://www.youtube.com/watch?v=ZGmUQEQy1gs)
+[Watch on Youtube: Bruce Springsteen Cover Me NJ 1992](https://www.youtube.com/watch?v=ZGmUQEQy1gs)
 
 But as the 1980s faded further and firmly into the rearview mirror, “Cover Me” thankfully became a rarity, making only a handful of appearances per tour from the Magic Tour forward. (Maddeningly, I seemed to have a knack for catching them.)
 
 Credit Bruce for always playing it straight, at least. He never gave anything but his all to each performance.
 
-[https://www.youtube.com/watch?v=_7Qk9MdyiOM](https://www.youtube.com/watch?v=_7Qk9MdyiOM)
+[Watch on Youtube: Bruce Springsteen - Cover Me (from Born In The U.S.A. Live: London 2013)](https://www.youtube.com/watch?v=_7Qk9MdyiOM)
 
 It’s been about four years since we last heard Bruce perform “Cover Me” in concert, but then again Bruce hasn’t played a whole lot of concerts in that time.
 
@@ -125,7 +125,7 @@ I’m thinking this is a streak worth extending.
 
 **Bonus:** Here’s an alternate, unreleased mix of “Cover Me.” I present it here for the catharsis of hearing the E Street Band bring the song to a satisfying halt. You can almost hear the sigh of relief.
 
-[https://videopress.com/embed/e3V4yBk8](https://videopress.com/embed/e3V4yBk8)
+[Watch Video Highlight](https://videopress.com/embed/e3V4yBk8)
 
 **Cover Me  
 Recorded:** January 25, 1982  

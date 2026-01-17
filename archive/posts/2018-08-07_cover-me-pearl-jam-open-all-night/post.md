@@ -6,6 +6,4 @@ Bruce only plays “Open All Night” in two modes–acoustic or swing–so it�
 
 In the meantime, if you’re going to one or both of these sure-to-be-epic shows, enjoy the experience–and thank you.
 
-[https://www.youtube.com/watch?v=n-iZsEh7cxM](https://www.youtube.com/watch?v=n-iZsEh7cxM)
-
- 
+[Watch on Youtube: Pearl Jam | Open All Night - Lincoln - 09/10/2014](https://www.youtube.com/watch?v=n-iZsEh7cxM)

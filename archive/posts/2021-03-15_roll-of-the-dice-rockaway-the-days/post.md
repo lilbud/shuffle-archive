@@ -12,7 +12,7 @@ A couple of months ago, we took a look at Bruce’s unreleased *Nebraska* outtak
 
 But while “Highway Patrolman” allows Frankie to escape unscathed and “Losin’ Kind” spares its narrator after a *very* close call, Bruce gives no mercy to Billy, the main character in his 1984 *Born in the U.S.A.* outtake, “Rockaway the Days.”
 
-[https://www.youtube.com/watch?v=eu5sSFAC5-U](https://www.youtube.com/watch?v=eu5sSFAC5-U)
+[Watch on Youtube: Rockaway The Days (Studio Outtake - 1984)](https://www.youtube.com/watch?v=eu5sSFAC5-U)
 
 “Rockaway the Days” features a lead character who is very much the losin’ kind, but Billy is a much darker character than Frank. We can see his fate coming right from the opening lines.
 
@@ -88,7 +88,7 @@ As we take our leave of our cast, Billy’s mom offers her daughter-in-law shelt
 
 Bruce gave no explanation for the one-off arrangement, and he never played the song that way again. Only after Bruce’s 1984 recording of “Rockaway the Days” was released on *Tracks* in 1998 would the jigsaw pieces fall into in place.
 
-[https://www.youtube.com/watch?v=eCdCbD6iA7g](https://www.youtube.com/watch?v=eCdCbD6iA7g)
+[Watch on Youtube: Seeds (Live at Shoreline Amphitheatre, Mountain View, CA - 10/13/86 - Official Audio)](https://www.youtube.com/watch?v=eCdCbD6iA7g)
 
 **Rockaway the Days  
 Recorded:** January 12, 1984  

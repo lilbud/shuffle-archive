@@ -8,7 +8,7 @@ Bruce’s vocals enter the scene just past the one-minute mark, and they don’t
 
 Take a listen below.
 
-[https://www.youtube.com/watch?v=OiuH7_ITOaI](https://www.youtube.com/watch?v=OiuH7_ITOaI)
+[Watch on Youtube: Graham Parker and the Rumour -- Endless Night](https://www.youtube.com/watch?v=OiuH7_ITOaI)
 
 **Endless Night**  
 **Recorded:** December 1979  

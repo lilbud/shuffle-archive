@@ -6,7 +6,7 @@ This is also from the last known recording of the Bruce Springsteen Band, which 
 
 But here at Tinker’s place in the spring of 1972, we’re eavesdropping on a small band seemingly without a care in the world. Their performance of Bruce’s original song, “I Got to Have You, Baby,” is loose but confident with some delightful interplay between the band members, who oblige their boss with party noises from the get-go.
 
-[https://videopress.com/embed/CH2ssoop](https://videopress.com/embed/CH2ssoop)
+[Watch Video Highlight](https://videopress.com/embed/CH2ssoop)
 
 (Yeah, I hear the theme from *Sesame Street,* too. I have no idea if that was intentional, although the show was certainly on the air by then.)
 

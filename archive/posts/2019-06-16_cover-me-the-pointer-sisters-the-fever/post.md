@@ -4,7 +4,7 @@ It’s just that they bring so much *heat.*
 
 Check it out in this video (which I only just discovered as I wrote this post–I never knew there was a high-quality video of it until now), and you’ll see what I mean.
 
-[https://www.youtube.com/watch?v=DL126FttZFs](https://www.youtube.com/watch?v=DL126FttZFs)
+[Watch on Youtube: Pointer Sisters - (She's Got) The Fever • TopPop](https://www.youtube.com/watch?v=DL126FttZFs)
 
 She’s got the fever, indeed.
 

@@ -4,7 +4,7 @@ Steve Van Zandt produced and arranged five of the songs on that album (and playe
 
 One of the songs that Steve did *not* have a hand in but still ended up on the album was “Pumping Iron,” as much an anthem for Pittsburgh as anything Bruce ever wrote for New Jersey.
 
-[https://www.youtube.com/watch?v=TJYuNTpsBhY](https://www.youtube.com/watch?v=TJYuNTpsBhY)
+[Watch on Youtube: Pumping Iron](https://www.youtube.com/watch?v=TJYuNTpsBhY)
 
 “Pumping Iron” couldn’t be more perfectly tailored for a Grushecky/Springsteen team-up, which is probably why they’ve performed it together almost two dozen times over the years (and probably more to come).
 
@@ -12,18 +12,16 @@ One the earliest of those performances was captured live on October 20, 1995, at
 
 Take a listen to this superb recording of Joe Grushecky and The Houserockers (featuring Bruce Springsteen) performing “Pumping Iron.”
 
-[https://www.youtube.com/watch?v=uel97b0CV9A](https://www.youtube.com/watch?v=uel97b0CV9A)
+[Watch on Youtube: Pumping Iron](https://www.youtube.com/watch?v=uel97b0CV9A)
 
 Bruce joined Joe and The Houserockers throughout their American Babylon Tour (otherwise known as the October Assault), and “Pumping Iron” featured prominently in the setlist.
 
 **Bonus:** Bruce and Joe would reprise it many times over the years that followed–although only in Pittsburgh or Asbury Park. Their last performances (to date, at least) were at the Wonder Bar on July 18, 2015, and at Light of Day in January 2020, and fortunately they were captured from close-up.
 
-[https://www.youtube.com/watch?v=SN5QnT6WOp4?start=124](https://www.youtube.com/watch?v=SN5QnT6WOp4?start=124)
+[Watch on Youtube: Bruce Springsteen live at Wonder Bar Atlantic City into Pumping Iron 07/18/2015](https://www.youtube.com/watch?v=SN5QnT6WOp4?start=124)
 
-[https://www.youtube.com/watch?v=5TrjyioI4IQ](https://www.youtube.com/watch?v=5TrjyioI4IQ)
+[Watch on Youtube: Joe Grushecky & Houserockers Bruce Springsteen “Pumping Iron” LOD20 ~ Rose A Montana Video](https://www.youtube.com/watch?v=5TrjyioI4IQ)
 
 **Pumping Iron**  
 **First performed:** July 22, 1995 (Sea Bright, NJ)  
 **Last performed:** January 18, 2020 (Asbury Park, NJ)
-
- 

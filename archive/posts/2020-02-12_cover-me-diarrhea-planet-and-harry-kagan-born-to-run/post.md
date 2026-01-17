@@ -6,10 +6,8 @@ But add Music Band’s Harry Kagan on lead vocals, and the incredible Ross Holme
 
 Seriously: turn up the volume, switch to full screen mode, and just take it all in:
 
-[https://www.youtube.com/watch?v=jYHiTyBsdHI](https://www.youtube.com/watch?v=jYHiTyBsdHI)
+[Watch on Youtube: Diarrhea Planet "Born To Run" Live @ Exit/In Freakin' Weekend VIII (1080p)](https://www.youtube.com/watch?v=jYHiTyBsdHI)
 
 See what I mean? Sadly, Diarrhea Planet is no more–the band broke up in 2018. But at least we have this incredible performance to remember them by.
 
 Just be careful not to mentally juxtapose the name of the band and the song, though, or else you may never hear “Born to Run” the same way again.
-
- 

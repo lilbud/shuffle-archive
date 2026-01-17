@@ -2,7 +2,7 @@ I’m gonna say it: I *love* this song, and it’s in my top three tracks on *Th
 
 Fans love to lavish the hate on this song–heck, even Bruce seems embarrassed by it (he only ever performed it once). But from the first listen, “Let’s Be Friends” hooked me with it’s summery, shimmery, feel-good R&B groove.
 
-[https://www.youtube.com/watch?v=hEPtmU5okkk](https://www.youtube.com/watch?v=hEPtmU5okkk)
+[Watch on Youtube: BRUCE SPRINGSTEEN - Let's Be Friends VIDEO HD](https://www.youtube.com/watch?v=hEPtmU5okkk)
 
 There’s no depth to “Let’s Be Friends.” It’s a seduction song, pure and simple, and the lyrics boil down to: stop pussyfooting and start carpe dieming:
 
@@ -35,7 +35,7 @@ I honestly can’t fathom the criticism that “Let’s Be Friends” attracts, 
 
 If you’re hoping (like me) to catch this song live, don’t hold your breath. Bruce has played it only once, at the tail end of The Rising Tour, and it was, um, rough:
 
-[https://www.youtube.com/watch?v=wawtqYSdCPM](https://www.youtube.com/watch?v=wawtqYSdCPM)
+[Watch on Youtube: Bruce Springsteen - LET'S BE FRIENDS (SKIN TO SKIN) 2003 live](https://www.youtube.com/watch?v=wawtqYSdCPM)
 
 Yeah, maybe this one is better kept to vinyl. But if the E Street Band ever plays a show on the beach, this is gonna be my request sign. Y’all will just have to deal.
 
@@ -44,4 +44,4 @@ Recorded:** 1999-2002**Released:** *The Rising* (2002)
 **First performed:** September 16, 2003 (Hartford, CT)  
 **Last performed:** September 16, 2003 (Hartford, CT)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

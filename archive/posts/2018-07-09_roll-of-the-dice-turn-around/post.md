@@ -1,8 +1,8 @@
-It’s time for another dip into the “[1968 Notebook](http://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)” — this time for a song so work-in-progress that not only is it unfinished and unrecorded, it doesn’t even have a name. ([Springsteenlyrics.com](http://www.springsteenlyrics.com/lyrics.php?song=turnaround) adopted the first words of the first line as the working title, so we’ll do the same.)
+It’s time for another dip into the “[1968 Notebook](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)” — this time for a song so work-in-progress that not only is it unfinished and unrecorded, it doesn’t even have a name. ([Springsteenlyrics.com](https://www.springsteenlyrics.com/lyrics.php?song=turnaround) adopted the first words of the first line as the working title, so we’ll do the same.)
 
 “Turn Around” appears to be about a lothario who warns his dalliance not to fall for him, because he’s not sticking around for long–not especially surprising songwriting territory for an 18-year-old aspiring rock star. Except it’s not at all clear who’s falling for whom.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/turnaround_lyrics-203x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/07/turnaround_lyrics.jpg)
 
 Correcting the grammar and spelling a bit and making a couple of spot eye corrections (all credit to Springsteenlyrics for figuring most of this out), we’re looking at:
 
@@ -34,4 +34,4 @@ It’s not entirely clear which direction Bruce was planning to take this song, 
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

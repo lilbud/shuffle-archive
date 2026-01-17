@@ -8,7 +8,7 @@ The Christic Institute was founded in 1980. Technically a law firm, the institut
 
 Over time, the Christic Institute began shining a light into the shadowy actions of the federal government. In 1989 a judge dismissed one of their cases involving the Iran-Contra affair as a frivolous lawsuit and levied penalties upon them so high that they were unable to pay. Jackson Browne, Bonnie Raitt, and Bruce Springsteen took to the stage to raise money and attention for the beleaguered crusading organization.
 
-[https://www.youtube.com/watch?v=-Jx5pvfxSlE](https://www.youtube.com/watch?v=-Jx5pvfxSlE)
+[Watch on Youtube: Christic Institute Benefit News Coverage](https://www.youtube.com/watch?v=-Jx5pvfxSlE)
 
 Bruce’s set was remarkable for more than its at-the-time rarity. Advertised and delivered as an acoustic solo show, it was Bruce’s first such show since the formation of the E Street Band. (The Bridge School benefit show was acoustic but included Nils and Danny as accompaniment.)
 
@@ -16,13 +16,13 @@ It was also Bruce’s first chance to play the new music he’d been working on.
 
 Bruce dedicated that new song to “the people of the Christic Institute, who watch what’s going on when the lights go out.”
 
-[https://www.youtube.com/watch?v=bJ6Dgpht4Eg](https://www.youtube.com/watch?v=bJ6Dgpht4Eg)
+[Watch on Youtube: When The Lights Go Out - (16-11-1990 Shrine Auditorium, Los Angeles, California)](https://www.youtube.com/watch?v=bJ6Dgpht4Eg)
 
 Without the benefit of context, fans might have chalked up “When the Lights Go Out” as a *Tunnel of Love* outtake for its relationship song veneer. But given the occasion and with the benefit of a careful listen, “When the Lights Go Out” reveals itself as sharp political commentary cloaked in a song about intimate betrayal.
 
 Not even three weeks after its debut performance, Bruce recorded “When the Lights Go Out” on December 6th at The Record Plant in Los Angeles, in an arrangement almost as lean as the one he played on stage.
 
-[https://www.youtube.com/watch?v=MmYtkPFqjWE](https://www.youtube.com/watch?v=MmYtkPFqjWE)
+[Watch on Youtube: When The Lights Go Out (Studio Outtake - 1990)](https://www.youtube.com/watch?v=MmYtkPFqjWE)
 
 Accompanied only by Roy Bittan on keys and Jeff Porcaro on drums (both employed sparingly), Bruce propels the song forward with his bass in the vein of “[57 Channels (And Nothin’ On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)” and “[Goin’ Cali](https://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/).” (All three songs were part of a collection that Bruce wrote on the bass; they might have made for an interesting EP had he released them together.)
 

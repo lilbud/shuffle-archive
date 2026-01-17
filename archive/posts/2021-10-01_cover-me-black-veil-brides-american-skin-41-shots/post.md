@@ -10,8 +10,6 @@ Here’s what’s different about BVB: that wasn’t just a one-off cover. They 
 
 They even play it acoustically at times, and it’s their virtual radio tour performance for Cincinnati’s WEBN that caught my attention recently. As powerful and angry as “American Skin” is when plugged in, it’s poignant and mournful when performed acoustically, especially in the Brides’ haunting all-strings arrangement. I found myself captivated by their performance.
 
-[https://www.youtube.com/watch?v=ZrzCNBSDLow](https://www.youtube.com/watch?v=ZrzCNBSDLow)
+[Watch on Youtube: Black Veil Brides (acoustic) - American Skin](https://www.youtube.com/watch?v=ZrzCNBSDLow)
 
 It’s great to see artists keeping the fight for racial justice front and center in their conversations with their audience. If only it didn’t still need to be there.
-
- 

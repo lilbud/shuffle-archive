@@ -2,7 +2,7 @@ For every great song Bruce has released over the years, there’s at least one g
 
 “Little Girl Like You” isn’t one of them.
 
-[https://www.youtube.com/watch?v=8ZeawV--MJY](https://www.youtube.com/watch?v=8ZeawV--MJY)
+[Watch on Youtube: Bruce Springsteen - Little Girl](https://www.youtube.com/watch?v=8ZeawV--MJY)
 
 You might argue that as a demo recording from the *Born in the U.S.A.* sessions, it’s unfair to judge what the final song might have become, and you might have a point.
 
@@ -64,4 +64,4 @@ So, yeah: probably for the best that Bruce discarded this one. He’s never perf
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

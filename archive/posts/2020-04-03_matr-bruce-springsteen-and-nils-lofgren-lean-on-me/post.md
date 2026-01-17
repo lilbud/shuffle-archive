@@ -6,7 +6,7 @@ Bill Withers passed away on March 30, leaving us with a string of timeless hits 
 
 None more so than “Lean on Me.” Withers’ evergreen ode to friendship resonates with each and every one of us. You know it from its opening notes, and you can sing it from memory.
 
-[https://www.youtube.com/watch?v=fOZ-MySzAac](https://www.youtube.com/watch?v=fOZ-MySzAac)
+[Watch on Youtube: Lean on Me](https://www.youtube.com/watch?v=fOZ-MySzAac)
 
 At one point or another, you’ve sung “Lean on Me” with, to, or about a good friend. We all have.
 
@@ -22,10 +22,8 @@ It was the only time Bruce has ever performed “Lean on Me” in public, and th
 
 So let’s take a moment to watch, remember, and celebrate the life and work of Bill Withers. And then let’s call our best friends.
 
-[https://videopress.com/embed/TFgr9lEf](https://videopress.com/embed/TFgr9lEf)
+[Watch Video Highlight](https://videopress.com/embed/TFgr9lEf)
 
 **Lean on Me  
 First performed:** June 9, 1989 (Asbury Park, NJ)  
 **Last performed:** June 9, 1989 (Asbury Park, NJ)
-
- 

@@ -10,7 +10,7 @@ I remain rightly embarrassed to admit that I did not vote in the Ronald Reagan /
 
 But that day I was on my way to Tempe, Arizona to produce and direct a concert recording of Bruce Springsteen and the E Street Band’s Arizona State University performance on the 5th, one of their first dates at the start of their original River Tour.
 
-[https://www.youtube.com/watch?v=3jLdecONVQs](https://www.youtube.com/watch?v=3jLdecONVQs)
+[Watch on Youtube: Bruce Springsteen - Born to Run (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=3jLdecONVQs)
 
 The technical aspects of the shoot are far easier for me to recall.
 
@@ -24,7 +24,7 @@ The cameras still had pick-up tubes (less contrast and sensitivity than today’
 
 Thirty-five years passed before the show was completed by Thom Zimny for inclusion in *The River* box set reissue, crafting the show using the best coverage we provided. Thom did his usual excellent job, as he’s always delivered for Bruce and his worldwide audience.
 
-[https://www.youtube.com/watch?v=4dG3jc6fzPY](https://www.youtube.com/watch?v=4dG3jc6fzPY)
+[Watch on Youtube: Bruce Springsteen - Cadillac Ranch (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=4dG3jc6fzPY)
 
 Still, as great as the concert proved to be both in the arena and on tape, from my vantage point forty-one years on the most moving and remarkable takeaway from that evening was Bruce’s wholly unexpected but clearly heartfelt remarks regarding Ronald Reagan’s commanding victory less than twenty-four hours earlier.
 
@@ -36,7 +36,7 @@ That night in Tempe remains my recollection of Bruce’s first overtly political
 
 He then threw down a particularly enraged version of his one of his most defiant songs, “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/),” which is how great artists should assist us in making sense of our world.
 
-[https://www.youtube.com/watch?v=NGoBcNXa3mM](https://www.youtube.com/watch?v=NGoBcNXa3mM)
+[Watch on Youtube: Bruce Springsteen - Badlands (Tempe 1980)](https://www.youtube.com/watch?v=NGoBcNXa3mM)
 
 Ronald Reagan’s nationwide victory was a complete rout over Carter. He carried 44 states, including Arizona, where he won by 32 percent.
 
@@ -48,7 +48,7 @@ It was never divulged to me who their client was. They simply asked me to bring 
 
 I walked onto the stage and to my amazement saw that the shoot was Ronald Reagan announcing that he would be running for president in 1980. It was released on November 13, 1979 on all broadcast networks, his as-yet-unnamed campaign backers presumably having paid handsomely to blanket the nation.
 
-[https://www.youtube.com/watch?v=fAtYMD-H2UY](https://www.youtube.com/watch?v=fAtYMD-H2UY)
+[Watch on Youtube: Candidacy for Presidency: Ronald Reagans announcement of Candidacy for President of U.S. 11/13/79](https://www.youtube.com/watch?v=fAtYMD-H2UY)
 
 What was remarkable was that the set was designed to replicate the President’s White House office. It spookily looked as if he’d already been elected. Reagan, to his credit, was the consummate performer. . He started seated, smoothly got up and moved to casually sit on the corner of his desk, returned to his seat, and got back up to conclude his remarks without taking a single break. No edits were required. I was told he made it through three complete takes before becoming too exhausted to continue. No telling how many attempts had to be scrubbed due to flubs by either Reagan or the camera operator. That’s why they hadn’t finished as early as anticipated. Sounds simple to do, but it’s not–even for the accomplished actor and pitchman that he was.
 
@@ -62,12 +62,10 @@ I find a certain irony that one of the same four camera systems I brought to Tem
 
 In Kurt Andersen’s fascinating 2020 book *Evil Geniuses: The Unmaking of America,* he traces the beginning of America’s course correction to the political right and the economic havoc that followed Reagan’s 1980 election. It’s a fascinating read for anyone who finds themselves asking how did we get to the political, economic and psychological morass we now find ourselves in. Andersen starts his narrative in the late sixties and early seventies when the ultra-right sought a national candidate to help them fulfill their vision of their America. In Ronald Reagan, a former Democrat, in fact, they found the consummate professional, an actor/pitchman/performer and politician to deliver their message–one who clearly presaged the era of Donald J. Trump and all his followers.
 
-[https://www.youtube.com/watch?v=lc6F47Z6PI4](https://www.youtube.com/watch?v=lc6F47Z6PI4)
+[Watch on Youtube: Bruce Springsteen - The River (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=lc6F47Z6PI4)
 
 Take a beat and consider all that’s transpired in the past 42 years since that November 5th in Tempe–for Bruce, the country, and for all of us in our own lives. Remember Bruce’s seemingly surprising first overtly political statement that night as well as this very week’s election results.
 
 During The Late Show with Stephen Colbert just this past October 25th, when asked about his current state of mind regarding America, today, he said, “It worries me. Do you really want Marjorie Taylor Greene, Matt Gaetz, Ron deSantis, and our ex-fearless leader deciding the fate of the American Experiment?”
 
 Amen, Brother. Equally succinct but with enough of a touch of the humor we all need these days so very much.
-
- 

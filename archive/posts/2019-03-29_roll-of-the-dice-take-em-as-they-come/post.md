@@ -6,17 +6,17 @@ One of those early escapees reveals Bruce working on a song called “Take ’em
 
 But it’s clear that Bruce was enamored by the phrase “take ’em as they come”–it’s pretty much the only thing we can make out clearly and repeatedly.
 
-[https://www.youtube.com/watch?v=abBvLmXOsYY](https://www.youtube.com/watch?v=abBvLmXOsYY)
+[Watch on Youtube: Bruce Springsteen Take 'Em As They Come #1](https://www.youtube.com/watch?v=abBvLmXOsYY)
 
-From the melody in that clip above, it sounds like Bruce originally had something a bit more serious and pensive than what he eventually ended up with, but it didn’t last long. He soon moved on to a more upbeat melody–and while this one wouldn’t last either, it would soon find a home attached to [a song that *would* make it onto *The River*](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/).
+From the melody in that clip above, it sounds like Bruce originally had something a bit more serious and pensive than what he eventually ended up with, but it didn’t last long. He soon moved on to a more upbeat melody–and while this one wouldn’t last either, it would soon find a home attached to [a song that *would* make it onto *The River*](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/).
 
-[https://www.youtube.com/watch?v=n-t7wGtd4j4](https://www.youtube.com/watch?v=n-t7wGtd4j4)
+[Watch on Youtube: Bruce Springsteen Take 'Em As They Come #2](https://www.youtube.com/watch?v=n-t7wGtd4j4)
 
 We don’t know exactly when Bruce landed on the final arrangement for “Take ’em as They Come,” but we do know he recorded the backing track later that same year, in December 1979. His vocal, though, didn’t come until several months later, so it’s possible that Bruce was still experimenting and cross-pollinating during that time.
 
 When Bruce finally did combine that infectious backing track with some dark lyrics and the hook he’d grown so attached to, the result was magic: “Take ’em as They Come” easily ranks among the very best of Bruce’s power pop catalog. Take a listen and hear for yourself:
 
-[https://www.youtube.com/watch?v=8T7zz6dVJu4](https://www.youtube.com/watch?v=8T7zz6dVJu4)
+[Watch on Youtube: Take 'Em as They Come (Studio Outtake - 1980)](https://www.youtube.com/watch?v=8T7zz6dVJu4)
 
 That is one seriously fine pop song. No one would ever associate Bruce with new wave, but I can’t help but suspect that “Take ’em as They Come” would have been a radio smash had it been released on *The River* in late 1980. But it wasn’t to be–“Take ’em” spent almost two decades in the vault before Bruce finally released it on his *Tracks* compilation in 1998.
 
@@ -91,13 +91,13 @@ Bruce reunited the E Street Band shortly after releasing his *Tracks* box set, a
 
 “Take ’em as They Come” was one of the earlier tracks to debut, coming out to play for the first time on June 15, 1999 in Offenbach. That first performance was just a bit too plodding, though.
 
-[https://videopress.com/embed/wGZfQBl3](https://videopress.com/embed/wGZfQBl3)
+[Watch Video Highlight](https://videopress.com/embed/wGZfQBl3)
 
 The band would get better as time went by, but for reasons I can’t guess, Bruce all but retired the song after the Reunion Tour. He’s only played it twice since, once on the Rising Tour, and once almost a decade later on the Wrecking Ball Tour–thanks to a diligent, persistent, fan who absolutely refused to give up asking for it.
 
 And that last time, at Hyde Park–they *nailed* it (even if Bruce truncated the false ending). Enjoy that performance (captured on video, no less) below.
 
-[https://www.youtube.com/watch?v=CuvU0sd6Fh0](https://www.youtube.com/watch?v=CuvU0sd6Fh0)
+[Watch on Youtube: Bruce Springsteen - Take'm As They Come](https://www.youtube.com/watch?v=CuvU0sd6Fh0)
 
 **Bonus:** For years before the release of *Tracks*, a bootleg version of “Take ’em as They Come” circulated among collectors. It’s pretty close to the released version, but the last verse is different–more poetic, but also more ambiguous. Take a listen:
 
@@ -111,4 +111,4 @@ And that last time, at Hyde Park–they *nailed* it (even if Bruce truncated the
 **First performed:** June 15, 1999 (Offenbach, Germany)  
 **Last performed:** July 14, 2012 (London, England)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

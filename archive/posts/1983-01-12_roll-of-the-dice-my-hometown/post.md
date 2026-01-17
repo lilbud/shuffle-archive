@@ -22,7 +22,7 @@ Although instantly recognizable today from the opening notes from Roy Bittan’s
 
 The melody would transform dramatically by the time the final version was recorded in June 1983, but the lyrics of “Your Hometown” were pretty well set early on. Take a listen to this early take from January 1983.
 
-[https://www.youtube.com/watch?v=MOhpeHQbou0](https://www.youtube.com/watch?v=MOhpeHQbou0)
+[Watch on Youtube: Bruce Springsteen Your Hometown #1 rockabilly version of My Hometown](https://www.youtube.com/watch?v=MOhpeHQbou0)
 
 You probably noticed the different and extended chorus:
 
@@ -46,17 +46,17 @@ But other than those small variations, “Your Hometown” and “My Hometown”
 
 By the time Bruce laid down his next demo (possibly as late as mid-February), the final verse was in its final form–all he had left to do was settle on the name of the protagonist’s wife–Jane would become Kate by the time the album track was recorded in late June.
 
-[https://www.youtube.com/watch?v=RjnhYhLXvGE](https://www.youtube.com/watch?v=RjnhYhLXvGE)
+[Watch on Youtube: Bruce Springsteen Your Hometown #2 rockabilly version of My Hometown](https://www.youtube.com/watch?v=RjnhYhLXvGE)
 
 We’re not sure exactly when Bruce realized that the emotional content of “Your Hometown” was being undermined by its rockabilly arrangement, but when the band gathered to record it on June 29th (now under the song’s final title), the final arrangement had gelled.
 
 It took a few tries to get the song down to single-length, though–the first two takes recorded that day were more than six minutes long, and even the runner-up take below is almost a minute longer than the released version.
 
-[https://www.youtube.com/watch?v=n0CAkpTGxcY](https://www.youtube.com/watch?v=n0CAkpTGxcY)
+[Watch on Youtube: Bruce Springsteen My Hometown with female backing vocs](https://www.youtube.com/watch?v=n0CAkpTGxcY)
 
 The album track is tighter and just a hair slower–and by far the most powerful of all the attempts we’ve heard. Mournfully nostalgic, we feel the song’s content long before we hear it.
 
-[https://www.youtube.com/watch?v=Vep2RtnsjWk](https://www.youtube.com/watch?v=Vep2RtnsjWk)
+[Watch on Youtube: Bruce Springsteen - My Hometown *HQ*](https://www.youtube.com/watch?v=Vep2RtnsjWk)
 
 Curiously, somewhere in between those January rockabilly takes and that final June recording session, Bruce recorded a version that only recently received an official release, on *L.A. Garage Sessions ’83*.
 
@@ -64,7 +64,7 @@ This version still features the “Texas tracks” lyric and the “though the w
 
 Bruce was obviously still indecisive about the name of the narrator’s wife–she’s called Mary here, his old standby.
 
-[https://www.youtube.com/watch?v=VT-ESG5M77U](https://www.youtube.com/watch?v=VT-ESG5M77U)
+[Watch on Youtube: Bruce Springsteen - My Hometown (Official Audio)](https://www.youtube.com/watch?v=VT-ESG5M77U)
 
 Character names aside, almost all of “My Hometown” is drawn from real-life events, the past rhyming with the present.
 
@@ -142,39 +142,39 @@ But that’s an essay for another day.
 
 The studio version of “My Hometown” never received an official music video, but Bruce did release a live performance to bolster the song’s airplay and sales.
 
-[https://www.youtube.com/watch?v=77gKSp8WoRg](https://www.youtube.com/watch?v=77gKSp8WoRg)
+[Watch on Youtube: Bruce Springsteen - My Hometown (Official Video)](https://www.youtube.com/watch?v=77gKSp8WoRg)
 
 While not nearly as iconic as many of the song’s album-mates, “My Hometown” has nevertheless seemingly enshrined itself as a semi-permanent fixture in Bruce’s set lists. He’s performed it well over 500 times to date, and other than the 2006 Sessions Band tour, “My Hometown” has never missed a tour since its release.
 
 Autobiographical in content but universal in theme, “My Hometown” has proved its pliability, effortlessly translating to new arrangements. From solo piano…
 
-[https://www.youtube.com/watch?v=Lt70yG6I8hw](https://www.youtube.com/watch?v=Lt70yG6I8hw)
+[Watch on Youtube: Bruce Springsteen "My Hometown" on Grand Piano; November 17, 1990](https://www.youtube.com/watch?v=Lt70yG6I8hw)
 
-[https://www.youtube.com/watch?v=2Loi0ScfFw4](https://www.youtube.com/watch?v=2Loi0ScfFw4)
+[Watch on Youtube: Bruce Springsteen - My Hometown - Italy 2005](https://www.youtube.com/watch?v=2Loi0ScfFw4)
 
 …to acoustic guitar and violin…
 
-[https://www.youtube.com/watch?v=ViUfhjtQixY](https://www.youtube.com/watch?v=ViUfhjtQixY)
+[Watch on Youtube: My Hometown--Bruce Springsteen (Freehold, 1996)](https://www.youtube.com/watch?v=ViUfhjtQixY)
 
 …and even reggae:
 
-[https://www.youtube.com/watch?v=xVV5FTnI4FM](https://www.youtube.com/watch?v=xVV5FTnI4FM)
+[Watch on Youtube: Bruce Springsteen - My hometown (reggae version)](https://www.youtube.com/watch?v=xVV5FTnI4FM)
 
 (Okay maybe that one wasn’t so effortless.)
 
-It’s been covered by luminaries like U[2](http://estreetshuffle.com/index.php/2018/04/17/cover-me-u2-my-hometown/), Neil Young, and Emmylou Harris. In concert, fellow icons like Eddie Vedder and Tracey Chapman turned “My Hometown” into a duet.
+It’s been covered by luminaries like U[2](https://estreetshuffle.com/index.php/2018/04/17/cover-me-u2-my-hometown/), Neil Young, and Emmylou Harris. In concert, fellow icons like Eddie Vedder and Tracey Chapman turned “My Hometown” into a duet.
 
-[https://www.youtube.com/watch?v=aPQTrv2B1sw](https://www.youtube.com/watch?v=aPQTrv2B1sw)
+[Watch on Youtube: Tracy Chapman and Bruce Springsteen - My Hometown (Live 2004)](https://www.youtube.com/watch?v=aPQTrv2B1sw)
 
-[https://www.youtube.com/watch?v=7uAr5JRPc3g](https://www.youtube.com/watch?v=7uAr5JRPc3g)
+[Watch on Youtube: Bruce Springsteen (w/ Eddie Vedder) My Hometown - Wrigley Field 9/8/12](https://www.youtube.com/watch?v=7uAr5JRPc3g)
 
 In 2014, “My Hometown” got an updated official live video release, even more powerful than its predecessor 30 years earlier.
 
-[https://www.youtube.com/watch?v=KZ3BJYx43y0](https://www.youtube.com/watch?v=KZ3BJYx43y0)
+[Watch on Youtube: Bruce Springsteen - My Hometown (from Born In The U.S.A. Live: London 2013)](https://www.youtube.com/watch?v=KZ3BJYx43y0)
 
 And of course, Bruce featured “My Hometown” nightly on Broadway, the perfect illustration for the “heart-stopping, pants-dropping, race-rioting, freak-hating, soul-shaking, redneck, love- and fear-making, heartbreaking town of Freehold, New Jersey.”
 
-[https://www.youtube.com/watch?v=3MNIzddFjwI](https://www.youtube.com/watch?v=3MNIzddFjwI)
+[Watch on Youtube: Bruce Springsteen - My Hometown (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=3MNIzddFjwI)
 
 As Bruce self-mockingly pointed out each night during his Broadway run, he thought his answer to the central question of “My Hometown” was that he was born to run. But we know that didn’t last.
 
@@ -182,7 +182,7 @@ Today Bruce lives ten minutes from his hometown, which tells us all we need to k
 
 **Bonus:** Here’s Bruce’s very first live performance of “My Hometown,” a rarely heard warm-up for the Born in the U.S.A. Tour at The Stone Pony three weeks before the tour kicked off in St. Paul.
 
-[https://videopress.com/embed/Hl3yZQHU](https://videopress.com/embed/Hl3yZQHU)
+[Watch Video Highlight](https://videopress.com/embed/Hl3yZQHU)
 
 **My Hometown**  
 **Recorded:** June 29, 1983  

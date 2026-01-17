@@ -8,26 +8,24 @@ But at Hershey, the crowd wasn’t trusting anyone, and certainly not me: anytim
 
 Too bad, because the show was not without its moments: from an opening cover of The Clash’s “[Clampdown](https://estreetshuffle.com/index.php/2021/09/10/cover-me-clampdown/)…”
 
-[https://www.youtube.com/watch?v=wSz_-QpfbBY](https://www.youtube.com/watch?v=wSz_-QpfbBY)
+[Watch on Youtube: Bruce Springsteen Clamp Down Hershey 5/14](https://www.youtube.com/watch?v=wSz_-QpfbBY)
 
 to a couple of classic River outtakes (“[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)” and “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)“)…
 
-[https://www.youtube.com/watch?v=ZWwZoz9pRWE](https://www.youtube.com/watch?v=ZWwZoz9pRWE)
+[Watch on Youtube: Bruce Springsteen Be True . Hershey 5/14](https://www.youtube.com/watch?v=ZWwZoz9pRWE)
 
-[https://www.youtube.com/watch?v=ViQqrhhyqLo](https://www.youtube.com/watch?v=ViQqrhhyqLo)
+[Watch on Youtube: Bruce Springsteen - Roulette - Hersheypark Stadium - May 14, 2014](https://www.youtube.com/watch?v=ViQqrhhyqLo)
 
-…a great rendition of “[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)…”
+…a great rendition of “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)…”
 
-[https://www.youtube.com/watch?v=BrEJmWww6yw](https://www.youtube.com/watch?v=BrEJmWww6yw)
+[Watch on Youtube: Bruce Springsteen Lost In The Flood Live at Hershey Park Stadium, PA 5-14-14 (Part 3)](https://www.youtube.com/watch?v=BrEJmWww6yw)
 
 …an delicate encore opener of “[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)…”
 
-[https://www.youtube.com/watch?v=Pg_HcKbWbd4](https://www.youtube.com/watch?v=Pg_HcKbWbd4)
+[Watch on Youtube: Bruce Springsteen Surprise, Surprise Live at Hershey, PA 5-14-14 (Part 6)](https://www.youtube.com/watch?v=Pg_HcKbWbd4)
 
 …and an absolutely stunning acoustic piano performance of “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/).” Sour crowd taste aside (who carries on a conversation during a moment like this? Many people around me, that’s who), that particular “For You” performance will rank among the top song performances I’ve ever seen for a long, long time to come.
 
-[https://www.youtube.com/watch?v=xZuMWcKdRT0](https://www.youtube.com/watch?v=xZuMWcKdRT0)
+[Watch on Youtube: Bruce Springsteen "For You" Hershey Park](https://www.youtube.com/watch?v=xZuMWcKdRT0)
 
 Pennsylvania is still one of my favorite states to see a Springsteen show… but I’ll stick with Philly and Pittsburgh and give Hershey a pass from now on.
-
- 

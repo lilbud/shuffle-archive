@@ -2,7 +2,7 @@ For Bruce Springsteen, all roads lead west.
 
 His fondness for cinema, his fascination with the American west, his reckoning with age and remembrance of glory days–all those avenues converge in the land of sunsets and arrive at “Western Stars.”
 
-“Western Stars” is magnificent. It’s also inevitable. Bruce’s songwriting has been building toward this ever since “[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” in 1978 and barreling at full speed since [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)in 1995.
+“Western Stars” is magnificent. It’s also inevitable. Bruce’s songwriting has been building toward this ever since “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” in 1978 and barreling at full speed since [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)in 1995.
 
 By the time he arrived at his 2005 masterpiece, “[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)“–a song that has so many parallels to “Western Stars” that they’re practically siblings (an essay for another day)–we knew we’d clearly been introduced to a more mature, introspective Bruce Springsteen who was coming to terms with having more sunrises behind him than ahead of him.
 
@@ -10,13 +10,13 @@ It’s not much of a stretch to call *Western Stars* Bruce’s magnum opus and i
 
 In general, I’m not a huge fan of on-the-nose music videos. If all you’re doing is literally illustrating the song, why bother? Our imaginations can do that just fine on our own.
 
-But “Western Stars” isn’t an ordinary song. Like “Thunder Road” and “[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)“, “Western Stars” earns its cinematic label–it just *sounds* like a movie. Heck, it’s virtually a musical score.
+But “Western Stars” isn’t an ordinary song. Like “Thunder Road” and “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)“, “Western Stars” earns its cinematic label–it just *sounds* like a movie. Heck, it’s virtually a musical score.
 
 In fact, “Western Stars” is such an evocative song that there’s almost no point in watching its official video–odds are the movie we visualize when we hear the song is even more vivid than Thom Zimny’s wonderful five-minute film. And yet, the video is beautifully filmed and features some of Bruce’s very best acting. I find myself unable to separate the song from the video; whenever I listen to “Western Stars,” I see it as well.
 
 Let’s watch together.
 
-[https://www.youtube.com/watch?v=_IXzAAKrsFE](https://www.youtube.com/watch?v=_IXzAAKrsFE)
+[Watch on Youtube: Bruce Springsteen - Western Stars (Official Video)](https://www.youtube.com/watch?v=_IXzAAKrsFE)
 
 Both lyrically and musically, “Western Stars” is (somewhat paradoxically) both meditation and celebration.
 
@@ -128,7 +128,7 @@ In the film for *Western Stars*, Bruce introduced the title track like this:
 
 *“Western Stars” is the heart of the record. It was my reference point when I was searching for who my character was and where he, I, was headed. You’ve got a fading Western film star watching the world change around him, watching it pass him by… He’s the oldest guy in the room, but he’s still got an inner compass that doesn’t allow him to bullshit himself. He knows exactly who he is, what he’s done, the good, the bad and the ugly of it. It’s his small redemption. And he’s made a relative peace with himself. He’s losing old friends quickly, a lot of empty boots. But he wakes up in the morning, glad that his are still on.*
 
-It’s the opposite of a Freudian slip: Bruce intentionally pauses to let us know that he views the narrator of “Western Stars” as a proxy for himself. He knows he’s a symbol of the past, not the present, and while he’s far from creatively done, he recognizes that he’s fading into the cultural background. (It’s not the first time he’s addressed this in song–see “[Girls in Their Summer Clothes.](http://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)“)
+It’s the opposite of a Freudian slip: Bruce intentionally pauses to let us know that he views the narrator of “Western Stars” as a proxy for himself. He knows he’s a symbol of the past, not the present, and while he’s far from creatively done, he recognizes that he’s fading into the cultural background. (It’s not the first time he’s addressed this in song–see “[Girls in Their Summer Clothes.](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)“)
 
 But he still wakes up every morning to do what he loves most.
 
@@ -141,11 +141,11 @@ Let’s all be thankful that his boots are still firmly on.
 
 You can listen to the live recording below, but I honestly think you’re better off listening to the studio version another time: the studio version is more lush, Bruce’s vocals more pure, and the arrangement identical (both tracks are the same length, to the second). *Western Stars* is perhaps the only album in Bruce’s catalog that can’t be improved upon live.
 
-[https://www.youtube.com/watch?v=WjOIf_Z1c1M](https://www.youtube.com/watch?v=WjOIf_Z1c1M)
+[Watch on Youtube: Bruce Springsteen - Western Stars (Film Version - Official Audio)](https://www.youtube.com/watch?v=WjOIf_Z1c1M)
 
 **Bonus:** Here’s a promotional clip from the movie, *Western Stars*. It’s only a partial performance of the title track, but it’s enough for us to recognize that both the film and the video were probably shot at or around the same time.
 
-[https://www.youtube.com/watch?v=GBRPo6lQRBg](https://www.youtube.com/watch?v=GBRPo6lQRBg)
+[Watch on Youtube: Bruce Springsteen - Western Stars (From The Film Western Stars)](https://www.youtube.com/watch?v=GBRPo6lQRBg)
 
 **Western Stars  
 Recorded:** Unknown  
@@ -153,4 +153,4 @@ Recorded:** Unknown
 **First performed:** April 2019 (Colts Neck, NJ)  
 **Last performed:** April 2019 (Colts Neck, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

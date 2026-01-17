@@ -13,9 +13,9 @@ But Sandy wasn’t always about Bruce’s adopted hometown. Although Brian Hiatt
 
 That’s because we’re fortunate enough to have an early draft of Bruce’s lyrics for “Sandy,” and while they are unfortunately undated, we can safely assume they date back at least some months before that early summer night.
 
-In this draft, we can see that Sandy is not yet a metaphor. Instead, she’s the girl who moved away, an early prototype of “[Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” perhaps, or a precursor to “[None But the Brave](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/).”
+In this draft, we can see that Sandy is not yet a metaphor. Instead, she’s the girl who moved away, an early prototype of “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” perhaps, or a precursor to “[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/).”
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/04/4thofjulyasburypark_early_lyrics-241x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/04/4thofjulyasburypark_early_lyrics.jpg)
 
 In the almost fully formed verse above, we learn that Sandy got bored and moved to the big city.
 
@@ -34,23 +34,23 @@ Whenever it was that Bruce wrote these lyrics, he was clearly grappling with the
 
 By mid-summer 1973, however, Bruce had found his voice for this particular song. While it’s believed that Bruce had been performing early versions of “Sandy” since April (oh, how I wish one of those early performances would turn up on a bootleg), the first recording we can enjoy dates to just a couple of weeks before Bruce went into the studio to record “Sandy.” In this performance (just Bruce on guitar with Danny on accordion) from Max’s Kansas City on July 23, 1973, we can hear the almost final form of the song (the lyrics would change a bit, particularly the final verse), and the arrival of girl-as-metaphor-for-town.
 
-[https://www.youtube.com/watch?v=CdVxk1MGz5g](https://www.youtube.com/watch?v=CdVxk1MGz5g)
+[Watch on Youtube: Bruce Springsteen - 4TH OF JULY ASBURY PARK (SANDY) 1973 - audio](https://www.youtube.com/watch?v=CdVxk1MGz5g)
 
 Perhaps it’s in part due to the quiet acoustic nature of the performance, but it’s also the early lyrics and vocal delivery that tinge this early version of “Sandy” with fatalism instead of the determination to leave the town behind that Bruce would infuse into the final version of the song.
 
 The original instrumental track–while livelier than the Max’s performance above–is still somewhat muted. The track below was recorded in early August 1973, and although Bruce would layer vocals and electric guitar (along with David Sancious’ piano) on top of it, this is the recording that’s at the core of the finished product:
 
-[https://videopress.com/embed/5WM3xzWL](https://videopress.com/embed/5WM3xzWL)
+[Watch Video Highlight](https://videopress.com/embed/5WM3xzWL)
 
 If you’re thinking that something’s missing (other than the vocals) from the track above, you’re right–for my money, the key element, the secret sauce in the backing track of “4th of July, Asbury Park (Sandy)” at least as much as Danny’s accordion is Bruce’s electric guitar. From the opening notes, Bruce conjures the sound of the shore, his bent guitar notes sounding for all the world like seagulls flying above us.
 
 Listen to this early-but-getting-late version–it’s the same backing track that Bruce would release on *The Wild, The Innocent & The E Street Shuffle*, but the lyrics are slightly different. (You’ll hear the difference in the second line.) Still, notice the difference Bruce’s electric guitar makes–there’s a pronounced nostalgia now that was missing from the earlier version.
 
-[https://videopress.com/embed/B2GWw56p](https://videopress.com/embed/B2GWw56p)
+[Watch Video Highlight](https://videopress.com/embed/B2GWw56p)
 
 Here’s the final version that appears on the album. The production is still uneven and somewhat muddy (as is the case with most of Bruce’s first two albums), but in this case, it’s part of the charm. If it were any more polished, it would be a lot less effective.
 
-[https://www.youtube.com/watch?v=KgFHM8HMbWQ](https://www.youtube.com/watch?v=KgFHM8HMbWQ)
+[Watch on Youtube: 4th Of July, Asbury Park (Sandy) - Bruce Springsteen (Studio Version)](https://www.youtube.com/watch?v=KgFHM8HMbWQ)
 
 I wrote at the top that “Sandy” works a *lot* better as a town than as a girl; let’s take a walk through the lyrics, and I’ll explain what I mean.
 
@@ -137,7 +137,7 @@ The first is from the Darkness Tour in 1978, from Bruce’s legendary shows at t
 
 But I also love this clip for the interplay between Bruce and Danny.
 
-[https://www.youtube.com/watch?v=Tg7sAc7rt04](https://www.youtube.com/watch?v=Tg7sAc7rt04)
+[Watch on Youtube: Live at the Capitol Theatre, Passaic, NJ - 19/09/78 - Encores](https://www.youtube.com/watch?v=Tg7sAc7rt04)
 
 There’s probably no song in Bruce’s catalog more closely associated with Danny Federici than “Sandy,” and with good reason–it’s Danny’s gorgeous accordion performance that transports us to the Jersey Shore every time the E Street Band plays the song.
 
@@ -153,7 +153,7 @@ Just one more night.
 
 And we’ll love you forever.
 
-[https://www.youtube.com/watch?v=kB1d0eey5ho](https://www.youtube.com/watch?v=kB1d0eey5ho)
+[Watch on Youtube: 4th Of July, Asbury Park (Sandy) (Live Video Version featuring Danny Federici)](https://www.youtube.com/watch?v=kB1d0eey5ho)
 
 **4th of July, Asbury Park (Sandy)  
 Recorded:** August 9 – September 23, 1973  
@@ -161,4 +161,4 @@ Recorded:** August 9 – September 23, 1973
 **First performed:** April 23, 1973 (Hartford, CT)  
 **Last performed:** November 16, 2019 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

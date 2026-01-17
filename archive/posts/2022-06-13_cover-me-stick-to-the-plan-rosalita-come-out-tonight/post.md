@@ -8,6 +8,6 @@ And come on: haven’t you always wondered what a Seeger-fied (with a little bit
 
 Of course you have. So let’s watch, listen, and enjoy.
 
-[https://www.youtube.com/watch?v=qxI7pMGtGJQ](https://www.youtube.com/watch?v=qxI7pMGtGJQ)
+[Watch on Youtube: Rosalita (Bruce Springsteen cover)](https://www.youtube.com/watch?v=qxI7pMGtGJQ)
 
 Like their performance? We’re still a few months away from the final competition, so stay tuned this summer for more spotlight features on some of Europe’s most talented, Springsteen-inspired artists.

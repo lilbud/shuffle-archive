@@ -1,14 +1,8 @@
 > “God bless Mommy. God bless Nanny. God, don’t punish me because I’m black.”
 > 
-> 
-> 
 > “Do they same prayer every night?” I ask their mother after she has tucked them in and closed their door. “Every night,” she answers.
 > 
-> 
-> 
 > “I wish that I could help them to get out of here,” says Mrs. Washington.
-> 
-> 
 > 
 > –Jonathan Kozol, *Amazing Grace: The Lives of Children and the Conscience of a Nation*
 
@@ -32,7 +26,7 @@ Kozol’s book came out just as Bruce launched his tour in support of *The Ghost
 
 By marrying Kozol’s themes with the Western setting of his most recent material, Bruce created “Black Cowboys,” a bleak tale of the price of urban poverty and the power of a mother’s love, but with a redemptive ending that Kozol’s non-fiction was unable to provide.
 
-[https://www.youtube.com/watch?v=76NqB8CW6V4](https://www.youtube.com/watch?v=76NqB8CW6V4)
+[Watch on Youtube: Black Cowboys](https://www.youtube.com/watch?v=76NqB8CW6V4)
 
 After the tour ended in 1997, Bruce recorded several of the songs he’d written mid-tour–and then put them aside, his instincts telling him not to repeat himself so quickly. Whether “Black Cowboys” was one of those songs is something I’ve never seen or heard directly confirmed, but given its provenance and Bruce’s *Joad-*era vocal style, I think it’s highly likely.
 
@@ -124,7 +118,7 @@ The American West of Raney’s books and movies beckons, and while we know the r
 
 In the end, through the power of her love and the dreams she instilled in her son when he was young and she was true, Lynette was able to do for Raney what Alice wished she could do for her children and grandchildren: help them get out of Mott Haven.
 
-[https://www.youtube.com/watch?v=K3bjY14BQf0](https://www.youtube.com/watch?v=K3bjY14BQf0)
+[Watch on Youtube: Bruce Springsteen - BLACK COWBOYS (live 2005)](https://www.youtube.com/watch?v=K3bjY14BQf0)
 
 **Black Cowboys  
 Recorded:** 1997-2004  

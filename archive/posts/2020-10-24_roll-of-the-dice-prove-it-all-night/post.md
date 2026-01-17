@@ -5,7 +5,7 @@ There are many accounts of what inspired Bruce to write “Prove It All Night,�
 
 But even if none of his stories were authoritative, they were still 100% true, because “Prove It All Night” is more than just rock’s most ferocious wedding song; it’s a credo that runs throughout the entire [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/) album.
 
-[https://www.youtube.com/watch?v=ZvAaviGi0Xs](https://www.youtube.com/watch?v=ZvAaviGi0Xs)
+[Watch on Youtube: Prove It All Night](https://www.youtube.com/watch?v=ZvAaviGi0Xs)
 
 (Side note: I get a lot of flak from fellow fans when I admit to this, but *Darkness* is the only Springsteen album in his entire catalog that leaves me cold. I mean, exactly how much fatalism does one need on a single album? Every song on *Darkness* is brilliant on its own, but as an album it’s just too much. But I digress.)
 
@@ -19,13 +19,13 @@ But before we delve into the lyrics, let’s talk about the music for a moment, 
 
 We’ll look at “It’s a Shame” in greater depth at a later date; for now, just pay attention to the riff.
 
-[https://www.youtube.com/watch?v=3HOQCNmhvIc](https://www.youtube.com/watch?v=3HOQCNmhvIc)
+[Watch on Youtube: It's a Shame](https://www.youtube.com/watch?v=3HOQCNmhvIc)
 
 That’s the beginning of “Prove It All Night” right there.
 
 Bruce never got around to finishing “It’s a Shame” that year. but he held on to that riff and evolved it into a full-fledged melody. The first version of what is instantly recognizable as “Prove It All Night” (recorded just five months after “Jon’s Jam”) was musically complete but lyrically in utero. In order to have something to sing over the backing track, Bruce borrowed the lyrics from another song he’d debuted the previous summer. See if you can place it.
 
-[https://www.youtube.com/watch?v=PBl2lcy_b2Q](https://www.youtube.com/watch?v=PBl2lcy_b2Q)
+[Watch on Youtube: Bruce Springsteen Prove it All Night With different lyrics](https://www.youtube.com/watch?v=PBl2lcy_b2Q)
 
 The borrowed lyrics from “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” were almost certainly intended to be a placeholder, but that didn’t stop Landau from pointing out that Bruce might be overusing a certain metaphor. And even though the final lyrics hadn’t been written, Bruce’s response tells us all we need to know to understand the finished song:
 > “During the record, I think Jon said, ‘What’s all this about these cars?’ I think we were doing ‘Prove It All Night,’ and it had a different first verse. But… the action is not the imagery, you know. The heart of the action is beneath all that stuff.” — Bruce Springsteen to Paul Nelson, *Rolling Stone*, July 13 1978
@@ -96,7 +96,7 @@ In fact, we never even find out whether these two make it to the altar, whether 
 
 For the next few years, Bruce would dwell on this theme almost to obsession, writing in one of his most memorable lines, *Is a dream a lie if it don’t come true, or is it something worse?* It would take many more years before Bruce allowed himself to realize and express through his work that it could actually be something *better*.
 
-Even if we never reach our destination, there’s satisfaction in the journey itself; even if it never comes true, there’s fulfillment to be found while [working on a dream](http://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/). (Bruce’s 2009 title track is very much a sequel (or possibly an answer) to “Prove It All Night.”)
+Even if we never reach our destination, there’s satisfaction in the journey itself; even if it never comes true, there’s fulfillment to be found while [working on a dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/). (Bruce’s 2009 title track is very much a sequel (or possibly an answer) to “Prove It All Night.”)
 
 So whether in reference to love or ambition, we renew our dedication each day and we prove it through the night, just so that we can have a chance to do it again the next day and the day after that. If we’re lucky, we go a little further and we grow a little stronger each day; and if not, we just keep at it.
 
@@ -109,11 +109,11 @@ I’ve focused primarily on Bruce’s lyrics for “Prove It All Night,” but o
 
 Even in the studio track, there’s a seriously impressive guitar solo mid-song–one of Bruce’s finest on record, in fact. The entire E Street Band impresses in “Prove It All Night,” but freed from the time constraints of a 45rpm single, “Prove It All Night” expands into a Steel Mill-worthy guitar showcase. On the Darkness Tour, Bruce prefaced the song with an instrumental piano and guitar introduction that was often longer than the song itself.
 
-[https://www.youtube.com/watch?v=okrvOAUg-yY](https://www.youtube.com/watch?v=okrvOAUg-yY)
+[Watch on Youtube: Prove It All Night (Phoenix, 78) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=okrvOAUg-yY)
 
 Over the course of the tour, the introduction and mid-song solo grew in length, power, and confidence, and “Prove It All Night” quickly became the show’s centerpiece, with nightly performances that became legendary in later years.
 
-[https://www.youtube.com/watch?v=_Xab-th4ltU](https://www.youtube.com/watch?v=_Xab-th4ltU)
+[Watch on Youtube: Bruce Springsteen - Prove It All Night - Largo live 1978 (Blu-ray)](https://www.youtube.com/watch?v=_Xab-th4ltU)
 
 When Bruce retired that introduction (which really should have its own name, so different and unrelated it is from the song itself), that arrangement became known as “Prove It All Night ’78.” It wouldn’t be heard from again for more than three decades.
 
@@ -121,11 +121,11 @@ The song itself would endure, though, featuring on every tour since its debut wi
 
 Bruce even played it on his 1992-93 tour with his short-lived touring band…
 
-[https://www.youtube.com/watch?v=GA1QDiHtP8c](https://www.youtube.com/watch?v=GA1QDiHtP8c)
+[Watch on Youtube: Prove It All Night - Bruce Springsteen (live at the Stadio Marc'Antonio Bentegodi, Verona 1993)](https://www.youtube.com/watch?v=GA1QDiHtP8c)
 
 …and in a beautiful acoustic one-time-only arrangement in Buffalo during his solo acoustic tour in 2005:
 
-[https://www.youtube.com/watch?v=6tdzu7g-jjc](https://www.youtube.com/watch?v=6tdzu7g-jjc)
+[Watch on Youtube: Bruce Springsteen Prove It All Night Live In Buffalo Solo Acoustic 2005](https://www.youtube.com/watch?v=6tdzu7g-jjc)
 
 All the while, though, what fans really craved was the return of the ’78 introduction. Thirty years down the road the E Street Band was at the peak of their powers, and fans dreamt of what that legendary arrangement might sound like on the modern stage.
 
@@ -137,13 +137,13 @@ Bruce ignored them for as long as he could, even throwing cold water on the noti
 
 But in 2012, Bruce finally relented, and on May 17, 2012 in Barcelona, this happened:
 
-[https://www.youtube.com/watch?v=VH44kx24XIQ](https://www.youtube.com/watch?v=VH44kx24XIQ)
+[Watch on Youtube: Bruce Springsteen - Prove It All Night (Intro 78), Barcelona, May 17, 2012](https://www.youtube.com/watch?v=VH44kx24XIQ)
 
 It darn near cracked the Springsteen corners of the Internet in half. It wasn’t a one-off, either–Bruce and the band have played that arrangement (interchangeably with the original album arrangement) on every tour since. (I’ve been lucky enough to get it three times in the last eight years.)
 
 But regardless of whether it takes its ’77 form or ’78 one, “Prove It All Night” remains one of Bruce’s signature songs–a call, a pledge, and a reminder that while hard work isn’t the only path to success and while persistence doesn’t guarantee it, they’re the only things that keep you on the road toward it.
 
-[https://www.youtube.com/watch?v=5dHKuImHsI0](https://www.youtube.com/watch?v=5dHKuImHsI0)
+[Watch on Youtube: Prove It All Night (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=5dHKuImHsI0)
 
 **Prove It All Night  
 Recorded:** September 12-16, 1977  
@@ -151,4 +151,4 @@ Recorded:** September 12-16, 1977
 **First performed:** May 23, 1978 (Buffalo, NY)  
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

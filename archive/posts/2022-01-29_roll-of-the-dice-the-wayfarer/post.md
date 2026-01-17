@@ -6,13 +6,13 @@ The album is linked by more than just a common theme, though. There’s also a n
 
 Last year, we looked at “Hitch Hikin’,” which serves as the album’s overture. It’s a story about the joy of life’s open road, as told by a narrator unmired by the trappings of life, love, and family. But the album begins in earnest with “The Wayfarer,” where we meet a protagonist no less itinerant but not quite as rootless.
 
-[https://www.youtube.com/watch?v=8kMpeF12xTk](https://www.youtube.com/watch?v=8kMpeF12xTk)
+[Watch on Youtube: Bruce Springsteen - The Wayfarer (Official Audio)](https://www.youtube.com/watch?v=8kMpeF12xTk)
 
 If “The Wayfarer” is where Bruce starts to play his narrative hand, it’s also the place where he reveals his musical inspiration.
 
 *Western Stars* is very much a love letter to the music of Glen Campbell, and nowhere is that more apparent than in “The Wayfarer,” which owes a tremendous debt to one of Campbell’s tracks in particular: his 1969 single “Galveston.” If you listen to them both, there’s no doubting an intentional homage.
 
-[https://www.youtube.com/watch?v=HhKZLhxFFUY](https://www.youtube.com/watch?v=HhKZLhxFFUY)
+[Watch on Youtube: Galveston (Remastered 2001)](https://www.youtube.com/watch?v=HhKZLhxFFUY)
 
 There are some narrative similarities between the two songs, too. Both “Galveston” and “The Wayfarer” feature narrators looking back towards home and the love they left far behind. However, Campbell’s narrator is a soldier called away to a foreign land by a sense of duty. Bruce’s character has no such nobility–he’s just moving ever forward, as Bruce’s guitar counts the white lines in the road from the opening bars.
 
@@ -61,7 +61,7 @@ That’s *Western Stars.*
 
 **Bonus:** Like all of the tracks on *Western Stars*, Bruce has only performed “The Wayfarer” once before an audience, during the staged filming of his *Western Stars* concert document. And like pretty much every other song he performs in the film, the live version of “The Wayfarer” can’t match the lush and warm perfection of the studio track, despite the presence of that glorious orchestra. Nevertheless, it’s a beautiful performance and well worth watching.
 
-[https://www.youtube.com/watch?v=y_JLo3dl_9c](https://www.youtube.com/watch?v=y_JLo3dl_9c)
+[Watch on Youtube: The Wayfarer - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=y_JLo3dl_9c)
 
 **The Wayfarer  
 Recorded:** March 18, 2010 – early 2019  

@@ -6,7 +6,7 @@ When I noticed its inclusion on *Only the Strong Survive*, I was both delighted 
 
 In this case, though, the original is unforgettable.
 
-[https://www.youtube.com/watch?v=DcyERDIGXsA](https://www.youtube.com/watch?v=DcyERDIGXsA)
+[Watch on Youtube: I Forgot To Be Your Lover](https://www.youtube.com/watch?v=DcyERDIGXsA)
 
 “I Forgot to Be Your Lover” gave Bell his first Top Ten R&B hit in 1968, seven years into his recording career. It would be even longer before he had another, although his 1969 non-charting “Born Under a Bad Sign” (co-written with fellow Stax legend Booker T. Jones) would go on to become a blues classic.
 
@@ -14,19 +14,19 @@ Bell and Booker T. were the songwriting team behind “I Forgot To Be Your Lover
 
 And therein lies the rub: some songs are so definitive that it’s almost impossible to make them your own–at least not without taking them in a very different direction. That’s exactly what Lee “Scratch” Perry did when he covered “I Forgot to Be Your Lover” in a reggae arrangement in 1971…
 
-[https://www.youtube.com/watch?v=qNy-FzVN3XI](https://www.youtube.com/watch?v=qNy-FzVN3XI)
+[Watch on Youtube: Lover Version](https://www.youtube.com/watch?v=qNy-FzVN3XI)
 
 …or The Mad Lads in their 1973 arrangement that… well, it defies description.
 
-[https://www.youtube.com/watch?v=dZahhw4M7hY](https://www.youtube.com/watch?v=dZahhw4M7hY)
+[Watch on Youtube: The Mad Lads - I Forgot To Be Your Lover](https://www.youtube.com/watch?v=dZahhw4M7hY)
 
 The most commercially successful version of “I Forgot to Be Your Lover” is also the most artistically daring: Billy Idol’s 1986 rockabilly-dance version (with a truncated “To Be a Lover” title) that peaked at #6 on the Billboard Hot 100.
 
-[https://www.youtube.com/watch?v=_L9epO3tJT4](https://www.youtube.com/watch?v=_L9epO3tJT4)
+[Watch on Youtube: Billy Idol - To Be A Lover (Official Music Video)](https://www.youtube.com/watch?v=_L9epO3tJT4)
 
 Which direction did Bruce take Bell’s song? As it turns out, no direction at all. Bruce’s version on *Only the Strong Survive* hews *very* closely to the original, matching it in length, style and delivery from its note-for-note recreation of the introduction.
 
-[https://www.youtube.com/watch?v=Zan5lbpglSI](https://www.youtube.com/watch?v=Zan5lbpglSI)
+[Watch on Youtube: Bruce Springsteen - I Forgot To Be Your Lover (Official Audio)](https://www.youtube.com/watch?v=Zan5lbpglSI)
 
 Bruce’s version of “I Forgot to Be Your Lover” is so close to Bell’s original that I can only assume he welcomes if not downright invites comparison.
 
@@ -40,7 +40,7 @@ If anything, Bruce goes a bit *too* far on the passion front. Bell’s original 
 
 One can easily imagine Bruce tackling “I Forgot to Be Your Lover” in full soul shout mode in concert complete with mid-song patter. In fact, I’m surprised he didn’t go there on the album. At only two-and-a-half minutes, Bruce certainly had room to let the song breathe without breaking the arrangement, like Melissa Etheridge did so adeptly in her 2016 cover.
 
-[https://www.youtube.com/watch?v=y4rPjggHcts](https://www.youtube.com/watch?v=y4rPjggHcts)
+[Watch on Youtube: I Forgot To Be Your Lover](https://www.youtube.com/watch?v=y4rPjggHcts)
 
 Still, these are quibbles that only surface during comparisons. Taken at its own merits, Bruce’s version of “I Forgot to Be Your Lover” qualifies as one of his best vocal performances and a fine homage to a Stax classic.
 

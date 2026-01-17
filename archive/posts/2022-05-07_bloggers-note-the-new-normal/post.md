@@ -25,5 +25,3 @@ It also adds a couple of other benefits:
 One thing’s certain: I have no intention of stopping until we make it through every song–and there’s still about 200 left to go.
 
 Thanks for reading this far, this long, and this regularly. I hope life is full for you too, and that we all have the chance to be together at a show someday soon!
-
- 

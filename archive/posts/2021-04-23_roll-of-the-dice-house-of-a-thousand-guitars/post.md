@@ -3,7 +3,7 @@
 
 If there’s a letter to us in [*Letter To You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/), we can find it in “House of a Thousand Guitars.”
 
-[https://www.youtube.com/watch?v=KzvnEvbL-qs](https://www.youtube.com/watch?v=KzvnEvbL-qs)
+[Watch on Youtube: Bruce Springsteen - House Of A Thousand Guitars (Official Audio)](https://www.youtube.com/watch?v=KzvnEvbL-qs)
 
 It’s the most intimate song on Bruce’s most intimate album, simultaneously a mission statement, invitation, admission, and confession.
 
@@ -15,11 +15,11 @@ And we should have seen it coming.
 
 He may have finished it in 2019, but Bruce started writing “House of a Thousand Guitars” at least a decade prior. The phrase “a thousand guitars” appears in “[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)” on his 2007 *Magic* album, and it means there what it means here. And as for the house metaphor, he embraced that nightly on the Working on a Dream Tour in 2009.
 
-[https://videopress.com/embed/SYlzK66k](https://videopress.com/embed/SYlzK66k)
+[Watch Video Highlight](https://videopress.com/embed/SYlzK66k)
 
 The house metaphor didn’t originate with Bruce; he’s cited the gospel standard “I’m Working on a Building” as his inspiration for the idea.
 
-[https://www.youtube.com/watch?v=eSMR7EiYbQM](https://www.youtube.com/watch?v=eSMR7EiYbQM)
+[Watch on Youtube: The Carter Family - I'm Working on a Building (1934 Studio Version)](https://www.youtube.com/watch?v=eSMR7EiYbQM)
 
 That notion of visualizing one’s life as a building–an act of long-term, painstaking construction–both appealed to and fascinated Bruce (along with a score of other artists who covered “I’m Working on a Building,” including Bruce’s heroes Elvis Presley and John Fogerty).
 
@@ -101,11 +101,11 @@ A deep cut in every sense, “House of a Thousand Guitars” is the letter in *L
 
 **Bonus:** For a song purportedly written in celebration of his band, it’s ironic that Bruce’s first public performance of “House of a Thousand Guitars” was an acoustic husband-and-wife duet, at the annual Stand Up For Heroes benefit in late 2020. It was a perfect selection, though: their stripped-down arrangement revealed a more universally resonant song that celebrates the heroic sacrifices and resilience of those who defend the ideals of a nation struggling to live up to them.
 
-[https://www.youtube.com/watch?v=z27MexwKxT4](https://www.youtube.com/watch?v=z27MexwKxT4)
+[Watch on Youtube: House of a Thousand Guitars - Bruce Springsteen and Patti Scialfa (Stand Up for Heroes 2020)](https://www.youtube.com/watch?v=z27MexwKxT4)
 
 **Bonus #2 (Updated 1/2/2024):** “House of a Thousand Guitars” seemed a lock for the E Street Band’s first post-pandemic tour, but surprisingly Bruce dropped it after only outings. Perhaps it was too slow and contemplative for an arena show, but as someone who was front and center for both nights, I can attest to its power. Here’s the first full-band version of “House of a Thousand Guitars” so you can judge for yourself.
 
-[https://www.youtube.com/watch?v=Vlb7J8jwPbU](https://www.youtube.com/watch?v=Vlb7J8jwPbU)
+[Watch on Youtube: House of A Thousand Guitars -Bruce Springsteen (1-02-2023 Amalie Arena,Tampa,Florida)(Audio Oficial)](https://www.youtube.com/watch?v=Vlb7J8jwPbU)
 
 **House of a Thousand Guitars  
 Recorded:** November 2019  

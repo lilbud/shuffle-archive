@@ -8,7 +8,7 @@ Bruce debuted not one but two songs that night that no one had ever heard before
 
 But Bruce premiered another song that night, too–in fact he opened his show with it. And while it garnered almost no mention or attention in the press, “Further On (Up the Road)” signaled a turn in Bruce’s songwriting that wouldn’t be fully realized for a few years to come.
 
-[https://www.youtube.com/watch?v=KSGwtfg9nd8](https://www.youtube.com/watch?v=KSGwtfg9nd8)
+[Watch on Youtube: Bruce Springsteen-Atlanta 6-4-2000 Further Up the Road](https://www.youtube.com/watch?v=KSGwtfg9nd8)
 
 Written at the milestone age of fifty, “Further On (Up the Road)” is one of Bruce’s earliest attempts to come to terms with the second half of one’s life.
 
@@ -16,7 +16,7 @@ Read almost any review of the song, and you’ll find a critic struggling over w
 
 But “Further On (Up the Road)” is none of those things. It’s simply a song of recognition, of accepting that the road of life is a one-way street, and while it is long it is not without an end.
 
-[https://www.youtube.com/watch?v=EU-CTPc5GJg](https://www.youtube.com/watch?v=EU-CTPc5GJg)
+[Watch on Youtube: Further On (Up the Road)](https://www.youtube.com/watch?v=EU-CTPc5GJg)
 
 In fairness, though, this is not one of Bruce’s most accessible songs. It demands a close, attentive listen, especially if (as was the case at the time) you’re not accustomed to hearing Bruce sing about such themes.
 
@@ -80,11 +80,11 @@ As Bruce says at the end of each tour and each chapter: see you up the road.
 
 That’s a lot less likely with his 2006 Seeger Sessions arrangement, though. When Bruce recast it for that tour, he crafted an Irish-influenced melody that makes the song sound more contemplative and introspective. (It also provided a great vocal spotlight moment for Marc Anthony Thompson.)
 
-[https://www.youtube.com/watch?v=YEpLBCB7nZo](https://www.youtube.com/watch?v=YEpLBCB7nZo)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - Further On (Up the Road) (Live In Dublin)](https://www.youtube.com/watch?v=YEpLBCB7nZo)
 
 But his most affecting performance of “Further On (Up the Road)” might well have been his last one to date: his acoustic show opener in Pittsburgh in 2014. Performed solo, there’s no missing the narrator’s loneliness increasing the further up the road he travels.
 
-[https://www.youtube.com/watch?v=GQvnGb6YpaQ](https://www.youtube.com/watch?v=GQvnGb6YpaQ)
+[Watch on Youtube: Bruce Springsteen - 2014-05-23 Pittsburgh - Further On Up The Road (solo acoustic)](https://www.youtube.com/watch?v=GQvnGb6YpaQ)
 
 With his more sentimental “I’ll See You in My Dreams” rewrite now firmly established as a fan favorite, we’re a lot less likely to hear “Further On (Up the Road)” again any time soon.
 

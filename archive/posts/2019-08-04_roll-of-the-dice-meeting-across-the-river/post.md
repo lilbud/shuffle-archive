@@ -1,6 +1,6 @@
 Bruce is a pretty funny guy, but it took a while before he let his sense of humor show through in his songs. When he did, it was hard to miss.
 
-You can hear it on display in more recent songs like “[Frankie Fell in Love](http://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)” and as far back as “[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” on *The River,* but most of his funnier songs have been relegated to *Tracks* and other outtake collections. “[Ain’t Good Enough For You](http://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/),” “[Talk to Me,](http://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)” and “[I Wanna Be With You](http://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)” all showcase Bruce’s flair for cornball.
+You can hear it on display in more recent songs like “[Frankie Fell in Love](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)” and as far back as “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” on *The River,* but most of his funnier songs have been relegated to *Tracks* and other outtake collections. “[Ain’t Good Enough For You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/),” “[Talk to Me,](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)” and “[I Wanna Be With You](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)” all showcase Bruce’s flair for cornball.
 
 But I’d argue that Bruce’s laugh-out-loud funniest song is actually his first attempt at it: “Meeting Across the River” from his seminal album, *Born to Run*.
 
@@ -8,7 +8,7 @@ If you’ve never considered “Meeting Across the River” to be a farcical son
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=c6OAtvjSf1Y](https://www.youtube.com/watch?v=c6OAtvjSf1Y)
+[Watch on Youtube: Meeting Across the River](https://www.youtube.com/watch?v=c6OAtvjSf1Y)
 
 See what I mean? You hear it now that you’re listening for it: this is a story about a loser. Heck, he’s a loser’s loser.
 
@@ -66,7 +66,7 @@ And then, with one final line, Bruce gently rouses us back to reality, as Eddie�
 
 “Meeting Across the River” is *so* different from Bruce’s contemporaneous songwriting that we have to wonder: where the heck did it come from?
 
-Bruce was certainly no stranger to noirish street scenes: by this time, he’d already released songs like “[It’s Hard to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” and “[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).” But those songs romanticized both the street and its leading men, whereas “Meeting Across the River” features an inept would-be hood against a palpably dangerous backdrop.
+Bruce was certainly no stranger to noirish street scenes: by this time, he’d already released songs like “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)” and “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).” But those songs romanticized both the street and its leading men, whereas “Meeting Across the River” features an inept would-be hood against a palpably dangerous backdrop.
 
 Bruce himself doesn’t seem to recall the exact inspiration for the lyrics, although looking back on it, he told Brian Hiatt in an interview that it was likely influenced by Bruce’s own frustration at his inability to make the big time (remember, this was pre-*Born to Run*).
 
@@ -78,13 +78,13 @@ Regardless of where the story originated, the lyrics are only half of what makes
 
 It certainly seems that the piano came first, as we’re fortunate to have an early work-in-progress version of “Meeting Across the River” with only the piano for accompaniment. This version is called “The Heist” (as the song would continue to be called almost right up until the album’s release), and while it’s close to final lyrical form, there are a few differences that make our characters just a little bit more loserish:
 
-[https://videopress.com/embed/Ax0zZAwy](https://videopress.com/embed/Ax0zZAwy)
+[Watch Video Highlight](https://videopress.com/embed/Ax0zZAwy)
 
-But the song didn’t fully come to life until two guest artists entered the studio: Richard Davis (who previously backed Bruce on “[The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)“) on the double bass, and Randy Brecker (making his second appearance on *Born to Run–*he can also be found on “[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)“) on the trumpet. Suddenly “Meeting Across the River” sounded like absolutely nothing Bruce had ever written or recorded before, and although they compared a few takes before settling on the final form, each and every one of them were great. Take a listen to a couple of the alternative takes below.
+But the song didn’t fully come to life until two guest artists entered the studio: Richard Davis (who previously backed Bruce on “[The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)“) on the double bass, and Randy Brecker (making his second appearance on *Born to Run–*he can also be found on “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)“) on the trumpet. Suddenly “Meeting Across the River” sounded like absolutely nothing Bruce had ever written or recorded before, and although they compared a few takes before settling on the final form, each and every one of them were great. Take a listen to a couple of the alternative takes below.
 
-[https://videopress.com/embed/N5qa3969](https://videopress.com/embed/N5qa3969)
+[Watch Video Highlight](https://videopress.com/embed/N5qa3969)
 
-[https://videopress.com/embed/XDmxe9SU](https://videopress.com/embed/XDmxe9SU)
+[Watch Video Highlight](https://videopress.com/embed/XDmxe9SU)
 
 These days, “Meeting Across the River” is recognized as a Springsteen classic. There’s even a book of short stories inspired by the song (I haven’t read it and therefore can neither recommend nor warn you off it).
 
@@ -98,25 +98,25 @@ I am not one of those fans. Yes, the two songs are both “street” songs, but 
 
 Here’s the very first live performance of “Meeting Across the River,” the opening number at Bruce’s show in Iowa City on September 26, 1975. The beginning of the song wasn’t captured, unfortunately, so the recording starts mid-song. But the vocals are freshly inspired, and Roy’s conclusion is unusual and lovely, and both of these make it worth a listen.
 
-[https://videopress.com/embed/fFP4H4le](https://videopress.com/embed/fFP4H4le)
+[Watch Video Highlight](https://videopress.com/embed/fFP4H4le)
 
 When Bruce plays “Meeting Across the River,” it’s almost always in its original album arrangement. But there have been some exceptions, most notably in 1976, when the song was played in a full-band arrangement. Take a listen:
 
-[https://www.youtube.com/watch?v=c7Xrg5uKa0s](https://www.youtube.com/watch?v=c7Xrg5uKa0s)
+[Watch on Youtube: Bruce Springsteen - MEETING ACROSS THE RIVER 1976 (audio)](https://www.youtube.com/watch?v=c7Xrg5uKa0s)
 
 And in 2005, on his solo acoustic tour, Bruce took a run at the song by himself in an arrangement reminiscent of that original demo for “The Heist.”
 
-[https://www.youtube.com/watch?v=QBvj6QDJB5c](https://www.youtube.com/watch?v=QBvj6QDJB5c)
+[Watch on Youtube: Bruce Springsteen - Meeting Across the River (D&D Tour)](https://www.youtube.com/watch?v=QBvj6QDJB5c)
 
 In 2008 (and again for an encore a year and a half later), Richard Davis reprised his role on bass, joining Bruce and the E Street Band on “Meeting Across the River” for the first time in over three decades. (I wish we had a better quality recording of this, but unfortunately, these are the best ones I’m aware of.)
 
-[https://www.youtube.com/watch?v=cSZlaZ5ULSY](https://www.youtube.com/watch?v=cSZlaZ5ULSY)
+[Watch on Youtube: Springsteen "Meeting Across The River" #1 Milwaukee 3/17/08](https://www.youtube.com/watch?v=cSZlaZ5ULSY)
 
-[https://www.youtube.com/watch?v=qROQSCW7qLA](https://www.youtube.com/watch?v=qROQSCW7qLA)
+[Watch on Youtube: Springsteen "Meeting Across The River" #2 Milwaukee 3/17/08](https://www.youtube.com/watch?v=qROQSCW7qLA)
 
 “Meeting Across the River” made a few appearances during the 2012-2014 tours. Each time it did, lucky fans witnessed a gorgeous performance in an arrangement very close to the original one, thanks to Curt Ramm’s nightly presence. Here’s one of the final performances to date:
 
-[https://www.youtube.com/watch?v=Nw4KtKqb5eg](https://www.youtube.com/watch?v=Nw4KtKqb5eg)
+[Watch on Youtube: Bruce Springsteen - Meeting Across The River - Melbourne - 16 February 2014](https://www.youtube.com/watch?v=Nw4KtKqb5eg)
 
 “Meeting Across the River” has never been a setlist staple, even on the *Born to Run* tour. But other than its notable absence during the twenty-year stretch from 1979-1998, it’s never been fully gone either. Fans can usually depend on a few outings per tour–these days, paired more often than not with “Jungleland.” Consider yourself lucky if you catch either of them–they both rank among the best of Bruce’s catalog.
 
@@ -126,4 +126,4 @@ In 2008 (and again for an encore a year and a half later), Richard Davis reprise
 **First performed:** September 26, 1975 (Iowa City, IA)  
 **Last performed:** March 28, 2016 (New York City, NY)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

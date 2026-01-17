@@ -4,7 +4,7 @@ Stevie makes a pretty compelling claim.
 
 If you’re a fan of Bruce’s more romantic songwriting and the Spector sound, you’ll be hard pressed to find any catalog confection sweeter than “The Little Things (My Baby Does).”
 
-[https://www.youtube.com/watch?v=pCAHAsxFVOQ](https://www.youtube.com/watch?v=pCAHAsxFVOQ)
+[Watch on Youtube: The Little Things (My Baby Does)](https://www.youtube.com/watch?v=pCAHAsxFVOQ)
 
 “It’s perfect,” Van Zandt told author Peter Ames Carlin in *Bruce*. “Everything is right about it. You hear how the guitar and piano answer the vocals, and the level for once is pretty close to right. And the whole arrangement, the sensibility, is the greatest thing ever.”
 

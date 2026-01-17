@@ -8,7 +8,7 @@ If you thought “I’ve Got to Have You, Baby” was a fun listen, though, you�
 
 Both songs delight, but if the former song is a bluesy jam, “You Better Be Nice to Me, Baby” is light on its feet, carried by a terrific David Sancious performance that would have been right at home in a late-night jazz club. In fact, with the possible exception of “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/),” this is as close to jazz as you’ll ever hear Bruce get.
 
-[https://videopress.com/embed/RB65kVa8](https://videopress.com/embed/RB65kVa8)
+[Watch Video Highlight](https://videopress.com/embed/RB65kVa8)
 
 As we can hear, both songs feature rare spotlight solos for Steve Van Zandt as well.
 

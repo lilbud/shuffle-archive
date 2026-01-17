@@ -8,7 +8,7 @@ Because “Candy’s Boy” and “Candy’s Room” are so similar in theme and
 
 Candy’s earliest known appearance is in a 1976 rehearsal at Bruce’s house, captured on film in remarkable clarity by Barry Rebo.
 
-[https://www.youtube.com/watch?v=8O1t90tgjjI](https://www.youtube.com/watch?v=8O1t90tgjjI)
+[Watch on Youtube: Candy's Boy (Holmdel, NJ 76) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=8O1t90tgjjI)
 
 Even in this early prototype, we can hear in almost-finished form the first verse of “Candy’s Room”; the only substantive change between this rehearsal and the final vinyl is the substitution of Candy’s pop culture heroes for Jesus in her wall decorations.
 
@@ -38,7 +38,7 @@ The final verse introduces a menacing element to the proceedings–it would appe
 
 A year later, Bruce and the E Street Band revisited Candy in the studio, and one of those takes would eventually be released–more than three decades later–on *The Promise*.
 
-[https://www.youtube.com/watch?v=kyX31Y8O-20](https://www.youtube.com/watch?v=kyX31Y8O-20)
+[Watch on Youtube: Candy's Boy](https://www.youtube.com/watch?v=kyX31Y8O-20)
 
 The first two verses of the officially released version hew pretty closely to the 1976 rehearsal, with only minor changes that require no deep analysis.
 
@@ -58,9 +58,11 @@ Because Bruce devised a way for the bridge to do the heavy storytelling lifting,
 
 Gone is the reference to Candy’s lies or any sense of betrayal. The bad boys are now merely “rough,” more existential menaces than true-life ones. The narrator is more hopeful and less passive, but he’s just as naive as in the earlier version.
 
-Bruce must have known he was on to something in that first couplet–while it wouldn’t survive in the final version of “Candy’s Room,” he would adapt it for “[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” and liberate it almost verbatim for an early version of “[Frankie](http://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/).”
+Bruce must have known he was on to something in that first couplet–while it wouldn’t survive in the final version of “Candy’s Room,” he would adapt it for “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” and liberate it almost verbatim for an early version of “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/).”
 
-[https://videopress.com/embed/LmknH3DW](https://videopress.com/embed/LmknH3DW)
+[Watch Video Highlight](https://videopress.com/embed/LmknH3DW)
+
+
 
 Lyrically, the song ends at this point, but musically it continues for almost two full minutes on the back of Danny Federici’s glorious organ solo (accompanied by himself on glockenspiel). This is one of Danny’s finest moments on record; his solo is absolutely essential to the song, conveying the blind but buoyant optimism, adoration, and naivete of the narrator so earnestly that we *almost* believe that he and Candy will live happily ever after. (He’d do the same thing almost two decades later on “Across the Border” to even more powerful effect.)
 
@@ -74,11 +76,11 @@ So don’t ask me which is the stronger song–at least not yet. We’ll pick up
 
 **Bonus:** There are several studio outtakes of “Candy’s Boy” floating around out there, all variations recorded in June 1977. Here’s one of them, almost a full minute longer than the released version on *The Promise.*
 
-[https://www.youtube.com/watch?v=RxpYXYO-heQ](https://www.youtube.com/watch?v=RxpYXYO-heQ)
+[Watch on Youtube: Bruce Springsteen Candy's Boy Darkness Session Outtake](https://www.youtube.com/watch?v=RxpYXYO-heQ)
 
 **Candy’s Boy  
 Recorded:** June 1977  
 **Released:** *The Promise* (2010)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

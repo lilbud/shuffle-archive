@@ -2,7 +2,7 @@ If I keep stumbling across [brilliant](https://estreetshuffle.com/index.php/2021
 
 Because this cool but sultry rooftop performance by The Wallys is wonderful in every respect, from Valeria Colombo’s commanding vocals and charismatic presence to Adriano Cuccinella’s upright bass that keeps the song bouncing along.
 
-[https://www.youtube.com/watch?v=-2mfcK3ShRw](https://www.youtube.com/watch?v=-2mfcK3ShRw)
+[Watch on Youtube: The Wallys | Cover Me (Bruce Springsteen cover)](https://www.youtube.com/watch?v=-2mfcK3ShRw)
 
 I wish I could tell you more about this Italian band, but I’ve been unable to suss out any sort of online presence, other than for the video’s director (Roberto Mazzarelli).
 

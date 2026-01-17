@@ -1,10 +1,10 @@
-![](https://estreetshuffle.com/wp-content/uploads/2019/06/twitter-300x228.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/06/twitter.jpg)
 
 I often get asked about my favorite Springsteen song, and I agonize over it each and every time. My answer tends to vary by the day. Bruce’s catalog is too vast and too stellar to latch onto any one song as an ultimate favorite.
 
 Once, though, a fellow fan asked me what my favorite Springsteen *lyrics* were, and although I’d never even considered the question, my answer came surprisingly quickly and easily.
 
-In theory, it should have been just as tough a task as picking a favorite song. After all, this is the man who wrote “Is a dream a lie if it don’t come true, or is it something worse” and “[God have mercy on the man who doubts what he’s sure of](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/).”
+In theory, it should have been just as tough a task as picking a favorite song. After all, this is the man who wrote “Is a dream a lie if it don’t come true, or is it something worse” and “[God have mercy on the man who doubts what he’s sure of](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/).”
 
 But as killer as those lines are, they’re not what came immediately to mind when pressed for my favorite Springsteen lyrics.
 
@@ -16,7 +16,7 @@ I contend to you, dear reader, that there are no finer words to be found anywher
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=e_9cJWI2I9Y](https://www.youtube.com/watch?v=e_9cJWI2I9Y)
+[Watch on Youtube: Lion's Den (Studio Outtake - 1982)](https://www.youtube.com/watch?v=e_9cJWI2I9Y)
 
 That’s two minutes and fifteens seconds of pop perfection, right there. Recorded back in 1982 (with horns overlaid in 1998), there’s no doubt in my mind that “Lion’s Den” would have earned *Born in the U.S.A.* a sole distinction as the album with the most top ten songs on it (rather than where it is now, tied for first with Michael Jackson, Janet Jackson, and Drake.)
 
@@ -79,19 +79,19 @@ Most likely, Bruce didn’t put out “Lion’s Den” because he gave it away�
 
 Once he rediscovered “Lion’s Den,” though, Bruce seemed to recognize pretty quickly how great it was. He debuted it early in the Reunion Tour in Paris, and it was even more fun live than on vinyl. Watch and see–here’s the very first live performance of “Lion’s Den” (twice as long as the studio version), and Bruce can’t help but smile at every chorus.
 
-[https://www.youtube.com/watch?v=l7GHh5unGfg](https://www.youtube.com/watch?v=l7GHh5unGfg)
+[Watch on Youtube: Lion's Den](https://www.youtube.com/watch?v=l7GHh5unGfg)
 
 Bruce played it again a few days later in Madrid, but after that “Lion’s Den” inexplicably disappeared from Bruce’s setlists, coming out only three times ever since, two of which were at Penn State University (in a nod to the school’s sports team).
 
 Only once in the post-Reunion era did “Lion’s Den” get an outing beyond the Penn State campus: on April 6, 2012, at Madison Square Garden. This time, it was all Bruce could do to keep it together until the end of the song–there were a few times when it looked like laughter was about to get the best of him:
 
-[https://www.youtube.com/watch?v=VJfztjDxIeE](https://www.youtube.com/watch?v=VJfztjDxIeE)
+[Watch on Youtube: Bruce Springsteen - Lion's Den - Madison Square Garden 2012](https://www.youtube.com/watch?v=VJfztjDxIeE)
 
 “Lion’s Den” occupies the top of my “favorite Bruce lyrics” list, and it sits atop my chase list as well. And if we’re lucky enough to get the long-rumored *Born in the U.S.A.* box set soon, I just might be lucky enough to catch it.
 
 **Bonus:** Here’s an early work-in-progress outtake of “Lion’s Den.” It’s unrecognizable except for the central conceit and a wordless chorus, but it’s a good example of how Bruce sometimes fixes his sights on an idea and sets out in search of the right song to give it a home.
 
-[https://videopress.com/embed/NISWyTEK](https://videopress.com/embed/NISWyTEK)
+[Watch Video Highlight](https://videopress.com/embed/NISWyTEK)
 
 **Lion’s Den  
 Recorded:** January 25, 1982 (core recording), 1998 (horns)  
@@ -99,4 +99,4 @@ Recorded:** January 25, 1982 (core recording), 1998 (horns)
 **First performed:** June 3, 1999 (Paris, France)  
 **Last performed:** November 1, 2012 (University Park, PA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

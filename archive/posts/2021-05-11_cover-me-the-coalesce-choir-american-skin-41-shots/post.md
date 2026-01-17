@@ -8,7 +8,7 @@ A self-professed huge Springsteen fan, Domenic told me, “I don’t think I rea
 
 The finished track definitely makes the impact Domenic strove for. It’s every bit as powerful as Bruce’s original but lifted even higher through the seamlessly interwoven contributions of the assembled voices and musicians. (Domenic sings the lead on the verses.)
 
-[https://www.youtube.com/watch?v=NOOTMpXhtbU](https://www.youtube.com/watch?v=NOOTMpXhtbU)
+[Watch on Youtube: American Skin (41 Shots)](https://www.youtube.com/watch?v=NOOTMpXhtbU)
 
 If you like The Coalesce Choir’s version of “American Skin (41 Shots),” consider [buying it as a download](https://thecoalescechoir.com/store). (I just did.) It’s only five dollars, and all proceeds support Black Lives Matter and the NAACP Legal Defense and Educational Fund.
 

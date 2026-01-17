@@ -7,19 +7,19 @@ Facebook group contributor, Brucebase admin, Dr. Zoom member, and “[The E Stre
 
 “Key to the Highway” dates back to 1940, when it was originally recorded by Charlie Segar…
 
-[https://www.youtube.com/watch?v=xxWJWcOQ4LI](https://www.youtube.com/watch?v=xxWJWcOQ4LI)
+[Watch on Youtube: Key to the Highway](https://www.youtube.com/watch?v=xxWJWcOQ4LI)
 
 …but it’s most likely Derek and the Dominos’ nine-minute epic that inspired Bruce to cover it.
 
-[https://www.youtube.com/watch?v=f3dW5F6GKTs](https://www.youtube.com/watch?v=f3dW5F6GKTs)
+[Watch on Youtube: Derek and the Dominos - Key to the Highway](https://www.youtube.com/watch?v=f3dW5F6GKTs)
 
 The Bruce Springsteen Band took a swing at it when they played The Student Prince in Asbury Park, way back on December 3, 1971–a year or so after Clapton’s version. Typical of their sound, The Bruce Springsteen Band’s version is faster and swings–it almost has a “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)” vibe to it.
 
 Take a listen:
 
-[http://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3?_=1](http://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3?_=1)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3>
 
 **Key to the Highway**  
 **First performed:** October 23, 1971 (Richmond, VA)  

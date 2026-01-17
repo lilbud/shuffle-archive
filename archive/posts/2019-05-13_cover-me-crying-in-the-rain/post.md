@@ -4,11 +4,11 @@ Well, actually you’d be right. Bruce has never covered it. Not officially, at 
 
 Fortunately, that moment was captured on tape, so let’s take a listen to that recording from May 6, 1988 in Tacoma, Washington.
 
-[https://www.youtube.com/watch?v=A3Q0kxW7RBA](https://www.youtube.com/watch?v=A3Q0kxW7RBA)
+[Watch on Youtube: Crying In The Rain (Everly Brothers cover)](https://www.youtube.com/watch?v=A3Q0kxW7RBA)
 
 While the recording is more than a bit distant, it’s clear enough for us to make out the entire song and recognize it as a faithful version of the Everlys’ original.
 
-[https://www.youtube.com/watch?v=V_6qQEyCSv8](https://www.youtube.com/watch?v=V_6qQEyCSv8)
+[Watch on Youtube: The Everly Brothers - Crying In The Rain](https://www.youtube.com/watch?v=V_6qQEyCSv8)
 
 That original–a one-off collaboration between Carole King and Howard Greenfield–peaked at #6 on the Billboard Hot 100 upon its release in 1962.
 

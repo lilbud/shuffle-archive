@@ -1,7 +1,5 @@
 > “There were trains–passenger and freight–that came through Freehold in the fifties during long summer afternoons. We waited for them to jump and ride from one end of town to the other, or just to lay our pennies down on the rails and pick them up hot and flat. Those trains came and went as sudden as death.
 > 
-> 
-> 
 > “Back home you knelt at home at your bedside and recited [The Lord’s Prayer]. ‘For if I die before I wake…’ I never cared for that part. It impressed upon my young mind that someday we will close our eyes and the gray evening sky will unfold above us, bringing that long and endless sleep.” — *Bruce Springsteen, Letter to You (2020)*
 
 For a good long stretch, Bruce Springsteen was a searcher, starting each new album with a question.
@@ -23,7 +21,7 @@ When Bruce began his eighth decade on the planet, his songs stopped seeking answ
 
 Regardless of its origin, “One Minute You’re Here” is notable for opening a Springsteen album on a fatalistic note for the first time since “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” opened the album of the same name 36 years earlier.
 
-[https://www.youtube.com/watch?v=s-RT3nxr3T4](https://www.youtube.com/watch?v=s-RT3nxr3T4)
+[Watch on Youtube: Bruce Springsteen - One Minute You're Here (Official Audio)](https://www.youtube.com/watch?v=s-RT3nxr3T4)
 
 It’s worth noting that not only does Bruce open the album with “One Minute You’re Here,” he bookends it with “[I’ll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)” — two songs about death, the first resigned to it and the other looking forward to the reunions it offers. In between are a series of vignettes, remembrances, and celebrations that punctuate a life well lived.
 

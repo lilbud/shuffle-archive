@@ -1,4 +1,4 @@
-In 2002, Bruce Springsteen released *The Rising,* an album of songs that sounded like they were written for that post-9/11 moment, even though most of them weren’t. “[Nothing Man](https://estreetshuffle.com/index.php/2020/08/29/roll-of-the-dice-nothing-man/)” was recorded in 1994; “My City of Ruins” debuted in 2000; even “[Lonesome Day](http://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)” probably originated pre-9/11.
+In 2002, Bruce Springsteen released *The Rising,* an album of songs that sounded like they were written for that post-9/11 moment, even though most of them weren’t. “[Nothing Man](https://estreetshuffle.com/index.php/2020/08/29/roll-of-the-dice-nothing-man/)” was recorded in 1994; “My City of Ruins” debuted in 2000; even “[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)” probably originated pre-9/11.
 
 By that point in his career, Bruce was so skillful at recontextualizing and rearranging old songs to serve new purposes that most listeners never suspected their origins.
 
@@ -12,7 +12,7 @@ Let’s go back to the beginning and take a fresh listen to a song that started 
 
 “I wrote [57 Channels] as a joke one night sitting in front of the TV,” Bruce admitted in a 1993 Irish radio interview. Hardcore fans already knew that, though, because Bruce debuted the song at his famous Christic Institute performances in November 1990, introducing it as “a song about loneliness, how there can be so much going on and nothing happening.”
 
-[https://www.youtube.com/watch?v=5scpDev1qps](https://www.youtube.com/watch?v=5scpDev1qps)
+[Watch on Youtube: Bruce Springsteen - 57 Channels (And Nothin' On) Acoustic](https://www.youtube.com/watch?v=5scpDev1qps)
 
 In that original incarnation, “57 Channels” is a borderline novelty song about a man so consumed by the fruits of his material success that he misses out on more earthly pleasures, until his neglected lover finally gives up and leaves him.
 
@@ -82,17 +82,19 @@ It’s those final lines that point the way to the version that ended up on *Hum
 
 The result was a track that dialed down the humor and turned up the social disconnection. If not for the fact that it was electric, the studio version of “57 Channels” would sound right at home on *Nebraska*.
 
-[https://www.youtube.com/watch?v=YAlDbP4tdqc](https://www.youtube.com/watch?v=YAlDbP4tdqc)
+[Watch on Youtube: Bruce Springsteen - 57 Channels (And Nothin' On) (Official HD Video)](https://www.youtube.com/watch?v=YAlDbP4tdqc)
 
 So far so good, musically at least. (Let’s agree not to discuss that video, though, because it’s pretty bad. Bruce himself would remark in 2014, “I have no idea what we were aiming for in this one outside of some vague sense of ‘hipness’ and an attempt at irony. Never my strong suit, it reads now to me as a break from our usual approach and kind of a playful misfire.”)
 
 But then a few months later, Bruce took “57 Channels” on tour, and our first hint at what we were going to experience came a month before the tour opener when Bruce made his first-ever appearance on *Saturday Night Live.* Watch him perform a dramatically different version of “57 Channels” around the five-minute mark.
 
-[https://videopress.com/embed/0cAKvrCK](https://videopress.com/embed/0cAKvrCK)
+[Watch Video Highlight](https://videopress.com/embed/0cAKvrCK)
+
+
 
 By the time the tour started, the song had evolved even more.
 
-[https://www.youtube.com/watch?v=2xktsE-VaUs](https://www.youtube.com/watch?v=2xktsE-VaUs)
+[Watch on Youtube: Bruce Springsteen - 57 Channels (And Nothin' On) (from In Concert/MTV Plugged)](https://www.youtube.com/watch?v=2xktsE-VaUs)
 
 That tour arrangement is miles from where “57 Channels” started. So what happened between the time Bruce recorded “57 Channels” and the time he hit the road that prompted such a shocking evolution?
 
@@ -106,13 +108,13 @@ So Bruce re-arranged “57 Channels” in a way that emphasized its hidden theme
 
 Bruce leaned *all* the way in to TV sampling when he released his single for “57 Channels” that summer. Besides the airtight 2:20 studio track (Bruce dropped a bridge and cleaned up the “hot and horny” lyric), the CD single included three Little Steven-produced remixes (including one that was more then eight minutes long) that employed the protesters’ famous “No Justice, No Peace!” chant as percussion throughout, interweaving Gulf War commentary with vapid TV soundbites to illustrate the meaningless debates that preoccupied white-privileged viewers while across the world and in their own cities, their fellow citizens were dying.
 
-[https://www.youtube.com/watch?v=qGqkNagk8Gk](https://www.youtube.com/watch?v=qGqkNagk8Gk)
+[Watch on Youtube: Bruce Springsteen - 57 Channels (And Nothin' On) [Little Steven Mix 1] - 1992](https://www.youtube.com/watch?v=qGqkNagk8Gk)
 
-[https://videopress.com/embed/tOeMTIIW](https://videopress.com/embed/tOeMTIIW)
+[Watch Video Highlight](https://videopress.com/embed/tOeMTIIW)
 
 Bruce took those remix samples and used them on stage, and as is typically the case on tour, Bruce’s performances of “57 Channels” continued to grow in length and power with each passing month.
 
-[https://www.youtube.com/watch?v=smP4rjbE8v4](https://www.youtube.com/watch?v=smP4rjbE8v4)
+[Watch on Youtube: 57 Channels (and Nothin' On) - Bruce Springsteen (live at the National Bowl, Milton Keynes 1993)](https://www.youtube.com/watch?v=smP4rjbE8v4)
 
 There was only one problem: while fans could (and did) argue about the artistic merit and effectiveness of the arrangement and production, lyrically it was still the same song he wrote as a joke on his couch in front of the TV.
 
@@ -120,7 +122,7 @@ It seems Bruce recognized that on stage: he couldn’t help but slip into old ha
 
 Bruce played “57 Channels (And Nothin’ On)” nightly throughout his 1992 and 1993 World Tours, but never again since.
 
-When he took to the road again in 1995, it was a solo acoustic tour. Without the electronic enhancement, “57 Channels” would have revealed its original theme, and so Bruce wisely avoided it (although he would debut [another song about the TV wasteland](http://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/).)
+When he took to the road again in 1995, it was a solo acoustic tour. Without the electronic enhancement, “57 Channels” would have revealed its original theme, and so Bruce wisely avoided it (although he would debut [another song about the TV wasteland](https://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/).)
 
 Bruce’s next tour was his Reunion Tour with the E Street Band, but by then the world had changed too much for “57 Channels” to work in either context. Consumers had a lot more than 57 channels to choose from, and the permanent 24-hour news cycle had inured viewers to the disconnection between on-screen and off-screen life.
 
@@ -132,4 +134,4 @@ Recorded:** Early December 1990
 **First performed:** November 16, 1990 (Los Angeles, CA)  
 **Last performed:** June 26, 1993 (New York City, NY)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

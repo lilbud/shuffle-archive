@@ -12,7 +12,7 @@ But Garry must have been particularly taken with “Tiger Rose,” because when 
 
 The result was the second track on Burgess’ 1996 self-titled release.
 
-[https://www.youtube.com/watch?v=p9bxu3XpK7Y](https://www.youtube.com/watch?v=p9bxu3XpK7Y)
+[Watch on Youtube: Tiger Rose](https://www.youtube.com/watch?v=p9bxu3XpK7Y)
 
 The lyrics are clever and straightforward. “Tiger Rose” opens as a simple love song, with a devoted narrator professing his eternal love:
 
@@ -42,7 +42,7 @@ It’s a fun song, but hardly essential listening. But the imagery of the protag
 
 He actually did perform it twice, though–with Burgess himself at the Alliance of Neighbors Benefit concerts at the Count Basie Theater in Red Bank in late 2001. It’s not the tightest of performances, but it’s certainly a fun one. Take a look.
 
-[https://www.youtube.com/watch?v=zPY4nX3nWLY](https://www.youtube.com/watch?v=zPY4nX3nWLY)
+[Watch on Youtube: Tiger rose - sonny burgess & bruce springsteen](https://www.youtube.com/watch?v=zPY4nX3nWLY)
 
 **Tiger Rose  
 Recorded:** Summer 1995  
@@ -50,4 +50,4 @@ Recorded:** Summer 1995
 First performed:** October 18, 2001 (Red Bank, NJ)  
 **Last performed** October 19, 2001 (Red Bank, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

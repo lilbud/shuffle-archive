@@ -1,20 +1,20 @@
 Bruce Springsteen *really* likes Roy Orbison, and that esteem goes waaay back. Let’s watch Bruce describe the first time he ever saw Roy Orbison perform:
 
-[https://www.youtube.com/watch?v=gVYCtCZ6c5o](https://www.youtube.com/watch?v=gVYCtCZ6c5o)
+[Watch on Youtube: Bruce Springsteen talks about Roy Orbison 1981](https://www.youtube.com/watch?v=gVYCtCZ6c5o)
 
-You can hear Orbison’s influence scattered throughout Bruce’s catalog, from the name check in “Thunder Road” to the vocal stylings of “[The Brokenhearted](http://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)” to the inspiration for “[Leah](http://estreetshuffle.com/index.php/2019/12/12/roll-of-the-dice-leah/).”
+You can hear Orbison’s influence scattered throughout Bruce’s catalog, from the name check in “Thunder Road” to the vocal stylings of “[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)” to the inspiration for “[Leah](https://estreetshuffle.com/index.php/2019/12/12/roll-of-the-dice-leah/).”
 
 And then, of course, there’s “Cynthia.”
 
-[https://www.youtube.com/watch?v=wzCpphwK8vk](https://www.youtube.com/watch?v=wzCpphwK8vk)
+[Watch on Youtube: Cynthia (Studio Outtake - 1983)](https://www.youtube.com/watch?v=wzCpphwK8vk)
 
 Many fans and commentators have picked up on Bruce’s Orbisonian “Cynthia” vocals. Heck, Bruce explicitly winked at “that guy” when he performed “Cynthia” on the Devils & Dust Tour:
 
-[https://www.youtube.com/watch?v=bbD4ey7XRCc](https://www.youtube.com/watch?v=bbD4ey7XRCc)
+[Watch on Youtube: Bruce Springsteen - Cynthia (Live 2005-07-31) audio](https://www.youtube.com/watch?v=bbD4ey7XRCc)
 
-But I’m surprised that no one ever seems to notice that “Cynthia” is essentially a re-write of Orbison’s “[Oh, Pretty Woman](http://estreetshuffle.com/index.php/2019/08/25/matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/)” — or at the very least an answer song.
+But I’m surprised that no one ever seems to notice that “Cynthia” is essentially a re-write of Orbison’s “[Oh, Pretty Woman](https://estreetshuffle.com/index.php/2019/08/25/matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/)” — or at the very least an answer song.
 
-[https://www.youtube.com/watch?v=3KFvoDDs0XM](https://www.youtube.com/watch?v=3KFvoDDs0XM)
+[Watch on Youtube: Oh, Pretty Woman](https://www.youtube.com/watch?v=3KFvoDDs0XM)
 
 I mean, come on: compare Orbison’s opening verse…
 
@@ -86,7 +86,7 @@ And as Cynthia walks on, our hero goes back to work with a spring in his step, a
 
 Interestingly, the Farfisa-fueled version of “Cynthia” that appears on *Tracks* isn’t the original arrangement Bruce had in mind. (Note: surprisingly, that’s actually not Danny on the organ–it’s Roy.) Not even two months earlier, Bruce recorded “Cynthia” in a rockabilly arrangement. The lyrics are the same (or close enough), and the Orbison influence/homage is still very evident. Take a listen below–it’s a tough call as to which arrangement is superior. What do you think?
 
-[https://www.youtube.com/watch?v=Ky7XO1Jliv4](https://www.youtube.com/watch?v=Ky7XO1Jliv4)
+[Watch on Youtube: Bruce Springsteen Cynthia solo version](https://www.youtube.com/watch?v=Ky7XO1Jliv4)
 
 The biggest mystery about “Cynthia” is why Bruce kept it locked away in the vault for so long. Recorded during the *Born in the U.S.A.* sessions, the song would have been right at home on that album. In fact, in the summer of 1983, it was slated to be the second song on the album, immediately following the title track. For some reason, though, Bruce seemed to be its only champion, so he ultimately shelved it.
 
@@ -94,7 +94,7 @@ The biggest mystery about “Cynthia” is why Bruce kept it locked away in the 
 
 Fans had to wait for the tail end of the Rising Tour to hear “Cynthia” on stage for the first time–specifically, at the last of ten Giants Stadium shows on August 31, 2003, when without any fanfare Bruce opened the show with it.
 
-[https://www.youtube.com/watch?v=p8vhy24aD40](https://www.youtube.com/watch?v=p8vhy24aD40)
+[Watch on Youtube: Cynthia Bruce Springsteen (8/31/2003) NJ](https://www.youtube.com/watch?v=p8vhy24aD40)
 
 Bruce brought “Cynthia” out a half-dozen more times on his solo acoustic tour in 2005–always playing up the Orbison references like in the clip at the top of this essay.
 
@@ -102,11 +102,11 @@ But after that tour, “Cynthia” went back to her elusive ways, coming out onl
 
 One of those times, though, was especially inspired. On a rainy birthday eve in 2012, after a two-hour thunderstorm delay, Bruce audibled “one of Steve’s favorite songs” early in the set (although he’d actually intended to open with it). The band plays the song just a bit faster than in previous performances, Steve’s harmonies are at least as strong as they are on vinyl, and Bruce–perhaps feeling his age (listen to his remark late in the song)–was particularly in character.
 
-[https://www.youtube.com/watch?v=skTzYoa_LSo](https://www.youtube.com/watch?v=skTzYoa_LSo)
+[Watch on Youtube: Cynthia - Springsteen - MetLife Stadium - Sept 22, 2012](https://www.youtube.com/watch?v=skTzYoa_LSo)
 
-[https://www.youtube.com/watch?v=OmCnCMdfsVw](https://www.youtube.com/watch?v=OmCnCMdfsVw)
+[Watch on Youtube: Cynthia (Live at MetLife Stadium, E. Rutherford, NJ - 9/22/2012)](https://www.youtube.com/watch?v=OmCnCMdfsVw)
 
-Like “[Girls in Their Summer Clothes](http://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/),” “Cynthia” is a song that ages well with its singer. Don’t count her out yet–“Cynthia” may come walkin’ on by again soon.
+Like “[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/),” “Cynthia” is a song that ages well with its singer. Don’t count her out yet–“Cynthia” may come walkin’ on by again soon.
 
 ***Want another take on “Cynthia?” Check out Katy Crane’s excellent essay [here.](https://estreetshuffle.com/index.php/2021/12/06/two-faces-cynthia/)***
 
@@ -116,4 +116,4 @@ Recorded:** June 15, 1983
 **First performed:** August 31, 2003 (East Rutherford, NJ)  
 **Last performed:** July 23, 2013 (Cardiff, Wales)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

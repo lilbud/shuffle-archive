@@ -6,19 +6,19 @@ Thirty-five years later, Fogery’s wife Julie suggested he make a sequel. John 
 
 Like the original, the sequel was also comprised entirely of covers, the last of which was The Everly Brothers’ “When Will I Be Loved.”
 
-[https://www.youtube.com/watch?v=rI0ll5SexV0](https://www.youtube.com/watch?v=rI0ll5SexV0)
+[Watch on Youtube: Everly Brothers "When Will I Be Loved"](https://www.youtube.com/watch?v=rI0ll5SexV0)
 
 The Everly Brothers took “When Will I Be Loved” to #8 on the Billboard Hot 100 in the summer of 1960, and Fogerty vividly remembers the first time he heard it.
 
-[https://videopress.com/embed/2o54avrw](https://videopress.com/embed/2o54avrw)
+[Watch Video Highlight](https://videopress.com/embed/2o54avrw)
 
 In 1975, Linda Ronstadt scored even higher chart success with “When Will I Be Loved” when she took it it all the way to #2 on the Billboard Hot 100 and #1 on the Billboard Country & Western charts.
 
-[https://www.youtube.com/watch?v=r4TdEG2drsU](https://www.youtube.com/watch?v=r4TdEG2drsU)
+[Watch on Youtube: When Will I Be Loved](https://www.youtube.com/watch?v=r4TdEG2drsU)
 
 When John decided to include “When Will I Be Loved” on his new Blue Ridge Rangers album, his wife offered him one piece of wise advice:
 
-[https://videopress.com/embed/WQyPeOXM](https://videopress.com/embed/WQyPeOXM)
+[Watch Video Highlight](https://videopress.com/embed/WQyPeOXM)
 
 John and his backing band recorded the basic tracks in October 2008, but John held off on the vocals, hoping he’d be able to secure Bruce’s participation. It was Julie who broached the subject with Bruce, who immediately agreed to do it.
 
@@ -30,11 +30,9 @@ Bruce’s vocals are unmistakable on the track. John let him fly solo on a verse
 
 When it came time to film an official video for the new single, Bruce was touring the world in support of *Working on a Dream.* Still, he managed to make a brief cameo appearance in the video–see if you can spot him.
 
-[https://www.youtube.com/watch?v=fpeaMoCWNNg](https://www.youtube.com/watch?v=fpeaMoCWNNg)
+[Watch on Youtube: John Fogerty and Bruce Springsteen: "When Will I Be Loved"](https://www.youtube.com/watch?v=fpeaMoCWNNg)
 
 **When Will I Be Loved  
 Recorded:** October 2008 – January 2009  
 **Released:** *The Blue Ridge Rangers Rides Again*  
 **Never performed**
-
- 

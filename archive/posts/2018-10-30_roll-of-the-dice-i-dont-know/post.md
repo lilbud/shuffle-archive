@@ -1,6 +1,6 @@
 Sometime in the autumn of 1979, at his home in Holmdel, Bruce recorded this little ditty:
 
-[https://www.youtube.com/watch?v=KOya_GIgR-I](https://www.youtube.com/watch?v=KOya_GIgR-I)
+[Watch on Youtube: Bruce Springsteen, "I Don't Know" unreleased outtake](https://www.youtube.com/watch?v=KOya_GIgR-I)
 
 What’s it about?
 
@@ -18,4 +18,4 @@ Perhaps, but baby…
 **Recorded:** Autumn 1979 (early demo only)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

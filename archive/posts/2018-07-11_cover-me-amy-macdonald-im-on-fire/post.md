@@ -2,6 +2,4 @@ When Scottish singer-songwriter Amy Macdonald released her *Under Stars* album o
 
 It’s not surprising that she chose Bruce to cover–Amy has been known to cover Bruce frequently in concert. She always chooses the songs well, and she always does them justice and then some. There are a lot of covers out there of this song; this is one of the better ones.
 
-[https://www.youtube.com/watch?v=grGxFhyx-RA](https://www.youtube.com/watch?v=grGxFhyx-RA)
-
- 
+[Watch on Youtube: Amy Macdonald - I'm on Fire (Acoustic)](https://www.youtube.com/watch?v=grGxFhyx-RA)

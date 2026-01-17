@@ -10,11 +10,11 @@ Both surviving recordings are a bit distant, and it can be hard to make out Bruc
 
 Let’s take a listen, starting with this first performance. Of particular note here is the three-minute introductory interplay between Bruce on guitar and David Sancious on keys. It’s almost certainly improvised, and both artists dazzle in their duel.
 
-[https://videopress.com/embed/I8DjdsIW](https://videopress.com/embed/I8DjdsIW)
+[Watch Video Highlight](https://videopress.com/embed/I8DjdsIW)
 
 The other surviving performance is from the same month (perhaps earlier, perhaps later, but certainly only a few weeks apart at most). Disappointingly, the intro is shorter and Sancious-less; without the rocket boost provided by the earlier performance’s introduction, this performance is slower and more of a straight-up rocker.
 
-[https://videopress.com/embed/9eBAYPhh](https://videopress.com/embed/9eBAYPhh)
+[Watch Video Highlight](https://videopress.com/embed/9eBAYPhh)
 
 Comparing the two contemporaneous performances gives us a pretty good idea of how loose and improvisational those early shows were.
 

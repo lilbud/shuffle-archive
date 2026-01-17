@@ -4,8 +4,6 @@ I know that “Dancing in the Dark” covers are a dime a dozen these days, but 
 
 Make sure you watch all the way through–the final three minutes are a stunning example of what Molly calls “rock-inspired orchestral looping.”
 
-[https://www.youtube.com/watch?v=Dz4yH_pqVfM](https://www.youtube.com/watch?v=Dz4yH_pqVfM)
+[Watch on Youtube: Dancing in the Dark: a cover by Molly Healey](https://www.youtube.com/watch?v=Dz4yH_pqVfM)
 
 Molly is more than just a great cover artist–she’s got three albums of her own original material as well. Check them out and learn more [here](https://www.mollyhealey.com/).
-
- 

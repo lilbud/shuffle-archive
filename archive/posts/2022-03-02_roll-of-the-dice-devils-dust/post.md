@@ -10,7 +10,7 @@ The notable exception in the early years of the Iraq War was the title track to 
 
 We know this not just because of its timely theme, but because Bruce sound checked an early work-in-progress version in the spring of 2003. One of those rehearsal performances was captured in amazing quality, and we can clearly hear the lyrical differences and partially bluffed sections in the clip below.
 
-[https://videopress.com/embed/XaZLBMi8](https://videopress.com/embed/XaZLBMi8)
+[Watch Video Highlight](https://videopress.com/embed/XaZLBMi8)
 
 “Devils & Dust” is a powerful meditation on the human cost of war–not in terms of lost lives but in lost humanity. In times of war, a country calls upon its citizens to make moral decisions they would never otherwise make, and they do so in full faith and trust that their nation is acting in keeping with their shared ideals and values.
 
@@ -38,7 +38,7 @@ Somewhere along the line, Bruce realized that his song would be more powerful if
 
 Let’s take a listen to the finished track.
 
-[https://www.youtube.com/watch?v=cG8ZQkeZvzc](https://www.youtube.com/watch?v=cG8ZQkeZvzc)
+[Watch on Youtube: Bruce Springsteen - Devils & Dust -The Song](https://www.youtube.com/watch?v=cG8ZQkeZvzc)
 
 Before we dive into the lyrics, it’s worth taking a moment to discuss one subtle but significant element in the official video above:
 
@@ -52,7 +52,7 @@ In early 2005, prior to kicking off his solo acoustic tour for *Devils & Dust*, 
 
 Let’s watch and listen:
 
-[https://www.youtube.com/watch?v=XZzKPkIJiBw](https://www.youtube.com/watch?v=XZzKPkIJiBw)
+[Watch on Youtube: Bruce Springsteen - Devils & Dust - The Story (From VH1 Storytellers)](https://www.youtube.com/watch?v=XZzKPkIJiBw)
 
 In that *Storytellers* segment, Bruce refers to the song’s title as a metaphor for confusion–and it is. But it’s more than that: *devils* is a metaphor for the darker impulses that drive us–distrust, greed, fear. *Dust* is a metaphor for death–the earth that reclaims us when we perish.
 
@@ -117,15 +117,15 @@ Because there will be moments when we are called upon to make split-second decis
 
 We tend to think of “Devils & Dust” as an acoustic track, even though a number of musicians appear on the track, including a string section and horn players. That’s probably because for the first year or so following its release, Bruce only performed it acoustically.
 
-[https://www.youtube.com/watch?v=dASrcgK6ayU](https://www.youtube.com/watch?v=dASrcgK6ayU)
+[Watch on Youtube: Bruce Springsteen - Devils & Dust ("Bring 'em Home!")](https://www.youtube.com/watch?v=dASrcgK6ayU)
 
 However, “Devils & Dust” truly comes to life when it’s performed by a band. In 2006, Bruce arranged it for the Sessions Band, who performed it throughout their tour.
 
-[https://www.youtube.com/watch?v=9eg_lEC62cw](https://www.youtube.com/watch?v=9eg_lEC62cw)
+[Watch on Youtube: Bruce Springsteen with The SSB - Devils & Dust](https://www.youtube.com/watch?v=9eg_lEC62cw)
 
 But for my money, the definitive performance of “Devils & Dust” came when Bruce arranged it for the super-sized Wrecking Ball edition of the E Street Band in 2012. Taking full advantage of the E Street Horns, Bruce crafted an arrangement somber, stately, and defiant in turns.
 
-[https://www.youtube.com/watch?v=joSfO9XooCE](https://www.youtube.com/watch?v=joSfO9XooCE)
+[Watch on Youtube: MULTICAM HD-Devils & dust (full band)-Bruce Springsteen REMASTER AUDIO (St Paul 2012).flv](https://www.youtube.com/watch?v=joSfO9XooCE)
 
 “Devils & Dust” has been absent from Bruce’s set lists in recent years, but it’s just as relevant as ever. At any given moment, somewhere in the world, there are those who face the same choices Bruce warns of in his song.
 

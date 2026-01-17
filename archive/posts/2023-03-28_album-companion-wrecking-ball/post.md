@@ -18,7 +18,7 @@ Although it may seem like anathema to those of us who grew up on classics like *
 
 And then there is *Wrecking Ball*, by far the best and most summational E Street Band album. If you want to introduce Bruce’s music to someone who’s never heard it before, there’s no better and stronger document of his lifelong themes than his seventeenth studio album.
 
-[https://www.youtube.com/playlist?list=OLAK5uy_m9imIkWn-NTaCynnLiLR9Xsrfnhth8sx0](https://www.youtube.com/playlist?list=OLAK5uy_m9imIkWn-NTaCynnLiLR9Xsrfnhth8sx0)
+[Watch on Youtube: Wrecking Ball](https://www.youtube.com/playlist?list=OLAK5uy_m9imIkWn-NTaCynnLiLR9Xsrfnhth8sx0)
 
 Released in late 2011*, Wrecking Ball* represented a turning point in Bruce’s songwriting. After four decades of penning intimate profiles of characters struggling to survive–let alone rise above–the economic wreckage of the American dream, Springsteen closed that chapter with a mic-drop of an opening run unparalleled in its thematic cohesion:
 
@@ -33,7 +33,7 @@ Find me a stronger while still thematically cohesive opening five-pack anywhere 
 
 I don’t think you’ll find it, because these are songs that could only be written by an artist exhausted from decades of calling out social and economic inequality and exasperated by a perennial lack of accountability.
 
-[https://www.youtube.com/watch?v=cEdX2IT41eE](https://www.youtube.com/watch?v=cEdX2IT41eE)
+[Watch on Youtube: Bruce Springsteen discusses "Wrecking Ball"](https://www.youtube.com/watch?v=cEdX2IT41eE)
 
 Although he’d hinted at it in songs like “[Two Faces](https://estreetshuffle.com/index.php/2022/05/26/roll-of-the-dice-two-faces/)” and “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/),” *Wrecking Ball* also features Springsteen’s most intimate insights into his as-yet-unrevealed lifelong struggle with chronic depression.
 
@@ -63,7 +63,7 @@ The album finishes as strongly as it opens, with a run of four songs that rank n
 
 And it wasn’t just the album–the tour was a smash success, too. Featuring a stellar array of backing vocalists and the welcome return of a full horn section–including Jake Clemons ably stepping into his uncle’s oversized shoes in this first tour since The Big Man’s passing–the super-sized E Street Band sounded brighter, bolder, and more nimble than ever.
 
-[https://www.youtube.com/watch?v=dsi9Gr70hLg](https://www.youtube.com/watch?v=dsi9Gr70hLg)
+[Watch on Youtube: Bruce Springsteen Wrecking Ball Tour](https://www.youtube.com/watch?v=dsi9Gr70hLg)
 
 As the tour progressed over two years (morphing along the way into the High Hopes Tour), Bruce took fans on a career-spanning tour of reinvented classics, never-played deep cuts, and daringly inventive covers–all interwoven with *Wrecking Ball* material that sounded both as fresh and as timeless as anything in Bruce’s catalog.
 

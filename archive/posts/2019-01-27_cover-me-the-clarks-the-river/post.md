@@ -6,8 +6,6 @@ The Pittsburgh-based band recorded their uptempo rock arrangement of Bruce’s c
 
 It works–better than one might imagine was possible. Take a listen.
 
-[https://www.youtube.com/watch?v=T_jQadUprHQ](https://www.youtube.com/watch?v=T_jQadUprHQ)
+[Watch on Youtube: The River](https://www.youtube.com/watch?v=T_jQadUprHQ)
 
 You can find “The River” on the *Light of Day* tribute album, or on The Clark’s 2004 release, *Strikes and Gutters 2: Doublewide.*
-
- 

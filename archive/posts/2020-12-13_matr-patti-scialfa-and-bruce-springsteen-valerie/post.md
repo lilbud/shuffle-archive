@@ -6,7 +6,7 @@ Not that “Valerie” is a bad song–quite the opposite, as illustrated by Bru
 
 In fact, “Valerie” was never released as a single, and yet during a rare in-studio radio appearance in July 1993 (the month that *Rumble Doll* was released), “Valerie” is the song she chose to play.
 
-[https://videopress.com/embed/6l1B7wRG](https://videopress.com/embed/6l1B7wRG)
+[Watch Video Highlight](https://videopress.com/embed/6l1B7wRG)
 
 Infatuation with its songwriter aside, it’s no wonder that Bruce was so taken with “Valerie.” With its gorgeous, evocative metaphor-rich lyrics, lush backing track, and failed love affair set against an exotic backdrop, “Valerie” is exactly the kind of song Bruce loved to write himself.
 
@@ -14,7 +14,7 @@ Patti was kind when the DJ called “Valerie” a “buddy-girl type of song” 
 
 The narrator of “Valerie” followed her lover on a great adventure, only to find herself alone and abandoned. He’s been gone for three years now, but she’d still sacrifice anything and everything to recapture that feeling of intense love.
 
-[https://www.youtube.com/watch?v=RXQyuidSUFw](https://www.youtube.com/watch?v=RXQyuidSUFw)
+[Watch on Youtube: Valerie](https://www.youtube.com/watch?v=RXQyuidSUFw)
 
 The second verse of “Valerie” may be the most artful lyric Patti has ever written:
 
@@ -38,16 +38,14 @@ That song, of course, was “Valerie,” and thanks to Bruce’s radio show this
 
 Enjoy Patti Scialfa, backed by Bruce Springsteen and The Sessions Band, performing “Valerie.”
 
-[https://videopress.com/embed/VEBgViEj](https://videopress.com/embed/VEBgViEj)
+[Watch Video Highlight](https://videopress.com/embed/VEBgViEj)
 
 **Bonus:** Patti’s catalog hasn’t been covered nearly as much as Bruce’s has, but in 1999 Emmylou Harris and Linda Ronstadt chose “Valerie” for their duet album, *Western Wall: The Tucson Sessions.”* 
 
 The song loses some of its power when performed as a duet, however, and even though Harris and Ronstadt are both superb vocalists, neither quite manage to summon the brave vulnerability that “Valerie” (like much of Patti’s catalog) requires.
 
-[https://www.youtube.com/watch?v=L34ceGVmC7c](https://www.youtube.com/watch?v=L34ceGVmC7c)
+[Watch on Youtube: Valerie](https://www.youtube.com/watch?v=L34ceGVmC7c)
 
 **Valerie  
 First performed:** October 5, 2006 (Verona, Italy)  
 **Last performed:** October 5, 2006 (Verona, Italy)
-
- 

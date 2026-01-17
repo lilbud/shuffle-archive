@@ -8,7 +8,7 @@ One of the best examples is the album’s title track itself. “Play It As It L
 
 Instrumentally as well, “Play It As It Lays” dazzles. Steve Jordan’s metronomic percussion sounds like the ticking of a clock, which is very much an underlying theme. And as if on cue, just as Patti makes her first dedication to taking each day with her partner as it comes, along comes Bruce on electric guitar.
 
-[https://www.youtube.com/watch?v=NdAKx8UFhfY](https://www.youtube.com/watch?v=NdAKx8UFhfY)
+[Watch on Youtube: Play It As It Lays](https://www.youtube.com/watch?v=NdAKx8UFhfY)
 
 Bruce makes his presence felt at just the right times: when Patti remembers laying in his arms for the first time, for example. And when Patti exits the bridge into the song’s final, confident third, Bruce buoys her voice with his B3 organ.
 
@@ -19,5 +19,3 @@ To date, Bruce and Patti have never performed “Play It As It Lays” live, but
 **Play It As It Lays**  
 **Released:** *Play It As It Lays* (2007)  
 **Never performed**
-
- 

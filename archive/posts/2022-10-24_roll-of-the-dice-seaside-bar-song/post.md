@@ -6,17 +6,17 @@ I suppose one could dispute the notion of immortality via a rarely performed 197
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=F1I0nfQqgtM](https://www.youtube.com/watch?v=F1I0nfQqgtM)
+[Watch on Youtube: Seaside Bar Song (Studio Outtake - 1973)](https://www.youtube.com/watch?v=F1I0nfQqgtM)
 
 The first thing that jumps out at us from “Seaside Bar Song” isn’t its lyrics. It’s that Farfisa riff that grabs us, bores its way into our brains, and absolutely refuses to let go. In later years, we’d learn to expect this kind of earworm from Bruce, but “Seaside Bar Song” was recorded in mid-1973, long before “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/),” “[I’m a Rocker,](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)” and “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/).”
 
 Only one other song on the album has such an irresistible riff, and as with “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/),” Springsteen modeled his hook on an early rock and roll classic. Early studio takes of “Seaside Bar Song” were called “Johnny & The Hurricanes Song,” and it’s not hard to figure out which song Bruce had in mind.
 
-[https://www.youtube.com/watch?v=76OSOg5E_HE](https://www.youtube.com/watch?v=76OSOg5E_HE)
+[Watch on Youtube: RED RIVER ROCK - JOHNNY AND THE HURRICANES 1959](https://www.youtube.com/watch?v=76OSOg5E_HE)
 
 “[Red River Rock](https://estreetshuffle.com/index.php/2020/05/29/cover-me-red-river-rock/)” was a Top Ten hit single for Johnny & The Hurricanes in 1959, but both the song and riff date much further back than that. A nineteenth-century Canadian folk song called “Red River Valley” first recorded by Kelly Harrell in 1926 bears a familiar melody.
 
-[https://www.youtube.com/watch?v=uC_vTbOzLyg](https://www.youtube.com/watch?v=uC_vTbOzLyg)
+[Watch on Youtube: Kelly Harrell-Bright Sherman Valley](https://www.youtube.com/watch?v=uC_vTbOzLyg)
 
 It only takes a few seconds of listening to each song to recognize the through-line that connects the accordion intro from Harrell’s recording to the Farfisa lead in “Red River Rock” to Danny Federici’s riff in “Seaside Bar Song.”
 
@@ -62,7 +62,7 @@ Let’s not wonder for long, though, because like “Born to Run” and “Rosal
 
 “Seaside Bar Song” is an infectious crowd-pleaser–so much so that it’s surprising to realize Bruce only ever performed it once (that we know of) in the century it was written.
 
-[https://www.youtube.com/watch?v=8-pz9MZMmf8](https://www.youtube.com/watch?v=8-pz9MZMmf8)
+[Watch on Youtube: Bruce Springsteen & the E-Street Band-Seaside Bar Song (live)](https://www.youtube.com/watch?v=8-pz9MZMmf8)
 
 That debut performance was from way back on the Greetings Tour, when Bruce and his band (they didn’t even have a name yet) made a stop in Binghamton, New York. They wouldn’t play it again for almost thirty years–not even when the song became a fan-favorite after its inclusion in *Tracks* in 1998.
 
@@ -74,13 +74,13 @@ When “Seaside Bar Song” finally did return, it was–appropriately–at the 
 
 “Seaside Bar Song” made fourteen appearances between 2001 and 2006, all at the Jersey Shore. It wasn’t until a Philadelphia stop on the Working on a Dream Tour that fans heard it on the E Street stage. That was the night Springsteen revealed the identity of the titular bar.
 
-[https://www.youtube.com/watch?v=l7K-iCMlpJY](https://www.youtube.com/watch?v=l7K-iCMlpJY)
+[Watch on Youtube: Seaside Bar Song - Bruce Springsteen and The E Street Band - March 28, 2012](https://www.youtube.com/watch?v=l7K-iCMlpJY)
 
 Once reintroduced to the stage, “Seaside Bar Song” made frequent appearances on fan request signs and a handful of appearances on the Wrecking Ball and High Hopes Tours.
 
-[https://www.youtube.com/watch?v=cHh6PaREhww](https://www.youtube.com/watch?v=cHh6PaREhww)
+[Watch on Youtube: Bruce Springsteen & The ESB ☜❤️☞ Seaside Bar Song ∫ All Or Nothin' At All ∫ Mony Mony](https://www.youtube.com/watch?v=cHh6PaREhww)
 
-[https://www.youtube.com/watch?v=Aa71oVuQcs4](https://www.youtube.com/watch?v=Aa71oVuQcs4)
+[Watch on Youtube: Seaside Bar Song (Live at Farm Bureau Live, Virginia Beach, VA - 04/12/14 - Official Au...](https://www.youtube.com/watch?v=Aa71oVuQcs4)
 
 It was conspicuously absent from the 2016 River Tour, however, despite the deep archival setlists that characterized the tour’s last leg. By the time Bruce’s next tour kicks off, it will have been almost a decade since “Seaside Bar Song” was last heard in concert.
 
@@ -88,7 +88,9 @@ As for its namesake: The Osprey still stands on 1st Avenue in Manasquan, seven m
 
 But on a summer night at the shore, if you don’t let the daylight steal your soul, you can get in your wheels and roll, roll, roll down to Manasquan, New Jersey, where The Osprey will almost certainly be humming.
 
-[https://uw-media.app.com/embed/video/7856334001?placement=snow-embed](https://uw-media.app.com/embed/video/7856334001?placement=snow-embed)
+[APP-Embed Player](https://uw-media.app.com/embed/video/7856334001?placement=snow-embed)
+
+
 
 **Seaside Bar Song  
 Recorded:** June 28 – July 24, 1973  

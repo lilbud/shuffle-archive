@@ -1,6 +1,6 @@
-> I remember one night when we were completely packed up to go home and Bruce was off in the corner playing his acoustic guitar. Suddenly, I guess the bug bit him, and he started writing these rockabilly songs. We’d been recording all night and were dead tired, but they had to open up the cases and set up the equipment so that we could start recording again at five in the morning. That’s when we got “[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/),” “[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/),” and… “TV Movie”… Bruce got on a roll, and when that happens, you just hold on for dear life. — Max Weinberg, quoted in Clinton Heylin, *E Street Shuffle: The Glory Days of Bruce Springsteen and the E Street Band*
+> I remember one night when we were completely packed up to go home and Bruce was off in the corner playing his acoustic guitar. Suddenly, I guess the bug bit him, and he started writing these rockabilly songs. We’d been recording all night and were dead tired, but they had to open up the cases and set up the equipment so that we could start recording again at five in the morning. That’s when we got “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/),” “[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/),” and… “TV Movie”… Bruce got on a roll, and when that happens, you just hold on for dear life. — Max Weinberg, quoted in Clinton Heylin, *E Street Shuffle: The Glory Days of Bruce Springsteen and the E Street Band*
 
-It wasn’t just that night. Bruce had been writing in a rockabilly vein all through the *Born in the U.S.A.* sessions. “[My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” started out as rockabilly, as did “[Cynthia](http://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)” and “Sugarland.”
+It wasn’t just that night. Bruce had been writing in a rockabilly vein all through the *Born in the U.S.A.* sessions. “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” started out as rockabilly, as did “[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)” and “Sugarland.”
 
 It’s not clear exactly when that night was that Max refers to–“Pink Cadillac” and “TV Movie” both date back to home demos in very early 1982, so it’s unlikely that Bruce had invented them out of whole cloth in the studio sessions that followed.
 
@@ -8,7 +8,7 @@ More likely he resurrected them, inspired by his mood to finish and perfect them
 
 “TV Movie,” however, would see only a single live outing (to date, at least), so let’s give this relative obscurity some sunlight.
 
-[https://www.youtube.com/watch?v=PE5jG7b8tvo](https://www.youtube.com/watch?v=PE5jG7b8tvo)
+[Watch on Youtube: TV Movie (Studio Outtake - 1983)](https://www.youtube.com/watch?v=PE5jG7b8tvo)
 
 No discussion of “TV Movie” can start without first acknowledging the track’s superstar: “Professor” Roy Bittan is in full Jerry Lee Lewis mode throughout. During the bridge, I can’t help but envision Roy kicking away his piano stool when Bruce screams, and Roy’s final flourish at the end of the song is well-earned. He certainly didn’t deserve the ignominy Bruce threw his way four decades later, but more on that in a bit.
 
@@ -65,13 +65,13 @@ Forgotten, that is, until a fan requested it in Cardiff, late on the Wrecking Ba
 
 However, Bruce did one thing in that world debut that was unforgivable: just seconds after launching into what should have been Roy’s star turn for the evening, Bruce shouted for his sound crew to turn down the professor’s volume. “He’s not that important!”
 
-[https://www.youtube.com/watch?v=7T9PP-f6t_0](https://www.youtube.com/watch?v=7T9PP-f6t_0)
+[Watch on Youtube: Bruce Springsteen - TV Movie from 2013 Cardiff Wales](https://www.youtube.com/watch?v=7T9PP-f6t_0)
 
 Despite softening the slight with a parenthetical “He sounds good, though,” Bruce inexplicably marginalized the best part of the song, giving the bridge solo to Jake instead of Roy.
 
 Interestingly, the original studio take of “TV Movie” did have a sax part, but Bruce completely removed The Big Man from the track before releasing the song on *Tracks.* Here’s that original version, with Clarence in the mix:
 
-[https://www.youtube.com/watch?v=MLs-wWstURg](https://www.youtube.com/watch?v=MLs-wWstURg)
+[Watch on Youtube: Bruce Springsteen TV Movie](https://www.youtube.com/watch?v=MLs-wWstURg)
 
 So why did Bruce change his mind forty years later and spotlight Jake instead of Roy? No idea. Perhaps the request threw him and he didn’t remember how essential Roy is to the song, or perhaps it was just a whim that night.
 
@@ -83,4 +83,4 @@ Recorded:** June 13, 1983
 **First performed:** July 23, 2013 (Cardiff, Wales)  
 **Last performed:** July 23, 2013 (Cardiff, Wales)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

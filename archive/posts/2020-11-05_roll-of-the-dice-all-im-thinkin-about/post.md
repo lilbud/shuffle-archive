@@ -2,13 +2,13 @@ Welcome to another installment of *Graphically (But Secretly) Sexual Springsteen
 
 “All I’m Thinkin’ About” is about what we do when all we’re thinkin’ about is sex, and especially when we’ve lost that one partner we can’t stop thinkin’ about.
 
-[https://www.youtube.com/watch?v=G7k-tfytNrg](https://www.youtube.com/watch?v=G7k-tfytNrg)
+[Watch on Youtube: All I'm Thinkin' About](https://www.youtube.com/watch?v=G7k-tfytNrg)
 
-But unless you listen closely, you might never realize that “All I’m Thinkin’ About” is a cousin to songs like “[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)” and “[Red Headed Woman.](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” Bruce sings with such a deliberately innocent falsetto and fills his verses with such pastoral imagery that we’re lulled into receiving his song as a country lark.
+But unless you listen closely, you might never realize that “All I’m Thinkin’ About” is a cousin to songs like “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)” and “[Red Headed Woman.](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” Bruce sings with such a deliberately innocent falsetto and fills his verses with such pastoral imagery that we’re lulled into receiving his song as a country lark.
 
 It doesn’t help that “All I’m Thinkin’ About” is an obvious homage to Canned Heat’s “Going Up the Country” road trip, from the rhythm to the melody to the lyrical “wine” reference in the first verse.
 
-[https://www.youtube.com/watch?v=4eQMA_noRYQ](https://www.youtube.com/watch?v=4eQMA_noRYQ)
+[Watch on Youtube: Going Up The Country (Remastered 2005)](https://www.youtube.com/watch?v=4eQMA_noRYQ)
 
 But if Canned Heat hides just a bit of countercultural protest if you listen for it, Bruce positively packs “All I’m Thinkin’ About” with sexual innuendo, with varying degrees of subtlety.
 
@@ -44,7 +44,7 @@ Self explanatory, once we realize “fishin’ pole” is a euphemism.
 
 Side note: when performing “All I’m Thinkin’ About” in concert, Bruce was pretty good at playing it straight. Once in a while, though, his giggling inner twelve-year-old got the better of him, like at this show in Milan.
 
-[https://videopress.com/embed/uycqhyAX](https://videopress.com/embed/uycqhyAX)
+[Watch Video Highlight](https://videopress.com/embed/uycqhyAX)
 
 But I digress. Moving on:
 
@@ -113,13 +113,13 @@ The core recording, though, is an all-Springsteen production–he plays three gu
 
 Curiously, though, there’s an alternate version of “All I’m Thinkin’ About” that was captured by Danny Clinch and included on the DVD/CD “dual disc” release of *Devils & Dust.* It’s still a solo acoustic Springsteen arrangement, but there are some unseen backing vocalists we haven’t heard from before.
 
-[https://www.youtube.com/watch?v=ffUyqhxWkrE](https://www.youtube.com/watch?v=ffUyqhxWkrE)
+[Watch on Youtube: Bruce Springsteen - All I'm Thinkin' About ("Devils & Dust" Acoustic Performances)](https://www.youtube.com/watch?v=ffUyqhxWkrE)
 
 That was the debut of backing vocalists Evan Springsteen, Jessica Springsteen, and Sam Springsteen in their first official contribution to one of their father’s albums. (Yes, this strikes me as kind of an odd song to have your kids cameo on, but I’m not gonna judge.)
 
 Bruce played “All I’m Thinkin’ About” semi-regularly (at about one out of every three shows) on his 2005 solo acoustic tour. He also performed it once on television, at a *Today* appearance on NBC in April to promote his new album.
 
-[https://videopress.com/embed/1XyTRHmH](https://videopress.com/embed/1XyTRHmH)
+[Watch Video Highlight](https://videopress.com/embed/1XyTRHmH)
 
 It’s been fifteen years since Bruce played it last, however; he seems to be thinkin’ about other things these days.
 
@@ -131,4 +131,4 @@ Recorded:** 1997-2004
 **First performed:** April 30, 2005 (Glendale, AZ)  
 **Last performed:** November 19, 2005 (Hollywood, FL)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

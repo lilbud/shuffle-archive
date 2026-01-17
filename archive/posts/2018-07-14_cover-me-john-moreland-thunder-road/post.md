@@ -2,6 +2,4 @@ Oklahoma singer-songwriter John Moreland’s gruff voice makes him a natural fit
 
 Here’s his take on it, recorded in the studio in 2015.
 
-[https://www.youtube.com/watch?v=Jub6cg_UhcQ](https://www.youtube.com/watch?v=Jub6cg_UhcQ)
-
- 
+[Watch on Youtube: John Moreland - Thunder Road](https://www.youtube.com/watch?v=Jub6cg_UhcQ)

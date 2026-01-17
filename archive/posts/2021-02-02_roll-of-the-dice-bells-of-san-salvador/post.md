@@ -4,7 +4,7 @@ In the spring of 1981, Bruce and the E Street Band performed a cover of John Fog
 
 There was something odd about those performances, though, something fans of the original song almost certainly noticed: Bruce added verses that weren’t in the original song. You’ll hear them shortly after the 2:30 mark in the video below.
 
-[https://www.youtube.com/watch?v=3XZjhZWbB34](https://www.youtube.com/watch?v=3XZjhZWbB34)
+[Watch on Youtube: Bruce Springsteen - RUN THROUGH THE JUNGLE 1981 (audio)](https://www.youtube.com/watch?v=3XZjhZWbB34)
 
 The new verses begin with the lines:
 
@@ -21,7 +21,7 @@ Because shortly after the River Tour ended later that year, Bruce started workin
 
 Bruce called his song “Bells of San Salvador,” and the only traces of it that circulate widely are his (very) early home acoustic demos where he works on the song.
 
-[https://videopress.com/embed/YMJABFlc](https://videopress.com/embed/YMJABFlc)
+[Watch Video Highlight](https://videopress.com/embed/YMJABFlc)
 
 Now the interesting thing about those nine minutes of tinkering in the clip above is that Bruce has his title (he says it at one point), and he has a melody (clearly intended as a full-band track, as he vocalizes the percussion).
 

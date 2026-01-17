@@ -6,13 +6,13 @@ And yet here he is in 1972, so obsessed with cars with that he actually fetishiz
 
 From Bruce’s very first demo recording session with John Hammond on May 3, 1972, take a listen to “Street Queen,” performed by Bruce solo on piano:
 
-[https://videopress.com/embed/IvoYACpv](https://videopress.com/embed/IvoYACpv)
+[Watch Video Highlight](https://videopress.com/embed/IvoYACpv)
 
 “Street Queen” wasn’t an idle throwaway. Surviving documents suggest that Bruce actively considered it for inclusion on his first album during the summer of 1972, and indeed he continued to work on the song, refining its lyrics.
 
 On June 7, 1972–the very first day of recording sessions for [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)–“Street Queen” was one of the first four songs Bruce recorded in the studio after signing with Columbia. This time he performed it on electric piano. Take a listen to it below–it’s the first and last recording we have of Bruce playing the electric piano until 33 years later.
 
-[https://videopress.com/embed/YSKs9HY3](https://videopress.com/embed/YSKs9HY3)
+[Watch Video Highlight](https://videopress.com/embed/YSKs9HY3)
 
 There’s not a lot going on in “Street Queen.” As I wrote at the top, this is a fetish song plain and simple, and if there’s not a lot to parse and analyze, we can at least admire Bruce’s talent for riding a metaphor off into the horizon:
 
@@ -39,7 +39,7 @@ That entire verse is a finalist for Bruce’s raunchiest songwriting.
 *Oh she’s the slickest thing that I’ve ever seen*  
 *Oh, Street Queen*
 
-Let me pause here just to say: *thank goodness* Bruce finally got around to writing and releasing “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” so he could get “[long and dark](http://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/),” and “[shiny and black](http://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)” out of his system. Those phrases can be found floating around his unreleased songs for over a decade before he finally gave them a permanent home.
+Let me pause here just to say: *thank goodness* Bruce finally got around to writing and releasing “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” so he could get “[long and dark](https://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/),” and “[shiny and black](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)” out of his system. Those phrases can be found floating around his unreleased songs for over a decade before he finally gave them a permanent home.
 
 Anyway, let’s continue, because Bruce is about to go, um, all in.
 

@@ -6,11 +6,11 @@ On the Born to Run Tour, one of the more frequent covers (performed 13 times) wa
 
 Bruce clearly modeled his take on “Sha La La” after Manfred Mann’s 1964 version (which hit #3 in the UK, #12 in the US).
 
-[https://www.youtube.com/watch?v=Xz2CXDFmz5w](https://www.youtube.com/watch?v=Xz2CXDFmz5w)
+[Watch on Youtube: Manfred Mann Sha La La](https://www.youtube.com/watch?v=Xz2CXDFmz5w)
 
 …but Manfred Mann’s version was actually the second released recording of the song. “Sha La La” was actually first recorded and released seven months earlier by The Shirelles, and it’s a much more swinging version than either of the ones by the boys.
 
-[https://www.youtube.com/watch?v=BsEHrhiwY8A](https://www.youtube.com/watch?v=BsEHrhiwY8A)
+[Watch on Youtube: Shirelles - Sha-La-La](https://www.youtube.com/watch?v=BsEHrhiwY8A)
 
 **Sha La La**  
 **First performed:** July 20, 1975 (Providence, RI)  

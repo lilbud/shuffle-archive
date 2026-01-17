@@ -6,21 +6,21 @@ When The Rolling Stones released their original version as the lead single off *
 
 Still, it gradually became a fan favorite (in fact, it’s a frequent show opener on the band’s current tour) and a critic’s classic; “Street Fighting Man” is firmly lodged in Rolling Stone’s 500 Greatest Songs of All Time in slot #301.
 
-[https://www.youtube.com/watch?v=BUt0dZXPFoU](https://www.youtube.com/watch?v=BUt0dZXPFoU)
+[Watch on Youtube: The Rolling Stones - Street Fighting Man (Official Lyric Video)](https://www.youtube.com/watch?v=BUt0dZXPFoU)
 
 When Bruce Springsteen launched what would prove to be his most popular, iconic tour of all time, he included a cover of “Street Fighting Man” as an encore from the very first show.
 
 Here’s that debut performance, from the opening show of the Born in the U.S.A. Tour in St. Paul, June 29, 1984.
 
-[https://videopress.com/embed/7LyG3v5v](https://videopress.com/embed/7LyG3v5v)
+[Watch Video Highlight](https://videopress.com/embed/7LyG3v5v)
 
 Bruce and the E Street Band continued to cover “Street Fighting Man” regularly throughout the summer and well into the fall, finally dropping it from the setlist just before Halloween after more than two dozen performances.
 
-[https://www.youtube.com/watch?v=QB3KnqP7ee4](https://www.youtube.com/watch?v=QB3KnqP7ee4)
+[Watch on Youtube: Bruce Springsteen and the E Street Band "Street Fighting Man" E. Rutherford, NJ 8/6/84](https://www.youtube.com/watch?v=QB3KnqP7ee4)
 
 Bruce brought “Street Fighting Man” back for one final encore the following summer as a tribute to the original artists when the E Street Band played their first stand at Wembley Stadium. And this time, Steve Van Zandt was on hand to join his old bandmates, and the additional guitar power (and the slightly slower tempo) made this version the E Street Band’s definitive one.
 
-[https://videopress.com/embed/oIHFw54S](https://videopress.com/embed/oIHFw54S)
+[Watch Video Highlight](https://videopress.com/embed/oIHFw54S)
 
 It’s been almost 35 years since that last E Street Band cover of “Street Fighting Man,” but we can hope it won’t prove to be the final one. It may be more resonant now than ever.
 

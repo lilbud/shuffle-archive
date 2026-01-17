@@ -4,15 +4,15 @@ In the early days of 1972, Vanessa Redgrave’s latest film garnered a slew of A
 
 Nevertheless, Bruce was enamored of “Mary,” and it was the first song he recorded with Hammond at Columbia the following day. His first attempt was a warm-up; it’s never been released, but you can hear it below:
 
-[https://videopress.com/embed/vD9f3qkK](https://videopress.com/embed/vD9f3qkK)
+[Watch Video Highlight](https://videopress.com/embed/vD9f3qkK)
 
 The second take was a keeper, though, and Bruce would release it more than a quarter-century later on *Tracks.*
 
-[https://www.youtube.com/watch?v=MvabtjLsDGI](https://www.youtube.com/watch?v=MvabtjLsDGI)
+[Watch on Youtube: Mary Queen Of Arkansas (Demo Version - 1972)](https://www.youtube.com/watch?v=MvabtjLsDGI)
 
 And despite the attempts of almost everyone around him to dissuade him, Bruce recorded a more polished take of “Mary Queen of Arkansas” and insisted it appear on his first album.
 
-[https://www.youtube.com/watch?v=HQ2CR7S5Q4A](https://www.youtube.com/watch?v=HQ2CR7S5Q4A)
+[Watch on Youtube: Mary Queen of Arkansas](https://www.youtube.com/watch?v=HQ2CR7S5Q4A)
 
 Listening to both the demo and official recordings, one thing is clear: Hammond wasn’t wrong. “Mary Queen of Arkansas” is pretentious by nearly any estimation.
 
@@ -82,17 +82,17 @@ Bruce leaves his story unresolved, but we sense that Mary is not up for running 
 
 But his fans never loved it anywhere near as much as he did, so it appeared only infrequently in concert in the year or so following its release. One of Mary’s earliest appearances was at Bruce’s show at Max’s Kansas City, only a few weeks after the release of [*Greetings From Asbury Park, N.J*.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/) Danny Federici’s accordion substitutes for Bruce’s harmonica, but the effect is not quite as effective.
 
-[https://www.youtube.com/watch?v=5pnazYVfVGM](https://www.youtube.com/watch?v=5pnazYVfVGM)
+[Watch on Youtube: 2. Mary Queen Of Arkansas (Bruce Springsteen - Live In New York City 1-31-1973)](https://www.youtube.com/watch?v=5pnazYVfVGM)
 
 Mary vanished from the scene in 1974; the next time she surfaced was a quarter-century later on the Reunion Tour, when Bruce and the E Street Band stopped in Little Rock. (Had Bruce not always been a sucker for songs that namechecked the towns he played in, Mary might have gone missing for longer still.)
 
 “Mary Queen of Arkansas” made three appearances on the Reunion Tour, the last of which was captured on video in fine quality.
 
-[https://www.youtube.com/watch?v=q2KIIXY8Je4](https://www.youtube.com/watch?v=q2KIIXY8Je4)
+[Watch on Youtube: Mary Queen Of Arkansas (solo acoustic) Bruce Springsteen (MSG 2000)](https://www.youtube.com/watch?v=q2KIIXY8Je4)
 
 But it was Bruce’s one-off performance at the closing show of the Working on a Dream Tour (as part of a full-album performance of *Greetings*) that proved to be his definitive live rendition. Featuring Nils Lofgren on harmonica(!), it’s the only time Bruce has performed “Mary Queen of Arkansas” in its original arrangement.
 
-[https://www.youtube.com/watch?v=2l8n-0n660M](https://www.youtube.com/watch?v=2l8n-0n660M)
+[Watch on Youtube: Bruce Springsteen & the E-Street Band-Mary Queen of Arkansas (live)](https://www.youtube.com/watch?v=2l8n-0n660M)
 
 Mary has made only one appearance since, during a solo mini-set in Pittsburgh in 2014 (where Bruce admitted to the song’s theme for the first time).
 

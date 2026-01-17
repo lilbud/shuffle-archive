@@ -9,4 +9,4 @@ Give a listen to this Steel Mill original instrumental jam (only performed three
 **Sherlock Goes Home****First performed:** July 17, 1970 (Asbury Park, NJ)  
 **Last performed:** October 11, 1970 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

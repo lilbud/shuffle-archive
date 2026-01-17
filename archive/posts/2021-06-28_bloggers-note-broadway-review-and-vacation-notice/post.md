@@ -6,13 +6,13 @@ I hope things are gradually getting back to normal for you and yours, as they ar
 
 Let’s start with my report/review from this past Saturday night’s reopening of Springsteen on Broadway. While certainly anything *but* a normal event (even without the big protest out front), it marked the beginning of a new beginning, and I was thrilled and honored to be a part of it.
 
-[https://www.youtube.com/watch?v=_QcgmwnzDJM](https://www.youtube.com/watch?v=_QcgmwnzDJM)
+[Watch on Youtube: Anti-vax protesters march outside 'Springsteen on Broadway' debut](https://www.youtube.com/watch?v=_QcgmwnzDJM)
 
 Backstreets was kind enough to publish my full review yesterday–if you haven’t read it and you’re so inclined, you can read it [here](https://backstreets.com/news.html#July26), but beware: spoilers abound!
 
 You can also see brief clips from the show below.
 
-[https://www.youtube.com/watch?v=W7Zh9FCAerE](https://www.youtube.com/watch?v=W7Zh9FCAerE)
+[Watch on Youtube: The BOSS Is Back! Watch Clips from Springsteen On Broadway](https://www.youtube.com/watch?v=W7Zh9FCAerE)
 
 Next, the news I’ve been dreading but knew I’d someday have to face:
 
@@ -35,5 +35,3 @@ I hope you’ll still be here when I get back. We’re getting close to the end 
 In the meantime, thanks for reading and joining me this far, and I hope you have the opportunity to rest and recharge this summer, too.
 
 Have a great July, and I’ll see you in August!
-
- 

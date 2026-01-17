@@ -6,13 +6,13 @@ I’m not sure it’s possible to improve on the original, which peaked at #2 on
 
 But the original remains the standard, becoming one of Motown’s signature songs, preserved by the Library of Congress in the United States National Recording Registry.
 
-[https://www.youtube.com/watch?v=CdvITn5cAVc](https://www.youtube.com/watch?v=CdvITn5cAVc)
+[Watch on Youtube: Martha & The Vandellas "Dancing in the Streets"](https://www.youtube.com/watch?v=CdvITn5cAVc)
 
 Bruce first took a crack at “Dancing in the Street” at the tender age of 20, opening Steel Mill shows with it throughout 1970. Here’s the first instance of it to be captured on audio, from the band’s legendary show at a Richmond, Virginia parking deck.
 
-[http://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3?_=1](http://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3?_=1)
 
-<http://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2020/09/101-Dancing-In-The-Street-1970-08-14.mp3>
 
 In theory, “Dancing in the Street” makes for a great show opener… if you’re a dance band. Steel Mill was many things, but a dance band wasn’t one of them.
 
@@ -22,7 +22,7 @@ Shortly after that parking deck performance, Bruce invited local singer Robbin T
 
 In the clips below (much clearer than the one above), you’ll hear Bruce and Robbin trading lead vocals in an almost thirteen-minute epic jam, featuring some terrific (but not very danceable) lead guitar by Bruce.
 
-[https://www.youtube.com/watch?v=ChmsOg816d0](https://www.youtube.com/watch?v=ChmsOg816d0)
+[Watch on Youtube: Bruce Springsteen and Steel Mill: Dancing in the Street with Honky Tonk Women 1971 South Amboy, NJ](https://www.youtube.com/watch?v=ChmsOg816d0)
 
 [https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2020/09/01-Dancin_-In-The-Street.mp3?_=2)
 
@@ -30,10 +30,8 @@ In the clips below (much clearer than the one above), you’ll hear Bruce and Ro
 
 When Steel Mill folded in January 1971, “Dancing in the Street” vanished from Bruce’s set lists as well.
 
-Well, *almost* completely. Bruce has often teased a few lines of “Dancing in the Street” mid-song, and if you go back and listen closely around the 10:30 mark in the above clip, you’ll hear some familiar guitar chords that Bruce would one day resurrect for his version of “[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” –a classic Motown cover done right.
+Well, *almost* completely. Bruce has often teased a few lines of “Dancing in the Street” mid-song, and if you go back and listen closely around the 10:30 mark in the above clip, you’ll hear some familiar guitar chords that Bruce would one day resurrect for his version of “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” –a classic Motown cover done right.
 
 **Dancing in the Street  
 First performed:** December 31, 1969 (Big Sur, CA)  
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
-
- 

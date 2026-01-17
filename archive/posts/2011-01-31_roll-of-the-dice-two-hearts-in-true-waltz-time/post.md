@@ -8,17 +8,17 @@ Obviously, it was dropped before *Greetings From Asbury Park* was released. That
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=-lsOLKy5xjo](https://www.youtube.com/watch?v=-lsOLKy5xjo)
+[Watch on Youtube: Bruce Springsteen - (Outtake) Two hearts in true waltz time](https://www.youtube.com/watch?v=-lsOLKy5xjo)
 
 “Two Hearts in True Waltz Time” takes its title from a 1930 German film/operetta, or perhaps the 1934 British remake. It’s hard to imagine Bruce being familiar with either film in 1972, but somehow that phrase got lodged in his mind and intrigued him enough to base a song around it.
 
-If the song’s melody sounds familiar, that’s probably because it’s very similar to “[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” — and since both songs were recorded the same week (possibly even the same day), that may be a big reason why one of them had to be left off the album. (Interestingly, at one point they were slated to be back-to-back on the album.)
+If the song’s melody sounds familiar, that’s probably because it’s very similar to “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” — and since both songs were recorded the same week (possibly even the same day), that may be a big reason why one of them had to be left off the album. (Interestingly, at one point they were slated to be back-to-back on the album.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/09/1972_handwrittensonglist2-194x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/09/1972_handwrittensonglist2.jpg)
 
 As for the lyrics, on the surface they are very much in keeping with Bruce’s *Greetings*-era writing, full of internal rhymes, surreal imagery, and inventive metaphor.
 
-But upon a careful listen, we realize that this song is unlike any and all of the ones that did make it onto the album. It’s a gritty street romance of the kind we wouldn’t see until “[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” the following year, although we won’t realize that until the end of the song. In fact, “Two Hearts in True Waltz Time” sounds for all the world like Bruce started out with “Lost in the Flood” in mind but ended up reaching for “Incident.”
+But upon a careful listen, we realize that this song is unlike any and all of the ones that did make it onto the album. It’s a gritty street romance of the kind we wouldn’t see until “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” the following year, although we won’t realize that until the end of the song. In fact, “Two Hearts in True Waltz Time” sounds for all the world like Bruce started out with “Lost in the Flood” in mind but ended up reaching for “Incident.”
 
 In the first verse, Bruce introduces us to our focal character, a nameless New York streetwalker who haunts the entrances to the city:
 
@@ -47,7 +47,7 @@ Let’s continue, as Bruce places our troubled focal character deep enough withi
 
 (Interestingly, in a solo demo of the song from a month earlier, Bruce sings that last line a bit differently–she’s still another Orphan Annie, but also a Raquel Welch. In the month between solo demo and studio recordings, Bruce seems to have opted for a more artfully extended Annie comparison at the expense of the rhyme.)
 
-[https://videopress.com/embed/54i5lVp4](https://videopress.com/embed/54i5lVp4)
+[Watch Video Highlight](https://videopress.com/embed/54i5lVp4)
 
 In the third verse, the police finally catch up to our Orphan Annie–or at least one officer does, and their encounter is primal and carnal. I’ll let these lyrics speak for themselves–your imagination can provide all the interpretation required:
 

@@ -1,6 +1,6 @@
 For a cast-off outtake from a poorly-received album buried on the fourth disc of a box set and only ever performed live once, “Sad Eyes” sure generates a lot of discussion among fans.
 
-I have many friends who regard “Sad Eyes” as a deeply romantic song and a few who view it more platonically in a “[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” vein. I’ve read interpretations that argue a theme of acceptance, and others that posit patience.
+I have many friends who regard “Sad Eyes” as a deeply romantic song and a few who view it more platonically in a “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” vein. I’ve read interpretations that argue a theme of acceptance, and others that posit patience.
 
 Me? I suspect I’m in the minority (though I’ve never taken a poll), but I’m of the firm belief that “Sad Eyes” is one seriously cruel and twisted song.
 
@@ -8,7 +8,7 @@ The protagonist of “Sad Eyes” is manipulative and self-centered. He’s astu
 
 Let’s take a listen–a *careful* listen:
 
-[https://www.youtube.com/watch?v=jssnRkHODE0](https://www.youtube.com/watch?v=jssnRkHODE0)
+[Watch on Youtube: Sad Eyes (Studio Outtake - 1990)](https://www.youtube.com/watch?v=jssnRkHODE0)
 
 Because we’re going to focus on the lyrics for the remainder of this essay, let’s first take a moment to acknowledge the music and the arrangement. “Sad Eyes” hails from the *Human Touch* sessions, but it’s much more restrained and more gently produced than most of the songs that made the album.
 
@@ -75,7 +75,7 @@ It’s not for Bruce’s lack of trying, though–at least at first. Not only di
 
 But “Sad Eyes” didn’t become a hit, and he’s only ever performed it live once–by request, on electric piano during the anything-goes phase of the Devils & Dust Tour in 2005.
 
-[https://www.youtube.com/watch?v=7jxFax6wy-Q](https://www.youtube.com/watch?v=7jxFax6wy-Q)
+[Watch on Youtube: Bruce Springsteen - SAD EYES 2005](https://www.youtube.com/watch?v=7jxFax6wy-Q)
 
 In my opinion, the song works even better when Bruce performs it solo–stripping away the additional backing musicians heightens the emotional isolation at the heart of the song.
 
@@ -87,4 +87,4 @@ Recorded:** January 25, 1990
 **First performed:** July 23, 2005 (Atlanta, GA)  
 **Last performed:** July 23, 2005 (Atlanta, GA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

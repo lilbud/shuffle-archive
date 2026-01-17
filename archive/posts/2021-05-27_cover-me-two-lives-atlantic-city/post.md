@@ -12,12 +12,10 @@ Two Lives does all that while turning in a spectacular music performance and a s
 
 The song is Bruce Springsteen’s fatalistic “[Atlantic City,](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” and the band turns it into a song of hope and resilience against life’s vicissitudes. Their version is still dark and despairing, but with a subtext of defiance rather than denial.
 
-[https://www.youtube.com/watch?v=OLEcbEjPADQ](https://www.youtube.com/watch?v=OLEcbEjPADQ)
+[Watch on Youtube: Atlantic City - Bruce Springsteen (Two Lives Cover )](https://www.youtube.com/watch?v=OLEcbEjPADQ)
 
 I don’t know much about Two Lives. As far as I can tell, they’re an Italian wedding band consisting of Serena Graziano on vocals, Diego Pavoni on guitar, and Matteo Massobrio on bass and piano–and their social media presence consists of just this one cover.
 
 But if this one cover is indicative of their musical and interpretive ability, I certainly want to hear more.
 
 This year’s *Cover Me* contest is turning out to have a very high bar.
-
- 

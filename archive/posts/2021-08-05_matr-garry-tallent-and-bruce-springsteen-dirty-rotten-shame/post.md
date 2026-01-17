@@ -4,7 +4,7 @@ And at the height of summer, bassist Garry Tallent released his own solo album�
 
 Buried deep in the album is a cut so tight and terse that you’d have to look to “[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)” to find an officially released track with Bruce on it that clocks in at less time.
 
-[https://www.youtube.com/watch?v=Gi-bI-1pMXg](https://www.youtube.com/watch?v=Gi-bI-1pMXg)
+[Watch on Youtube: Dirty Rotten Shame](https://www.youtube.com/watch?v=Gi-bI-1pMXg)
 
 And yes, that is Bruce singing backing vocals during the second half of the song. He’s pretty easy to pick out.
 
@@ -12,7 +12,7 @@ Garry dropped his album on August 2, 2019, but fans got a sneak preview of his c
 
 Together, Bruce, Garry and his band ripped through “Dirty Rotten Shame” in the album arrangement, a performance that was even shorter than the not-quite-two-minutes studio track.
 
-[https://www.youtube.com/watch?v=eu9j35DrYTo](https://www.youtube.com/watch?v=eu9j35DrYTo)
+[Watch on Youtube: Bruce Springsteen with Garry Tallent at the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=eu9j35DrYTo)
 
 Garry acknowledged the song’s brevity, calling it the shortest track he’d ever recorded and likely the shortest stage appearance Bruce has ever made.
 

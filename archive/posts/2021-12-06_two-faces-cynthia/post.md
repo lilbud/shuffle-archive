@@ -10,17 +10,17 @@ Ken has already made my central point about “Cynthia:” that it’s a more en
 
 Bruce, unsurprisingly, goes with “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” instead.
 
-[https://www.youtube.com/watch?v=W8CsEqYCg68?start=8](https://www.youtube.com/watch?v=W8CsEqYCg68?start=8)
+[Watch on Youtube: Bruce Springsteen Picks His Top 5 Favorite Springsteen Songs](https://www.youtube.com/watch?v=W8CsEqYCg68?start=8)
 
 But my heart goes out to that mystery fan, using her moment in the Colbert audience to stand up and testify for “Cynthia.” And I think I understand why this obscure outtake from the *Born in the U.S.A.* era might inspire such devotion, why someone might believe that Bruce–who didn’t put it on an album at all until *Tracks–*should nonetheless rank it among his favorite songs.
 
-[https://www.youtube.com/watch?v=wzCpphwK8vk](https://www.youtube.com/watch?v=wzCpphwK8vk)
+[Watch on Youtube: Cynthia (Studio Outtake - 1983)](https://www.youtube.com/watch?v=wzCpphwK8vk)
 
 And that’s because “Cynthia,” a goofy outtake that skirts the boundary between Roy Orbison pastiche and outright Roy Orbison parody, is also one of Springsteen’s most explicitly feminist songs. Ken, who notes the Orbison influence in [his original *Roll of the Dice* entry](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/), writes that “Cynthia” is “a deeper, more mature (albeit marginally) song than ‘[Oh, Pretty Woman](https://estreetshuffle.com/index.php/2019/08/25/matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/).’” I would go further. I think “Cynthia” is a deliberate point-by-point feminist re-write of “Oh, Pretty Woman,” in which Bruce takes everything that’s wrong (from a feminist standpoint) with the original song, and *fixes it*. (A bit like Kelly Clarkson and John Legend rewriting “Baby it’s Cold Outside,” but more tongue-in-cheek, and also better.)
 
 Let’s start by taking a look at the lyrics of “Oh Pretty Woman,” the most famous song ever written about catcalling women on the street.
 
-[https://www.youtube.com/watch?v=3KFvoDDs0XM](https://www.youtube.com/watch?v=3KFvoDDs0XM)
+[Watch on Youtube: Oh, Pretty Woman](https://www.youtube.com/watch?v=3KFvoDDs0XM)
 
 *Pretty woman won’t you pardon me*  
 *Pretty woman I couldn’t help but see*  

@@ -8,7 +8,7 @@ The entire band is on fire here: from the opening bars, Danny Federici has the s
 
 Take a listen:
 
-[https://www.youtube.com/watch?v=OlKWGXn06pU](https://www.youtube.com/watch?v=OlKWGXn06pU)
+[Watch on Youtube: Steel Mill-Jeannie i want to thank you.1969 live wmv](https://www.youtube.com/watch?v=OlKWGXn06pU)
 
 The band turns in such a confident, powerful performance that we almost don’t notice that Bruce only wrote twelve lines for the entire ten-minute song.
 
@@ -40,4 +40,4 @@ Never recorded**
 **First performed:** January 13, 1970 (San Francisco, CA)  
 **Last performed:** June 13, 1970 (Bricktown, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

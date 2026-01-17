@@ -2,11 +2,11 @@ On the afternoon of September 20, 1978, if you were lurking in the shadows of th
 
 For the rest of us, we’ll have to make do with this video record of a *very* early prototype for what would become “The Ties That Bind.”
 
-[https://www.youtube.com/watch?v=-73KeumrfbQ](https://www.youtube.com/watch?v=-73KeumrfbQ)
+[Watch on Youtube: Bruce Springsteen | The Ties That Bind - Passaic - 20/09/1978](https://www.youtube.com/watch?v=-73KeumrfbQ)
 
 It’s easy to focus on the unfamiliar melody, but it’s fascinating to examine the lyrics: they are a complete inversion of the classic we know and love (only a few snippets would survive in the final version), and yet the moral is the same: when you’re alone, you’re alone. Or perhaps more accurately: two hearts are better than one.
 
-(I’ve always thought that “The Ties That Bind” and “[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” are essentially the same song told the same way from the same perspective, and given the wealth of material to choose from for *The River*, it remains a mystery to me why he chose to put both songs on that album. But that’s a mystery to ponder another day.)
+(I’ve always thought that “The Ties That Bind” and “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” are essentially the same song told the same way from the same perspective, and given the wealth of material to choose from for *The River*, it remains a mystery to me why he chose to put both songs on that album. But that’s a mystery to ponder another day.)
 
 This early, unrecognizable version of “The Ties That Bind” is told from the opposite perspective. In this take, it’s the protagonist who is the loner–but with enough self-awareness to recognize that he can’t fully cut his heart off from his girl. He has unbreakable ties binding him to her, no matter how far away he rides:
 
@@ -30,7 +30,7 @@ It didn’t take long for Bruce to realize that the song would be more powerful 
 
 Here’s the second-ever performance from the following night in Largo, MD:
 
-[https://www.youtube.com/watch?v=DNoj5FZ4dgo](https://www.youtube.com/watch?v=DNoj5FZ4dgo)
+[Watch on Youtube: Bruce Springsteen - The Ties That Bind - Largo - 11/2/78 [Slideshow]](https://www.youtube.com/watch?v=DNoj5FZ4dgo)
 
 The perspective has now shifted–in this version, we’re in “Two Hearts” territory–there’s even a line that would migrate over to that song someday:
 
@@ -40,7 +40,7 @@ The perspective has now shifted–in this version, we’re in “Two Hearts” t
 *Ease the sadness, who’s gonna quiet your pain*  
 *You’ll walk the wire, will you stand and walk the line*
 
-And then a completely different bridge (the same musical bridge from “[The Brokenhearted](http://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)“) with lyrics that seem more condemning and angry than empathetic:
+And then a completely different bridge (the same musical bridge from “[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)“) with lyrics that seem more condemning and angry than empathetic:
 
 *Keeping it safe, if you can, then you’ll be a savior*  
 *You can’t run from your blood, with that call*  
@@ -50,7 +50,7 @@ And then a completely different bridge (the same musical bridge from “[The Bro
 
 Bruce still had some tweaking to do, and it didn’t take him long–five weeks later, the song was in its almost-final form:
 
-[https://www.youtube.com/watch?v=CkL7_JVPxjo](https://www.youtube.com/watch?v=CkL7_JVPxjo)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - The Ties That Bind (Live in Houston, 1978)](https://www.youtube.com/watch?v=CkL7_JVPxjo)
 
 The music isn’t *quite* there, but it’s very close–and the lyrics are spot on, and the changes make all the difference:
 
@@ -80,7 +80,7 @@ By the time Bruce recorded the song in April 1979 (and revisited it a year later
 *Connecting baby your heart to mine*  
 *We’re running now but darling we will stand in time*
 
-[https://www.youtube.com/watch?v=5LqOgFrfuJY](https://www.youtube.com/watch?v=5LqOgFrfuJY)
+[Watch on Youtube: The Ties That Bind](https://www.youtube.com/watch?v=5LqOgFrfuJY)
 
 By the time “The Ties That Bind” was officially released on *The River* in 1980, Bruce and the band had performed it in concert 27 times, steadily evolving it along the way. It isn’t the only song from his catalog (or even that album) previewed and refined on stage, but given its remarkable journey and powerful theme (Bruce would often revisit the battle of isolation vs. vulnerability), it’s not surprising that it was almost the title track of the album before it expanded from one to two discs.
 
@@ -88,7 +88,7 @@ On the River Tour, “The Ties That Bind” was a setlist staple, but it disappe
 
 **Bonus**: There are many arrangements of “The Ties That Bind” prior to its release, but only a single new one since–and it’s wonderful. Here’s the rarely performed (seven times only) acoustic version:
 
-[https://www.youtube.com/watch?v=q83NktVFUD0](https://www.youtube.com/watch?v=q83NktVFUD0)
+[Watch on Youtube: The Ties That Bind (solo acoustic) Bruce Springsteen 11/8/2005 Philly](https://www.youtube.com/watch?v=q83NktVFUD0)
 
 **The Ties That Bind**  
 **Recorded:** April 10-11, 1979; April 10, 1980  
@@ -96,4 +96,4 @@ On the River Tour, “The Ties That Bind” was a setlist staple, but it disappe
 **First Performed:** November 1, 1978 (Princeton, NJ)  
 **Last Performed:** June 24, 2023 (Gothenburg, Sweden)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

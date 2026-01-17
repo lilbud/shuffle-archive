@@ -12,7 +12,7 @@ All the while he was performing “New York Song” on stage, Bruce had been wor
 
 Let’s take a listen:
 
-[https://videopress.com/embed/cQLEEsa9](https://videopress.com/embed/cQLEEsa9)
+[Watch Video Highlight](https://videopress.com/embed/cQLEEsa9)
 
 Bruce’s lyrics for “Vibes Man” are so very close to what would become “New York City Serenade” that I’ll save my line-by-line analysis for that future essay.
 
@@ -56,4 +56,4 @@ Recorded:** February 1973 (demo)
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

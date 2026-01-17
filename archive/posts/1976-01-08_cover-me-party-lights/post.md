@@ -2,7 +2,7 @@
 
 For one thing, it was a song about a teenage girl, written and recorded by a girl only a few months out of her teens herself. For another… well, listen and hear for yourself.
 
-[https://www.youtube.com/watch?v=NiZDFE_7NkM](https://www.youtube.com/watch?v=NiZDFE_7NkM)
+[Watch on Youtube: Party Lights](https://www.youtube.com/watch?v=NiZDFE_7NkM)
 
 See what I mean? “Party Lights” is an uptempo pop song completely devoid of electric guitar, making it an odd choice for a budding rock star’s set list.
 
@@ -10,7 +10,7 @@ But if we’re willing to overlook the absent guitar, the rest of the arrangemen
 
 Regardless of whatever lodged it in Bruce’s brain back in 1975, “Party Lights” was a perfect fit for the romantic, retro stylings of the Born to Run Tour. It made three brief appearances during early December, the first of which remains the best recording.
 
-[https://www.youtube.com/watch?v=_CqYpjOqG80](https://www.youtube.com/watch?v=_CqYpjOqG80)
+[Watch on Youtube: Bruce Springsteen - PARTY LIGHTS 1975 (audio)](https://www.youtube.com/watch?v=_CqYpjOqG80)
 
 Bruce kept the arrangement faithful, right down to the Spectorian “whoa oh oh oh’s.” But after three performances in ten days, Bruce retired “Party Lights” and hasn’t played it since.
 
@@ -22,7 +22,7 @@ In fact, Bruce’s song sounds very much like a direct sequel. Clark’s origina
 
 Take a listen to Bruce’s own version of “[Party Lights](https://estreetshuffle.com/index.php/2019/11/14/roll-of-the-dice-party-lights/)” and hear for yourself.
 
-[https://www.youtube.com/watch?v=S2WWQAvS_6I](https://www.youtube.com/watch?v=S2WWQAvS_6I)
+[Watch on Youtube: Bruce Springsteen - Party Lights (The River: Outtakes) [Lyric]](https://www.youtube.com/watch?v=S2WWQAvS_6I)
 
 **Party Lights  
 First performed:** December 2, 1975 (Boston, MA)  

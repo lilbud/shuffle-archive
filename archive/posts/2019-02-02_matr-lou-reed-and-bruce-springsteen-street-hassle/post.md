@@ -8,7 +8,7 @@ Bruce and the band recorded at The Record Plant throughout the autumn and winter
 
 The centerpiece of *Street Hassle* was its eleven-minute title track, a dark, gritty and brutal musical monologue of a street painting. The song is composed of three vignettes, and each sounds for all the world like an alternative character’s take on a Bruce Springsteen song.
 
-Chapter 1, “Waltzing Matilda” (the first three minutes or so) is sung from the point of view of a woman picking up a male prostitute that could easily be [Spanish Johnny](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/); Chapter 2, “Street Hassle,” features a drug dealer disposing of the body of a woman who drank some seriously [unholy blood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/).
+Chapter 1, “Waltzing Matilda” (the first three minutes or so) is sung from the point of view of a woman picking up a male prostitute that could easily be [Spanish Johnny](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/); Chapter 2, “Street Hassle,” features a drug dealer disposing of the body of a woman who drank some seriously [unholy blood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/).
 
 And then there’s Chapter Three, “Slip Away,” which begins at the 9-minute mark with a forty-second spoken-word guest monologue about love and pain and death that ends with the words:
 
@@ -16,7 +16,7 @@ And then there’s Chapter Three, “Slip Away,” which begins at the 9-minute 
 
 And that guest-star? He’s uncredited, but listen below (or skip ahead to the nine-minute mark if you must), and you’ll surely recognize him.
 
-[https://www.youtube.com/watch?v=4LK9JjW2noo](https://www.youtube.com/watch?v=4LK9JjW2noo)
+[Watch on Youtube: Lou Reed - Street Hassle (Official Audio)](https://www.youtube.com/watch?v=4LK9JjW2noo)
 
 That’s right: Bruce’s first post-lawsuit appearance on vinyl wasn’t *Darkness on the Edge of Town*, but rather his uncredited spoken-word performance on Lou Reed’s “Street Hassle,” released four months earlier.
 

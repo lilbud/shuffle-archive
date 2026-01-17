@@ -4,10 +4,8 @@ This year, though, you can vote too. Starting July 1, visit the official contest
 
 Today’s spotlight is on 22-year-old saxophonist/singer/songwriter Tommy Mauri and his reggae interpretation of Bruce’s “[Spirit in the Night.](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)”
 
-[https://www.youtube.com/watch?v=-tHUB8KK7YI](https://www.youtube.com/watch?v=-tHUB8KK7YI)
+[Watch on Youtube: Spirit in the Night (Bruce Springsteen) - Reggae/Cartoon Version](https://www.youtube.com/watch?v=-tHUB8KK7YI)
 
 Tommy’s arrangement is sax-centric (he picked up the saxophone based on Clarence’s inspiration) and bass-bottomed, and it works so amazingly well that one wonders why no one ever tried such an arrangement before.
 
 Tommy is a student at the Giuseppe Verdi Conservatory in Milan, and he performs frequently through Lombardy. Let’s hope we see him at the finals in Bergamo this year and wish him good luck–he’s certainly starting out with a fantastic entry!
-
- 

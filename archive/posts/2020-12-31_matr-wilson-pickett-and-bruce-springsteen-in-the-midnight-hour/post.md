@@ -1,10 +1,10 @@
 Forty years ago tonight, Bruce Springsteen said goodbye to 1980 with an appropriate cover for its final minutes.
 
-[https://www.youtube.com/watch?v=tvQIxIQMB0g](https://www.youtube.com/watch?v=tvQIxIQMB0g)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Midnight Hour](https://www.youtube.com/watch?v=tvQIxIQMB0g)
 
 “In the Midnight Hour” might have been a well-timed audible, but it would be hard to believe that Bruce didn’t at least have it in the back of his mind that evening. After all, the E Street Band had already played it twice in recent months, starting with their first-ever performance in Milwaukee on October 14th.
 
-[https://videopress.com/embed/If4eE6ah](https://videopress.com/embed/If4eE6ah)
+[Watch Video Highlight](https://videopress.com/embed/If4eE6ah)
 
 This one was indeed an audible–we can clearly hear the delay of game as the band scrambles to figure out the song.
 
@@ -14,7 +14,7 @@ The E Street Band may not have played it before that night, but Bruce certainly 
 
 “In the Midnight Hour” was still a fairly new song at that point, released by the great Wilson Pickett only four years earlier in the summer of 1965.
 
-[https://www.youtube.com/watch?v=rixhkdO_IdU](https://www.youtube.com/watch?v=rixhkdO_IdU)
+[Watch on Youtube: Wilson Pickett - In The Midnight Hour (1965)](https://www.youtube.com/watch?v=rixhkdO_IdU)
 
 “In the Midnight Hour” was Pickett’s greatest hit to date, topping the Billboard R&B chart and crossing over to the Hot 100 to peak at #21. It’s considered one of the greatest Stax recordings and ranks #134 on *Rolling Stone’s* 500 Greatest Songs of All Time.
 
@@ -22,7 +22,7 @@ Although Bruce wouldn’t play “In the Midnight Hour” at a proper E Street B
 
 (Bruce did play “In the Midnight Hour” live once during the intervening years, but it was with his 1992-93 touring band, along with guest-star Peter Wolf.)
 
-[https://videopress.com/embed/oKcA8FZ4](https://videopress.com/embed/oKcA8FZ4)
+[Watch Video Highlight](https://videopress.com/embed/oKcA8FZ4)
 
 Over the years, Bruce has played “In the Midnight Hour” over two dozen times with about as many artists and bands, but I suspect that for Bruce, one of those occasions ranks above the others: the time he got to perform it with the original artist himself.
 
@@ -32,7 +32,7 @@ The evening would undoubtedly have culminated in an all-star jam with Pickett th
 
 Instead, John Fogerty, Chaka Khan, and Phoebe Snow traded lead vocals with Bruce (backed by Jackson Browne, Bonnie Raitt, Don Henley, and more) on “In the Midnight Hour.”
 
-[https://www.youtube.com/watch?v=S3eEz680qYg](https://www.youtube.com/watch?v=S3eEz680qYg)
+[Watch on Youtube: Bruce Springsteen, Chaka Khan, John Fogerty & More - "In the Midnight Hour" | 1991 Induction](https://www.youtube.com/watch?v=S3eEz680qYg)
 
 It was a great performance, but it couldn’t match the experience of Bruce and Wilson sharing a stage together. Bruce would have to wait another eight years, but that moment finally came at his own Hall of Fame inauguration in 1999.
 
@@ -40,7 +40,7 @@ It was worth the wait.
 
 With no one else to share the spotlight but Wilson and Bruce (although Billy Joel joined Roy Bittan at the keyboards), the two legendary bandleaders tore up the stage with their trademark growls and provided one of the more memorable highlights of an evening that introduced to the public the reunited E Street Band).
 
-[https://www.youtube.com/watch?v=K4w0kyYmYVo](https://www.youtube.com/watch?v=K4w0kyYmYVo)
+[Watch on Youtube: Wilson Pickett and Bruce Springsteen Perform "In the Midnight Hour" at the 1999 Induction Ceremony](https://www.youtube.com/watch?v=K4w0kyYmYVo)
 
 The next time Bruce performed “In the Midnight Hour,” it would be in memory of Pickett, who passed away in January 2006.
 
@@ -52,12 +52,10 @@ In May 1995, Bruce attended John Fogerty’s 50th birthday party at John’s hou
 
 Here’s a brief snippet of John and Bruce performing “In the Midnight Hour” together in John’s living room.
 
-[https://videopress.com/embed/MvJaPHIS](https://videopress.com/embed/MvJaPHIS)
+[Watch Video Highlight](https://videopress.com/embed/MvJaPHIS)
 
 Happy new year, everyone–we made it!
 
 **In the Midnight Hour  
 First performed:** December 31, 1969 (Big Sur, CA)  
 **Last performed:** January 17, 2020 (Wellington, FL)
-
- 

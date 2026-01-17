@@ -4,7 +4,7 @@ Raul Seixas was an immensely popular rock star/songwriter in Brazil until his de
 
 Over the course of his career, Seixas gravitated increasingly toward counterculture, and by the time of his second solo album *Gita* in 1974, he was singing openly of the Sociedade Alternativa, the Alternative Society. His song by that title was as much mission statement as rock anthem.
 
-[https://www.youtube.com/watch?v=CfgYcLBP9lI](https://www.youtube.com/watch?v=CfgYcLBP9lI)
+[Watch on Youtube: Raul Seixas - Sociedade Alternativa (Videoclipe Oficial)](https://www.youtube.com/watch?v=CfgYcLBP9lI)
 
 Influenced heavily by Alistair Crowley’s Law of Thelema (*Do what thou wilt shall be the whole of the Law)*, Seixas credo captures the essence of rock and roll pretty well, too.
 
@@ -14,12 +14,10 @@ So when Bruce took the stage for each of his two Brazilian shows in 2013–his f
 
 Enjoy this professionally shot, Clearmountain-mixed, and Zimny-edited performance of “Sociedade Alternativa” by Bruce Springsteen and the super-sized E Street Band, featuring a spectacular mid-song trumpet solo by Curt Ramm.
 
-[https://videopress.com/embed/tOFas7mk](https://videopress.com/embed/tOFas7mk)
+[Watch Video Highlight](https://videopress.com/embed/tOFas7mk)
 
 Bruce may not have played there for 25 years, but by the end of that opening song that Rio crowd was part of E Street Nation.
 
 **Sociedade Alternativa  
 First performed:** September 18, 2013 (São Paulo, Brazil)  
 **Last performed:** September 21, 2013 (Rio De Janeiro, Brazil)
-
- 

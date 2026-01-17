@@ -12,7 +12,7 @@ The next night, Bruce and Gary joined Gary’s brother’s band, The Old Dog Ban
 
 The very next night, with Buddy Holly still very top-of-mind, Bruce played his legendary show at The Roxy in West Hollywood, and if you’ve ever heard any Springsteen bootlegs at all, you almost certainly have heard this one. Bruce opened that night with his very first performance of Buddy Holly’s “Rave On.”
 
-[https://www.youtube.com/watch?v=F6RZoVTSgQI](https://www.youtube.com/watch?v=F6RZoVTSgQI)
+[Watch on Youtube: Rave On (Live at The Roxy, West Hollywood, CA - 07/07/78 - Official Audio)](https://www.youtube.com/watch?v=F6RZoVTSgQI)
 
 That performance became one of the most widely bootlegged Springsteen shows, but it was the *second* performance of “Rave On” that truly stood out.
 
@@ -22,19 +22,19 @@ Bruce returned to the Spectrum in mid-August (he’d already done one stand ther
 
 It was a strange and wonderful moment: the rocker who idolized Holly (in an interview the night of the Roxy show, Bruce confessed to playing Buddy Holly’s music “every night before I go on”) and the actor who portrayed Holly on screen, each channeling the legendary icon and for a few minutes returning him to life.
 
-[https://www.youtube.com/watch?v=O0Lao3wtYhk](https://www.youtube.com/watch?v=O0Lao3wtYhk)
+[Watch on Youtube: Special Guest Gary Busey w/ Bruce Springsteen - Rave On (Live) 8/18/78](https://www.youtube.com/watch?v=O0Lao3wtYhk)
 
 Gary reprised his Buddy Holly role one more time the following night, this time mid-set, and while that would prove to be the last time Bruce and Gary would perform together, Bruce would continue to perform “Rave On” throughout the remainder of the Darkness Tour and in one-off performances for a few years thereafter.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/04/garyandbruce-233x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/04/garyandbruce.jpg)
 
 “Rave On” is closely associated with Buddy Holly, of course, but it was actually first recorded by Sonny West, who also wrote the song. West’s version swings more than it rocks:
 
-[https://www.youtube.com/watch?v=BrNPSFU8v1w](https://www.youtube.com/watch?v=BrNPSFU8v1w)
+[Watch on Youtube: Sonny West - Rave On! (Official Audio)](https://www.youtube.com/watch?v=BrNPSFU8v1w)
 
 Holly’s version debuted only two months later, and his version would be the one to permanently etch itself into rock and roll history, notching at 154 on *Rolling Stone’s 500 Greatest Songs of All Time*.
 
-[https://www.youtube.com/watch?v=0IUV-QxwlRM](https://www.youtube.com/watch?v=0IUV-QxwlRM)
+[Watch on Youtube: Buddy Holly - Rave on!](https://www.youtube.com/watch?v=0IUV-QxwlRM)
 
 **Rave On**  
 **First performed:** July 7, 1978 (Los Angeles, CA)  

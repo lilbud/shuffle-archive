@@ -10,11 +10,11 @@
 
 ***Ben E. King was listening to Sam Cooke’s “Stand By Me Father,” recorded by The Soul Stirrers in 1959, when inspiration struck.
 
-[https://www.youtube.com/watch?v=weYZt3FAqi4](https://www.youtube.com/watch?v=weYZt3FAqi4)
+[Watch on Youtube: "Stand By Me Father" - The Soul Stirrers | ABKCO](https://www.youtube.com/watch?v=weYZt3FAqi4)
 
 Inspired by Cooke’s spiritual, King came up with a first verse for a secular song and the main part of the chorus, and he sang it one day for famed songwriters Jerry Leiber and Mike Stoller. Together, they finished the song that we know today as “Stand By Me.”
 
-[https://www.youtube.com/watch?v=hwZNL7QVJjE](https://www.youtube.com/watch?v=hwZNL7QVJjE)
+[Watch on Youtube: Ben E. King - Stand By Me (Audio)](https://www.youtube.com/watch?v=hwZNL7QVJjE)
 
 “Stand By Me” was an instant hit when King released it in 1961, peaking at #4 on the Billboard Hot 100. But hit records tend to be of the moment, and few of them go on to become enduring classics. It seemed like “Stand By Me” wasn’t destined to be among them.
 
@@ -42,15 +42,15 @@ Good Samaritan that he is, Bruce agreed to play Bono’s guitar during the encor
 
 It was the first time Bruce and Bono had ever shared a stage together, and amazingly the moment was caught on film by director Phil Joanou, who was filming the show for U2’s *Rattle and Hum* rockumentary. Even more amazingly, the footage was cut from the final film–but it managed to leak out into the hands of collectors, anyway.
 
-[https://www.youtube.com/watch?v=f0Dzs0s7UtY](https://www.youtube.com/watch?v=f0Dzs0s7UtY)
+[Watch on Youtube: Bruce Springsteen & U2 | Stand By Me - Philadelphia - 25/09/1987](https://www.youtube.com/watch?v=f0Dzs0s7UtY)
 
 If Bruce seemed particularly comfortable with the song that night, that’s probably because he’d been playing it that summer with a variety of bands in Jersey shore clubs–including an E Street Band performance at The Stone Pony in August.
 
-[https://videopress.com/embed/DEXYK9vd](https://videopress.com/embed/DEXYK9vd)
+[Watch Video Highlight](https://videopress.com/embed/DEXYK9vd)
 
 In all, Bruce would play “Stand By Me” more than a dozen times in the few years following the song’s re-emergence, almost always at surprise club appearances or special events. After a final club performance in 1991, “Stand By Me” disappeared from Bruce’s setlists for a decade, before returning during the *Alliance of Neighbors* pair of 9/11 benefit concerts in October 2001.
 
-[https://www.youtube.com/watch?v=XWTgr61DfO4](https://www.youtube.com/watch?v=XWTgr61DfO4)
+[Watch on Youtube: Bruce Springsteen -Stand By Me.](https://www.youtube.com/watch?v=XWTgr61DfO4)
 
 But no Springsteen performance of “Stand By Me” has ever matched the energy, excitement, and surprise fun factor of that first team-up with U2–except, perhaps, their encore performance in 2015.
 
@@ -58,7 +58,7 @@ This time the venue was Madison Square Garden. Once again Bruce was a surprise e
 
 And the crowd… the crowd was just as electric. Let’s watch that moment–Bruce’s last performance of “Stand By Me” to date, with echoes of one of his very first.
 
-[https://videopress.com/embed/BRBXz4w6](https://videopress.com/embed/BRBXz4w6)
+[Watch Video Highlight](https://videopress.com/embed/BRBXz4w6)
 
 Stand By Me  
 First performed: January 17, 1985 (Greensboro, NC)  

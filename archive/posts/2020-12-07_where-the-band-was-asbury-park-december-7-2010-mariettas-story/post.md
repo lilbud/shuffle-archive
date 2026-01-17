@@ -10,7 +10,7 @@ This wasn’t Bruce asking the band if they knew it was Christmastime. On this c
 
 *The Promise: The Darkness on the Edge of Town Story* box set had been released less than a month prior, and the Carousel House event was to be a videotaped performance of songs from the collection.
 
-[https://www.youtube.com/watch?v=xlremWeb08o](https://www.youtube.com/watch?v=xlremWeb08o)
+[Watch on Youtube: Bruce Springsteen - Racing in the Street (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=xlremWeb08o)
 
 Even though the overwhelming majority of folks on the boardwalk knew they wouldn’t be among the 59 people invited inside, there was a party mood outside. People began to gather by noon, and a small crowd had assembled up against the barricade when Bruce arrived in the early afternoon and graciously stopped to chat with fans. Those of us who were lucky enough to be among the invited were ushered inside with no idea what to expect, and we waited in the slightly warmer but still cold abandoned casino while the band rehearsed for quite a long time.
 
@@ -20,11 +20,11 @@ Each guest was assigned a specific spot to stand, and the same instructions show
 
 Much has been written and questioned over the years about the stiffness of the unexcited crowd, so let me dispel the assumptions about that. When we’re at a Bruce show, fans participate so much that we become part of the show. The Promise at the Carousel wasn’t like that–the guests were observers of a video shoot. We weren’t participants, and it was made very clear to us that if we started swinging from the rafters, we’d be shown the door. It was like being there for an E Street Band rehearsal; why would you interrupt?! That’s not to say, though, that the crowd wasn’t thrilled, in awe, and having a blast, because we were. We weren’t unexcited, we were *mesmerized*. Having a ringside seat to watch Bruce work out songs and arrangements with the band was truly one of the most wonderful nights I’ve experienced.
 
-[https://www.youtube.com/watch?v=-X3m6mjtFFs](https://www.youtube.com/watch?v=-X3m6mjtFFs)
+[Watch on Youtube: Bruce Springsteen - The Promise (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=-X3m6mjtFFs)
 
 Bruce and the band performed all songs twice, and with the exception of “[Blue Christmas](https://estreetshuffle.com/index.php/2020/11/29/cover-me-blue-christmas/)” to close, all of the songs were from *The Promise*. Hearing Bruce’s direction to the band in between takes was as magnificent as the songs themselves. It took a bit for Steve to get the harmony down for “[Gotta Get That Feeling](https://estreetshuffle.com/index.php/2021/02/08/roll-of-the-dice-gotta-get-that-feeling/),” but he nailed it on the second performance, and it was fantastic.
 
-[https://www.youtube.com/watch?v=itpktRH1iig](https://www.youtube.com/watch?v=itpktRH1iig)
+[Watch on Youtube: Bruce Springsteen - Gotta Get That Feeling (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=itpktRH1iig)
 
 I think even Mr. Springsteen was a bit confused at times about what to do with his audience of observers, and it was as challenging for him to not play to fans as it was for us to not sing along really loudly.
 
@@ -34,11 +34,11 @@ It took us a while to shake off the instructions to not move or interfere, but e
 
 I successfully fought off my impulse to grab one of the tambourines. Perhaps the audience’s wonder didn’t come across well on camera, but when we were on that floor, there were countless moments of us looking at each other with wide eyes, and saying without words, “Can you believe this?!!” By “[Ain’t Good Enough For You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/),” we were all in the groove and rockin’ out with the greatest bar band in the world.
 
-[https://www.youtube.com/watch?v=Z6OCZFzHmiA](https://www.youtube.com/watch?v=Z6OCZFzHmiA)
+[Watch on Youtube: Ain't Good Enough for You (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=Z6OCZFzHmiA)
 
 Two rounds of “[Blue Christmas](https://estreetshuffle.com/index.php/2020/11/29/cover-me-blue-christmas/)” was a festive way to end an amazing night, and all of those bopping Santa hats are reflective of the fun and pure joy.
 
-[https://www.youtube.com/watch?v=8MGwtwX6IK0](https://www.youtube.com/watch?v=8MGwtwX6IK0)
+[Watch on Youtube: Bruce Springsteen - Blue Christmas (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=8MGwtwX6IK0)
 
 The room was so beautiful that evening, and hearing those songs played live (twice!) was pure magic.
 

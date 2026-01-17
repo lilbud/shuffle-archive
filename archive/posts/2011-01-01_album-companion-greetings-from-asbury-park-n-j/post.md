@@ -2,7 +2,9 @@ On January 5, 1973, Columbia Records introduced their hot new up-and-coming sing
 
 Or to 25,000 people at least. That’s how many people (at most) bought *Greetings From Asbury Park, N.J.* in 1973. As debuts go, it wasn’t the most auspicious.
 
-[https://www.youtube.com/playlist?si=IBUCa4lg_MXgwcrd&amp;list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0](https://www.youtube.com/playlist?si=IBUCa4lg_MXgwcrd&amp;list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
+[Watch on Youtube: YouTube video player](https://www.youtube.com/playlist?si=IBUCa4lg_MXgwcrd&list=OLAK5uy_me8xYcyUK7_zcjX-xFU5znBLMwachuxZ0)
+
+
 
 For an artist who still insists on thematic cohesion for his albums, *Greetings* features a mélange of styles and genres that piqued the interest of critics and listeners but didn’t quite win them over… yet.
 
@@ -49,5 +51,3 @@ And I do mean *listen*. Throughout this book, you’ll see many, many embedded Q
 By the end of this volume, I hope and trust you’ll have a full appreciation for the body of work that introduced Bruce Springsteen to record store habitués. And if you do, I hope you stick with me: there are many, many more volumes to come.
 
 © January 5 2023/October 30 2025 by Ken Rosen
-
- 

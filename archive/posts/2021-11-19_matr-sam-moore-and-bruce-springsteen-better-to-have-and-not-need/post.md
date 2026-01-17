@@ -6,11 +6,11 @@ Moore was working on his debut(!) solo album, *Overnight Sensational*, and he’
 
 “It’s Better to Have (and Don’t Need)” was rock and soul singer-songwriter Don Covay’s last charting hit, peaking at #63 in the U.S. and #29 in the U.K.
 
-[https://www.youtube.com/watch?v=wQnm1DllbQE](https://www.youtube.com/watch?v=wQnm1DllbQE)
+[Watch on Youtube: It's Better To Have (And Don't Need)](https://www.youtube.com/watch?v=wQnm1DllbQE)
 
 The song was originally built on a call-and-response chassis, so it didn’t take a whole lot engineering to adapt it to a duet. Although “engineering” may be overly generous–Sam and Bruce’s version of “Better to Have and Not Need” (the title inexplicably corrected for grammar despite the unchanged lyrics) is as loose as can be.
 
-[https://www.youtube.com/watch?v=8-PiWXr4SLY](https://www.youtube.com/watch?v=8-PiWXr4SLY)
+[Watch on Youtube: Better to Have and Not Need](https://www.youtube.com/watch?v=8-PiWXr4SLY)
 
 Bruce gets one verse to himself, but other than that his vocal contribution (he also plays guitar on the track) comes in the form of backing vocals, some terrific coda interplay, and some serious soul testifying (“Say it, Sam!”).
 
@@ -22,5 +22,3 @@ Fun fact: there’s another *Human Touch* connection here, too: *Overnight Sensa
 **Recorded:** February 2006  
 **Released:** *Overnight Sensational* (2006)  
 **Never performed**
-
- 

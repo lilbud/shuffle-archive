@@ -6,7 +6,7 @@ The roots of “Straight Time” date back much further, though–all the way ba
 
 We took a look at “[James Lincoln Deere](https://estreetshuffle.com/index.php/2022/11/29/roll-of-the-dice-james-lincoln-deere/)” and “[Richfield Whistle](https://estreetshuffle.com/index.php/2022/12/01/roll-of-the-dice-richfield-whistle/)” last week. If you missed them, I recommend checking them out to appreciate how they both informed and influenced “Straight Time.”
 
-[https://www.youtube.com/watch?v=IU7-W_EnJHY](https://www.youtube.com/watch?v=IU7-W_EnJHY)
+[Watch on Youtube: Straight Time](https://www.youtube.com/watch?v=IU7-W_EnJHY)
 
 *The Ghost of Tom Joad* is often thought of as a solo album, and about half the songs on it are indeed one-man performances. “Straight Time,” however, features a full band–one that plays with such subtlety and restraint that you’d be forgiven for thinking it a solo tune, too.
 
@@ -73,11 +73,11 @@ In “Straight Time,” there’s no such transformation. Charlie knows exactly 
 
 On vinyl, “Straight Time” is performed by a skillful ensemble. In concert, Bruce has only ever performed it solo. He played it nightly throughout the Ghost of Tom Joad Tour, often introducing it in terms that suggested he identified more than a little with the notion of old habits dying hard. (It’s fallaciously tempting to invest significance in Bruce choosing 1986–the year the newlywed rock star’s mega-stardom peaked–as the year his character got out of prison and found a wife.)
 
-[https://www.youtube.com/watch?v=JL5x0GNeuBY](https://www.youtube.com/watch?v=JL5x0GNeuBY)
+[Watch on Youtube: Straight Time (Live at The Tower Theater, Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=JL5x0GNeuBY)
 
 Since the conclusion of the Joad Tour, “Straight Time” has made only a single appearance, a decade later on Bruce’s next and last acoustic tour. Abstracted from the thematic set lists that gave it context and power in the mid-nineties, “Straight Time” felt rushed and removed from the sense of dread and destiny with which Bruce imbued it in earlier outings.
 
-[https://www.youtube.com/watch?v=_YiU7Fflkk0](https://www.youtube.com/watch?v=_YiU7Fflkk0)
+[Watch on Youtube: 11. Straight Time (Bruce Springsteen - Live In Copenhagen 6-22-2005)](https://www.youtube.com/watch?v=_YiU7Fflkk0)
 
 Bruce hasn’t played “Straight Time” in public since, and perhaps that’s for the best. It’s a gem of a song, but one that shines best in its original setting.
 

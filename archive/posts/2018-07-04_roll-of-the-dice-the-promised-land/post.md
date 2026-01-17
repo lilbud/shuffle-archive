@@ -10,7 +10,7 @@ And once I realized that, the entire meaning of the song changed on me. I’ll n
 
 I’ll explain, but let’s take a listen first to get us in the mood:
 
-[https://www.youtube.com/watch?v=azQY2YBUMQc](https://www.youtube.com/watch?v=azQY2YBUMQc)
+[Watch on Youtube: The Promised Land](https://www.youtube.com/watch?v=azQY2YBUMQc)
 
 If you really pay attention to it, “The Promised Land” is a pretty dark song, befitting its home on a dark album:
 
@@ -71,7 +71,7 @@ When I thought I heard Bruce sing about “*the* promised land,” the narrator 
 
 But once I realized Bruce was singing about “*a* promised land,” I felt the ground shift beneath me. *The* promised land is a specific goal, a place you run *to. A*promised land is simply an escape *from.*
 
-And once the song becomes more about running from than running toward, the narrator becomes (in my mind) more trapped, more desperate, more despairing. And that storm… I can’t help but hear that verse as a callback to “[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/):”
+And once the song becomes more about running from than running toward, the narrator becomes (in my mind) more trapped, more desperate, more despairing. And that storm… I can’t help but hear that verse as a callback to “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/):”
 
 *That pure American brother, dull-eyed and empty-faced*  
 *Races Sundays in Jersey in a Chevy stock super eight*  
@@ -86,7 +86,7 @@ And once the song becomes more about running from than running toward, the narra
 *I wonder what he was thinking when he hit that storm*  
 *Or was he just lost in the flood?*
 
-If not for the setting (Jersey vs. Utah), it wouldn’t be a stretch to wonder if “[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” and “The Promised Land” are the same song about the same character told from two different perspectives. The storm in “Lost in the Flood’ is a metaphor for drugs, and that strikes me as a very plausible read of “The Promised Land” as well. Read it again, through that lens:
+If not for the setting (Jersey vs. Utah), it wouldn’t be a stretch to wonder if “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” and “The Promised Land” are the same song about the same character told from two different perspectives. The storm in “Lost in the Flood’ is a metaphor for drugs, and that strikes me as a very plausible read of “The Promised Land” as well. Read it again, through that lens:
 
 *Well there’s a dark cloud rising from the desert floor*  
 *I packed my bags and I’m heading straight into the storm*  
@@ -98,11 +98,11 @@ If not for the setting (Jersey vs. Utah), it wouldn’t be a stretch to wonder i
 
 You hear it now, don’t you?
 
-You might argue that the rousing music belies this interpretation; I’d counter by pointing out that this would hardly be the only case of Bruce pairing painful, sobering lyrics with an anthem-like melody (see “[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)“).
+You might argue that the rousing music belies this interpretation; I’d counter by pointing out that this would hardly be the only case of Bruce pairing painful, sobering lyrics with an anthem-like melody (see “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)“).
 
 And just like the acoustic blues version of “Born in the U.S.A.” brings out the deep meaning and inner pain of that song, so too does the acoustic version of “The Promised Land” from the 1995-1997 and 2005 tours practically beg a darker reading:
 
-[https://www.youtube.com/watch?v=QJhsH1TlB8Y](https://www.youtube.com/watch?v=QJhsH1TlB8Y)
+[Watch on Youtube: Bruce Springsteen - The Promised Land - Düsseldorf 2005-06-16 CLOSEUP](https://www.youtube.com/watch?v=QJhsH1TlB8Y)
 
 That’s not a song of defiance–that’s a song of submission and surrender, that percussive heartbeat the sound of a dream dying.
 
@@ -110,7 +110,7 @@ And the tragedy of it is that the narrator–even in that moment of despair and 
 
 To my ears, “The Promised Land” is a deeply, deeply unsettling song.
 
-Am I able to still enjoy the anthemic arrangement at an E Street Band show? Sure. I’m well aware that Bruce sees “The Promised Land” (at least in some contexts) as a lesson to the importance of community, as a metaphor for the American dream. And I can accept that–he’s the songwriter after all–in much the same way that I can accept Bruce and Patti singing “[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” as a love song despite its origin as something else.
+Am I able to still enjoy the anthemic arrangement at an E Street Band show? Sure. I’m well aware that Bruce sees “The Promised Land” (at least in some contexts) as a lesson to the importance of community, as a metaphor for the American dream. And I can accept that–he’s the songwriter after all–in much the same way that I can accept Bruce and Patti singing “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” as a love song despite its origin as something else.
 
 But every time I hear it in concert–which is a *lot* (Bruce has played it at 65% of my 65 shows)–I feel a strange mix of defiance and doubt, of ferocity and fear, of community and isolation that takes me a song or two after to fully shake off.
 
@@ -120,15 +120,15 @@ And whether you see the song through that lens or not–whether “The Promised 
 
 Here’s an alternate mix of “The Promised Land,” minus Bruce’s guitar solo. More of a curiosity than anything else.
 
-[https://www.youtube.com/watch?v=9mdT74Vmm4g](https://www.youtube.com/watch?v=9mdT74Vmm4g)
+[Watch on Youtube: Bruce Springsteen - "The Promised Land" alternate (no guitar solo)](https://www.youtube.com/watch?v=9mdT74Vmm4g)
 
 …and my favorite recent performance, from 2013 at Camden Lock in North London:
 
-[https://www.youtube.com/watch?v=KxY7CiPQa_g](https://www.youtube.com/watch?v=KxY7CiPQa_g)
+[Watch on Youtube: Bruce Springsteen The Promised Land London 2013](https://www.youtube.com/watch?v=KxY7CiPQa_g)
 
 **The Promised Land  
 Recorded:** December 1977**Released:** *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)* (1978), *The Essential Bruce Springsteen* (2003)  
 **First performed:** May 23, 1978 (Buffalo, NY)  
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

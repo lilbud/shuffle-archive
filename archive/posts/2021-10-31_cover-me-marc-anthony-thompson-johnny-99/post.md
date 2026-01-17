@@ -6,7 +6,7 @@ All the performances were great, but one in particular blew me away. Early in th
 
 That night, Chocolate Genius consisted of Thompson and pianist/omnichordist Thomas Bartlett, a.k.a. Doveman. The duo took the stage to play a cover of “[Johnny 99](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/),” and within seconds the audience was rapt.
 
-[https://videopress.com/embed/3nc9WEDn](https://videopress.com/embed/3nc9WEDn)
+[Watch Video Highlight](https://videopress.com/embed/3nc9WEDn)
 
 Even now, fifteen years later, Thompson’s performance moves me like few other Springsteen covers do. His arrangement is ethereal and forlorn, almost grieving at times, and somehow both detached and visceral at the same time.
 

@@ -12,7 +12,7 @@ Recorded during the *Born in the U.S.A.* sessions, “Brothers Under the Bridges
 
 Let’s take a listen:
 
-[https://www.youtube.com/watch?v=dthkGZiL1gA](https://www.youtube.com/watch?v=dthkGZiL1gA)
+[Watch on Youtube: Brothers Under The Bridges ('83) (Studio Outtake - 1983)](https://www.youtube.com/watch?v=dthkGZiL1gA)
 
 You probably heard echoes of “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” in the “li li li” chorus, and the lyrics have the same wistful yearning of youth for independence. That’s probably not an accident. “Brothers Under the Bridges” was recorded between mid-September and early October of 1983; “No Surrender” was recorded just before Halloween.
 
@@ -79,4 +79,4 @@ Recorded:** September 14 – October 10, 1983
 **Released:** *Tracks* (1998)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

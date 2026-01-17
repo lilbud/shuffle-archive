@@ -6,11 +6,11 @@ Bruce seems to have realized this at least subconsciously, because *Western Star
 
 First, let’s take a listen to “Dry Lightning” together and take a close look inside.
 
-[https://www.youtube.com/watch?v=KLFJW9F5LdE](https://www.youtube.com/watch?v=KLFJW9F5LdE)
+[Watch on Youtube: Dry Lightning](https://www.youtube.com/watch?v=KLFJW9F5LdE)
 
 As it stands, “Dry Lightning” is as close as we get to an E Street Band song on [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/), with bandmates Danny Federici, Garry Tallent, and Soozie Tyrell joining Bruce to bring this gorgeous track to life. (Gary Mallaber’s drums are the only non-E Street contributions).
 
-Borrowing the melody from “[Jersey Girl,](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” Bruce spins a tale of torrid romance turned dry and distant memory. We meet our narrator as he rises from a sleepless night (in a verse that contains distant echoes of the opening of “[Western Stars](http://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)“).
+Borrowing the melody from “[Jersey Girl,](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” Bruce spins a tale of torrid romance turned dry and distant memory. We meet our narrator as he rises from a sleepless night (in a verse that contains distant echoes of the opening of “[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)“).
 
 *I threw my robe on in the morning, watched the ring on the stove turn to red*  
 *Stared hypnotized into a cup of coffee, pulled on my boots and made the bed*  
@@ -60,18 +60,18 @@ There’s a point in toxic relationships where the fighting becomes so wearing o
 
 Our narrator reached that point, and by sharing that detail we learn that he’s under no illusions about their compatibility. But knowing you don’t work with someone doesn’t mean you can shake your attraction to them, and this self-knowledge serves as his own private hell.
 
-At this sad moment of realization, we take our leave. But we’ll meet our narrator again, further on up the road in “[Chasin’ Wild Horses](http://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/).”
+At this sad moment of realization, we take our leave. But we’ll meet our narrator again, further on up the road in “[Chasin’ Wild Horses](https://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/).”
 
 ---
 
 
 “Dry Lightning” was a set list staple on the Ghost of Tom Joad Tour, played at virtually every show. In my opinion, it never packed as much power performed solo as it does on the album, but here’s a video of Bruce performing it in 1996 so you can judge for yourself.
 
-[https://www.youtube.com/watch?v=lUXAo0QGeaM](https://www.youtube.com/watch?v=lUXAo0QGeaM)
+[Watch on Youtube: Dry Lightning - Bruce Springsteen - SubIta](https://www.youtube.com/watch?v=lUXAo0QGeaM)
 
-Bruce only performed “Dry Lightning” once more after the Ghost of Tom Joad Tour ended, as an audible (in place of the set-listed “[Dead Man Walkin’](http://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/)“) on his 2005 solo acoustic tour.
+Bruce only performed “Dry Lightning” once more after the Ghost of Tom Joad Tour ended, as an audible (in place of the set-listed “[Dead Man Walkin’](https://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/)“) on his 2005 solo acoustic tour.
 
-[https://videopress.com/embed/MDAGxEku](https://videopress.com/embed/MDAGxEku)
+[Watch Video Highlight](https://videopress.com/embed/MDAGxEku)
 
 That performance, too, pales beside the original album version. “Dry Lightning” is one of the few songs from *The Ghost of Tom Joad* that cry out for a full-band (or better yet, orchestral) arrangement.
 
@@ -83,4 +83,4 @@ Recorded:** April-June 1995
 **First performed:** November 21, 1995 (New Brunswick, NJ)  
 **Last performed:** May 14, 2005 (Fairfax, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

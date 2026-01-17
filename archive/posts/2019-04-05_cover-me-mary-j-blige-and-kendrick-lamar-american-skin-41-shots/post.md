@@ -2,7 +2,7 @@ Back in September 2016, when the U.S. presidential election was coming down to t
 
 The debut episode featured presidential candidate and former Secretary of State Hillary Clinton as Blige’s guest, and during the episode (and in the trailer below), while discussing police brutality Blige spontaneously sings a verse from Bruce’s “American Skin (41 Shots)” to Secretary Clinton:
 
-[https://www.youtube.com/watch?v=GvDjV9cly9Q](https://www.youtube.com/watch?v=GvDjV9cly9Q)
+[Watch on Youtube: Mary J Blige sings to Hillary Clinton](https://www.youtube.com/watch?v=GvDjV9cly9Q)
 
 At least, we *thought* it was spontaneous at the time.
 
@@ -10,9 +10,9 @@ Turns out that Blige had already recorded a full cover of the song with the help
 
 If you haven’t heard it before, trust me: you need to. It’s magnificent, even more powerful than Bruce’s original version:
 
-[http://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3?_=2](http://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3?_=2)
 
-<http://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3>
 
 Lamar’s additional lyrics add heightened resonance, and I’m sure Bruce approves–he’s always been one to adapt, reinvent, and rewrite when covering other artists.
 

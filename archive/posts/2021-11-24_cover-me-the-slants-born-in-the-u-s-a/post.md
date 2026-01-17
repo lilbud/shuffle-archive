@@ -2,17 +2,19 @@ This is an ironic story about an earnest band.
 
 The Slants are an all-Asian American dance rock band based in Portland, Oregon. They’ve performed all over the world and all over TV, attracting attention and a following for their infectious combination of 80s synth pop and “hard-hitting, indie, floor-filling beats.”
 
-[https://www.youtube.com/watch?v=4B2d7E2wkbM](https://www.youtube.com/watch?v=4B2d7E2wkbM)
+[Watch on Youtube: The Slants - Level Up (full version) official music video](https://www.youtube.com/watch?v=4B2d7E2wkbM)
 
-They’re also the founders of [The Slants Foundation](http://theslants.org/), a non-profit dedicated to changing culture by amplifying under-represented voices in the arts and activism. The Foundation, funded by The Slants, offers annual scholarships, non-profit financial sponsorship, mentoring and patronage for aspiring artists, and more.
+They’re also the founders of [The Slants Foundation](https://theslants.org/), a non-profit dedicated to changing culture by amplifying under-represented voices in the arts and activism. The Foundation, funded by The Slants, offers annual scholarships, non-profit financial sponsorship, mentoring and patronage for aspiring artists, and more.
 
 But given the amount of media attention they drew during their landmark legal case, odds are that you know them best as the band that took on the U.S. federal government over the rights to their own name, a battle that found them an “unlikely ally” (as founder Simon Tam put it) in the team formerly known as the Washington Redskins, which had a vested interest in the band’s ability to name themselves using a racially loaded term.
 
 Let’s watch *The Daily Show* correspondent Ronnie Cheing help the band tell their story.
 
-[//media.mtvnservices.com/embed/mgid:arc:video:comedycentral.com:81f61c13-15dc-41ca-8f9e-126f82793dc7](//media.mtvnservices.com/embed/mgid:arc:video:comedycentral.com:81f61c13-15dc-41ca-8f9e-126f82793dc7)
+[Watch Video](//media.mtvnservices.com/embed/mgid:arc:video:comedycentral.com:81f61c13-15dc-41ca-8f9e-126f82793dc7)
 
-**[The Daily Show with Trevor Noah](http://www.cc.com/shows/the-daily-show-with-trevor-noah)**
+
+
+**[The Daily Show with Trevor Noah](https://www.cc.com/shows/the-daily-show-with-trevor-noah)**
 
 That’s right: the U.S. government fought to prevent the band from calling themselves The Slants, because the term was too racist to be applied to Asian Americans. Even by Asian Americans.
 
@@ -26,12 +28,8 @@ Not long before the Supreme Court handed The Slants their hard-fought legal vict
 
 The last song they performed that day was an acoustic cover of “[Born in the U.S.A.,](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” appropriate for the venue as a social protest song, but particularly powerful when sung by an Asian American band. The band knew it, too–watch them drive home a key line to full effect.
 
-[https://www.youtube.com/watch?v=kXsOjwZmpjA](https://www.youtube.com/watch?v=kXsOjwZmpjA)
+[Watch on Youtube: Born in the USA - Bruce Springsteen cover by The Slants performed at ACLU](https://www.youtube.com/watch?v=kXsOjwZmpjA)
 
 The Slants retired from performing just before the pandemic. They still record, but today they focus mainly on their work with the foundation, working to lift up and amplify new, undiscovered, and under-represented voices.
 
 Check out more of The Slants’ music [here](https://www.youtube.com/channel/UC50nSOg6HWNeYKysoXyJiCg).
-
- 
-
- 

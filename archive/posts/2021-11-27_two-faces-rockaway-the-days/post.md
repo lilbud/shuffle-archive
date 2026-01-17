@@ -11,7 +11,7 @@ The 1984 outtake “Rockaway the Days” opens with a poignant little guitar rif
 *Billy got out of prison but he wasn’t right*  
 *Some like to drink or gamble; Billy liked to fight*
 
-[https://www.youtube.com/watch?v=eu5sSFAC5-U](https://www.youtube.com/watch?v=eu5sSFAC5-U)
+[Watch on Youtube: Rockaway The Days (Studio Outtake - 1984)](https://www.youtube.com/watch?v=eu5sSFAC5-U)
 
 At times, “Rockaway the Days” can feel like two songs. The verses are flat and detached, more a list of events than a story arc, while the riff and the chorus wash us in empathy and melancholy. The two parts of the song never quite fuse together, and while that may explain why “Rockaway the Days” is an outtake, it also gives it a fascinating strangeness and a central mystery. Who is telling this story, and where does the fault line between the chorus and the verses come from?
 
@@ -78,7 +78,7 @@ Sound familiar? Six years before, in “[Badlands](https://estreetshuffle.com/in
 *And a king ain’t satisfied till he rules everything*  
 *I wanna go out tonight, I wanna find out what I got*
 
-[https://www.youtube.com/watch?v=SDlSCeQXbPo](https://www.youtube.com/watch?v=SDlSCeQXbPo)
+[Watch on Youtube: Badlands](https://www.youtube.com/watch?v=SDlSCeQXbPo)
 
 And there’s no better encapsulation of the change from [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)to *Born in the U.S.A.* than these two mirror-image verses. In “Badlands,” the singer concluded his neat summary of the class struggle by swaggering out into the night to take his place in it, to find out what he had and try to get more. Six years later, his impulse is exactly the opposite: to draw inward, to retreat into the safety of closed doors and the comfort of another person.
 
@@ -97,7 +97,7 @@ This also explains the flatness of the narration, the sense of being shut out of
 
 Compare this to “[Wreck on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/),” another story with a car crash, a dead young man, and a narrator who has crossed paths with someone else’s tragedy. That song ends with the singer lying awake at night watching his girlfriend sleep, keeping vigil over the things he loves so they don’t slip away. “Rockaway the Days” is “Wreck on the Highway” updated for the *Born in the U.S.A.* era, a time when that kind of human connection is harder to come by.
 
-[https://www.youtube.com/watch?v=D-MthLm7_m0](https://www.youtube.com/watch?v=D-MthLm7_m0)
+[Watch on Youtube: Wreck on the Highway](https://www.youtube.com/watch?v=D-MthLm7_m0)
 
 As a 1984 outtake, “Rockaway the Days” bridges the gap between two albums. We’ve just come through the dark isolation of *Nebraska*, and now the characters are starting to reach out, tentatively, for the connections that will tether them to the world again. “Rockaway the Days” is a *Nebraska* story, as told by a character from *Born in the U.S.A*. The narrator is depressed and lonely, but he’s asking for help. He’s making contact, however briefly, with another person. And yet he’s preoccupied by someone for whom that kind of contact didn’t work, who had a family and a marriage but couldn’t keep from spiraling out, away from the things that were trying to save him.
 
@@ -113,5 +113,3 @@ And now that we know who these people are, whose tryst we’re witnessing, we ca
 “Well, all right,” the narrator sings again, but the soothing quality is gone from his voice. He sounds doubtful now, uncertain, like he’s trying to convince himself of something. “Well, all right.” His voice rises, becomes a question, with a hysterical, yelping edge to it. “Well, all right? *Well, all right*?”
 
 There’s no answer. Just the guitar riff, insistent and wistful, returning one last time to end the song.
-
- 

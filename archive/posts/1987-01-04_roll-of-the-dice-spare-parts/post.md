@@ -8,7 +8,7 @@ Despite its biblical imagery, “Spare Parts” is ultimately a song about takin
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=mkFD8gmBWQc](https://www.youtube.com/watch?v=mkFD8gmBWQc)
+[Watch on Youtube: Spare Parts](https://www.youtube.com/watch?v=mkFD8gmBWQc)
 
 Before we delve into the lyrics, it’s interesting to take note of the backing track. Bruce actually recorded “Spare Parts” as a solo acoustic track in his home studio on January 20, 1987, and what you just listened to above is that same recording–at its core. Over the months that followed, Bruce invited Garry, Max, and Danny–separately–to his home to add their contributions.
 
@@ -18,9 +18,9 @@ So it’s not much of a stretch to say that “Spare Parts” is comprised of…
 
 Here’s an actual full-band performance (with everyone in the same room) from the Tunnel of Love Express Tour. It’s actually the official video for the song. (“Spare Parts” was actually the fourth single released from the *Tunnel of Love* album, although strangely not in the U.S. It didn’t set the world on fire, but it peaked as high as #16 in Sweden.) Bruce’s introductory comments give us a good lens through which to view the lyrics that follow.
 
-[https://www.youtube.com/watch?v=HKH3C3b2HzU](https://www.youtube.com/watch?v=HKH3C3b2HzU)
+[Watch on Youtube: Bruce Springsteen - Spare Parts (Official Video - DVD Version)](https://www.youtube.com/watch?v=HKH3C3b2HzU)
 
-By 1988, Bruce had learned the risk of having his material misinterpreted. (See “[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)“)
+By 1988, Bruce had learned the risk of having his material misinterpreted. (See “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)“)
 
 Perhaps that’s why he took the time almost every night on the *Tunnel of Love Express* Tour to introduce “Spare Parts” and explain it.
 
@@ -108,11 +108,11 @@ In the years since *Tunnel of Love*, Bruce has only performed “Spare Parts” 
 
 On the Ghost of Tom Joad Tour, Bruce swung the pendulum hard: his arrangement of “Spare Parts” is dark, pensive, and at times almost spoken-word. It’s as if Bruce wants to make absolutely sure the song is understood. Listen to one of those performances below.
 
-[https://www.youtube.com/watch?v=hlEKiRlJSdc](https://www.youtube.com/watch?v=hlEKiRlJSdc)
+[Watch on Youtube: Spare Parts (Live at ICC SAAL 1, Berlin, Germany - April 1996)](https://www.youtube.com/watch?v=hlEKiRlJSdc)
 
 On the Devils & Dust Tour a decade later, however, Bruce figured out how to marry his more reflective acoustic version with the original rocker arrangement, and the hybrid result (to my mind) nailed it.
 
-[https://www.youtube.com/watch?v=quDkCHDvLLk](https://www.youtube.com/watch?v=quDkCHDvLLk)
+[Watch on Youtube: Bruce Springsteen - Spare Parts (Acoustic)](https://www.youtube.com/watch?v=quDkCHDvLLk)
 
 In the years since *Devils & Dust,* “Spare Parts” has been completely absent from Bruce’s setlists. But we haven’t had a solo tour in that time either. Bruce is about due to do one, and perhaps we’ll see “Spare Parts” return when he does.
 

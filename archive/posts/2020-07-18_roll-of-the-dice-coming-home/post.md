@@ -12,7 +12,7 @@ Case in point: “Coming Home,” debuted by The Bruce Springsteen Band in the a
 
 Take a listen to the first known performance of “Coming Home,” from the band’s Richmond appearance (Steel Mill had made something of a second home in Richmond, Virginia) on October 23, 1971, and marvel at Bruce’s fleet-fingered guitar solo.
 
-[https://videopress.com/embed/xTCZDRHO](https://videopress.com/embed/xTCZDRHO)
+[Watch Video Highlight](https://videopress.com/embed/xTCZDRHO)
 
 “Coming Home” made a couple more appearances that winter (that we know about, at least–few of those early set lists are documented), but it’s the remarkable studio recording that demands our close attention.
 
@@ -22,7 +22,7 @@ Only eight songs from those sessions circulate, but they are wonderfully clear d
 
 One of the final songs recorded at the March 14, 1972 rehearsal session was “Coming Home,” tighter and more lyrically evolved than the band’s earlier live performances. The recording lacks some of the frenetic energy of the ’71 performances, but it more than makes up for it in clarity. Sancious, in particular, makes his presence known here much more so than in the earlier performances.
 
-[https://videopress.com/embed/fBhdBSB6](https://videopress.com/embed/fBhdBSB6)
+[Watch Video Highlight](https://videopress.com/embed/fBhdBSB6)
 
 Bruce wrote “Coming Home” at a time when the nation and his generation were inescapably influenced by the ongoing conflict in Vietnam, but while most of Bruce’s earlier war songs dripped with pathos, rage, or cynicism, “Coming Home” is much more subtle in its commentary–a listener encountering it for the first time today might mistake it for a “[Born to Be Wild](https://estreetshuffle.com/index.php/2020/05/20/cover-me-born-to-be-wild/)“-style road song.
 
@@ -65,7 +65,7 @@ We never learn whether he makes it home, though–the song leaves our soldier wi
 
 While “Coming Home” never saw the light of day (officially), it wouldn’t be the last time Bruce would write about a returning Vietnam veteran.
 
-But in 1972, [that story](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/) was still burning ten years down the road.
+But in 1972, [that story](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/) was still burning ten years down the road.
 
 **Coming Home  
 Recorded:** March 14, 1972  
@@ -73,4 +73,4 @@ Recorded:** March 14, 1972
 **First performed:** October 23, 1971 (Richmond, VA)  
 **Last performed:** February 25, 1972 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

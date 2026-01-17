@@ -6,12 +6,12 @@ When it came time to sequence the final album, though, “Growin’ Up” didn�
 
 <https://estreetshuffle.com/wp-content/uploads/2019/01/Growin-Up-Previously-unreleased-Bonus-Track.mp3>
 
-This wouldn’t be the only time Bowie would record and then shelve a Springsteen song. He did the same thing the following year with “[It’s Hard to Be a Saint in the City.](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)”
+This wouldn’t be the only time Bowie would record and then shelve a Springsteen song. He did the same thing the following year with “[It’s Hard to Be a Saint in the City.](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)”
 
-[https://www.youtube.com/watch?v=_pDYK4Ns-co?start=176](https://www.youtube.com/watch?v=_pDYK4Ns-co?start=176)
+[Watch on Youtube: David Bowie-It's Hard To Be A Saint In The City](https://www.youtube.com/watch?v=_pDYK4Ns-co?start=176)
 
-Bowie eventually released both songs: [his cover of “It’s Hard to be a Saint in the City”](http://estreetshuffle.com/index.php/2018/01/10/cover-me-david-bowie-its-hard-to-be-a-saint-in-the-city/) saw the light of day first, on Bowie’s *Sound + Vision* box set in 1989; “Growin’ Up” followed in 1990 when it was included as a bonus track on the re-release of *Pin Ups*.
+Bowie eventually released both songs: [his cover of “It’s Hard to be a Saint in the City”](https://estreetshuffle.com/index.php/2018/01/10/cover-me-david-bowie-its-hard-to-be-a-saint-in-the-city/) saw the light of day first, on Bowie’s *Sound + Vision* box set in 1989; “Growin’ Up” followed in 1990 when it was included as a bonus track on the re-release of *Pin Ups*.
 
-The two destined-to-be-iconic musicians didn’t even know each other at the time Bowie recorded both songs, but they would meet shortly thereafter. For the story of their first meeting, see [Kingdom of Days: November 25](http://estreetshuffle.com/index.php/2018/11/25/kingdom-of-days-november-25/).
+The two destined-to-be-iconic musicians didn’t even know each other at the time Bowie recorded both songs, but they would meet shortly thereafter. For the story of their first meeting, see [Kingdom of Days: November 25](https://estreetshuffle.com/index.php/2018/11/25/kingdom-of-days-november-25/).
 
 (c) January 10, 2018 / January 7, 2019

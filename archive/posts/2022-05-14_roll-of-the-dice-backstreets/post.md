@@ -56,13 +56,13 @@ But in any event, “Backstreets” is obviously the story of forbidden romance.
 
 Bruce tinkered with different takes and mixes over the months that followed, at one point layering on strings (not Suki, however–she’d already left) and additional guitar overdubs.
 
-[https://www.youtube.com/watch?v=qxaU7el7_IU](https://www.youtube.com/watch?v=qxaU7el7_IU)
+[Watch on Youtube: Bruce Springsteen - Backstreets (Unreleased Alternative Version with Strings)](https://www.youtube.com/watch?v=qxaU7el7_IU)
 
 On July 18th–just two days before the *Born to Run* tour kicked off and barely a month before the album would reach record store shelves, the final take of “Backstreets” was recorded, mixed and committed to the album, making “Backstreets” one of the very last *Born to Run* songs to be completed.
 
 It was worth the wait.
 
-[https://www.youtube.com/watch?v=USQ697oqkaw](https://www.youtube.com/watch?v=USQ697oqkaw)
+[Watch on Youtube: Backstreets](https://www.youtube.com/watch?v=USQ697oqkaw)
 
 “Backstreets” is rarely mentioned when discussing Bruce’s more cinematic songwriting, and yet from its opening bars it plays like an epic and tragic romance, with a forty-nine-second overture that I would argue ranks as his best ever, even on an album that includes both “Jungleland” and “Thunder Road.” It’s certainly one of Roy Bittan’s finest moments on record, forever after establishing himself as a core component of the E Street sound.
 
@@ -146,29 +146,29 @@ Affairs rarely work out well for those involved. Unless they do, that is, but if
 
 “Backstreets” made its concert premiere very early in the Born to Run Tour and immediately became a powerful nightly highlight.
 
-[https://www.youtube.com/watch?v=YnNnYjlF1Us](https://www.youtube.com/watch?v=YnNnYjlF1Us)
+[Watch on Youtube: Backstreets (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=YnNnYjlF1Us)
 
 It remained a staple of Bruce’s setlists for years afterward, and as with many of Bruce’s best songs, “Backstreets” grew in scope and power with every performance. Before long, Bruce created some breathing room before the coda and filled it with reminiscence that bordered on performance art.
 
 On some nights, he appeared to be lost in memory and reverie…
 
-[https://www.youtube.com/watch?v=O_hZZQPukBc](https://www.youtube.com/watch?v=O_hZZQPukBc)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Backstreets (Live in Houston, 1978)](https://www.youtube.com/watch?v=O_hZZQPukBc)
 
 …and on other nights, he relived and relieved his narrator’s betrayal with cathartic emotional outbursts.
 
-[https://www.youtube.com/watch?v=7PHB5KdZ5P0](https://www.youtube.com/watch?v=7PHB5KdZ5P0)
+[Watch on Youtube: Backstreets (Live at the Palace Theatre, Albany, NY - 02/07/77 - Official Audio)](https://www.youtube.com/watch?v=7PHB5KdZ5P0)
 
 Some nights he’d preview lyrics for songs he’d not yet recorded…
 
-[https://www.youtube.com/watch?v=am3jkZiQmQE](https://www.youtube.com/watch?v=am3jkZiQmQE)
+[Watch on Youtube: Springsteen Backstreets w/Drive All Night - Live Winterland 1978](https://www.youtube.com/watch?v=am3jkZiQmQE)
 
 ….and other nights he’d quote favorite songs by other artists.
 
-[https://www.youtube.com/watch?v=8Wx1bEvMIQI](https://www.youtube.com/watch?v=8Wx1bEvMIQI)
+[Watch on Youtube: Bruce Springsteen ‐ Backstreets (Fenway Park, Boston 2012)](https://www.youtube.com/watch?v=8Wx1bEvMIQI)
 
 But even played straight, every performance of “Backstreets” feels like an event to anyone fortunate enough to be in the room for it.
 
-[https://www.youtube.com/watch?v=eGDFavEBn0Q](https://www.youtube.com/watch?v=eGDFavEBn0Q)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Backstreets (Live in New York City)](https://www.youtube.com/watch?v=eGDFavEBn0Q)
 
 From the day it debuted, “Backstreets” has never missed an E Street Band Tour, and it likely never will. It remains a fan favorite–so much so that the unofficial fan magazine and community site for Springsteen fans was named after it.
 
@@ -176,11 +176,11 @@ To date, Bruce has performed “Backstreets” an even 500 times. Let’s hope w
 
 **Update 1/3/2024:** On his World Tour in 2023, Bruce recontextualized “Backstreets” as a tribute to his fallen former bandmate, George Theiss. Each night, Bruce offered a heartfelt mid-song remembrance, but (at least for me, and I seem to be in the minority) it felt jarringly out of place in the middle of this particular song. Judge for yourself below.
 
-[https://www.youtube.com/watch?v=Biq_yBwQPnA](https://www.youtube.com/watch?v=Biq_yBwQPnA)
+[Watch on Youtube: Bruce Springsteen - "Backstreets" (Live 4K HQ Audio) - Amalie Arena Tampa February 1, 2023](https://www.youtube.com/watch?v=Biq_yBwQPnA)
 
 **Bonus:** Although “Backstreets” functions best as a full-band showcase, on rare occasion Bruce has performed it solo. Here’s one of those solo piano performances from his 2005 acoustic tour.
 
-[https://www.youtube.com/watch?v=NLmxhx4Zo0o](https://www.youtube.com/watch?v=NLmxhx4Zo0o)
+[Watch on Youtube: Bruce Springsteen - Backstreets (Live 2005 solo piano)](https://www.youtube.com/watch?v=NLmxhx4Zo0o)
 
 **Backstreets  
 Recorded:** July 18, 1975  

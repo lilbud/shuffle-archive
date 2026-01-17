@@ -10,7 +10,7 @@ And when you feel “Streets of Fire,” you are in the dark. You are in the rai
 
 You are in the maelstrom.
 
-[https://www.youtube.com/watch?v=HzIm7Ek6Vv0](https://www.youtube.com/watch?v=HzIm7Ek6Vv0)
+[Watch on Youtube: Streets of Fire](https://www.youtube.com/watch?v=HzIm7Ek6Vv0)
 
 There’s never been a solo or acoustic version of “Streets of Fire,” and there almost certainly never will be. And while Bruce has performed it in concert 71 times over the decades and likely will again, no live performance will ever equal that hackle-raising studio track.
 
@@ -63,11 +63,11 @@ So I’m always entertained when he plays it in concert (on bootleg mostly–I�
 
 Check out these performances of “Streets of Fire” over the years, and you’ll see what I mean. Bruce just basically fills the space with something to sing.
 
-[https://www.youtube.com/watch?v=32ZMEQLaf1k](https://www.youtube.com/watch?v=32ZMEQLaf1k)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Streets of Fire (Live in Houston, 1978)](https://www.youtube.com/watch?v=32ZMEQLaf1k)
 
-[https://www.youtube.com/watch?v=EITMMaNZjfM](https://www.youtube.com/watch?v=EITMMaNZjfM)
+[Watch on Youtube: Bruce Springsteen - Streets of Fire (Live 2003-08-06)](https://www.youtube.com/watch?v=EITMMaNZjfM)
 
-[https://www.youtube.com/watch?v=L6bBI2GRrA8](https://www.youtube.com/watch?v=L6bBI2GRrA8)
+[Watch on Youtube: Streets of Fire (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=L6bBI2GRrA8)
 
 Now one might think that sometime in the forty-plus years since the song’s release, Bruce might make time to actually finish writing it.
 

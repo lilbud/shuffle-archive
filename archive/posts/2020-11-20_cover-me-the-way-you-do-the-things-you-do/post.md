@@ -2,7 +2,7 @@ When Bruce Springsteen played the legendary Apollo Theater for the very first ti
 
 To pay tribute to all the great Motown soul singers that paved the way, Bruce and the E Street Band worked up an arrangement of The Temptations’ “The Way You Do The Things You Do.”
 
-[https://www.youtube.com/watch?v=9gLBvgvXTok](https://www.youtube.com/watch?v=9gLBvgvXTok)
+[Watch on Youtube: Springsteen@The Apollo Theatre ...Things You Do & 634-5789 Spiderman Multi-Cam](https://www.youtube.com/watch?v=9gLBvgvXTok)
 
 He’d have been hard pressed to select a more suitable song.
 
@@ -10,15 +10,15 @@ He’d have been hard pressed to select a more suitable song.
 
 Rita Coolidge took “The Way You Do The Things You Do” to #20 in 1978.
 
-[https://www.youtube.com/watch?v=sg8pH1EgWss](https://www.youtube.com/watch?v=sg8pH1EgWss)
+[Watch on Youtube: Rita Coolidge The Way you Do, The Things You do](https://www.youtube.com/watch?v=sg8pH1EgWss)
 
 Hall and Oates (with Temptations members David Ruffin and Eddie Kendricks) did the same in 1985 with their live recording from the Apollo.
 
-[https://www.youtube.com/watch?v=N0268Le2mBA](https://www.youtube.com/watch?v=N0268Le2mBA)
+[Watch on Youtube: Daryl Hall & John Oates - The Way You Do The Things You Do/My Girl](https://www.youtube.com/watch?v=N0268Le2mBA)
 
 And in 1990, UB40 took “The Way You Do The Things You Do” to its highest chart position yet via a reggae arrangement, peaking at #6.
 
-[https://www.youtube.com/watch?v=J2RZPMo5jAs](https://www.youtube.com/watch?v=J2RZPMo5jAs)
+[Watch on Youtube: UB40 - The Way You Do The Things You Do (Official Music Video)](https://www.youtube.com/watch?v=J2RZPMo5jAs)
 
 But there’s no beating the original. Both on disc and on stage, The Temptations captivated audiences with their performances.
 
@@ -30,7 +30,7 @@ Blended with “[634-5789 (Soulsville, U.S.A.)](https://estreetshuffle.com/index
 
 In the clip below (one of the song’s very last outings to date), we can see that Jake had done his homework. Compare his physical performance with The Temptations above, and you’ll notice some undoubtedly intentional similarities.
 
-[https://www.youtube.com/watch?v=r6kxSY4YSc4](https://www.youtube.com/watch?v=r6kxSY4YSc4)
+[Watch on Youtube: Bruce Springsteen "Apollo Medley" Glendale, AZ 12-6-12](https://www.youtube.com/watch?v=r6kxSY4YSc4)
 
 Bruce performed “The Way You Do The Things You Do” just twice more after that Glendale performance above. (Its medley-mate has fared better as far as subsequent performances go.)
 
@@ -39,5 +39,3 @@ But a song that delights both audiences and artists alike isn’t likely to stay
 **The Way You Do The Things You Do  
 First performed:** March 9, 2012 (New York City, NY)  
 **Last performed:** March 14, 2013 (Brisbane, Australia)
-
- 

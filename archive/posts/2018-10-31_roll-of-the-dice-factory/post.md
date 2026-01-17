@@ -12,7 +12,7 @@ I *love* this song. Its lyrical economy, the dance between Danny’s organ and R
 
 We’ll break it down, but let’s take a listen first:
 
-[https://www.youtube.com/watch?v=3YuEJ_XolkM](https://www.youtube.com/watch?v=3YuEJ_XolkM)
+[Watch on Youtube: Factory](https://www.youtube.com/watch?v=3YuEJ_XolkM)
 
 Let’s state the obvious, first: this is *clearly* an autobiographical song. Bruce is usually coy about how much a given song is drawn from reality, but we certainly know that his dad worked in a factory (among the many gigs Douglas Springsteen held during his life). But the most telling detail is in the second verse: “Factory takes his hearing.” We know that about his dad, too, so it would seem that “Factory” is a naked attempt to come to grips with the role and the impact the factory had on Bruce’s father and family life–despite Bruce’s timid attempt to generalize the song to simply “Man.”
 
@@ -54,17 +54,17 @@ Like I said: I love this song. I just don’t like it.
 
 “Factory” came out to play on a regular basis during the Darkness and River tours. Here’s its very first performance, from Nashville, on July 21, 1978:
 
-[https://www.youtube.com/watch?v=VRKoRUCKFH8](https://www.youtube.com/watch?v=VRKoRUCKFH8)
+[Watch on Youtube: Bruce Springsteen - "Factory" - Nashville, 1978-07-21](https://www.youtube.com/watch?v=VRKoRUCKFH8)
 
 After the River Tour, however, “Factory” pretty much disappeared until the Reunion era. One performance in particular from the Reunion Tour is notable for the addition of strings, courtesy of guest-star Soozie Tyrell (she wouldn’t join the band for another three years).
 
-[http://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3?_=3](http://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3?_=3)
+[https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3?_=3)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/10/106-Factory-online-audio-converter.com_.mp3>
 
 Interestingly, that wasn’t an altogether new arrangement. An alternate take of “Factory” with strings was considered at one point–you’d recognize it as the instrumental track from “[Come On, Let’s Go Tonight](https://estreetshuffle.com/index.php/2020/12/05/roll-of-the-dice-come-on-lets-go-tonight/)” from *The Promise.* (Both of those officially released songs use virtually the same instrumental track, except for the violin absent from “Factory.”) Take a listen to the unreleased outtake (featuring David Lindley on violin) below:
 
-[https://www.youtube.com/watch?v=lKyCP-0DUbs](https://www.youtube.com/watch?v=lKyCP-0DUbs)
+[Watch on Youtube: Bruce Springsteen - "Factory" (alternate with strings)](https://www.youtube.com/watch?v=lKyCP-0DUbs)
 
 This version also has a minor but significant lyrical change–“Factory takes his hearing, but he understands: He’s a working, a working, just a working man.” That implication of acceptance is probably a step too far for the man, who is never fully at peace with his trade-off.
 
@@ -72,11 +72,11 @@ I’ll leave you with two other notable performances of “Factory,” both of w
 
 The first is Bruce’s opening number from a Labor Day concert in Philadelphia in 2012, performed solo and acoustic on guitar and harmonica:
 
-[https://www.youtube.com/watch?v=UR7q2gX1lBE](https://www.youtube.com/watch?v=UR7q2gX1lBE)
+[Watch on Youtube: Factory (acoustic) Bruce Springsteen Philadelphia 09/03/12](https://www.youtube.com/watch?v=UR7q2gX1lBE)
 
 …and the second is a full-band performance in the empty Paramount Theater in Asbury Park. There’s something about the empty hall, the lack of an audience that forces Bruce to look inward for connection rather than outward–and the close-up camera captures his emotion and reminiscence throughout.
 
-[https://www.youtube.com/watch?v=plaOhNjJeBg](https://www.youtube.com/watch?v=plaOhNjJeBg)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Factory (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=plaOhNjJeBg)
 
 **Factory  
 Recorded:** October-November, 1977  
@@ -84,4 +84,4 @@ Recorded:** October-November, 1977
 **First performed:** July 21, 1978 (Nashville, TN)  
 **Last performed:** September 5, 2016 (Virginia Beach, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

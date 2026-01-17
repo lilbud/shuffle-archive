@@ -1,4 +1,4 @@
-**Blogger’s Note:** It’s impossible to discuss the genesis and evolution of “Shut Out the Light” without referencing the two songs with which it’s inseparably intertwined. Since I’ve already written about both at length, I strongly recommend that if you haven’t already (or recently) read them, take a few minutes to do so now. Start with “[Vietnam](http://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/),” which has essential backstory for truly appreciating “Shut Out the Light.” If you have time, review “[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” to understand how that song evolved once Bruce started developing its fraternal twin.
+**Blogger’s Note:** It’s impossible to discuss the genesis and evolution of “Shut Out the Light” without referencing the two songs with which it’s inseparably intertwined. Since I’ve already written about both at length, I strongly recommend that if you haven’t already (or recently) read them, take a few minutes to do so now. Start with “[Vietnam](https://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/),” which has essential backstory for truly appreciating “Shut Out the Light.” If you have time, review “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” to understand how that song evolved once Bruce started developing its fraternal twin.
 
 ---
 
@@ -11,7 +11,7 @@ Despite its third-person narration, “Shut Out the Light” takes us deep into 
 
 Let’s take a listen to the under-recognized and under-appreciated “Shut Out the Light,” one of Bruce Springsteen’s most sensitive songs.
 
-[https://www.youtube.com/watch?v=1w_S4JhQ2lE](https://www.youtube.com/watch?v=1w_S4JhQ2lE)
+[Watch on Youtube: Shut Out The Light](https://www.youtube.com/watch?v=1w_S4JhQ2lE)
 
 “Shut Out the Light” is *very* close to a solo Springsteen recording. Recorded at home shortly after the release of *Nebraska* (Bruce was briefly considering a follow-up solo album before his muse led him elsewhere), Bruce plays all the instruments with the exception of the track’s gorgeous violin overdub, provided by Soozie Tyrell as her debut contribution to Bruce’s catalog.
 
@@ -63,7 +63,7 @@ In the remaining verse, Johnny attempts to restart his life, and during the day,
 *His mama said, “Johnny, oh Johnny, I’m so glad to have you back with me”*  
 *His pa said he was sure they’d give him his job back down at the factory*
 
-There are at least two things worth noting in this verse. The first is the second line, which Bruce will recycle more than two decades later in “[Gypsy Biker](http://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/),” which itself bears quite a bit of thematic resemblance to “Shut Out the Light.”
+There are at least two things worth noting in this verse. The first is the second line, which Bruce will recycle more than two decades later in “[Gypsy Biker](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/),” which itself bears quite a bit of thematic resemblance to “Shut Out the Light.”
 
 The second is Johnny’s pa’s optimism. Because “Shut Out the Light” was paired with “Born in the U.S.A.” we pretty much know from the A-side’s similar line that his pa’s prediction is more naivete than optimism, but I somehow suspect we’d realize that even if we’d listened to the B-side first.
 
@@ -76,7 +76,7 @@ If you noticed at this point that Bruce breaks the verse-verse-chorus pattern th
 
 (Here’s the unreleased version–with extra verses but without Soozie–if you’re curious to compare.)
 
-[https://www.youtube.com/watch?v=Lrsfyj5khYI](https://www.youtube.com/watch?v=Lrsfyj5khYI)
+[Watch on Youtube: Bruce Springsteen Shut Out the Light #1 with 2 extra verses](https://www.youtube.com/watch?v=Lrsfyj5khYI)
 
 We’re not certain whether the final verse is dream or reality…
 
@@ -105,7 +105,7 @@ Bruce debuted “Shut Out the Light” relatively early on the Born in the U.S.A
 
 The clip below is the last of these performances, from Paris on June 29, 1985.
 
-[https://www.youtube.com/watch?v=uAqbN9HO68A](https://www.youtube.com/watch?v=uAqbN9HO68A)
+[Watch on Youtube: Springsteen - Shut Out The Light](https://www.youtube.com/watch?v=uAqbN9HO68A)
 
 It would be more than a decade before anyone would hear Bruce play “Shut Out the Light” again, but on Bruce’s Ghost of Tom Joad Tour, he brought it back for eleven performances.
 
@@ -113,13 +113,13 @@ Here’s one of my favorites, from Bruce’s three-night stand at the Paramount 
 
 But if you listen carefully to the last verse, you’ll hear something else that’s significant: for the first time, Bruce explicitly acknowledges the source of Johnny’s trauma, changing the last line from “dreams of where he’s been” to “dreams of Vietnam.”
 
-[https://www.youtube.com/watch?v=v87kjkzztEA](https://www.youtube.com/watch?v=v87kjkzztEA)
+[Watch on Youtube: Bruce Springsteen "Shut Out The Light" Asbury Park, NJ Nov. 24, 1996](https://www.youtube.com/watch?v=v87kjkzztEA)
 
 There’s only been one live performance of “Shut Out the Light” since 1996, and it’s from Bruce’s other solo acoustic tour.
 
 Here’s Bruce’s last performance of “Shut Out the Light” to date, a somber pump organ arrangement that opened his show in Milwaukee on August 7, 2005.
 
-[https://www.youtube.com/watch?v=jq-DS8-CUiI](https://www.youtube.com/watch?v=jq-DS8-CUiI)
+[Watch on Youtube: Bruce Springsteen - SHUT OUT THE LIGHT 2005 (audio)](https://www.youtube.com/watch?v=jq-DS8-CUiI)
 
 **Shut Out the Light  
 Recorded:** January 19, 1983  
@@ -127,4 +127,4 @@ Recorded:** January 19, 1983
 **First performed:** October 22, 1984 (Oakland, CA)  
 **Last performed:** August 7, 2005 (Milwaukee, WI)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

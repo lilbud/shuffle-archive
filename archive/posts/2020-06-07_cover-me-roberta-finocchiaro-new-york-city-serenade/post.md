@@ -2,7 +2,7 @@ Italian singer-songwriter Roberta Finocchiaro (you might have caught her in her 
 
 But this morning, it’s her fantastic cover of “New York City Serenade” that has me grooving.
 
-[https://www.youtube.com/watch?v=UHO55kfKwB4](https://www.youtube.com/watch?v=UHO55kfKwB4)
+[Watch on Youtube: Roberta Finocchiaro - New York City Serenade ( Bruce Springsteen )](https://www.youtube.com/watch?v=UHO55kfKwB4)
 
 “New York City Serenade” is a difficult song to cover, which is probably why so few artists have tried. Roberta plays to her strengths by arranging the song for solo electric guitar, and it translates perfectly.
 

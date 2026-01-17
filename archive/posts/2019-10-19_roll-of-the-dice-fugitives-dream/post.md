@@ -4,17 +4,17 @@ This was a particularly prolific songwriting period for Bruce; in addition to th
 
 But there are dozens more that are *still* unreleased–officially, that is. Some of the holdbacks have escaped into the wild, though, and one of the most compelling is “Fugitive’s Dream.”
 
-“Fugitive’s Dream” has a lot of shared DNA with “[Unsatisfied Heart](http://estreetshuffle.com/index.php/2018/09/12/roll-of-the-dice-unsatisfied-heart/),” another contemporaneous outtake, and I strongly recommend that you read my essay on that song for more of the backstory and comparison between the two.
+“Fugitive’s Dream” has a lot of shared DNA with “[Unsatisfied Heart](https://estreetshuffle.com/index.php/2018/09/12/roll-of-the-dice-unsatisfied-heart/),” another contemporaneous outtake, and I strongly recommend that you read my essay on that song for more of the backstory and comparison between the two.
 
 But while “Unsatisfied Heart” may be the catchier and more well-known of the sibling outtakes, “Fugitive’s Dream” is the one that will haunt you long after you listen to it.
 
 So go ahead–give it a listen, and then we’ll break it down.
 
-[https://www.youtube.com/watch?v=w2YYSG4MyjE](https://www.youtube.com/watch?v=w2YYSG4MyjE)
+[Watch on Youtube: Bruce Springsteen - FUGITIVE'S DREAM](https://www.youtube.com/watch?v=w2YYSG4MyjE)
 
 “Fugitive’s Dream” is nothing short of stunning. If not for the date stamp on the recording (early 1983), one might naturally assume that the song and the recording hail from Bruce’s *Nebraska* period. It’s certainly as dark, brave, and fully realized as any of the classics from Bruce’s 1982 landmark album.
 
-Like “Unsatisfied Heart,” we open with a classic Springsteen introduction. In “[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” and “[Dead Man Walkin’,](http://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/)” Bruce would reduce it to “I had a job, I had a girl; I had something going, Mister, in this world.” Here, however, it’s:
+Like “Unsatisfied Heart,” we open with a classic Springsteen introduction. In “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” and “[Dead Man Walkin’,](https://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/)” Bruce would reduce it to “I had a job, I had a girl; I had something going, Mister, in this world.” Here, however, it’s:
 
 *Sir, I am a pilgrim and a stranger in this land*  
 *Once I had a home here, my salvation was at hand*  
@@ -54,4 +54,4 @@ Here, however, it’s not just the distant past that the narrator must now carry
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -32,50 +32,85 @@ def format_article_content(orig_content: str) -> str:
     # Replace <p> tag with space with closed tag.
     orig_content = re.sub(r"<p>\s+</p>", "<p></p>", orig_content)
 
+    # replace empty line
+    orig_content = re.sub(r"^$", "", orig_content)
+
+    # replace http with https
+    orig_content = re.sub("http:", "https:", orig_content)
+
     soup = bs4(orig_content, "lxml")
 
     # fix iframes having embed links instead of direct
     for iframe in soup.find_all("iframe"):
-        src = iframe["src"]
+        src = iframe.get("src")
+        title = iframe.get("title", "Watch Video")
 
-        if src:
-            if "youtube" in src:
-                # Replace embedded video with direct link
-                src = re.sub(
-                    r"youtube.com\/embed\/(?!videoseries)",
-                    "youtube.com/watch?v=",
-                    src,
-                )
+        if iframe.has_attr("allowfullscreen"):
+            iframe["allowfullscreen"] = ""  # Correct HTML5 boolean format
 
-                # Replace embedded playlist with direct link
-                src = re.sub(
-                    r"youtube.com\/embed\/videoseries",
-                    "youtube.com/playlist",
-                    src,
-                )
+        # Youtube
+        if "youtube.com" in src:
+            title = f"Watch on Youtube: {title}"
+            if "/embed/" in src:
+                video_id = src.split("/")[-1].split("?")[0]
+                link_url = f"https://www.youtube.com/watch?v={video_id}"
+            else:
+                link_url = src
 
-                # Remove embed params
-                src = re.sub(r"(\?|&)feature=oembed", "", src)
+        # VideoPress
+        elif "videopress.com" in src:
+            link_url = src
+            if title == "VideoPress Video Player":
+                title = "Watch Video Highlight"
 
-            elif "videopress" in src:
-                src = re.sub(r"\?hd.*", "", src)
+        else:
+            link_url = src
 
-        iframe["src"] = src
+        link_container = soup.new_tag("p")
+
+        # Create the Markdown-style link as a new paragraph
+        md_link = soup.new_tag("a")
+        md_link.string = title
+
+        md_link["href"] = link_url
+
+        link_container.append(md_link)
+
+        # Replace the iframe's parent container (the div) if it exists
+        # Clean up the container (WordPress often wraps these in specific divs)
+        container = iframe.find_parent(
+            "div",
+            class_=["jetpack-video-wrapper", "video-player"],
+        )
+
+        if container:
+            container.replace_with(link_container)
+        else:
+            iframe.replace_with(link_container)
 
     for img in soup.find_all("img"):
-        src = img["src"]
+        # remove wordpress CDN from images, change to direct link
+        if img.get("data-orig-file"):
+            img["src"] = re.sub(r"i\d.wp.com/|\?.*", "", img["data-orig-file"])
+        else:
+            img["src"] = re.sub(r"i\d.wp.com/|\?.*", "", img["src"])
 
-        if re.search(r"i\d.wp.com/", img["src"]):
-            src = re.sub(r"i\d.wp.com/|\?resize.*", "", img["src"])
+        if img.get("data-attachment-id"):
+            img["id"] = img.get("data-attachment-id")
 
-        img["src"] = src
+        # remove wordpress data attributes
+        attrs_to_del = [attr for attr in img.attrs if attr.startswith("data-")]
+        for attr in attrs_to_del:
+            del img[attr]
+
+        # extra unneeded attributes
+        extra_attrs = ["srcset", "sizes", "class", "loading", "decoding"]
+        for attr in extra_attrs:
+            del img[attr]
+
+    # Remove empty tags
+    for p in soup.find_all("p"):
+        if not p.get_text(strip=True) and not p.find("img"):
+            p.decompose()
 
     return str(soup.body.decode_contents())
-
-
-def clean_file(file: Path):
-    contents = file.read_text(encoding="utf-8")
-
-    cleaned = format_article_content(contents)
-
-    # print(cleaned)

@@ -8,7 +8,7 @@ Their set lists were a mix of covers, Steel Mill holdovers, and new original son
 
 “Southside Shuffle” is lyrically… well, let’s call it slight. But the lyrics aren’t the point. Bruce wrote “Southside Shuffle” as a showcase for Southside Johnny’s harp skills, which are very, very much on display in the recording below, captured on May 15, 1971 at the song’s one and only live performance.
 
-[https://www.youtube.com/watch?v=AjI091w6S5o](https://www.youtube.com/watch?v=AjI091w6S5o)
+[Watch on Youtube: Southside Shuffle - Dr Zoom and the Sonic Boom (Bruce Springsteen)](https://www.youtube.com/watch?v=AjI091w6S5o)
 
 The spotlight may linger on Southside Johnny (only 22 at the time) the most during those nine minutes, but he’s not the only young musician to get a star turn. Seventeen-year-old David Sancious dazzles, 21-year-old Bruce impresses, and even 20-year-old Albee Tellone gets a rare chance to show off.
 
@@ -40,4 +40,4 @@ Never recorded**
 **First performed:** May 15, 1971 (Union, NJ)  
 **Last performed:** May 15, 1971 (Union, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

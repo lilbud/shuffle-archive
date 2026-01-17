@@ -2,7 +2,7 @@ Everyone remembers the Rock and Roll Hall of Fame’s inaugural concert in Septe
 
 With superstars like Bruce Springsteen, John Mellencamp, and Jon Bon Jovi backing pioneers like Chuck Berry, Martha Reeves, and Eric Burdon, the first Hall of Fame concert announced the arrival of the Cleveland institution with one heck of an exclamation point.
 
-[https://www.youtube.com/watch?v=kv0fqsFm9ew?start=4897](https://www.youtube.com/watch?v=kv0fqsFm9ew?start=4897)
+[Watch on Youtube: Full Show | Concert for the Rock & Roll Hall of Fame](https://www.youtube.com/watch?v=kv0fqsFm9ew?start=4897)
 
 There’s just one problem with introductory events like that: where do you go from there?
 
@@ -12,7 +12,7 @@ Santelli envisioned an annual event honoring and exploring the life and work of 
 
 Over the course of two decades, the series honored a panoply of influential artists. Muddy Waters, Bessie Smith, Hank Williams, Johnny Cash, The Rolling Stones, and Roy Orbison (the series eventually embraced early rock artists as well) were just a few of the artists featured in an annual week-long festival of lectures, concerts, exhibits, and special events. Each year, the week ended with an all-star tribute concert.
 
-![](https://www.cleveland.com/resizer/qIWgnngTfpAxWDXjFpKi3Lw3bkI%3D/1280x0/smart/advancelocal-adapter-image-uploads.s3.amazonaws.com/image.cleveland.com/home/cleve-media/width2048/img/ent_impact_home/photo/23326343-large.jpg?w=758&amp;ssl=1)
+![](https://www.cleveland.com/resizer/qIWgnngTfpAxWDXjFpKi3Lw3bkI%3D/1280x0/smart/advancelocal-adapter-image-uploads.s3.amazonaws.com/image.cleveland.com/home/cleve-media/width2048/img/ent_impact_home/photo/23326343-large.jpg)
 
 Santelli and team selected Woody Guthrie as the series’ inaugural honoree, working with Guthrie’s daughter Nora to bring it to life. Santelli and Guthrie collaborated on a ten-day program of events illuminating Woody Guthrie’s life and work. However, to draw the attention they hoped for, they needed a finale that would establish the series as an annual can’t-miss event.
 
@@ -36,22 +36,24 @@ Bruce played a set of Guthrie’s songs that night, including “[Tom Joad](http
 
 Following his set, all of the evening’s featured performers joined Springsteen on stage for a four-song encore leading off with Guthrie’s oft-covered ode to the working man, “Hard Travelin’,” first recorded in 1941.
 
-[https://www.youtube.com/watch?v=kfq5b1bppJQ](https://www.youtube.com/watch?v=kfq5b1bppJQ)
+[Watch on Youtube: Hard Travelin' - Woody Guthrie](https://www.youtube.com/watch?v=kfq5b1bppJQ)
 
 Bruce took the lead on a verse, as did Woody’s son Arlo, The Indigo Girls, and Ani DiFranco. The joyous ensemble performance was given an official release in 2000 on a compilation album called *Til We Outnumber ‘Em*, one of Bruce’s most under-the-radar official releases.
 
-[https://www.youtube.com/watch?v=mKG0dVtuyDE](https://www.youtube.com/watch?v=mKG0dVtuyDE)
+[Watch on Youtube: Hard Travelin' Hootenanny](https://www.youtube.com/watch?v=mKG0dVtuyDE)
 
 “Hard Travelin'” was a one-time-only performance for Springsteen, but he went on to have a long relationship with Nora Guthrie and the Woody Guthrie Center, culminating in [Bruce receiving his own honor from Nora and Santelli in 2021](https://estreetshuffle.com/index.php/2022/05/13/kingdom-of-days-may-13/).
 
-[https://videopress.com/embed/byP6Gb2q](https://videopress.com/embed/byP6Gb2q)
+[Watch Video Highlight](https://videopress.com/embed/byP6Gb2q)
+
+
 
 For more background on the American Music Masters series and Bruce’s involvement, check out this excellent episode of *CLE Rocks* below.
 
-[https://open.spotify.com/embed/episode/7JpVNb6Ct4eivlRelTuaOF?utm_source=generator](https://open.spotify.com/embed/episode/7JpVNb6Ct4eivlRelTuaOF?utm_source=generator)
+[Watch Video](https://open.spotify.com/embed/episode/7JpVNb6Ct4eivlRelTuaOF?utm_source=generator)
+
+
 
 **Hard Travelin’  
 First performed:** September 29, 1996 (Cleveland, OH)  
 **Last performed:** September 29, 1996 (Cleveland, OH)
-
- 

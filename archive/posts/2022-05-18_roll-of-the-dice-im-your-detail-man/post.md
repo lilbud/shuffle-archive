@@ -20,7 +20,7 @@ But it was one song in particular that made even the most knowledgeable Springst
 
 The song is called–we *think*–“I’m Your Detail Man,” and based on the content and style, I’d lay good odds that it’s a Springsteen original.
 
-[https://www.youtube.com/watch?v=FyGhPxx1hdo](https://www.youtube.com/watch?v=FyGhPxx1hdo)
+[Watch on Youtube: Bruce Springsteen - I'm Your Detail Man (Unreleased) - Live](https://www.youtube.com/watch?v=FyGhPxx1hdo)
 
 “I’m Your Detail Man” is a straight-up party rocker laced with double entendre from start to finish, a boast and a pledge from an attentive lover to his girl. (Given its provenance, I suspect Bruce wrote it around the same time as “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/).”)
 

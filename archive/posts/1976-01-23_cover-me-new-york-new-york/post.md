@@ -6,25 +6,25 @@ You know, The Big Apple. The City That Never Sleeps. The City So Nice They Named
 
 I’m talking about the city immortalized by the song named after it, from the movie named after it.
 
-[https://www.youtube.com/watch?v=5-pyc_z7WbY](https://www.youtube.com/watch?v=5-pyc_z7WbY)
+[Watch on Youtube: New York, New York](https://www.youtube.com/watch?v=5-pyc_z7WbY)
 
 “New York, New York” was originally performed by Liza Minelli in Martin Scorsese’s film by the same name. Minelli’s original version never became a hit–it peaked at only #104 upon its release in 1977–but her live performances became legendary, like this one from 1986.
 
-[https://www.youtube.com/watch?v=8XhxfFzgKmU](https://www.youtube.com/watch?v=8XhxfFzgKmU)
+[Watch on Youtube: Liza Belts Out the Ultimate Performance of 'New York, New York' [REMASTERED 2013]](https://www.youtube.com/watch?v=8XhxfFzgKmU)
 
 Still, it took The Chairman of the Board to make a hit single out of “New York, New York.” Frank Sinatra scored his last-ever Top 40 hit with it when his studio recording peaked at #32 in 1980.
 
-[https://www.youtube.com/watch?v=le1QF3uoQNg](https://www.youtube.com/watch?v=le1QF3uoQNg)
+[Watch on Youtube: Theme From New York, New York (2008 Remastered)](https://www.youtube.com/watch?v=le1QF3uoQNg)
 
 It didn’t take long for “New York, New York” to establish itself as an unofficial theme song for the city, a fact tacitly acknowledged by Bruce Springsteen and the E Street Band when they played New York’s Madison Square Garden on the Tunnel of Love Tour in 1988.
 
 At the first two of a five-show stand, the E Street Band played Bruce off stage at the end of the night with a brief instrumental coda of “New York, New York.”
 
-[https://videopress.com/embed/28CoUbgM](https://videopress.com/embed/28CoUbgM)
+[Watch Video Highlight](https://videopress.com/embed/28CoUbgM)
 
 Okay, maybe that was too short to count as a true cover, but there was also the time that Bruce joined Sinatra himself at a tribute concert in 1995, in what may very well be Bruce’s stiffest, most awkward television appearance ever.
 
-[https://www.youtube.com/watch?v=93e0wRzl0vo](https://www.youtube.com/watch?v=93e0wRzl0vo)
+[Watch on Youtube: Frank Sinatra - New York, New York 1995](https://www.youtube.com/watch?v=93e0wRzl0vo)
 
 Okay, maybe that doesn’t really count as a cover either. I’m not even certain Bruce sings at any point during that performance. I don’t know *what* he was doing exactly, and I’m not sure Bruce knew either.
 

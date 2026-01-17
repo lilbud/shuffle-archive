@@ -1,6 +1,6 @@
 The dice direct our attention to another unreleased classic: “Walking in the Street,” first recorded in the summer of 1974, reworked during the Born to Run sessions in May 1975… and then subsequently lost forever. (Bruce searched for the master tape when compiling the 1998 *Tracks* box set but was never able to locate it.)
 
-[https://www.youtube.com/watch?v=ia_uXQ2Bp9w](https://www.youtube.com/watch?v=ia_uXQ2Bp9w)
+[Watch on Youtube: Bruce Springsteen - Walking In The Street (Lovers In The Cold)](https://www.youtube.com/watch?v=ia_uXQ2Bp9w)
 
 Some would argue that “Walking in the Street” isn’t a song of its own but rather a very early version of what would become “Thunder Road.”
 
@@ -31,7 +31,7 @@ But thematically, “Walking in the Street” (sometimes called “Lovers in the
 
 Billy carries a gun and walks Lexington Avenue, “casing the promised land.” A getaway driver “waits outside the store. He pulls away just as Billy runs out the door. Oh, and Billy won’t run any more, no no no…”
 
-They sound more like the lovers in “[Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” or “[Meeting Across the River](http://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” than in “Thunder Road.” (And having written that, I now wonder whether the story in “Walking in the Street” migrated to “Meeting Across the River” when the melody left town for “Thunder Road.”)
+They sound more like the lovers in “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” or “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” than in “Thunder Road.” (And having written that, I now wonder whether the story in “Walking in the Street” migrated to “Meeting Across the River” when the melody left town for “Thunder Road.”)
 
 The chorus pairs a soaring melody with gorgeous but grounded imagery:
 
@@ -47,4 +47,4 @@ Recorded:** August-September 1974
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

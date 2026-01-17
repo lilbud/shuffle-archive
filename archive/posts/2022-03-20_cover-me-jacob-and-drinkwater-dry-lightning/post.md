@@ -6,10 +6,8 @@ Let’s start with this fine acoustic performance of “[Dry Lightning](https://
 
 This one by Oslo-based singer-songwriter Tobias ben Jacob with Lukas Drinkwater on the double bass is one of my favorites. Jacob and Drinkwater performed it during their appearance on The Big Comfy Sessions, an erstwhile acoustic series filmed at The Big Comfy Bookshop in Coventry.
 
-[https://www.youtube.com/watch?v=Wo-LDaGTYcI](https://www.youtube.com/watch?v=Wo-LDaGTYcI)
+[Watch on Youtube: Bruce Springsteen 'Dry Lightning' cover: Jacob and Drinkwater, Big Comfy Sessions](https://www.youtube.com/watch?v=Wo-LDaGTYcI)
 
 “Dry Lightning” is a post-breakup, where-is-she-now song that foretold *Western Stars* from a quarter-century away. On the album it’s lilting and deceptively carefree-sounding. Jacob and Drinkwater found a way to expose the song’s sadness without losing any of its gentle musical beauty, stratifying it with a high, wistful vocal and a low, mournful bass. Even a casual listener couldn’t walk away unaffected after a first listen.
 
 If you like what you hear check out more of Jacob and Drinkwater’s music [here](https://www.jacobanddrinkwater.com/), and if you’re in the U.K. this spring, [catch them on tour](https://www.jacobanddrinkwater.com/live).
-
- 

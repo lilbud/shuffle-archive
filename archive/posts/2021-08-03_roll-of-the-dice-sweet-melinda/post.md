@@ -2,7 +2,7 @@ Bruce’s early band Steel Mill was known for its heavy sound and epic guitar ja
 
 From late 1969 through their final show in early 1971, the band used “Sweet Melinda,” an early original Springsteen composition, as a mid-set palate cleanser and reprieve for the audience.
 
-[https://www.youtube.com/watch?v=6MBQs65H8C4](https://www.youtube.com/watch?v=6MBQs65H8C4)
+[Watch on Youtube: Bruce Springsteen and Steel Mill: Sweet Melinda 1971 01 23, Upstage, Asbury Park, NJ](https://www.youtube.com/watch?v=6MBQs65H8C4)
 
 Bruce’s “Sweet Melinda” lyrics are more sly and sassy than sweet, and his vocals are deliberately and delightfully drunken and sloppy. The band follows Bruce’s loose lead, strutting and sashaying their way through a performance that evokes nothing so much as closing time at a local dive bar.
 

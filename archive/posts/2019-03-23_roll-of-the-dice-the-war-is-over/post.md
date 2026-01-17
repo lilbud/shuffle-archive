@@ -1,12 +1,12 @@
 The dice are mean today.
 
-Just a few days after assigning me “[Souls of the Departed](http://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/),” they turn up the similarly themed Steel Mill number, “The War Is Over,” and the comparison is almost cruel.
+Just a few days after assigning me “[Souls of the Departed](https://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/),” they turn up the similarly themed Steel Mill number, “The War Is Over,” and the comparison is almost cruel.
 
 To be fair, though, Bruce wrote “The War Is Over” when he was still a teen, so we can forgive the stridency of the lyrics and the stretched-to-its-breaking-point metaphor; instead we can admire the songwriter’s earnestness and the arranger’s creativity.
 
 In the astonishingly pure recording below from the band’s January 1970 performance at The Matrix in San Francisco, we’re treated to a lovely extended guitar introduction. Even then, Bruce had a flair for the dramatic–the moment when the band enters is undeniably powerful. Take a listen:
 
-[https://www.youtube.com/watch?v=VEaRsvkobrk](https://www.youtube.com/watch?v=VEaRsvkobrk)
+[Watch on Youtube: Steel Mill - The War Is Over (Live At The Matrix 1970)](https://www.youtube.com/watch?v=VEaRsvkobrk)
 
 That was, in fact, the band’s opening number that night, and it must have been quite an introduction. Although the lyrics pale in comparison even to much of his contemporaneous compositions, Bruce’s musical craftsmanship is on full display. Notice how he uses a recorder to set the scene in a medieval king’s court (I’d love to know who’s playing it)? That’s a stroke of genius.
 
@@ -58,4 +58,4 @@ Never released**
 **First performed:** September 20, 1969 (Richmond, VA)  
 **Last performed:** August 14, 1970 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -4,19 +4,19 @@ There were exceptions, though.
 
 One of them was “It Ain’t the Meat (It’s the Motion)” by The Swallows, which might have been a hit if it had received national airplay. “Everybody liked it everywhere,” recalled Eddie Rich of The Swallows, “[but] you couldn’t play it.” It became a regional hit in the South, though, where the double entendre-laden lyrics and the rocking accompaniment earned it both appreciation and notoriety.
 
-[https://www.youtube.com/watch?v=lpPeQyT36Tg](https://www.youtube.com/watch?v=lpPeQyT36Tg)
+[Watch on Youtube: THE SWALLOWS ~ IT AIN`T THE MEAT ~ 1951 .](https://www.youtube.com/watch?v=lpPeQyT36Tg)
 
 If you were unfamiliar with the song before now, you might suspect you know what the song’s title is referring to. And you’d almost certainly be wrong.
 
 That’s because in 1974, Maria Muldaur covered “It Ain’t the Meat,” switching the lyrics from a man’s to a woman’s perspective.
 
-[https://www.youtube.com/watch?v=8IkNDzvCswU](https://www.youtube.com/watch?v=8IkNDzvCswU)
+[Watch on Youtube: It Ain't the Meat It's the Motion](https://www.youtube.com/watch?v=8IkNDzvCswU)
 
 Muldaur’s version injected the title phrase into the popular vernacular, and “it ain’t the meat, it’s the motion” became a clever euphemism for saying that penis size doesn’t matter if you’ve got technique.
 
 However, the “meat” of the original song referred to the singer’s female lovers, and that’s the version that Southside Johnny rescued from obscurity when he covered it for his 1976 debut album, *I Don’t Want to Go Home,* with original Juke Kenny “Popeye” Pentifallo doing his best Irving Turner impression (and making it clear the band was familiar with the original track).
 
-[https://www.youtube.com/watch?v=mOwunYrOOhQ](https://www.youtube.com/watch?v=mOwunYrOOhQ)
+[Watch on Youtube: It Ain't the Meat (It's the Motion) (2016 Remaster)](https://www.youtube.com/watch?v=mOwunYrOOhQ)
 
 “It Ain’t the Meat (It’s the Motion)” was a reliable crowd-pleaser in either version, and it made frequent appearances in Southside’s early sets (and still makes appearances to this day).
 
@@ -28,14 +28,10 @@ Stevie assembled the artists on a single stage, fronting the group for Southside
 
 And that’s exactly what we can hear him doing in this recording of his one and only known performance of “It Ain’t the Meat (It’s the Motion)” — supporting the band on guitar, while Van Zandt handles the frontman duties.
 
-[https://www.youtube.com/watch?v=GZFy95xRBnc](https://www.youtube.com/watch?v=GZFy95xRBnc)
+[Watch on Youtube: IT AIN'T THE MEAT (IT'S THE MOTION) : The Swallows cover](https://www.youtube.com/watch?v=GZFy95xRBnc)
 
 Yeah, I know that’s not the clearest of recordings, but it’s the only one we’ve got. Maybe someday a better version of those special shows will surface, but for the moment, this is our only glimpse at Bruce Springsteen covering one of rock’s earliest risque classics.
 
 **It Ain’t the Meat (It’s the Motion)  
 First performed:** May 12, 1977 (Red Bank, NJ)  
 **Last performed:** May 12, 1977 (Red Bank, NJ)
-
- 
-
- 

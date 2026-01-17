@@ -12,11 +12,11 @@ Bruce had already appeared on stage with Brian twice just two years prior, joini
 
 When the band came through Asbury in 2011, Bruce once again joined them for their title track–but this time the album was their follow-up, *American Slang.*
 
-[https://www.youtube.com/watch?v=oAqbnTKQBIY](https://www.youtube.com/watch?v=oAqbnTKQBIY)
+[Watch on Youtube: The Gaslight Anthem - American Slang (Official Video)](https://www.youtube.com/watch?v=oAqbnTKQBIY)
 
 Bruce made his surprise appearance mid-set, and the sold-out local crowd (including Fallon’s proud mother) went wild. Bruce contributed rhythm guitar and backing vocals to the band’s performance, as well as a shot of pure adrenaline.
 
-[https://www.youtube.com/watch?v=L-vTaDA8beY](https://www.youtube.com/watch?v=L-vTaDA8beY)
+[Watch on Youtube: American Slang - Bruce Springsteen & the Gaslight Anthem con subtítulos en español](https://www.youtube.com/watch?v=L-vTaDA8beY)
 
 That performance turned out to be the last time Brian and Bruce would perform together on stage (to date, at least), but if we’re not lucky enough to get an encore someday, at least that last one was a high-water mark.
 

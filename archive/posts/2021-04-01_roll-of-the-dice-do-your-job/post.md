@@ -6,13 +6,13 @@ But rarely do we discover unreleased songs that not only made it through a compl
 
 Today, we take a look at one such gem: Bruce’s unreleased 2008 anthem, “Do Your Job.”
 
-[https://www.youtube.com/watch?v=qmghQhEcFjY](https://www.youtube.com/watch?v=qmghQhEcFjY)
+[Watch on Youtube: Peter Hulne as "The Boss" Bruce springsteen "Do your job!"](https://www.youtube.com/watch?v=qmghQhEcFjY)
 
 Bruce wrote and recorded “Do Your Job” just prior to the financial crisis that almost cratered the American economy. Usually, Bruce is very much in step with the times, but in this case he found himself with a potential hit single that was now unreleasable. Rather than risk sounding tone-deaf, he locked “Do Your Job” away in the vault for safekeeping.
 
 As with much of Bruce’s unreleased material, however, the unreleased single made its way to the Internet where we can now watch it and wonder what might have been. Unfortunately, the timing is once again awful with so many Americans out of work due to the great pandemic, so we can expect the Springsteen camp to deny any association with this shoulda-been-a-hit track.
 
-“Do Your Job” has a classic E Street sound–not surprising, since it seems that it was recorded during one of the breaks on the Magic Tour (as was much of *Working on a Dream*). Featuring a catchy hook, a riff reminiscent of “[The Promised Land,](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” and classic Springsteen themes like the value of hard work, Bruce had all the necessary elements to elevate “Do Your Job” to its rightful place in Bruce’s officially released catalog.
+“Do Your Job” has a classic E Street sound–not surprising, since it seems that it was recorded during one of the breaks on the Magic Tour (as was much of *Working on a Dream*). Featuring a catchy hook, a riff reminiscent of “[The Promised Land,](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” and classic Springsteen themes like the value of hard work, Bruce had all the necessary elements to elevate “Do Your Job” to its rightful place in Bruce’s officially released catalog.
 
  *I can’t believe my eyes, it’s so friggin’ amazing*  
 *Americans are getting lazier*  
@@ -55,5 +55,3 @@ To this day, Bruce has never performed “Do Your Job” in concert, and given t
 Recorded:** 2008  
 **Released:** *Funny or Die* (2008)  
 **Never performed**
-
- 

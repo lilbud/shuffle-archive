@@ -25,7 +25,7 @@ Joe: Oh, I’m glad you liked it!
 
 It’s near the top. I mean, there was [*Have a Good Time But Get Out Alive*](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/), the 40th anniversary edition that we’re promoting now. That was the record that… my life began to change with *Love’s So Tough*, but it *really* hit a different level with *Have a Good Time But Get Out Alive.*
 
-[https://www.youtube.com/playlist?list=OLAK5uy_m8XucNiryNwVfJUu1EI206RMqA_KaLTK8](https://www.youtube.com/playlist?list=OLAK5uy_m8XucNiryNwVfJUu1EI206RMqA_KaLTK8)
+[Watch on Youtube: Have a Good Time but... Get out Alive](https://www.youtube.com/playlist?list=OLAK5uy_m8XucNiryNwVfJUu1EI206RMqA_KaLTK8)
 
 But when I made *American Babylon*, I was down about as far as you could go. I mean *nothing* was going right. We couldn’t get an agent. We had put out several good records in a row and nothing happened. Nobody was interested in anything that I was doing, and I was working like crazy. I was playing at least two nights a week, sometimes three. I had a day gig working with these really poorly behaved kids, and then I was teaching GED at night. So I basically was working myself to death.
 
@@ -47,13 +47,15 @@ He was working at the Power Station, and they just had a phenomenal band: Max, G
 
 That’s the first time I met Bruce. And I guess he just took a liking to that record. Then what really cemented it was one night in 1982, he came to see us play at Big Man’s West and sat in with us, and we went out after and basically hung out the whole night, and just… you know, why do you become friends with a person? We just hit it off. Same age, same influences, sort of same upbringing, real working-class families.
 
-[https://videopress.com/embed/vfcrn5r7](https://videopress.com/embed/vfcrn5r7)
+[Watch Video Highlight](https://videopress.com/embed/vfcrn5r7)
+
+
 
 **Yeah. It’s easy to see. I mean, I don’t know Bruce, but just from what I know about you guys, I can see why you would click and become friends. It’s another thing, though, to collaborate the way you guys have. Bruce hasn’t really done that with that many people and certainly with no one outside of Steve to the extent that you guys have. I’d love to know a little bit more about your collaborating relationship. You guys wrote several songs together. How does that work?**
 
 Well, the first one, I went out to Los Angeles. He invited me to Los Angeles, and we did “Chain Smokin’” and…
 
-**“[Never Be Enough Time](http://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/),” right?**
+**“[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/),” right?**
 
 Yeah. “Never Be Enough Time,” and I played him a bunch of other songs, but they weren’t very good. I mean, like I said: I was almost flatlined. I had “[Chain Smokin’,](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)” but the rest of the songs were very forgettable.
 
@@ -91,7 +93,7 @@ So now I go into work on Monday. Monday night, I call in sick. Now I’m being a
 
 The next day we get up, and we’re working on a song in Bruce’s study. I had my mom and dad at home watching my kids, and in the midst of working on this song… I was a bit nervous, to tell you the truth, because Bruce was using Drop D tuning, and I was not familiar with it at that time. I couldn’t figure out what the hell he was playing! I should have just asked him, but I guess…I don’t know, I was almost overwhelmed because Bruce Springsteen is recording one of my songs that we’re writing together!
 
-[https://www.youtube.com/watch?v=rNH1lwkS-B8](https://www.youtube.com/watch?v=rNH1lwkS-B8)
+[Watch on Youtube: Homestead](https://www.youtube.com/watch?v=rNH1lwkS-B8)
 
 So we’re going over the music that he wrote for this, and Patti comes into his study and she has the phone. (This is pre-cell phone days.) And it’s my mom. Patti said, “Your mom wants you to call. She just called and left a message.” So right away, you think the worst–you think that somethings wrong with the kids, blah blah blah, something’s terribly wrong.
 
@@ -101,7 +103,7 @@ Yeah. [laughs] So I called, and she said “Joey,” (she always called me Joey)
 
 So I called, and Dick got on the phone and he says, “Where are you?” And I said, “Well, you know, I’m sick.” He says, “So why didn’t you answer the phone?” I said, “Well I was in the bathroom! I’m sick.” He said, “You’re not with Bruce Springsteen are you?” And Bruce is two feet away. I said, “No, I’m not at Bruce Springsteen’s. I’m home in Pittsburgh.” And then he made me come in with a doctor’s excuse, so I had to go to my buddy who was a doctor and tell him the whole story and get a doctor’s excuse. I ended up taking off three days of work just because I was pissed off then, instead of just doing what I had to do.
 
-**That’s really funny. This is the kind of thing that makes me think of the butterfly effect, you know? Little things that have these big ripples. This guy, if you had listened to him, not only would your career have gone a different way…. If you look at Bruce’s career during the back half of the nineties, it’s pretty obvious that the work he did with you kind of led him down that *[Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)* path, because you can see a lot of parallels between “[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)” and “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/).” And then I remember reading that when he came off of that tour, he reconnected with you and you guys did “[Code of Silence](http://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)” and “Another Thin Line.”**
+**That’s really funny. This is the kind of thing that makes me think of the butterfly effect, you know? Little things that have these big ripples. This guy, if you had listened to him, not only would your career have gone a different way…. If you look at Bruce’s career during the back half of the nineties, it’s pretty obvious that the work he did with you kind of led him down that *[Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)* path, because you can see a lot of parallels between “[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)” and “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/).” And then I remember reading that when he came off of that tour, he reconnected with you and you guys did “[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)” and “Another Thin Line.”**
 
 Yep.
 
@@ -131,11 +133,11 @@ Before the final recording sessions in L.A., we recorded “American Babylon” 
 
 No, because I was so excited when I wrote it! I went down to the studio with Rick Witkowski who I always worked with. And we did a version there, and it was just boom, boom, boom, one take–couple of overdubs for guitar stuff and that was it. That was the record. I hadn’t planned to do a finished master. I was excited about the song and I wanted to present it to Bruce. He heard it one time, and he said “Here’s your title track. There’s no reason to re-record that one.”
 
-[https://www.youtube.com/watch?v=it0MaZc8ewg](https://www.youtube.com/watch?v=it0MaZc8ewg)
+[Watch on Youtube: American Babylon](https://www.youtube.com/watch?v=it0MaZc8ewg)
 
-**It’s funny you say that. I’m flashing back to [our *Have a Good Time* conversation](http://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/) and how when you put those bonus tracks out there was that demo of “Don’t Let Them Push You Around” that was wildly different from the final version.**
+**It’s funny you say that. I’m flashing back to [our *Have a Good Time* conversation](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/) and how when you put those bonus tracks out there was that demo of “Don’t Let Them Push You Around” that was wildly different from the final version.**
 
-[https://www.youtube.com/watch?v=39gDr_UAxSU](https://www.youtube.com/watch?v=39gDr_UAxSU)
+[Watch on Youtube: Dont Let Them Push You Around (Demo)](https://www.youtube.com/watch?v=39gDr_UAxSU)
 
 **Do you have any demos lying around of any of the *American Babylon* material that are significantly different in arrangement or sound compared to the final version?**
 
@@ -149,7 +151,7 @@ I’m really happy with both of those.
 
 **I love the fact that “Chain Smokin’” *sounds* like someone chain smoking. It’s just… musically tremendous.** 
 
-[https://www.youtube.com/watch?v=8wQfzwQSSAU](https://www.youtube.com/watch?v=8wQfzwQSSAU)
+[Watch on Youtube: Chain Smokin'](https://www.youtube.com/watch?v=8wQfzwQSSAU)
 
 **“Never Be Enough Time” has, I think, my single favorite lyric of yours–the Miracles and Temptations line, which I think is brilliantly clever in how it works on multiple levels.** **I have trouble reconciling how strong those songs are with your statement–which I absolutely believe–but it’s mind-boggling to me that the rest of your songs were so (as you put it) sub-par. Why weren’t you able to uncork that bottled lightning?**
 
@@ -159,7 +161,7 @@ Well, “Chain Smokin’” was a song that I’d been playing around with for a
 
 “Never Be Enough Time” was actually a song that I recorded with the Iron City Houserockers on our last record, *Cracking Under Pressure*. We did a completely different version of it.
 
-[https://www.youtube.com/watch?v=qh3pAs3LMjM](https://www.youtube.com/watch?v=qh3pAs3LMjM)
+[Watch on Youtube: Joe Grushecky & the Houserockers - Never Be Enough Time 1988](https://www.youtube.com/watch?v=qh3pAs3LMjM)
 
 So I was playing those two acoustically when I went out to work with Bruce, and I had a couple other songs, but I was just glad that he picked those two.
 
@@ -171,7 +173,7 @@ So I played him “Never Been Enough Time.” And he *loved* it right off the ba
 
 Because we were face to face singing! All these vocals are live, you know. It was a stormy night in Los Angeles, and he had the skylights and the thunder and lightning was going off, and we’re just standing at this microphone going at it face-to-face.
 
-[https://www.youtube.com/watch?v=6Qe0HaOEKoM](https://www.youtube.com/watch?v=6Qe0HaOEKoM)
+[Watch on Youtube: Joe Grushecky & The Houserockers - Never Be Enough Time](https://www.youtube.com/watch?v=6Qe0HaOEKoM)
 
 But like I said, after I did those two, I knew I needed some better songs, because the ones that I had didn’t stand up. So that’s it, and I was fortunate enough to come up with “Homestead.” So I had a three-pack that was pretty good.
 
@@ -191,7 +193,7 @@ The town we grew up in, the coal mines were dead by the time I was born in that 
 
 It was horrifying. You’d see all this molten steel and the noise and the dirt, but everybody worked there. So I just picked his name out of a hat. I could have picked a lot of other ones. I just liked the way it sounded and it was so Pittsburgh: Grzybowski.
 
-[https://www.youtube.com/watch?v=rGL4zbzeclA](https://www.youtube.com/watch?v=rGL4zbzeclA)
+[Watch on Youtube: Dark and Bloody Ground](https://www.youtube.com/watch?v=rGL4zbzeclA)
 
 **Yeah. It works. So you guys you did “Homestead,” and I think you did “Dark and Bloody Ground” at the same time?**
 
@@ -245,7 +247,7 @@ So that’s how that came about. And then we just sort of pieced the rest of the
 
 **There are some really great up-tempo songs on that album. “No Strings Attached” is an awesome song. I love that song because it sounds from the title and the sound like it’s a casual hookup song, but it’s deeply romantic if you listen to it. That’s a great one.**
 
-[https://www.youtube.com/watch?v=-hrohc583Gc](https://www.youtube.com/watch?v=-hrohc583Gc)
+[Watch on Youtube: No Strings Attached](https://www.youtube.com/watch?v=-hrohc583Gc)
 
 **And then “Labor of Love,” of course. That’s a song that you had written on your own. Bruce doesn’t have any co-writing credit on that. Right?**
 
@@ -255,11 +257,11 @@ Right.
 
 [sings the mandolin part]
 
-**–exactly! That shows up later in “[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).” When I first heard that I was like, “Whoa! That’s instantly recognizable.” Did he ask you if he could use that?**
+**–exactly! That shows up later in “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).” When I first heard that I was like, “Whoa! That’s instantly recognizable.” Did he ask you if he could use that?**
 
 That was just his bit to begin with. Bruce played that part on guitar and mandolin on “Labor of Love.” We trade ideas back and forth, so we both used it.
 
-[https://www.youtube.com/watch?v=DSdpmShd7e4](https://www.youtube.com/watch?v=DSdpmShd7e4)
+[Watch on Youtube: Labor of Love](https://www.youtube.com/watch?v=DSdpmShd7e4)
 
 **How did Patti’s contribution come about for “Comin’ Down Maria”?**
 
@@ -267,7 +269,7 @@ I just had that song. It was just Bruce and I recording it. And one of us (proba
 
 “Comin’ Down Maria” and “Talk Show” are both just me and Bruce. We’re the only guys playing instruments on those. If there’s drum sets, it’s probably electronic drums somehow that we did, plus Patti singing on “Comin’ Down Maria.” The rest of the stuff is just he and I.
 
-[https://www.youtube.com/watch?v=WLshTQTt0Rg](https://www.youtube.com/watch?v=WLshTQTt0Rg)
+[Watch on Youtube: Comin' Down Maria](https://www.youtube.com/watch?v=WLshTQTt0Rg)
 
 **Wait. I did not know that. I’m not sure *anybody* knows that, actually.**
 
@@ -287,7 +289,7 @@ Well, *nobody* does. I’m spilling the beans. You’re the first guy to know.
 
 [laughs] You know, I don’t say much about anything, but it’s been 25 years…
 
-[https://www.youtube.com/watch?v=d2OCZHh7w_0](https://www.youtube.com/watch?v=d2OCZHh7w_0)
+[Watch on Youtube: Talk Show](https://www.youtube.com/watch?v=d2OCZHh7w_0)
 
 **Okay, “Only Lovers Left Alive.” Like I said earlier, title tracks are interesting to me. Album sequences are interesting to me. That is a *dark* note to close that album on.**
 
@@ -297,7 +299,7 @@ Yeah, well it’s sort of a dark record. It started with “Dark and Bloody Grou
 
 Yeah. I tried to lighten it up a little bit. I didn’t want people slitting their wrists listening to the record, but “Only Lovers Left Alive,” I was sitting on that title for years and years. I actually had a book called *Only Lovers Left Alive* when I was in high school, because I read that the Rolling Stones had licensed that book to make a movie. This is back when I was… this is early, like when the Stones first hit. I had the book for years and years. It probably just fell apart, it was a little paperback, and I always liked the title of it: *Only Lovers Left Alive*.
 
-[https://www.youtube.com/watch?v=_JGAd81f--4](https://www.youtube.com/watch?v=_JGAd81f--4)
+[Watch on Youtube: Only Lovers Left Alive](https://www.youtube.com/watch?v=_JGAd81f--4)
 
 **That’s a great title.**
 
@@ -322,7 +324,9 @@ Yeah. When I first started, I worked with really severely disabled mentally and 
 
 **It’s just mind-boggling to me. I mean… jeez, you even had Bruce out on tour with you!**
 
-[https://videopress.com/embed/WoQylHbz](https://videopress.com/embed/WoQylHbz)
+[Watch Video Highlight](https://videopress.com/embed/WoQylHbz)
+
+
 
 **Do you ever look back on it and go, “Boy, if we had done this or tried this maybe…” Or do you think it was just kind of the cards that were just dealt at the time?**
 
@@ -344,7 +348,7 @@ Oh, it’s a great album. I mean I can still… on any given night we play a ton
 
 Bruce has a version of it. You heard that, right, on E Street Radio?
 
-[https://www.youtube.com/watch?v=qmmxYCR52rY](https://www.youtube.com/watch?v=qmmxYCR52rY)
+[Watch on Youtube: Bruce Springsteen - HOMESTEAD Rare Studio Recording Joe Grushecky 2013](https://www.youtube.com/watch?v=qmmxYCR52rY)
 
 **I *have* heard it, but live, I mean–you guys have done it live together, but I don’t think he’s played it on his own without you, or with the band at all.**
 
@@ -352,7 +356,7 @@ Did you hear the “[Idiot’s Delight](https://estreetshuffle.com/index.php/202
 
 **[Blogger’s Note: Bruce and Joe wrote “Idiot’s Delight” together.] I did! I did, when he played it on his radio show recently. I was like, hello! Where did *you* come from?**
 
-[https://www.youtube.com/watch?v=oiQ5QgBUUAg](https://www.youtube.com/watch?v=oiQ5QgBUUAg)
+[Watch on Youtube: Bruce Springsteen - Idiot's Delight](https://www.youtube.com/watch?v=oiQ5QgBUUAg)
 
 **So the last question I have… well, you emailed me a month or so back and asked if I knew how many times you and Bruce had played together, and I sent you a list of 53 times. Did you even realize that it had been that many times?**
 
@@ -360,7 +364,7 @@ No, I didn’t!
 
 **That’s a lot of times.**
 
-The reason I e-mailed, we were having some type of discussion sitting on my patio with my wife and kids about how many times I’ve played with Bruce, and I said I had written a bunch of them down when we first started, but then I got lax, so I had no idea. I figured you must’ve known because shortly after, you put out that little blurb about, was it “[Talking to the King](http://estreetshuffle.com/index.php/2020/06/12/matr-joe-grushecky-and-bruce-springsteen-talking-to-the-king/)?”
+The reason I e-mailed, we were having some type of discussion sitting on my patio with my wife and kids about how many times I’ve played with Bruce, and I said I had written a bunch of them down when we first started, but then I got lax, so I had no idea. I figured you must’ve known because shortly after, you put out that little blurb about, was it “[Talking to the King](https://estreetshuffle.com/index.php/2020/06/12/matr-joe-grushecky-and-bruce-springsteen-talking-to-the-king/)?”
 
 **Yeah.**
 
@@ -372,15 +376,15 @@ You can send me anything you want. [laughs] I’d be glad to have it.
 
 **Cool. I’m curious though: so you guys definitely have some reliables that you play together, both from your catalog and his. Who chooses the Springsteen songs that you include, you or him? Do you have favorite songs that you guys like to play?**
 
-Well I try to… I rehearse the band, and I try to pick songs that I think my band could do justice to. Obviously, the big saxophone solos are not something that we could do in an appropriate fashion. And some of the songs that I like to hear, I present them to Bruce. And he picks the ones he wants to play and then occasionally he’ll say, “Well, let’s do *this* one.” That’s why we started to do [singing] [*save my love for you*](http://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/). We started doing that one.
+Well I try to… I rehearse the band, and I try to pick songs that I think my band could do justice to. Obviously, the big saxophone solos are not something that we could do in an appropriate fashion. And some of the songs that I like to hear, I present them to Bruce. And he picks the ones he wants to play and then occasionally he’ll say, “Well, let’s do *this* one.” That’s why we started to do [singing] [*save my love for you*](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/). We started doing that one.
 
-[https://www.youtube.com/watch?v=dptZn4uH4iA](https://www.youtube.com/watch?v=dptZn4uH4iA)
+[Watch on Youtube: Bruce Springsteen with Joe Grushecky and the Houserockers-Save My Love](https://www.youtube.com/watch?v=dptZn4uH4iA)
 
-**Yeah. And you guys did “[Frankie Fell in Love.](http://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)” I think you guys were the first ones to play both of those.**
+**Yeah. And you guys did “[Frankie Fell in Love.](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)” I think you guys were the first ones to play both of those.**
 
 Yeah. We were the first ones. I think I suggested that because it had that Stones vibe. I’m a big Stones fan.
 
-[https://www.youtube.com/watch?v=V7Uvg3flrrU](https://www.youtube.com/watch?v=V7Uvg3flrrU)
+[Watch on Youtube: "Frankie Fell In Love" Bruce Springsteen ~ LOD 14 ~ Video by Rose A Montana](https://www.youtube.com/watch?v=V7Uvg3flrrU)
 
 **That’s such a great song. I was wondering what the dynamic was there. It’s funny because he blends right into your band.**
 
@@ -402,7 +406,7 @@ I got some really good songs that I was excited about, and this pandemic just br
 
 “[Everything’s Going to Work Out Right](https://estreetshuffle.com/index.php/2021/05/09/matr-joe-grushecky-and-bruce-springsteen-everythings-going-to-work-out-right/).”
 
-[https://www.youtube.com/watch?v=M6sFMtDO6iM](https://www.youtube.com/watch?v=M6sFMtDO6iM)
+[Watch on Youtube: Rock For Relief - Joe Grushecky and The Houserockers - "Everything's Gonna Work Out Right"](https://www.youtube.com/watch?v=M6sFMtDO6iM)
 
 We’re going to put up “Have a Good Time (But Get Out Alive)” today.
 
@@ -428,7 +432,7 @@ Well, I saw you at the last Light of Day, right? You were on stage.
 
 **I was. I’m so glad I did that, too, because that was *this year,* 2020.**
 
-[https://www.youtube.com/watch?v=JnFv1WiWmeo](https://www.youtube.com/watch?v=JnFv1WiWmeo)
+[Watch on Youtube: Grushecky & Houserockers Bruce Springsteen “Talking to the King” ~ Rose A Montana Video](https://www.youtube.com/watch?v=JnFv1WiWmeo)
 
 **It’s *crazy* that was this year. It just seems like it was *forever* ago.**
 
@@ -463,5 +467,3 @@ Yeah.
 **Anyway… that’s a dark note to end on! Although I guess it’s appropriate for *American Babylon*. [laughs]**
 
 Well… [laughs] what’s more *American Babylon* than a fricking pandemic and a depression at the same time?
-
- 

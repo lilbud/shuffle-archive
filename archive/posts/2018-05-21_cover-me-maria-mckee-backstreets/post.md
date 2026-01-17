@@ -2,6 +2,4 @@ Maria McKee is no stranger to Bruce’s music: when she was fronting Lone Justic
 
 From her album *Live – Acoustic Tour 2006*, here’s Maria McKee’s beautiful cover of “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/).”
 
-[https://www.youtube.com/watch?v=MgwObTsSebY](https://www.youtube.com/watch?v=MgwObTsSebY)
-
- 
+[Watch on Youtube: Backstreets-Maria McKee](https://www.youtube.com/watch?v=MgwObTsSebY)

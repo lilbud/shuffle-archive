@@ -6,7 +6,7 @@ Is it his best song? No, and it certainly won’t rank amongst his most popular 
 
 But if we’re looking for a three minute distillation of what Bruce has been trying to tell us since the beginning, we’ll find it in “The Power of Prayer.”
 
-[https://www.youtube.com/watch?v=rZp8csyUi6w](https://www.youtube.com/watch?v=rZp8csyUi6w)
+[Watch on Youtube: Bruce Springsteen - The Power Of Prayer (Official Lyric Video)](https://www.youtube.com/watch?v=rZp8csyUi6w)
 
 Despite its title, “The Power of Prayer” isn’t a religious song–it’s a spiritual one, and there’s a difference. This is a song about the transcendent power of music, its ability to touch our soul, connect our hearts, ignite our passions, and reveal our spirit.
 
@@ -71,7 +71,7 @@ Bruce figured that out early on, and that’s why we connect to his music on suc
 
 **Update 1/1/2024:** Bruce finally debuted “The Power of Prayer” at Stand Up For Heroes last November. Here’s that debut performance.
 
-[https://www.youtube.com/watch?v=otO5hkhocZE](https://www.youtube.com/watch?v=otO5hkhocZE)
+[Watch on Youtube: Power of Prayer @brucespringsteen](https://www.youtube.com/watch?v=otO5hkhocZE)
 
 **The Power of Prayer  
 Recorded:** November 2019  
@@ -80,5 +80,3 @@ Recorded:** November 2019
 **Last performed:** November 6, 2023 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
- 

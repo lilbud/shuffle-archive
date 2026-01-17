@@ -2,11 +2,11 @@ In 1984, the world was introduced to Wilson and Wayne, two good ol’ boys drivi
 
 That road trip did not end well: it ends with Wayne handcuffed to the bumper of a state trooper’s Ford. But we never learn *why–*what exactly did Wayne do to attract attention from the long arm of the law?
 
-Well, it all comes down to a flat-bed truck, a load of chickens, and [Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)‘s long-lost sister. No, not [Betty Jean](http://estreetshuffle.com/index.php/2019/02/13/roll-of-the-dice-betty-jean/), I mean the *other* other Jean.
+Well, it all comes down to a flat-bed truck, a load of chickens, and [Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)‘s long-lost sister. No, not [Betty Jean](https://estreetshuffle.com/index.php/2019/02/13/roll-of-the-dice-betty-jean/), I mean the *other* other Jean.
 
 Buckle up, and we’ll listen to “Delivery Man,” Bruce Springsteen’s unreleased prequel to “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/).”
 
-[https://videopress.com/embed/NfMckKM4](https://videopress.com/embed/NfMckKM4)
+[Watch Video Highlight](https://videopress.com/embed/NfMckKM4)
 
 Bruce recorded “Delivery Man” in early 1983, sometime after he recorded “Darlington County.” Whether he’d written “Delivery Man” earlier than that, we don’t know–but we do know that the unreleased song foreshadows and explains much of Darlington’s road-trip action.
 
@@ -35,7 +35,7 @@ That’s called foreshadowing right there. We see it again in the second verse, 
 
 Okay, let’s unpack:
 
-First, we meet Beverly Jean, sister to Bobby and Betty. We know this because both [Betty Jean](http://estreetshuffle.com/index.php/2019/02/13/roll-of-the-dice-betty-jean/) and Beverly Jean have the same “eyes like a jack rabbit starin’ dead in your high beams.”
+First, we meet Beverly Jean, sister to Bobby and Betty. We know this because both [Betty Jean](https://estreetshuffle.com/index.php/2019/02/13/roll-of-the-dice-betty-jean/) and Beverly Jean have the same “eyes like a jack rabbit starin’ dead in your high beams.”
 
 The next thing we notice is the revelation that our narrator’s name is Wayne–just like the destined-for-arrestin’ buddy from “Darlington County.” And from here, several pieces fall into place:
 

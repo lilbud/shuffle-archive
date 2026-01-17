@@ -4,9 +4,9 @@ So obscure, in fact, that when the dice roll came up with this track, I had no i
 
 Surprise #2: my collection search actually yielded a hit. On a collection of ancient demos I may not have ever listened to… lo and behold, “Hollywood Kids.”
 
-[http://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3?_=2](http://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3?_=2)
+[https://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3?_=2)
 
-<http://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/01/Bruce-Springsteen-08-Hollywood-Kids-online-audio-converter.com_.mp3>
 
 Not much I can say about this track. It’s never been released in any format, and Bruce is only known to have performed it once, about 46 years ago, during his audition for Mike Appel, who would become his first manager. Springsteenlyrics.com pegs the recording date as circa May-June 1972.
 

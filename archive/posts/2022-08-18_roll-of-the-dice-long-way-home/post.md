@@ -4,7 +4,7 @@ Apologies and fair warning that it may happen again before the summer is out, bu
 
 “Long Way Home” is a short instrumental that Bruce recorded at home on his acoustic guitar during his *Nebraska* period.
 
-[https://www.youtube.com/watch?v=F8UmwF9mRSI](https://www.youtube.com/watch?v=F8UmwF9mRSI)
+[Watch on Youtube: Bruce Springsteen Long Way Home](https://www.youtube.com/watch?v=F8UmwF9mRSI)
 
 Whether Bruce intended to write lyrics for it; whether it was close to finished or an early work-in-progress; whether it evolved into something else or simply fell by the wayside… these are things we do not know. It certainly doesn’t bear any resemblance to any contemporaneous studio tracks.
 

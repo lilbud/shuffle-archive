@@ -8,9 +8,9 @@ For Springsteen fans, the delight of this performance isn’t so much the qualit
 
 When I listen to the clip below, I can’t help but think that Bruce is getting a taste of his own medicine–he must feel like Max does when he’s got eyes on Bruce, trying to anticipate his next move so he can keep up. He does a pretty good job.
 
-[https://www.youtube.com/watch?v=HWcb_XuMzec](https://www.youtube.com/watch?v=HWcb_XuMzec)
+[Watch on Youtube: Patti Smith and Bruce Springsteen - "Picture Hanging Blues" - NYC- 1976-11-26](https://www.youtube.com/watch?v=HWcb_XuMzec)
 
-(Listen to the end of the track: when the song ends, Patti goes off on a hilarious tangent about New Jersey. For more of Patti’s ruminations on New Jersey and why she was late to appreciate Bruce’s music, see “[Slowly Walking Down by the River](http://estreetshuffle.com/index.php/2018/05/29/meeting-across-the-river-patti-smith-and-bruce-springsteen-slowly-walking-down-the-river/)” from that same night.)
+(Listen to the end of the track: when the song ends, Patti goes off on a hilarious tangent about New Jersey. For more of Patti’s ruminations on New Jersey and why she was late to appreciate Bruce’s music, see “[Slowly Walking Down by the River](https://estreetshuffle.com/index.php/2018/05/29/meeting-across-the-river-patti-smith-and-bruce-springsteen-slowly-walking-down-the-river/)” from that same night.)
 
 **Picture Hanging Blues**  
 **First performed:** November 26, 1976 (New York City, NY)  

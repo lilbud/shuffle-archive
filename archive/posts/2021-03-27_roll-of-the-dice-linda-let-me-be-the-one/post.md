@@ -4,7 +4,7 @@ As of July 2nd, “Linda Let Me Be The One” was still on it.
 
 That’s how close to glory it came; instead, “Linda Let Me Be The One” is buried on *Tracks,* the only outtake from *Born to Run* to see an official release at all.
 
-[https://www.youtube.com/watch?v=G4yx0JdiKfo](https://www.youtube.com/watch?v=G4yx0JdiKfo)
+[Watch on Youtube: Linda Let Me Be The One (Studio Outtake - 1975)](https://www.youtube.com/watch?v=G4yx0JdiKfo)
 
 And that’s too bad, because “Linda” would have fit perfectly on *Born to Run*. Even more than the title track, “Linda Let Me Be The One” is an homage to Phil Spector, starting with that “[Be My Baby](https://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)” beat that Bruce loved so much at the time.
 
@@ -65,11 +65,11 @@ It also deserved to be played live. But that didn’t happen until 2014, and eve
 
 The E Street Band pulled it off pretty well regardless. (Well, mostly… there’s a rough patch toward the end, but we’ll forgive them. After all, it had been almost forty years since they’d recorded it.)
 
-[https://www.youtube.com/watch?v=wG9_OU0J04U](https://www.youtube.com/watch?v=wG9_OU0J04U)
+[Watch on Youtube: Bruce Springsteen & The ESB ☜❤️☞ Linda Let Me Be The One ∫ Hearts Of Stone {2014}](https://www.youtube.com/watch?v=wG9_OU0J04U)
 
 But while Bruce may have kept “Linda” in the vault until 1998, he liberated her melody much sooner–an epiphany that Bruce seemed to realize in the moment when he performed “Linda Let Me Be The One” for the first and only time to date, immediately after he performed the song it bears an uncanny resemblance to: “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/).”
 
-[https://www.youtube.com/watch?v=KtyeEEnkLAk](https://www.youtube.com/watch?v=KtyeEEnkLAk)
+[Watch on Youtube: Linda Let Me Be the One (edited)- Springsteen - BB&T Arena Sunrise, FL - April 29, 2014](https://www.youtube.com/watch?v=KtyeEEnkLAk)
 
 (I have no idea why he thought they were written twenty years apart though. It was five at most.)
 

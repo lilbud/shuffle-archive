@@ -2,7 +2,7 @@
 
 There’s an argument to be made (and I would make it) that *Western Stars* is Bruce Springsteen’s most cinematic album. If so, “Hitch Hikin'” is its overture.
 
-[https://www.youtube.com/watch?v=pCs8U5wwPJ8](https://www.youtube.com/watch?v=pCs8U5wwPJ8)
+[Watch on Youtube: Bruce Springsteen - Hitch Hikin' (Official Audio)](https://www.youtube.com/watch?v=pCs8U5wwPJ8)
 
 It isn’t quite accurate to say “Hitch Hikin'” is a song devoid of plot; there are several, in fact, but our narrator merely passes through them with blithe acknowledgement. “Hitch Hikin'” is a song that celebrates freedom from plot. Plot is what happens when you spend too much time in one place with the same people.
 
@@ -62,7 +62,7 @@ On an album filled with vividly cinematic character studies, these two songs are
 
 The differences are subtle but significant, like the extended introduction that robs the song of its immediacy, and the absence of the soundstage that progressively layers the orchestration to convey an increasingly crowded vehicle. Still, it’s a lovely performance and Bruce’s only live one to date for this song. It’s worth a watch.
 
-[https://www.youtube.com/watch?v=fdN4NXt414o](https://www.youtube.com/watch?v=fdN4NXt414o)
+[Watch on Youtube: Hitch Hikin’ - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=fdN4NXt414o)
 
 **Hitch Hikin’  
 Recorded:** 2010-2018  

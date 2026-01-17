@@ -8,7 +8,7 @@ The narrator of “The Fuse” is well aware of what’s coming, too–he can fe
 
 Let’s take a listen, and then we’ll break it down.
 
-[https://www.youtube.com/watch?v=xYVcbTaW5Sw](https://www.youtube.com/watch?v=xYVcbTaW5Sw)
+[Watch on Youtube: The Fuse](https://www.youtube.com/watch?v=xYVcbTaW5Sw)
 
 Before we get to the lyrics, let’s take a moment to appreciate the sonic landscape on display here.
 
@@ -85,7 +85,7 @@ Bruce played “The Fuse” regularly during the first couple of legs of the Ris
 
 “The Fuse” doesn’t translate well to the stage. The album track is carefully crafted and painstakingly layered; on stage, the band has far fewer instruments at their disposal, and even the best arenas couldn’t replicate the separation of the studio mix. What should be an eddy of musical voices is instead a drone. Watch the clip below from London in October 2002 and see what I mean.
 
-[https://www.youtube.com/watch?v=IDDJxKe00jY](https://www.youtube.com/watch?v=IDDJxKe00jY)
+[Watch on Youtube: Bruce Springsteen The Fuse Wembley Arena 02](https://www.youtube.com/watch?v=IDDJxKe00jY)
 
 I absolutely adore the studio version of “The Fuse,” but I never heard a live version that left me anything but lukewarm. Bruce wisely dropped “The Fuse” from his set lists after The Rising Tour, and it hasn’t been heard from since.
 
@@ -99,7 +99,7 @@ Strangely, though, while a fan of the song, Lee apparently wasn’t satisfied wi
 
 Terence is multiple-Grammy-winning composer and musician Terence Blanchard, who composed the score for *25th Hour.* He also composed and arranged the “Sgt. Pepper-eseque” overlay, and it’s not particularly subtle.
 
-[https://videopress.com/embed/1CZPWA50](https://videopress.com/embed/1CZPWA50)
+[Watch Video Highlight](https://videopress.com/embed/1CZPWA50)
 
 At best, the overdubs are a curiosity, but as the song builds to its climax the additions mask the careful discordance of the original track and commit the unforgivable sin of undermining its final moments.
 
@@ -113,4 +113,4 @@ Recorded:** February-March 2002
 **First performed:** July 25, 2002 (Asbury Park, NJ)  
 **Last performed:** October 1, 2003 (New York City, NY)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

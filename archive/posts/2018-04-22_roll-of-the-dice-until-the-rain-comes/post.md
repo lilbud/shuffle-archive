@@ -6,11 +6,11 @@ The only reason we know that “Until the Rain Comes” exists is that its lyric
 
 The table of contents shows several previously-unknown songs.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1968_lyricsnotebook-contentspage-195x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1968_lyricsnotebook-contentspage.jpg)
 
 The ninth song, “Until the Rain Comes,” is actually known to have been played by Bruce during his solo acoustic shows that spring and summer, but no recording has surfaced.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/untiltheraincomes_lyrics-300x146.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/untiltheraincomes_lyrics.jpg)
 
 The handwritten lyrics are above (thanks to springsteenlyrics.com), but here they are transcribed:
 
@@ -46,4 +46,4 @@ Perhaps a recording will surface one day and we’ll hear Bruce breathe life int
 **Until the Rain Comes****Never Recorded**  
 **First/Last Performed:** mid-1968
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

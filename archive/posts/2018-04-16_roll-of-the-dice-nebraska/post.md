@@ -6,15 +6,15 @@ So I won’t delve into the song’s historical and theatrical inspiration–you
 
 But I *will* focus on its theme of isolation and Bruce’s innate ability to walk in another’s shoes, because both will increasingly become hallmarks of his work in subsequent years.
 
-It’s impossible to listen to the *Nebraska* album without feeling haunted by it. The songs all have a raw, unrehearsed sound (in “[Atlantic City](http://estreetshuffle.com/?s=atlantic+city),” Bruce even trips over his own vocals but leaves it in), and the songs marinate in the silence of his home studio. Listen to “Nebraska” with your eyes closed, and you’ll feel like you’re in the room with him. You’ll hear his intake of breath, and his harmonica is almost three-dimensional.
+It’s impossible to listen to the *Nebraska* album without feeling haunted by it. The songs all have a raw, unrehearsed sound (in “[Atlantic City](https://estreetshuffle.com/?s=atlantic+city),” Bruce even trips over his own vocals but leaves it in), and the songs marinate in the silence of his home studio. Listen to “Nebraska” with your eyes closed, and you’ll feel like you’re in the room with him. You’ll hear his intake of breath, and his harmonica is almost three-dimensional.
 
-[https://www.youtube.com/watch?v=hCpL_ImsiDo](https://www.youtube.com/watch?v=hCpL_ImsiDo)
+[Watch on Youtube: Nebraska](https://www.youtube.com/watch?v=hCpL_ImsiDo)
 
 Bruce’s early attempts at recording the song are even more intimate. You can hear him feeling his way through the vocals and the music, trying to figure out where to add emphasis or adornment.
 
-[https://www.youtube.com/watch?v=dmgmNk8LEbg](https://www.youtube.com/watch?v=dmgmNk8LEbg)
+[Watch on Youtube: Bruce Springsteen Nebraska #2](https://www.youtube.com/watch?v=dmgmNk8LEbg)
 
-[https://www.youtube.com/watch?v=GpPyGUfwCQQ](https://www.youtube.com/watch?v=GpPyGUfwCQQ)
+[Watch on Youtube: Bruce Springsteen Nebraska #1](https://www.youtube.com/watch?v=GpPyGUfwCQQ)
 
 Much has been made–deservedly so–of Bruce’s ability to embody a character as amoral as Starkweather without either glorifying or condemning him. It’s one of the earliest and best examples of Bruce’s ability (that would only grow over time) to connect and empathize with people from all walks of life, and to bring them to life in song. Yet there’s also an overwhelming sense of isolation, estrangement, and nostalgia (itself a form of disconnection) not just in the title track, but in almost every song on the album.
 
@@ -34,4 +34,4 @@ And I never, ever sing along.
 Recorded:** December 1981-January 1982**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)**First performed:** July 1, 1984 (St. Paul, MN)  
 **Last performed:** October 27, 2020 (Colts Neck, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

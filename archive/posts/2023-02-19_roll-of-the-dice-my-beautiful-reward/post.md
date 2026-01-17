@@ -2,7 +2,7 @@ In the opening notes of his 1987 *[Tunnel of Love](https://estreetshuffle.com/in
 
 Well, almost all. He’s missing just one thing. In “[Ain’t Got You](https://estreetshuffle.com/index.php/2021/08/30/roll-of-the-dice-aint-got-you/),” he sings of his fame, success, and worldly wealth–all of which mean nothing to him without the one thing he lacks: love.
 
-[https://www.youtube.com/watch?v=5iO8d8m0esY](https://www.youtube.com/watch?v=5iO8d8m0esY)
+[Watch on Youtube: Ain't Got You](https://www.youtube.com/watch?v=5iO8d8m0esY)
 
 In retrospect, it’s easy to see “Ain’t Got You” as autobiographical. (For those following the gossip columns, it wasn’t that hard at the time, either.)
 
@@ -10,7 +10,7 @@ It would be almost five years before we’d hear more new music from Bruce, five
 
 If *Tunnel of Love* is about the decisions we’re faced with and the choices we make, *Human Touch* and *Lucky Town* are about the satisfaction that comes with having made the right choices. So it’s a nice bit of symmetry when Bruce closes *Lucky Town* by revisiting the same character that opens *Tunnel of Love–*now five years into what we’d expect would be his happily ever after–in a lovely folk ballad called “My Beautiful Reward.”
 
-[https://www.youtube.com/watch?v=TSq34PgSl-Q](https://www.youtube.com/watch?v=TSq34PgSl-Q)
+[Watch on Youtube: My Beautiful Reward](https://www.youtube.com/watch?v=TSq34PgSl-Q)
 
 However: this is a Springsteen song, and in Springsteen songs happiness may be *after* but it is rarely *ever*. Bruce’s narrator in “My Beautiful Reward” had the riches, the [mansion on the hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/), and even the girl, but it still wasn’t enough.
 
@@ -61,21 +61,21 @@ On the album, “My Beautiful Reward” is essentially a solo track: Bruce plays
 
 On tour, however, “My Beautiful Reward” was an ensemble number, albeit a restrained one. Throughout World Tour 1992-93, Bruce offered it as one of his final numbers of the evening in an arrangement that bordered on benediction.
 
-[https://www.youtube.com/watch?v=a33WgD5_JPw](https://www.youtube.com/watch?v=a33WgD5_JPw)
+[Watch on Youtube: Bruce Springsteen - My Beautiful Reward (MTV Plugged - Official HD Video)](https://www.youtube.com/watch?v=a33WgD5_JPw)
 
-[https://www.youtube.com/watch?v=TSha5L9oW0Q](https://www.youtube.com/watch?v=TSha5L9oW0Q)
+[Watch on Youtube: My Beautiful Reward - Bruce Springsteen (live at Stockholm Olympic Stadium 1993)](https://www.youtube.com/watch?v=TSha5L9oW0Q)
 
 “My Beautiful Reward” featured nightly throughout the tour but disappeared for over a decade immediately after. In 2005, Bruce resurrected it as a staple of his solo acoustic tour. Performed on pump organ and harmonica, it sounded more prayer-like than ever.
 
-[https://www.youtube.com/watch?v=obE4S0udwos](https://www.youtube.com/watch?v=obE4S0udwos)
+[Watch on Youtube: Bruce Springsteen - MY BEAUTIFUL REWARD 2005 live (on pump organ)](https://www.youtube.com/watch?v=obE4S0udwos)
 
 Bruce has played “My Beautiful Reward” 127 times to date, but surprisingly only twice with the E Street Band, including this lovely and uniquely arranged dedication to Bruce’s late cousin on the Wrecking Ball Tour in 2012.
 
-[https://www.youtube.com/watch?v=jDRNIE1UJXc](https://www.youtube.com/watch?v=jDRNIE1UJXc)
+[Watch on Youtube: Bruce Springsteen - My Beautiful Reward (ALL - w/ Cousin Lenny DED Intro) [TP] - K.C.-11/17/12](https://www.youtube.com/watch?v=jDRNIE1UJXc)
 
 “My Beautiful Reward” had its last outing to date almost a decade ago, a solo acoustic encore in Pittsburgh in 2014.
 
-[https://www.youtube.com/watch?v=4fhpheyJKeI](https://www.youtube.com/watch?v=4fhpheyJKeI)
+[Watch on Youtube: Bruce Springsteen - 2014-05-23 Pittsburgh - My Beautiful Reward (solo acoustic)](https://www.youtube.com/watch?v=4fhpheyJKeI)
 
 A return engagement is a long shot at this point. “[I’ll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)” seems to have taken its place, a more fitting send-off at this late stage of Bruce’s career. Still, one never knows–as long as Bruce keeps writing and releasing new music, the search continues.
 

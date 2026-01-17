@@ -4,15 +4,15 @@ Editor's Note
 
 *Having once lived down the Jersey Shore, Barry is one of Bruce’s earliest fans (since 1969), and more importantly: he’s pretty mean with a camera. That footage of Bruce and the band in the studio recording “Jungleland”* *in* *the Wings for Wheels documentary? Barry shot that.* 
 
-[https://www.youtube.com/watch?v=OaMgOYCeOBg](https://www.youtube.com/watch?v=OaMgOYCeOBg)
+[Watch on Youtube: Bruce Springsteen: Wings for Wheels: The Making of Born to Run](https://www.youtube.com/watch?v=OaMgOYCeOBg)
 
 *The boys rehearsing “[Save My Love](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/)” at Bruce’s house in the summer of ’76? Barry shot that (along with all the archival footage included in* The Promise: Darkness on the Edge of Town).
 
-[https://www.youtube.com/watch?v=SN-ou-JqXqQ?list=PLJ3gKh8Ty5pYQCHvJ35SlxjeHgLlrr65s](https://www.youtube.com/watch?v=SN-ou-JqXqQ?list=PLJ3gKh8Ty5pYQCHvJ35SlxjeHgLlrr65s)
+[Watch on Youtube: Save My Love (Holmdel, NJ 76) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=SN-ou-JqXqQ?list=PLJ3gKh8Ty5pYQCHvJ35SlxjeHgLlrr65s)
 
 *The River Tour rehearsal video that accompanied the The River anniversary box set, and the multi-camera Live in Tempe concert? Barry shot those too.* 
 
-[https://www.youtube.com/watch?v=ypJO5gYTrIU](https://www.youtube.com/watch?v=ypJO5gYTrIU)
+[Watch on Youtube: Bruce Springsteen - Cadillac Ranch (The River Tour Rehearsals)](https://www.youtube.com/watch?v=ypJO5gYTrIU)
 
 *Barry filmed Bruce’s legendary 1975 shows at The Bottom Line and The Roxy, and he filmed Bruce’s 1972 acoustic showcase at Max’s Kansas City. In a jaw-dropping 1973 clip that I’ve never seen outside of the 2019 Springsteen Archives event, Barry captured the original E Street Band performing a glorious “New York City Serenade.”* 
 
@@ -32,21 +32,21 @@ Despite having been around Bruce & The E Street Band since the early ‘70s, I�
 
 To me, especially that evening, it’s about the fans. There’s little hope to capture the power of their performance with just one iPhone but with the right credentials (that they graciously provided me) you can indeed mill around and take in Bruce and the band’s pre-show backstage “meet & greets” as well as roam the arena from behind and in front of the stage during the show.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/zurich2-225x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/zurich2.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/zurich1-231x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/zurich1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/sa-225x300.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2020/07/tattoo-225x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/sa-rotated.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2020/07/tattoo-rotated.jpg)
 
-[https://videopress.com/embed/H6u1ZD5c](https://videopress.com/embed/H6u1ZD5c)
+[Watch Video Highlight](https://videopress.com/embed/H6u1ZD5c)
 
-[https://videopress.com/embed/WXiL7pYv](https://videopress.com/embed/WXiL7pYv)
+[Watch Video Highlight](https://videopress.com/embed/WXiL7pYv)
 
-[https://videopress.com/embed/vAiWeEsE](https://videopress.com/embed/vAiWeEsE)
+[Watch Video Highlight](https://videopress.com/embed/vAiWeEsE)
 
-[https://videopress.com/embed/PxmnjiFP](https://videopress.com/embed/PxmnjiFP)
+[Watch Video Highlight](https://videopress.com/embed/PxmnjiFP)
 
-[https://videopress.com/embed/PrheryUV](https://videopress.com/embed/PrheryUV)
+[Watch Video Highlight](https://videopress.com/embed/PrheryUV)
 
 What's your story?
 

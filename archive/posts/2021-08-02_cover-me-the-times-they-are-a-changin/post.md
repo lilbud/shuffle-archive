@@ -2,7 +2,7 @@
 
 Bob Dylan recorded “The Times They Are A-Changin'” on October 24, 1963, during the one-year anniversary of the Cuban Missile Crisis and only weeks after the March on Washington and Dr. King’s “I Have a Dream” speech.
 
-[https://www.youtube.com/watch?v=90WD_ats6eE](https://www.youtube.com/watch?v=90WD_ats6eE)
+[Watch on Youtube: Bob Dylan - The Times They Are A-Changin' (Official Audio)](https://www.youtube.com/watch?v=90WD_ats6eE)
 
 Within a month, President Kennedy would be assassinated, auguring a tumultuous year that proved to be an inflection point for both the Civil Rights movement and America’s overseas interventions.
 
@@ -24,10 +24,8 @@ Bruce’s arrangement was somber and sincere, and his performance was mesmerizin
 
 From the 1997 Kennedy Center Honors, here’s Bruce Springsteen’s only performance to date of Bob Dylan’s “The Times They Are A-Changin’.”
 
-[https://www.youtube.com/watch?v=Wa0fOE-x84k](https://www.youtube.com/watch?v=Wa0fOE-x84k)
+[Watch on Youtube: The Times They Are A-Changin' (Bob Dylan Tribute) - Bruce Springsteen - 1997 Kennedy Center Honors](https://www.youtube.com/watch?v=Wa0fOE-x84k)
 
 **The Times They Are A-Changin’  
 First performed:** December 7, 1997 (Washington, DC)  
 **Last performed:** December 7, 1997 (Washington, DC)
-
- 

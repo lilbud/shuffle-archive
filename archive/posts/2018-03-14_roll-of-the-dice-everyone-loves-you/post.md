@@ -2,7 +2,7 @@ In case you haven’t figure it out yet, I’m a completist. So when I establish
 
 Witness today’s dice roll: an unreleased, unfinished (heck, it’s barely started) tune called “Everyone Loves You” in the session notes from Bruce’s home demo recordings, back in early 1979.
 
-[https://www.youtube.com/watch?v=AGeYMhdz4ho](https://www.youtube.com/watch?v=AGeYMhdz4ho)
+[Watch on Youtube: Bruce Springsteen Everyone Loves You](https://www.youtube.com/watch?v=AGeYMhdz4ho)
 
 This work-in-progress made escaped to the fan community many years ago. Many of Bruce’s discards eventually evolve into or cross-pollinate with other songs that make it to vinyl, but this isn’t one of them.
 
@@ -19,4 +19,4 @@ If you can make out anything more or different, please let me know.
 **Recorded**: 1979 (demo)  
 **Performed:** Never
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,7 +2,7 @@ Bruce Springsteen was singing the blues long before he signed his first record d
 
 “Good Eye” is as bluesy as rock and roll gets.
 
-[https://www.youtube.com/watch?v=5Xlkrski-_o](https://www.youtube.com/watch?v=5Xlkrski-_o)
+[Watch on Youtube: Good Eye](https://www.youtube.com/watch?v=5Xlkrski-_o)
 
 Conceived and recorded in true Chicago fashion (except for perhaps the harmonica loop shortcut Bruce uses throughout the track), “Good Eye” is a deceptively simple track. Musically, it storms and stomps; lyrically it howls and wails. Bruce makes arguably his best use to date of the bullet microphone he was so fond of in the mid-aughts, producing vocal distortion that further shades his already dark lyrics.
 
@@ -34,7 +34,7 @@ Bruce implicitly acknowledged the linkage when he performed “Good Eye” in co
 
 In the clip below, you’ll hear a distorted Bruce reference the love and fear tattoos Bill Horton bears in “Cautious Man” (which itself was an homage to the 1955 film *Night of the Hunter*) before launching into an extended jam that’s twice as long as the album track.
 
-[https://www.youtube.com/watch?v=BVLXCMvRB5E](https://www.youtube.com/watch?v=BVLXCMvRB5E)
+[Watch on Youtube: Bruce Springsteen Good Eye San Jose 01/04/2009](https://www.youtube.com/watch?v=BVLXCMvRB5E)
 
 “Good Eye” gathered steam and power in each of its three stage outings; even on the album, it sounds tailor-made for an arena. Why Bruce chose to drop it immediately after the tour opener is a question I can’t answer.
 

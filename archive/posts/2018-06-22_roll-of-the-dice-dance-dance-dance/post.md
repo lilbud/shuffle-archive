@@ -2,7 +2,7 @@ Today’s roll of the dice is undeservedly obscure.
 
 Sandwiched in between Bruce’s guitar-heavy Steel Mill jams and his early Columbia character-driven stories is this funky, horn-fueled dance number.
 
-[https://www.youtube.com/watch?v=JMv8WkenPyg](https://www.youtube.com/watch?v=JMv8WkenPyg)
+[Watch on Youtube: The Bruce Springsteen Band - "Dance Dance Dance"](https://www.youtube.com/watch?v=JMv8WkenPyg)
 
 There’s no lyrical depth here, nor should there be, so it doesn’t require or ask for lyrical analysis. If this song is about anything, it’s about losing yourself in music:
 
@@ -26,4 +26,4 @@ Recorded:** N/A
 **First performed:** July 10, 1971 (Lincroft, NJ)  
 **Last performed:** September 1, 1971 (Long Branch, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

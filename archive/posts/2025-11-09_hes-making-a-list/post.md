@@ -13,5 +13,3 @@ Choose *monthly* to receive *only* the monthly announcement of new book releases
 So that’s it. Please sign up if you’re interested in the book series. I’ve already posted a *major* update to the [Bookshelf Collection page](https://estreetshuffle.com/index.php/the-bookshelf-collection/) on the web site, featuring sneak peaks at the first four volumes, so please check that also if you’re so inclined. No more updates here in the main feed, I promise!
 
 Pinky swear.
-
- 

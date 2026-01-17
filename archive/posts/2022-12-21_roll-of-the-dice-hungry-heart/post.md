@@ -2,11 +2,11 @@ Written for The Ramones, arranged after The Beach Boys, built around a Four Seas
 
 It became, of course, one of Bruce Springsteen’s biggest hits. Even today, it remains Springsteen’s best-charting single in North America, behind only “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).”
 
-[https://www.youtube.com/watch?v=boJhWtw-6Gg](https://www.youtube.com/watch?v=boJhWtw-6Gg)
+[Watch on Youtube: Bruce Springsteen - Hungry Heart (Official Audio)](https://www.youtube.com/watch?v=boJhWtw-6Gg)
 
 As legend has it, the origin of “Hungry Heart” dates back to March 23rd 1979, when Bruce met The Ramones backstage at The Fast Lane in Asbury Park. Bruce had already donated two Top 20 singles (“Because the Night” and “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)“) within the past year, so Joey Ramone may have only been half-kidding when he asked Bruce to write them a song.
 
-[https://videopress.com/embed/evxQu4FX](https://videopress.com/embed/evxQu4FX)
+[Watch Video Highlight](https://videopress.com/embed/evxQu4FX)
 
 Bruce took Joey seriously, though, and it didn’t take him long to fulfill the request. He told Dave Marsh that he wrote “Hungry Heart” in “a half hour, or ten minutes, real fast.”
 
@@ -20,17 +20,17 @@ It might have come quickly, but Bruce was likely primed for it. He had already f
 
 …and the instantly irresistible piano riff sounds inspired by The Four Seasons’ “Dawn (Go Away).”
 
-[https://www.youtube.com/watch?v=wV0rNF3_g4E](https://www.youtube.com/watch?v=wV0rNF3_g4E)
+[Watch on Youtube: The Four Seasons - Dawn (Go Away) (Official Audio)](https://www.youtube.com/watch?v=wV0rNF3_g4E)
 
 The song came together quickly, and by mid-June the band was tackling it enthusiastically in the studio. From the outset, “Hungry Heart” sounded brighter and poppier than anything Springsteen had recorded to date. Listening only to the early instrumental take below, you’d think you were hearing the soundtrack for a summer romance.
 
-[https://www.youtube.com/watch?v=m2AzrhEvw1c](https://www.youtube.com/watch?v=m2AzrhEvw1c)
+[Watch on Youtube: Bruce Springsteen - Hungry Heart (instrumental track)](https://www.youtube.com/watch?v=m2AzrhEvw1c)
 
 Steven Van Zandt agreed, envisioning it as something The Beach Boys might have written. “It just had this groove,” he told Peter Ames Carlin in his 2012 biography of Springsteen. “So I said, ‘Let’s get some extra high harmony on it.'”
 
 Van Zandt recruited Mark Volman and Howard Kaylan of The Turtles, who had a #1 hit in 1967 with one of the greatest high-harmony songs of all time, “Happy Together.”
 
-[https://www.youtube.com/watch?v=9ZEURntrQOg](https://www.youtube.com/watch?v=9ZEURntrQOg)
+[Watch on Youtube: Happy Together - The Turtles (1967)](https://www.youtube.com/watch?v=9ZEURntrQOg)
 
 Volman and Kaylan (now performing under the comedy-rock moniker Flo & Eddie) layered Beach Boys-esque vocals onto the E Street Band’s backing track. The influence is unmistakable: compare their “Hungry Heart” backing vocals below…
 
@@ -40,7 +40,7 @@ Volman and Kaylan (now performing under the comedy-rock moniker Flo & Eddie) lay
 
 …with the backgrounds on The Beach Boys’ 1964 opus, “Don’t Worry Baby.”
 
-[https://www.youtube.com/watch?v=X9E1by7PocE](https://www.youtube.com/watch?v=X9E1by7PocE)
+[Watch on Youtube: The Beach Boys-Don't Worry Baby](https://www.youtube.com/watch?v=X9E1by7PocE)
 
 With a gorgeously bright band performance and nostalgically lush harmonies, “Hungry Heart” sports a sunlit backing track that practically swoons for romantic lyrics.
 
@@ -58,7 +58,7 @@ We meet our narrator as he tells his tale to Jack (that’s us) from a neighbori
 
 Although it’s not the only [song on the album to feature a river metaphor](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/), Bruce borrowed this particular one from [one of Bob Dylan’s cocktail napkins](https://estreetshuffle.com/index.php/2021/01/04/cover-me-ballad-of-easy-rider/).
 
-[https://www.youtube.com/watch?v=BWoMz6C7INQ](https://www.youtube.com/watch?v=BWoMz6C7INQ)
+[Watch on Youtube: Roger McGuinn - "Ballad of Easy Rider"](https://www.youtube.com/watch?v=BWoMz6C7INQ)
 
 Dylan scrawled “*The river flows, it flows to the sea/Wherever that river goes, that’s where I want to be”* and handed it to Peter Fonda, who gave it to Roger McGuinn, who developed it into the title song for Fonda’s 1969 film, *Easy Rider*.
 
@@ -105,7 +105,7 @@ The band was united in their support of the song, though. More importantly, so w
 
 There was a problem, though: the song sounded too slow, and Bruce’s voice sounded a bit too gruff for such a smooth track. Bob Clearmountain had already slightly sped up the original recording, but it wasn’t enough.
 
-[https://www.youtube.com/watch?v=bt8noDZSnK8](https://www.youtube.com/watch?v=bt8noDZSnK8)
+[Watch on Youtube: Bruce Springsteen Hungry Heart #2 Alternate Mix](https://www.youtube.com/watch?v=bt8noDZSnK8)
 
 Chuck Plotkin took Clearmountain’s mix and accelerated it even more. “I got it all the way up until the voice started to just Mickey Mouse out on you,” Plotkin recalled to Brian Hiatt in *Stories Behind the Songs*. “We found it couldn’t go even a smidge faster than it ended up.”
 
@@ -121,11 +121,13 @@ That first performance was from October 18, 1980, one day after the album’s re
 
 As October gave way to November, Bruce grew more comfortable with the song on stage, and by the time the band reached Tempe, “Hungry Heart” was sounding more confident and sported its now-familiar ending. The introduction, however, was still missing something.
 
-[https://www.youtube.com/watch?v=ZsADQpw-dD8](https://www.youtube.com/watch?v=ZsADQpw-dD8)
+[Watch on Youtube: Bruce Springsteen - Hungry Heart (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=ZsADQpw-dD8)
 
 As it turned out, the essential element would come two weeks later, and it wouldn’t come from the stage. By November 20th, “Hungry Heart” was already Bruce’s best-selling single and the first to crack the Top 10. In concert, polite attention had evolved into eager anticipation. The audience reception escalated each night until finally his Chicago audience proved unable to wait for him to start singing.
 
-[https://videopress.com/embed/orWUOCsG](https://videopress.com/embed/orWUOCsG)
+[Watch Video Highlight](https://videopress.com/embed/orWUOCsG)
+
+
 
 Paul Rappaport, former VP of Columbia Records, was there that night and shared his recollection in a 2016 blog post.
 
@@ -139,26 +141,28 @@ Paul Rappaport, former VP of Columbia Records, was there that night and shared h
 
 Ironically, a song about the inability to sustain a relationship became a song guaranteed to bring fans and artist together in unison even decades later. “Hungry Heart” has appeared in every tour with the exception of Vote for Change and Bruce’s 1995-97 solo outing. It’s a reliably consistent crowd-pleaser, especially in recent years when Bruce made nightly crowd-surfing forays into the pit.
 
-[https://www.youtube.com/watch?v=8_Rx7V-Z8Ow](https://www.youtube.com/watch?v=8_Rx7V-Z8Ow)
+[Watch on Youtube: Bruce Springsteen - Hungry Heart Crowd Surfing (Toronto 2016)](https://www.youtube.com/watch?v=8_Rx7V-Z8Ow)
 
 For as long as Bruce continues to tour, his audiences will keep singing that first verse to him. If anyone had any reason to dislike “Hungry Heart,” perhaps it was the band for whom the song was originally promised–but even the late Joey Ramone couldn’t hold a grudge.
 
-[https://videopress.com/embed/hWQTcrD4](https://videopress.com/embed/hWQTcrD4)
+[Watch Video Highlight](https://videopress.com/embed/hWQTcrD4)
 
 ---
 
 
 **Bonus #1:** Springsteen has performed “Hungry Heart” well over 700 times over the years, but only three of those were acoustic–and two of those were team-ups. The first was in 1986, when Bruce was joined by Crosby, Stills, Nash & Young at Neil Young’s Bridge School Benefit.
 
-[https://videopress.com/embed/FEcnI0nj](https://videopress.com/embed/FEcnI0nj)
+[Watch Video Highlight](https://videopress.com/embed/FEcnI0nj)
 
 …and the second was with Wolfgang Niedecken in Berlin in 2005.
 
-[https://www.youtube.com/watch?v=bJX68Bch-ME](https://www.youtube.com/watch?v=bJX68Bch-ME)
+[Watch on Youtube: Bruce Springsteen -Hungry Heart (Acoustic)](https://www.youtube.com/watch?v=bJX68Bch-ME)
 
 Believe it or not, though, the first time Bruce played an acoustic “Hungry Heart” in public by himself was only a year ago, at Stand Up for Heroes in November 2021. (Delicate ears might want to skip past the opening joke.)
 
-[https://videopress.com/embed/md0CXS3t](https://videopress.com/embed/md0CXS3t)
+[Watch Video Highlight](https://videopress.com/embed/md0CXS3t)
+
+
 
 **Bonus #2**: If you listened to that 2005 clip above and wondered “Wolfgang who?” there’s a reason why Bruce chose that song for that occasion.
 
@@ -166,7 +170,7 @@ In one of his stranger career moves, Bruce decided to shoot an official video fo
 
 Now all of that would have been odd enough, but in the actual released video, Bruce decided not to use any of the German band’s backing track. Instead, he reverted to the original E Street Band backing track. So now the official video for “Hungry Heart” has Bruce’s 1995 vocals layered on top of the 1980 E Street Band, all while Wolfgang and his band rock out silently on screen before an audience of lucky radio listeners who heard the open call for a free mini-concert earlier that day.
 
-[https://www.youtube.com/watch?v=0My2AqPFpFg](https://www.youtube.com/watch?v=0My2AqPFpFg)
+[Watch on Youtube: Bruce Springsteen - Hungry Heart (Berlin '95 Version)](https://www.youtube.com/watch?v=0My2AqPFpFg)
 
 Bruce released that version as an official single that year, too. What made him decide to record and release such an odd amalgam of a fifteen-year-old song? Who knows, and maybe that’s the point: when you’re feeling bored and restless, sometimes you just need to follow your heart.
 

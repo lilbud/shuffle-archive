@@ -2,7 +2,7 @@
 
 Some songs simply don’t age well.
 
-[https://www.youtube.com/watch?v=6ZYsaQyOHD0](https://www.youtube.com/watch?v=6ZYsaQyOHD0)
+[Watch on Youtube: I Wanna Marry You](https://www.youtube.com/watch?v=6ZYsaQyOHD0)
 
 It’s not the retro, Latin, Drifters-esque arrangement–that sound never goes out of style.
 
@@ -46,7 +46,7 @@ Wait, what now? Our narrator doesn’t even *know* this woman? They haven’t ev
 
 In later years, Bruce would explain that “I Wanna Marry You” is a fantasy–the kind you have about that beautiful person who walks by you once and is never seen again. In that moment you imagine an entire life with them. It’s a sweetly seductive notion–so much so that Bruce succumbed to it more than once, pairing “I Wanna Marry You” in concert with another original song, “[Here She Comes Walking](https://estreetshuffle.com/index.php/2020/09/24/roll-of-the-dice-here-she-comes-walkin/).”
 
-[https://www.youtube.com/watch?v=GRIpM_mrmX4](https://www.youtube.com/watch?v=GRIpM_mrmX4)
+[Watch on Youtube: Bruce Springsteen - I Wanna Marry You (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=GRIpM_mrmX4)
 
 And if the song lingered in the realm of fantasy for the duration, we might concede the conceit. But it doesn’t–when we return from the swooning refrain, Bruce takes us squarely into the domain of the pragmatic.
 
@@ -89,19 +89,19 @@ That doesn’t stop him from professing his fidelity, however:
 
 (In later years, Bruce would tip his hat to the datedness of the song by adding a parenthetical “….hyphenated!”)
 
-[https://www.youtube.com/watch?v=sRnRtG_U4Vw](https://www.youtube.com/watch?v=sRnRtG_U4Vw)
+[Watch on Youtube: Bruce Springsteen I Wanna Marry You East Rutherford 17/11/2005](https://www.youtube.com/watch?v=sRnRtG_U4Vw)
 
 This is a song about desperately wanting to be married–just not necessarily to anyone in particular. Bruce copped to “testing out” the concept of writing about relationships, and “I Want to Marry You” certainly sounds like the kind of song written by someone still trying to figure out if love is even real.
 
 He’d find out soon enough.
 
-[https://www.youtube.com/watch?v=iqQnRaUQJ6M](https://www.youtube.com/watch?v=iqQnRaUQJ6M)
+[Watch on Youtube: Bruce Springsteen - I Wanna Marry You (Pittsburgh 1/16/16) 日本語字幕](https://www.youtube.com/watch?v=iqQnRaUQJ6M)
 
 **Bonus:** “I Wanna Marry You” was one of the earliest songs recorded for *The River*, and it was included in the original one-disc version submitted to (but then revoked from) the record company. Bruce finally released the single-disc version of *The River* in this 2015 box set, *The Ties That Bind: The River Collection*.
 
 What most fans don’t realize, however, is that the version of “I Wanna Marry You” included on that disc is not the same version as the one on the original two-disc *The River.* The backing track is the same recording, but the mix is different, and the vocals are too. Listen below and compare with the audio and lyrics above and you’ll see what I mean.
 
-[https://www.youtube.com/watch?v=WtNHmFYtBf8](https://www.youtube.com/watch?v=WtNHmFYtBf8)
+[Watch on Youtube: I Wanna Marry You](https://www.youtube.com/watch?v=WtNHmFYtBf8)
 
 **I Wanna Marry You  
 Recorded:** July 1979 – May 1980  

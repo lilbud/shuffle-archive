@@ -8,23 +8,23 @@ One of those holdbacks, though, did finally see an official release just last ye
 
 “If I Had a Hammer (The Hammer Song)” is one of the few Seeger sessions tracks that was actually written (rather than adapted) by Pete Seeger. Seeger co-wrote the song in 1949 with Lee Hays and released it in 1950 with The Weavers.
 
-[https://www.youtube.com/watch?v=FSUsyzUFcKs](https://www.youtube.com/watch?v=FSUsyzUFcKs)
+[Watch on Youtube: The Hammer Song (If I had a hammer) - The Weavers - (Lyrics)](https://www.youtube.com/watch?v=FSUsyzUFcKs)
 
 The song wasn’t a hit for The Weavers, but when Peter, Paul, and Mary covered it twelve years later, it shot into the Top Ten and scored a pair of Grammy Awards.
 
-[https://www.youtube.com/watch?v=XxWTDcP9Y5E](https://www.youtube.com/watch?v=XxWTDcP9Y5E)
+[Watch on Youtube: Peter, Paul and Mary - If I Had A Hammer (1963 performance)](https://www.youtube.com/watch?v=XxWTDcP9Y5E)
 
 A year later, the song hit the Top Ten *again* (all the way to #3, in fact) with a very different arrangement by Trini Lopez.
 
-[https://www.youtube.com/watch?v=Kp1z8EzZ5Hs](https://www.youtube.com/watch?v=Kp1z8EzZ5Hs)
+[Watch on Youtube: Trini Lopez - If I Had A Hammer (1963) - HD](https://www.youtube.com/watch?v=Kp1z8EzZ5Hs)
 
 “If I Had a Hammer” quickly established itself as an American folk classic, and over the years it would be covered by everyone from Sam Cooke to Leonard Nimoy.
 
-[https://www.youtube.com/watch?v=Awn_qRWFFsI](https://www.youtube.com/watch?v=Awn_qRWFFsI)
+[Watch on Youtube: If I Had A Hammer (The Hammer Song)](https://www.youtube.com/watch?v=Awn_qRWFFsI)
 
 Naturally, Bruce covered it too, at the very last Seeger session. Running counter to most previous versions, Bruce’s arrangement is more brooding than clarion. Mark Clifford’s banjo and the dual violins (both Soozie and Sam Bardfeld play on this track) take the song back to its roots–it sounds like an arrangement one might have heard in the heartland in the late 1940s.
 
-[https://www.youtube.com/watch?v=ZbrEKXppwMQ](https://www.youtube.com/watch?v=ZbrEKXppwMQ)
+[Watch on Youtube: If I Had a Hammer (The Hammer Song)](https://www.youtube.com/watch?v=ZbrEKXppwMQ)
 
 Unfortunately, Bruce’s vocals are far from their best here. We have to assume that was by intention, since the other songs from these sessions feature Bruce in fine voice, but “If I Had a Hammer” sounds very much like Bruce just rolled out of bed and started singing.
 

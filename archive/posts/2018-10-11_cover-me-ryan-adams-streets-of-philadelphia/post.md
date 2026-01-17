@@ -4,6 +4,4 @@ Ryan chose to perform Bruce’s contemporary Oscar-winner, “[Streets of Philad
 
 For the record though, while the single may have been released in early 1994, the song debuted in the movie *Philadelphia* in 1993. So I still maintain that 1994 was kind of a lost year.
 
-[https://www.youtube.com/watch?v=YAmHl-4m3E8](https://www.youtube.com/watch?v=YAmHl-4m3E8)
-
- 
+[Watch on Youtube: Ryan Adams - Streets Of Philadelphia (6 Music Live Room session)](https://www.youtube.com/watch?v=YAmHl-4m3E8)

@@ -4,13 +4,13 @@ But there’s one thing that tour was *not,* however: a showcase for brand new m
 
 That’s why it was so startling on the evening of June 22, 2006 when Bruce and the Sessions Band took the stage at Madison Square Garden and launched into a song that none present had ever heard before but that sounded perfectly in keeping for the occasion.
 
-[https://www.youtube.com/watch?v=tpeisHYbKdE](https://www.youtube.com/watch?v=tpeisHYbKdE)
+[Watch on Youtube: Bruce Springsteen - American Land (Live tour Video)](https://www.youtube.com/watch?v=tpeisHYbKdE)
 
 “American Land” is (as Bruce introduced it) an immigrant song, and like much of the Seeger Sessions Tour set list, it drew upon traditional musical tropes–in this case, the music of the Irish, who were well-represented among the immigrants Bruce writes about.
 
 (Many have pointed out the similarities the melodies of “American Land” and The Pogues’ “Sally MacLennane”–and there are indeed many–but one can easily hear the echoes of much traditional hornpipe music in “American Land.”)
 
-[https://www.youtube.com/watch?v=Mz8THBdHRyI](https://www.youtube.com/watch?v=Mz8THBdHRyI)
+[Watch on Youtube: Sally MacLennane](https://www.youtube.com/watch?v=Mz8THBdHRyI)
 
 The lyrics of “American Land,” however, have their own very distinct lineage.
 
@@ -18,7 +18,7 @@ In 1947, Pete Seeger was performing for the International Workers’ Order in Pi
 
 But Seeger’s friend and fellow song catcher Jacob Evanson knew Slovak and transcribed both the lyrics and tune, and in 1958 Seeger recorded it–which is why we still today know the song called “He Lies in the American Land.”
 
-[https://www.youtube.com/watch?v=BHe3529OC2c](https://www.youtube.com/watch?v=BHe3529OC2c)
+[Watch on Youtube: He Lies in the American Land](https://www.youtube.com/watch?v=BHe3529OC2c)
 
 *Ah, my God! What is this land of America?*  
 *So many people traveling there*  
@@ -96,7 +96,7 @@ When Bruce re-recorded “American Land” in the studio with the E Street Band,
 *They died to get here a hundred years ago, they’re **still** dying now*  
 *The hands that built the country we’re always trying to keep **out***
 
-[https://www.youtube.com/watch?v=sjxlRNly3Dw](https://www.youtube.com/watch?v=sjxlRNly3Dw)
+[Watch on Youtube: Bruce Springsteen-American Land (Bonus Track)](https://www.youtube.com/watch?v=sjxlRNly3Dw)
 
 That’s Bruce sending another message, reminding us that even today, *especially* today, we treat the people who build and power this country with neglect at best and contempt at worst.
 
@@ -116,17 +116,17 @@ Bruce may have only debuted “American Land” 14 years ago, but he’s played 
 
 My favorite is from *Live in Dublin*. By the end of the Seeger Sessions Tour, the band had “American Land” *down,* and this energetic performance is (for my money, at least) the best performance of the song you are ever likely to see.
 
-[https://www.youtube.com/watch?v=i3yZRNPCBBs](https://www.youtube.com/watch?v=i3yZRNPCBBs)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - American Land (Live In Dublin)](https://www.youtube.com/watch?v=i3yZRNPCBBs)
 
 In my humble opinion, the E Street Band version never quite measured up to the Sessions Band’s performance. The Sessions Band had a brio that the E Street Band–as mighty as they are–can’t quite match. In fact, it may be *because* the E Street Band is so mighty that they’re not as well-suited for “American Land”–they can’t help but rock, and “American Land” is meant to be more sprightly than rocking.
 
 Compare this E Street performance from Glastonbury in 2009 and judge for yourself:
 
-[https://www.youtube.com/watch?v=6lcvpmvcs6U](https://www.youtube.com/watch?v=6lcvpmvcs6U)
+[Watch on Youtube: Bruce Springsteen - American land (Live Glastonbury 2009)](https://www.youtube.com/watch?v=6lcvpmvcs6U)
 
 Admittedly, the E Street Band grew into “American Land” over time (how could you not, after playing it 250 times?), and until it was supplanted as the traditional show closer by “Shout,” for a time it served as Bruce’s summational end-of-show-statement and communal tribute to the band.
 
-[https://www.youtube.com/watch?v=rZ-Ew2pZKtw](https://www.youtube.com/watch?v=rZ-Ew2pZKtw)
+[Watch on Youtube: Bruce Springsteen - AMERICAN LAND - Perth 8 February 2014.](https://www.youtube.com/watch?v=rZ-Ew2pZKtw)
 
 “American Land” went missing after the Perth performance above, making only a single cameo appearance on St. Patrick’s Day during the entire 2016 River Tour. But immediately following the inauguration of Donald Trump, “American Land” pointedly returned for most of the brief Australian tour that followed.
 

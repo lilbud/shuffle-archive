@@ -1,14 +1,14 @@
 In the autumn of 1963, a new television series took to the air and became an immediate hit. *The Outer Limits* was a speculative fiction series in the vein of *The Twilight Zone*, which was still in its original run. Even today, fans of *The Outer Limits* can recite its memorable opening credit sequence word for word.
 
-[https://www.youtube.com/watch?v=FCcdr4O-3gE](https://www.youtube.com/watch?v=FCcdr4O-3gE)
+[Watch on Youtube: The Outer Limits - 1963 Seasons - Intro - HD](https://www.youtube.com/watch?v=FCcdr4O-3gE)
 
 Capitalizing on the popularity of both the show and the current surf rock craze, Michael Z. Gordon wrote an instrumental piece for his band The Marketts and titled it after the hit show, even though “Outer Limits” had nothing to do with the show of the same name.
 
-[https://www.youtube.com/watch?v=jDz1m7ZMq3g](https://www.youtube.com/watch?v=jDz1m7ZMq3g)
+[Watch on Youtube: Michael Z. Gordon and the Marketts - Outer Limits](https://www.youtube.com/watch?v=jDz1m7ZMq3g)
 
 It wasn’t for lack of trying, though. Gordon actually sent his composition to the producers of the television show, who picked up on the song’s similarity to the opening theme from a similar show, *The Twilight Zone*.
 
-[https://www.youtube.com/watch?v=NzlG28B-R8Y](https://www.youtube.com/watch?v=NzlG28B-R8Y)
+[Watch on Youtube: Twilight Zone intro.](https://www.youtube.com/watch?v=NzlG28B-R8Y)
 
 The producers turned Gordon down, but the song became a smash hit anyway, spending fourteen weeks on the Billboard Hot 100 and peaking at #3. It sold over a million copies, garnering enough attention for the network to protest that The Marketts were unfairly profiting from the popularity of the television show.
 
@@ -28,7 +28,7 @@ On Halloween Eve in 1980, Bruce and the E Street Band brought the original River
 
 They took to the stage with a cover of Johnny Fuller’s “[Haunted House](https://estreetshuffle.com/index.php/2021/10/30/cover-me-haunted-house/),” and when it came time to kick off the second set of the evening, the E Street Band pulled out their one-time-only cover of The Marketts’ smash hit.
 
-[https://www.youtube.com/watch?v=72_lUSEeIJg](https://www.youtube.com/watch?v=72_lUSEeIJg)
+[Watch on Youtube: Out of Limits - Bruce Springsteen (live at the Los Angeles Memorial Sports Arena 1981)](https://www.youtube.com/watch?v=72_lUSEeIJg)
 
 Bruce had started using [an instrumental](https://estreetshuffle.com/index.php/2020/12/12/roll-of-the-dice-paradise-by-the-c/) as a second set-opener a few years earlier on the Darkness Tour. Since many audience members tended to straggle back from the restroom for a few minutes after the show resumed, instrumentals tended to be good ways to resume the action while the latecomers took their seats.
 
@@ -37,5 +37,3 @@ Bruce paused that practice on the River Tour, but “Out of Limits” proved a f
 **Outer Limits  
 First performed:** October 31, 1980 (Los Angeles, CA)  
 **Last performed:** October 31, 1980 (Los Angeles, CA)
-
- 

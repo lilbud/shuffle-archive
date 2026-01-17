@@ -6,7 +6,7 @@ But it’s still made me wonder when I first listened to “Heaven’s Wall” o
 
 We’ll discuss the lyrics in a bit, but let’s take a few minutes to listen to the track. In fact, maybe listen twice, because there’s a *lot* going on in “Heaven’s Wall.”
 
-[https://www.youtube.com/watch?v=uRZbX9dJNU0](https://www.youtube.com/watch?v=uRZbX9dJNU0)
+[Watch on Youtube: Heaven's Wall](https://www.youtube.com/watch?v=uRZbX9dJNU0)
 
 See what I mean? In the first twenty seconds alone, we segue from a cowbell count-off to a samba intro to a gospel choir. The first verse hasn’t even kicked in yet, and I’m already dizzy.
 
@@ -48,13 +48,13 @@ Keep on experimenting, Bruce!
 
 Bruce played “Heaven’s Wall” live for the first time on the very day the *High Hopes* album dropped: January 14, 2014 on *Late Night with Jimmy Fallon.* Skip ahead to the 24:10 mark below and you can watch the live debut. (Nils plays the role of “Right Ear Tom” during the solos, because it would be weird to watch Tom duel himself.)
 
-[https://player.vimeo.com/video/84278263?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/84278263?dnt=1&amp;app_id=122963)
+[www.facebook.com/SpringsteenChile](https://player.vimeo.com/video/84278263?dnt=1&app_id=122963)
 
 Personally, I don’t think the songs ever translated perfectly from studio to stage–the E Street Band can’t quite capture live the alchemy of the studio track.
 
 It’s not for lack of trying, though–they gave it several great tries throughout the High Hopes Tour, and each was a lot of fun for both band and fans, starting with this rehearsal take in Cape Town.
 
-[https://www.youtube.com/watch?v=-GZ-Vbr01CI](https://www.youtube.com/watch?v=-GZ-Vbr01CI)
+[Watch on Youtube: Bruce Springsteen - "Heaven's Wall" - Cape Town, Bellville Sound Check](https://www.youtube.com/watch?v=-GZ-Vbr01CI)
 
 Despite playing it for almost half of the entire High Hopes Tour, Bruce hasn’t touched “Heaven’s Wall” since, possibly because Morello’s absence would be noticeable during the solos, more likely because the deep cut wouldn’t have fit well on the River Tour (the only tour since *High Hopes*).
 
@@ -66,4 +66,4 @@ Recorded:** 2007-2013
 **First performed:** January 14, 2014 (New York City, NY)  
 **Last performed:** April 26, 2014 (Atlanta, GA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,11 +2,11 @@ I usually start these pieces off with a bit of background on the singer and the 
 
 Let’s watch her induction speech for Darlene Love at the 2011 Rock and Roll Hall of Fame Induction. (Keep an eye out for an E Street Band cameo!)
 
-[https://videopress.com/embed/TVO0OnCe](https://videopress.com/embed/TVO0OnCe)
+[Watch Video Highlight](https://videopress.com/embed/TVO0OnCe)
 
 Dead center in that montage was one of those uncredited Darlene Love performances Midler alluded to in her induction speech: “He’s a Rebel,” a Number One hit for The Crystals in 1962.
 
-[https://www.youtube.com/watch?v=G_SXJ18EkNw](https://www.youtube.com/watch?v=G_SXJ18EkNw)
+[Watch on Youtube: The Crystals - He's a Rebel (1962)](https://www.youtube.com/watch?v=G_SXJ18EkNw)
 
 Except, of course, that’s not actually The Crystals on that record.
 
@@ -18,7 +18,7 @@ So it was only fitting for Darlene to perform “He’s a Rebel” at her Hall o
 
 After Love performed “[Zip-a-Dee-Doo-Dah](https://estreetshuffle.com/index.php/2018/08/28/meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/)” and “[(Today I Met) The Boy I’m Gonna Marry](https://estreetshuffle.com/index.php/2018/11/12/matr-darlene-love-bruce-springsteen-and-the-cbs-orchestra-today-i-met-the-boy-im-gonna-marry/),” Bette Midler returned to the stage to join Darlene in a faithful rendition of her greatest and only #1 hit, backed by Paul Shaffer and the CBS Orchestra. Oh, and a guest guitarist from New Jersey.
 
-[https://videopress.com/embed/CDn5snuF](https://videopress.com/embed/CDn5snuF)
+[Watch Video Highlight](https://videopress.com/embed/CDn5snuF)
 
 Bruce’s fondness for the girl groups of the 1960s is well-documented, and he’s clearly delighted to be on that stage. But if you were observant, you might have spied another E Street associate, too. That’s Curtis King (who joined Bruce on the Seeger Sessions, Working on a Dream, Wrecking Ball, and High Hopes Tours) on backing vocals.
 
@@ -29,5 +29,3 @@ We’ll look at one of them in just a few days.
 **He’s a Rebel  
 First performed:** March 14, 2011 (New York City, NY)  
 **Last performed:** March 14, 2011 (New York City, NY)
-
- 

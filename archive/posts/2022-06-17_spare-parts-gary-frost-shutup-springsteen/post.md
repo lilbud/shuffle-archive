@@ -1,6 +1,6 @@
 “Shutup Springsteen” isn’t the first song inspired by a certain New Jersey rock star, but it may very well be the cleverest.
 
-[https://www.youtube.com/watch?v=W8hIWrKzQ9c](https://www.youtube.com/watch?v=W8hIWrKzQ9c)
+[Watch on Youtube: Shutup Springsteen - Gary Frost (Official Music Video)](https://www.youtube.com/watch?v=W8hIWrKzQ9c)
 
 Released just a few hours ago by 23-year-old rising country artist (and Bruce’s neighbor) Gary Frost, “Shutup Springsteen” isn’t the slam you might expect from the title–it’s actually a bittersweet song of love and loss, and one obviously written by a fan.
 
@@ -14,6 +14,4 @@ I mentioned that Frost and Springsteen are neighbors, but Gary’s Springsteen c
 
 “Shutup Springsteen” is available now on Spotify and YouTube. If you find yourself in New Jersey this summer, catch one of Gary’s many area appearances. You can find his tour schedule and more music [here](https://www.garyfrostcountry.com/).
 
-[https://open.spotify.com/embed/album/3G4pE4QvuwPOocYlaRko4N?fbclid=IwAR0aKemNAAEOWQHYc_-nkDvWUs3b-629NNHRNTMg45yf7OVvstrOvE8vkx8&amp;utm_source=oembed](https://open.spotify.com/embed/album/3G4pE4QvuwPOocYlaRko4N?fbclid=IwAR0aKemNAAEOWQHYc_-nkDvWUs3b-629NNHRNTMg45yf7OVvstrOvE8vkx8&amp;utm_source=oembed)
-
- 
+[Spotify Embed: Shutup Springsteen](https://open.spotify.com/embed/album/3G4pE4QvuwPOocYlaRko4N?fbclid=IwAR0aKemNAAEOWQHYc_-nkDvWUs3b-629NNHRNTMg45yf7OVvstrOvE8vkx8&utm_source=oembed)

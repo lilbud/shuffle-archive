@@ -6,7 +6,7 @@ In 1981, Bruce and Steve Van Zandt produced *Dedication*, a comeback album for o
 
 Only one of those seven songs became a hit single though: the comical but slyly topical “Out of Work,” which reached as high as #21 on the Billboard Hot 100 in the summer of ’82.
 
-[https://www.youtube.com/watch?v=aKxfxixwdXE](https://www.youtube.com/watch?v=aKxfxixwdXE)
+[Watch on Youtube: Gary U.S. Bonds - Out Of Work](https://www.youtube.com/watch?v=aKxfxixwdXE)
 
 Even if you’ve never heard it before, “Out of Work” might sound a bit familiar. That’s because Bruce built it on the chassis of “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).” Give it another listen and you’ll hear what I mean.
 
@@ -61,7 +61,7 @@ By 1981, the U.S. was experiencing its third straight year of double-digit infla
 
 Bonds always understood the barbed truth hidden beneath the song’s surface. In 2020, just a few weeks in to the Great Shutdown, he released an updated version of “Out of Work,” with cleverly re-written lyrics. (I’m sure Bruce didn’t mind.)
 
-[https://www.youtube.com/watch?v=QFZmCgs_VM0](https://www.youtube.com/watch?v=QFZmCgs_VM0)
+[Watch on Youtube: Out of Work (the home edition)](https://www.youtube.com/watch?v=QFZmCgs_VM0)
 
 Bonds’ new version was even more under the radar than his original version, but it was also way more resonant.
 

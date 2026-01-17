@@ -8,7 +8,7 @@ But there was almost another song even more directorial–one as dark and depres
 
 Bruce wrote “Fade to Black” during his *Nebraska* songwriting period, and had he finished it (judging from the demo below, he was very, very close) it would have been perfectly at home on his 1982 album in style, tone, and content.
 
-[https://www.youtube.com/watch?v=Qu23vlwF8ZM](https://www.youtube.com/watch?v=Qu23vlwF8ZM)
+[Watch on Youtube: Bruce Springsteen - Fade To Black](https://www.youtube.com/watch?v=Qu23vlwF8ZM)
 
 “Fade to Black” begins where “Be True” ends: in a movie theater.
 

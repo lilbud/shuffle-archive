@@ -20,7 +20,7 @@ Fortunately, Joe had a friend to turn to–a friend who was also the producer of
 
 During a lull in the *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*recording sessions, Joe played his mostly complete song for his friend Bruce Springsteen and asked for a musical assist to finish it. Bruce obliged and supplied the music for the chorus, and with that last ingredient Joe finished “1945,” the sweet, romantic and true story of John and Mildred Grushecky.
 
-[https://www.youtube.com/watch?v=AFxZXjSCsgg](https://www.youtube.com/watch?v=AFxZXjSCsgg)
+[Watch on Youtube: 1945](https://www.youtube.com/watch?v=AFxZXjSCsgg)
 
 “Practically every word is true,” Joe told me.
 
@@ -31,5 +31,3 @@ Bruce doesn’t appear on the studio track, and he’s never performed it with J
 **1945  
 Released:** *Coming Home* (1998)  
 **Never performed**
-
- 

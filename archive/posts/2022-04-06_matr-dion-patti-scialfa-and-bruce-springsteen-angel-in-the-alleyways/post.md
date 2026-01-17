@@ -6,7 +6,7 @@ In 2020, Patti Scialfa and Bruce Springsteen lent their talents to Dion for a ne
 
 “Angel in the Alleyways” is another religious-themed track, and once again Patti arranged her vocals for it. This time there’s a video for the song as well, set primarily at the Monastery of St. Bernard de Clairvaux in Miami but with interwoven clips of Patti and Bruce (on harmonica when he’s on screen, although he’s credited on guitar as well) in their home studio.
 
-[https://www.youtube.com/watch?v=cUSMkdZKo6I](https://www.youtube.com/watch?v=cUSMkdZKo6I)
+[Watch on Youtube: Dion - "Angel In The Alleyways" with Patti Scialfa and Bruce Springsteen - Official Music Video](https://www.youtube.com/watch?v=cUSMkdZKo6I)
 
 In the album’s liner notes, Dion wrote: “I gave Patti a simple, raw demo of ‘Angel in the Alleyways,’ with just my guitar and vocal. What you’ll hear now is what Patti made of it. There are five verses, and she treated each of them in a unique way. This is her gift. The lady’s imagination is unlimited. Her husband contributed the right tones on guitar and harmonica. They are my dream team. They truly make me feel loved.”
 

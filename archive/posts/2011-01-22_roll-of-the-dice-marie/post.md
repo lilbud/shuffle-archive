@@ -8,7 +8,7 @@ I’ve never been able to uncover any information about the girl who crushed Bru
 
 I haven’t even been able to figure out her name. But I wouldn’t be surprised to learn it was Marie.
 
-[https://www.youtube.com/watch?v=FP6DQqtAD3I](https://www.youtube.com/watch?v=FP6DQqtAD3I)
+[Watch on Youtube: BRUCE SPRINGSTEEN - marie](https://www.youtube.com/watch?v=FP6DQqtAD3I)
 
 “Marie” was one of the songs Bruce wrote in early 1972 upon returning to New Jersey, unable to make a living in California, and it was one of the songs he recorded that April as publishing demos at Laurel Canyon.
 

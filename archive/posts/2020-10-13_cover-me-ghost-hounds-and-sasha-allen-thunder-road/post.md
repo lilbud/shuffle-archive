@@ -10,7 +10,7 @@ As revealed in a Zoom call this summer, the band selected “Thunder Road” ove
 
 It takes guts to cover “Thunder Road,” but The Ghost Hounds have guts to spare. They’ve arranged the song as a straight-up rocker and fully commit to it. Paired with a gorgeously filmed black and white video that expertly captures the romance of the song, their version of “Thunder Road” demands not just a listen, but a viewing.
 
-[https://www.youtube.com/watch?v=0ZhKFNhQq1U](https://www.youtube.com/watch?v=0ZhKFNhQq1U)
+[Watch on Youtube: Ghost Hounds - Thunder Road ft. Sasha Allen (Official Music Video)](https://www.youtube.com/watch?v=0ZhKFNhQq1U)
 
 “Thunder Road” will grace The Ghost Hounds’ next album as well–said album is in the can and awaiting release.
 
@@ -20,8 +20,4 @@ I couldn’t say it any better.
 
 **Bonus:** Here’s a behind-the-scenes look at the band’s recording session for “Thunder Road.” It’s fun to watch them work out the song.
 
-[https://www.youtube.com/watch?v=16vJ9m8Z2lU](https://www.youtube.com/watch?v=16vJ9m8Z2lU)
-
- 
-
- 
+[Watch on Youtube: Ghost Hounds - Thunder Road ft. Sasha Allen (Behind The Scenes)](https://www.youtube.com/watch?v=16vJ9m8Z2lU)

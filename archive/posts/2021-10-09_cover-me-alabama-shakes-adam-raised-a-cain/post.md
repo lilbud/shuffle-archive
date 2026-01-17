@@ -10,7 +10,7 @@ But to be completely honest, it’s also because I worried that if I featured th
 
 So this is for you, Donna! And for everyone else, if you haven’t seen this before: buckle up.
 
-[https://videopress.com/embed/vvjOkpSn](https://videopress.com/embed/vvjOkpSn)
+[Watch Video Highlight](https://videopress.com/embed/vvjOkpSn)
 
 Wow.
 
@@ -23,5 +23,3 @@ And they did it *right in front of Bruce and the E Street Band!*
 Damn, that took guts. Even Bruce seemed blown away by it.
 
 There, I said it. Bring on the hate mail if you must, but I feel better now.
-
- 

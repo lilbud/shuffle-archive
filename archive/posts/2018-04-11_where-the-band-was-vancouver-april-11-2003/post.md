@@ -16,22 +16,18 @@ I didn’t leave from the moment I arrived back at the venue in the morning; onc
 
 As showtime grew closer, the band arrived for soundcheck, and those of us in position were lucky enough to hear one of the first performances of an early version of “[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/).” The sound was too muffled for us to make out the words, but we heard the music and could tell we were bearing witness to a new song being worked out. That very performance leaked out last year–you can hear it here:
 
-[http://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3?_=1](http://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3?_=1)
 
-<http://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3>
 
 I have to admit: while I appreciate and prefer the lottery system for its relative lack of stress and expended energy, it’s nice to know from the get-go that you’ll have a great place in the pit–and I did. I was about 80th in line, so I knew I’d have a pretty good vantage point. On the advice of new friends, we made a beeline for the left side of the stage rather than the center, and I ended up with just one person between me and the stage.
 
 When the show started, I remember being amazed at the clarity of the sound in the pit–the acoustics were better than anything I’d ever experienced at a concert. And Bruce and the band were so close that I could read their lips as they gave each other cues, and I could tell with unfortunate detail that Bruce was suffering from a cold. (He stepped away from the mic and spotlight frequently to discharge a snot rocket on the stage. When the show’s gotta go on, you do what you gotta do, I guess.)
 
-As for the show itself, Bruce was having a bit of an off-night, probably due to his cold–there was a distinct lack of epic-ness to the set, and the audibles were just painful to those of us close enough to see the setlist and know what we were missing. To this day, I’m still pained that he swapped out “[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” for “[My Hometown.](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” A rare full-band performance of “This Hard Land” was a delightful surprise, though, and easily the highlight of the show for me. And I remember being surprised when Bruce let a fan up front have the mic briefly for “[Waiting on a Sunny Day,](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)” and collectively wincing at the results. (This was before a lucky fan singalong became ritual for that song, IIRC.)
+As for the show itself, Bruce was having a bit of an off-night, probably due to his cold–there was a distinct lack of epic-ness to the set, and the audibles were just painful to those of us close enough to see the setlist and know what we were missing. To this day, I’m still pained that he swapped out “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” for “[My Hometown.](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” A rare full-band performance of “This Hard Land” was a delightful surprise, though, and easily the highlight of the show for me. And I remember being surprised when Bruce let a fan up front have the mic briefly for “[Waiting on a Sunny Day,](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)” and collectively wincing at the results. (This was before a lucky fan singalong became ritual for that song, IIRC.)
 
 https://www.youtube.com/watch?v=Byz3NX5NVMU&t=167s
 
 In short–it wasn’t anywhere close to the top of the list of best shows I’ve seen. I don’t even think it cracked the top half. But I’d had a taste of life in the pit, and I liked it.
 
 I needed another taste, but it would be a few more months before I’d get it.
-
- 
-
- 

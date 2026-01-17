@@ -1,10 +1,10 @@
-Let’s see: Bruce has [written a song about Jesse James](https://estreetshuffle.com/index.php/2020/10/22/roll-of-the-dice-the-ballad-of-jesse-james/), recorded [a second one handed down from the Old West era](http://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/), and namechecked him in still another unreleased demo.
+Let’s see: Bruce has [written a song about Jesse James](https://estreetshuffle.com/index.php/2020/10/22/roll-of-the-dice-the-ballad-of-jesse-james/), recorded [a second one handed down from the Old West era](https://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/), and namechecked him in still another unreleased demo.
 
 I think we can safely see that Bruce has a fascination with the man–so much so that he even wrote a song about the man who killed him.
 
 In the early spring of 1981, during what would become known as the Nebraska sessions, Bruce sat down with his guitar and a tape recorder in his home studio in Colts Neck, and he recorded the opening lines of what promised to be a great Western ballad.
 
-[https://www.youtube.com/watch?v=opRW2ENIKhg](https://www.youtube.com/watch?v=opRW2ENIKhg)
+[Watch on Youtube: Bruce Springsteen Robert Ford / Jesse James : home demo 1](https://www.youtube.com/watch?v=opRW2ENIKhg)
 
 Although we only have the first two lines to consider, it’s not surprising that Bruce started from the notion of two brothers who we know will meet a tragic end.
 
@@ -15,7 +15,7 @@ Towards the end of the year (or possibly early 1982), Bruce returned to the song
 
 Take a listen, and then we’ll take it apart.
 
-[https://www.youtube.com/watch?v=JyrPP1fo7Cg](https://www.youtube.com/watch?v=JyrPP1fo7Cg)
+[Watch on Youtube: Bruce Springsteen Jesse James #1](https://www.youtube.com/watch?v=JyrPP1fo7Cg)
 
 As he hinted at in the earlier demo above, “Robert Ford” is the tale of two brothers, in spirit if not in blood.
 
@@ -66,11 +66,11 @@ Fascinatingly, even though we know “Robert Ford” never made it to *Nebraska*
 
 **Bonus:** here’s one more demo take of “Robert Ford” — no lyrics in this one, though, only harmonies.
 
-[https://www.youtube.com/watch?v=-0wiyoQIBYg](https://www.youtube.com/watch?v=-0wiyoQIBYg)
+[Watch on Youtube: Bruce Springsteen Jesse James #2 harmonies](https://www.youtube.com/watch?v=-0wiyoQIBYg)
 
 **Robert Ford**  
 **Recorded:** September 1981 – April 1982  
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

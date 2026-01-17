@@ -1,10 +1,10 @@
 It’s astonishing how many early Springsteen compositions–even unfinished and abandoned ones–are floating around out there on paper.
 
-I’ve written about several of the entries in Bruce’s “[notebook series](http://estreetshuffle.com/?s=1968+notebook)” before, and it never ceases to astonish me that Bruce was both meticulous and careful enough to record his early work and yet careless enough that so many of them found their way to the public via (presumably) acquaintances close enough to him to have access.
+I’ve written about several of the entries in Bruce’s “[notebook series](https://estreetshuffle.com/?s=1968+notebook)” before, and it never ceases to astonish me that Bruce was both meticulous and careful enough to record his early work and yet careless enough that so many of them found their way to the public via (presumably) acquaintances close enough to him to have access.
 
 Here’s another unfinished one–it’s actually barely even started–and while it’s undated, the idealistic lyrics almost certainly place it during Bruce’s Steel Mill period, when anti-war songs were staples of his songwriting output.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/40381067942_f039cd7e89_o-227x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/40381067942_f039cd7e89_o.jpg)
 
 “All I Wanna Know” is little more than a verse at this point, although we do have some chord notation to give us a hint of what the song would have sounded like, along with what appears to be the first line of a chorus.
 
@@ -25,4 +25,4 @@ But that’s mere speculation on my part–we’ll likely never know for sure, s
 Never recorded**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

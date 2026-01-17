@@ -8,11 +8,11 @@ There may be no better example of this than “Waitin’ on a Sunny Day,” whic
 
 It’s been a centerpiece of every E Street Band tour in the post-reunion era, presumably for four reasons. The first: Bruce just plain likes it. Regardless of how you feel about the song itself, it’s awfully hard to resist the pure joy on Bruce’s face when he sings it.
 
-[https://www.youtube.com/watch?v=TiCxqhu9cio](https://www.youtube.com/watch?v=TiCxqhu9cio)
+[Watch on Youtube: Bruce Springsteen - Waitin' On A Sunny Day (Official Video)](https://www.youtube.com/watch?v=TiCxqhu9cio)
 
 Bruce explained the personal appeal of the song (along with its musical muse) during the taping of his VH1 Storytellers show in 2005:
 
-[https://www.youtube.com/watch?v=hVAygYAbOlo](https://www.youtube.com/watch?v=hVAygYAbOlo)
+[Watch on Youtube: Bruce Springsteen - Waitin' on a Sunny Day - The Story (From VH1 Storytellers)](https://www.youtube.com/watch?v=hVAygYAbOlo)
 
 It might be hard to connect the dots between its Smokey Robinson inspiration and fiddle-forward album arrangement, but it’s easier if you hear the song’s pre-*The Rising* arrangement.
 
@@ -20,13 +20,13 @@ Many fans know that Bruce wrote and recorded an early version of “Waitin’ on
 
 Here it is, recorded in Bremen, Germany on June 17, 1999. It’s windy, and the sound is distant, but the song and lyrics are easily recognizable. Unlike the guitar and violin-centric arrangement of the released version, this early version of “Waitin’ on a Sunny Day” is carried primarily by piano and saxophone–and it’s absolutely majestic.
 
-[https://videopress.com/embed/R6aGJNdF](https://videopress.com/embed/R6aGJNdF)
+[Watch Video Highlight](https://videopress.com/embed/R6aGJNdF)
 
 I can’t help but wonder if more fans would have embraced the song in its original incarnation.
 
 We’ll never know, I suppose, because by the time Bruce released “Waitin’ on a Sunny Day” on *The Rising,* producer Brenden O’Brien had worked his magic on the track, playing bells and glockenspiel over a plodding guitar line, Soozie’s prominent violin, and Roy and Danny playing just about every keyboard imaginable on a single track.
 
-[https://www.youtube.com/watch?v=UfItWcGzdQA](https://www.youtube.com/watch?v=UfItWcGzdQA)
+[Watch on Youtube: Waitin' On A Sunny Day](https://www.youtube.com/watch?v=UfItWcGzdQA)
 
 It’s hard to listen to the album version of “Waitin’ on a Sunny Day” and not feel that something’s just… missing.
 
@@ -97,11 +97,11 @@ When you’re a septuagenarian rock star, you’ve got to be spending a lot of y
 
 Sure there’s a steady influx of new fans as well, but not nearly in as great numbers as there used to be. So it has to be a moment of great joy and fulfillment for Bruce when he sings “Waitin’ on a Sunny Day” in concert, holds the microphone up to a nine, eight, seven, six, five, or even four-year-old child–and that child sings his song back to him.
 
-[https://www.youtube.com/watch?v=RrdG-GSdo7I](https://www.youtube.com/watch?v=RrdG-GSdo7I)
+[Watch on Youtube: Bruce Springsteen - 4yr old sings Waitin on a Sunny Day - Los Angeles 4/27/12](https://www.youtube.com/watch?v=RrdG-GSdo7I)
 
-[https://www.youtube.com/watch?v=laFjPSxCfXI](https://www.youtube.com/watch?v=laFjPSxCfXI)
+[Watch on Youtube: Bruce Springsteen - Waitin on a Sunny Day - with the little girl Hope - Ullevål, June 29, 2016, Oslo](https://www.youtube.com/watch?v=laFjPSxCfXI)
 
-[https://www.youtube.com/watch?v=onp3gqXYfz8](https://www.youtube.com/watch?v=onp3gqXYfz8)
+[Watch on Youtube: Bruce Springsteen and the Bradley Boys singing Waiting on a Sunny Day - Ottawa 10/19/12](https://www.youtube.com/watch?v=onp3gqXYfz8)
 
 Call me sentimental, but those moments are my favorite highlights in every show that features “Waitin’ on a Sunny Day” in the setlist, and I am genuinely disappointed when a show goes by without it.
 
@@ -114,7 +114,7 @@ There may come a day when the name and music of Bruce Springsteen are all but fo
 
 **Bonus:** Here’s the acoustic performance that followed Bruce’s VH1 Storytellers spiel that opened this essay. It’s a one-off arrangement, but it’s absolutely lovely.
 
-[https://www.youtube.com/watch?v=6we0bK-XZaU](https://www.youtube.com/watch?v=6we0bK-XZaU)
+[Watch on Youtube: Bruce Springsteen - Waitin' On A Sunny Day - The Song (From VH1 Storytellers)](https://www.youtube.com/watch?v=6we0bK-XZaU)
 
 **Waitin’ on a Sunny Day  
 Recorded:** Early 2002  
@@ -122,4 +122,4 @@ Recorded:** Early 2002
 **First performed:** July 25,2002 (Asbury Park, NJ)  
 **Last performed:** November 16, 2019 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

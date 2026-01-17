@@ -8,18 +8,16 @@ The assembled artists played six shows during the first eleven days of October, 
 
 And they did: each night, Bruce joined R.E.M. for part of their set (and they joined for part of his). Often Bruce would stay for two songs, but the one constant each night was a Stipe/Springsteen duet on R.E.M.’s 1992 hit, “Man on the Moon.”
 
-[https://www.youtube.com/watch?v=dLxpNiF0YKs](https://www.youtube.com/watch?v=dLxpNiF0YKs)
+[Watch on Youtube: R.E.M. - Man On The Moon (Official HD Music Video)](https://www.youtube.com/watch?v=dLxpNiF0YKs)
 
 “Man on the Moon” was a Top 40 hit for R.E.M. (peaking at #30 on the Hot 100), the second single from a remarkable string of six from *Automatic for the People*.
 
 It may not have been a topical selection, but it was a perfect song choice for Bruce–right in the lower end of his register, with an opportunity for a scorching guitar solo and an Elvis impersonation. Who could ask for more?
 
-[https://www.youtube.com/watch?v=Q6Er9M7iKeU](https://www.youtube.com/watch?v=Q6Er9M7iKeU)
+[Watch on Youtube: R.E.M. and Bruce Springsteen - Man On The Moon, Cleveland October 2, 2004](https://www.youtube.com/watch?v=Q6Er9M7iKeU)
 
 The Vote for Change Tour was ultimately a failed endeavor in that it would take another four years before America saw true political change. But it marked an inflection point for Bruce’s political activism–he’s taken to the stage in support of Democratic presidential candidates ever since.
 
 **Man on the Moon  
 First performed:** October 1, 2004 (Philadelphia, PA)  
 **Last performed:** October 11, 2004 (Washington, DC)
-
- 

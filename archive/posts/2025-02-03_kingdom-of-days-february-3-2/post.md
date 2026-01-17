@@ -6,10 +6,8 @@
 
 **2023:** On night two of their first tour in six years, Bruce and the E Street Band tour debut “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)” and “Thunder Road” in Atlanta.
 
-[https://www.youtube.com/watch?v=SsrrPXL25wM](https://www.youtube.com/watch?v=SsrrPXL25wM)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Darlington County LIVE - Atlanta, GA 2/3/23](https://www.youtube.com/watch?v=SsrrPXL25wM)
 
-[https://www.youtube.com/watch?v=3sG3HKi5b9Q](https://www.youtube.com/watch?v=3sG3HKi5b9Q)
+[Watch on Youtube: Bruce Springsteen - Atlanta 03-02-2023 - Don't Play That Song / Nightshift](https://www.youtube.com/watch?v=3sG3HKi5b9Q)
 
-[https://www.youtube.com/watch?v=CmVCxeyI6jA](https://www.youtube.com/watch?v=CmVCxeyI6jA)
-
- 
+[Watch on Youtube: Bruce Springsteen—Thunder Road—State Farm Arena, Atlanta GA—2/3/2023](https://www.youtube.com/watch?v=CmVCxeyI6jA)

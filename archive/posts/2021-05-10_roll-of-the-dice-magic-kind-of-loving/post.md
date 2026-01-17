@@ -8,7 +8,7 @@ We *think* Bruce played his original song “Magic Kind of Loving” at least th
 
 But that’s okay, because Bruce is focusing more on the music here–“Magic Kind of Loving” is a fierce, guitar-driven rocker designed to get and keep the audience on their feet–it’s more typical of Bruce’s Steel Mill songwriting than his BSB-era output.
 
-[https://www.youtube.com/watch?v=ukHSDaYB-f0](https://www.youtube.com/watch?v=ukHSDaYB-f0)
+[Watch on Youtube: Magic Kind Of Lovin' - Bruce Springsteen Band](https://www.youtube.com/watch?v=ukHSDaYB-f0)
 
 As for the lyrics, there are several lines almost impossible to decipher, but the rest are clear enough for us to grok the song without the mystery lines.
 

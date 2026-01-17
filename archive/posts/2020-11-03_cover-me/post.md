@@ -2,7 +2,7 @@
 
 With those words delivered in Spanish to his Argentinian fans, Bruce sang a tender, earnest cover of León Gieco’s 1978 protest song, “Sólo Le Pido A Dios.”
 
-[https://www.youtube.com/watch?v=KqMszVPa6e4](https://www.youtube.com/watch?v=KqMszVPa6e4)
+[Watch on Youtube: Bruce Springsteen - Sólo le Pido a Dios](https://www.youtube.com/watch?v=KqMszVPa6e4)
 
 It was a one-time-only cover under unusual circumstances: Bruce had done his best to learn it in advance of his show in Buenos Aires, but at the last minute, he decided he hadn’t quite mastered it. Bruce admitted as much from the stage during his show that night, but he promised to film it and share it on the Internet instead.
 
@@ -12,7 +12,7 @@ It only took Bruce two days to honor his promise. On September 16, Bruce’s pos
 
 “Sólo Le Pido A Dios” translates to “I only ask of God,” and it was originally recorded by León Gieco (who once performed with Bruce at the final concert of the Human Rights Now! Tour in 1988) as the first song on his 1978 album, *IV LP*. Since then, it’s become Gieco’s standard closing song at his concerts.
 
-[https://www.youtube.com/watch?v=JqRiD6Phm2U](https://www.youtube.com/watch?v=JqRiD6Phm2U)
+[Watch on Youtube: Sólo le pido a dios - León Gieco](https://www.youtube.com/watch?v=JqRiD6Phm2U)
 
 Gieco’s lyrics are simple but powerful, beseeching his God for the strength to face and fight the forces of injustice, war, and social ills.
 
@@ -51,5 +51,3 @@ It remains as important today as it was when Gieco first recorded it.
 Recorded:** September 14, 2013  
 **Never released**  
 **Never performed**
-
- 

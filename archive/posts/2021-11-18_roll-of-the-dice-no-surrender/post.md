@@ -10,7 +10,7 @@ I guess he just hadn’t listened closely enough to his own song, because what �
 
 There’s only the absence of cynicism.
 
-[https://www.youtube.com/watch?v=txKhQ9cbhgo](https://www.youtube.com/watch?v=txKhQ9cbhgo)
+[Watch on Youtube: No Surrender](https://www.youtube.com/watch?v=txKhQ9cbhgo)
 
 I first heard “No Surrender” when I was fifteen. More accurately, I first heard *about* “No Surrender” when I was fifteen. Before I’d even heard the song for the first time, there was a short-lived parental flap about Bruce’s opening lyrics:
 
@@ -127,21 +127,21 @@ His ambivalence toward it was evident almost immediately. Clearly uncomfortable 
 
 That acoustic studio version has never surfaced in the wild, but Bruce did perform it during the Born in the U.S.A. tour, alternating it with the studio version on any given night–still unsure even a year later which version he was most comfortable with.
 
-[https://www.youtube.com/watch?v=JxVu41Vsthg](https://www.youtube.com/watch?v=JxVu41Vsthg)
+[Watch on Youtube: Bruce Springsteen - No Surrender Acoustic in Toronto](https://www.youtube.com/watch?v=JxVu41Vsthg)
 
 But by the end of the tour, he’d decided. “No Surrender” would go on to make many more acoustic appearances over the years, always with its original album lyrics.
 
-[https://www.youtube.com/watch?v=B2ACfsbVQRc](https://www.youtube.com/watch?v=B2ACfsbVQRc)
+[Watch on Youtube: Bruce Springsteen - No Surrender (Live)](https://www.youtube.com/watch?v=B2ACfsbVQRc)
 
 But apart from an odd arrangement on the Reunion Tour (which thankfully never surfaced again)…
 
-[https://www.youtube.com/watch?v=3pfsUDJTazo](https://www.youtube.com/watch?v=3pfsUDJTazo)
+[Watch on Youtube: Bruce Springsteen: No Surrender (6/15/2000)](https://www.youtube.com/watch?v=3pfsUDJTazo)
 
 …”No Surrender” remains one of Bruce’s most beloved anthems and certainly his most galvanizing, a call to duty for musicians and fans for generations to come.
 
-[https://www.youtube.com/watch?v=LXwJMXo2mXc](https://www.youtube.com/watch?v=LXwJMXo2mXc)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - No Surrender (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=LXwJMXo2mXc)
 
-[https://www.youtube.com/watch?v=MrDkVJ1iSjg](https://www.youtube.com/watch?v=MrDkVJ1iSjg)
+[Watch on Youtube: Bruce Springsteen - No Surrender (Houston 05.06.14) HD](https://www.youtube.com/watch?v=MrDkVJ1iSjg)
 
 **No Surrender  
 Recorded:** October 27, 1983  

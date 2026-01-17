@@ -12,7 +12,7 @@ Joe shared his lyrics with Bruce during a 1995 songwriting session, and Bruce se
 
 Joe recorded released “I’m Not Sleeping” on his 1998 album, *Coming Home.*
 
-[https://www.youtube.com/watch?v=VCVz7Vlvyo4](https://www.youtube.com/watch?v=VCVz7Vlvyo4)
+[Watch on Youtube: I'm Not Sleeping](https://www.youtube.com/watch?v=VCVz7Vlvyo4)
 
 *I never go out, I just stay at home*  
 *Change my address and disconnect the phone*  
@@ -52,9 +52,9 @@ But while Bruce doesn’t appear on Joe’s studio track and hasn’t released h
 
 Joe and Bruce’s performances of “I’m Not Sleeping” are so great, in fact, that I can’t bring myself to choose just one to feature here. So let’s enjoy this pair of clips from 2010 and 2011 and appreciate the artistry and chemistry of the Grushecky/Springsteen songwriting team.
 
-[https://videopress.com/embed/S42c7wmq](https://videopress.com/embed/S42c7wmq)
+[Watch Video Highlight](https://videopress.com/embed/S42c7wmq)
 
-[https://videopress.com/embed/bNmTsDJo](https://videopress.com/embed/bNmTsDJo)
+[Watch Video Highlight](https://videopress.com/embed/bNmTsDJo)
 
 **I’m Not Sleeping  
 Released:** *Coming Home* (1998)  

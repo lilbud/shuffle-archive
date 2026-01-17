@@ -1,12 +1,12 @@
 I suppose a warning might be appropriate here: If you enjoy picturing Bruce Springsteen as a lifelong idealist, you might not want to listen to his (very) early composition, “Change It.”
 
-Written and performed during his Steel Mill era, “Change It” (which I’ve also seen referred to as “Changing Children” on [Brucebase](http://brucebase.wikidot.com/song:changing-children) and [Springsteenlyrics](https://www.springsteenlyrics.com/lyrics.php?song=changingchildren) based on what I believe is a mis-hearing of the lyrics–in fairness, we don’t have any published “official” lyrics from these early songs to work from) is a blisteringly cynical song.
+Written and performed during his Steel Mill era, “Change It” (which I’ve also seen referred to as “Changing Children” on [Brucebase](https://brucebase.wikidot.com/song:changing-children) and [Springsteenlyrics](https://www.springsteenlyrics.com/lyrics.php?song=changingchildren) based on what I believe is a mis-hearing of the lyrics–in fairness, we don’t have any published “official” lyrics from these early songs to work from) is a blisteringly cynical song.
 
 Composed at the height of student activism, Bruce seems to have completely (if temporarily) washed his hands of the whole notion of protest, resistance, and social movements in general.
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=226yWPoQ5zw](https://www.youtube.com/watch?v=226yWPoQ5zw)
+[Watch on Youtube: "Change It (Children)" performed by Steel Mill; Jan 18, 1971](https://www.youtube.com/watch?v=226yWPoQ5zw)
 
 On the surface, “Change It” is fairly typical of Bruce’s material at that time: it serves as a guitar showcase, and it features young Bruce and the band’s new vocalist Robbin Thompson trading off vocals. But when you listen to the lyrics, what seems at first like a contemporary protest song soon reveals itself to be anything but.
 
@@ -26,7 +26,7 @@ On the surface, “Change It” is fairly typical of Bruce’s material at that 
 
 Go back and listen to (or simply read) that second verse again–it’s a direct reference to Buffalo Springfield’s already-classic protest song “[For What It’s Worth](https://estreetshuffle.com/index.php/2020/02/13/cover-me-for-what-its-worth/).”
 
-[https://www.youtube.com/watch?v=gp5JCrSXkJY](https://www.youtube.com/watch?v=gp5JCrSXkJY)
+[Watch on Youtube: Buffalo Springfield - For What It's Worth 1967](https://www.youtube.com/watch?v=gp5JCrSXkJY)
 
 Not only does Bruce quote the song directly in the first couplet, he co-opts the song’s rhymes for the chorus that follows as well (around/down vs. sound/down).
 
@@ -58,7 +58,7 @@ At this point, the song tempo awkwardly changes (prompting Bruce to give the aud
 
 (We can clearly hear the influence of The Isley Brothers’ “[Shout](https://estreetshuffle.com/index.php/2019/09/12/cover-me-shout/)” in the “it’s that time again, for revolution” chorus at around the 5:20 mark above.)
 
-[https://www.youtube.com/watch?v=nEjLFpU2pJ4](https://www.youtube.com/watch?v=nEjLFpU2pJ4)
+[Watch on Youtube: The Isley Brothers - Shout](https://www.youtube.com/watch?v=nEjLFpU2pJ4)
 
 That middle section culminates with probably the least likely lyrics we’d ever expect to hear from Bruce:
 
@@ -89,4 +89,4 @@ Never recorded**
 **First performed:** October 17, 1970 (West Long Branch, NJ)  
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

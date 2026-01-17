@@ -1,16 +1,16 @@
 “The New Timer” is a sleeper that will keep you up all night, just like its protagonist. Narratively one of the strongest songs on [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/), it often goes overlooked and undiscussed by both fans and artist alike.
 
-That may be in part because of the quiet it requires–“The New Timer” demands one’s full attention or none at all. A thematic companion piece to “[Nebraska](http://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)” (much as their respective albums are as well), “The New Timer” is perhaps more story than song. In fact, if you listen closely, you’ll notice that most of the couplets only roughly rhyme. It’s the narrative that’s important here.
+That may be in part because of the quiet it requires–“The New Timer” demands one’s full attention or none at all. A thematic companion piece to “[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)” (much as their respective albums are as well), “The New Timer” is perhaps more story than song. In fact, if you listen closely, you’ll notice that most of the couplets only roughly rhyme. It’s the narrative that’s important here.
 
 Let’s take a listen:
 
-[https://www.youtube.com/watch?v=9btEvvFFrak](https://www.youtube.com/watch?v=9btEvvFFrak)
+[Watch on Youtube: The New Timer](https://www.youtube.com/watch?v=9btEvvFFrak)
 
 The term “new timer” comes from Dale Maharidge’s 1985 book, *Journey to Nowhere: The Saga of the New Underclass.* Bruce read it and was inspired by it to write both “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)” and “The New Timer,” both stories of middle-class workers slipping perilously down the ladder and becoming working poor. He also contributed the introduction for a new edition of the book, published in 1996.
 
 Here’s an interview with the author, featuring extended clips of Bruce discussing why the book resonated so strongly with him.
 
-[https://www.youtube.com/watch?v=WuIcCGQL-zU](https://www.youtube.com/watch?v=WuIcCGQL-zU)
+[Watch on Youtube: Dale Maharidge's Chronicles of Widely-Ignored U.S. Working Poor Inspire Music of Bruce Springsteen](https://www.youtube.com/watch?v=WuIcCGQL-zU)
 
 Lyrically, “The New Timer” is a master class in taut storytelling. Let’s take a look at how Bruce skillfully weaves his tale:
 
@@ -103,7 +103,7 @@ Bruce doesn’t perform “The New Timer” very often. In fact other than a han
 
 On the 2005 tour, however, Bruce took a crack at it, arranging it for the autoharp instead of the guitar–and to my mind, the song works even better–the meanness of the lyrics offset by a heavenly arrangement. Here’s a clip of the very last time Bruce performed the song, late on the Devils and Dust Tour:
 
-[https://www.youtube.com/watch?v=SpJJxMxzoNI](https://www.youtube.com/watch?v=SpJJxMxzoNI)
+[Watch on Youtube: The New Timer (autoharp) Bruce Springsteen 11/19/2005 FL](https://www.youtube.com/watch?v=SpJJxMxzoNI)
 
 “The New Timer” is based on a book written in the mid-eighties; Bruce wrote the song in the mid-nineties. It was still relevant and resonant when he performed it live ten years later, and it’s still timely more than a decade on still. We can but hope and work toward a day when it will sound as dated as it ought to.
 
@@ -113,4 +113,4 @@ Released:** *The Ghost of Tom Joad* (1995)
 **First performed:** November 30, 1995 (Berkely, CA)  
 **Last performed:** November 19, 2005 (Hollywood, FL)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

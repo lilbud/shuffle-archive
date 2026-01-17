@@ -6,7 +6,7 @@
 
 **2017:** Bruce appears on Marc Maron’s *WTF* podcast for a wide-ranging, hour-long conversation, but it’s Bruce’s comments on the president-elect that make national news.
 
-[https://www.youtube.com/watch?v=peVxzWLKmiI](https://www.youtube.com/watch?v=peVxzWLKmiI)
+[Watch on Youtube: WTF with Marc Maron - Bruce Springsteen interview](https://www.youtube.com/watch?v=peVxzWLKmiI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/2017-01-02b.png)
 

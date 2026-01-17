@@ -1,4 +1,4 @@
-“Gypsy Biker” has the soul of Bruce’s classic narrative laments like “Highway Patrolman,” “[The Line](http://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/),” or “[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)”
+“Gypsy Biker” has the soul of Bruce’s classic narrative laments like “Highway Patrolman,” “[The Line](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/),” or “[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)”
 
 In fact, in its first moments, “Gypsy Biker” almost sounds like a self-homage to “The River.” Seriously: listen to the opening bars of both, and you’ll hear the similarity in the rueful harmonica and acoustic guitar intros.
 
@@ -6,7 +6,7 @@ As the song proceeds lyrically, it sounds almost like a rewrite of “[Shut Out 
 
 But where the songs above get lost in contemplative regret, “Gypsy Biker” rages and rocks. It’s an angry song on an angry album, but unlike other *Magic* tracks, Bruce makes no attempt to disguise the point-of-view character’s pain or underline it with political metaphor. “Gypsy Biker” is a song of mourning.
 
-[https://www.youtube.com/watch?v=uLqNoQpOfms](https://www.youtube.com/watch?v=uLqNoQpOfms)
+[Watch on Youtube: Gypsy Biker](https://www.youtube.com/watch?v=uLqNoQpOfms)
 
 The gypsy biker, of course, isn’t the singer. It’s the singer’s brother, whose death sends the singer spiraling into fury and despair as he struggles to come to grips with his loss.
 
@@ -61,17 +61,17 @@ Listen to it, and feel the bitterness and regret in “I didn’t get it right�
 
 When the song first came out, fans would argue about the “white lines.” Do they refer to cocaine or to highway lane dividers? To argue is to miss the point entirely: either way, the singer is self-medicating, distracting himself either with hard drugs or the soporific highway, unable to move past his loss.
 
-Those lines join “Is a dream a lie if it don’t come true, or is it something worse” and “[God have mercy on the man who doubts what he’s sure of](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” in the canon of devastating final Springsteen lyrics.
+Those lines join “Is a dream a lie if it don’t come true, or is it something worse” and “[God have mercy on the man who doubts what he’s sure of](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” in the canon of devastating final Springsteen lyrics.
 
 “Gypsy Biker” was a nightly staple throughout most of the Magic Tour, but following the passing of Danny Federici, Bruce performed it less frequently, dropping it from the setlist for most of the final months of the tour. Perhaps the song’s loss of a dear friend hit too close to home; certainly the song demands a vocal performance that would make it hard to detach oneself from it.
 
 In the clip below, only days after Danny’s passing, you can see and hear the intensity and emotion in Bruce’s delivery. Are those tears or is it sweat the Bruce wipes from his eyes at around the 4:40 mark? Given that performance, it could easily be both.
 
-[https://videopress.com/embed/K0JeVPWW](https://videopress.com/embed/K0JeVPWW)
+[Watch Video Highlight](https://videopress.com/embed/K0JeVPWW)
 
 “Gypsy Biker” was all but retired after the Magic Tour. Since then, it’s made but one appearance (thanks to a sign request), the following year in Charlottesville on the Working on a Dream Tour. It took a while for Bruce to remember how the song goes, but once it clicked, the performance was as intense as ever.
 
-[https://www.youtube.com/watch?v=tAQVj9s-oew](https://www.youtube.com/watch?v=tAQVj9s-oew)
+[Watch on Youtube: Bruce Springsteen - Gypsy Biker (All) - C'Ville-5/5/09](https://www.youtube.com/watch?v=tAQVj9s-oew)
 
 **Gypsy Biker  
 Recorded:** March-May 2007  
@@ -79,4 +79,4 @@ Recorded:** March-May 2007
 **First performed:** September 27, 2007 (Asbury Park, NJ)  
 **Last performed:** May 5, 2009 (Charlottesville, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

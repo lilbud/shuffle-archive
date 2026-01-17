@@ -4,7 +4,7 @@ In 2009, The Buena Vista Social Club released their second album in their *Rhyth
 
 For “Because the Night,” they chose Scottish singer-songwriter KT Tunstall, and together, Tunstall and the BVSC found a Latin groove that highlights and enhances the sultriness of the lyrics (Patti Smith’s version, I should note) more than even Bruce’s original arrangement.
 
-[https://www.youtube.com/watch?v=L8NZvg8qZTU](https://www.youtube.com/watch?v=L8NZvg8qZTU)
+[Watch on Youtube: Rhythms Del Mundo feat. KT Tunstall - Because The Night](https://www.youtube.com/watch?v=L8NZvg8qZTU)
 
 (Alternate [source](https://youtu.be/ETtF3UTNU3I) if your country is blocked from the video above)
 

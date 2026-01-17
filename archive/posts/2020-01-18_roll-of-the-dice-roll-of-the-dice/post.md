@@ -12,7 +12,7 @@ Regardless, Roy’s riffing proved to be the key that unlocked the writer’s bl
 
 This was December 1989, though, and it be more than another two years before the song would see the light of day.
 
-[https://www.youtube.com/watch?v=8vL_3e4w-Ew](https://www.youtube.com/watch?v=8vL_3e4w-Ew)
+[Watch on Youtube: Bruce Springsteen - Roll of the Dice (Audio)](https://www.youtube.com/watch?v=8vL_3e4w-Ew)
 > “At first, I had nothing to say. Throughout ’88 and ’89, every time I sat down to write, I was just sort of rehashing *Tunnel of Love*, except not as good. And it was all just down and nihilistic. It’s funny, because I think people probably associate my music with a lot of positives. But it’s like I really drift into that other thing–I think there’s been a lot of desperate fun in my songs.”
 
 “Desperate fun” is as good a descriptor as any for “Roll of the Dice.”
@@ -51,7 +51,7 @@ In any case, he’s in a state of denial of the trouble that he actually confess
 
 When Bruce performs “Roll of the Dice” in concert, that desperate fun translates well to the stage. Almost immediately, it became a centerpiece of his 1992-93 world tour, and if you listened carefully during the seven-minute(!) coda, you’d hear what in retrospect we can recognize as a startlingly honest admission, and the song changes meaning as a result. In the clip below (from the home video release of *In Concert/MTV Plugged*), Bruce almost seems to drop character along with the melody.
 
-[https://www.youtube.com/watch?v=eFIh-5SYwK0](https://www.youtube.com/watch?v=eFIh-5SYwK0)
+[Watch on Youtube: Bruce Springsteen - Roll of the Dice (from In Concert/MTV Plugged)](https://www.youtube.com/watch?v=eFIh-5SYwK0)
 
 *“Have you ever felt so empty inside, empty like you had nothing left… you’re unsure of yourself, like you weren’t sure who you were anymore… have you ever been so alone that all you wanted to do was hide, and when you reach down inside you can find nothing left inside. You’re unsure of all the things that you love.”*
 
@@ -59,27 +59,27 @@ In 1992, after being out of the public eye for almost four years, a bout of writ
 
 But it was also a way of recasting the gamble at the heart of the song as bravery rather than foolhardiness–that expending the effort required to forge a strong relationship can help save you from the most destructive parts of yourself. Or as he quoted in a 1993 television performance that never was (a story for another day), “everybody needs somebody.”
 
-[https://www.youtube.com/watch?v=NdXifgoJhuA](https://www.youtube.com/watch?v=NdXifgoJhuA)
+[Watch on Youtube: Roll Of The Dice - Bruce Springsteen and The Other Band](https://www.youtube.com/watch?v=NdXifgoJhuA)
 
 When Bruce wrote the lyrics for “Roll of the Dice” in December 1989, Patti was newly pregnant with their first child. When Bruce first performed it more than two years later, he was a married man with two children. That changed him, and it changed the song.
 
 By the time Bruce reclaimed “Roll of the Dice” for the E Street Band late in the Reunion Tour, he had taken the song pretty far from its origins. Fun had taken the driver’s seat, and desperation got shoved to the back.
 
-[https://www.youtube.com/watch?v=wvPNteUx6XY](https://www.youtube.com/watch?v=wvPNteUx6XY)
+[Watch on Youtube: Bruce Springsteen - Roll of the Dice (Live 2000-06-12)](https://www.youtube.com/watch?v=wvPNteUx6XY)
 
 In recent years (and in keeping with the song), your best bet for hearing Bruce play “Roll of the Dice” live is to catch him in casino town–the song has made appearances in Las Vegas, Atlantic City, and the Mohegan Sun casino.
 
-[https://www.youtube.com/watch?v=StM9ZjHaFOc](https://www.youtube.com/watch?v=StM9ZjHaFOc)
+[Watch on Youtube: Bruce Springsteen | Roll Of The Dice - Uncasville - 18/05/2014 (Multicam/Dubbed)](https://www.youtube.com/watch?v=StM9ZjHaFOc)
 
 But among the 120 performances of “Roll of the Dice” Bruce has given us over the years (90% of which were on the 1992-93 tour), two stand out as unique. Each is an acoustic performance that features tender vocals that strip away the narrator’s cockiness and reveal the vulnerability underneath.
 
 The first is an electric piano performance from 2005:
 
-[https://videopress.com/embed/HGkj7z5q](https://videopress.com/embed/HGkj7z5q)
+[Watch Video Highlight](https://videopress.com/embed/HGkj7z5q)
 
 …but my favorite is Bruce’s acoustic guitar performance from Hanover in 2013. I wasn’t there for it, but even on video it’s one of my favorite performances of any song from that tour.
 
-[https://www.youtube.com/watch?v=R9fM-9ssaUE](https://www.youtube.com/watch?v=R9fM-9ssaUE)
+[Watch on Youtube: Bruce Springsteen - Roll of the Dice - Live@AWD Arena Hannover 28.5.2013](https://www.youtube.com/watch?v=R9fM-9ssaUE)
 
 “Roll of the Dice” remains a curiosity. Few fans would rank it among their favorite Springsteen songs, and yet there’s no denying the shot of fun-fueled adrenaline it injects into a show on the rare occasions Bruce performs it (in its original arrangement, at least).
 
@@ -91,4 +91,4 @@ Recorded:** December 1989
 **First performed:** May 6, 1992 (New York City, NY)  
 **Last performed:** February 16, 2017 (Brisbane, Australia)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

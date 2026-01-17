@@ -2,7 +2,7 @@ Bruce Springsteen: Guitar Hero.
 
 If anybody ever laughs when you say those words, make them listen to “The Wind and The Rain” and collect your apology.
 
-[https://www.youtube.com/watch?v=RBEWsZDUTp0](https://www.youtube.com/watch?v=RBEWsZDUTp0)
+[Watch on Youtube: Steel Mill (Bruce Springsteen) - The Wind and the Rain (Live) - Best Version](https://www.youtube.com/watch?v=RBEWsZDUTp0)
 
 As you can tell from the recording, “The Wind and The Rain” dates back a ways–more than a half-century. That performance was from Steel Mill’s Monmouth College gig on April 24, 1970, and the lyrics date back farther still.
 

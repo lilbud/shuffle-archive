@@ -2,13 +2,13 @@ Bruce was in a reggae mood during the autumn of 1979.
 
 Although this was the period when Bruce was writing and recording rockers that would eventually find a home on *The River,* he also tinkered with a few island-inspired songs, most of which never made it passed the home demo stage.
 
-We’ve covered some of them on this blog before: “[You Gotta Be Kind](http://estreetshuffle.com/index.php/2018/02/23/roll-of-the-dice-you-gotta-be-kind/),” for example, or “[Mr. Outside](http://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/)” (which did finally see the light of day 36 years later).
+We’ve covered some of them on this blog before: “[You Gotta Be Kind](https://estreetshuffle.com/index.php/2018/02/23/roll-of-the-dice-you-gotta-be-kind/),” for example, or “[Mr. Outside](https://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/)” (which did finally see the light of day 36 years later).
 
 Here’s another one:
 
-[https://www.youtube.com/watch?v=DaLc8cKeMpE](https://www.youtube.com/watch?v=DaLc8cKeMpE)
+[Watch on Youtube: Bruce Springsteen - You Gotta Fight (For What You Want)](https://www.youtube.com/watch?v=DaLc8cKeMpE)
 
-In content, “You Gotta Fight (For What You Want)” feels like a precursor to “[Two Hearts,](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” and given the time frame in which they were both recorded (the former in the autumn of 1979, the latter just a few months later in February, 1980), it’s quite possible that “You Gotta Fight” did indeed give rise to the classic track from *The River.*
+In content, “You Gotta Fight (For What You Want)” feels like a precursor to “[Two Hearts,](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” and given the time frame in which they were both recorded (the former in the autumn of 1979, the latter just a few months later in February, 1980), it’s quite possible that “You Gotta Fight” did indeed give rise to the classic track from *The River.*
 
 Some of the lyrics are bluffed, but most of them are complete–certainly enough for us to tell that “You Gotta Fight (For What You Want)” is very much a platonic pep talk in the “Two Hearts” vein.
 
@@ -41,13 +41,9 @@ The earlier song comes off like mansplaining (even if that wasn’t a term or a 
 
 Still, “You Gotta Fight (For What You Want)” provides insight into the influences and themes that would before long inform *The River.*
 
- 
-
 **You Gotta Fight (For What You Want)  
 Recorded:** Late 1979 (demo)  
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
- 
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

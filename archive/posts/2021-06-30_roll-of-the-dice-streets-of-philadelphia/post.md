@@ -2,23 +2,23 @@ Will the real “Streets of Philadelphia” please stand up?
 
 Is it the one that plays over the opening credits of Jonathan Demme’s film, *Philadelphia*?
 
-[https://videopress.com/embed/L1P2Lcad](https://videopress.com/embed/L1P2Lcad)
+[Watch Video Highlight](https://videopress.com/embed/L1P2Lcad)
 
 Or is it the four-minute-plus track released on the movie’s soundtrack?
 
-[https://www.youtube.com/watch?v=tKdk97y2Wjg](https://www.youtube.com/watch?v=tKdk97y2Wjg)
+[Watch on Youtube: Streets of Philadelphia](https://www.youtube.com/watch?v=tKdk97y2Wjg)
 
 Or the trimmed-down single?
 
-[https://www.youtube.com/watch?v=EtnCBZ3Xf50](https://www.youtube.com/watch?v=EtnCBZ3Xf50)
+[Watch on Youtube: Bruce Springsteen - Streets of Philadelphia](https://www.youtube.com/watch?v=EtnCBZ3Xf50)
 
 Or the *super*-trimmed down version from *Greatest Hits*? (It clocks in almost a full minute shorter than the one on the movie soundtrack.)
 
-[https://www.youtube.com/watch?v=1Z0jSNaIc4Q](https://www.youtube.com/watch?v=1Z0jSNaIc4Q)
+[Watch on Youtube: Streets of Philadelphia (Single Edit)](https://www.youtube.com/watch?v=1Z0jSNaIc4Q)
 
 Or is it the version from Bruce’s video, featuring a completely different vocal, performed live while Bruce walked the streets of Philly with a hidden microphone?
 
-[https://www.youtube.com/watch?v=4z2DtNW79sQ](https://www.youtube.com/watch?v=4z2DtNW79sQ)
+[Watch on Youtube: Bruce Springsteen - Streets of Philadelphia (Official Video)](https://www.youtube.com/watch?v=4z2DtNW79sQ)
 
 Or could it be the version from the rarely seen video Bruce filmed in 1994?
 
@@ -28,7 +28,7 @@ Or could it be the version from the rarely seen video Bruce filmed in 1994?
 
 Oh, and then there’s the legendary version featuring jazz legends Ornette Coleman and Little Jimmy Scott, which remains unreleased to this day, although we can hear it playing during an emotional scene in *Philadelphia.*
 
-[https://videopress.com/embed/Bvgy1B4q](https://videopress.com/embed/Bvgy1B4q)
+[Watch Video Highlight](https://videopress.com/embed/Bvgy1B4q)
 
 That’s a whole lot of versions for a one-off, between-albums single, but “Streets of Philadelphia” is no ordinary song, not even for Bruce.
 
@@ -95,37 +95,37 @@ She was right. Upon release, “Streets of Philadelphia” became more than just
 
 Combined with gushing critical acclaim, the song’s popularity powered “Streets of Philadelphia’ through awards season, garnering Bruce his first Oscar…
 
-[https://www.youtube.com/watch?v=362SVFvDuYk](https://www.youtube.com/watch?v=362SVFvDuYk)
+[Watch on Youtube: Bruce Springsteen - Streets of Philadelphia Oscars 1994 4K*](https://www.youtube.com/watch?v=362SVFvDuYk)
 
 …a Golden Globe Award…
 
-[https://www.youtube.com/watch?v=En4D3L5EGZc?start=1](https://www.youtube.com/watch?v=En4D3L5EGZc?start=1)
+[Watch on Youtube: Bruce Springsteen Wins Best Original Song - Golden Globes 1994](https://www.youtube.com/watch?v=En4D3L5EGZc?start=1)
 
 …four Grammy Awards…
 
-[https://www.youtube.com/watch?v=2D1EdYtNqVc](https://www.youtube.com/watch?v=2D1EdYtNqVc)
+[Watch on Youtube: Bruce Springsteen's "Streets of Philadelphia" opens the 37th Annual Grammy Awards](https://www.youtube.com/watch?v=2D1EdYtNqVc)
 
 …and an MTV Video Music Award.
 
-[https://www.youtube.com/watch?v=hFqswzMmnI4](https://www.youtube.com/watch?v=hFqswzMmnI4)
+[Watch on Youtube: streets of philadelphia (live ) bruce springsteen](https://www.youtube.com/watch?v=hFqswzMmnI4)
 
 Well aware that his image as an All-American Male made him an especially powerful messenger for the theme of the song and movie, Bruce used his podium moments to express his compassion and encourage acceptance.
 
 Bruce wasn’t finished exploring this theme. Well after he released “Streets of Philadelphia,” he recorded a song with the E Street Band called “[Waiting on the End of the World](https://estreetshuffle.com/index.php/2018/06/28/roll-of-the-dice-waiting-on-the-end-of-the-world/),” which contains lyrics so similar to “Streets of Philadelphia” that it may actually be a derivative of an early version of it.
 
-[https://www.youtube.com/watch?v=9VdUYYw6wtA](https://www.youtube.com/watch?v=9VdUYYw6wtA)
+[Watch on Youtube: Bruce Springsteen - Waiting On The End Of The World](https://www.youtube.com/watch?v=9VdUYYw6wtA)
 
 A quarter-century on, “Streets of Philadelphia” is not only regarded as one of the greatest songs ever to grace a motion picture, it’s also enshrined in the Rock and Roll Hall of Fame’s 500 Songs That Shaped Rock and Roll. And while it may have marked the end of Bruce’s commercial popularity, it kick-started the next phase of his career and cemented his enduring critical popularity.
 
 With that kind of pedigree, one would think Bruce would perform it more frequently. Yet, “Streets of Philadelphia” remains a relative rarity outside of his acoustic tours. Why doesn’t Bruce play it more often? Perhaps because “Streets of Philadelphia” is too intimate and frail a song to translate well to a muscular band arrangement. I’d certainly argue in favor of his acoustic performances when selecting his best versions.
 
-[https://www.youtube.com/watch?v=B4QOJN5Ezoc](https://www.youtube.com/watch?v=B4QOJN5Ezoc)
+[Watch on Youtube: Bruce Springsteen ☜❤️☞ Streets of Philadelphia {Solo 🎸} Audio](https://www.youtube.com/watch?v=B4QOJN5Ezoc)
 
-[https://www.youtube.com/watch?v=5xHfdR5n99w](https://www.youtube.com/watch?v=5xHfdR5n99w)
+[Watch on Youtube: Bruce Springsteen - Streets of Philadelphia - Live Piano](https://www.youtube.com/watch?v=5xHfdR5n99w)
 
 Still, “Streets of Philadelphia” is a pretty sure bet when Bruce brings the band to Philly, as it remains a reliable way to please people who like to cheer for their town’s name.
 
-[https://www.youtube.com/watch?v=qmqYhkmaCIE](https://www.youtube.com/watch?v=qmqYhkmaCIE)
+[Watch on Youtube: Streets of Philadelphia - Springsteen - Philadelphia Sept 9, 2016](https://www.youtube.com/watch?v=qmqYhkmaCIE)
 
 So if “Streets of Philadelphia” is on your chase list, you’ve still got a pretty good chance of catching it live… as long as you make the trip to the City of Brotherly Love.
 

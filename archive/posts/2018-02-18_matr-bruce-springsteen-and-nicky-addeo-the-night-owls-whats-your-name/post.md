@@ -4,11 +4,11 @@ Nicky Addeo isn’t a household name, but in 1963 he released a song called “G
 
 “When you wanted to make your move, you waited for Nicky Addeo to sing [Gloria](https://youtu.be/7TSwtof6LTQ),” Bruce explained that evening in Asbury Park. Bruce got a chance to play the song with Nicky that night, and he stayed on stage for several songs, including “What’s Your Name?”
 
-[https://www.youtube.com/watch?v=GbhmYTRWtCo](https://www.youtube.com/watch?v=GbhmYTRWtCo)
+[Watch on Youtube: "What's Your Name" featuring Bruce Springsteen ~ Video by Rose A Montana](https://www.youtube.com/watch?v=GbhmYTRWtCo)
 
 “What’s Your Name” was released in 1962 by Don and Juan. It was their only hit, reaching #7 on the Billboard pop chart. The boys’ cover is pretty true to the original.
 
-[https://www.youtube.com/watch?v=vrZf3vRHmkw](https://www.youtube.com/watch?v=vrZf3vRHmkw)
+[Watch on Youtube: What's Your Name?/Don and Juan](https://www.youtube.com/watch?v=vrZf3vRHmkw)
 
 **What’s Your Name  
 First performed:** October 1965 (Monmouth County, NJ)  

@@ -10,13 +10,13 @@ At the opening show of their Back Door residency, The Bruce Springsteen Band was
 
 Reed’s song was a decade old by that time and already a standard for any self-respecting blues band. Notching in at #3 on the Billboard R&B chart, “Bright Lights, Big City” also charted at #58 on the Hot 100, earning it broad mainstream appeal as well.
 
-[https://www.youtube.com/watch?v=Q5gTmNKrj9s](https://www.youtube.com/watch?v=Q5gTmNKrj9s)
+[Watch on Youtube: Bright Lights, Big City](https://www.youtube.com/watch?v=Q5gTmNKrj9s)
 
 For The Bruce Springsteen Band, “Bright Lights, Big City” was an excuse to strut their instrumental stuff. Jimmy Reed’s original wasn’t even three minutes long; Bruce’s version was *fourteen*.
 
 Bookended by cool, smoky grooves, the band truly breaks loose in the middle segment where we get one jaw-dropping solo after another. Check out Southside’s harp solo at the four-minute mark, for example, and then again just before the six-minute mark.
 
-[https://videopress.com/embed/bejHBCRN](https://videopress.com/embed/bejHBCRN)
+[Watch Video Highlight](https://videopress.com/embed/bejHBCRN)
 
 Sancious gets his turn shortly before the seven-minute mark, and Bruce reminds us why he’d earned his hot-shot guitarist reputation at about 8:30.
 
@@ -28,10 +28,8 @@ Bruce would end his eponymous band by that summer; by the fall, he’d begin tou
 
 Bruce joined John for four songs that night, one of which was a cover of the Jimmy Read classic. That performance was captured, too. It sounds a lot more like what we’d expect a Springsteen cover of “Bright Lights, Big City” to sound like, but I prefer the swinging 1972 version to the hard-rocking ’84 one.
 
-[https://videopress.com/embed/2fWEho97](https://videopress.com/embed/2fWEho97)
+[Watch Video Highlight](https://videopress.com/embed/2fWEho97)
 
 **Bright Lights, Big City  
 First performed:** September 1, 1971 (Long Branch, NJ)  
 **Last performed:** June 1, 1984 (Asbury Park, NJ)
-
- 

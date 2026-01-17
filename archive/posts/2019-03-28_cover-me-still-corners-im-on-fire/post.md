@@ -4,6 +4,4 @@ Tessa Murray’s vocals are well-suited for Bruce’s dream-like lyrics, but she
 
 Take a listen to this worthy addition to the thick catalog of “I’m on Fire” covers.
 
-[https://www.youtube.com/watch?v=ucRIVtLmqPE](https://www.youtube.com/watch?v=ucRIVtLmqPE)
-
- 
+[Watch on Youtube: Still Corners - I'm On Fire (Live on KEXP)](https://www.youtube.com/watch?v=ucRIVtLmqPE)

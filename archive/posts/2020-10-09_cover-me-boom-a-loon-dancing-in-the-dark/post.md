@@ -8,8 +8,6 @@ These guys do both.
 
 Featuring guest artists Robert J. Hunter on vocals and Eddy Smith on keys, BOOM a LOON reinvents Bruce’s greatest hit and gives it an irresistible groove.
 
-[https://www.youtube.com/watch?v=BprPZ4f3JAw](https://www.youtube.com/watch?v=BprPZ4f3JAw)
+[Watch on Youtube: DANCING IN THE DARK | Bruce Springsteen | Funk Cover ft. ROBERT J. HUNTER & EDDY SMITH](https://www.youtube.com/watch?v=BprPZ4f3JAw)
 
 BOOM a LOON releases new music every Sunday–check out their latest on their [YouTube page](https://www.youtube.com/channel/UCHDzLCAF_i6ezDMib3yMdHA).
-
- 

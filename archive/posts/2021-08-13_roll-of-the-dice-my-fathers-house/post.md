@@ -4,7 +4,7 @@ He passed away peacefully in his sleep after a swift and vicious stealth attack 
 
 My dad died, and “My Father’s House” has been lodged in my brain all day, although not for the reason you might think if you’re familiar with the song.
 
-[https://www.youtube.com/watch?v=0ZsVLKGpKKQ](https://www.youtube.com/watch?v=0ZsVLKGpKKQ)
+[Watch on Youtube: Bruce Springsteen - My Father's House (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=0ZsVLKGpKKQ)
 
 My relationship with my father was not like Bruce’s with his own. My dad wasn’t my hero, and he certainly wasn’t my foe.
 
@@ -24,7 +24,7 @@ But that day meant everything to me. Even at the time, I knew it was a turning p
 
 I cried tears of release and relief that night, and I listened to *Nebraska* in the dark of my room, waiting for “My Father’s House” near the end of the album.
 
-[https://www.youtube.com/watch?v=jj673EsRslk](https://www.youtube.com/watch?v=jj673EsRslk)
+[Watch on Youtube: My Father's House](https://www.youtube.com/watch?v=jj673EsRslk)
 
 I was far too young and too close to my own daddy issues to understand or relate to Bruce’s history with his father. But even on first listen a couple of years earlier, I recognized “My Father’s House” instantly for what it was, for what Bruce meant it to be: an intervention.
 
@@ -120,5 +120,3 @@ Recorded:** May 25, 1982
 **Last performed:** September 4, 2021 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
- 

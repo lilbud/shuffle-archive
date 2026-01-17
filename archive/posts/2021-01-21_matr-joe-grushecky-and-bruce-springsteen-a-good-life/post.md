@@ -16,7 +16,7 @@ It really does.
 
 Here’s their finished title track, with Bruce on lead guitar and paired vocals.
 
-[https://www.youtube.com/watch?v=SHqPgYvDaNo](https://www.youtube.com/watch?v=SHqPgYvDaNo)
+[Watch on Youtube: A Good Life](https://www.youtube.com/watch?v=SHqPgYvDaNo)
 
 Unlike *American Babylon*, which features Springsteen on almost every track, Bruce only appears on four tracks on *A Good Life* and only sings on three. One of those tracks was their co-authored “[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/),” which would have been a great thematic fit on *American Babylon.*
 
@@ -26,7 +26,7 @@ Maybe that’s why Bruce selected those tracks in particular when Joe shared his
 
 Joe admits it’s a fun one to play live, too, so it’s surprising that they’ve only played it together twice–once on the Jersey shore shortly after the album’s release in 2006, and again five years later at a benefit show in Pittsburgh (where Bruce even took lead vocals for a verse).
 
-[https://videopress.com/embed/Al0LrsUh](https://videopress.com/embed/Al0LrsUh)
+[Watch Video Highlight](https://videopress.com/embed/Al0LrsUh)
 
 When I point out its relative rarity in concert, Joe admits “A Good Life” has taken a back seat in recent years to older fan favorites, but he hints that just might change on the other side of quarantine.
 
@@ -37,5 +37,3 @@ Recorded:** February 2006
 **Released:** *A Good Life* (2006)  
 **First performed:** December 2, 2006 (Sayreville, NJ)  
 **Last performed:** November 4, 2011 (Pittsburgh, PA)
-
- 

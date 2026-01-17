@@ -4,10 +4,8 @@ But their contribution wasn’t just another of the countless “[I’m on Fire]
 
 Not many fans would rank “[The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)” very high in Bruce’s catalog, but if Bruce had arranged the song like the Blue Bonnets did, I bet a whole lot more would. Take a listen:
 
-[https://www.youtube.com/watch?v=uygE2fvfL2E](https://www.youtube.com/watch?v=uygE2fvfL2E)
+[Watch on Youtube: The Angel](https://www.youtube.com/watch?v=uygE2fvfL2E)
 
 That’s a seriously good arrangement and performance–so much so that it I wish Bruce would give it a go in concert next time around.
 
 If anyone has any other information about this band, I’d love to know.
-
- 

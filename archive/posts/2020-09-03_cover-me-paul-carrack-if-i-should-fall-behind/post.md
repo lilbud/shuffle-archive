@@ -4,10 +4,8 @@ Carrack has had a remarkable career recording and performing with seminal artist
 
 Carrack has an amazing voice, but somehow his solo work has attracted far less notice than the hits he made famous for his bands.
 
-His solo recordings are well worth seeking out, though. Case in point: here’s Carrack’s wonderful cover of Bruce’s “[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” from his 2012 album, *Good Feeling.*
+His solo recordings are well worth seeking out, though. Case in point: here’s Carrack’s wonderful cover of Bruce’s “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” from his 2012 album, *Good Feeling.*
 
-[https://www.youtube.com/watch?v=KrKjjlghIwk](https://www.youtube.com/watch?v=KrKjjlghIwk)
+[Watch on Youtube: If I Should Fall Behind (Paul Carrack Official)](https://www.youtube.com/watch?v=KrKjjlghIwk)
 
 Often hailed for his beautiful voice, Carrack is an accomplished instrumentalist as well–other than the drums (played by Carrack’s son Jack). that’s Paul on every instrument in the track.
-
- 

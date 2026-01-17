@@ -2,7 +2,7 @@ On the heels of the River Tour, firearms showed up with surprising frequency as 
 
 But as 1981 turned to 1982, Bruce started to really mine the theme with his acoustic home demos of “Ruled by the Gun,” which appear to have been recorded around the same time Bruce was working on “[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)” for the band.
 
-[https://www.youtube.com/watch?v=APeHGkZfjTs](https://www.youtube.com/watch?v=APeHGkZfjTs)
+[Watch on Youtube: Bruce Springsteen Ruled By The Gun #1](https://www.youtube.com/watch?v=APeHGkZfjTs)
 
 There are two home demos of “Ruled by the Gun” circulating in the wild, and both are unfortunately heavily bluffed. Still, we can make out enough of the lyrics to clearly recognize Bruce’s theme.
 
@@ -23,7 +23,7 @@ The cathedral steps reference suggest a linkage to “Bells of San Salvador,” 
 
 In this next, longer outtake, Bruce’s lyrics are more confident, and he’s refining his music as well.
 
-[https://www.youtube.com/watch?v=-idZxpce7IY](https://www.youtube.com/watch?v=-idZxpce7IY)
+[Watch on Youtube: Bruce Springsteen Ruled By The Gun #3](https://www.youtube.com/watch?v=-idZxpce7IY)
 
 There’s a new third verse now, one that seems to almost evoke “Murder Incorporated.”
 
@@ -39,7 +39,7 @@ But that’s a topic for another day.
 
 **Bonus**: Here’s an additional outtake of “Ruled by the Gun.” No lyrics in this one, just some harmonies and guitar.
 
-[https://www.youtube.com/watch?v=pvJXJPjk9NM](https://www.youtube.com/watch?v=pvJXJPjk9NM)
+[Watch on Youtube: Bruce Springsteen Ruled By The Gun #2 harmonies & guitar solos](https://www.youtube.com/watch?v=pvJXJPjk9NM)
 
 **Ruled by the Gun  
 Recorded:** September 1981 – May 1982 (demos only)  

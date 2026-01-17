@@ -16,10 +16,10 @@ But last March, back in the earliest, scariest days of the pandemic, Foster and 
 
 It’s great, but fair warning: it may shred you. It certainly did me.
 
-[https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F776699602&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F776699602&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
+[Radio Nowhere by TheWildYears](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F776699602&show_artwork=true&maxheight=1000&maxwidth=758)
+
+
 
 The Wild Years’ version of “Radio Nowhere” is no anthem. It’s poignant, plaintive, lonely, and it takes me immediately back to those frightening times.
 
 A great cover is more than just a great performance–it reveals something new and fresh about a song you thought you knew inside and out. The Wild Years check both boxes with their cover of “Radio Nowhere” — it’s both lovely and revelatory.
-
- 

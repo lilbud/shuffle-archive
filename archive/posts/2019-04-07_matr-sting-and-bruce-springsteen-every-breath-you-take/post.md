@@ -8,13 +8,13 @@ Their on-stage chemistry and obvious love for each other’s music was evident f
 
 By that time, of course, “Every Breath You Take” was already a classic. Even though the song was only five years old in 1988, it wasn’t just a number one song the year it came out, it was *the* number one song for the entire year, riding the top of the charts in the U.S. for a full eight weeks. Heck, it was the fifth-highest selling single for the entire *decade*.
 
-[https://www.youtube.com/watch?v=OMOGaugKpzs](https://www.youtube.com/watch?v=OMOGaugKpzs)
+[Watch on Youtube: The Police - Every Breath You Take (Official Music Video)](https://www.youtube.com/watch?v=OMOGaugKpzs)
 
 So by 1988, with The Police in his rear-view mirror, it was no wonder that Sting clung to their signature song and made it his nightly closer.
 
 The tour finale was in Buenos Aires, and it was filmed for television broadcast. In the clip below, we can see just how comfortable they’d become in each other’s presence and how much joy they took in playing together. Check it out, and just try to keep from smiling.
 
-[https://www.youtube.com/watch?v=6GYt6mzQ3Xo](https://www.youtube.com/watch?v=6GYt6mzQ3Xo)
+[Watch on Youtube: Sting, Bruce Springsteen - Every Breath You Take (Live)](https://www.youtube.com/watch?v=6GYt6mzQ3Xo)
 
 (I love the moment at about the one minute mark where Sting does his best Bruce impression!)
 
@@ -23,5 +23,3 @@ Bruce and Sting have remained close friends, and they’ve performed with or for
 **Every Breath You Take**  
 **First performed:** September 17, 1988 (Montreal, Canada)  
 **Last performed:** October 1, 2011 (New York City, NY)
-
- 

@@ -6,7 +6,7 @@ Unlike the thematically similar “[Candy’s Room](https://estreetshuffle.com/i
 
 Take a listen:
 
-[https://www.youtube.com/watch?v=BWJvdt7jvdw](https://www.youtube.com/watch?v=BWJvdt7jvdw)
+[Watch on Youtube: Maria's Bed](https://www.youtube.com/watch?v=BWJvdt7jvdw)
 
 God*dammit,* that’s a good song.
 
@@ -21,7 +21,7 @@ But “Maria’s Bed” is also full of callbacks to and swipes from other Sprin
 *I got a sweet soft fever rushing around my head*  
 *I’m gonna sleep tonight in Maria’s bed*
 
-Four lines in, and we might as well be listening to “[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/):”
+Four lines in, and we might as well be listening to “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/):”
 
 *I work for the county out on ninety five*  
 *All day I hold a red flag and watch the traffic pass me by*  
@@ -41,7 +41,7 @@ Those first two lines made a previous appearance in “[Further On (Up the Road)
 
 Did Bruce recycle that lyric on purpose, or is this another case (of which there are many) of Bruce taking the seed of a song in two different directions at the same time?
 
-I tend to side toward the latter as the more likely explanation: we already know that *Devils & Dust* contains songs written and recorded a decade or more before the release of the album (Bruce [once disclosed](https://www.nytimes.com/2005/04/24/arts/music/bruce-almighty.html) that most of the album was written during the Ghost of Tom Joad Tour, and “[All the Way Home](http://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)” dates back even further), so it’s very possible that “Maria’s Bed” was a sibling–perhaps even an older sibling–to “Further On (Up the Road).”
+I tend to side toward the latter as the more likely explanation: we already know that *Devils & Dust* contains songs written and recorded a decade or more before the release of the album (Bruce [once disclosed](https://www.nytimes.com/2005/04/24/arts/music/bruce-almighty.html) that most of the album was written during the Ghost of Tom Joad Tour, and “[All the Way Home](https://estreetshuffle.com/index.php/2019/09/08/roll-of-the-dice-all-the-way-home/)” dates back even further), so it’s very possible that “Maria’s Bed” was a sibling–perhaps even an older sibling–to “Further On (Up the Road).”
 
 Either way, it’s an odd choice of phrasing for a song like “Maria’s Bed.” It works perfectly in “Further On (Up the Road)” but here it’s jarring. Perhaps that’s the point, though: Bruce devotes a few lines of grim, dark shading in order to more effectively offset the remainder of the song, which paints Maria in primary colors:
 
@@ -91,17 +91,17 @@ But regardless of how one chooses to interpret the song, there’s no denying it
 
 We know Bruce had to at least consider it, because he frequently summoned an imaginary E Street Band (to a surprisingly powerful effect) while playing it acoustically on the Devils & Dust tour.
 
-[https://www.youtube.com/watch?v=rNM38kPJaEM](https://www.youtube.com/watch?v=rNM38kPJaEM)
+[Watch on Youtube: bruce springsteen marias bed](https://www.youtube.com/watch?v=rNM38kPJaEM)
 
 …and two lucky crowds in Philly in Holmdel were treated to absolutely delightful full-band work-ups on the Seeger Sessions tour a year later, complete with strings and horns:
 
-[https://www.youtube.com/watch?v=X2Z6Cv7IGow](https://www.youtube.com/watch?v=X2Z6Cv7IGow)
+[Watch on Youtube: Bruce Springsteen - "Maria's Bed" - Camden, 2006-06-20](https://www.youtube.com/watch?v=X2Z6Cv7IGow)
 
 So surely, one would think, “Maria’s Bed” would be a sure-fire setlist contender for the next E Street Band Tour.
 
 And yet, it’s been more than a decade since “Maria’s Bed” last appeared, unless you count a single pre-show appearance in Belfast in 2013, but that was an impromptu acoustic performance (and arguably his least impressive live performance of the song).
 
-[https://www.youtube.com/watch?v=Xcf3K0Pxt4w](https://www.youtube.com/watch?v=Xcf3K0Pxt4w)
+[Watch on Youtube: Bruce Springsteen (Belfast 2013) - Maria's Bed](https://www.youtube.com/watch?v=Xcf3K0Pxt4w)
 
 Chalk up its continuing absence from the E Street stage as just anther of the mysteries and puzzles of “Maria’s Bed.” It remains high on my chase list for the next tour.
 
@@ -109,4 +109,4 @@ Chalk up its continuing absence from the E Street stage as just anther of the my
 Recorded:** 1996-2004**Released:** *Devils & Dust* (2005)  
 **First performed:** March 10, 2005 (Asbury Park, NJ)**Last performed:** July 20, 2013 (Belfast, Northern Ireland)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

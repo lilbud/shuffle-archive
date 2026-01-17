@@ -4,9 +4,9 @@ Some days the dice let you down. But being the completist that I am…
 
 The only known recording is virtually unintelligible, so I’m not even going to begin to take it apart and analyze it. Feel free to give it a listen if you want to try, but I’ll understand if you sit this one out.
 
-[https://www.youtube.com/watch?v=LsBUW-gjDq4](https://www.youtube.com/watch?v=LsBUW-gjDq4)
+[Watch on Youtube: Steel Mill performs Black Sun Risin' in Bricktown, NJ; June 13, 1970](https://www.youtube.com/watch?v=LsBUW-gjDq4)
 
-[Springsteenlyrics.com](http://Springsteenlyrics.com) got further than I did figuring out the lyrics–enough to figure out that it’s a very unsubtle, of-the-time polemic:
+[Springsteenlyrics.com](https://Springsteenlyrics.com) got further than I did figuring out the lyrics–enough to figure out that it’s a very unsubtle, of-the-time polemic:
 
 *Well there’s a black sun risin’*  
 *Shining darkness on the White House*  
@@ -34,4 +34,4 @@ Recorded:** N/A
 **First Performed:** April 18, 1970 (Toms River, NJ)  
 **Last Performed:** June 13, 1970 (Bricktown, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

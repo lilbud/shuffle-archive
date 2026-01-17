@@ -2,7 +2,7 @@ It wasn’t their only single to fall victim to the Creedence curse, but given i
 
 John Fogerty paired his foreboding words with a rollicking melody, and the result is a track so bright you have to concentrate to recognize it’s pretty nihilistic.
 
-[https://www.youtube.com/watch?v=zUQiUFZ5RDw](https://www.youtube.com/watch?v=zUQiUFZ5RDw)
+[Watch on Youtube: Creedence Clearwater Revival - Bad Moon Rising (Official Lyric Video)](https://www.youtube.com/watch?v=zUQiUFZ5RDw)
 
 When Creedence Clearwater Revival released it as the lead single from *Green River* (their second of a remarkable *three* Top Ten albums in 1969), “Bad Moon Rising” became one of five CCR singles to stop just one slot shy of the top of the chart.
 
@@ -16,13 +16,13 @@ Springsteen has been a Fogerty fan for as long as he’s been playing music, fir
 
 From a Jersey shore club to a French royal castle: six months later Bruce turned up in Paris, where he concluded his four-song set at the S.O.S. Racisme Concert with a solo acoustic performance of Fogerty’s classic.
 
-[https://www.youtube.com/watch?v=71KT9GWx340](https://www.youtube.com/watch?v=71KT9GWx340)
+[Watch on Youtube: Bad Moon Rising - Bruce Springsteen (18-06-1988 Château De Vincennes, Paris, France)](https://www.youtube.com/watch?v=71KT9GWx340)
 
 That was Bruce’s last “Bad Moon Rising” performance for sixteen years. When it surfaced next, he was performing it with the original artist.
 
 Fogerty made nightly appearances with Springsteen on the short-lived (and ill-fated) Vote for Change Tour in 2004, rotating through a selection of his greatest hits backed by Bruce and the E Street Band. “Bad Moon Rising” featured at three of those shows, starting with its first outing in Cleveland.
 
-[https://www.youtube.com/watch?v=dxm2kiohaLI](https://www.youtube.com/watch?v=dxm2kiohaLI)
+[Watch on Youtube: Bad Moon Rising - Bruce Springsteen (2-10-2004 Gund Arena, Cleveland, Ohio)](https://www.youtube.com/watch?v=dxm2kiohaLI)
 
 The highest-quality recording of a Springsteen “Bad Moon Rising” performance is the most obscure of the bunch: a private benefit for his kids’ school in April 2005 at The Stone Pony.
 
@@ -32,7 +32,7 @@ The highest-quality recording of a Springsteen “Bad Moon Rising” performance
 
 Bruce’s final “Bad Moon Rising” performance to date was on the Wrecking Ball Tour, when he honored a fan’s request in Leeds, England.
 
-[https://www.youtube.com/watch?v=n9Jtfq08PBM](https://www.youtube.com/watch?v=n9Jtfq08PBM)
+[Watch on Youtube: Bruce Springsteen Bad Moon Rising Live 2013](https://www.youtube.com/watch?v=n9Jtfq08PBM)
 
 Even though it’s been a full decade since that last “Bad Moon Rising” performance, don’t bet against another appearance.
 
@@ -41,5 +41,3 @@ Bruce has covered more of John Fogerty’s songs than he has practically any oth
 **Bad Moon Rising  
 First performed:** October 31, 1987 (Sea Bright, NJ)  
 **Last performed:** July 24, 2013 (Leeds, England)
-
- 

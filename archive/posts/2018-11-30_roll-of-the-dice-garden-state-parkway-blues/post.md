@@ -10,7 +10,7 @@ Let’s take a listen, but first an important note: because the song is so long,
 
 If you have the time, start by listening to the entire song and see how many other songs you hear echoes of.
 
-[https://videopress.com/embed/K8rRLDke](https://videopress.com/embed/K8rRLDke)
+[Watch Video Highlight](https://videopress.com/embed/K8rRLDke)
 
 We start with a casual riff, before Vini’s powerful drums kick in around 0:45, and the rest of the band shortly after. Bruce enters with his vocals…
 
@@ -29,7 +29,7 @@ And then around the three-minute mark, the band picks up the pace and crescendos
 
 When the band and vocals resume, we suddenly realize: Bruce has constructed a song *very* similar in content and structure to “A Day in the Life” by The Beatles.
 
-[https://www.youtube.com/watch?v=UYeV7jLBXvA](https://www.youtube.com/watch?v=UYeV7jLBXvA)
+[Watch on Youtube: A Day In The Life (Remastered 2009)](https://www.youtube.com/watch?v=UYeV7jLBXvA)
 
 (That classic song was brand new at the time: The Beatles released it on *Sgt. Pepper’s Lonely Hearts Club Band* in 1967, and Bruce most likely wrote “Garden State Parkway Blues” in 1969 (his first known performance of the song is from that year). It is *extremely* likely that it was at least a subconscious influence, and almost certainly an overt one.)
 
@@ -52,7 +52,7 @@ Seriously, take a listen:
 *But I don’t care, what do I care?*  
 *It’s really got a heart*
 
-Hello there, “[One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/).” Did you catch that 1970 echo of a song that Bruce wouldn’t write and record for another 17 years?
+Hello there, “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/).” Did you catch that 1970 echo of a song that Bruce wouldn’t write and record for another 17 years?
 
 But wait, there’s more: right before the five-minute mark, we get our first faint hint of a familiar riff… but only for a few seconds. It’ll be back, but first we have the introduction of our theme, and the next instance of Bruce wearing an influence on his sleeve.
 
@@ -82,7 +82,7 @@ Bruce clearly had nightmares about nine-to-five work even then. But beyond the c
 
 Take a listen to another contemporary hit around the time Bruce wrote “Garden State Parkway Blues.”
 
-[https://www.youtube.com/watch?v=hnzHtm1jhL4](https://www.youtube.com/watch?v=hnzHtm1jhL4)
+[Watch on Youtube: Napoleon XIV: 'They're coming to take me away'](https://www.youtube.com/watch?v=hnzHtm1jhL4)
 
 “They’re Coming to Take Me Away, Ha-Haaa!” was a 1966 novelty hit, peaking at #3 on the Billboard Hot 100 and #1 on the Cash Box Top 100. It’s likely Bruce had it in mind when writing (and certainly performing) this segment of the song. (That’s drummer Vini Lopez really getting into character on the backing vocals.)
 
@@ -134,7 +134,7 @@ Another change-up comes our way now:
 
 That whole passage, by the way–from “cars on the parkway” through “they have never seen”–is *very* reminiscent of another *Sgt. Pepper* track:
 
-[https://www.youtube.com/watch?v=naoknj1ebqI](https://www.youtube.com/watch?v=naoknj1ebqI)
+[Watch on Youtube: Lucy In The Sky With Diamonds (Remastered 2009)](https://www.youtube.com/watch?v=naoknj1ebqI)
 
 Jam time again!
 
@@ -157,7 +157,7 @@ This is a relatively strong passage, not just for its metaphor, but for the way 
 *Oh some day you’re gonna be driving a, a big **Cadillac***  
 ***Oh so shiny and black*** 
 
-I see you, “[Cadillac Ranch](http://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)!” Thought you could sneak by under Bruce’s breath, didn’t you? But no–we caught you, making your first lyrical appearance a full decade before we’d next hear you.
+I see you, “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)!” Thought you could sneak by under Bruce’s breath, didn’t you? But no–we caught you, making your first lyrical appearance a full decade before we’d next hear you.
 
 *And you’ll be attending all them special business office luncheons*  
 *And have a pretty secretary to sit on your lap*  
@@ -271,4 +271,4 @@ What are we to make of “Garden State Parkway Blues” looking back? It’s mot
 First performed:** September 20, 1969 (Richmond, VA)  
 **Last performed:** October 17, 1970 (Long Branch, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -51,7 +51,7 @@ The bridge is there too, although it’s a bit distributed. It’s only at the e
 
 Bruce continued tinkering and polishing throughout the month, but sometimes evolution doesn’t happen in a straight line. On September 30, Bruce sat down at the piano and played yet another new version of what was quickly becoming “Candy’s Room,” and his demonstration was captured on video by Barry Rebo.
 
-[https://www.youtube.com/watch?v=0VJZpmNy-OI](https://www.youtube.com/watch?v=0VJZpmNy-OI)
+[Watch on Youtube: Candy's Room Demo (NYC, 78) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=0VJZpmNy-OI)
 
 This version contains almost entirely new lyrics, but thematically the heart of the song remains intact:
 
@@ -74,7 +74,7 @@ From here, evidence suggests the song cohered rather quickly, with recording ses
 
 After almost two years of pruning and grafting, finessing and fine-tuning, “Candy’s Room” was complete.
 
-[https://www.youtube.com/watch?v=CyPfb0vOVfo](https://www.youtube.com/watch?v=CyPfb0vOVfo)
+[Watch on Youtube: Candy's Room](https://www.youtube.com/watch?v=CyPfb0vOVfo)
 
 And now that we’ve listened to the final track, we can finally ask the question: What’s it all about?
 
@@ -139,9 +139,9 @@ To win Candy’s heart, you have to reach Candy’s room. (The latter is a metap
 
 And to reach Candy’s room, you have to walk that long, dark hall.
 
-[https://www.youtube.com/watch?v=_xNmLBwPwxw](https://www.youtube.com/watch?v=_xNmLBwPwxw)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Candy's Room (Live in Houston, 1978)](https://www.youtube.com/watch?v=_xNmLBwPwxw)
 
-[https://www.youtube.com/watch?v=w2Q7bb0szOE](https://www.youtube.com/watch?v=w2Q7bb0szOE)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Candy's Room (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=w2Q7bb0szOE)
 
 **Candy’s Room  
 Recorded:** October 27, 1977 – March 5, 1978  

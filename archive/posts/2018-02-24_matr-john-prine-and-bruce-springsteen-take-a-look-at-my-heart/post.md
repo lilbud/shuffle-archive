@@ -4,7 +4,7 @@ Bruce’s participation was assured from the outset: bumping in to each other at
 
 John took Bruce up on his offer, and Bruce contributed his harmony vocals to “Take a Look at My Hear,” a wry and bitter rocker co-written by John Prine and John Mellencamp. (Talk about a pedigree!)
 
-[https://www.youtube.com/watch?v=doCpKMAcYv0](https://www.youtube.com/watch?v=doCpKMAcYv0)
+[Watch on Youtube: John Prine with Bruce Springsteen - 'TAKE A LOOK AT MY HEART'.avi](https://www.youtube.com/watch?v=doCpKMAcYv0)
 
 The song is a note to the narrator’s ex-girlfriend’s new boyfriend, and the great first verse says it all:
 

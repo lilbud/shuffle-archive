@@ -8,7 +8,7 @@ Bruce submitted his balanced album to Columbia in August 1972, but when presiden
 
 Bruce went back to his notebook, and before the month was out he’d written two new songs with radio sensibility in mind: “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)” and “[Spirit in the Night.](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)” To make room for the new tracks, he had to jettison three existing ones, so off to the chopping block went “[Arabian Nights](https://estreetshuffle.com/index.php/2021/03/23/roll-of-the-dice-arabian-nights/),” “Visitation at Fort Horn,” and a lovely solo piano character study called “Jazz Musician.”
 
-[https://www.youtube.com/watch?v=OPR6NIinPK4](https://www.youtube.com/watch?v=OPR6NIinPK4)
+[Watch on Youtube: BRUCE SPRINGSTEEN - jazz musician](https://www.youtube.com/watch?v=OPR6NIinPK4)
 
 “Jazz Musician” was no throwaway, though–we have two surviving demo tracks and two studio takes (the last of which you can hear in the clip above) that demonstrate just how hard Bruce worked on his song and just how seriously he took it.
 

@@ -1,6 +1,6 @@
 I like to think of “I’m Goin’ Down” as the inevitable bookend to “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/),” just desserts for the earlier song’s creepy narrator.
 
-[https://www.youtube.com/watch?v=FDePd-mHOL4](https://www.youtube.com/watch?v=FDePd-mHOL4)
+[Watch on Youtube: I'm Goin' Down](https://www.youtube.com/watch?v=FDePd-mHOL4)
 
 The sixth of an astonishing seven consecutive Top Ten singles from *Born in the U.S.A.,* “I’m Goin’ Down” is tied with the album’s [title track](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/) for worst performing on the Billboard Hot 100, peaking “only” at #9. (I still can’t wrap my head around how “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)” fared so well by comparison.)
 
@@ -42,7 +42,7 @@ It’s not the only vocalised trick Bruce pulls out of his hat–there’s also 
 
 Bruce took lessons from the genre and added a couple of his own twists: first, he turned nonsense syllables into actual words–achieving the same phonic impact of songs like Barry Mann and Gerry Goffin’s “Who Put the Bomp” without it seeming gratuitous.
 
-[https://www.youtube.com/watch?v=lXmsLe8t_gg](https://www.youtube.com/watch?v=lXmsLe8t_gg)
+[Watch on Youtube: Who Put The Bomp - Barry Mann](https://www.youtube.com/watch?v=lXmsLe8t_gg)
 
 Secondly, there’s irony on display: as Mann and Goffin note in their song, doo wop syllables typically have an alluring rather than off-putting effect, which helps explain why even though it’s an angry song, “I’m Goin’ Down” is just a ton of fun to sing.
 
@@ -52,7 +52,7 @@ Every E Streeter shines throughout. Max is the most prominent, but Clarence take
 
 The best part of the song is the song’s final minute, where the band vamps in tight formation while Bruce scats his way into the sunset. It’s one of my favorite E Street studio minutes, and like I mentioned earlier, it’s even better in its unabridged form. Here’s an unreleased take featuring an outro that’s as long as the song itself–turn up the volume and enjoy.
 
-[https://www.youtube.com/watch?v=aaKRByNhb0Y](https://www.youtube.com/watch?v=aaKRByNhb0Y)
+[Watch on Youtube: I'm Going Down - Bruce Springsteen RARE version!](https://www.youtube.com/watch?v=aaKRByNhb0Y)
 
 And to think “I’m Goin’ Down” almost didn’t make the record.
 
@@ -60,13 +60,13 @@ It wasn’t an afterthought–in fact, it was one of the earlier songs recorded 
 
 In concert, “I’m Goin’ Down” was an immediate hit. Bruce typically hammed it up with an introductory explanation (as if the song required any).
 
-[https://videopress.com/embed/ZN88tTQy](https://videopress.com/embed/ZN88tTQy)
+[Watch Video Highlight](https://videopress.com/embed/ZN88tTQy)
 
 And while it’s been a lot more difficult to catch “I’m Goin’ Down” in concert since the Born in the U.S.A. tour ended (it didn’t even show up again until the Rising Tour), it’s made enough appearances over the last decade and a half to be considered a decent-odds selection if you’re chasing it.
 
 Here’s one of Bruce’s best recent performances, from the Wrecking Ball Tour in 2013.
 
-[https://www.youtube.com/watch?v=j6-9p9O-nYw](https://www.youtube.com/watch?v=j6-9p9O-nYw)
+[Watch on Youtube: Bruce Springsteen - I'm Goin' Down (from Born In The U.S.A. Live: London 2013)](https://www.youtube.com/watch?v=j6-9p9O-nYw)
 
 “I’m Goin’ Down” continued to turn up throughout Bruce’s 2016 River Tour and 2017 Australian Tour, so here’s hoping it’ll be back for another go-round soon.
 

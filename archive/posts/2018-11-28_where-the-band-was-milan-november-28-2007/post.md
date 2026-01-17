@@ -1,4 +1,4 @@
-I’d already seen one Springsteen show in Italy, [the year prior in Verona](http://estreetshuffle.com/index.php/2018/10/05/where-the-band-was-verona-october-5-2006/). I *thought* I knew all about Italian fans and their legendary zeal for Bruce from that first-hand experience.
+I’d already seen one Springsteen show in Italy, [the year prior in Verona](https://estreetshuffle.com/index.php/2018/10/05/where-the-band-was-verona-october-5-2006/). I *thought* I knew all about Italian fans and their legendary zeal for Bruce from that first-hand experience.
 
 I was wrong.
 
@@ -16,31 +16,31 @@ And it was definitely a show worth anticipating.
 
 It was only Charlie’s third show ever, and I was concerned going in that the set list might be relatively “safe” since he was probably still learning Bruce’s catalog. I needn’t have feared.
 
-[https://www.youtube.com/watch?v=Bd_bKNlZIZY](https://www.youtube.com/watch?v=Bd_bKNlZIZY)
+[Watch on Youtube: Radio Nowhere](https://www.youtube.com/watch?v=Bd_bKNlZIZY)
 
-[https://www.youtube.com/watch?v=0spOozC5lxM](https://www.youtube.com/watch?v=0spOozC5lxM)
+[Watch on Youtube: Bruce Springsteen - The Ties That Bind (Milan)](https://www.youtube.com/watch?v=0spOozC5lxM)
 
 Although the show started off very similar to my last show in Oakland just a few weeks earlier, Bruce soon took a turn-off for a more scenic route, returning “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)” to the set list (ironically, for the first time since my last show).
 
-[https://www.youtube.com/watch?v=piMODx-_KYk](https://www.youtube.com/watch?v=piMODx-_KYk)
+[Watch on Youtube: Bruce Springsteen - Reason to Believe (Milan 28-11-07)](https://www.youtube.com/watch?v=piMODx-_KYk)
 
-[https://www.youtube.com/watch?v=i1iTdbaFqSU](https://www.youtube.com/watch?v=i1iTdbaFqSU)
+[Watch on Youtube: Adam Raised A Cain - Milano 2007](https://www.youtube.com/watch?v=i1iTdbaFqSU)
 
-[https://www.youtube.com/watch?v=6RqWMY69A4I](https://www.youtube.com/watch?v=6RqWMY69A4I)
+[Watch on Youtube: Bruce Springsteen - Milan 28-11-2007 - I'll Work For Your Love](https://www.youtube.com/watch?v=6RqWMY69A4I)
 
-But the highlight came toward the end of the main set, when Bruce played a double-shot from his second album: “[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” and “[The E Street Shuffle.](http://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)” Both were personal premieres for me, and I was over the moon. All of the pre-show drama was forgotten and forgiven.
+But the highlight came toward the end of the main set, when Bruce played a double-shot from his second album: “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” and “[The E Street Shuffle.](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)” Both were personal premieres for me, and I was over the moon. All of the pre-show drama was forgotten and forgiven.
 
-[https://www.youtube.com/watch?v=CjTLsL3mleo](https://www.youtube.com/watch?v=CjTLsL3mleo)
+[Watch on Youtube: New Springsteen - Incident on 57th Street](https://www.youtube.com/watch?v=CjTLsL3mleo)
 
-[https://www.youtube.com/watch?v=5J3RRamhSek](https://www.youtube.com/watch?v=5J3RRamhSek)
+[Watch on Youtube: Bruce Springsteen-The E Street Shuffle-Milano 28-11-07](https://www.youtube.com/watch?v=5J3RRamhSek)
 
 The crowd interaction during “The E Street Shuffle” was amazing–it looked like the entire floor was pogo-ing, waving, and moving as one. All through the song–the whole show, really–the crowd sang every note. Not just every word, every *note*. Bruce ate it up; the band’s intensity increased song by song throughout the show.
 
-(“Incident” was on the set list, but “E Street Shuffle” was an audible–a dealer’s choice of “[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” or “[Darlington County](http://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)” was slotted instead, and I was *very* happy for the substitution.)
+(“Incident” was on the set list, but “E Street Shuffle” was an audible–a dealer’s choice of “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” or “[Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)” was slotted instead, and I was *very* happy for the substitution.)
 
-Another pair of audibles came during the encores–this one a mixed bag: out went “[Growin’ Up,](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” and in came “[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/).” That one I was fine with–it seems funny to think about it today, but at the time, “Tenth Avenue” was a semi-rarity; I hadn’t heard it live since the Reunion tour seven years earlier.
+Another pair of audibles came during the encores–this one a mixed bag: out went “[Growin’ Up,](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” and in came “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/).” That one I was fine with–it seems funny to think about it today, but at the time, “Tenth Avenue” was a semi-rarity; I hadn’t heard it live since the Reunion tour seven years earlier.
 
-[https://www.youtube.com/watch?v=D5hgaIMDNpI](https://www.youtube.com/watch?v=D5hgaIMDNpI)
+[Watch on Youtube: Bruce Springsteen - Tenth Avenue Freeze-Out (28-11-2007)](https://www.youtube.com/watch?v=D5hgaIMDNpI)
 
 But the last substitution was a blow when I learned about it later: Bruce had planned to play “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)” but opted to grant a sign request for “Thunder Road” instead–and as much as I love and will never tire of that song, “Kitty’s Back” was at the very top of my chase list at the time. I’d have to wait another two years to finally see it.
 

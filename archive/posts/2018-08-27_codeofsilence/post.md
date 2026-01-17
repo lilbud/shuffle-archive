@@ -1,16 +1,16 @@
 Quick, name the only live Springsteen performance to win a Grammy.
 
-Okay, that would probably be harder if you hadn’t already read the title of this post. But yeah, it’s not “[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” or “[War](http://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)” or “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” or “American Skin (41 Shots)” or any of the other live recordings you’ll hear on the radio (other then E Street Radio, that is).
+Okay, that would probably be harder if you hadn’t already read the title of this post. But yeah, it’s not “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” or “[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)” or “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” or “American Skin (41 Shots)” or any of the other live recordings you’ll hear on the radio (other then E Street Radio, that is).
 
 In February 2005, the Grammy for Best Solo Rock Vocal Performance went to “Code of Silence,” recorded live on June 29, 2000 and buried deep on the bonus disc included in the first run of *The Essential Bruce Springsteen.*
 
-[https://www.youtube.com/watch?v=qmliFFBFQAQ](https://www.youtube.com/watch?v=qmliFFBFQAQ)
+[Watch on Youtube: Code of Silence (Live at Madison Square Garden, New York, NY - June 2000)](https://www.youtube.com/watch?v=qmliFFBFQAQ)
 
 “Code of Silence” also carries another unusual distinction: it’s a rare instance of Bruce co-writing with a song with another artist. Bruce and Joe Grushecky wrote this song together in 1997, although neither of them chose to record or perform it at the time.
 
 When Bruce and the E Street Band were wrapping up their Reunion Tour in June of 2000, Bruce start to premiere some brand new songs, telegraphing to fans that he wasn’t done releasing new music. First came “[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)” and “American Skin (41 Shots)” in Atlanta, and then at the very next show–the opening show of a ten-night closing stand at Madison Square Garden–Bruce opened the show with the debut of “Code of Silence.” (Bruce would debut one more Bruce/Joe collaboration before the tour was done.)
 
-[https://videopress.com/embed/HOWgJ2Ki](https://videopress.com/embed/HOWgJ2Ki)
+[Watch Video Highlight](https://videopress.com/embed/HOWgJ2Ki)
 
 The song was received by fans enthusiastically, and Bruce ended up playing it in eight shows of that final ten-night stand.
 
@@ -43,7 +43,7 @@ In 2006, after the song won a Grammy, Bruce and Joe finally released a studio ve
 
 The arrangement is identical, the vocals are clearer, and the song is just as ferocious as ever. Here’s Joe and Bruce together on “Code of Silence” from Joe’s *A Good Life* album.
 
-[https://www.youtube.com/watch?v=yi4UJ5_Fd6E](https://www.youtube.com/watch?v=yi4UJ5_Fd6E)
+[Watch on Youtube: Code of Silence](https://www.youtube.com/watch?v=yi4UJ5_Fd6E)
 
 **Code of Silence**  
 **Recorded:** June 29, 2000 (live version)  
@@ -51,4 +51,4 @@ The arrangement is identical, the vocals are clearer, and the song is just as fe
 **First performed:** June 12, 2000 (New York City, NY)  
 **Last performed:** July 18, 2015 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

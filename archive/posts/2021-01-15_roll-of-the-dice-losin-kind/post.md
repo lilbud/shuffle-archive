@@ -4,7 +4,7 @@ But so strong are the lyrical similarities between Bruce’s 1982 outtake and hi
 
 By Bruce’s 1982 standards, “Losin’ Kind” was every bit as strong as the other songs he recorded for *Nebraska*. I suspect the only reason he didn’t included it on the album is its similarity to “Highway Patrolman” as well, particularly in the first verse.
 
-[https://www.youtube.com/watch?v=fOM8VkIt0OE](https://www.youtube.com/watch?v=fOM8VkIt0OE)
+[Watch on Youtube: The Losin' Kind by Bruce Springsteen](https://www.youtube.com/watch?v=fOM8VkIt0OE)
 
 Not only does the first verse of “Losin’ Kind” rhyme with “Highway Patrolman,” both songs also feature a character named Frank. In the latter song, Frank is the offscreen ne’er-do-well brother of the narrator, Joe Roberts. Were it not for their different last names, we might suspect this is the very same Frank, so similar are the character portrayals.
 
@@ -58,9 +58,9 @@ He also wrote, “*Could be done with more of a band arrangement.”* True enoug
 
 It wasn’t just the “punchline” Bruce had trouble finding, though–he struggled with the title as well. His earliest home demos of “Losin’ Kind” were called, simply (and strangely) “The Answer.” Take a listen below (and notice that originally Frank wasn’t nearly as unscathed after his car accident).
 
-[https://www.youtube.com/watch?v=VPHQjulZH7I](https://www.youtube.com/watch?v=VPHQjulZH7I)
+[Watch on Youtube: BRUCE SPRINGSTEEN - the answer](https://www.youtube.com/watch?v=VPHQjulZH7I)
 
-[https://www.youtube.com/watch?v=lj7Ms1yiUb8](https://www.youtube.com/watch?v=lj7Ms1yiUb8)
+[Watch on Youtube: The Answer demo by Bruce](https://www.youtube.com/watch?v=lj7Ms1yiUb8)
 
 Bruce finally found his title in [a song he’d written months earlier](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/) for Gary U.S. Bonds*, just one more in a long list of songs sharing a link to “Losin’ Kind.”
 
@@ -72,5 +72,3 @@ Recorded:** January 3, 1982
 *It’s possible Bruce borrowed the phrase for both “Losin’ Kind” and “[Club Soul City](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/)” from the Johnny Cash bootleg “The Losing Kind,” which shares a similar dark humor. But I’m not a Cash scholar, so I’ll leave that to others to determine.
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
- 

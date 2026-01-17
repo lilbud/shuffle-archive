@@ -12,7 +12,7 @@ Switching to his acoustic guitar, accompanied primarily by Vini Lopez on (of all
 
 You can listen to that first performance by Child below, but I suggest skipping ahead –there’s a much, much better recording a little further down.
 
-[https://videopress.com/embed/ErLSO8GL](https://videopress.com/embed/ErLSO8GL)
+[Watch Video Highlight](https://videopress.com/embed/ErLSO8GL)
 
 As far as we know, the boys only played “Sister Theresa” twice–the debut performance with Child above, and a second with Steel Mill the following year. (Set lists are notoriously hard to come by from this era, however, so it’s very likely that “Sister Theresa” had other outings that were not recorded.)
 
@@ -53,7 +53,7 @@ And if the payoff is predictable, at least it comes off more sweet than sly. Cha
 
 *Sister Theresa, I’ve given you my heart*
 
-Never recorded and rarely performed, “Sister Theresa” is too atypical of Bruce’s contemporary writing to ignore but not significant enough to merit memorializing. If notable for anything, it serves as a signpost toward softer, more contemplative songs like “[Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” and “[If I Was the Priest](http://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)” that lie ahead a couple of years down the road.
+Never recorded and rarely performed, “Sister Theresa” is too atypical of Bruce’s contemporary writing to ignore but not significant enough to merit memorializing. If notable for anything, it serves as a signpost toward softer, more contemplative songs like “[Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)” and “[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)” that lie ahead a couple of years down the road.
 
 **Sister Theresa  
 Never recorded**  
@@ -61,4 +61,4 @@ Never recorded**
 **First performed:** September 20, 1969 (Richmond, VA)  
 **Last performed:** 1970 (exact date uncertain)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

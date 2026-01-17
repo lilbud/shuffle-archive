@@ -1,4 +1,4 @@
-A quarter-century before “[Freehold](http://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/),” and almost a half-century before Bruce’s revealing autobiography and Broadway show, there was “Family Song.”
+A quarter-century before “[Freehold](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/),” and almost a half-century before Bruce’s revealing autobiography and Broadway show, there was “Family Song.”
 
 “Family Song” sheds rare light into a brief period of Bruce’s life that’s glossed over not only by biographers but by Bruce himself in his own book: the winter of 1971-72, when Bruce fled New Jersey for the warmer climes of California and his parents’ new home in San Mateo.
 
@@ -18,7 +18,7 @@ But *something* happened in California that winter. Not only was the weather war
 
 With a heart on the mend from his recent romance, Bruce was ready to open up about his feelings toward his parents–at least in song–and the result was the simultaneously heart-breaking, heart-healing, and beautifully raw “Family Song.”
 
-[https://www.youtube.com/watch?v=4ljKCH6y3i8](https://www.youtube.com/watch?v=4ljKCH6y3i8)
+[Watch on Youtube: Bruce Springsteen - Family Song](https://www.youtube.com/watch?v=4ljKCH6y3i8)
 
 It’s impossible for a Springsteen fan to listen to the range of raw emotion–the hurt and yearning and love and compassion–on display in Bruce’s unreleased 1972 outtake without aching in empathy for the 22-year-old songwriter, because we know that “Family Song” is one hundred percent autobiographical.
 
@@ -85,11 +85,11 @@ I’m not ashamed to admit that I tear up when I listen to “Family Song.” Br
 
 **Bonus:** Here’s a second, earlier version of “Family Song,” considerably slower and less poignant than the later version above. Both were recorded in March 1972 (after Bruce had returned home from California) at Mike Appel’s office in New York City.
 
-[https://videopress.com/embed/fxxfruGh](https://videopress.com/embed/fxxfruGh)
+[Watch Video Highlight](https://videopress.com/embed/fxxfruGh)
 
 **Family Song  
 Recorded:** March 1972  
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

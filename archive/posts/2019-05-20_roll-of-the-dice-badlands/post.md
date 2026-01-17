@@ -2,11 +2,11 @@
 
 He had the title, and he had the riff (co-opted from a favorite song, as Bruce confesses below).
 
-[https://videopress.com/embed/HTQLrA2O](https://videopress.com/embed/HTQLrA2O)
+[Watch Video Highlight](https://videopress.com/embed/HTQLrA2O)
 
 And before long, he had the instrumental track in almost final form (the bridge would continue to evolve).
 
-[https://www.youtube.com/watch?v=hnCUKQEpC7o](https://www.youtube.com/watch?v=hnCUKQEpC7o)
+[Watch on Youtube: Bruce Springsteen Badlands #1 Instrumental](https://www.youtube.com/watch?v=hnCUKQEpC7o)
 
 All he needed now was some lyrics.
 
@@ -16,7 +16,7 @@ But “Badlands” was never intended to be an instrumental, and so Bruce set ou
 
 It didn’t come easy.
 
-[https://www.youtube.com/watch?v=p8ullIUh-4o](https://www.youtube.com/watch?v=p8ullIUh-4o)
+[Watch on Youtube: Bruce Springsteen Badlands #3 With different lyrics](https://www.youtube.com/watch?v=p8ullIUh-4o)
 
 In the early outtake above, “Badlands” is a shockingly callous story. Bruce felt the fire in the song’s soul but overshot its themes of self-determination and self-actualization and landed squarely in self-centeredness and just plain selfishness. In the heart of the song, Bruce dismisses his girl in his impatience to take on the world:
 
@@ -35,7 +35,7 @@ In the early outtake above, “Badlands” is a shockingly callous story. Bruce 
 
 But the song eventually took form, and this near final outtake, “Badlands” is clearly the song we know and love–with some small but striking differences:
 
-[https://www.youtube.com/watch?v=R-pTfvv5c88](https://www.youtube.com/watch?v=R-pTfvv5c88)
+[Watch on Youtube: Bruce Springsteen Badlands #2](https://www.youtube.com/watch?v=R-pTfvv5c88)
 
 In the version above, the singer wakes up in the night screaming and crying in fury–but not about the existential angst that fuels the rest of the song. Instead, he rails against the president’s false promises of peace; it’s an odd and dated (and belated) reference that disrupts the song, and Bruce seems to have realized that quickly.
 
@@ -43,7 +43,7 @@ But the more striking difference is the “Baby, don’t cry now” spoken-word 
 
 The final version, of course, from late 1977 is perfect. For good reason, it remains one of Bruce’s most-loved songs, with a vocal performance so powerful and impassioned that few artists have ever dared to cover it.
 
-[https://www.youtube.com/watch?v=Exg88CBtfm8](https://www.youtube.com/watch?v=Exg88CBtfm8)
+[Watch on Youtube: Badlands](https://www.youtube.com/watch?v=Exg88CBtfm8)
 
 Now let’s take a dive into those lyrics.
 
@@ -104,17 +104,17 @@ Not the guitar solo, or the sax solo, as wonderful as those moments are. I’m t
 
 Which of course is exactly what happens during this part of the song in concert. Over the years, that interlude has grown in length and power and potency, an emotional and communal high point in almost every show.
 
-[https://www.youtube.com/watch?v=BNwpbW0wCAI](https://www.youtube.com/watch?v=BNwpbW0wCAI)
+[Watch on Youtube: Badlands (Phoenix, 78) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=BNwpbW0wCAI)
 
-[https://www.youtube.com/watch?v=KDz62awS6qU](https://www.youtube.com/watch?v=KDz62awS6qU)
+[Watch on Youtube: Bruce Springsteen - Badlands (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=KDz62awS6qU)
 
-[https://www.youtube.com/watch?v=qCvW2LLnkiM](https://www.youtube.com/watch?v=qCvW2LLnkiM)
+[Watch on Youtube: Bruce Springsteen - BADLANDS 1988 - live](https://www.youtube.com/watch?v=qCvW2LLnkiM)
 
-[https://www.youtube.com/watch?v=IAn1hH68NAQ](https://www.youtube.com/watch?v=IAn1hH68NAQ)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Badlands (Live in New York City)](https://www.youtube.com/watch?v=IAn1hH68NAQ)
 
-[https://www.youtube.com/watch?v=f3cecpC75vw](https://www.youtube.com/watch?v=f3cecpC75vw)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Badlands (Live In Barcelona)](https://www.youtube.com/watch?v=f3cecpC75vw)
 
-[https://www.youtube.com/watch?v=gQ79EfXQ9LE](https://www.youtube.com/watch?v=gQ79EfXQ9LE)
+[Watch on Youtube: Bruce Springsteen - Badlands (Live Glastonbury 2009)](https://www.youtube.com/watch?v=gQ79EfXQ9LE)
 
 All of this, of course, is just to serve as a build-up for the song’s climax. Bruce may have written songs with final lines that are equally powerful, but certainly none more exhilarating. With all of the power marshaled within and behind him, Bruce dedicates “Badlands” to the dreamers who pursue their passion, who look past the users, and who reclaim their heart and soul from those who would hold them back:
 
@@ -129,6 +129,6 @@ Recorded:** Late 1977
 **First performed:** May 19, 1978 (Asbury Park, NJ)  
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[https://www.youtube.com/watch?v=-LL_VBOy7r8](https://www.youtube.com/watch?v=-LL_VBOy7r8)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Badlands (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=-LL_VBOy7r8)

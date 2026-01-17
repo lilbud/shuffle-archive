@@ -8,8 +8,4 @@ So since I can’t seem to shake my obsession with this absolutely gorgeous-in-e
 
 Have a great weekend.
 
-[https://www.youtube.com/watch?v=t44heTOvbBE](https://www.youtube.com/watch?v=t44heTOvbBE)
-
- 
-
- 
+[Watch on Youtube: Tougher than the rest - The Travel Bag cover](https://www.youtube.com/watch?v=t44heTOvbBE)

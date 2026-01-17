@@ -6,7 +6,7 @@ When Darlene Love recorded “Christmas (Baby Please Come Home)” in 1963 as th
 
 Perhaps it was a matter of timing (the song was released on the very day President Kennedy was assassinated), or perhaps a matter of content–for anyone paying attention to the lyrics, “Christmas (Baby Please Come Home)” is a dark and lonely song, and 22-year-old Love plumbed its depths with her heartbreakingly urgent performance.
 
-[https://www.youtube.com/watch?v=vf4ZXBzbAio](https://www.youtube.com/watch?v=vf4ZXBzbAio)
+[Watch on Youtube: Darlene Love - Christmas (Baby Please Come Home) (Official Music Video)](https://www.youtube.com/watch?v=vf4ZXBzbAio)
 
 And yet, there’s something hopeful in the song’s loneliness, something yearning and eternal in Love’s longing vocals. “Christmas (Baby Please Come Home)” pulls all kinds of heartstrings, and it seemed pre-destined to become a hit.
 
@@ -14,19 +14,19 @@ So Spector gave the single another shot the following year, but again, “Christ
 
 Then came the 1984 film, *Gremlins*.
 
-[https://www.youtube.com/watch?v=2kW3qX5VVxs](https://www.youtube.com/watch?v=2kW3qX5VVxs)
+[Watch on Youtube: Gremlins Opening Featuring Darlin Love's "Christmas Baby Please Come Home" www.vinniefavale.com](https://www.youtube.com/watch?v=2kW3qX5VVxs)
 
 *Gremlins* opened with Love’s song playing over the opening credits, reintroducing “Christmas (Baby Please Come Home)” to modern audiences.
 
 Eighteen months later, a late-night television host invited Darlene to perform the song on his show, *Late Night with David Letterman*. It was a simple performance with the house band, but it gave Darlene the television exposure she’d always deserved.
 
-[https://www.youtube.com/watch?v=aCC64Q07CQA](https://www.youtube.com/watch?v=aCC64Q07CQA)
+[Watch on Youtube: Darlene Love on Letterman December 16, 1986](https://www.youtube.com/watch?v=aCC64Q07CQA)
 
 The famously curmudgeonly Letterman was no fan of Christmas music, but “Christmas (Baby Please Come Home)” was an exception. He was a fan of both the song and its singer, and as promised during their interview at the end of that clip, Letterman invited Love back to perform it again the next year. And the year after that. And the year after that. For almost three decades.
 
 With each year, the performance grew in power, arrangement, orchestration, and celebration.
 
-[https://www.youtube.com/watch?v=8V2IrH1owdw](https://www.youtube.com/watch?v=8V2IrH1owdw)
+[Watch on Youtube: Darlene Love "Christmas (Baby ... )" Collection on Letterman, 1986-2014 (st.)](https://www.youtube.com/watch?v=8V2IrH1owdw)
 
 Love sang her song for Letterman’s audience every single year for 29 years–and then when Letterman’s show left the airwaves, Love took her annual performance and moved to *The View.*
 
@@ -40,7 +40,7 @@ Bruce Springsteen didn’t wait for the rest of us to catch up, though. A lifelo
 
 Bruce’s penultimate performance was one of his very best, and fortunately it was captured on video. In the clip below, Bruce takes lead vocals, backed by The Max Weinberg 7. But watch and listen carefully across the stage–you’ll hear contributions from Jon Bon Jovi, Little Steven, Nils Lofgren, Garland Jeffreys, Willie Nile, Southside Johnny, Lisa Lowell, Jesse Malin, and more–all in a delightfully joyous rendition of Darlene Love’s holiday classic.
 
-[https://www.youtube.com/watch?v=57-oIzaVS9s](https://www.youtube.com/watch?v=57-oIzaVS9s)
+[Watch on Youtube: Christmas (Baby please come home) - Bruce Springsteen](https://www.youtube.com/watch?v=57-oIzaVS9s)
 
 **Christmas (Baby Please Come Home)  
 First performed:** December 17, 2000 (Asbury Park, NJ)  

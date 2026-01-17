@@ -1,28 +1,26 @@
 > “There’s a world of love, a world of beauty, a world of fear and a world of loss and they are the same world and that person is wending his way through that maze and at that moment he’s very in touch with both of those things. [“I Wish I Were Blind”] gets that picture.
 > 
-> 
-> 
 > — Bruce Springsteen to David Hepworth, *Q Magazine,* August 1992
 
 I have a love/hate relationship with *Human Touch*, and “I Wish I Were Blind” epitomizes it.
 
 On one hand, we have a tender, vulnerable ballad with gorgeous vocals that you can lose yourself in whenever you want company in heartbreak, and with a title that warms the heart of every English teacher who refuses to give up on the subjunctive mood.
 
-[https://www.youtube.com/watch?v=JwuafvCYb-E](https://www.youtube.com/watch?v=JwuafvCYb-E)
+[Watch on Youtube: Bruce Springsteen - I Wish I Were Blind (Audio)](https://www.youtube.com/watch?v=JwuafvCYb-E)
 
 On the other hand, we have an overproduced, artificial, as-early-nineties-as-it-gets track that (for me at least) makes it impossible to connect to the song. And most unforgivably, it squanders the great Bobby Hatfield, who provides blue-eyed soulful backing vocals buried so far down in the mix that he might as well have phoned it in.
 
 (This earlier outtake features Hatfield much more prominently. I’d consider it the definitive version if it didn’t also feature an overlong and overwrought coda.)
 
-[https://www.youtube.com/watch?v=s2Hh652FruQ](https://www.youtube.com/watch?v=s2Hh652FruQ)
+[Watch on Youtube: I Wish I were Blind "Bruce Springsteen" Alternate version](https://www.youtube.com/watch?v=s2Hh652FruQ)
 
 For more than a decade after it came out, I hated this song. It didn’t work for me on the album, and it didn’t work for me in concert. Although Bruce’s *MTV Unplugged* performance of it featured some fine guitar work, “I Wish I Were Blind” just didn’t move me.
 
-[https://www.youtube.com/watch?v=EJoBL6pjHIw](https://www.youtube.com/watch?v=EJoBL6pjHIw)
+[Watch on Youtube: Bruce Springsteen - I Wish I Were Blind (MTV Plugged - Official HD Video)](https://www.youtube.com/watch?v=EJoBL6pjHIw)
 
 That changed in the summer of 2005, when I was fortunate to catch one of its rare live outings when Bruce brought his solo acoustic tour to the Rose Garden in Portland. I was captivated by Bruce’s performance, introductory shtick and all. (No, it’s not unfair, Bruce.)
 
-[https://www.youtube.com/watch?v=4V4uSzQ4tGA](https://www.youtube.com/watch?v=4V4uSzQ4tGA)
+[Watch on Youtube: I wish I were blind Bruce Springsteen piano solo](https://www.youtube.com/watch?v=4V4uSzQ4tGA)
 
 With only an understated keyboard accompaniment underneath Bruce’s vocals, the pathos of his lyrics comes through in a way they never did on the album track.
 
@@ -64,7 +62,7 @@ So if, like Bruce’s Norwegian fan, you ever find your misery in need of some c
 
 Just make sure you turn to the solo version.
 
-[https://www.youtube.com/watch?v=23abo1QRmfo](https://www.youtube.com/watch?v=23abo1QRmfo)
+[Watch on Youtube: Bruce Springsteen - I Wish I Were Blind (Herning 2013-05-16)](https://www.youtube.com/watch?v=23abo1QRmfo)
 
 **I Wish I Were Blind  
 Recorded:** September 1989 – March 1991  
@@ -78,6 +76,6 @@ Blogger's Note
 
 *Roll of the Dice, Cover Me, and Meeting Across the River* will all take a brief break this week while I spend some time with my east coast family and friends and take in a few concerts. They’ll resume on Monday, October 25th.
 
-*Kingdom of Days* will continue without interruption, however, and keep an eye on the [Backstreets News page](http://www.backstreets.com/news.html) for my first-hand reports from this week’s upcoming Springsteen appearances.
+*Kingdom of Days* will continue without interruption, however, and keep an eye on the [Backstreets News page](https://www.backstreets.com/news.html) for my first-hand reports from this week’s upcoming Springsteen appearances.
 
 See you in a week!

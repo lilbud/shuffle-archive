@@ -6,7 +6,7 @@ By that time, The Bruce Springsteen Band had virtually taken up residency at The
 
 Most of Bruce’s set lists from those shows are undocumented, so we can’t be certain whether “Love Is a Crazy Thing” was a one-off or a set list habitue, but if we listen closely to the track below, we might sense something familiar about the mid-song tempo changes.
 
-[https://www.youtube.com/watch?v=S9Ho0oWDDB8](https://www.youtube.com/watch?v=S9Ho0oWDDB8)
+[Watch on Youtube: Love Is A Crazy Thing - Bruce Springsteen Band](https://www.youtube.com/watch?v=S9Ho0oWDDB8)
 
 To my ears, “Love Is a Crazy Thing” sounds like a predecessor to “[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/),” which Bruce would record a little more than a year later. Both the tempo change and mid-song instrumental break were devices that Bruce would use upon occasion in those early years, but here he seems to be clearly reaching toward something specific.
 
@@ -64,4 +64,4 @@ Never recorded**
 **First performed:** February 4, 1972 (Richmond, VA)  
 **Last performed:** February 4, 1972 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

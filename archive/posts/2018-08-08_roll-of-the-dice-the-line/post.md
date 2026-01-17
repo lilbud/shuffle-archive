@@ -6,13 +6,13 @@ Many of the songs on *The Ghost of Tom Joad* play more like a story set to music
 
 (Let’s take a moment, though, and acknowledge that Bob Dylan probably deserves co-songwriting credit–the melody clearly is lifted from Dylan’s “Love Minus Zero,” but this is neither the first nor last time that Bruce pays homage to one of his influences in this way.)
 
-[https://www.youtube.com/watch?v=7ZzyRcySgK8](https://www.youtube.com/watch?v=7ZzyRcySgK8)
+[Watch on Youtube: Bob Dylan - Love Minus Zero (Official Audio)](https://www.youtube.com/watch?v=7ZzyRcySgK8)
 
 “The Line” showcases Bruce at the height of his songwriting powers, returning to familiar territory (the story of Carl and Bobby plays out much like the tale of Joe and Frankie in “Highway Patrolman”) but with greater craft, trusting the reader to supply detail when imagination is a sharper lens than vocabulary. Even the title is a brilliant metaphor, representing at once the literal border between nations, the cultural barrier that divides their citizens, and the internal line we draw for ourselves to declare the boundaries of our own values and actions.
 
 Let’s take a listen–carefully.
 
-[https://www.youtube.com/watch?v=EQV91ON2yak](https://www.youtube.com/watch?v=EQV91ON2yak)
+[Watch on Youtube: The Line](https://www.youtube.com/watch?v=EQV91ON2yak)
 
 That’s an entire movie in under five minutes.
 
@@ -85,11 +85,11 @@ Carl leaves the INS–whether from shame, moral compromise, ethical protest, or 
 *At night I searched the local bars and the migrant towns*  
 *Looking for my Louisa with the black hair falling down*
 
-Was Louisa playing Carl? Perhaps–after all, “hunger is a powerful thing.” But he can’t be sure, and as Bruce wrote years earlier in [another song](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/), “God have mercy on the man who doubts what he’s sure of.”
+Was Louisa playing Carl? Perhaps–after all, “hunger is a powerful thing.” But he can’t be sure, and as Bruce wrote years earlier in [another song](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/), “God have mercy on the man who doubts what he’s sure of.”
 
 Bruce performed “The Line” nightly throughout the Ghost of Tom Joad Tour, as well as a half-dozen times on the Devils and Dust Tour–always acoustic, never electric, and only in intimate settings where the audience can be drawn into the world of the border and gain a greater understanding of its inhabitants.
 
-[https://www.youtube.com/watch?v=Hh7Y8xeZSwM](https://www.youtube.com/watch?v=Hh7Y8xeZSwM)
+[Watch on Youtube: Bruce Springsteen - THE LINE 1996 (audio)](https://www.youtube.com/watch?v=Hh7Y8xeZSwM)
 
 **The Line**  
 **Recorded:** March-August 1995  
@@ -97,4 +97,4 @@ Bruce performed “The Line” nightly throughout the Ghost of Tom Joad Tour, as
 **First performed:** November 21, 1995 (New Brunswick, NJ)  
 **Last performed:** August 13, 2005 (Vancouver, Canada)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

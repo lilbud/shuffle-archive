@@ -4,7 +4,7 @@ The Shining Tongues is the latest songwriting project from former Infinite Three
 
 The Shining Tongues are in the process of recording their first album, but they’ve already released a couple of singles, including Knowler’s first cover: Bruce Springsteen’s “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/).”
 
-[https://www.youtube.com/watch?v=LhkggEcq3j0](https://www.youtube.com/watch?v=LhkggEcq3j0)
+[Watch on Youtube: State Trooper (Bruce Springsteen Cover)](https://www.youtube.com/watch?v=LhkggEcq3j0)
 
 Knowler’s previous band classified themselves as noise rock, and his latest promises to add “drone-rock, psychedelia, spiritual jazz and soundtrack music” to the mix.
 

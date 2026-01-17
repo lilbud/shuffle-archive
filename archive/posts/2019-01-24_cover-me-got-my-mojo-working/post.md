@@ -2,11 +2,11 @@ Okay, pay attention now, because this might get a little confusing.
 
 Muddy Waters originally released the blues standard “Got My Mojo Working” in 1957. It became so popular that it’s difficult to identify all of the artists that have covered it over the years since.
 
-[https://www.youtube.com/watch?v=aI_JFcrTooM](https://www.youtube.com/watch?v=aI_JFcrTooM)
+[Watch on Youtube: Muddy Waters - Got My Mojo Working - 1956](https://www.youtube.com/watch?v=aI_JFcrTooM)
 
 Except that Waters didn’t really originate the song. It was actually first released earlier in the year by Ann Cole (who not coincidentally, Waters had been touring with).
 
-[https://www.youtube.com/watch?v=sP0crYPCHV0](https://www.youtube.com/watch?v=sP0crYPCHV0)
+[Watch on Youtube: Ann Cole - Got My Mojo Working](https://www.youtube.com/watch?v=sP0crYPCHV0)
 
 Except that Waters actually did originate the song in a way, since he couldn’t remember much of the lyrics from Cole’s version, so he made up his own, resulting in two very different songs.
 
@@ -18,7 +18,7 @@ And somehow Bill Cosby got drawn into it too, because he recorded his own “moj
 
 So The Bruce Springsteen Band had at least four different versions to choose from when they covered it at the University of Richmond on October 23, 1971. Which version did they choose? Well, it wasn’t Cosby’s, thank goodness.
 
-[https://www.youtube.com/watch?v=pkaS4Bjj5cM](https://www.youtube.com/watch?v=pkaS4Bjj5cM)
+[Watch on Youtube: The Bruce Springsteen Band - "Got My Mojo Working" - Richmond, VA - 1971-10-23](https://www.youtube.com/watch?v=pkaS4Bjj5cM)
 
 It seems Bruce rolled his own. If anything, he hews closer to Foster’s original (Bruce references “black cat bones,” which doesn’t appear in the other three versions), but he seems to be drawing from several sources and probably winging it a bit, too.
 

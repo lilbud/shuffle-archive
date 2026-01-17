@@ -10,7 +10,7 @@ We’ll listen to the other eleven later this year. Today, we’re interested in
 
 This version of “Don’t Back Down” is truly a separate song from the others, but it held just as much promise. Take a listen to the home demo below–it’s just Bruce accompanied by a drum machine, but the arrangement is complete enough for us to get a sense of what an E Street Band track might have sounded like.
 
-[https://www.youtube.com/watch?v=omkVpmMkLOY](https://www.youtube.com/watch?v=omkVpmMkLOY)
+[Watch on Youtube: Bruce Springsteen Don't Back Down #10 different music & double track vocals](https://www.youtube.com/watch?v=omkVpmMkLOY)
 
 Lyrically, this version of “Don’t Back Down” is still a work in progress–the third verse is just the first verse repeated and there are a few lines that sound at least lightly bluffed–but this is definitely a fully formed pop song with verses in the mold of “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” and a refrain reminiscent of “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/).”
 

@@ -4,9 +4,9 @@ Woody Guthrie recorded “Tom Joad” in two parts for his 1940 *Dust Bowl Balla
 
 As a result, the two parts became known as “Tom Joad Part 1” and “Tom Joad Part 2,” even though they are clearly meant to be heard as a single song.
 
-[https://www.youtube.com/watch?v=mJWy15v5YoI](https://www.youtube.com/watch?v=mJWy15v5YoI)
+[Watch on Youtube: Tom Joad, Pt. 1](https://www.youtube.com/watch?v=mJWy15v5YoI)
 
-[https://www.youtube.com/watch?v=ozBU0BtQ2h0](https://www.youtube.com/watch?v=ozBU0BtQ2h0)
+[Watch on Youtube: Tom Joad, Pt. 2](https://www.youtube.com/watch?v=ozBU0BtQ2h0)
 
 *Dust Bowl Ballads* was Woody Guthrie’s very first and most successful commercial recording, and through it he brought widespread awareness to the plight of displaced Dust Bowl farmers and agricultural workers.
 
@@ -26,7 +26,7 @@ Until earlier this month, that is.
 
 On May 13, 2021, Bruce was awarded the annual Woody Guthrie Prize by the Woody Guthrie Center, and he worked up an acoustic mini-set for the occasion. Unsurprisingly, he opened with “Tom Joad,” in a particularly heartfelt reading, particularly in the song’s final verse.
 
-[https://www.youtube.com/watch?v=TD-cfcEAbV0](https://www.youtube.com/watch?v=TD-cfcEAbV0)
+[Watch on Youtube: Tom Joad - Bruce Springsteen (13-05-2021 Woody Guthrie Center Award)](https://www.youtube.com/watch?v=TD-cfcEAbV0)
 
 “Tom Joad” isn’t one of Bruce’s most well-known covers, but it holds a special place of importance for inspiring him to turn Steinbeck’s classic tale into a modern-day call for social activism.
 
@@ -35,5 +35,3 @@ On May 13, 2021, Bruce was awarded the annual Woody Guthrie Prize by the Woody G
 **Tom Joad  
 First performed:** September 25, 1996 (Akron, OH)  
 **Last performed:** May 13, 2021 (Colts Neck, NJ)
-
- 

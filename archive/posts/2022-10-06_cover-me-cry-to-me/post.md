@@ -2,17 +2,17 @@ With a new album of old soul covers on the way, let’s take a look at a few mor
 
 That’s because “Cry to Me” has only appeared in a Springsteen set list once, way back in 1971, and that performance was not recorded. He did, however, play it at least two sound checks during the Born to Run Tour, and those performances survive thanks to the stealthy tapecraft of bootleggers.
 
-[https://www.youtube.com/watch?v=mEu8DrO9PbY](https://www.youtube.com/watch?v=mEu8DrO9PbY)
+[Watch on Youtube: Solomon Burke ~ Cry To Me](https://www.youtube.com/watch?v=mEu8DrO9PbY)
 
 “Cry to Me” was a hit for the great Solomon Burke (for whom Bruce has often expressed admiration) when he released it in 1962. Peaking at #5 on the R&B chart and #44 on the Hot 100, it became one of Burke’s best-known songs, a plaintive cry of loneliness and heartbreak that’s as irresistible to cover artists as it is to audiences.
 
 Barely a year after Burke charted with “Cry to Me,” Betty Harris took it to #10 on the R&B chart and handily surpassed the original on the Hot 100, peaking at #23.
 
-[https://www.youtube.com/watch?v=V7pyVhOUwNQ](https://www.youtube.com/watch?v=V7pyVhOUwNQ)
+[Watch on Youtube: Betty Harris - Cry To Me - 1963](https://www.youtube.com/watch?v=V7pyVhOUwNQ)
 
 Two years after that, The Rolling Stones covered it as an album track on *Out of Our Heads.*
 
-[https://www.youtube.com/watch?v=DGNMZRTLpDg](https://www.youtube.com/watch?v=DGNMZRTLpDg)
+[Watch on Youtube: Cry To Me (Remastered 2002)](https://www.youtube.com/watch?v=DGNMZRTLpDg)
 
 All of this was before Burke’s original achieved immortality when it was featured in a key scene in the 1987 film, *Dirty Dancing*.
 
@@ -39,5 +39,3 @@ I can’t help but wonder why Bruce never gave it a proper concert outing, but k
 **Cry to Me  
 First performed:** May 14, 1971 (Asbury Park, NJ)  
 **Last performed:** December 12, 1975 (Greenvale, NY) – soundcheck only
-
- 

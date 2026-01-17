@@ -4,17 +4,17 @@ In Bruce’s book of song lyrics entitled (appropriately) *Songs*, there’s a t
 
 But–Bruce apparently likes to write in notebooks that have thin paper, because in the photo we can easily see the writing from the opposite side of the page seeping through.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/bluemoonturnstogold_lyrics-225x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/bluemoonturnstogold_lyrics.jpg)
 
 So of course upon noticing this, we have to immediately hold the page up to a mirror, right? Lo and behold: a song we’ve never heard to this day, called “Blue Moon Turns to Gold.”
 
 And while most of the first half of the song is obscured by the last lines of “Gloria’s Eyes” (darn it), the second half is clear enough to make out much of it.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/bluemoonturnstogold_lyrics-1-225x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/bluemoonturnstogold_lyrics-1.jpg)
 
 The song title is almost certainly a hat tip to the 1941 Wiley Walker/Gene Sullivan recording (covered by Elvis Presley, Jerry Lee Lewis, Emmylou Harris, and more) “When My Blue Moon Turns to Gold Again.”
 
-[https://www.youtube.com/watch?v=SfW2TFiWeEc](https://www.youtube.com/watch?v=SfW2TFiWeEc)
+[Watch on Youtube: 1st RECORDING OF: When My Blue Moon Turns To Gold Again - Wiley Walker & Gene Sullivan (1941)](https://www.youtube.com/watch?v=SfW2TFiWeEc)
 
 But while the title might have been borrowed, the lyrics are original.
 
@@ -43,4 +43,4 @@ Never recorded**
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

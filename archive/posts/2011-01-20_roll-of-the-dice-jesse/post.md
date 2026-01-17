@@ -4,11 +4,11 @@ Decades down the line, it seems like most of the really interesting ones have be
 
 Enter “Jesse.”
 
-Recorded with crystal clarity at the apartment of Jim Cretecos (Mike Appel’s business partner), “Jesse” is a superb document of Bruce’s early acoustic songwriting. (See my earlier essay on “[Hollywood Kids](http://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)” for another lost Springsteen original from this session. “Jesse” is much stronger, though.)
+Recorded with crystal clarity at the apartment of Jim Cretecos (Mike Appel’s business partner), “Jesse” is a superb document of Bruce’s early acoustic songwriting. (See my earlier essay on “[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)” for another lost Springsteen original from this session. “Jesse” is much stronger, though.)
 
-If you listen closely, you’ll hear the first evidence of what would eventually become “[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).” (The meter is the same, and the third line of each verse is musically almost identical to “Sandy.”)
+If you listen closely, you’ll hear the first evidence of what would eventually become “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).” (The meter is the same, and the third line of each verse is musically almost identical to “Sandy.”)
 
-[https://www.youtube.com/watch?v=3eIuZXI4rTc](https://www.youtube.com/watch?v=3eIuZXI4rTc)
+[Watch on Youtube: Bruce Springsteen - Jesse](https://www.youtube.com/watch?v=3eIuZXI4rTc)
 
 We don’t know exactly when Bruce wrote “Jesse,” but we know he was only 22 when he recorded it, and we can already see some trademark Springsteenian devices in play:
 

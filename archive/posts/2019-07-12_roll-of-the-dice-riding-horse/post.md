@@ -1,6 +1,6 @@
 Let’s take a listen to a never-released outtake from Bruce Springsteen’s *Nebraska* sessions that’s especially, um, high concept.
 
-[https://videopress.com/embed/hOL4EwHY](https://videopress.com/embed/hOL4EwHY)
+[Watch Video Highlight](https://videopress.com/embed/hOL4EwHY)
 
 (Side note: Good luck trying to find this song on youtube. Thanks to another well-known Springsteen who’s an equestrian star, searching for “Bruce Springsteen Riding Horse” does *not* yield desired results. So feel free to bookmark this for your repeat listening pleasure.)
 
@@ -42,4 +42,4 @@ When the next tour comes, I think I know what my next sign request is gonna be.
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

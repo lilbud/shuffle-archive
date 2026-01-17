@@ -2,7 +2,7 @@
 
 To this day, I have no idea what Bruce is actually singing in the first line of “Stand On It.”
 
-[https://www.youtube.com/watch?v=8CxaXbCEYzE](https://www.youtube.com/watch?v=8CxaXbCEYzE)
+[Watch on Youtube: Stand On It (Single B-Side - 1985)](https://www.youtube.com/watch?v=8CxaXbCEYzE)
 
 I mean, I *guess* I do, because I have the lyrics as a reference, but for the life of me my brain is unable to make sense of that rapid-fire syllabic barrage. And honestly, it’s touch and go for the rest of the song as well. When he performs it in concert, it sounds like pure vocalese to me.
 
@@ -14,7 +14,7 @@ But that’s just Bruce walking his talk.
 
 *Stand on it*. Put the pedal to the metal. Go fast, as fast as you can go–and then go faster still. That’s the motto and the moral of the book, and it also carried over to the critically panned film, which premiered just a few weeks before Bruce wrote his song.
 
-[https://www.youtube.com/watch?v=QimodWJM6qY](https://www.youtube.com/watch?v=QimodWJM6qY)
+[Watch on Youtube: Stroker Ace Opening Song](https://www.youtube.com/watch?v=QimodWJM6qY)
 
 As “Ace” urges in the book, “If you’re ever going to stand on it at all, stand on it now. The longer you wait, the slower you get.”
 
@@ -68,21 +68,21 @@ It’s all wrapped up in a rockabilly track that would make The Killer proud, re
 
 “Stand On It” was released as the B-side to Bruce’s 1985 “Glory Days” single, and then again the following year on the soundtrack album for *Ruthless People–*both times in an edited-down version omitting the final verse.
 
-[https://www.youtube.com/watch?v=cWRKjIs21UM](https://www.youtube.com/watch?v=cWRKjIs21UM)
+[Watch on Youtube: Bruce Springsteen - Stand On It](https://www.youtube.com/watch?v=cWRKjIs21UM)
 
 Despite being released on the flip side of a Top 10 single and a popular film, “Stand On It” never really registered on the pop culture radar. It didn’t garner attention when Bruce released the full version on *Tracks* in 1998 either.
 
 Still, it’s been a fan favorite in its relatively rare live outings, thanks in part to Bruce’s mugging and hamming when he performs it.
 
-[https://www.youtube.com/watch?v=LbCvvGNMyOw](https://www.youtube.com/watch?v=LbCvvGNMyOw)
+[Watch on Youtube: Bruce Springsteen - Stand On It](https://www.youtube.com/watch?v=LbCvvGNMyOw)
 
 Even in relatively recent times, it’s a hoot to watch Bruce rip through “Stand On It,” even (or especially) if he needs to gather up a good head of steam to make it all the way through.
 
-[https://www.youtube.com/watch?v=PqCTGEuqI-4](https://www.youtube.com/watch?v=PqCTGEuqI-4)
+[Watch on Youtube: Bruce Springsteen - Stand On It / Bobby Jean (Live 2000-06-15)](https://www.youtube.com/watch?v=PqCTGEuqI-4)
 
 Although it’s become pretty rare these days, “Stand On It” still makes appearances from time to time. And even if it seems like the band might play it just a little bit slower than they used to…
 
-[https://www.youtube.com/watch?v=vPwOurNpVx8](https://www.youtube.com/watch?v=vPwOurNpVx8)
+[Watch on Youtube: Bruce Springsteen - 2013-07-27 Kilkenny - Stand On It](https://www.youtube.com/watch?v=vPwOurNpVx8)
 
 …at the end of the day “Stand On It” isn’t about setting land speed records. It’s about leaving it all out on the field, and the E Street Band still does that night after night.
 

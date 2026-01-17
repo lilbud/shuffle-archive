@@ -4,7 +4,7 @@ That album already had two great songs about driving around in cars; a third mig
 
 Still, there’s something hypnotic and wonderful about this lost lovely. Take a listen: (You can stop the video before the “hidden” bonus of “[The Way](https://estreetshuffle.com/index.php/2021/08/06/roll-of-the-dice-the-way/)” after the three-minute mark.)
 
-[https://www.youtube.com/watch?v=rtI5TxfhhUU](https://www.youtube.com/watch?v=rtI5TxfhhUU)
+[Watch on Youtube: City of Night](https://www.youtube.com/watch?v=rtI5TxfhhUU)
 
 If I had to describe “City of Night” in a word, it would be: carefree. Like his sugar girl, our narrator of hasn’t a care in the world. He’s on his way to see her, and that’s pretty much all we need to know–which is good, because that’s pretty much all we get. His mind wanders during his cab ride to his baby:
 
@@ -36,7 +36,7 @@ There’s some slick editing at work in the second verse. Although Bruce and the
 
 The version that Bruce officially released on *The Promise* in 2010 deftly edits that entire segment out, and I’ll be darned if I can detect the seam with my own ears. You try:
 
-[https://www.youtube.com/watch?v=TjyJGKIu7nI](https://www.youtube.com/watch?v=TjyJGKIu7nI)
+[Watch on Youtube: Bruce Springsteen - Taxi Cab (City At Night)](https://www.youtube.com/watch?v=TjyJGKIu7nI)
 
 You might have noticed something else in that original recording besides the skillful edit–where’s the third verse?
 
@@ -66,4 +66,4 @@ Recorded:** October 14, 1977
 **Released:** *The Promise* (2010)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,7 +2,7 @@
 
 Because if you *do* pay attention to the words, “Cadillac Ranch” is one of the darkest, fatalistic and just plain morbid songs in Bruce Springsteen’s catalog.
 
-[https://www.youtube.com/watch?v=ODQgHmRCBHo](https://www.youtube.com/watch?v=ODQgHmRCBHo)
+[Watch on Youtube: Cadillac Ranch](https://www.youtube.com/watch?v=ODQgHmRCBHo)
 
 I mean, come on: Stripped of its melody and metaphor, the message of “Cadillac Ranch” makes *Nebraska* seem like a pop record.
 
@@ -12,13 +12,13 @@ We’ll get to that, but let’s start by taking a close read of the lyrics, and
 
 The Cadillac Ranch is a real place in Amarillo, Texas. Part public art and part roadside attraction, the Cadillac Ranch is a string of ten old Cadillacs buried nose down in the ground.
 
-[https://www.youtube.com/watch?v=NqtTz-Uw2kU](https://www.youtube.com/watch?v=NqtTz-Uw2kU)
+[Watch on Youtube: Cadillac Ranch History - Amarillo Texas](https://www.youtube.com/watch?v=NqtTz-Uw2kU)
 
 The cars themselves represent the golden age of the American automobile; buried and arranged as if in a graveyard, the installation serves as a metaphor for our fleeting youth and inevitable death.
 
 In “Cadillac Ranch” the song, Bruce leaps behind the wheel of that metaphor and takes it on a manic, gleeful joyride before eventually driving it even deeper into the ground than the actual Cadillacs themselves.
 
-Whenever Bruce refers to a Cadillac, he speaks of Death. (In this song, at least. In his other Caddy song, “[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/),” it represents a vagina. Make of that what you will.)
+Whenever Bruce refers to a Cadillac, he speaks of Death. (In this song, at least. In his other Caddy song, “[Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/),” it represents a vagina. Make of that what you will.)
 
 So when Bruce sings…
 
@@ -82,29 +82,29 @@ And there’s probably a message in that, too: time doesn’t stop for grief. Pu
 ---
 
 
-Even by critics who do understand the song, “Cadillac Ranch” is often lumped into the same category as “[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” and “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” — songs where Bruce’s lyrics are belied by the backing track.
+Even by critics who do understand the song, “Cadillac Ranch” is often lumped into the same category as “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” and “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” — songs where Bruce’s lyrics are belied by the backing track.
 
 But that’s an unfair classification for “Cadillac Ranch,” because it’s hard to imagine the song working in any arrangement other than the one Bruce went with for the studio track. Trust me–Bruce has on rare occasion tried a different arrangement. It usually does not go well, like in this 2005 solo acoustic arrangement inexplicably interchanged with “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)” on the tour.
 
-[https://www.youtube.com/watch?v=Lp-kAScF8Kc](https://www.youtube.com/watch?v=Lp-kAScF8Kc)
+[Watch on Youtube: 22. Cadillac Ranch (Bruce Springsteen - Live In Copenhagen 6-22-2005)](https://www.youtube.com/watch?v=Lp-kAScF8Kc)
 
-Or in this 2006 Seeger Sessions arrangement, where Bruce mashes up “Cadillac Ranch” with a cover of “[Mystery Train](http://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/),” which is actually brilliant from a lyrical point of view but never quite lives up to its potential. (It pains me to write that, because I loved that tour so very much.)
+Or in this 2006 Seeger Sessions arrangement, where Bruce mashes up “Cadillac Ranch” with a cover of “[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/),” which is actually brilliant from a lyrical point of view but never quite lives up to its potential. (It pains me to write that, because I loved that tour so very much.)
 
-[https://www.youtube.com/watch?v=mYeiOaOluqU](https://www.youtube.com/watch?v=mYeiOaOluqU)
+[Watch on Youtube: Bruce Springsteen with The SSB -Cadillac Ranch/Mistery Train](https://www.youtube.com/watch?v=mYeiOaOluqU)
 
 No, “Cadillac Ranch” only ever works when the E Street Band commits–and I mean *commits* to it.
 
 From their earliest performances, we could see the direction that “Cadillac Ranch” was inevitably going to take on stage. It’s almost impossible to *not* ham it up.
 
-[https://www.youtube.com/watch?v=4dG3jc6fzPY](https://www.youtube.com/watch?v=4dG3jc6fzPY)
+[Watch on Youtube: Bruce Springsteen - Cadillac Ranch (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=4dG3jc6fzPY)
 
 By the time Bruce’s mammoth, marathon Born in the U.S.A. Tour got underway a few years later, “Cadillac Ranch” was firmly established as a nightly set piece–in the beginning, loose and light:
 
-[https://www.youtube.com/watch?v=mA6j_o55sgM](https://www.youtube.com/watch?v=mA6j_o55sgM)
+[Watch on Youtube: Bruce Springsteen - Cadillac Ranch - Live at CNE Grandstands '84 (Blu-ray)](https://www.youtube.com/watch?v=mA6j_o55sgM)
 
 …and by the end of the tour, tightly choreographed yet increasingly goofy.
 
-[https://videopress.com/embed/uM0lFori](https://videopress.com/embed/uM0lFori)
+[Watch Video Highlight](https://videopress.com/embed/uM0lFori)
 
 Forty years on, “Cadillac Ranch” is still a mainstay of Bruce’s set lists. Other than the brief, thematic Vote for Change Tour, “Cadillac Ranch” hasn’t missed an E Street Band tour yet, and it’s been featured on the Seeger Sessions and Devils & Dust solo tours as well.
 
@@ -114,7 +114,7 @@ Because the closer we all get to the end of the drive, the more we need to enjoy
 
 **Bonus:** Here’s an unreleased studio outtake featuring a different mix, but the thing you’ll notice most is the siren and peelout that introduces the song. It makes “Cadillac Ranch” sound like the perfect candidate for the opening credits of a Burt Reynolds movie.
 
-[https://videopress.com/embed/RcbkHi9g](https://videopress.com/embed/RcbkHi9g)
+[Watch Video Highlight](https://videopress.com/embed/RcbkHi9g)
 
 **Cadillac Ranch  
 Recorded:** February 16-April 26, 1980  
@@ -122,4 +122,4 @@ Recorded:** February 16-April 26, 1980
 **First performed:** October 3, 1980 (Ann Arbor, MI)  
 **Last performed:** November 16, 2019 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

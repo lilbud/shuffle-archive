@@ -10,15 +10,15 @@ In early 1982, Bruce recorded a series of demos in his home studios. Some were r
 *I don’t need your money, I don’t need your friends*  
 *I need you*
 
-[https://www.youtube.com/watch?v=EVyGE_UAdMs](https://www.youtube.com/watch?v=EVyGE_UAdMs)
+[Watch on Youtube: Bruce Springsteen I Need You #1](https://www.youtube.com/watch?v=EVyGE_UAdMs)
 
 It’s pretty standard “that’s all right with me” romantic territory for Bruce, but there’s no real hook, which may be why he abandoned it. The only other trace of this song that we have is this backing vocal mock-up. If you can visualize them together, you might have something that could have worked on *The River*, but we’ll probably never know. Bruce made more progress with “Ruled by the Gun,” but that’s an essay for another day.
 
-[https://www.youtube.com/watch?v=VSV3vPoBdFM](https://www.youtube.com/watch?v=VSV3vPoBdFM)
+[Watch on Youtube: Bruce Sprignsteen I Need You #2 background vocals](https://www.youtube.com/watch?v=VSV3vPoBdFM)
 
 **I Need You**  
 **Recorded:** early 1982  
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

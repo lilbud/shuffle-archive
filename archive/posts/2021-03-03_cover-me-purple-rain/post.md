@@ -2,7 +2,7 @@
 
 Has there ever been a song so loaded with feels than “Purple Rain?” (Answer: no.)
 
-[https://www.youtube.com/watch?v=TvnYmWpD_T8](https://www.youtube.com/watch?v=TvnYmWpD_T8)
+[Watch on Youtube: Prince - Purple Rain (Official Video)](https://www.youtube.com/watch?v=TvnYmWpD_T8)
 
 Prince’s signature song was a monster hit, riding the Top 10 of the Billboard Hot 100 not once but twice: first upon its original release in the autumn of 1984 (when it was deprived of the #1 spot by Wham’s “Wake Me Up Before You Go-Go”) and again following Prince’s death, when it reached #4 in April 2016.
 
@@ -20,7 +20,7 @@ On this night, however, when the house lights came down at showtime, the stage w
 
 Max’s slow count-in was a giveaway, but when Bruce played the first chord of “Purple Rain,” the crowd roared with appreciation. The performance that followed ranks among the very best covers Bruce and the band have ever done.
 
-[https://www.youtube.com/watch?v=4yC3c_aaX_I](https://www.youtube.com/watch?v=4yC3c_aaX_I)
+[Watch on Youtube: Purple Rain - Bruce Springsteen - (Multicam/Soundboard) - Barclays Centre 23-4-2016](https://www.youtube.com/watch?v=4yC3c_aaX_I)
 
 Bruce had long admitted to being a huge Prince fan, and the love and respect with which he treated his source material was palpable.
 

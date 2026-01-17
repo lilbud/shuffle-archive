@@ -4,6 +4,6 @@ That needs to change–if only because there are SO MANY covers of this song out
 
 So let’s kick things off, with this *very* different take on “I’m on Fire” by Twin Shadow. He actually captures the steamy, late-night vibe of this song really well, placing him pretty high up on my list of “I’m on Fire” coverers. Enjoy.
 
-[https://www.youtube.com/watch?v=SktIeDlgYg4](https://www.youtube.com/watch?v=SktIeDlgYg4)
+[Watch on Youtube: Twin Shadow - I'm On Fire [UNDER THE CVRS]](https://www.youtube.com/watch?v=SktIeDlgYg4)
 
 Got a favorite “I’m on Fire” cover? Send a link my way, please!

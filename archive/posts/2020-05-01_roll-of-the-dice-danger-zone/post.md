@@ -6,9 +6,9 @@ But this one’s an exception.
 
 Written and recorded during the Nebraska era, “Danger Zone” is tender, warm, and unlike anything else Bruce recorded during those years. Let’s take a listen:
 
-[https://videopress.com/embed/ovwt7ZtQ](https://videopress.com/embed/ovwt7ZtQ)
+[Watch Video Highlight](https://videopress.com/embed/ovwt7ZtQ)
 
-If there’s a through line to be drawn from “Danger Zone,” it might be one that threads through “Child Bride” on the way to “[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).”
+If there’s a through line to be drawn from “Danger Zone,” it might be one that threads through “Child Bride” on the way to “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).”
 
 Those latter two songs–one still unreleased, the other now a classic–center around a romantic relationship between their protagonist and an underage girl.
 
@@ -49,4 +49,4 @@ Recorded:** March-April 1981 (demo)
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

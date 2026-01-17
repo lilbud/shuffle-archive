@@ -4,10 +4,8 @@ And yes, I know that Mumford & Sons have been covering “I’m on Fire” for y
 
 But in my opinion, this one stands head and shoulders above the others:
 
-[https://www.youtube.com/watch?v=4gKNLeBtXy0](https://www.youtube.com/watch?v=4gKNLeBtXy0)
+[Watch on Youtube: Mumford & Sons - I'm On Fire (Bruce Springsteen Cover) [LIVE @ The Stephen Talkhouse]](https://www.youtube.com/watch?v=4gKNLeBtXy0)
 
 The band absolutely *nails* the pacing and the temperature, keeping the song at a slowly building simmer until it explodes before closing on a quietly sinister note.
 
 Honestly, I’m not a huge Mumford & Sons fan, but this particular performance of “I’m on Fire” has immediately become one of my favorites among a sea of covers of this particular song.
-
- 

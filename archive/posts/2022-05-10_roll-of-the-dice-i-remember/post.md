@@ -10,7 +10,7 @@ There are few surviving documents from these shows, but we know that Bruce perfo
 
 The clip below is from February 1972, the best of the three surviving, circulating recordings. It’s clear throughout that the band –Vini Lopez, David Sancious, Garry Tallent, and Steven Van Zandt–are vamping too, laying down a mellow, tender, restrained two-chord groove for Bruce to lose himself in *for fifteen minutes.* Only occasionally does the band swell in power and volume to give Bruce a cresting wave to surf–which he does with rueful vocals that ooze heartache and regret far beyond what one would expect from a 22-year-old singer-songwriter.
 
-[https://videopress.com/embed/urNxW8lJ](https://videopress.com/embed/urNxW8lJ)
+[Watch Video Highlight](https://videopress.com/embed/urNxW8lJ)
 
 Each recorded performance of “I Remember” is unique–Bruce clearly intended it as such–but the storyline is always the same: Boy had girl; boy lost girl; boy misses girl; boy finds girl; boy begs girl; girl rebuffs boy; girl shrugs and takes boy back.
 

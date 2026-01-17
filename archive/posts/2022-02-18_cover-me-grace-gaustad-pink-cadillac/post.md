@@ -6,7 +6,7 @@ Gaustad has been performing and recording since she was a kid. In an interview w
 
 Rather than simply re-record it, she decided to sing it in the same key as her ten-year-old self and combine the vocals into a single track. The end result? “[H]earing those two vocals against one another is like magic. It’s so cool… very surreal.”
 
-[https://www.youtube.com/watch?v=vU_iy0A6nGg](https://www.youtube.com/watch?v=vU_iy0A6nGg)
+[Watch on Youtube: Gaustad - Pink Cadillac (Bruce Springsteen Cover)](https://www.youtube.com/watch?v=vU_iy0A6nGg)
 
 Gaustad gravitated to Bruce’s music through her mom’s influence. What attracted Gaustad to “Pink Cadillac” in particular? “Probably because I was 10 years old and loved the color pink.” Maybe that’s all it took when she was ten, but it’s pretty clear from the video that at age twenty, Gaustad has a better sense of what Bruce’s song is about.
 

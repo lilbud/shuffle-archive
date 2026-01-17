@@ -4,15 +4,15 @@ Not only did Lorde’s debut single top charts around the world, not only did it
 
 And she wrote it in a half-hour at the age of fifteen.
 
-[https://www.youtube.com/watch?v=nlcIKh6sBtc](https://www.youtube.com/watch?v=nlcIKh6sBtc)
+[Watch on Youtube: Lorde - Royals (US Version)](https://www.youtube.com/watch?v=nlcIKh6sBtc)
 
 “Royals” made the Billboard Top 20 for *both* 2013 and 2014, so it was still flying high when Bruce surprised and delighted his Auckland audience by opening his High Hopes shows with it in March 2014.
 
-By that point in the tour, Bruce had taken to paying tribute to local hero artists at each stop along the tour, turning in tour de force covers of “Highway to Hell,” “[Stayin’ Alive](https://estreetshuffle.com/index.php/2020/09/01/cover-me-stayin-alive/),” “[Friday on My Mind](http://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/),” and more while in Australia.
+By that point in the tour, Bruce had taken to paying tribute to local hero artists at each stop along the tour, turning in tour de force covers of “Highway to Hell,” “[Stayin’ Alive](https://estreetshuffle.com/index.php/2020/09/01/cover-me-stayin-alive/),” “[Friday on My Mind](https://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/),” and more while in Australia.
 
 But Bruce’s cover of “Royals” was no mere hat tip–that written-by-a-teenage-girl song obviously spoke to and resonated with the 64-year-old rock legend.
 
-[https://www.youtube.com/watch?v=xfJvrH7iQ3c](https://www.youtube.com/watch?v=xfJvrH7iQ3c)
+[Watch on Youtube: Bruce Springsteen - Lorde's "Royals" (Auckland 03/02/14)](https://www.youtube.com/watch?v=xfJvrH7iQ3c)
 
 How do we know?
 
@@ -31,5 +31,3 @@ That’s a lesson they’ve both proven time and again.
 **Royals  
 First performed:** March 1, 2014 (Auckland, New Zealand)  
 **Last performed:** March 2, 2014 (Auckland, New Zealand)
-
- 

@@ -2,7 +2,7 @@
 
 Search the Internet and you’ll find dozens of examples, like at the 3:52 mark below.
 
-[https://www.youtube.com/watch?v=8TsYsnsQIQo](https://www.youtube.com/watch?v=8TsYsnsQIQo)
+[Watch on Youtube: Drill Sergeant Marches Platoon, Cadence JukeBox/U.S. Army Marching Cadence Video](https://www.youtube.com/watch?v=8TsYsnsQIQo)
 
 In 2017, Jason Hall wrote and directed a movie about Iraq War veterans suffering from PTSD. The movie was based on and shares its name with a book by David Finkel, *Thank You For Your Service,* based on the true experiences of Staff Sergeant Adam Schumann.
 
@@ -16,9 +16,9 @@ Bruce didn’t alter the melody one bit, but he arranged it for pump organ and b
 
 The result is captivating and haunting:
 
-[https://www.youtube.com/watch?v=4zwkklT8sR4](https://www.youtube.com/watch?v=4zwkklT8sR4)
+[Watch on Youtube: Bruce Springsteen: Freedom Cadence](https://www.youtube.com/watch?v=4zwkklT8sR4)
 
-In time-honored fashion, Bruce did adapt the lyrics however, and he did so with callbacks to “[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” that can’t be accidental:
+In time-honored fashion, Bruce did adapt the lyrics however, and he did so with callbacks to “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” that can’t be accidental:
 
 *Some say freedom is free, but I tend to disagree*  
 *I say freedom is won through the barrel of a gun*  
@@ -46,4 +46,4 @@ The reference to a brother who didn’t come back, to a father who was killed at
 **Released:** *Thank You For Your Service* (2017)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

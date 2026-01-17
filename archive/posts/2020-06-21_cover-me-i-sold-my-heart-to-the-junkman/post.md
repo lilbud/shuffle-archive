@@ -1,16 +1,16 @@
 About the only things that I can tell you for certain about “I Sold My Heart to the Junkman” are that it was written by Leon René (who also wrote “[Rockin’ Robin](https://estreetshuffle.com/index.php/2021/08/10/cover-me-rockin-robin/)” and other hits) under the pseudonym Jimmie Thomas, first recorded in 1946 by The Basin Street Boys…
 
-[https://www.youtube.com/watch?v=YmhAQbKo3C4](https://www.youtube.com/watch?v=YmhAQbKo3C4)
+[Watch on Youtube: I Sold My Heart To The Junk Man - Basin Street Boys](https://www.youtube.com/watch?v=YmhAQbKo3C4)
 
 …and then translated into a wonderful arrangement by Etta Jones the following year.
 
-[https://www.youtube.com/watch?v=E14Iqk78eug](https://www.youtube.com/watch?v=E14Iqk78eug)
+[Watch on Youtube: I Sold My Heart to the Junkman](https://www.youtube.com/watch?v=E14Iqk78eug)
 
 From there, it gets confusing.
 
 The most famous version of the song was released in 1962 by The Blue-Belles, with lead vocals by a destined-for-fame Patti LaBelle.
 
-[https://www.youtube.com/watch?v=WpOn-o0PbbQ](https://www.youtube.com/watch?v=WpOn-o0PbbQ)
+[Watch on Youtube: 1962 HITS ARCHIVE: I Sold My Heart To The Junkman - Blue-Belles (The Starlets)](https://www.youtube.com/watch?v=WpOn-o0PbbQ)
 
 Except maybe not.
 
@@ -30,7 +30,7 @@ Now, I don’t know why Bruce was thinking about her that day in 1974, nor do I 
 
 But cover it he did, and the band’s unique arrangement (which draws from both the 1940s and 1960s versions) and polished performance strongly argues against it being an audible.
 
-[https://www.youtube.com/watch?v=M99gSHyVVCE](https://www.youtube.com/watch?v=M99gSHyVVCE)
+[Watch on Youtube: Bruce Springsteen - I SOLD MY HEART TO THE JUNKMAN 1974 (audio)](https://www.youtube.com/watch?v=M99gSHyVVCE)
 
 That performance was clearly planned and rehearsed, and it turned out great. So why didn’t Bruce ever cover it again? Just add that to the list of mysteries surrounding “I Sold My Heart to the Junkman.”
 
@@ -39,5 +39,3 @@ That performance was clearly planned and rehearsed, and it turned out great. So 
 **I Sold My Heart to the Junkman  
 First performed:** May 9, 1974 (Cambridge, MA)  
 **Last performed:** May 9, 1974 (Cambridge, MA)
-
- 

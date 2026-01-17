@@ -10,9 +10,9 @@ Okay, we can proceed now.
 
 Today marks one thousand days for me–one thousand *consecutive* days–of daily Springsteen blogging. I don’t think I’ve *ever* done anything for a thousand days in a row before that isn’t an involuntary or life-sustaining biological function, but for a thousand days in a row I’ve been writing my way through every song Bruce Springsteen has ever released, recorded, covered, and even discarded, never knowing what I’ll be writing about next until my randomizer reveals it to me.
 
-So for my 1,000th daily-versary present, I’m allowing myself a dealer’s choice (my first since [Day 1](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)) and writing about a song I’ve been champing at the bit to discuss since I first heard it on [Day 526](http://estreetshuffle.com/index.php/2020/06/14/kingdom-of-days-june-14/).
+So for my 1,000th daily-versary present, I’m allowing myself a dealer’s choice (my first since [Day 1](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)) and writing about a song I’ve been champing at the bit to discuss since I first heard it on [Day 526](https://estreetshuffle.com/index.php/2020/06/14/kingdom-of-days-june-14/).
 
-[https://www.youtube.com/watch?v=paFUBjeTcZY](https://www.youtube.com/watch?v=paFUBjeTcZY)
+[Watch on Youtube: Bruce Springsteen - Moonlight Motel (Official Audio)](https://www.youtube.com/watch?v=paFUBjeTcZY)
 
 I try not to make too many absolute value statements, but I’m going to make one now:
 
@@ -22,7 +22,7 @@ It’s not my favorite song in his catalog. Heck, it’s not even my favorite so
 
 “Moonlight Motel” is *dripping* in symbolism. Every line, every phrase, every detail is significant on at least two levels, and sometimes more. Both in sound and content, it is unique. For an artist notorious for cross-pollinating his lyrics and music, “Moonlight Motel” sounds like no other song in Bruce’s catalog. It stands alone, expertly crafted and perfectly sequenced at the end of an album that’s all about the late stages of life’s journey.
 
-*Western Stars* begins with characters who are propelled ever-forward (“[Hitch Hikin’,](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)” “[The Wayfarer](https://estreetshuffle.com/index.php/2022/01/29/roll-of-the-dice-the-wayfarer/),” and [Tucscon Train](http://estreetshuffle.com/index.php/2020/05/25/roll-of-the-dice-tucson-train/)“), arcs toward characters rooted in place (whether at peace in “[Western Stars](http://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)” or restless in “[Chasin’ Wild Horses](http://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/)“), and then bends toward characters for whom loss and regret keeps them focused backward (“Sundown” through “[There Goes My Miracle](https://estreetshuffle.com/index.php/2021/04/10/roll-of-the-dice-there-goes-my-miracle/)“). The album ends with two characters *almost* ready to move forward, but first they need to allow themselves to accept new light and love and let go of old ones.
+*Western Stars* begins with characters who are propelled ever-forward (“[Hitch Hikin’,](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)” “[The Wayfarer](https://estreetshuffle.com/index.php/2022/01/29/roll-of-the-dice-the-wayfarer/),” and [Tucscon Train](https://estreetshuffle.com/index.php/2020/05/25/roll-of-the-dice-tucson-train/)“), arcs toward characters rooted in place (whether at peace in “[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)” or restless in “[Chasin’ Wild Horses](https://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/)“), and then bends toward characters for whom loss and regret keeps them focused backward (“Sundown” through “[There Goes My Miracle](https://estreetshuffle.com/index.php/2021/04/10/roll-of-the-dice-there-goes-my-miracle/)“). The album ends with two characters *almost* ready to move forward, but first they need to allow themselves to accept new light and love and let go of old ones.
 
 Today we’re going to take a long, loving, line-by-line look at “Moonlight Motel,” the period at the end of *Western Stars’* sentence.
 
@@ -60,7 +60,7 @@ I think this may be my favorite couplet in the entire song. The pool, of course,
 
 What makes the image perfect, though, is the classic symbol of emotional healing: the dandelion.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/dandelion-300x157.jpeg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/09/dandelion.jpeg)
 
 The dandelions poking their way through the concrete are both a literal example of the resort’s disrepair as well as a metaphorical sign that the resilience of life and love are chipping away at the hard concrete exterior our narrator has constructed around his heart. Sheer brilliance.
 
@@ -161,7 +161,7 @@ That’s why I get worked up at the suggestion that there’s a third shot, as i
 
 Bruce’s vocals are more gruff in the filmed version as well. Some might like that, but I’m not among them. I include the soundtrack version here for completeness, but recommend sticking with the original.
 
-[https://www.youtube.com/watch?v=k3N6IxnkW1k](https://www.youtube.com/watch?v=k3N6IxnkW1k)
+[Watch on Youtube: Bruce Springsteen - Moonlight Motel (Film Version - Official Audio)](https://www.youtube.com/watch?v=k3N6IxnkW1k)
 
 **Moonlight Motel  
 Recorded:** Unknown  
@@ -169,4 +169,4 @@ Recorded:** Unknown
 **First performed:** April 2019  
 **Last performed:** April 2019
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

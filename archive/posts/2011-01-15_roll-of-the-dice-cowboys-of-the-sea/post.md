@@ -14,7 +14,7 @@ Bruce recorded a solo acoustic version for *Greetings for Asbury Park, N.J.* (al
 
 …and he worked up a powerful, psychedelic full-band arrangement of it for The Bruce Springsteen Band in early 1972.
 
-[https://www.youtube.com/watch?v=gxXZ48rm8gI](https://www.youtube.com/watch?v=gxXZ48rm8gI)
+[Watch on Youtube: Bruce Springsteen Band - Cowboys Of The Sea (Live)](https://www.youtube.com/watch?v=gxXZ48rm8gI)
 
 Obviously, “Cowboys of the Sea” is an *Important Song,* so when the dice turned this one up, I made sure to give each and every version a deep listen.
 

@@ -6,7 +6,7 @@ As for the song itself, Bruce co-wrote “Baby I” with Castiles bandmate Georg
 
 It shows.
 
-[https://www.youtube.com/watch?v=aTeJTkSJMVE](https://www.youtube.com/watch?v=aTeJTkSJMVE)
+[Watch on Youtube: Bruce Springsteen - Baby I (2016) [Chapter and Verse]](https://www.youtube.com/watch?v=aTeJTkSJMVE)
 
 The lyrics are, shall we say, basic–although the song goes on for about two minutes, the lyrics are comprised of a total of nine unique lines that repeat at least once.*
 
@@ -33,11 +33,11 @@ Although it’s believed that The Castiles performed the song often over the nex
 
 *The officially released version of “Baby I” is edited for brevity. The original version ran about 15 seconds longer, due to a *third* instance of the “tended kiss” verse. If you’d like to hear the unedited version, take a listen below (but you’re really not missing anything if you don’t).
 
-[https://www.youtube.com/watch?v=I-3piB3bR7A](https://www.youtube.com/watch?v=I-3piB3bR7A)
+[Watch on Youtube: Bruce Springsteen (The Castiles ) - BABY I](https://www.youtube.com/watch?v=I-3piB3bR7A)
 
 **Updated 10/23/20:** Well, knock me down with a feather: we finally have a document of Bruce playing “Baby I” live, and it’s a video to boot. It’s not vintage, though–in fact, it’s about as modern as it gets. From the documentary film *Letter to You*, here’s Bruce and his cousin Frank playing the very first song Bruce ever wrote.
 
-[https://videopress.com/embed/UmOLrDkm](https://videopress.com/embed/UmOLrDkm)
+[Watch Video Highlight](https://videopress.com/embed/UmOLrDkm)
 
 **Baby I**  
 **Recorded:** May 18, 1966  
@@ -45,4 +45,4 @@ Although it’s believed that The Castiles performed the song often over the nex
 **First performed:** November 2019 (Colts Neck, NJ)  
 **Last performed:** November 2019 (Colts Neck, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

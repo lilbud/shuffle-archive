@@ -6,14 +6,12 @@ Like Bruce, I have no idea why that would be so, but to my eyes and ears it empi
 
 The band was more comfortable and confident on Night Two of the tour, and the set was rapidly coalescing into a tightly focused commentary on the times.
 
-[https://www.youtube.com/watch?v=8mHqlZioB3g](https://www.youtube.com/watch?v=8mHqlZioB3g)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - We Take Care of Our Own (Greensboro)](https://www.youtube.com/watch?v=8mHqlZioB3g)
 
-[https://www.youtube.com/watch?v=TyeomTPub8U](https://www.youtube.com/watch?v=TyeomTPub8U)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Wrecking Ball (Greensboro)](https://www.youtube.com/watch?v=TyeomTPub8U)
 
-[https://www.youtube.com/watch?v=NawwNACGKM0](https://www.youtube.com/watch?v=NawwNACGKM0)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Jack of All Trades (Greensboro)](https://www.youtube.com/watch?v=NawwNACGKM0)
 
-[https://www.youtube.com/watch?v=omeJXzAHtTQ](https://www.youtube.com/watch?v=omeJXzAHtTQ)
+[Watch on Youtube: Bruce Springsteen at Greensboro Coliseum 03/19/12 "Easy Money"](https://www.youtube.com/watch?v=omeJXzAHtTQ)
 
-[https://www.youtube.com/watch?v=iEWmlk5mmEI](https://www.youtube.com/watch?v=iEWmlk5mmEI)
-
- 
+[Watch on Youtube: Bruce Springsteen 3/19/12 10th Avenue Freeze Out Greensboro](https://www.youtube.com/watch?v=iEWmlk5mmEI)

@@ -1,14 +1,14 @@
 No one quite knows where “When The Saints Go Marching In” came from. Like many folk songs, it’s origins and earliest days are murky and multi-threaded. But the earliest known recording dates back to 1923 by the Paramount Jubillee Singers.
 
-[https://www.youtube.com/watch?v=hpuFgqlDP4c](https://www.youtube.com/watch?v=hpuFgqlDP4c)
+[Watch on Youtube: When All The Saints Come Marching In (Take 1)](https://www.youtube.com/watch?v=hpuFgqlDP4c)
 
 “The Saints” surfaced several times throughout the 1920s in gospel arrangements, but when Louis Armstrong recorded it in 1938, “When The Saints Go Marching In” became permanently ensconced as a jazz standard and unofficial song of New Orleans.
 
-[https://www.youtube.com/watch?v=USpYJB6rdRs](https://www.youtube.com/watch?v=USpYJB6rdRs)
+[Watch on Youtube: When The Saints Go Marching In](https://www.youtube.com/watch?v=USpYJB6rdRs)
 
 (My hometown of Philadelphia can lay a claim to it as well. My early memories include watching The Mummers perform “When The Saints Go Marching In” every New Years Day. Growing up, I actually thought it originated with and belonged to The Mummers.)
 
-[https://www.youtube.com/watch?v=2H4i1YLinME](https://www.youtube.com/watch?v=2H4i1YLinME)
+[Watch on Youtube: QCSB "When The Saints Go Marching In" - 2019 Fancy Brigade Serenade](https://www.youtube.com/watch?v=2H4i1YLinME)
 
 Over the years, it’s been covered countless times in myriad arrangements and genres. When Bruce was invited to play the New Orleans Jazz & Heritage Festival with the Sessions Band in 2006, he knew “The Saints” was a lock for his Americana set list, but which version to choose?
 
@@ -21,7 +21,7 @@ Researching the song, Bruce discovered that like much of folk music “The Saint
 
 “When The Saints Go Marching In” is fatalistic (if not apocalyptic), but these new lyrics promised redemption and rewarded hope. Bruce embraced these lyrics and worked up a quiet, almost reverent arrangement–and when the band was ready for its last JazzFest encore, this is what they played.
 
-[https://www.youtube.com/watch?v=izSK_fFv4tM](https://www.youtube.com/watch?v=izSK_fFv4tM)
+[Watch on Youtube: When the Saints Go Marching In (Live at the New Orleans Jazz & Heritage Festival, 2006)](https://www.youtube.com/watch?v=izSK_fFv4tM)
 
 Introducing the song, Bruce admitted it was intimidating to play “The Saints” in New Orleans–what could he bring to the song to make it fresh and relevant? For a city still reeling from the impact of Hurricane Katrina, Bruce’s gentle arrangement was the perfect medicine.
 
@@ -29,7 +29,7 @@ Bruce’s warm vocals comforted, and Marc Anthony Thompson (whose nightly contri
 
 “When the Saints Go Marching In” went over so well at JazzFest that Bruce kept it in the set list throughout the entire tour, playing it 60 times that year–and when Bruce released a tour document in the form of *Live in Dublin*, “When The Saints Go Marching In” was enshrined as an official release.
 
-[https://www.youtube.com/watch?v=i6eKkirEcgE](https://www.youtube.com/watch?v=i6eKkirEcgE)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - When the Saints Go Marching In (Live In Dublin)](https://www.youtube.com/watch?v=i6eKkirEcgE)
 
 Bruce retired “The Saints” after the Seeger Sessions Tour, reprising it only during return visits to Jazz Fest in 2012 and 2014. Those later E Street Band versions are serviceable, but they don’t match the grace or beauty of the Sessions Band’s version.
 
@@ -39,7 +39,7 @@ But we’ll always have 2006. And when we need a little hope and solace, we coul
 
 **Bonus:** Here’s a clip of Bruce strumming a little bit of “When The Saints Go Marching In” on Italian television, just because.
 
-[https://videopress.com/embed/iCn8QoAN](https://videopress.com/embed/iCn8QoAN)
+[Watch Video Highlight](https://videopress.com/embed/iCn8QoAN)
 
 **When the Saints Go Marching In  
 First performed:** April 20, 2006 (Asbury Park, NJ)  

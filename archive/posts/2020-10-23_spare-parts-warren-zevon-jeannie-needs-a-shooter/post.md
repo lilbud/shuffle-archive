@@ -6,13 +6,13 @@ If only we could authoritatively unravel Bruce’s specific contributions we’d
 
 Let’s see how we do.
 
-Bruce recorded a song called “[Janey Needs a Shooter](http://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/)” in early 1973, and he’s only just now getting around to releasing it on *Letter to You*, 47 years later (albeit as a new 2019 recording with the E Street Band).
+Bruce recorded a song called “[Janey Needs a Shooter](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/)” in early 1973, and he’s only just now getting around to releasing it on *Letter to You*, 47 years later (albeit as a new 2019 recording with the E Street Band).
 
-“Janey Needs a Shooter” is a terrific early (and now recent) E Street Band performance, and if you’d like to read my full analysis of it, check out my earlier article [here](http://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/).
+“Janey Needs a Shooter” is a terrific early (and now recent) E Street Band performance, and if you’d like to read my full analysis of it, check out my earlier article [here](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/).
 
 Suffice to say, it’s a great song with many fans, including one Warren Zevon.
 
-[https://www.youtube.com/watch?v=AuoD-d0jblk](https://www.youtube.com/watch?v=AuoD-d0jblk)
+[Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter](https://www.youtube.com/watch?v=AuoD-d0jblk)
 
 Well, sort of.
 
@@ -28,7 +28,7 @@ Zevon did just that. He got as far as the first verse and the title (which he’
 
 Bruce complimented Warren on the verse and asked where the rest of the song was. He soon found out: with a fish on his hook, Warren reeled in Bruce’s help to finish the song.
 
-[https://www.youtube.com/watch?v=53WwqdrUtvQ](https://www.youtube.com/watch?v=53WwqdrUtvQ)
+[Watch on Youtube: Jeannie Needs a Shooter](https://www.youtube.com/watch?v=53WwqdrUtvQ)
 
 Just how extensive that help was varies by account from a collaborative effort to Bruce simply finishing the song on his own. To the best of my knowledge, I’ve not seen a first-hand account that definitively answers the question.
 
@@ -43,5 +43,3 @@ And that’s (more or less) the story of how we ended up with two very different
 I gotta say, though: for two reportedly good friends, if the story above is anywhere close to true, that young Bruce Springsteen was either a really annoying friend (like, just play the song, dude!) or a really good mentor.
 
 It’s hard to say which.
-
- 

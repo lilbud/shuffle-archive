@@ -6,7 +6,7 @@ The song has at least two and possibly three layers to it: one universal, one pe
 
 Let’s take a listen to the last recording first. Captured by Tinker West at a Bruce Springsteen Band rehearsal at the Challenger Easter Surfboard factory on March 14, 1972, this is a gorgeous soundboard recording. While the band is still officially known as The Bruce Springsteen Band, the musicians you hear playing (Bruce, Steve, Garry, David, and Vini) are very much the E Street Band–only Danny is missing from the group that only months later would adopt their new name.
 
-[https://www.youtube.com/watch?v=dY3To2izd3Y](https://www.youtube.com/watch?v=dY3To2izd3Y)
+[Watch on Youtube: Bruce Springsteen - Look Towards The Land (1972 rehearsal) [improved audio]](https://www.youtube.com/watch?v=dY3To2izd3Y)
 
 “Look Towards the Land” is an exercise in restraint for the band. Bruce holds tight rein in order to make sure that the introspective, romantic lyrics don’t get lost. The melody is piano-driven, and is very similar to “[Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/),” which Bruce would record for his first album later that year.
 
@@ -36,7 +36,7 @@ But in the two other recorded performances of this song (from the previous year)
 *Keep an eye on the land*  
 *And an eye on the sea*
 
-I have to admit: I had to look up Donald McKay to verify if he was a real person, and indeed he was. McKay was a famous clipper shipbuilder, and the fact that Bruce knew this and namechecked him–combined with the fact that Bruce has made references to [dreams of clipper ships in other songs](http://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)–implies that Bruce had a genuine fascination with clippers, and that this isn’t just a piece of colorful detail for a song.
+I have to admit: I had to look up Donald McKay to verify if he was a real person, and indeed he was. McKay was a famous clipper shipbuilder, and the fact that Bruce knew this and namechecked him–combined with the fact that Bruce has made references to [dreams of clipper ships in other songs](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)–implies that Bruce had a genuine fascination with clippers, and that this isn’t just a piece of colorful detail for a song.
 
 A lovely Clapton-esque guitar solo follows, and then we continue:
 
@@ -93,11 +93,11 @@ It’s possible that this was still a holdover from earlier versions of the song
 *And that’s why at night I’m afraid to sleep*  
 *‘Cause some of my dreams frighten me*
 
-[https://www.youtube.com/watch?v=j6Gur5A4Zi8](https://www.youtube.com/watch?v=j6Gur5A4Zi8)
+[Watch on Youtube: Look Towards the Land by Bruce Springsteen](https://www.youtube.com/watch?v=j6Gur5A4Zi8)
 
 Five months later, in October 1971, the song sounds very close to the Challenger version at the top of this article. The “man” reference has been dropped, but the “war machine” is there. Take a listen–it’s uploaded here to youtube for the first time:
 
-[https://www.youtube.com/watch?v=Imk5QO51SJM](https://www.youtube.com/watch?v=Imk5QO51SJM)
+[Watch on Youtube: The Bruce Springsteen Band - "Look Toward the Land" - Richmond, 1971-10-23](https://www.youtube.com/watch?v=Imk5QO51SJM)
 
 The fact that the song ends virtually the same way throughout its evolution suggests that Bruce at least had a political context in mind, if not subtext.
 
@@ -111,4 +111,4 @@ So like much of his early pre-Street work, we’ll have to content ourselves wit
 **First performed:** May 15, 1971 (Union, NJ)  
 **Last performed:** October 23, 1971 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

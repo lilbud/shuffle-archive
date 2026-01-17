@@ -12,7 +12,7 @@ Bruce is rarely on-the-nose and seldom arcane.
 
 I’m pretty certain “Harry’s Place” is about addiction. Take a listen:
 
-[https://www.youtube.com/watch?v=bKPMC__mPvU](https://www.youtube.com/watch?v=bKPMC__mPvU)
+[Watch on Youtube: Harry's Place](https://www.youtube.com/watch?v=bKPMC__mPvU)
 
 “Harry’s Place” is the self-built private hell where the addict dwells, and Harry is the metaphorical monkey on his back.
 
@@ -79,7 +79,9 @@ But really, who can fault him? If I’d written as many songs as Bruce Springste
 
 In reality, “Harry’s Place” goes back a lot further than 2007. In fact, we have video of Bruce reciting the lyrics on *Nightline* in the summer of 2002, tagging it as one of only two recorded outtakes from *The Rising*–and those lyrics are identical to the version he would release on *High Hopes* twelve years later.
 
-[https://abcnews.go.com/video/embed?id=21544272](https://abcnews.go.com/video/embed?id=21544272)
+[Watch Video](https://abcnews.go.com/video/embed?id=21544272)
+
+
 
 Ted Koppel gets props on three counts here: first for having the nerve to badger Bruce into opening up his notebook; second for prompting him to reveal an unrecorded song; and third, for almost immediately zeroing in on what the song is about.
 
@@ -89,7 +91,7 @@ But I don’t buy it–at least not for the final song. Perhaps it was true at t
 
 The lyrics in the video above are at just high enough resolution for us to discern that later verses differ from the *High Hopes* version, but not enough for us to actually make them out. So I suppose it’s quite possible that the song did indeed start out as “local kingpin” stuff, but I can’t listen to the entirety of the released song and conclude it’s about anything other than addiction.
 
-Bruce also describes “Harry’s Place” as an exercise in recapturing the spirit of his second album, and there are certainly echoes of that writing present (for example, the return of colorfully named characters like Seesaw Bobby). But “Harry’s Place” has more in common with “[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” from his first album than anything on his second.
+Bruce also describes “Harry’s Place” as an exercise in recapturing the spirit of his second album, and there are certainly echoes of that writing present (for example, the return of colorfully named characters like Seesaw Bobby). But “Harry’s Place” has more in common with “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” from his first album than anything on his second.
 
 So how do we make sense of all this? As near as I can tell, this is the story:
 
@@ -118,4 +120,4 @@ And apparently as good as Bruce’s.
 **Released:** *High Hopes* (2014)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

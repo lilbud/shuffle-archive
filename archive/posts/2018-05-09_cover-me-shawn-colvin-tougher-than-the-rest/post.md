@@ -4,6 +4,4 @@ It’s a gorgeous performance that captures the soul of the song. As she said in
 
 *It’s mistaken, perhaps, for a song that’s got a lot of bravado in it, and I don’t see it that way. I see it as world-weariness that he’s conveying, and sort of a quiet confidence, born of struggle and experience and heartbreak.* 
 
-[https://www.youtube.com/watch?v=PceRAJ_K27I](https://www.youtube.com/watch?v=PceRAJ_K27I)
-
- 
+[Watch on Youtube: Shawn Colvin - "Tougher Than The Rest" (Live Acoustic)](https://www.youtube.com/watch?v=PceRAJ_K27I)

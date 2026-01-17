@@ -10,11 +10,11 @@ To me, the first syllable in whatever everybody’s looking for sounds like “n
 
 So please give it a shot, and then you tell me. Take a listen below, and leave a comment if you think you know what Bruce is saying.
 
-[https://videopress.com/embed/cFNkYdxa](https://videopress.com/embed/cFNkYdxa)
+[Watch Video Highlight](https://videopress.com/embed/cFNkYdxa)
 
 **Everybody’s Looking for ???  
 Recorded:** September-December 1979  
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

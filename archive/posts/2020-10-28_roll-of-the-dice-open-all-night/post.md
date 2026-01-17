@@ -2,7 +2,7 @@
 
 Nebraska is often labeled as Bruce’s “acoustic album,” but that’s not entirely true. There’s one track that’s not only electric but destined to rock from the start,
 
-[https://www.youtube.com/watch?v=TxuXBj3EjOs](https://www.youtube.com/watch?v=TxuXBj3EjOs)
+[Watch on Youtube: Open All Night](https://www.youtube.com/watch?v=TxuXBj3EjOs)
 
 Bruce explicitly acknowledged Chuck Berry’s influence on “Open All Night” earlier this week, but it shouldn’t come as a surprise: we can hear Berry’s stamp from the “Nadine”-esque opening guitar intro.
 
@@ -12,23 +12,25 @@ It’s almost impossible to listen to “Open All Night” and *not* hear the E 
 
 In fact, the first time Bruce ever performed “Open All Night” live (at The Stone Pony just days after *Nebraska* was released to record stores), that’s exactly the way he performed it: as a straight-out rocker, backed by the Pony’s house band.
 
-[https://videopress.com/embed/qjfJIaLw](https://videopress.com/embed/qjfJIaLw)
+[Watch Video Highlight](https://videopress.com/embed/qjfJIaLw)
+
+
 
 Let’s take a close listen to this curious *Nebraska* standout, but before we do, a note:
 
-I find this essay to be a difficult one to write, because I feel like I’ve written it already. “Open All Night” is virtually the same song as “[Living on the Edge of the World](http://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/),” which Bruce recorded three years earlier but didn’t officially release until 1998.
+I find this essay to be a difficult one to write, because I feel like I’ve written it already. “Open All Night” is virtually the same song as “[Living on the Edge of the World](https://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/),” which Bruce recorded three years earlier but didn’t officially release until 1998.
 
-[https://www.youtube.com/watch?v=_sU7VAP2GU4](https://www.youtube.com/watch?v=_sU7VAP2GU4)
+[Watch on Youtube: Living On The Edge Of The World (Studio Outtake - 1979)](https://www.youtube.com/watch?v=_sU7VAP2GU4)
 
-And since tracing the origins of “Open All Night” can get seriously messy, I very much recommend reading my [earlier essay](http://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/) for a detailed history lesson. If you don’t have time for that, I’ll provide a short version here.
+And since tracing the origins of “Open All Night” can get seriously messy, I very much recommend reading my [earlier essay](https://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/) for a detailed history lesson. If you don’t have time for that, I’ll provide a short version here.
 
 “Living on the Edge of the World” came first, recorded in 1979 during the River recording sessions. Bruce decided to leave that song off the record, but he was apparently too fond of the lyrics to let them go to waste.
 
 In the early spring of 1981, Bruce picked his cast-off song back up and recorded a home demo entitled “Wanda.”
 
-[https://videopress.com/embed/0BB7uLl3](https://videopress.com/embed/0BB7uLl3)
+[Watch Video Highlight](https://videopress.com/embed/0BB7uLl3)
 
-Both melodically and lyrically, “Wanda” is obviously an attempt by Bruce to rework “Living on the Edge of the World,” and we can also hear the early seeds of “This Hard Land” and “[State Trooper.](http://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)” (I told you the lineage of “Open All Night” is complicated.)
+Both melodically and lyrically, “Wanda” is obviously an attempt by Bruce to rework “Living on the Edge of the World,” and we can also hear the early seeds of “This Hard Land” and “[State Trooper.](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)” (I told you the lineage of “Open All Night” is complicated.)
 
 Bruce eventually found a new melody for his errant lyrics and wrote a few new verses to keep them company. He gave his girl a name (“Wanda”) and a new employer (Bob’s Big Boy, an arguably lateral step from Howard Johnson’s), he plugged in his trusty Telecaster, and pressed *Record*.
 
@@ -86,23 +88,23 @@ But in short order, our narrator’s mind returns to the road and the present as
 
 “Open All Night” sticks out like a sore thumb on *Nebraska–*not only because of Bruce’s electric guitar and his mile-a-minute lyrics (Bruce sounds out of breath throughout much of the song), but also because of its light substance.
 
-Arranged the right way, “Open All Night” is almost a pop song, which may be why Bruce chose it as the A-side of the second single for an album that seemed single-resistant. (It was backed by “[The Big Payback](http://estreetshuffle.com/index.php/2018/11/11/roll-of-the-dice-the-big-payback/),” another uptempo track from the *Nebraska* sessions that didn’t make the album but seemed like it might rock hard enough to get some attention if not airplay.)
+Arranged the right way, “Open All Night” is almost a pop song, which may be why Bruce chose it as the A-side of the second single for an album that seemed single-resistant. (It was backed by “[The Big Payback](https://estreetshuffle.com/index.php/2018/11/11/roll-of-the-dice-the-big-payback/),” another uptempo track from the *Nebraska* sessions that didn’t make the album but seemed like it might rock hard enough to get some attention if not airplay.)
 
 Bruce played “Open All Night” in its acoustic arrangement during its infrequent appearances on the Born in the U.S.A. Tour, but when he brought it back for a pair of cameo appearances in 1992, he leaned into the song’s rocker roots (and made a sly wink to the song’s origins with a seriously inside joke).
 
-[https://www.youtube.com/watch?v=nybVvtv6Kjw](https://www.youtube.com/watch?v=nybVvtv6Kjw)
+[Watch on Youtube: Bruce Springsteen "Open All Night" Meadowlands, NJ July 25, 1992](https://www.youtube.com/watch?v=nybVvtv6Kjw)
 
 But “Open All Night wouldn’t truly embrace its potential until Bruce’s 2006 Seeger Sessions Tour. Although mostly remembered for its Americana-centric set lists, the Seeger Sessions Tour also provided fertile ground for reinventing Bruce’s original songs. Over the course of the tour, many beloved Springsteen originals found new life in surprising arrangements.
 
 “Open All Night” was one of the very first songs in Bruce’s catalog to be Seeger-ized, and a boogie-woogie arrangement proved a surprisingly perfect fit. Bruce debuted it at their very first show, at the New Orleans Jazz and Heritage Festival.
 
-[https://www.youtube.com/watch?v=niksPOOUcgM](https://www.youtube.com/watch?v=niksPOOUcgM)
+[Watch on Youtube: Open All Night (Live at the New Orleans Jazz & Heritage Festival, 2006)](https://www.youtube.com/watch?v=niksPOOUcgM)
 
 That first performance was pretty loose, as opening shows often are, but by the time the tour reached its homestretch, the Sessions Band was as well-oiled as the E Street Band, and “Open All Night” had grown into a nightly marathon-length set piece.
 
 This incredible version of “Open All Night” from their final Dublin stand may be the best we’re ever likely to see:
 
-[https://www.youtube.com/watch?v=jH-KLyZkq_g](https://www.youtube.com/watch?v=jH-KLyZkq_g)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - Open All Night (Live In Dublin)](https://www.youtube.com/watch?v=jH-KLyZkq_g)
 
 Bruce brought “Open All Night” (in its new arrangement) back for nineteen outings with the E Street Band in the years since, but no E Street performance has ever equaled the best Sessions ones.
 
@@ -112,4 +114,4 @@ Recorded:** January 3, 1982
 **First performed:** October 3, 1982 (Asbury Park, NJ)  
 **Last performed:** February 8, 2014 (Perth, Australia)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

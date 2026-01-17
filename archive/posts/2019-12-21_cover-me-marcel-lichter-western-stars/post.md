@@ -6,4 +6,4 @@ Case in point: Marcel Lichter’s solo piano instrumental rendition of the album
 
 Enjoy.
 
-[https://www.youtube.com/watch?v=RYXC-nJJNic](https://www.youtube.com/watch?v=RYXC-nJJNic)
+[Watch on Youtube: Song No.70 "Western stars" (Bruce Springsteen) - Piano Edition by Marcel Lichter Island Piano](https://www.youtube.com/watch?v=RYXC-nJJNic)

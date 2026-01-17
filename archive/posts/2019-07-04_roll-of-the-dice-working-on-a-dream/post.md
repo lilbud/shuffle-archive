@@ -8,7 +8,7 @@ I think the reason why most fans and critics discount “Working on a Dream” m
 
 With Patti by his side and with no fanfare or explanation, a loose and clearly optimistic Bruce premiered a brand new song, dedicated to Senator Obama. Bruce never told us what the song was called that day, but it wasn’t hard to figure it out.
 
-[https://www.youtube.com/watch?v=Y8GrRO6z7I0](https://www.youtube.com/watch?v=Y8GrRO6z7I0)
+[Watch on Youtube: Bruce Springsteen - Working On A Dream](https://www.youtube.com/watch?v=Y8GrRO6z7I0)
 
 With no previous hints that the song even existed, fans could be forgiven for assuming that Bruce wrote it for the occasion. Certainly, the lyrics sounded in keeping with Obama’s campaign theme of hope.
 
@@ -16,7 +16,7 @@ For those who weren’t following election news at the time, however, the first 
 
 Unfortunately, though, it made *terrible* artistic sense. There are certainly songs that can follow “Born to Run,” but “Working on a Dream” is not one of them. Watch the painful transition at the eight-minute mark below, and you’ll see what I mean.
 
-[https://www.youtube.com/watch?v=ctx3B9L03a4](https://www.youtube.com/watch?v=ctx3B9L03a4)
+[Watch on Youtube: 2009 Half Time Show Super Bowl - Bruce Springsteen (HD)_(720p)](https://www.youtube.com/watch?v=ctx3B9L03a4)
 
 While Bruce’s performance overall that night has gone down in Super Bowl history as one of the best-ever half-time shows, the damage was done when it comes to “Working on a Dream.” The mid-tempo folk-pop paean sounded like a clunker when juxtaposed against Bruce’s anthem, and its political debut made it seem dated almost as soon as President Obama took office.
 
@@ -30,7 +30,7 @@ Bruce didn’t write “Working on a Dream” with a political context in mind. 
 
 And when we watch the official video below, it’s clear that’s exactly what Bruce is conveying:
 
-[https://www.youtube.com/watch?v=R3ZMfPXgd_M](https://www.youtube.com/watch?v=R3ZMfPXgd_M)
+[Watch on Youtube: Bruce Springsteen - Working On a Dream (Official Video)](https://www.youtube.com/watch?v=R3ZMfPXgd_M)
 
 Insert your own dream below–I guarantee the song works with it:
 
@@ -73,7 +73,7 @@ But by publicly sharing his satisfaction with his own life’s work with us, he 
 
 And in concert, throughout the entire 2009 tour, he took a mid-song break to make that message explicit: together, on this night, we’re working on a dream together. Imagining the dream as a house, Bruce found a way to conjure and crystallize the relationship he’d built with his audience over the years and established an early, nightly moment of communion that underlined the tour’s theme.
 
-[https://www.youtube.com/watch?v=Bt1aCI-gg6U](https://www.youtube.com/watch?v=Bt1aCI-gg6U)
+[Watch on Youtube: Bruce Springsteen - Working On a Dream (Live Glastonbury 2009)](https://www.youtube.com/watch?v=Bt1aCI-gg6U)
 
 Unfortunately, like most of the *Working on a Dream* album, the title track has mostly disappeared since the end of the 2009 tour. Bruce brings it out only rarely these days, as if to remind us from time to time that he is still very much working on his dream.
 
@@ -83,4 +83,4 @@ Recorded:** 2007-2008
 **First performed:** November 2, 2008 (Cleveland, OH)  
 **Last performed:** June 5, 2022 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,11 +2,11 @@ No one knows for sure quite when or where it started, but we know that Lead Bell
 
 Here’s a recording that dates back to 1943, when it was already quite popular:
 
-[https://www.youtube.com/watch?v=NT-OuWmXDsY](https://www.youtube.com/watch?v=NT-OuWmXDsY)
+[Watch on Youtube: Lead Belly - "Irene (Goodnight Irene)" [Official Audio]](https://www.youtube.com/watch?v=NT-OuWmXDsY)
 
 As for the Bruce connection, that comes via Pete Seeger’s cover in 1950 with The Weavers:
 
-[https://www.youtube.com/watch?v=MSDyiUBrUSk](https://www.youtube.com/watch?v=MSDyiUBrUSk)
+[Watch on Youtube: The Weavers - Goodnight Irene](https://www.youtube.com/watch?v=MSDyiUBrUSk)
 
 Bruce has performed “Goodnight, Irene” twice, although an argument could be made about whether either should “count.”
 
@@ -14,7 +14,7 @@ The first time was at Pete Seeger’s 90th birthday concert at Madison Square Ga
 
 But neither Bruce nor Patti were anywhere near the microphone, so while we can clearly see them singing, we’ll have to take it on faith that their voices are somewhere deep down in the mix.
 
-[https://www.youtube.com/watch?v=Jo-1ybxwFc4](https://www.youtube.com/watch?v=Jo-1ybxwFc4)
+[Watch on Youtube: Goodnight Irene_Pete Seeger](https://www.youtube.com/watch?v=Jo-1ybxwFc4)
 
 Bruce’s second attempt came a few years later, at London’s Hyde Park, as an improvised “good night” when the venue cut the power after Bruce and Sir Paul McCartney(!) finished “Twist and Shout.”
 

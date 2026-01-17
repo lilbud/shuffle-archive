@@ -4,13 +4,15 @@ But if you want to see where Bruce truly drew inspiration for his stage persona,
 
 What made Sam and Dave so great? Let’s watch as Bruce schools us.
 
-[https://videopress.com/embed/N7IXtKNI](https://videopress.com/embed/N7IXtKNI)
+[Watch Video Highlight](https://videopress.com/embed/N7IXtKNI)
+
+
 
 In the studio, Sam and Dave were a force to be reckoned with. On stage, no one could touch them. Trust me and watch these clips below. If you can’t see the seeds of Bruce’s stage presence in Sam Moore, you’re not paying attention.
 
-[https://www.youtube.com/watch?v=5ONNSlk--tE](https://www.youtube.com/watch?v=5ONNSlk--tE)
+[Watch on Youtube: Sam & Dave - Soul Man (1967)](https://www.youtube.com/watch?v=5ONNSlk--tE)
 
-[https://www.youtube.com/watch?v=QMK80XsOg3k](https://www.youtube.com/watch?v=QMK80XsOg3k)
+[Watch on Youtube: Sam & Dave - Hold On I'm Comin' (1967) | LIVE](https://www.youtube.com/watch?v=QMK80XsOg3k)
 
 Bruce was a huge fan of the Stax/Volt sound, but he was a student of Sam Moore. He saw him perform three times with Prater, and each time he paid close attention to Moore’s moves, patter, and bandleading.
 
@@ -30,7 +32,7 @@ So in January 1990, he added two backing vocalists to the mix, one of whom was B
 
 The result was one of the only official tracks where Bruce Springsteen is outshined by his backup singers.
 
-[https://www.youtube.com/watch?v=p2KmrIEWEP0](https://www.youtube.com/watch?v=p2KmrIEWEP0)
+[Watch on Youtube: Bruce Springsteen - Man's Job (Audio)](https://www.youtube.com/watch?v=p2KmrIEWEP0)
 
 Although it was never released as a single, “Man’s Job” became one of the standout tracks of Bruce’s *Human Touch* album in 1992. For its first half, it plays like a straight-up Stax classic, reimagined for a more modern, less macho era.
 
@@ -76,17 +78,17 @@ The last lines leave us with a cliffhanger: he seems poised to move, but will he
 
 Like any true Stax-inspired song, “Man’s Job” only comes fully alive on stage. Luckily, Bobby King joined Bruce’s touring band for his 1992-93 World Tour, so Bruce was able to recapture the studio magic each night.
 
-[https://www.youtube.com/watch?v=nEKU6vMAfOw](https://www.youtube.com/watch?v=nEKU6vMAfOw)
+[Watch on Youtube: Bruce Springsteen - Man's Job (MTV Plugged - Official HD Video)](https://www.youtube.com/watch?v=nEKU6vMAfOw)
 
-[https://www.youtube.com/watch?v=KG65MzSLexU](https://www.youtube.com/watch?v=KG65MzSLexU)
+[Watch on Youtube: Man’s Job - Bruce Springsteen (live at Stockholm Olympic Stadium 1993)](https://www.youtube.com/watch?v=KG65MzSLexU)
 
 Like much of Bruce’s early nineties material, “Man’s Job” disappeared from the set list when the E Street Band reformed. Late in the Rising Tour, however, Bruce seemed to rediscover his “missing years,” and in one of the very last shows of the tour, “Man’s Job” made its E Street debut.
 
-[https://www.youtube.com/watch?v=uaf_kDW3qoM](https://www.youtube.com/watch?v=uaf_kDW3qoM)
+[Watch on Youtube: Man's Job Bruce Springsteen October 1, 2003 NYC](https://www.youtube.com/watch?v=uaf_kDW3qoM)
 
 For a decade, though, that was it. Other than a few private benefit outings, it would be ten years before “Man’s Job” would make one of Bruce’s set lists again. That finally happened late in the Wrecking Ball Tour, in Mönchengladbach, Germany.
 
-[https://videopress.com/embed/2hE7Rb6p](https://videopress.com/embed/2hE7Rb6p)
+[Watch Video Highlight](https://videopress.com/embed/2hE7Rb6p)
 
 With the benefit of the E Street Horns (an essential Stax element) and a fully prepared band (they’d sound-checked it earlier), that performance of “Man’s Job” may be the definitive one.
 

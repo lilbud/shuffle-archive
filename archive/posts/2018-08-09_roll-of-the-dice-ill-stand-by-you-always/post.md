@@ -1,6 +1,6 @@
 **Updated August 9, 2019:** An official version of “I’ll Stand By You” was just released on the soundtrack album for *Blinded by the Light*. It’s a tighter, shorter, and much better mix, with new (or at least different) vocals than the leaked demo. From a musical standpoint, it’s a lot more listenable. Unfortunately, though, the lyrics are still the same.
 
-[https://www.youtube.com/watch?v=hwfPtkxF0aA](https://www.youtube.com/watch?v=hwfPtkxF0aA)
+[Watch on Youtube: Bruce Springsteen - I'll Stand By You (Official Lyric Video)](https://www.youtube.com/watch?v=hwfPtkxF0aA)
 
 Original article below.
 
@@ -9,25 +9,27 @@ Original article below.
 
 Okay, admit it: when you heard that Bruce wrote an unsolicited song for a Harry Potter movie, this is probably pretty close to how you imagined it:
 
-[https://www.youtube.com/watch?v=Xb24VJQqqzk](https://www.youtube.com/watch?v=Xb24VJQqqzk)
+[Watch on Youtube: Bruce Springsteen's Rejected "Harry Potter" Song | CONAN on TBS](https://www.youtube.com/watch?v=Xb24VJQqqzk)
 
 You have to give Conan points for nailing that E Street sound–I laughed out loud when the glockenspiel kicked in, and the sax solo was a nice touch, too. I know it’s just a parody, but I kinda dig it.
 
 As for the *actual* song Bruce wrote for Harry Potter… um, I think I’ll just let Bruce do the talking on this one:
 
-[https://www.bbc.co.uk/programmes/p04cjymy/player](https://www.bbc.co.uk/programmes/p04cjymy/player)
+[Watch Video](https://www.bbc.co.uk/programmes/p04cjymy/player)
+
+
 
 Yep, it’s true: Bruce really did write a Harry Potter song.
 
 And yes: it’s uncharacteristic of something Bruce would ordinarily sing.
 
-But is it good? Bruce sure seems to think so. And Chris Columbus, the director for *Harry Potter and the Sorcerer’s Stone,* calls it “[one of the best songs he’d ever written](http://www.backstreets.com/columbus.html).” Me? Well, I must not be in the target demographic.
+But is it good? Bruce sure seems to think so. And Chris Columbus, the director for *Harry Potter and the Sorcerer’s Stone,* calls it “[one of the best songs he’d ever written](https://www.backstreets.com/columbus.html).” Me? Well, I must not be in the target demographic.
 
 But because I’m an obsessive completist, let’s break it down:
 
-[https://videopress.com/embed/DfGqCrxF](https://videopress.com/embed/DfGqCrxF)
+[Watch Video Highlight](https://videopress.com/embed/DfGqCrxF)
 
-Musically, “I’ll Stand By You” has a soft, easy-listening vibe–kind of like “[Let’s Be Friends (Skin to Skin)](http://estreetshuffle.com/index.php/2018/03/02/roll-of-the-dice-lets-be-friends-skin-to-skin/)” but without the soul groove. To my ears, it’s flat and lifeless–almost the audio equivalent of stock photography.
+Musically, “I’ll Stand By You” has a soft, easy-listening vibe–kind of like “[Let’s Be Friends (Skin to Skin)](https://estreetshuffle.com/index.php/2018/03/02/roll-of-the-dice-lets-be-friends-skin-to-skin/)” but without the soul groove. To my ears, it’s flat and lifeless–almost the audio equivalent of stock photography.
 
 Lyrically, well…
 
@@ -72,4 +74,4 @@ Please, for the love of Clarence: nobody bring a sign.
 **Released:** *Blinded by the Light (Original Motion Picture Soundtrack)* (2019)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

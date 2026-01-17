@@ -1,7 +1,5 @@
 > “The tragedy of life…is not that the beautiful things die young, but that they grow old and mean. It will not happen to me.”
 > 
-> 
-> 
 > *—* Raymond Chandler, *The Long Goodbye*
 
 Conventional wisdom holds that “The Long Goodbye” is Bruce’s confessional about finally cutting the cord with New Jersey and moving to warmer, sunnier climes out west.
@@ -10,7 +8,7 @@ I don’t buy it.
 
 Yes, the timing works out nicely: Bruce recorded “The Long Goodbye” shortly after he moved to California with Patti. But while it’s certainly possible that the move inspired him, I think it requires too selective a reading to conclude that’s what the song is about.
 
-[https://www.youtube.com/watch?v=XQczI5YNEJM](https://www.youtube.com/watch?v=XQczI5YNEJM)
+[Watch on Youtube: Bruce Springsteen - The Long Goodbye (Audio)](https://www.youtube.com/watch?v=XQczI5YNEJM)
 
 There’s a lot more going on in “The Long Goodbye” than a cross-country move.
 
@@ -72,7 +70,7 @@ Originally recorded with a completely different set of musicians, “The Long Go
 
 Bruce dropped it a few months into the tour and never attempted it with the E Street Band. But that first ’92 performance was captured on video, providing us a rare document of a lyrically overlooked song,
 
-[https://www.youtube.com/watch?v=AuLvzIM27aE](https://www.youtube.com/watch?v=AuLvzIM27aE)
+[Watch on Youtube: The Long Goodbye Bruce Springsteen June 26,1992 Frankfurt, GER](https://www.youtube.com/watch?v=AuLvzIM27aE)
 
 **The Long Goodbye**  
 **Recorded:** April-May, 1990  

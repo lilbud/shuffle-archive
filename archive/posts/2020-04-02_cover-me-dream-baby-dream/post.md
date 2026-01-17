@@ -2,17 +2,17 @@ It was just about the unlikeliest song for Bruce Springsteen to cover, and yet c
 
 In 1979, electro-punk duo Suicide released their six-and-half-minute “Dream Baby Dream,” more a chant or trance than a song.
 
-[https://www.youtube.com/watch?v=8zpUfZfe6v4](https://www.youtube.com/watch?v=8zpUfZfe6v4)
+[Watch on Youtube: Dream Baby Dream (Long Version)](https://www.youtube.com/watch?v=8zpUfZfe6v4)
 
 “Dream Baby Dream” was never anything resembling a hit, but it did attract a cult following among musicians–including Michael Stipe, who brought it to the attention of Bruce Springsteen via a compilation CD.
 
-Bruce was already a fan of the band–you can hear their obvious influence in his song “[State Trooper](http://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/).” But Bruce had largely forgotten about “Dream Baby Dream” until Stipe re-introduced him to it, and he was attracted to the simplicity of the song. Early on during his 2005 solo acoustic tour, he recognized an opportunity to end a night of weighty songs on a note of bright hope and optimism. Here’s how he explained it to a Swedish TV interviewer at the time:
+Bruce was already a fan of the band–you can hear their obvious influence in his song “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/).” But Bruce had largely forgotten about “Dream Baby Dream” until Stipe re-introduced him to it, and he was attracted to the simplicity of the song. Early on during his 2005 solo acoustic tour, he recognized an opportunity to end a night of weighty songs on a note of bright hope and optimism. Here’s how he explained it to a Swedish TV interviewer at the time:
 
-[https://www.youtube.com/watch?v=MOFcnhFcs9g](https://www.youtube.com/watch?v=MOFcnhFcs9g)
+[Watch on Youtube: Bruce Springsteen About Dream baby dream.Pt 7/10.](https://www.youtube.com/watch?v=MOFcnhFcs9g)
 
 Bruce added “Dream Baby Dream” to his set list as the final encore in Rosemont on May 11, 2005 without any introduction before or explanation after. At first listen, his cover was the polar opposite of Suicide’s–slow, introspective, and yet still bright, pure, and hopeful.
 
-[https://www.youtube.com/watch?v=GRlDhzsculA](https://www.youtube.com/watch?v=GRlDhzsculA)
+[Watch on Youtube: Bruce Springsteen - First ever Dream Baby Dream, Rosemont 5/11/05](https://www.youtube.com/watch?v=GRlDhzsculA)
 
 Doubtless the audience was befuddled that night–in fact, for a day or two, fans weren’t quite sure exactly what they’d heard.
 
@@ -28,7 +28,7 @@ As for the original artists, Alan Vega (one half of Suicide) heartily approved o
 
 As with many Springsteen showpieces, “Dream Baby Dream” would grow in length and grandeur throughout the tour. By the end of the tour, the five-or-six-line song stretched out to an incredible eleven minutes.
 
-[https://www.youtube.com/watch?v=i4EzcBL1yDY](https://www.youtube.com/watch?v=i4EzcBL1yDY)
+[Watch on Youtube: BRUCE SPRINGSTEEN - DREAM BABY DREAM (The ORIGINAL, HYPNOTIC and THE BEST VERSION EVER, D&D 2005)](https://www.youtube.com/watch?v=i4EzcBL1yDY)
 
 After his solo tour ended, it seemed like “Dream Baby Dream” would go back on the shelf forever. It served a purpose during Bruce’s solo tour, but he didn’t touch it even once during the four band tours that followed.
 
@@ -36,15 +36,15 @@ But then–once again without any warning–on October 10, 2013, Bruce dropped a
 
 This version of “Dream Baby Dream” is an absolute stunner, as is the video it accompanied–a love letter to fans at the conclusion of the Wrecking Ball Tour. It remains to this day my all-time favorite piece of video Bruce has released.
 
-[https://www.youtube.com/watch?v=06fCMfcMnqk](https://www.youtube.com/watch?v=06fCMfcMnqk)
+[Watch on Youtube: Dream Baby Dream](https://www.youtube.com/watch?v=06fCMfcMnqk)
 
 The studio version of “Dream Baby Dream” layered production special effects over Bruce’s 2005 vocal arrangement, resulting in a track somewhere in between his version and Suicide’s. At the annual Stand Up for Heroes benefit show a few weeks later, Bruce attempted his new arrangement as a solo effort, beginning the song on the pump organ as in 2005, before layering his live vocals on a mid-song backing track. The effect was stunning.
 
-[https://www.youtube.com/watch?v=vi1CV1iMJB0](https://www.youtube.com/watch?v=vi1CV1iMJB0)
+[Watch on Youtube: Bruce Springsteen - Dream Baby Dream - 2013 Stand Up For Heroes HD 720p](https://www.youtube.com/watch?v=vi1CV1iMJB0)
 
 Bruce’s new arrangement of “Dream Baby Dream” was too good to allow it to linger in obscurity, so a few months later, Bruce included his studio version as the closing track of his follow-up album, *High Hopes.*
 
-Bruce brought “Dream Baby Dream” out to play a few more times on the High Hopes Tour, but other than a cameo appearance on the River Tour, it’s remained elusive ever since (although a snippet of it did make a regular appearance during “[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)“). That cameo was notable for more than just its appearance, however–for the first and only time, not only did “Dream Baby Dream” not close the show, it actually *opened* it.
+Bruce brought “Dream Baby Dream” out to play a few more times on the High Hopes Tour, but other than a cameo appearance on the River Tour, it’s remained elusive ever since (although a snippet of it did make a regular appearance during “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)“). That cameo was notable for more than just its appearance, however–for the first and only time, not only did “Dream Baby Dream” not close the show, it actually *opened* it.
 
 Why the special encore/opener appearance? Because Alan Vega had passed away just a few days earlier. Before his next show, Bruce issued a statement on his web site:
 
@@ -54,7 +54,7 @@ We don’t know whether or not Bruce’s version of “Dream Baby Dream” was p
 
 Here’s the last appearance of “Dream Baby Dream” to date–the show opener in Horsens, Denmark, on July 20, 2016.
 
-[https://www.youtube.com/watch?v=BS2r94hrw2c](https://www.youtube.com/watch?v=BS2r94hrw2c)
+[Watch on Youtube: Bruce Springsteen - Dream Baby Dream (Horsens, July 20, 2016) [with dubbed audio]](https://www.youtube.com/watch?v=BS2r94hrw2c)
 
 **Dream Baby Dream  
 Recorded:** 2013  
@@ -62,4 +62,4 @@ Recorded:** 2013
 **First performed:** May 11, 2005 (Rosemont, IL)  
 **Last performed:** July 20, 2016 (Horsens, Denmark)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

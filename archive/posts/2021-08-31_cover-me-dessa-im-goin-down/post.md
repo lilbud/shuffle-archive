@@ -2,7 +2,7 @@ Chances are that if I told you that a notable rapper/hip-hop singer covered a Br
 
 And even if they did, you probably wouldn’t expect a moody, acoustic, and gorgeously atmospheric track like this.
 
-[https://www.youtube.com/watch?v=lCjfm4aKZ7Q](https://www.youtube.com/watch?v=lCjfm4aKZ7Q)
+[Watch on Youtube: Dessa - "I'm Going Down"](https://www.youtube.com/watch?v=lCjfm4aKZ7Q)
 
 Dessa’s version of “I’m Goin’ Down” hails from her 2013 album *Parts of Speech,* and it’s the only cover on an album otherwise full of original material written by the artist herself. (She’s done very few covers at all to date.)
 

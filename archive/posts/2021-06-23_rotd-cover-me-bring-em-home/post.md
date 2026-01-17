@@ -2,13 +2,13 @@ They say that great folk songs are never finished, and that’s certainly the ca
 
 Seeger wrote “Bring Them Home” in 1966 as a protest against the Vietnam war. He evolved the song over the years that followed, and by the time he performed it on *The Johnny Cash Show* in 1970, Seeger had honed it to a very sharp point.
 
-[https://www.youtube.com/watch?v=h4-w2FYIJbw](https://www.youtube.com/watch?v=h4-w2FYIJbw)
+[Watch on Youtube: Pete Seeger - Bring 'em Home](https://www.youtube.com/watch?v=h4-w2FYIJbw)
 
 By today’s standards, that performance might not seem so extraordinary, but airing such an explicitly critical performance on national television in 1970 was quite remarkable.
 
 In 2003, producer Jim Musselman rewrote the first verse of Seeger’s song to update it for a post-9/11 world. Seeger recorded a new version of the song featuring Musselman’s verse with Ani DiFranco, Steve Earle, and Billy Bragg for a compilation released that same year.
 
-[https://www.youtube.com/watch?v=85kukLVG_Ho](https://www.youtube.com/watch?v=85kukLVG_Ho)
+[Watch on Youtube: Bring Them Home (If You Love Your Uncle Sam)](https://www.youtube.com/watch?v=85kukLVG_Ho)
 
 Three years later, Bruce took Musselman’s first verse and Seeger’s second verse and then wrote two new verses of his own:
 
@@ -46,15 +46,15 @@ Bruce recorded his new version of “Bring ‘Em Home” in Oslo while on tour w
 
 Bruce had already debuted “Bring ‘Em Home” in concert the week prior in Paris. It seemed like it was destined for one-off status, but just three days after he recorded his studio version with the band, Bruce reintroduced it to his setlist, where it remained a fixture throughout the remainder of the American leg of the tour.
 
-[https://www.youtube.com/watch?v=Mv4vW1FGnCQ](https://www.youtube.com/watch?v=Mv4vW1FGnCQ)
+[Watch on Youtube: Bruce Springsteen - Bring 'Em Home (Live Tour Video)](https://www.youtube.com/watch?v=Mv4vW1FGnCQ)
 
 By the middle of June, “Bring ‘Em Home” was firmly established in the set, and the audience reaction was predictably and consistently favorable. It’s no surprise that Bruce included a live version (recorded in Detroit on June 17th) as a bonus track on his *American Land Edition* re-issue of [*We Shall Overcome*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) later that year.
 
-[https://www.youtube.com/watch?v=OS5WlDWJlhM](https://www.youtube.com/watch?v=OS5WlDWJlhM)
+[Watch on Youtube: Bring 'Em Home](https://www.youtube.com/watch?v=OS5WlDWJlhM)
 
 Bruce even performed “Bring ‘Em Home” during his television appearance on *Late Night With Conan O’Brien* at the tail end of the American tour.
 
-[https://www.youtube.com/watch?v=wXUiV6SwOBw](https://www.youtube.com/watch?v=wXUiV6SwOBw)
+[Watch on Youtube: Bring ‘Em Home - Bruce Springsteen (live on Late Night with Conan O’Brien 2006)](https://www.youtube.com/watch?v=wXUiV6SwOBw)
 
 Bruce retired his version of “Bring ‘Em Home” after the Seeger Sessions Tour concluded, but that certainly won’t be the end of its evolution.
 

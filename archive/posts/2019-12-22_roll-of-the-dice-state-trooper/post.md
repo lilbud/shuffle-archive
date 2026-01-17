@@ -4,13 +4,13 @@ In 1981, Bruce Springsteen was listening to a lot of Suicide, the punk pairing o
 
 Almost a quarter of a century later, Suicide would inspire “[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/),” one of Bruce’s most optimistic covers and one of only a handful Bruce ever recorded in the studio. But long before that, they inspired the most harrowing song in Bruce’s catalog, the spine-tingling, hair-raising “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/).”
 
-[https://www.youtube.com/watch?v=wpvXfLlcHwc](https://www.youtube.com/watch?v=wpvXfLlcHwc)
+[Watch on Youtube: State Trooper](https://www.youtube.com/watch?v=wpvXfLlcHwc)
 
 If Springsteen meant “State Trooper” as an homage to Suicide, however, even in the dark place that birthed *Nebraska,* Bruce couldn’t come close to matching the darkness of the song that inspired it.
 
 Take a listen to Suicide’s “Frankie Teardrop,” and you’ll hear the unmistakable similarities to “State Trooper,” from the basically identical melody to the primal whoops and screams of the tormented narrator. Just do yourself a favor and keep the lights on, because “Frankie Teardrop” is a much, much, *much* darker song than anything Bruce has ever written. In “State Trooper,” Bruce at least leaves the fate of the narrator up to our imagination. Vega does us no such favor.
 
-[https://www.youtube.com/watch?v=8_dXp0eF8s0](https://www.youtube.com/watch?v=8_dXp0eF8s0)
+[Watch on Youtube: Suicide, "Frankie Teardrop"](https://www.youtube.com/watch?v=8_dXp0eF8s0)
 
 For “State Trooper,” Bruce replaces the synth and drum machine of “Frankie Teardrop” with an incessant, monotonal acoustic guitar riff that evokes the aimless, seemingly endless stretches of open road between exits on the New Jersey Turnpike.
 
@@ -51,7 +51,7 @@ As he nears his fatal destination, Bruce’s night driver sends out one last ple
 
 …but we know that no such relief is coming, until he delivers it for and to himself.
 
-(Bruce would use that last line (slightly transformed) in two other songs as well: “[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)” and “[Living on the Edge of the World](http://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/).” The concept of being trapped in one’s own life, one’s own head, must have been haunting him at the time.)
+(Bruce would use that last line (slightly transformed) in two other songs as well: “[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)” and “[Living on the Edge of the World](https://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/).” The concept of being trapped in one’s own life, one’s own head, must have been haunting him at the time.)
 
 The primal whoops and screams that lead the song off into the endless night are as terrifying as anything Bruce has ever put down on record (although nowhere near as blood-curdling as Vega’s “Frankie Teardrop” vocals).
 
@@ -65,17 +65,17 @@ That didn’t keep Bruce from attempting to translate “State Trooper” to the
 
 In the clip below, Bruce’s arrangement *almost* succeeds, particularly in the last verse where Bruce’s reverbed vocals actually surpass his album performance.
 
-[https://www.youtube.com/watch?v=iWVPy0OyqAM](https://www.youtube.com/watch?v=iWVPy0OyqAM)
+[Watch on Youtube: 5. State Trooper (Bruce Springsteen - Live In Philadelphia 9-18-1984)](https://www.youtube.com/watch?v=iWVPy0OyqAM)
 
 Still, the synth-filled arrangement didn’t really suit the song, and Bruce seems to have realized it relatively quickly. “State Trooper” would disappear two months later after only eleven performances.
 
 Bruce wouldn’t attempt it again with the E Street Band for more than twenty years, although he did work up a fascinating full-band arrangement on the Reunion Tour that never made it past soundcheck. I really like the “Papa Was a Rolling Stone”-esque first verse, but it loses me when the band kicks in before the final verse–it’s powerful, sure, but in the wrong sense.
 
-[https://www.youtube.com/watch?v=rlejOJ7Ve28](https://www.youtube.com/watch?v=rlejOJ7Ve28)
+[Watch on Youtube: Bruce Springsteen - Odds and Sods Rarities - State Trooper - (Cleveland 1999 soundcheck)](https://www.youtube.com/watch?v=rlejOJ7Ve28)
 
 Bruce would attempt that arrangement on stage only once, and not for another eight years, when he played it in Ottawa on the Magic Tour with Arcade Fire’s Win Butler and Regine Chassagne.
 
-[https://www.youtube.com/watch?v=IQBAuqCl9qg](https://www.youtube.com/watch?v=IQBAuqCl9qg)
+[Watch on Youtube: Bruce Springsteen & Arcade Fire - State Trooper (Ottawa ´07) - Complete Video Mix](https://www.youtube.com/watch?v=IQBAuqCl9qg)
 
 In my mind, though, “State Trooper” only works when performed solo. Bruce seems to agree: other than the Arcade Fire one-off above, every one of Bruce’s 25 “State Trooper” performances since the Born in the U.S.A. Tour has been solo.
 
@@ -83,7 +83,7 @@ The definitive “State Trooper” performance came during Bruce’s 2005 Devils
 
 I’ll leave you with that masterful and nightmarish Vancouver performance, my all-time favorite version of “State Trooper.”
 
-[https://videopress.com/embed/6LD966KH](https://videopress.com/embed/6LD966KH)
+[Watch Video Highlight](https://videopress.com/embed/6LD966KH)
 
 **State Trooper**  
 **Recorded:** December 17, 1981 – January 3, 1982  
@@ -91,4 +91,4 @@ I’ll leave you with that masterful and nightmarish Vancouver performance, my a
 **First performed:** September 8, 1984 (Hartford, CT)  
 **Last performed:** November 15, 2012 (Omaha, NE)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

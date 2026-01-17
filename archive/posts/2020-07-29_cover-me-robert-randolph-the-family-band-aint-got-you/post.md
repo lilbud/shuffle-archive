@@ -6,4 +6,4 @@ When asked to participate in a tribute radio show for Bruce’s 70th birthday la
 
 Turn up the volume and clear the floor–you’ll be dancing to this one.
 
-[https://videopress.com/embed/pROligPz](https://videopress.com/embed/pROligPz)
+[Watch Video Highlight](https://videopress.com/embed/pROligPz)

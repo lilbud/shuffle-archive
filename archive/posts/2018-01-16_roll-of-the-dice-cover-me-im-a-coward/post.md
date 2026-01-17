@@ -10,11 +10,11 @@ Lyrically, the only line either version has in common with Bruce’s 1988 re-wor
 
 And musically, well… here’s the 1964 version:
 
-[https://www.youtube.com/watch?v=QRn5gZafxFM](https://www.youtube.com/watch?v=QRn5gZafxFM)
+[Watch on Youtube: GINO WASHINGTON - GINO IS A COWARD [SonBert 3770] 1964](https://www.youtube.com/watch?v=QRn5gZafxFM)
 
 …and here’s Bruce’s version, from the Tunnel of Love tour.
 
-[https://www.youtube.com/watch?v=MzmbEPkhioE](https://www.youtube.com/watch?v=MzmbEPkhioE)
+[Watch on Youtube: "I´m A Coward" Bruce Springsteen](https://www.youtube.com/watch?v=MzmbEPkhioE)
 
 Worlds apart (a song for another day).
 
@@ -36,7 +36,7 @@ In concert, it was a showpiece and a showstopper, full of audience interaction a
 
 It was Bruce at his most playful, staged, and choreographed. Witness this 1988 performance from Copenhagen:
 
-[https://www.youtube.com/watch?v=ZjtrVwXb-Yo](https://www.youtube.com/watch?v=ZjtrVwXb-Yo)
+[Watch on Youtube: Springsteen - I'm A Coward](https://www.youtube.com/watch?v=ZjtrVwXb-Yo)
 
 So what’s your take? Is this an original homage, or a creative cover? Share your thoughts below!
 

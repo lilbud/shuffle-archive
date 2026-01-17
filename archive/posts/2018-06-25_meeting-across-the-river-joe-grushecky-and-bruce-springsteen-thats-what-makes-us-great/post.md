@@ -4,6 +4,4 @@ Written by Joe around the time Trump took office, “That’s What Makes Us Grea
 
 Bruce recorded his vocals from his home studios and e-mailed them to Joe. The result: the pointed, defiant resistance anthem below.
 
-[https://www.youtube.com/watch?v=zZ24d71EfLY](https://www.youtube.com/watch?v=zZ24d71EfLY)
-
- 
+[Watch on Youtube: Joe Grushecky & the Houserockers - "That's What Makes Us Great" (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=zZ24d71EfLY)

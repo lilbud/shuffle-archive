@@ -2,7 +2,7 @@ Today, Bruce Springsteen is known for his sophisticated, sensitive, and literary
 
 We’ve listened to dozens of original songs that Bruce wrote during that brief, barely-a-year era, and we’ll listen to many more before we bring this odyssey to an end. Some of these songs are more substantial than others, and today’s entry is definitely on the slighter side–lyrically speaking, at least.
 
-[https://videopress.com/embed/yN6OHFQl](https://videopress.com/embed/yN6OHFQl)
+[Watch Video Highlight](https://videopress.com/embed/yN6OHFQl)
 
 “Why’d You Do That” has all of nine unique lines, none of which provide any semblance of story or metaphor.
 

@@ -48,7 +48,7 @@ No need to wait around for the rest of that sentence.
 
 (Note: this is a great example of a literary device Bruce uses frequently–establishing a chorus and cadence, then ending the song prematurely, leaving the listener to supply the rest and ponder the omission. Here, the effect is profound.)
 
-[https://www.youtube.com/watch?v=KVOScysEq2E](https://www.youtube.com/watch?v=KVOScysEq2E)
+[Watch on Youtube: With Every Wish](https://www.youtube.com/watch?v=KVOScysEq2E)
 
 Musically, this is a spare arrangement. Bruce on guitar, Doug Lunn on bass, Kurt Wortman on drums, Roy Bittan on keyboard, are all quiet and restrained, allowing Mark Isham’s gorgeous, muted trumpet to soar above and between the verses, conveying a sense of forward motion through the song and off into the horizon as the final line trails off.
 
@@ -56,11 +56,11 @@ In concert, “With Every Wish” has only been performed a half-dozen times, al
 
 But when he tries to skip over the sad parts, his son makes him go back and read them. Because he knows they’re there for a reason.
 
-[https://videopress.com/embed/G9xPqO8U](https://videopress.com/embed/G9xPqO8U)
+[Watch Video Highlight](https://videopress.com/embed/G9xPqO8U)
 
 **With Every Wish  
 Recorded:** Late 1989**Released:** *Human Touch,* 1992  
 **First Performed:** June 15, 1992 (Stockholm)  
  **Last Performed:** July 23, 1992 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

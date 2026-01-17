@@ -10,7 +10,7 @@ They reunited earlier this year in order to contribute a cover to the internatio
 
 Hoping to choose a song no other contestant would cover, they selected one of Bruce’s more recent tracks: “[The Wayfarer](https://estreetshuffle.com/index.php/2022/01/29/roll-of-the-dice-the-wayfarer/),” from *Western Stars.* They translated Bruce’s lyrics into their native Neapolitan, and created an arrangement every bit as captivating as the original.
 
-[https://www.youtube.com/watch?v=1clwYIQ-hf4](https://www.youtube.com/watch?v=1clwYIQ-hf4)
+[Watch on Youtube: E rimanimm a ce guardà (The Wayfarer - B.Springsteen Cover)](https://www.youtube.com/watch?v=1clwYIQ-hf4)
 
 HouseHolder Reloaded’s cover of “The Wayfarer” is absolutely lovely, even to those of us who don’t speak Neapolitan.
 
@@ -21,8 +21,6 @@ Bruce’s stamp of approval earned the band some well-deserved attention in thei
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/wayfarer.png)
 
 So there you go: today’s *Cover Me* entry is Boss-approved!
-
- 
 
 Editor's Note
 

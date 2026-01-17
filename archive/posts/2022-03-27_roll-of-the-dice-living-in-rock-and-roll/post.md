@@ -6,7 +6,7 @@ Her tenure may have only lasted three days, but one of those gigs was partially 
 
 Daniels wasn’t the only one-time-only element of that recording. One of the songs she sang backup on that night was an early original Springsteen song called “Living in Rock and Roll,” performed that night of October 30th in Richmond, and never (as far as we know) again.
 
-[https://videopress.com/embed/UQQAH2zi](https://videopress.com/embed/UQQAH2zi)
+[Watch Video Highlight](https://videopress.com/embed/UQQAH2zi)
 
 Like many of Bruce’s Steel Mill and Bruce Springsteen Band era songs, “Living in Rock and Roll” is slight of lyrics and heavy on the jam. The recording above is distant and often muddy, but we’re able to make out enough of his lyrics to recognize that this is a pure pop song–nothing to analyze here.
 

@@ -1,7 +1,5 @@
 > Lies: they will devour everything you have and everything you will ever have. Faith, hope, trust.. all those things that are hard to come by. That’s what grows your garden of love. Lies will try to make a fool out of all those things. But without them, all you have is stones.
 > 
-> 
-> 
 > — Bruce Springsteen, *Western Stars* (2019)
 
 If you ask me for my favorite Springsteen song on any given day, my answer will vary. There are too many gems from which to choose just one.
@@ -12,7 +10,7 @@ But ask me for his most beautiful track, and I’ll answer consistently and with
 
 From the moment I first heard it, “Stones” has stood unrivaled in my esteem for its loveliness both in vocals and music. When Bruce refers to *Western Stars* as a “jewel box of a record,” I have no doubt he’s thinking of “Stones” as its exemplar.
 
-[https://www.youtube.com/watch?v=0u2WuD_321E](https://www.youtube.com/watch?v=0u2WuD_321E)
+[Watch on Youtube: Bruce Springsteen - Stones (Official Audio)](https://www.youtube.com/watch?v=0u2WuD_321E)
 
 Every moment of “Stones” is carefully crafted, from its string-and-french-horn introduction to the interweaving of Luis Villalobos’ achingly gorgeous violin solo with the song’s central motif in the coda.
 
@@ -83,7 +81,7 @@ It’s unclear to me who performs them on the album. It’s definitely a male vo
 
 Compare it with the live version, in which Patti Scialfa shares the microphone with Bruce. It’s a more resonant performance, one that’s easier for a casual listener to appreciate, and it works so well that it’s a rare instance of (in my opinion, at least) a *Western Stars* studio misstep.
 
-[https://www.youtube.com/watch?v=y2pCkdBa4ZU](https://www.youtube.com/watch?v=y2pCkdBa4ZU)
+[Watch on Youtube: Bruce Springsteen - Stones (Film Version - Official Audio)](https://www.youtube.com/watch?v=y2pCkdBa4ZU)
 
 It’s only a minor misstep, though, and the studio track still outshines its live counterpart overall.
 

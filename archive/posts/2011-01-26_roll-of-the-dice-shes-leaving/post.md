@@ -8,7 +8,7 @@ It’s also heartfelt, tender, and vulnerable–almost pitiably so. It’s so di
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=QSERTOIT5xA](https://www.youtube.com/watch?v=QSERTOIT5xA)
+[Watch on Youtube: Bruce Springsteen - "She's Leaving" Version 2](https://www.youtube.com/watch?v=QSERTOIT5xA)
 
 Man, this cat has the blues *bad*. He’s been dumped–actually, he sings to us in the very process of being dumped–and she did it in public, too:
 
@@ -51,9 +51,9 @@ In this solo form, “She’s Leaving” is a quiet elegy for an ending relation
 
 Here is The Bruce Springsteen Band performing “She’s Leaving” at the legendary Student Prince in Asbury Park on December 3, 1971:
 
-[http://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3?_=9](http://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3?_=9)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3?_=9)
 
-<http://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2019/02/02-shes-leaving-online-audio-converter.com_.mp3>
 
 There are some notable differences in this version: Instead of suffering humiliation in front of his friends, Bruce just wants to crawl up into a ball. The bridge couplet is missing, but most significantly, there are several additional verses that follow our protagonist down a tightening spiral of self-pity.
 
@@ -67,7 +67,7 @@ But it’s a song I’d love to hear included if we ever get that fabled *Tracks
 
 **Bonus:** Here’s an alternate, aborted take of Bruce recording “She’s Leaving.” (It was going fine until he forgot the words.)
 
-[https://www.youtube.com/watch?v=rLLo2vppHqw](https://www.youtube.com/watch?v=rLLo2vppHqw)
+[Watch on Youtube: Bruce Springsteen - "She's Leaving" Version 1](https://www.youtube.com/watch?v=rLLo2vppHqw)
 
 **She’s Leaving****Recorded:** May-June 1972  
 **Never released**  

@@ -6,17 +6,17 @@ Heck yes! Bring it on, Bruce–what are we getting? A brand-new unreleased song?
 
 That’s what I imagine was going through the minds of Bruce’s Swedish audience that night of June 17, 1992. But what they got was the world premiere of a serious contender for Bruce Springsteen’s worst song ever:
 
-[https://www.youtube.com/watch?v=70nhL9xEvw8](https://www.youtube.com/watch?v=70nhL9xEvw8)
+[Watch on Youtube: Real Man Bruce Springsteen June 17, 1992 Stockholm, Sweeden](https://www.youtube.com/watch?v=70nhL9xEvw8)
 
 I cringe every time I watch that clip. Bruce tries *so* hard to sell the song, delivering an over-the-top performance for a song that started out that way.
 
 As for the studio track, *Ultimate Classic Rock* called it “an embarrassment.” *Rolling Stone* cited it as one of 22 Terrible Songs by Great Artists. When Backstreets.com wanted to punk readers on April Fools Day a couple of years back, they announced a promotional release of “the legendary ‘Real Man’ single, initially planned as a U.S. follow-up to the ‘[57 Channels (And Nothin’ On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)‘ single in 1992 but never released.”
 
-That’s how dismissively “Real Man” is considered by most critics and fans, to the degree it’s considered at all. (As for me, I’d rank it third from the bottom, just above “[I’ll Stand By You](http://estreetshuffle.com/index.php/2018/08/09/roll-of-the-dice-ill-stand-by-you-always/)” and “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/).”)
+That’s how dismissively “Real Man” is considered by most critics and fans, to the degree it’s considered at all. (As for me, I’d rank it third from the bottom, just above “[I’ll Stand By You](https://estreetshuffle.com/index.php/2018/08/09/roll-of-the-dice-ill-stand-by-you-always/)” and “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/).”)
 
 But we must ask ourselves: does “Real Man” really deserve all that scorn? Let’s do the right thing and take a close listen with an open mind:
 
-[https://www.youtube.com/watch?v=LRH2Z8Ixy5Q](https://www.youtube.com/watch?v=LRH2Z8Ixy5Q)
+[Watch on Youtube: Bruce Springsteen - Real Man (Audio)](https://www.youtube.com/watch?v=LRH2Z8Ixy5Q)
 
 Oh yeah, that track sucks.
 
@@ -42,7 +42,7 @@ You know, one would think that Bruce would have learned after “[I’m a Rocker
 
 As choruses go, this one’s pretty, um, primitive–maybe a cut above “Ooh ooh I got a crush on you.”
 
-Speaking of “[Crush on You](http://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/),” if our first exposure to the next two verses was on paper without the music playing, we might wonder if they were deleted scenes from it–they have virtually the same cadence and construction.
+Speaking of “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/),” if our first exposure to the next two verses was on paper without the music playing, we might wonder if they were deleted scenes from it–they have virtually the same cadence and construction.
 
 *Me and my girl Saturday night*  
 *It’s a late movie on Channel Five*  
@@ -82,6 +82,4 @@ Recorded:** January-February 1990
 **First performed:** June 17, 1992 (Stockholm, Sweden)  
 **Last performed:** July 25, 1992 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
- 
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

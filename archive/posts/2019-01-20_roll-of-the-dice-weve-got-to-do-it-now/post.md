@@ -2,11 +2,11 @@ What to say about “We’ve Got to Do It Now…”
 
 Well, for starters: it’s one of the few early, early unreleased Springsteen songs for which we have both a high-quality live recording *and* hand-written song lyrics (which fetched $1,195 in a 2008 auction). So that’s pretty cool.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/39371925220_e76786cfec_o-229x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/01/39371925220_e76786cfec_o.jpg)
 
 Also, “We’ve Got to Do It Now” is unusual in its shared lead vocals. You can hear Bruce trade off with Robbin Thompson in their 1970 performance as Steel Mill below.
 
-[https://www.youtube.com/watch?v=agIN81g3W4E](https://www.youtube.com/watch?v=agIN81g3W4E)
+[Watch on Youtube: Steel Mill - "We've Got to Do It Now" - Asbury Park, 1970-11-27](https://www.youtube.com/watch?v=agIN81g3W4E)
 
 But that’s pretty much all that’s remarkable about this *very* of-its-time composition. This one, as they say, is for the completists.
 
@@ -43,4 +43,4 @@ Never released
 First performed:** November 27, 1970 (Asbury Park, NJ)  
 **Last performed:** November 27, 1970 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -6,7 +6,7 @@ Elliott had joined Bruce on stage in Paris a few years earlier, and in their fir
 
 Elliott thought “Everything I Do” was a perfect song for Bruce’s register and a great spotlight for their two voices. He was right.
 
-[https://www.youtube.com/watch?v=pA8itl3nHX8](https://www.youtube.com/watch?v=pA8itl3nHX8)
+[Watch on Youtube: Elliott Murphy Ft. Bruce Springsteen - Everything I Do (Leads Me Back To You)](https://www.youtube.com/watch?v=pA8itl3nHX8)
 
 Elliott played a demo of the song for Bruce, who listened intently before saying, “Yeah, I could sing something on that.”
 

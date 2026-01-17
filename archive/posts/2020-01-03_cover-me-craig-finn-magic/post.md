@@ -4,6 +4,6 @@ It’s a dark song–deeply cynical, political, and distrustful. But as The Hold
 
 Well, Finn’s cover certainly dials up the spooky. Take a listen:
 
-[https://videopress.com/embed/go5pJMwn](https://videopress.com/embed/go5pJMwn)
+[Watch Video Highlight](https://videopress.com/embed/go5pJMwn)
 
 Finn’s cover of “Magic” is the kind you only get when a song truly speaks to you, and his alternative ending to Bruce’s original leaves us with the song’s warning echoing in our heads. It’s one of those rare covers that rivals if not surpasses the original.

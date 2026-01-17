@@ -14,8 +14,6 @@ Editor's Note
 
 *Take it away, Katy!*
 
- 
-
 *I am become a name;*  
 *For always roaming with a hungry heart*  
 *Much have I seen and known*  
@@ -36,7 +34,7 @@ Where opinions get divided, though, is on the question of how we’re supposed t
 
 Ken has already written a great [analysis of the song from the first viewpoint](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/), the optimistic one. And now he’s very kindly offered me the chance to present the opposite take: “Western Stars” as a day in the life of a depressed and lonely alcoholic.
 
-[https://www.youtube.com/watch?v=_IXzAAKrsFE](https://www.youtube.com/watch?v=_IXzAAKrsFE)
+[Watch on Youtube: Bruce Springsteen - Western Stars (Official Video)](https://www.youtube.com/watch?v=_IXzAAKrsFE)
 
 Ken points out that “Western Stars” has much the same beginning as “Dancing in the Dark.” And like “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/),” it slips something by you. It plays with what you think you know, what you think you’re hearing.
 
@@ -63,7 +61,7 @@ Tonight the western stars are shining bright again.*
 
 This is a patchwork chorus, assembled from the classics. The opening line comes from Billy Joe Shaver’s 1973 song “Ride Me Down Easy,” a song that envisions God as a jockey, a rider taking a horse for a gentle ride after a long and tiring race.
 
-[https://www.youtube.com/watch?v=7XS3IE3ktJ8](https://www.youtube.com/watch?v=7XS3IE3ktJ8)
+[Watch on Youtube: Waylon Jennings - Ride Me Down Easy](https://www.youtube.com/watch?v=7XS3IE3ktJ8)
 
 The phrase “western stars” has a double, or even a triple meaning; the stars that hang over the American West (reminiscent of Woody Guthrie’s “California Stars,” a painfully nostalgic late-career song, released posthumously), the vanished stars of Hollywood Westerns, and lastly, the Tennyson poem “Ulysses,” the same portrait of Odysseus in old age that gave us the title “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).”
 
@@ -93,5 +91,3 @@ The orchestra crashes back in, the strings swoop and soar, dramatic and stirring
 But then the day ends. Our hero passes out. The music drops to almost nothing, the vision fades, and we’re left back where we started.
 
 *I woke up this morning, just glad my boots were on.*
-
- 

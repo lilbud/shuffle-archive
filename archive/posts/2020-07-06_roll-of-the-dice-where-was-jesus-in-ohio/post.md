@@ -8,7 +8,7 @@ But Bruce’s history of commenting on national tragedy goes back a lot further�
 
 On the afternoon of May 4, 1970, a student anti-war protest at Kent State University turned violent, and over the course of only thirteen seconds, twenty-eight National Guard soldiers fired 67 rounds into the crowd, killing four students, permanently paralyzing one, and injuring eight others.
 
-[https://www.youtube.com/watch?v=I26iWfa_oqI](https://www.youtube.com/watch?v=I26iWfa_oqI)
+[Watch on Youtube: Former Kent State students speak out, 50 years after deadly protest](https://www.youtube.com/watch?v=I26iWfa_oqI)
 
 The incident became almost immediately known as the Kent State Massacre. Protests broke out in solidarity across the country, colleges and universities were forced to temporarily shut down, and public opinion turned irreversibly against the Vietnam War.
 
@@ -16,7 +16,7 @@ At the time of the shooting, Bruce Springsteen was only twenty years old, the le
 
 On June 19th–just 46 days after the shootings–Steel Mill performed a set at The String Factory in Richmond, Virginia. When it was time for the band to take a break, Bruce took to the microphone alone for a rare (at the time) solo acoustic performance. The song he sang was an original composition, and thankfully it was captured on tape–because it’s his only known performance of “Where Was Jesus in Ohio?”
 
-[https://www.youtube.com/watch?v=75UD5Xo01M4](https://www.youtube.com/watch?v=75UD5Xo01M4)
+[Watch on Youtube: Where Was Jesus In Ohio? - Bruce Springsteen (Very Rare)](https://www.youtube.com/watch?v=75UD5Xo01M4)
 
 Even at his young age, Bruce’s talent for empathy is on strong display: Bruce’s lyrics compare the student protesters with the distant American soldiers. Both are patriots who lay down their lives in the course of their civic duty, unprotected by their faith.
 
@@ -76,4 +76,4 @@ Never recorded**
 **First performed:** June 19, 1970 (Richmond, VA)  
 **Last performed:** June 19, 1970 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

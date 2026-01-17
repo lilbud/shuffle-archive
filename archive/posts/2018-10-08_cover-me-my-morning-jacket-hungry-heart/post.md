@@ -4,4 +4,4 @@ It’s a wonderfully faithful cover without a trace of irony or self-consciousne
 
 I’m pretty certain Bruce would approve.
 
-[https://www.youtube.com/watch?v=J8YnAqa1hbA](https://www.youtube.com/watch?v=J8YnAqa1hbA)
+[Watch on Youtube: Hungry Heart - My Morning Jacket (Bruce Springsteen Cover) *soundboard audio*](https://www.youtube.com/watch?v=J8YnAqa1hbA)

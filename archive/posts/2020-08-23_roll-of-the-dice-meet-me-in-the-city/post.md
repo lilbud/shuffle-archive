@@ -2,13 +2,13 @@ For a song that sounds like it was written for the sole purpose of opening a Spr
 
 Take a listen and hear for yourself. (Hint: as with many of Bruce’s songs, the secret decoder ring is in the bridge.)
 
-[https://www.youtube.com/watch?v=dIni5l8oBXA](https://www.youtube.com/watch?v=dIni5l8oBXA)
+[Watch on Youtube: Bruce Springsteen - Meet Me In The City (Audio)](https://www.youtube.com/watch?v=dIni5l8oBXA)
 
-“Meet Me in the City” belongs to the collection of “hybrid” River outtakes, an amalgamation of a vintage 1979 backing track and backing vocals with a 2015 lead vocal. It works much better than some of the other outtakes included with *The Ties That Bind: The River* Collection though, in part because there aren’t any traces of Bruce’s 1979 vocals for contrast (see “[The Brokenhearted](http://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)” for a jarring example of a less successful patch job), and in part because of the meta nature of the song itself.
+“Meet Me in the City” belongs to the collection of “hybrid” River outtakes, an amalgamation of a vintage 1979 backing track and backing vocals with a 2015 lead vocal. It works much better than some of the other outtakes included with *The Ties That Bind: The River* Collection though, in part because there aren’t any traces of Bruce’s 1979 vocals for contrast (see “[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)” for a jarring example of a less successful patch job), and in part because of the meta nature of the song itself.
 
 Still, I can’t help but suspect that the mix we hear in the clip above isn’t what we might have heard had “Meet Me in the City” actually made the original *The River* album. Take a listen to this 1979 E Street Band rehearsal session–you’ll hear a slightly slower and much brighter arrangement than on the record, thanks to Danny Federici’s prominent glockenspiel, which is buried in the mix in the studio version.
 
-[https://www.youtube.com/watch?v=hagsmGk1PTQ?start=71](https://www.youtube.com/watch?v=hagsmGk1PTQ?start=71)
+[Watch on Youtube: Bruce Springsteen - In The City Tonight Rare River Outtake](https://www.youtube.com/watch?v=hagsmGk1PTQ?start=71)
 
 There are actually *eight* different rehearsal versions of “Meet Me in the City” from 1979 floating around if you know where to look for them (they go by either the names “In the City Tonight” or “Do You Want Me to Say Alright”), but none are complete and all have lyrical variations and bluffed segments.
 
@@ -33,7 +33,7 @@ At first read, that first line may seem out of place: e*verybody’s lost in rom
 
 It’s not, of course. Bruce isn’t using “romance” in the colloquial sense here–he’s using it in the literary sense. We know this because he bookends the verse with “I’m just searching… for what’s real.” In other words, “Meet Me in the City” is about the contrast of romanticism with realism–as, in a way, is *The River* itself.
 
-*The River* is a double album, but it’s also a dichotomous one. Like “Meet Me in the City,” *The River* is an amalgam, one of style rather than chronology. The songs on *The River* are mostly romantic (see “[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/),” “[Cadillac Ranch](http://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/),” and “[I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)“), but we see a few realistic ones as well (“[Sherry Darling,](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/),” and the [title track](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/).)
+*The River* is a double album, but it’s also a dichotomous one. Like “Meet Me in the City,” *The River* is an amalgam, one of style rather than chronology. The songs on *The River* are mostly romantic (see “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/),” “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/),” and “[I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)“), but we see a few realistic ones as well (“[Sherry Darling,](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/),” and the [title track](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/).)
 
 The cleverness of “Meet Me in the City” lies in the fact that it is a romantic song about realism–or perhaps more accurately, it’s a song about a romantic who yearns to be a realist. But even that only captures the surface of the song. “Meet Me in the City” is also an artist’s internal dialogue, a songwriter’s message to his younger self across the years that span the creation of the song itself.
 
@@ -70,7 +70,7 @@ Let’s move on to the part of the song that confuses many fans:
 
 In the first verse, the narrator is a disembodied voice riding the airwaves. In the second, we find out where he’s transmitting from. Apparently, he’s had a run-in with the law, and it’s not his first time. It seems he has been arrested at least for public intoxication and probably for drug use–and for whatever disruptive or perhaps violent acts he committed while under the influence.
 
-Not only is our protagonist in prison, it also appears he’s on death row, which makes us wonder if this is a “[Johnny 99](http://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)” scenario. But perhaps all is not quite what it seems, because if taken literally, the final four lines of the second verse are an awfully strange segue:
+Not only is our protagonist in prison, it also appears he’s on death row, which makes us wonder if this is a “[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)” scenario. But perhaps all is not quite what it seems, because if taken literally, the final four lines of the second verse are an awfully strange segue:
 
 *If you’re sick, if you’re tired, if you’re bored*  
 *Then check the line, check the time, check the action, check the score*  
@@ -88,7 +88,7 @@ And *now* the song snaps into focus, as the voice of an artist–or perhaps *the
 
 Filled with florid imagery and clever metaphor, laced with idealism and earnestness, romantic literature and music began to turn off nineteenth century artists and produced as a reaction a movement of art, literature, and music centered on ordinary people in ordinary circumstances–depicted in plain language and with outcomes that aren’t always neat and tidy. In other words, a whole lot like the evolution of Bruce’s songwriting at the time.
 
-Bruce’s first three albums were *deeply*, almost archetypically romantic. Only with “[Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” on *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)* did Bruce’s songwriting verge into realism. *The River* features a few more experiments with realism, but it wasn’t until his sixth album, *Nebraska,* that Bruce fully embraced the form.
+Bruce’s first three albums were *deeply*, almost archetypically romantic. Only with “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” on *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)* did Bruce’s songwriting verge into realism. *The River* features a few more experiments with realism, but it wasn’t until his sixth album, *Nebraska,* that Bruce fully embraced the form.
 
 The bridge of “Meet Me in the City” sounds like the voice of the artist in 1979, growing bored with romantic songwriting and groping his way toward a more realistic catalog.
 
@@ -136,11 +136,11 @@ In 2015, though–well, as he once confessed about the inspiration of a differen
 
 As I wrote at the top, Bruce aptly and symbolically prefaced almost every full-album performance of *The River* in 2016 with “Meet Me in the City.” In fact, out of the 41 times he’s played the song live, only two were not attached to a full album performance. One of those was a mid-tour River show in Milan; the other was the live debut of the song on *Saturday Night Live* in the holiday season of 2015.
 
-[https://www.youtube.com/watch?v=Ld1cXemQ3UQ](https://www.youtube.com/watch?v=Ld1cXemQ3UQ)
+[Watch on Youtube: Bruce Springsteen - Meet Me in the City (Live on SNL)](https://www.youtube.com/watch?v=Ld1cXemQ3UQ)
 
 When Bruce and the E Street Band kicked off their 2016 version of the River Tour a month later, “Meet Me in the City” was the perfect choice for a show opener–not just because of its meaning but because of its trappings: at a superficial listen, the “meet me in the city tonight” refrain sounded like a typically Springsteen invitation and convocation (it even echoed Bruce’s “meeting in the town tonight” opening bit from the Reunion Tour). “I pushed my way to the heart of the crowd” sounded like a promise.
 
-[https://www.youtube.com/watch?v=vYGK6UD_yTA](https://www.youtube.com/watch?v=vYGK6UD_yTA)
+[Watch on Youtube: "Meet Me in the City" (MULTI-CAM) - Bruce Springsteen LA 3/19/2016](https://www.youtube.com/watch?v=vYGK6UD_yTA)
 
 But when the band traveled to Europe and abandoned the full-album concept, “Meet Me in the City” dropped by the wayside as well. Without the album it symbolized as context, Bruce seemed to feel that “Meet Me in the City” functioned only on one level, and not the important one.
 
@@ -152,4 +152,4 @@ Recorded:** June 14, 1979 (backing track), 2015 (vocals)
 **First performed:** December 19, 2015 (New York City, NY)  
 **Last performed:** July 28, 2016 (Oslo, Norway)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

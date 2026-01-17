@@ -10,7 +10,7 @@ Not the song, mind you, but *the entire studio track*.
 
 The version of “Hearts of Stone” that is widely considered to be one of the finest tracks ever recorded by Southside Johnny and The Asbury Jukes is in reality a performance by Southside Johnny and the E Street Band.
 
-[https://www.youtube.com/watch?v=6Cqo8LOPDE0](https://www.youtube.com/watch?v=6Cqo8LOPDE0)
+[Watch on Youtube: Hearts of Stone (2013 Remaster)](https://www.youtube.com/watch?v=6Cqo8LOPDE0)
 
 Steven Van Zandt produced that track, subtly layering The Miami Horns beneath the band, and swapping out Bruce’s lead vocal for Southside’s.
 
@@ -20,7 +20,7 @@ Lyon’s performance (released as the title track to his seminal 1978 album) was
 
 Like Southside and Stevie twenty years earlier, Bruce added a modern horn section to his original recording, with Ed Manion and Richie “La Bamba” Rosenberg having the distinction of performing on both the 1978 and 1998 tracks. The horns are more pronounced in the later version–particularly underneath Clarence’s saxophone solo–but we can still easily discern the identical underlying band recording.
 
-[https://www.youtube.com/watch?v=jnsi57O3V1o](https://www.youtube.com/watch?v=jnsi57O3V1o)
+[Watch on Youtube: Hearts Of Stone (Studio Outtake - 1977)](https://www.youtube.com/watch?v=jnsi57O3V1o)
 
 For years, fans have debated over which version is the superior one, and it inevitably comes down to a comparison of the lead vocals. Bruce’s haunted, impassioned version stands up well next to Southside’s. So similar are their versions, in fact, that one could mix the two seamlessly to create a faux duet–as one enterprising fan unofficially did. Take a listen below.
 
@@ -88,15 +88,15 @@ The blame can’t be placed with Bruce, though: the fault lies with Southside, w
 
 It would take a full quarter-century after that before Bruce would attempt “Hearts of Stone” on his own. That moment came during a surprise pre-show in Limerick during the Wrecking Ball Tour, when Bruce thrilled early-arriving fans with his first-ever live solo performance (acoustic, too!) of “Hearts of Stone.”
 
-[https://www.youtube.com/watch?v=qqK_Qg3xoM4](https://www.youtube.com/watch?v=qqK_Qg3xoM4)
+[Watch on Youtube: Bruce Springsteen - Hearts Of Stone (HD) Limerick, Ireland 2013-07-16](https://www.youtube.com/watch?v=qqK_Qg3xoM4)
 
 It was a thrilling moment for those in the know enough to understand the history being made, but it lacked the all-important sax solo. Bruce rectified that when he played it for the second time ever, at Light of Day 2014, with Joe Grushecky and The Houserockers as his backing band.
 
-[https://www.youtube.com/watch?v=2i4J2jEJzkU](https://www.youtube.com/watch?v=2i4J2jEJzkU)
+[Watch on Youtube: Bruce Springsteen - Hearts of stone (Light of day benefit 2014)](https://www.youtube.com/watch?v=2i4J2jEJzkU)
 
 Bruce gave “Hearts of Stone” its E Street stage debut the following year on the High Hopes Tour, with a pair of outings in Sunrise and Uncasville, with Ed Manion (who played on both original studio recordings) doing the honors on the saxophone.
 
-[https://www.youtube.com/watch?v=J12DaVxOzzM](https://www.youtube.com/watch?v=J12DaVxOzzM)
+[Watch on Youtube: Hearts of Stone - Springsteen - BB&T Arena Sunrise, FL - April 29, 2014](https://www.youtube.com/watch?v=J12DaVxOzzM)
 
 Since then, “Hearts of Stone” has made a few more appearances at benefit performances with Joe Grushecky, but it missed the last E Street Band tour entirely. It’s one of the songs I’m hoping to hear again at least once more on the next tour, though, because it’s too strong a song to stay unsung.
 

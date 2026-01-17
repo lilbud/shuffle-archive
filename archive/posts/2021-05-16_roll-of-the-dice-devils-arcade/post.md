@@ -2,7 +2,7 @@ The saying dates back at least to the fourteenth century in English, and possibl
 
 In 2007, Bruce Springsteen updated the metaphor for modern times and crafted one of his most stunningly layered and deeply romantic songs around it.
 
-[https://www.youtube.com/watch?v=zOuj5NjAJRI](https://www.youtube.com/watch?v=zOuj5NjAJRI)
+[Watch on Youtube: Devil's Arcade](https://www.youtube.com/watch?v=zOuj5NjAJRI)
 
 Bruce likes to close his albums on notes of hope, faith and optimism, and “Devil’s Arcade” fits that bill nicely.
 
@@ -97,8 +97,6 @@ It’s a long and arduous journey, but we’re going to make it. Together.
 ---
 
 
- 
-
 Bruce constructed his Magic Tour set lists around a five-song sequence that closed almost every show through the spring of 2008. Together, “Devil’s Arcade,” “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/),” “Last to Die,” “[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/),” and “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” created core tour themes of sacrifice, heroism, betrayal, resistance, and defiance, and until the tour began loosening as spring turned to summer, “Devil’s Arcade” served as an important anchor.
 
 In all, Bruce performed “Devil’s Arcade” 73 times on that tour–but never since, not even once.
@@ -109,7 +107,7 @@ Nevertheless, the E Street Band’s nightly performances of “Devil’s Arcade�
 
 Watch this complete performance of “Devil’s Arcade” from early in the tour, and you’ll understand why it was a nightly highlight.
 
-[https://www.youtube.com/watch?v=dMN3RYMeHnE](https://www.youtube.com/watch?v=dMN3RYMeHnE)
+[Watch on Youtube: Bruce Springsteen - Devil's Arcade](https://www.youtube.com/watch?v=dMN3RYMeHnE)
 
 **Devil’s Arcade  
 Recorded:** March-April 2007  

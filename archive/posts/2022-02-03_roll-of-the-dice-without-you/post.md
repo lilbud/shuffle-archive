@@ -2,13 +2,13 @@ Buried at the bottom of his 1996 *Blood Brothers* EP, “Without You” is a for
 
 That’s because “Without You” is a perfect pop song. as light as air and as fun as a house party. And a party is pretty much what “Without You” sounds like, from its opening “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)“-esque party noises to the carte blanche, ebullient backing vocals that pervade it.
 
-[https://www.youtube.com/watch?v=ztjKUHiLKtw](https://www.youtube.com/watch?v=ztjKUHiLKtw)
+[Watch on Youtube: Without You](https://www.youtube.com/watch?v=ztjKUHiLKtw)
 
 “Without You” was recorded during the E Street Band’s brief reunion in 1995 for the *Greatest Hits* sessions, and maybe it was that revived camaraderie that inspired the notoriously controlling Springsteen to allow the band members (plus producer Chuck Plotkin and percussionist Frank Pagano, in their only credited vocal appearances on a Springsteen song) to cut loose and create one of their most infectiously joyous tracks.
 
 One listen to “Without You” is all it takes to realize how much fun the band must have had recording it, but if there’s any doubt, watch this video of an almost-final take and see for yourself.
 
-[https://videopress.com/embed/PvSWyzov](https://videopress.com/embed/PvSWyzov)
+[Watch Video Highlight](https://videopress.com/embed/PvSWyzov)
 
 It feels silly to analyze Bruce’s lyrics for “Without You.” First of all, there aren’t that many of them: two verses, a bridge, and a three-syllable chorus, all of which boil down to: *I miss you, baby.* 
 

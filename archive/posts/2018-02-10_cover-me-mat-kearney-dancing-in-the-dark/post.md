@@ -2,4 +2,4 @@ There are a lot of covers of “[Dancing in the Dark](https://estreetshuffle.com
 
 Nicely done, Mat.
 
-[https://www.youtube.com/watch?v=JbZC7qMTO-Y](https://www.youtube.com/watch?v=JbZC7qMTO-Y)
+[Watch on Youtube: Matt Kearney- Dancing in the Dark](https://www.youtube.com/watch?v=JbZC7qMTO-Y)

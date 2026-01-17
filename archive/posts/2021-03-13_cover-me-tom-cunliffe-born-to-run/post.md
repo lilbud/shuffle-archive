@@ -6,8 +6,6 @@ Among the artists in heavy rotation in his parents’ home while he was growing 
 
 Cunliffe’s reading of “Born to Run” is wistful and nostalgic rather than defiant and anthemic like Bruce’s original–but it’s just as 100% sincere.
 
-[https://www.youtube.com/watch?v=TObzSSglR3E](https://www.youtube.com/watch?v=TObzSSglR3E)
+[Watch on Youtube: Tom Cunliffe - Born To Run (Bruce Springsteen)](https://www.youtube.com/watch?v=TObzSSglR3E)
 
 Cunliffe’s cover of “Born to Run” may be gently acoustic, but his original studio tracks rock. Check out more of his music [here](https://tomcunliffemusic.com/).
-
- 

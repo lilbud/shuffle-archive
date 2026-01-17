@@ -6,7 +6,7 @@ C’mon folks, it’s 2019–can we all stop pussyfooting around now and just st
 
 Seriously, one of the more entertaining aspects of being a Springsteen scholar has to be the knots that authors, critics, reviewers, and commentators tie themselves in to ensure that they don’t accidentally overstep the bounds of discretion.
 
-Even Brian Hiatt, in his new *Stories Behind the Songs* book, goes to great lengths to avoid describing what the song is about, although his hilarious quote of why Bruce withdrew his blessing for [Bette Midler’s cover](http://estreetshuffle.com/index.php/2018/11/26/cover-me-bette-midler-pink-cadillac/) (“I mean, it’s just in your face!”) has to be my favorite line in the book.
+Even Brian Hiatt, in his new *Stories Behind the Songs* book, goes to great lengths to avoid describing what the song is about, although his hilarious quote of why Bruce withdrew his blessing for [Bette Midler’s cover](https://estreetshuffle.com/index.php/2018/11/26/cover-me-bette-midler-pink-cadillac/) (“I mean, it’s just in your face!”) has to be my favorite line in the book.
 
 So let’s end that here and now.
 
@@ -26,13 +26,13 @@ Elvis’ version:
 *You may have a pink Cadillac*  
 *But don’t you be nobody’s fool*
 
-[https://www.youtube.com/watch?v=92iwC-xI3mE](https://www.youtube.com/watch?v=92iwC-xI3mE)
+[Watch on Youtube: Elvis Presley - Baby Let's Play House](https://www.youtube.com/watch?v=92iwC-xI3mE)
 
 So the first mention of a “pink Cadillac” in a rock song is in a song about a boy who’s scared to death of his girl going off to college and having sex with other guys. Yeah, that pink Cadillac is definitely a pudendal metaphor. (Don’t even bring up the Mary Kay connection, please.)
 
 And that’s not the only time a pink Caddy shows up as a sexual stand-in. No less than Aretha Franklin gave Bruce a run for his money in most blatant use of the famous car as a vaginal metaphor in her hit, “Freeway of Love.”
 
-[https://www.youtube.com/watch?v=Ip_pjb5_fgA](https://www.youtube.com/watch?v=Ip_pjb5_fgA)
+[Watch on Youtube: Aretha Franklin - Freeway Of Love (Official Music Video)](https://www.youtube.com/watch?v=Ip_pjb5_fgA)
 
 *Knew you’d be a vision in white*  
 *How’d you get your pants so tight?*  
@@ -58,9 +58,7 @@ It’s also even more overt than the finished version, which you might not have 
 *Can you imagine what would have happened if she’d just stepped back*  
 *And showed him her pink Cadillac*
 
- 
-
-[https://www.youtube.com/watch?v=61R5ECzHMiM](https://www.youtube.com/watch?v=61R5ECzHMiM)
+[Watch on Youtube: RARE! Pink Cadillac-Bruce Springsteen](https://www.youtube.com/watch?v=61R5ECzHMiM)
 
 There’s also another section toward the end of the song where Bruce makes it clear that he’s not exactly thinking beyond the here and now:
 
@@ -72,21 +70,21 @@ Obviously, “Pink Cadillac” never made it onto *Nebraska* despite its inclusi
 
 Still, Bruce couldn’t keep “Pink Cadillac” in the garage. Despite it not making his destined-to-be-a-blockbuster album, Bruce actually released “Pink Cadillac” a full month before the album as the B-side to the single for “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” (making “Pink Cadillac” one of two vagina songs to get radio airplay in 1984–Sheena Easton’s “Sugar Walls” was the other).
 
-[https://www.youtube.com/watch?v=Wk5cIUI6Zac](https://www.youtube.com/watch?v=Wk5cIUI6Zac)
+[Watch on Youtube: Pink Cadillac (Single B-Side - 1984)](https://www.youtube.com/watch?v=Wk5cIUI6Zac)
 
 So when Bruce debuted it at the second show of the Born in the U.S.A. tour, the crowd might have had an inkling of what to expect when Bruce teed it up with the introduction that leads off this article.
 
 Take a listen to that very first live performance below. Once the song begins in proper, “Pink Cadillac” struts and sashays, with the Professor going to town on the piano and the Big Man debuting what his perhaps his raunchiest sax solo.
 
-[https://videopress.com/embed/NqB6kNCG](https://videopress.com/embed/NqB6kNCG)
+[Watch Video Highlight](https://videopress.com/embed/NqB6kNCG)
 
 As the tour progressed, “Pink Cadillac” grew and evolved into a comedic centerpiece, with Bruce’s shaggy dog story quickly becoming a favorite nightly highlight for both performer and audience.
 
-[https://www.youtube.com/watch?v=VCmpqCRlVA4](https://www.youtube.com/watch?v=VCmpqCRlVA4)
+[Watch on Youtube: Bruce Springsteen - Pink Cadillac [Philadelphia, August 14, 1985]](https://www.youtube.com/watch?v=VCmpqCRlVA4)
 
 Even at its last outing (to date, at least) in Virginia Beach in 2016, Bruce employed his classic shtick in setting up the song:
 
-[https://www.youtube.com/watch?v=2IVSfVtl0w0](https://www.youtube.com/watch?v=2IVSfVtl0w0)
+[Watch on Youtube: Pink Cadillac - Springsteen - VA Beach Sept 5, 2016](https://www.youtube.com/watch?v=2IVSfVtl0w0)
 
 As you can see in the clips above, Bruce clearly enjoys stepping up to and back from the line of propriety during his introductions. And that’s as good a segue as any for us to delve into the way he walks that line in the lyrics.
 
@@ -145,23 +143,23 @@ And here we leave it, with one of the slyest references to doing it doggy style 
 
 “Pink Cadillac” is arguably the raunchiest song in Bruce’s catalog (“[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” might give it a run for its money, though), and Bruce seems to instinctively know that the secret to putting the song over is to cut the raunch with shtick. When he resurrected the song with the E Street Band in 2003 after an 18-year absence, he started out tentatively, almost nervously. But around the four-minute mark below, you can almost see him remember “oh yeah… the shtick,” and he immediately loosens up.
 
-[https://www.youtube.com/watch?v=qD5Vythvxig](https://www.youtube.com/watch?v=qD5Vythvxig)
+[Watch on Youtube: Bruce Springsteen - Pink Cadillac](https://www.youtube.com/watch?v=qD5Vythvxig)
 
 “Pink Cadillac” has made twenty or so appearances in the sixteen years since. Bruce has fun with it whenever and wherever he plays it, even if it sometime leads to some charmingly awkward on-stage moments like this one with Joe Grushecky.
 
-[https://www.youtube.com/watch?v=mat-1KIGvwc](https://www.youtube.com/watch?v=mat-1KIGvwc)
+[Watch on Youtube: Pink Cadillac - Bruce Springsteen & Joe Grushecky, Pittsburgh, PA. Nov. 5, 2010](https://www.youtube.com/watch?v=mat-1KIGvwc)
 
 But despite a handful of terrific E Street Band concert performances, it’s at the small club gigs where “Pink Cadillac” comes alive. “Pink Cadillac” is at its lewdest best when it’s played that way, and it doesn’t get dirtier than this searingly raw performance with Clarence Clemons and the Temple of Soul from September 1, 2001. It’s my favorite performance of the song, and it’s a rarely heard one. Turn the volume up loud and enjoy.
 
-[https://videopress.com/embed/bqHUn1hv](https://videopress.com/embed/bqHUn1hv)
+[Watch Video Highlight](https://videopress.com/embed/bqHUn1hv)
 
 **Bonus #1:** Although Bruce has occasionally recorded and released multiple studio versions of a song over time (“This Hard Land” and “The Promise” come immediately to mind), “Pink Cadillac” carries an additional distinction in that small club: Bruce recorded a new version of it in 2003, providing backing vocals and encouragement (“Come on, Killer!”) for Jerry Lee Lewis. Jerry Lee released his version of “Pink Cadillac” a few years later on his 2006 album, *Last Man Standing*, and I wouldn’t be the obsessive completist that I am if I ended this essay without drawing your attention to it.
 
-[https://www.youtube.com/watch?v=Ki9JnV9wbBU](https://www.youtube.com/watch?v=Ki9JnV9wbBU)
+[Watch on Youtube: Pink Cadillac Jerry Lee Lewis and Bruce Springsteen](https://www.youtube.com/watch?v=Ki9JnV9wbBU)
 
 **Bonus #2:** The officially released version of “Pink Cadillac” includes a fade-out ending, but the unfaded original track escaped into the wild some time ago. Here it is, with about ten extra seconds, so you can hear how the song actually ends. It’s not likely to add to or detract from your enjoyment of the song, but see my Bonus #1 note above.
 
-[https://videopress.com/embed/bL4Mc0Lt](https://videopress.com/embed/bL4Mc0Lt)
+[Watch Video Highlight](https://videopress.com/embed/bL4Mc0Lt)
 
 **Pink Cadillac  
 Recorded:** May 31, 1983 – original, November 2003 – Jerry Lee Lewis cover  
@@ -169,4 +167,4 @@ Recorded:** May 31, 1983 – original, November 2003 – Jerry Lee Lewis cover
 **First performed:** July 1, 1984 (St. Paul, MN)  
 **Last performed:** December 13, 2021 (New York City, NY)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

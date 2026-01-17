@@ -6,10 +6,8 @@ Today’s cover certainly falls in the “fresh” category in more ways than on
 
 And yet, here comes Big Land Band frontman William Goetz stepping up to the microphone to take a swing at it.
 
-[https://www.youtube.com/watch?v=g4vI1Fij8-8](https://www.youtube.com/watch?v=g4vI1Fij8-8)
+[Watch on Youtube: »Ghosts« (©2020 Bruce Springsteen) - Acoustic Cover](https://www.youtube.com/watch?v=g4vI1Fij8-8)
 
 In contrast with Bruce’s celebratory original, Goetz’s cover of “Ghosts” is nostalgic and wistful, and it succeeds brilliantly.
 
 I’m sure we’ll see many more *Letter to You* covers over the coming months, but this is a nice way to kick them off.
-
- 

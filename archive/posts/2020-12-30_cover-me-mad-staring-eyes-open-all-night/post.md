@@ -6,12 +6,10 @@ Each track was interpreted and performed by a different artist or band, and in a
 
 The entire album is worth listening to, but my favorite track by far is the daring reinvention of “[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)” by Mad Staring Eyes.
 
-[https://www.youtube.com/watch?v=98pXrIfgyno](https://www.youtube.com/watch?v=98pXrIfgyno)
+[Watch on Youtube: Open All Night - Bruce Springsteen (Cover) by Mad Staring Eyes](https://www.youtube.com/watch?v=98pXrIfgyno)
 
 Mad Staring Eyes was a six-piece folk combo out of North London that counted Bruce among their influences. (They don’t seem to be active any more, although I’d be happy to be corrected if they are.)
 
 Their shuffling take on “Open All Night” would have been a perfect arrangement for the Seeger Sessions Tour, had Bruce not gone a completely different direction with his own re-imagining of the song.
 
 Their entire performance is great, but for me the highlight is the rocking flute solo(!), very likely inspired by Canned Heat. Who would have thought “Going Up the Country” would graft well onto “Open All Night?”
-
- 

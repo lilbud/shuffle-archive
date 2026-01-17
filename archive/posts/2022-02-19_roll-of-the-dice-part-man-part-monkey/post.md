@@ -12,7 +12,7 @@ But it’s not.
 
 It may have been inspired by *Inherit the Wind–*a play, film, and TV movie that dramatized the events of the trial–but that’s not what the song is *about*. So let’s take a listen to this *Human Touch* outtake (which Bruce eventually released as a B-side to “[57 Channels (And Nothin’ On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)” and on *Tracks* six years later), and then we’ll discuss.
 
-[https://www.youtube.com/watch?v=faWmZrO8HGg](https://www.youtube.com/watch?v=faWmZrO8HGg)
+[Watch on Youtube: Part Man, Part Monkey (Studio Outtake - 1990)](https://www.youtube.com/watch?v=faWmZrO8HGg)
 
 The Scopes Monkey Trial has about as much to do with understanding “Part Man, Part Monkey” as Mary’s dress does to grokking “Thunder Road.”
 
@@ -62,7 +62,7 @@ And that’s too bad, because taken for what it is–a light-hearted reggae rock
 
 Bruce seems to have recognized that in concert, often hamming it up on stage both while introducing and performing the song throughout the Tunnel of Love Tour in 1988.
 
-[https://www.youtube.com/watch?v=GMjUSrYfyak](https://www.youtube.com/watch?v=GMjUSrYfyak)
+[Watch on Youtube: Bruce Springsteen - part man part monkey](https://www.youtube.com/watch?v=GMjUSrYfyak)
 
 Bruce shelved “Part Man, Part Monkey” after that tour, but when history rhymed in 2005, he saw an opportunity to bring it back to the stage with new relevance.
 
@@ -70,11 +70,11 @@ Another trial (less famous than the one 80 years earlier) captivated the media t
 
 At the very end of the year, a federal judge rejected the school district’s policy, but Bruce had already spent much of the year lampooning the very fact that the trial even happened at all.
 
-[https://www.youtube.com/watch?v=W56mOUrGDvg](https://www.youtube.com/watch?v=W56mOUrGDvg)
+[Watch on Youtube: Bruce Springsteen - Part Man, Part Monkey - Seattle - 8/11/05](https://www.youtube.com/watch?v=W56mOUrGDvg)
 
 Bruce has only brought “Part Man, Part Monkey” back once since that lawsuit was resolved, as an audible during a Magic Tour show in Hershey in 2008.
 
-[https://www.youtube.com/watch?v=GklDiFt151Q](https://www.youtube.com/watch?v=GklDiFt151Q)
+[Watch on Youtube: Bruce Springsteen Part Man Part Monkey Hershey 19/08/2008](https://www.youtube.com/watch?v=GklDiFt151Q)
 
 It’s been absent ever since, most likely because it’s an outlier in Bruce’s catalog–musically different from the rest of his body of work, too slight to offer food for thought and thankfully now removed from relevance to current events.
 

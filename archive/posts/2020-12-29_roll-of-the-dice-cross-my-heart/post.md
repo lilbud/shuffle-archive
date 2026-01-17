@@ -1,6 +1,6 @@
 “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” is generally considered to be Bruce’s first officially released song featuring cunnilingus, but it’s actually his second. He slipped “Cross My Heart” past fans with very little notice.
 
-[https://www.youtube.com/watch?v=x6dxQpS8_xY](https://www.youtube.com/watch?v=x6dxQpS8_xY)
+[Watch on Youtube: Bruce Springsteen - Cross My Heart (Audio)](https://www.youtube.com/watch?v=x6dxQpS8_xY)
 
 Buried deep on Side One of *Human Touch*, “Cross My Heart” beat “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” to market by a full year. (“Red Headed Woman” gets bragging rights for being performed earlier, however.)
 
@@ -10,7 +10,7 @@ In any event, “Cross My Heart” isn’t about cunnilingus any more than “[R
 
 At any rate, Bruce drew upon more than just blue subject matter for his inspiration for this *Human Touch* deep cut–he also drew on the blues itself, borrowing his song’s title, theme, and so much of the lyrics from “Cross My Heart” by Sonny Boy Williamson II that he gave Williamson a co-writer’s credit.
 
-[https://www.youtube.com/watch?v=PNdfgx8Rqq4](https://www.youtube.com/watch?v=PNdfgx8Rqq4)
+[Watch on Youtube: Sonny Boy Williamson - Cross My Heart](https://www.youtube.com/watch?v=PNdfgx8Rqq4)
 
 Musically, the two songs couldn’t be more different. Williamson’s 1958 single is considered a blues classic with a stunning harmonica solo; Bruce’s song… well, compared to the other songs on *Human Touch* we can at least admire the restraint shown in the arrangement and production. (It still screams early nineties, though.)
 
@@ -85,11 +85,11 @@ Of all the songs on *Human Touch*, “Cross My Heart” is the song Bruce has pl
 
 Bruce debuted “Cross My Heart” at a homecoming show in East Rutherford on July 31, 1992, in an arrangement very close to the one on the album.
 
-[https://videopress.com/embed/qHcQSaYj](https://videopress.com/embed/qHcQSaYj)
+[Watch Video Highlight](https://videopress.com/embed/qHcQSaYj)
 
 Bruce’s second and final performance to date was the special one, however. At Nassau Coliseum that fall, Bruce performed “Cross My Heart” in a moody and acoustic arrangement.
 
-[https://www.youtube.com/watch?v=ry54U4Fn5aM](https://www.youtube.com/watch?v=ry54U4Fn5aM)
+[Watch on Youtube: Bruce Springsteen - CROSS MY HEART (live 1992)](https://www.youtube.com/watch?v=ry54U4Fn5aM)
 
 With just Roy on keyboards and Bruce on guitar and harmonica (with a solo that Bruce would one day lift for “[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)“). Bruce’s grey lyrics get a chance to breathe, and the song gains a depth (murky as it may be) that it never achieves on record.
 

@@ -4,6 +4,6 @@ From deep cuts like “[When You’re Alone](https://estreetshuffle.com/index.ph
 
 That knowledge is on dizzying display in Lorenzo’s original song/shaggy dog story, “Hey Bruce,” which caps off his tribute album, *Hearts of Stone*. I won’t say much about it other than: it’s clever, catchy, and warrants close attention, because at times the in-jokes and easter eggs fly by faster than I can count.
 
-[https://www.youtube.com/watch?v=2CmOJ4NK2ec](https://www.youtube.com/watch?v=2CmOJ4NK2ec)
+[Watch on Youtube: HEY BRUCE - @LorenzoBertocchini](https://www.youtube.com/watch?v=2CmOJ4NK2ec)
 
 Check out Lorenzo’s original music with his band The Apple Pirates [here](https://lorenzobertocchini.bandcamp.com/music), and seek out his Springsteen tribute album *Hearts of Stone*… if you can find it. (You can listen to a few cuts [here](https://www.reverbnation.com/lbap?popup_bio=true).)

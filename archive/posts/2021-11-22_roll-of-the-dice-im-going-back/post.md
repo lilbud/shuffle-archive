@@ -8,7 +8,7 @@ So that’s what makes today’s entry special. “I’m Going Back” (which al
 
 Almost every song from those sessions has been released in some fashion or other, but “I’m Going Back” is an exception.
 
-[https://www.youtube.com/watch?v=26_jOBM25J0](https://www.youtube.com/watch?v=26_jOBM25J0)
+[Watch on Youtube: "I'm Goin Back" - Bruce Springsteen 1995 Work in Progress Song - Unreleased](https://www.youtube.com/watch?v=26_jOBM25J0)
 
 The take of “I’m Going Back” that circulates among collectors is an early one. There are almost no lyrics to speak of (except for the phrase fans have seized on for the title), but it’s a thrill to hear the newly and temporarily reunited E Street Band working out a new song.
 

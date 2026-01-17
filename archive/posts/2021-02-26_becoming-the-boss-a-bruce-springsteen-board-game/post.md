@@ -1,10 +1,10 @@
 I didn’t know the world needed a Springsteen-themed board game, but Søren Kitaj and Knud Jønsson did.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/IMG_4631.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/IMG_4631-scaled.jpg)
 
-These two lifelong friends from Denmark envisioned, designed, developed, and published *[Becoming The Boss](http://becomingtheboss.dk/),* an incredibly detailed–and **free** to all–board game experience sure to intrigue even casual Springsteen fans and absolutely delight hardcore ones.
+These two lifelong friends from Denmark envisioned, designed, developed, and published *[Becoming The Boss](https://becomingtheboss.dk/),* an incredibly detailed–and **free** to all–board game experience sure to intrigue even casual Springsteen fans and absolutely delight hardcore ones.
 
-[https://videopress.com/embed/GSg17dc4](https://videopress.com/embed/GSg17dc4)
+[Watch Video Highlight](https://videopress.com/embed/GSg17dc4)
 
 In *Becoming The Boss,* players get to live (or relive) the early days of the Asbury Park music scene. To win the game, all you have to do is form a band, claw your way to the top, score a record deal, and make the covers of *Time* and *Newsweek.* You know: just like Bruce did.
 
@@ -76,8 +76,6 @@ They glanced at each other and shrugged. “Why not? We haven’t considered tha
 
 Which only leaves one lingering question in my mind: anyone up for a game?
 
-**Download the full game for free [here.](http://becomingtheboss.dk/)**
+**Download the full game for free [here.](https://becomingtheboss.dk/)**
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/Presentation-FB-JAN2021-Black.png)
-
- 

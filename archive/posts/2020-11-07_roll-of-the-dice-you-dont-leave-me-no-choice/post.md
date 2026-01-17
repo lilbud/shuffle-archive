@@ -1,6 +1,6 @@
 In the early winter days of 1971, a classified ad in the *Asbury Park Press* caught the eye and interest of nineteen-year-old Barbara Dinkins.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/dinkinsad-300x50.png)
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/dinkinsad.png)
 
 Barbara thought she and her friend Dee might fit the bill, so she replied to the ad and arranged for the band’s leader to meet them at the church where they sang gospel.
 
@@ -12,7 +12,7 @@ Barbara and Dee only lasted with The Bruce Springsteen Band for two brief months
 
 But oh, what a glorious summer that was! Surviving bootleg recordings from those shows reveal The Bruce Springsteen Band as an immensely talented combo, crossing rock, blues, soul, jazz, gospel, and even pop genres over the course of their shows. Bruce was at the height of his guitar prowess, David Sancious was already a wunderkind on the piano, and as for Barbara and Delores… well, they were much more than backing singers. (The photo below shows Holmes on the left, then Dinkins, then Bruce and Steve.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/dinkins-297x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/11/dinkins.jpg)
 
 Bruce was impressed enough by Barbara and Dee to give them star turns on lead vocals. For example, Dee sang lead on “[I’m in Love Again](https://estreetshuffle.com/index.php/2020/05/23/roll-of-the-dice-im-in-love-again/).” As for Barbara, not only did she sing lead on “You Don’t Leave Me No Choice,” she actually *wrote* the song along with Sancious (whose stamp is immediately obvious from the extended piano intro).
 
@@ -24,7 +24,7 @@ Suffice it to say that “You Don’t Leave Me No Choice” is a funky, wronged-
 
 But musically… holy moley! Like I wrote earlier, this is Bruce at his most *furious* on the guitar, certainly a candidate for one of his most impressive performances ever. Sancious is grand (his piano intro presages his future work on “New York City Serenade”) the horn section rules, Mad Dog is an animal, and when Steve Van Zandt joins Bruce toward the end of the song… it’s just insane. This is truly a must-listen.
 
-[https://www.youtube.com/watch?v=C_KgYea09Dc](https://www.youtube.com/watch?v=C_KgYea09Dc)
+[Watch on Youtube: Bruce Springsteen Band - You Don't Leave Me No Choice (1971)](https://www.youtube.com/watch?v=C_KgYea09Dc)
 
 After leaving Bruce’s band, Delores would become a fixture of the Jersey Shore music scene, and she would perform with Bruce on rare occasions as recently as 2008. She passed away two years later.
 
@@ -36,4 +36,4 @@ Never recorded**
 **First performed:** July 22, 1971 (South Amboy, NJ)  
 **Last performed:** July 29, 1971 (South Amboy, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

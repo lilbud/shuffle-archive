@@ -4,6 +4,6 @@ Their new cover of “[Across the Border](https://estreetshuffle.com/index.php/2
 
 And not that this has anything to do with the song, but does Johnny Mac bear an uncanny resemblance to The Boss himself, or what?
 
-[https://www.youtube.com/watch?v=Fpr3zOhSIRg](https://www.youtube.com/watch?v=Fpr3zOhSIRg)
+[Watch on Youtube: ACROSS THE BORDER | BRUCE SPRINGSTEEN COVER BY JOHNNY MAC AND THE FAITHFUL](https://www.youtube.com/watch?v=Fpr3zOhSIRg)
 
 For more great music from Johnny Mac and The Faithful, check out their YouTube page [here](https://www.youtube.com/channel/UCzXBDz_u1qiiGSje9CKOcfQ).

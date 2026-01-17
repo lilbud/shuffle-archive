@@ -2,7 +2,7 @@ What can we say in praise about the film *High School Confidential* other than: 
 
 Well, there’s the great title song by Jerry Lee Lewis, who lip-syncs to it over the opening credits of the film while playing piano on a moving flatbed truck cum mobile record store bearing his own name, surrounded by a flock of teenagers. Lewis disappears after the opening credits–that’s the kind of movie this is.
 
-[https://www.youtube.com/watch?v=Hqyd6koQr_I](https://www.youtube.com/watch?v=Hqyd6koQr_I)
+[Watch on Youtube: Jerry Lee Lewis - High School Confidential (Opening, 1958) - HD](https://www.youtube.com/watch?v=Hqyd6koQr_I)
 
 It’s a great song, even if its shared-with-the-film title doesn’t really fit.
 
@@ -14,7 +14,7 @@ Nevertheless, the record managed to find its way into the hands of over a millio
 
 Bruce Springsteen was one of those cover artists, first playing it with the E Street Band on the Darkness Tour in the summer of 1978.
 
-[https://www.youtube.com/watch?v=3zdiL_zBG20](https://www.youtube.com/watch?v=3zdiL_zBG20)
+[Watch on Youtube: Bruce Springsteen - HIGH SCHOOL CONFIDENTIAL 1978 (audio)](https://www.youtube.com/watch?v=3zdiL_zBG20)
 
 “High School Confidential” made several appearances throughout the summer and fall of 1978, but only a few cameos since. One of those cameos anchored one of the stranger show openers in Bruce’s career.
 
@@ -22,12 +22,10 @@ On Halloween eve in 1984, Bruce opened the show in an open coffin, playing the r
 
 Finally animated, Bruce opens the show with “High School Confidential.”
 
-[https://www.youtube.com/watch?v=OIdaQfthwT0](https://www.youtube.com/watch?v=OIdaQfthwT0)
+[Watch on Youtube: High school confidential (with snippet the good, the bad and the ugly)](https://www.youtube.com/watch?v=OIdaQfthwT0)
 
 It was an inspired choice by a rock star who was also a huge film buff. Because the right way to follow a campy opening shtick like that has to be with the title song from one of the campiest films ever.
 
 **High School Confidential  
 First performed:** August 14, 1978 (Hampton, VA)  
 **Last performed:** November 5, 2022 (Los Angeles, CA)
-
- 

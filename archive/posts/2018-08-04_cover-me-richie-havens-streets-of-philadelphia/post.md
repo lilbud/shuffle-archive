@@ -9,7 +9,3 @@ As the last song of a 60-track compilation, that decision could have turned out 
 Give a listen to Havens’ soulful, mournful, achingly beautiful take of Bruce’s “Streets of Philadelphia,” from the Rhino box set (and later, on the *One Step Up/Two Steps Back* tribute album). It’s as good or (dare I say it?) better than the original.
 
 https://www.youtube.com/watch?v=DmCyikb83yg
-
- 
-
- 

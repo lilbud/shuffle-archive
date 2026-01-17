@@ -2,15 +2,15 @@ We’re all friends here, so let’s just acknowledge a couple of things up fron
 
 First: the studio version of “Fire” is, at best, meh. This is a song that comes alive when Bruce performs it live but is rather limp on vinyl.
 
-[https://www.youtube.com/watch?v=jEKquOrJiAI](https://www.youtube.com/watch?v=jEKquOrJiAI)
+[Watch on Youtube: Fire](https://www.youtube.com/watch?v=jEKquOrJiAI)
 
 Bruce’s studio version features a 2010 vocal grafted onto a 1977 backing track that sounds like it was intended to be more of a rehearsal than a finished take. It almost certainly was–here’s the original studio outtake, from June 17, 1977, in which you’ll notice that several of the lyrics are bluffed (meaning Bruce mumbles or sings nonsense syllables where the lyrics are unfinished).
 
-[https://www.youtube.com/watch?v=__czrpiKRAM](https://www.youtube.com/watch?v=__czrpiKRAM)
+[Watch on Youtube: Bruce Springsteen Fire](https://www.youtube.com/watch?v=__czrpiKRAM)
 
 Bruce could have edited and interwoven new vocals to replace the unfinished lines (as he did with other tracks on *The Promise*), but instead he chose to re-record the vocal track from scratch.
 
-That was a wise choice–despite his ability to mimic his earlier singing styles, there’s no mistaking Bruce’s 2010 voice for his 1977 one. (Compare the outtake above with the official version at the top of the article and hear for yourself.) “[The Brokenhearted,](http://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)” for example, would have been a stronger track had Bruce taken the full vocal replacement approach rather than a surgical one.
+That was a wise choice–despite his ability to mimic his earlier singing styles, there’s no mistaking Bruce’s 2010 voice for his 1977 one. (Compare the outtake above with the official version at the top of the article and hear for yourself.) “[The Brokenhearted,](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)” for example, would have been a stronger track had Bruce taken the full vocal replacement approach rather than a surgical one.
 
 In any event, the original track runs for more than five minutes, and even edited for release on *The Promise*, the official version meanders for more than four minutes.
 
@@ -24,7 +24,7 @@ A holdover from Bruce’s less enlightened “little girl” days (an oft-repeat
 
 Still, there’s no denying its crowd-pleasing Fire-power, thanks largely to its instantly recognizable bass line and the simmering sexual frustration that Bruce channels for his live performances of the song.
 
-[https://www.youtube.com/watch?v=MVFJ2QUJhUE](https://www.youtube.com/watch?v=MVFJ2QUJhUE)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Fire (Live in Houston, 1978)](https://www.youtube.com/watch?v=MVFJ2QUJhUE)
 
 In fact, if not for Bruce’s live performances of it from the late 1970s through mid-1980s, fans likely would have considered “Fire” forgettable despite The Pointer Sisters’ chart success with it.
 
@@ -34,11 +34,11 @@ In the summer of 1977, Bruce decided he’d write a song for Elvis–literally. 
 
 Whether by forethought or afterthought however, Bruce reportedly sent his demo to Elvis for consideration. We don’t know exactly when that would have been, but since we know the outtake above was recorded in mid-June of ’77, it’s likely that if Elvis ever received it, it wasn’t before early July, at which point he had only weeks to live.
 
-With Elvis unable to record it and Bruce disinterested in including it on *Darkness on the Edge of Town*, Bruce gave the song to [Robert Gordon, who recorded it with Link Wray](http://estreetshuffle.com/index.php/2018/01/31/cover-me-robert-gordon-and-link-wray-fire/) and released it in 1978. Gordon’s cover got some airplay but never cracked the Top 100.
+With Elvis unable to record it and Bruce disinterested in including it on *Darkness on the Edge of Town*, Bruce gave the song to [Robert Gordon, who recorded it with Link Wray](https://estreetshuffle.com/index.php/2018/01/31/cover-me-robert-gordon-and-link-wray-fire/) and released it in 1978. Gordon’s cover got some airplay but never cracked the Top 100.
 
 The next year, however, The Pointer Sisters took a crack at it and took “Fire” all the way to #2.
 
-[https://www.youtube.com/watch?v=K9S5EZgIJck](https://www.youtube.com/watch?v=K9S5EZgIJck)
+[Watch on Youtube: Pointer Sisters - Fire](https://www.youtube.com/watch?v=K9S5EZgIJck)
 
 All the while, Bruce made “Fire” a staple of his set lists–if he was reluctant to release it on vinyl, he had no hesitation about performing it live, and very quickly it became a fan favorite.
 
@@ -84,17 +84,17 @@ The secret to Bruce’s live performances of “Fire” is…
 
 In his Darkness Tour performances (see the clip above for an example), we can see and hear Bruce subtly arriving at that realization as his on-stage hamming evolved night by night. By the time he toured next, for *The River* in 1980, Bruce was milking the tease to comic and choreographed extremes, with his foil by his side.
 
-[https://www.youtube.com/watch?v=NtK-Jam_V68](https://www.youtube.com/watch?v=NtK-Jam_V68)
+[Watch on Youtube: Bruce Springsteen - Fire (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=NtK-Jam_V68)
 
 Nearly 30 years later, Bruce and Clarence were still serving up the same shtick. And why not? As this Philadelphia crowd’s reaction proves, it never got old.
 
-[https://www.youtube.com/watch?v=0kTnyP33fbM](https://www.youtube.com/watch?v=0kTnyP33fbM)
+[Watch on Youtube: Bruce Springsteen - Fire - Live from Philadelphia - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=0kTnyP33fbM)
 
 Even when forced to play his own straight man in a restrained 1986 acoustic version with Nils and Danny, Bruce got the point of the song across with a masterfully metaphorical microphone maneuver that still cracks me up every time I watch it.
 
-[https://www.youtube.com/watch?v=d5PoIrcyd34](https://www.youtube.com/watch?v=d5PoIrcyd34)
+[Watch on Youtube: Bruce Springsteen - Fire (rare)](https://www.youtube.com/watch?v=d5PoIrcyd34)
 
-On rare occasions, though, Bruce lets the song’s content rise to the surface. At the very last show of the Devils & Dust Tour, Bruce played “Fire” in an unusual arrangement–solo harmonica and bullet mic–normally reserved for more serious subject matter like “[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)” and “[Johnny 99](http://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/).”
+On rare occasions, though, Bruce lets the song’s content rise to the surface. At the very last show of the Devils & Dust Tour, Bruce played “Fire” in an unusual arrangement–solo harmonica and bullet mic–normally reserved for more serious subject matter like “[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)” and “[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/).”
 
 In this Nebraska-esque arrangement, “Fire” comes across more sinister than silly, and the result is more than a little chilling.
 
@@ -112,4 +112,4 @@ Recorded:** 1977 and 2010
 **First performed:** May 23, 1978 (Buffalo, NY)  
 **Last performed:** September 4, 2021 (New York City, NY)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -10,7 +10,7 @@ But it’s also haunted.
 
 So is its singer, from the very first line: *I hear the sound of your guitar coming in from the mystic far.*
 
-[https://www.youtube.com/watch?v=wIus3pSADi8](https://www.youtube.com/watch?v=wIus3pSADi8)
+[Watch on Youtube: Bruce Springsteen - Ghosts](https://www.youtube.com/watch?v=wIus3pSADi8)
 
 “Ghosts is about the beauty and joy of being in a band,” explained Springsteen when the single first dropped. But he also added, “and the pain of losing one another to illness and time.”
 
@@ -98,7 +98,7 @@ The E Street Band hushes here, so that Bruce might have his final moments of com
 
 This is where past becomes present. Bruce is deliberately vague in his reference to “those who’ve come before.” It refers to both the musical influences of a high-school guitarist and the fallen comrades of a septuagenarian rock star, allowing the singer a moment of temporal confluence before the final chorus and “la la” coda, in which the entire E Street Band join him, playing the roles of ghosts themselves.
 
-[https://www.youtube.com/watch?v=Lo5QNcFioZ4](https://www.youtube.com/watch?v=Lo5QNcFioZ4)
+[Watch on Youtube: Bruce Springsteen - Ghosts (Lyric Video)](https://www.youtube.com/watch?v=Lo5QNcFioZ4)
 
 Let’s talk about the band for a moment.
 
@@ -112,7 +112,7 @@ For years, Bruce would tell interviewers he played for each audience in the beli
 
 I’ve seen ten shows–so far–on this tour, each one unique, indelible and impossible to fully capture on YouTube or streaming audio, and certainly not on social media setlist discussion threads.
 
-[https://www.youtube.com/watch?v=_tYVcAh128o](https://www.youtube.com/watch?v=_tYVcAh128o)
+[Watch on Youtube: Ghosts - Bruce Springsteen (1-02-2023 Amalie Arena, Tampa, Florida)(Audio Oficial)](https://www.youtube.com/watch?v=_tYVcAh128o)
 
 To criticize a static setlist or hold up a sign for an obscure favorite is to miss the beauty of a living forest because we’re searching for our favorite tree.
 

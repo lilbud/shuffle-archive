@@ -6,21 +6,21 @@ The hand jive was an actual dance, though, originating at a tiny U.K. music venu
 
 When Johnny Otis learned of it, he decided to write a song about it. Set to an irresistible Bo Diddley beat, “Willie and the Hand Jive” became Otis’ only Top Ten hit in the U.S. And if it hadn’t been banned by many radio stations for it’s allegedly off-color lyrics, it might have notched even higher.
 
-[https://www.youtube.com/watch?v=QvOuTInrue0](https://www.youtube.com/watch?v=QvOuTInrue0)
+[Watch on Youtube: Johnny Otis - Willie And The Hand Jive (1958)](https://www.youtube.com/watch?v=QvOuTInrue0)
 
 It’s been covered by countless artists in the years since, including charting versions by Eric Clapton and George Thorogood.
 
-[https://www.youtube.com/watch?v=oRTvQd-CHbg](https://www.youtube.com/watch?v=oRTvQd-CHbg)
+[Watch on Youtube: Eric Clapton - Willie And The Hand Jive](https://www.youtube.com/watch?v=oRTvQd-CHbg)
 
-[https://www.youtube.com/watch?v=AuNOkGnEme8](https://www.youtube.com/watch?v=AuNOkGnEme8)
+[Watch on Youtube: George Thorogood - Willie And The Hand Jive.mpg](https://www.youtube.com/watch?v=AuNOkGnEme8)
 
 And of course, for children of the seventies, there’s the unforgettable adaptation by Sha Na Na in *Grease*.
 
-[https://www.youtube.com/watch?v=fY5pmzmiDO8](https://www.youtube.com/watch?v=fY5pmzmiDO8)
+[Watch on Youtube: Sha Na Na - Born To Hand Jive](https://www.youtube.com/watch?v=fY5pmzmiDO8)
 
 “Willie and The Hand Jive” was born for bar bands–you can jam to it, vamp, and stretch it like Silly Putty. So sooner or later, Bruce was bound to cover it, and that day finally came on a summer evening in 1989 when he joined Bobby Bandiera on stage at Cheers in Long Branch.
 
-[https://www.youtube.com/watch?v=V0bdSzmU4jI](https://www.youtube.com/watch?v=V0bdSzmU4jI)
+[Watch on Youtube: Willy and the hand jive (Johnny Otis cover )](https://www.youtube.com/watch?v=V0bdSzmU4jI)
 
 Bruce and Bobby stretched Otis’ two-and-a-half minute original to a full nine minutes that night, and even as distant as the recording is, we can feel the summer heat of their performance.
 
@@ -31,5 +31,3 @@ To this day, that remains the only time Bruce is known to have covered “Willie
 **Willie and the Hand Jive  
 First performed:** August 2, 1989 (Long Branch, NJ)  
 **Last performed:** August 2, 1989 (Long Branch, NJ)
-
- 

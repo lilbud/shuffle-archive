@@ -23,9 +23,9 @@ By way of introduction, he said simply: “It’s some return to some semblance 
 
 And then he played his new song, entitled at the time “Gonna Be a Long Walk Home.” To this day, there’s never been a better performance.
 
-[https://www.youtube.com/watch?v=2eoJSvYLgMM](https://www.youtube.com/watch?v=2eoJSvYLgMM)
+[Watch on Youtube: Bruce Springsteen - Long Walk Home](https://www.youtube.com/watch?v=2eoJSvYLgMM)
 
-[https://www.youtube.com/watch?v=NF346GjlhSo](https://www.youtube.com/watch?v=NF346GjlhSo)
+[Watch on Youtube: Bruce Springsteen "Long Walk Home" London, UK Nov. 11, 2006](https://www.youtube.com/watch?v=NF346GjlhSo)
 
 There are a few–and thankfully *only* a few–songs in Bruce’s catalog that don’t deserve to be judged on the basis of their studio recording.
 
@@ -35,7 +35,7 @@ I’m talking about the songs that are just terrible on album compared to their 
 
 “Long Walk Home” is a close second, and a bigger crime–because it’s one of the most potent, poignant, and powerful songs Bruce has ever written. In its officially released version from *Magic,* however, “Long Walk Home” comes across as assaultingly harsh, especially after the E Street Band enters in force after the first verse. The song suffers from the overproduction that plagues most of the album. Take a listen below and see what I mean.
 
-[https://www.youtube.com/watch?v=iywFZqtPlhU](https://www.youtube.com/watch?v=iywFZqtPlhU)
+[Watch on Youtube: Bruce Springsteen - Long Walk Home (Official Video)](https://www.youtube.com/watch?v=iywFZqtPlhU)
 
 I remember popping my copy of *Magic* in my CD player on release day and skipping straight to the track I was most excited to hear. I wasn’t lucky enough to be at that London show the year before, but I’d heard the bootleg and fallen immediately in love with “Long Walk Home.” I couldn’t wait to hear what the studio version would sound like.
 
@@ -81,7 +81,7 @@ This verse (if not the song itself) was inspired by The Stanley Brothers song, �
 *They knew not my name and I knew not their faces*  
 *I found they were all rank strangers to me, rank strangers to me*
 
-[https://www.youtube.com/watch?v=I16YOPmmZbs](https://www.youtube.com/watch?v=I16YOPmmZbs)
+[Watch on Youtube: Stanley Brothers, The Rank Stranger](https://www.youtube.com/watch?v=I16YOPmmZbs)
 
 As our narrator continues his trek, he notices that even the places that formed the heart of the town’s civic life are abandoned now. We get no indication of exactly when and why that happened, and we sense that he doesn’t either.
 
@@ -123,15 +123,15 @@ But I’ll always maintain that the last couplet–“when the party’s over, w
 
 For most fans, our introduction to Bruce’s live rock arrangement of “Long Walk Home” came before the Magic Tour even kicked off. Bruce and the E Street Band performed it at a televised, free, early-morning concert for the *Today* show in New York City’s Rockefeller Plaza.
 
-[https://www.youtube.com/watch?v=qG0hadU_mj4](https://www.youtube.com/watch?v=qG0hadU_mj4)
+[Watch on Youtube: Long Walk Home - Bruce Springsteen (live at Rockefeller Center, New York City 2007)](https://www.youtube.com/watch?v=qG0hadU_mj4)
 
 Like many of Bruce’s best live songs, “Long Walk Home” grew in scope and power over the course of the tour. Fans quickly sensed and responded to the singalong opportunity before the coda, and by the end of the first American leg, so did Steve, who assumed the lead vocal for that part and traded off with Bruce for the coda.
 
-[https://www.youtube.com/watch?v=dL1EEGEZruU](https://www.youtube.com/watch?v=dL1EEGEZruU)
+[Watch on Youtube: Bruce Springsteen Long Walk Home Nov 19 2007 Boston](https://www.youtube.com/watch?v=dL1EEGEZruU)
 
 A nightly mainstay on the Magic Tour, “Long Walk Home” outings have been relatively scarce over the eight years that followed. Late in the last tour, however, it made an impromptu comeback at a 9/11 anniversary-themed show–this time in an impromptu solo acoustic arrangement sparked by a creative fan request.
 
-[https://www.youtube.com/watch?v=XaB9svKLpQg](https://www.youtube.com/watch?v=XaB9svKLpQg)
+[Watch on Youtube: Bruce Springsteen - Long Walk Home(solo acoustic) - Pittsburgh - 9/11/16](https://www.youtube.com/watch?v=XaB9svKLpQg)
 
 Bruce played it acoustic that night because the band hadn’t played it or prepared for it. But unsurprisingly, the arrangement turned out to be an extraordinarily powerful delivery vehicle for Bruce’s message.
 
@@ -139,7 +139,7 @@ He’s played it that way ever since–at pre-election rallies for Secretary Cli
 
 Unfortunately, by the time Bruce recorded and filmed his Broadway show for official release, “Long Walk Home” had been dropped from the set. But if you weren’t lucky enough to catch it live during its run, I’ll leave you with it now. Enjoy.
 
-[https://videopress.com/embed/nKNDHlSR](https://videopress.com/embed/nKNDHlSR)
+[Watch Video Highlight](https://videopress.com/embed/nKNDHlSR)
 
 **Long Walk Home  
 Recorded:** March-April 2007  
@@ -147,4 +147,4 @@ Recorded:** March-April 2007
 **First performed:** November 11, 2006 (London, England)  
 **Last performed:** November 18, 2020 (Colts Neck, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

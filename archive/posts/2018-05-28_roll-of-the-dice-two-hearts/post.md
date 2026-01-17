@@ -2,7 +2,7 @@ Let’s establish up front: the definitive version of “Two Hearts” can’t b
 
 Here, at his old high school, in front of a crowd of Freehold locals, accompanied by Soozie on violin and supporting vocals from both Soozie and Patti, “Two Hearts” gets its first public concert outing in over a decade (other than a couple of one-offs at promotional events for *Greatest Hits*), rearranged and reinvented with the wisdom of age and the tenderness of compassion that is missing in the original recording:
 
-[https://www.youtube.com/watch?v=rWD8d5Q1FfY](https://www.youtube.com/watch?v=rWD8d5Q1FfY)
+[Watch on Youtube: 10. Two Hearts (Bruce Springsteen - Live In Freehold 11-8-1996)](https://www.youtube.com/watch?v=rWD8d5Q1FfY)
 
 That, right there, is one of my very favorite performances of any Bruce song ever.
 
@@ -65,13 +65,13 @@ At first, that might seem like a simple mistake on a song that she hadn’t sung
 
 What amazes me about “Two Hearts” isn’t just how carefully the lyrics are constructed, but how tight and concise they are. This is a short song, even shorter in its original rock arrangement on *The River.*
 
-[https://www.youtube.com/watch?v=BaTNvGQ6tKA](https://www.youtube.com/watch?v=BaTNvGQ6tKA)
+[Watch on Youtube: Two Hearts](https://www.youtube.com/watch?v=BaTNvGQ6tKA)
 
 On the album, the song absolutely barrels along for a taut 2:40. It’s a race from Max’s opening gunfire until he brings it to a crashing thud of a halt. But early outtakes reveal that it was originally longer, and that Bruce spent his time paring and pruning rather than expanding the song.
 
 Here’s an early outtake with a mid-song guitar solo (and some additional lyrics) that sound jarring to our ears now:
 
-[https://www.youtube.com/watch?v=fG0eEq3Hm1g](https://www.youtube.com/watch?v=fG0eEq3Hm1g)
+[Watch on Youtube: Bruce Springsteen Two Hearts #6 new verse & guitar solo](https://www.youtube.com/watch?v=fG0eEq3Hm1g)
 
 Bruce eventually tightened “Two Hearts” by removing all of its ornamentation–there’s not a spare note or word to be found in the final version.
 
@@ -79,15 +79,15 @@ In concert, “Two Hearts” was a staple throughout the River Tour, and it made
 
 Here is the song’s triumphant return in 1995, one of my favorite Bruce and Steve moments:
 
-[https://www.youtube.com/watch?v=DM_LeWYICYI](https://www.youtube.com/watch?v=DM_LeWYICYI)
+[Watch on Youtube: BRUCE SPRINGSTEEN and The E-Street Band - Two hearts - 1995](https://www.youtube.com/watch?v=DM_LeWYICYI)
 
 …along with a rare and beautiful acoustic Bruce/Stevie duet from Hollwood, FL, in 2005:
 
-[https://www.youtube.com/watch?v=VC0cEfadmGo](https://www.youtube.com/watch?v=VC0cEfadmGo)
+[Watch on Youtube: Bruce Springsteen with Steven van Zandt - TWO HEARTS 2005 live](https://www.youtube.com/watch?v=VC0cEfadmGo)
 
-One more–this one solo, but remarkable for how heartfelt it is, and for how you can see the song play out in Bruce’s facial expressions as Thom Zimny steals a trick from the [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/) video by slowly zooming in on Bruce as he sings.
+One more–this one solo, but remarkable for how heartfelt it is, and for how you can see the song play out in Bruce’s facial expressions as Thom Zimny steals a trick from the [Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/) video by slowly zooming in on Bruce as he sings.
 
-[https://www.youtube.com/watch?v=CsGLF8hHtT0](https://www.youtube.com/watch?v=CsGLF8hHtT0)
+[Watch on Youtube: Bruce Springsteen - Two Hearts](https://www.youtube.com/watch?v=CsGLF8hHtT0)
 
 **Two Hearts  
 Recorded:** 1980  
@@ -95,4 +95,4 @@ Recorded:** 1980
 **First performed:** October 6, 1980 (Richfield, OH)  
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

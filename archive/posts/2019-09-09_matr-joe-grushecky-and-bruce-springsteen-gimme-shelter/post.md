@@ -6,11 +6,11 @@ In the autumn of 1995, Bruce became an honorary (and temporary) Houserocker, joi
 
 When the band played their final of three shows at Nick’s Fat City in Pittsburgh on the evening of October 21st, “Gimme Shelter” was a setlist bonus. Fortunately, the performance was captured for posterity and issued on the CD single for Joe’s “[Labor of Love](https://estreetshuffle.com/index.php/2022/05/08/matr-joe-grushecky-and-bruce-springsteen-labor-of-love/).” While you can clearly here Bruce on backing vocals and guitar throughout, it’s a performance worth listening to even if Bruce hadn’t been there. The Houserockers more than do justice to the original.
 
-[https://www.youtube.com/watch?v=5WmQuWwpyf8](https://www.youtube.com/watch?v=5WmQuWwpyf8)
+[Watch on Youtube: Gimme shelter - Joe Grushecky with Bruce Springsteen](https://www.youtube.com/watch?v=5WmQuWwpyf8)
 
 As for that 1969 original, not only did *Rolling Stone* cite it as the best output from the band, they ranked it near the very top–#36–in their 500 Greatest Songs of All Time list.
 
-[https://www.youtube.com/watch?v=RbmS3tQJ7Os](https://www.youtube.com/watch?v=RbmS3tQJ7Os)
+[Watch on Youtube: The Rolling Stones - Gimme Shelter (Official Lyric Video)](https://www.youtube.com/watch?v=RbmS3tQJ7Os)
 
 One last Bruce connection of note: the Stones’ version of “Gimme Shelter” wouldn’t have been the same without the vocal contributions of Merry Clayton, whose vocals build with such power that even Mick Jagger can be heard exclaiming “Woo!” in response late in the song.
 

@@ -6,7 +6,7 @@ It’s hard to fault the decision. As fascinating as “Arabian Nights” is, it
 
 But it came *so* close… so close, in fact, that there are not one but three terrific-sounding recordings of Bruce performing this lost outtake. The last one is the best, so let’s start there–take a listen to this stunner from the earliest *Greetings* recording session in June 1972.
 
-[https://www.youtube.com/watch?v=YDtMbVrfpeA](https://www.youtube.com/watch?v=YDtMbVrfpeA)
+[Watch on Youtube: BRUCE SPRINGSTEEN - arabian night](https://www.youtube.com/watch?v=YDtMbVrfpeA)
 
 Bruce recorded four songs on that first day of recording, of which only one would make the album. That’s probably a good thing, too. Like the other two lost outtakes (“[Street Queen](https://estreetshuffle.com/index.php/2019/06/19/roll-of-the-dice-street-queen/)” and “[Lady and the Doctor](https://estreetshuffle.com/index.php/2020/09/08/roll-of-the-dice-lady-and-the-doctor/)“), “Arabian Nights” is sexually graphic at times. (Let’s give the guy a break–he was only 22 when he recorded them.)
 
@@ -72,7 +72,7 @@ In the end, it’s easy to see why “Arabian Nights” was voted off the island
 
 **Bonus #1:** I mentioned earlier that there are three circulating recordings of “Arabian Nights.” We heard the official studio recording above, but there are two earlier ones with slightly different lyrics. Here’s the earliest recording of “Arabian Nights,” recorded at Mike Appel’s office on Valentine’s Day, 1972.
 
-[https://videopress.com/embed/ClhigOsj](https://videopress.com/embed/ClhigOsj)
+[Watch Video Highlight](https://videopress.com/embed/ClhigOsj)
 
 This recording doesn’t have the exchange between the narrator and his father; instead, we hear this equally mysterious passage:
 
@@ -83,9 +83,9 @@ This recording doesn’t have the exchange between the narrator and his father; 
 
 **Bonus #2:** These are Bruce’s early handwritten lyrics for “Arabian Nights,” and if you read carefully, you’ll see several places where the lyrics differ from even that early version above.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/39291198220_af0a8f7ba4_o-188x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/39291198220_af0a8f7ba4_o.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/41100241581_a1f45c13c5_o-300x240.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/01/41100241581_a1f45c13c5_o.jpg)
 
 **Arabian Nights  
 Recorded:** April-June 1972  

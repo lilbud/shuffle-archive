@@ -2,7 +2,7 @@
 
 In 1995, Tim Robbins adapted the book into a film, sparking renewed debate about the legitimacy of the death penalty and garnering critical acclaim. Robbins personally asked Bruce to write a song for the film. Bruce watched the film and then delivered a quiet, introspective reflection from the point of view of the murderer. It plays over the film’s end credits.
 
-[https://www.youtube.com/watch?v=O5RnDJ1pyCM](https://www.youtube.com/watch?v=O5RnDJ1pyCM)
+[Watch on Youtube: Bruce Springsteen - Dead Man Walkin'](https://www.youtube.com/watch?v=O5RnDJ1pyCM)
 
 The melody is low, slow, and dark; the lyrics are terse and sparse. The metaphors hit with added weight, in stark contrast to the prisoner’s bare surroundings.
 
@@ -27,7 +27,7 @@ Like many of Bruce’s great songs, the bridges in “Dead Man Walkin” are hom
 *Once I had a job, I had a girl…*  
 *Between our dreams and actions lies this world*
 
-The job/girl line is a callback to the loser in “[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/),” and the dream/actions line is an absolutely brilliant reduction of pretty much that entire song from *Born in the U.S.A.–*so much so that one can’t help but wonder if we’re listening to the same character, further down a very dark and lonely road.
+The job/girl line is a callback to the loser in “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/),” and the dream/actions line is an absolutely brilliant reduction of pretty much that entire song from *Born in the U.S.A.–*so much so that one can’t help but wonder if we’re listening to the same character, further down a very dark and lonely road.
 
 *In the deep forest*  
 *Their blood and tears rushed over me*  
@@ -51,13 +51,13 @@ Time passes now, and the onset of dawn represents an ending rather than a beginn
 
 “Dead Man Walkin” was nominated for the Best Song Academy Award for 1995, and he performed the song at the award ceremonies.
 
-[https://www.youtube.com/watch?v=TxF8mlR2fmk](https://www.youtube.com/watch?v=TxF8mlR2fmk)
+[Watch on Youtube: Bruce Springsteen - Dead Man Walking](https://www.youtube.com/watch?v=TxF8mlR2fmk)
 
 Although it lost to “Colors of the Wind” from *Pocahontas* (don’t get me started), “Dead Man Walkin'” garnered critical acclaim and airplay when it was released on the film’s soundtrack in 1996. (In 2003, Bruce would release it as a bonus track on *The Essential Bruce Springsteen*.)
 
 The film debuted in December 1995, and Bruce was already in the middle of his solo acoustic tour supporting [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/). Bruce played “Dead Man Walkin” sporadically throughout the first six months of the tour, resurrecting it late in the Reunion Tour for a handful of performances. You can hear the rare, restrained, full-band arrangement here.
 
-[https://videopress.com/embed/0yw1bB0y](https://videopress.com/embed/0yw1bB0y)
+[Watch Video Highlight](https://videopress.com/embed/0yw1bB0y)
 
 **Dead Man Walkin’**  
 **Recorded:** April-May 1995  
@@ -65,4 +65,4 @@ The film debuted in December 1995, and Bruce was already in the middle of his so
 **First performed:** November 21, 1995 (New Brunswick, NJ)  
 **Last performed:** June 23, 2000 (New York City, NY)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

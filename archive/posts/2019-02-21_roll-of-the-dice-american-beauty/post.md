@@ -1,24 +1,24 @@
 What are we to make of “American Beauty?”
 
-[https://www.youtube.com/watch?v=4lYz9yibNuA](https://www.youtube.com/watch?v=4lYz9yibNuA)
+[Watch on Youtube: American Beauty](https://www.youtube.com/watch?v=4lYz9yibNuA)
 
-On one hand, it appears to be a musical melange, with a melody lifted from “[Frankie Fell in Love](http://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)…”
+On one hand, it appears to be a musical melange, with a melody lifted from “[Frankie Fell in Love](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)…”
 
-[https://www.youtube.com/watch?v=u1bqwTMW55Q](https://www.youtube.com/watch?v=u1bqwTMW55Q)
+[Watch on Youtube: Frankie Fell in Love](https://www.youtube.com/watch?v=u1bqwTMW55Q)
 
-…layered on the backing track for “[My Lucky Day](http://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)…”
+…layered on the backing track for “[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)…”
 
-[https://www.youtube.com/watch?v=M9Y7VXtVLeU](https://www.youtube.com/watch?v=M9Y7VXtVLeU)
+[Watch on Youtube: My Lucky Day](https://www.youtube.com/watch?v=M9Y7VXtVLeU)
 
 …with lyrics lifted liberally from “[Down in the Hole](https://estreetshuffle.com/index.php/2022/07/01/roll-of-the-dice-down-in-the-hole/).”
 
-[https://www.youtube.com/watch?v=eAS1zdocVwI](https://www.youtube.com/watch?v=eAS1zdocVwI)
+[Watch on Youtube: Down in the Hole](https://www.youtube.com/watch?v=eAS1zdocVwI)
 
 Even its imagery is drawn from Bruce’s recent musical past: the clicking boot heels from “Livin’ in the Future” make an appearance here, and its album-mate “[Gypsy Biker](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)” contributes a recurring “white line” motif.
 
-And then there’s the video for “American Beauty,” a live E Street Band performance filmed in an empty arena before Bruce’s [2014 concert in Charlotte](http://estreetshuffle.com/index.php/2018/04/19/where-the-band-was-charlotte-april-19-2014/) but inexplicably dubbed with the studio recording featuring different musicians. (No live performance audio has ever surfaced.)
+And then there’s the video for “American Beauty,” a live E Street Band performance filmed in an empty arena before Bruce’s [2014 concert in Charlotte](https://estreetshuffle.com/index.php/2018/04/19/where-the-band-was-charlotte-april-19-2014/) but inexplicably dubbed with the studio recording featuring different musicians. (No live performance audio has ever surfaced.)
 
-[https://www.youtube.com/watch?v=JYMc4FkSObM](https://www.youtube.com/watch?v=JYMc4FkSObM)
+[Watch on Youtube: American Beauty](https://www.youtube.com/watch?v=JYMc4FkSObM)
 
 All this for a song released on an EP grab-bag of *High Hopes* outtakes, issued only on a limited vinyl pressing of 7,500 and digitally. If you want to buy it today, you’ll have to choose between paying collector’s prices for the vinyl or accepting the inferior sonics of the mp3 format.
 
@@ -81,4 +81,4 @@ So come on, Bruce: Bring “American Beauty” to the stage on your next tour. Y
 **First performed:** April 19, 2014 (soundcheck only)  
 **Last performed:** April 19, 2014 (soundcheck only)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

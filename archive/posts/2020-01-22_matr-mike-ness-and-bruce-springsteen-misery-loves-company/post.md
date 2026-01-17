@@ -6,7 +6,7 @@ Today, Bruce and Mike are friends and influence each other, and they’ve each g
 
 When Ness recorded his first solo album, *Cheating at Solitaire*, in 1999, Bruce was one of several musicians Mike asked to join him on record. The result: A raging rocker called “Misery Loves Company,” featuring Bruce prominently on vocals and guitar.
 
-[https://www.youtube.com/watch?v=cI5uK1BHuSM](https://www.youtube.com/watch?v=cI5uK1BHuSM)
+[Watch on Youtube: Mike Ness - Misery Loves Company](https://www.youtube.com/watch?v=cI5uK1BHuSM)
 
 As for why Bruce took to this particular song… well, looking at the lyrics, it’s not hard to see the resonance:
 
@@ -22,7 +22,7 @@ In May of 2008–almost a decade after the song’s release–Ness played a show
 
 Thankfully, that last performance (At Sea. Hear. Now. in September 2018) not only was captured, it’s easy to find in several great video versions, including this one.
 
-[https://www.youtube.com/watch?v=loIfsQ8RmAc](https://www.youtube.com/watch?v=loIfsQ8RmAc)
+[Watch on Youtube: Misery Loves Company - Social Distortion with Bruce Springsteen - Sea Hear Now](https://www.youtube.com/watch?v=loIfsQ8RmAc)
 
 **Misery Loves Company  
 Recorded:** December 29, 1998  

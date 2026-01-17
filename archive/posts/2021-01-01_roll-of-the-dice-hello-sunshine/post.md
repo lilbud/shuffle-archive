@@ -1,6 +1,6 @@
 Around a minute and 45 seconds into “Hello Sunshine,” we’re treated to something I don’t think we’ve ever heard before: thirty seconds of Bruce Springsteen *humming* an entire verse.
 
-[https://www.youtube.com/watch?v=icJjlg5e6l8](https://www.youtube.com/watch?v=icJjlg5e6l8)
+[Watch on Youtube: Bruce Springsteen - Hello Sunshine (Official Lyric Video)](https://www.youtube.com/watch?v=icJjlg5e6l8)
 
 Those thirty wordless seconds–that’s the sound of pure contentment.
 
@@ -18,7 +18,7 @@ But it’s more than that, I think–much more. To my ears, “Hello Sunshine”
 
 Let’s take another listen.
 
-[https://www.youtube.com/watch?v=_EpVH8TeG8E](https://www.youtube.com/watch?v=_EpVH8TeG8E)
+[Watch on Youtube: Hello Sunshine](https://www.youtube.com/watch?v=_EpVH8TeG8E)
 
 Rarely does Bruce employ music as a narrative device so effectively as he does in “Hello Sunshine.”
 
@@ -89,7 +89,7 @@ On this first day of a new year, may you feel that same hope and possibility–a
 
 **Bonus:** Like much of *Western Stars*, “Hello Sunshine” is so carefully and masterfully crafted that I’m skeptical that it can be surpassed (or even equaled) when performed live. Bruce’s only performance to date (from the filmed *Western Stars* concert) certainly doesn’t measure up to the studio version, but it’s a lovely attempt. I include it here for comparison.
 
-[https://www.youtube.com/watch?v=ItacaaT6Nsk](https://www.youtube.com/watch?v=ItacaaT6Nsk)
+[Watch on Youtube: Hello Sunshine - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=ItacaaT6Nsk)
 
 **Hello Sunshine  
 Recorded:** 2010, 2019  

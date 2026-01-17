@@ -4,7 +4,7 @@ Unlike *Dedication* and *On the Line,* which bore Bruce’s imprint all over, Br
 
 What a track it is, though. It may not be Springsteen-penned (songwriting credit goes to Bonds and Laurie Anderson), but “Can’t Teach an Old Dog New Tricks” rockets out of the gate on the power of Bruce’s guitar and Southside Johnny’s harmonica.
 
-[https://www.youtube.com/watch?v=XQHthl1IlIg](https://www.youtube.com/watch?v=XQHthl1IlIg)
+[Watch on Youtube: Old dog.mpg](https://www.youtube.com/watch?v=XQHthl1IlIg)
 
 Bruce’s backing vocals, wails, and call-and-response are prominent throughout as well, right up to his affectionate “Come on, Bondsie!” during the coda.
 

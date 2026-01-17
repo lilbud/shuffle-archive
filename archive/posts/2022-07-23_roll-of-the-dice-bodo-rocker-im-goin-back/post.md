@@ -4,7 +4,7 @@ You still won’t be able to make out much of the lyrics, but who cares? When yo
 
 It’s about the beat.
 
-[https://www.youtube.com/watch?v=Z2K_UUntwtM](https://www.youtube.com/watch?v=Z2K_UUntwtM)
+[Watch on Youtube: Bruce Springsteen - I'm Goin' Back aka Bo Diddley Rocker - Unreleased Outtake](https://www.youtube.com/watch?v=Z2K_UUntwtM)
 
 Bootleggers called it “I’m Goin’ Back” since it’s the obvious chorus, but “BoDo Rocker” (as it’s called in the studio session logs) is a more apt title. This five-and-a-half-minute rave-up is even more of an homage to Bo Diddley than Bruce’s previous two tributes, “[Preacher’s Daughter](https://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)” and “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/).”
 

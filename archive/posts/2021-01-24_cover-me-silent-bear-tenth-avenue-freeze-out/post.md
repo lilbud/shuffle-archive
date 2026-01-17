@@ -14,7 +14,9 @@ Silent Bear combined that passion and his improvisational talent at The Mountain
 
 The Mountain Sun was known for playing host to jam bands, so Silent Bear embraced the vibe and and mesmerized with his funky, improvisational thirteen-minute cover. About seven minutes in, though, something remarkable happens. Trust me: take thirteen minutes for a deep listen.
 
-[https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F473723064&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F473723064&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
+[Tenth Avenue Freeze Out by Silent Bear](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F473723064&show_artwork=true&maxheight=1000&maxwidth=758)
+
+
 
 (Photo credit: Josh Elioseff — Dancer Productions)
 

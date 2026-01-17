@@ -4,7 +4,7 @@ I consider myself to be pretty decent at interpreting Bruce’s songs, but I hav
 
 Bruce’s lyrics appear to be complete, along with chord notations, on a surviving hand-written lyrics sheet. (There only seems to be three short verses, but Bruce’s Steel Mill material was often short on lyrics to make room for the band’s epic-length mid-song jams.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/fireengines-240x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/fireengines.jpg)
 
 As for what’s the song about, you tell me. Please.
 
@@ -33,4 +33,4 @@ Beats the heck out of me. Anyone care to enlighten?
 Never recorded**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

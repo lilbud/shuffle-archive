@@ -73,3 +73,6 @@
 
 # 2026-01-14
 - Added original version of post 15454, which was a Year Two Update post from early 2020. This was replaced with an intro to the KoD January book.
+
+# 2026-01-15
+- All posts in `archive/` have gotten a first cleanup pass. See `fixes.md` for an incomplete list of fixes applied. These fixes are largely removing unneeded elements/item attributes. As well as replacing elements like `iframe` with direct video links.

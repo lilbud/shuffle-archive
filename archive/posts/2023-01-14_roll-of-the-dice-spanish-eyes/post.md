@@ -6,13 +6,13 @@ If we were to judge by the finished album only, we’d conclude that Bruce left 
 
 One such song was “Spanish Eyes,” a bright confection that would have stuck out like a sore thumb amongst the embattled set of songs that comprise *Darkness.*
 
-[https://www.youtube.com/watch?v=62951kYR7qY](https://www.youtube.com/watch?v=62951kYR7qY)
+[Watch on Youtube: Spanish Eyes](https://www.youtube.com/watch?v=62951kYR7qY)
 
 If you listened to the song above, I’m sure at least two things stood out. First, for a 1977 recording, “Spanish Eyes” sure sounds a lot like modern-day Springsteen. That’s because it is–Bruce never finished the song back in ’77. (He may not even have finished writing the lyrics.) The backing track is vintage (at least mostly so), but the vocals are new.
 
 Here’s an original work-in-progress version from June ’77 with Bruce’s original vocal. We can quickly hear why Bruce had to record a new vocal, because many of the lyrics are bluffed.
 
-[https://www.youtube.com/watch?v=T67sL14lcDQ](https://www.youtube.com/watch?v=T67sL14lcDQ)
+[Watch on Youtube: Bruce Springsteen Spanish Eyes](https://www.youtube.com/watch?v=T67sL14lcDQ)
 
 The second thing that leaps out at us are the lyrics, which sound awfully familiar to anyone listening to the radio in 1985.
 
@@ -34,7 +34,7 @@ The second thing that leaps out at us are the lyrics, which sound awfully famili
 
 “Spanish Eyes” wouldn’t see the light of day until 2010, but those four lines in bold introduce one of Bruce’s greatest hits, his 1985 Top Ten single, “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/).”
 
-[https://www.youtube.com/watch?v=1VxFS5-klfk](https://www.youtube.com/watch?v=1VxFS5-klfk)
+[Watch on Youtube: I'm On Fire](https://www.youtube.com/watch?v=1VxFS5-klfk)
 
 It’s not just those lines that rhyme between songs; they’re thematically similar, too. Where “I’m on Fire” is steamy and sinister, “Spanish Eyes” sounds richly romantic. However, they’re both seduction songs crooned by a protagonist who isn’t troubled by the fact that the object of his affection already has an object of her own.
 
@@ -55,15 +55,15 @@ It’s not just those lines that rhyme between songs; they’re thematically sim
 
 “Spanish Eyes” is almost certainly inspired by Ben E. King’s 1960 single, “[Spanish Harlem](https://estreetshuffle.com/index.php/2018/01/23/cover-me-spanish-harlem/),” which Bruce performed a few times during the Wild and Innocent Tour. We can hear its influences in both the music and lyrics (both songs feature references to coal-black eyes).
 
-[https://www.youtube.com/watch?v=GxigkOzGq9Q](https://www.youtube.com/watch?v=GxigkOzGq9Q)
+[Watch on Youtube: Spanish Harlem](https://www.youtube.com/watch?v=GxigkOzGq9Q)
 
 While its origins aren’t a mystery, its lineage is much tougher to trace. We know that Bruce didn’t finish the song back in ’77. As late as May 1978, we can hear him rehearsing it with the band before the Darkness Tour, but he’s still bluffing in parts and the song is missing an entire verse.
 
-[https://www.youtube.com/watch?v=e-bRyMmuJ98](https://www.youtube.com/watch?v=e-bRyMmuJ98)
+[Watch on Youtube: Bruce Springsteen - Spanish Eyes (rehearsals) [Asbury Park May 19, 1978]](https://www.youtube.com/watch?v=e-bRyMmuJ98)
 
 What complicates things is that we have a second work-in-progress take from 1977 that sounds like it’s a more primitive version but was actually recorded (if studio logs are to be believed) two weeks *later.* Called “New Spanish” (certainly a working title), this version features wholly different lyrics (with even more bluffing than the June version) and a few new musical flourishes–enough that a reasonable argument can be made that “New Spanish” should be considered a separate song.
 
-[https://www.youtube.com/watch?v=eWi1Mh0by4M](https://www.youtube.com/watch?v=eWi1Mh0by4M)
+[Watch on Youtube: Bruce Springsteen - Spanish Eyes ( outtake )](https://www.youtube.com/watch?v=eWi1Mh0by4M)
 
 Whether misdated or a branch experiment that went nowhere, no record exists of “New Spanish” before or after the above outtake, so we’ll simply consider it a curious artifact of the “Spanish Eyes” development process.
 
@@ -71,7 +71,7 @@ Springsteen didn’t tour in support of *The Promise*, so when he took the E Str
 
 Thank goodness for that tour’s fan request segment, however. One time only, in (fittingly) Madrid in June 2012, an audience member made a sign for “Spanish Eyes.” It caught Bruce’s eye, and the band played it for the first and only time to date.
 
-[https://www.youtube.com/watch?v=pLITNaGM9qo](https://www.youtube.com/watch?v=pLITNaGM9qo)
+[Watch on Youtube: Bruce Springsteen - Spanish Eyes](https://www.youtube.com/watch?v=pLITNaGM9qo)
 
 If we’re only ever going to get one performance, at least it was a great one, featuring a gorgeous Curt Ramm trumpet solo. It’s probably too deep a cut to surface again, but if you’re laying odds keep an eye out for the Barcelona shows in a few months–you never know what surprises might lie in store.
 

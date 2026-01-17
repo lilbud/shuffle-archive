@@ -6,4 +6,4 @@ Case in point: this lovely acoustic version of “[Hungry Heart](https://estreet
 
 Filmed in a beautiful location to frame their gorgeous harmonies, guitar, and accordion, this is a wonderful track for a quiet weekend morning.
 
-[https://www.youtube.com/watch?v=ol5SbwONwZE](https://www.youtube.com/watch?v=ol5SbwONwZE)
+[Watch on Youtube: The Lovematches - Hungry Heart (Springsteen cover)](https://www.youtube.com/watch?v=ol5SbwONwZE)

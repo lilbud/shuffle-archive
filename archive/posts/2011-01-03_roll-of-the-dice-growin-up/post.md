@@ -4,7 +4,7 @@ Long before “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/ro
 
 We can hear it all the way back on his very first album, and we can *see* it even earlier.
 
-[https://www.youtube.com/watch?v=AR2lrhe-eC8](https://www.youtube.com/watch?v=AR2lrhe-eC8)
+[Watch on Youtube: Bruce Springsteen - Growin' Up - 1972 Max's Kansas City (Live) - Historical Series #1 - 4K](https://www.youtube.com/watch?v=AR2lrhe-eC8)
 
 That remarkable performance was captured on film more than a half-century ago, just a few weeks before Springsteen’s 23rd birthday. His eponymous band dissolved just weeks earlier, and he was deep into recording sessions for his first album, still months away from record store shelves.
 
@@ -12,7 +12,7 @@ But many of the songs that would see release on that first album were already in
 
 In fact, “Growin’ Up” was among the earliest songs written and recorded for *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Its musical roots date back at least to early 1972 and an abandoned song called “[Eloise](https://estreetshuffle.com/index.php/2018/09/17/roll-of-the-dice-eloise/)” that features a familiar melody set against a very different set of lyrics.
 
-[https://www.youtube.com/watch?v=tkdPhiYlFa4](https://www.youtube.com/watch?v=tkdPhiYlFa4)
+[Watch on Youtube: Bruce Springsteen - Eloise](https://www.youtube.com/watch?v=tkdPhiYlFa4)
 
 It wouldn’t take along for him to discard those lyrics. Although they were much in keeping with his style up until that point, Bruce was starting to write more stylistically, breaking out the rhyming dictionary and embracing staccato alliteration, internal rhymes, and clever turns of phrase that dared the listener to keep up.
 
@@ -28,19 +28,19 @@ If “Growin’ Up” is a song about growing up, then it’s a song we’d expe
 
 Because “Growin’ Up” isn’t about growing up at all. It’s about *refusing* to grow up–something that Bruce made obvious every night on stage with a shaggy dog story that only grew shaggier with each retelling.
 
-[https://www.youtube.com/watch?v=7b4nhdoY0TA](https://www.youtube.com/watch?v=7b4nhdoY0TA)
+[Watch on Youtube: Bruce Springsteen - "Growin' Up", live, 1985 (HD)](https://www.youtube.com/watch?v=7b4nhdoY0TA)
 
 *Greetings From Asbury Park, N.J.* is the only Springsteen album that doesn’t have a title track, but “Growin’ Up” meets the criteria in every way but titular. With its brazen lyrics and brash confidence, it announces Bruce’s arrival and introduces him as an artist ready to tackle grown-up themes without letting go of his youthful rebelliousness. It’s no wonder that it was [covered almost immediately by David Bowie](https://estreetshuffle.com/index.php/2019/01/07/cover-me-david-bowie-growin-up/) (a cosmic kid in full costume dress if ever there was one), although it wouldn’t be released for another 17 years. “Growin’ Up” sounds like the autobiography of every kid who ever took up the guitar and dedicated his life to rock and roll.
 
 It was a perfect song for Bruce to audition for John Hammond with in May of 1972, and Hammond was so taken with the song and its writer that he had Bruce record a demo for Columbia Records the very next day. (That demo would see release decades later on *Tracks* and *18 Tracks*.)
 
-[https://www.youtube.com/watch?v=KONChf3gjnc](https://www.youtube.com/watch?v=KONChf3gjnc)
+[Watch on Youtube: Growin' Up (Demo Version - 1972)](https://www.youtube.com/watch?v=KONChf3gjnc)
 
 The song wouldn’t be complete, however, until Bruce arranged it for a band–namely The Bruce Springsteen Band, which hadn’t yet officially broken up at the time of recording. The core of the band (Vini Lopez on drums, Garry Tallent on bass, and David Sancious on piano) provides the backdrop for Bruce’s vocals and acoustic guitar, but it’s Sancious who provides the magic that makes “Growin’ Up” take flight.
 
 Transposing the song’s simple but instantly identifiable riff from guitar to piano made all the difference. When Sancious (and then later, Bittan) plays those opening notes, we’re instantly teleported into a cinematic flashback. On guitar, the riff is wistful; on piano, it’s playfully nostalgic in a way that sets us up perfectly for what’s to come. It’s so effective that it almost makes the muddy, amateurish production (which plagues the entire album) sound intentional, a vintage piece from decades earlier.
 
-[https://www.youtube.com/watch?v=lCGtLWd_E9A](https://www.youtube.com/watch?v=lCGtLWd_E9A)
+[Watch on Youtube: Growin' Up](https://www.youtube.com/watch?v=lCGtLWd_E9A)
 
 And yet beneath its playfulness, there’s a lot of seriousness. It’s as if Bruce is answering the question, *how do you grow up without growing up?* 
 
@@ -92,21 +92,21 @@ We never do get any sense of our narrator’s age–he could be fifty, thirty, o
 
 With over 600 performances to date, “Growin’ Up” remains one of Bruce’s most-performed songs. (Although it certainly got a big boost in that regard from *Springsteen on Broadway*).
 
-[https://www.youtube.com/watch?v=4D1smUCqEEw](https://www.youtube.com/watch?v=4D1smUCqEEw)
+[Watch on Youtube: Bruce Springsteen - Growin' Up (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=4D1smUCqEEw)
 
 Its simple structure and personal lyrics render “Growin’ Up” almost infinitely malleable. Bruce has played it with the E Street Band hundreds of times, and it frequently appears in his solo set lists too, arranged for guitar, piano, and even ukulele.
 
-[https://www.youtube.com/watch?v=TXtzRm289SQ](https://www.youtube.com/watch?v=TXtzRm289SQ)
+[Watch on Youtube: Bruce Springsteen Growin' up ukelele 22 nov 2005](https://www.youtube.com/watch?v=TXtzRm289SQ)
 
-[https://www.youtube.com/watch?v=kMyQjl59wkw](https://www.youtube.com/watch?v=kMyQjl59wkw)
+[Watch on Youtube: Bruce Springsteen - Growin' Up (from In Concert/MTV Plugged)](https://www.youtube.com/watch?v=kMyQjl59wkw)
 
 During his 2006 tour with the Sessions Band, Bruce dramatically reinvented “Growin’ Up” to fit that tour’s folkier sound.
 
-[https://www.youtube.com/watch?v=_-2eVxo4Qik](https://www.youtube.com/watch?v=_-2eVxo4Qik)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - Growin' Up (Live In Dublin)](https://www.youtube.com/watch?v=_-2eVxo4Qik)
 
 In any incarnation, “Growin’ Up” remains a fan favorite, forever fresh for its appeal to each new generation of aspiring rock stars, the luckiest of whom even get a chance to sing it with Bruce on stage.
 
-[https://www.youtube.com/watch?v=VVzi8tM2Qlw](https://www.youtube.com/watch?v=VVzi8tM2Qlw)
+[Watch on Youtube: Bruce Springsteen brings young fan up onstage to perform 'Growin' Up' with him](https://www.youtube.com/watch?v=VVzi8tM2Qlw)
 
 “Growin’ Up” is about holding onto youth even as age pulls you inexorably forward. It holds up to this day as a reminder to those of us who did the bulk of our growin’ up long ago that there’s always more to do in front of us.
 

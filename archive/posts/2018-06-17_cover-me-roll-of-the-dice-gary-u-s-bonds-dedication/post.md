@@ -15,7 +15,7 @@ Here’s what we know:
 - When you listen to “Dedication” specifically, the band sure sounds an like pure E Street. Give it a listen:
 
 
-[https://www.youtube.com/watch?v=0WMWIzIBd8k](https://www.youtube.com/watch?v=0WMWIzIBd8k)
+[Watch on Youtube: Gary US Bonds - Dedication - RARE!! ''Rockin' Tune''](https://www.youtube.com/watch?v=0WMWIzIBd8k)
 
 …so the reason why I question if this is really a cover:
 
@@ -67,11 +67,11 @@ This is Bruce in pure pop mode, using historical vignettes in clever comparison 
 *Dedication, girl, every way*  
 *Dedication, girl, every day*
 
-They’re not Bruce’s deepest lyrics, but they would have been right at home on *The River* alongside a song like “[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/).” (The two songs even share similar “frat rock” introductions.)
+They’re not Bruce’s deepest lyrics, but they would have been right at home on *The River* alongside a song like “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/).” (The two songs even share similar “frat rock” introductions.)
 
 “Dedication” would surely be a highlight any time Bruce chooses to play it, but in all these years, he’s only played it once–with Bonds at the Cafe Bar in Long Branch, NJ, in the summer of 1989. No audio is known to exist of it, but here’s a pro-shot recording of Bonds performing it live in 1981:
 
-[https://videopress.com/embed/SsZa33Wh](https://videopress.com/embed/SsZa33Wh)
+[Watch Video Highlight](https://videopress.com/embed/SsZa33Wh)
 
 **Dedication  
 Recorded:** June-August 1980 (vocals–possibly using a December 1979 instrumental track)  
@@ -79,4 +79,4 @@ Recorded:** June-August 1980 (vocals–possibly using a December 1979 instrument
 **First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)  
 **Last performed** (by Bruce): July 2, 1989 (Long Branch, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

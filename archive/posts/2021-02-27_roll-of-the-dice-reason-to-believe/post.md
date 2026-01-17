@@ -1,7 +1,5 @@
 > “We love you, Bruce!” —*a voice from the crowd on November 16, 1990*
 > 
-> 
-> 
 > “But you don’t really know me.” *–Bruce Springsteen’s response, immediately before playing “Reason to Believe”*
 
 Except for a very select few of my readers (you know who you are), we don’t really know him.
@@ -18,7 +16,7 @@ But the most unsettling take belonged to the *New York Times*: “Facing [the po
 
 Looking and listening back, it’s impossible not to hear the detachment in Bruce’s voice as he progressively loses himself in the song; by the final verse, he’s almost swallowed up by it.
 
-[https://www.youtube.com/watch?v=H49obsV6oZ0](https://www.youtube.com/watch?v=H49obsV6oZ0)
+[Watch on Youtube: Reason to Believe](https://www.youtube.com/watch?v=H49obsV6oZ0)
 
 *Nebraska* is one of Bruce’s most thematic albums, and its theme is disconnection. Every character suffers from some kind of alienation; severed relationships pervade the album. Alienation from one’s father, from one’s brother, from one’s lover. Disconnection from one’s past, one’s future, the very laws and norms that hold society together.
 
@@ -104,23 +102,23 @@ Although Bruce didn’t tour behind *Nebraska,* “Reason to Believe” came out
 
 In its early outings, Bruce used a minimalist full-band arrangement to create a sense of intimacy in arenas, but it was never very successful. (Bruce dropped it altogether for the stadium leg.)
 
-[https://www.youtube.com/watch?v=-k2QcB6bV9o](https://www.youtube.com/watch?v=-k2QcB6bV9o)
+[Watch on Youtube: Reason To Believe (Live at Meadowlands Arena, E. Rutherford, NJ - August 1984)](https://www.youtube.com/watch?v=-k2QcB6bV9o)
 
 In 1990, he performed it at his now legendary Christic shows, with a newfound vulnerability in his vocals born of therapy.
 
-[https://www.youtube.com/watch?v=N_wJB0e0-Qo](https://www.youtube.com/watch?v=N_wJB0e0-Qo)
+[Watch on Youtube: Bruce Springsteen - Reason To Believe (Los Angeles, November 16, 1990)](https://www.youtube.com/watch?v=N_wJB0e0-Qo)
 
 But I’d argue that it wasn’t until the 21st century that Bruce successfully channeled the alienation at the core of “Reason to Believe” and unleashed its potential in concert.
 
 Bruce’s first breakthrough came on his 2005 solo acoustic tour, where he used a bullet mic to create an artificial sense of distance and separation between narrator and audience via a stomping blues arrangement.
 
-[https://www.youtube.com/watch?v=o2GxcTjeu58](https://www.youtube.com/watch?v=o2GxcTjeu58)
+[Watch on Youtube: Bruce Springsteen Archives: "Reason To Believe" Stockholm, Sweden, June 25, 2005](https://www.youtube.com/watch?v=o2GxcTjeu58)
 
 And then came the Magic Tour.
 
 In a stroke of inspired genius, Bruce completely reinvented “Reason to Believe” as a show-stopping rocker in an arrangement lifted straight from Norman Greenbaum’s “Spirit in the Sky” (and as reader Chris points out in the comments below, also more than a little similar to [The Beat Farmers’ 1985 cover](https://estreetshuffle.com/index.php/2018/09/10/cover-me-beat-farmers-reason-to-believe/) of Bruce’s original).
 
-[https://www.youtube.com/watch?v=Ze2-AJ7AF6g](https://www.youtube.com/watch?v=Ze2-AJ7AF6g)
+[Watch on Youtube: ~ Bruce Springsteen - Reason To Believe (Hartford, October 2, 2007) ~](https://www.youtube.com/watch?v=Ze2-AJ7AF6g)
 
 Bruce’s introductory dissonant harmonica blasts hit us like anguished existential screams into the void. And when the band finally kicks in at full power… it’s nothing less than electrifying the first time we hear it (and every time after, too).
 

@@ -4,13 +4,13 @@ Well, I’m not sure *exactly* where the line is, but when the song includes con
 
 “Someday (We’ll Be Together)” started out as “Someday (Tonight),” an instrumental track that circulated among bootleg collectors for many years before Bruce rediscovered it when prepping his box set for [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).
 
-The original “Someday (Tonight)” track is instantly recognizable to anyone who owns *The Promise,* and I’d argue it’s superior to the modern cut. Played at a brisker pace with a fuller band arrangement (Roy in particular gets a workout) and a “[Be My Baby](http://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)” drumbeat, the song sounds like it was written with Ronnie Spector in mind (and possibly with “[Linda Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)” in mind as well–the opening bars of each are extremely similar).
+The original “Someday (Tonight)” track is instantly recognizable to anyone who owns *The Promise,* and I’d argue it’s superior to the modern cut. Played at a brisker pace with a fuller band arrangement (Roy in particular gets a workout) and a “[Be My Baby](https://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)” drumbeat, the song sounds like it was written with Ronnie Spector in mind (and possibly with “[Linda Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)” in mind as well–the opening bars of each are extremely similar).
 
-[https://www.youtube.com/watch?v=F2rOlYhYnAk](https://www.youtube.com/watch?v=F2rOlYhYnAk)
+[Watch on Youtube: Bruce Springsteen - Someday, Tonight (instrumental)](https://www.youtube.com/watch?v=F2rOlYhYnAk)
 
 We have no way of knowing if Bruce had written any lyrics for it back in the 1970s; more likely than not, he wrote new lyrics (as few as there are) in 2010 using the original “Someday (Tonight)” title as inspiration and anchor. But he was certainly successful at preserving the lush, romantic feel of the original track, even if he altered it so much that we really can’t consider it a true outtake.
 
-[https://www.youtube.com/watch?v=ZKFREGdtncg](https://www.youtube.com/watch?v=ZKFREGdtncg)
+[Watch on Youtube: Someday (We'll Be Together)](https://www.youtube.com/watch?v=ZKFREGdtncg)
 
 “Someday (We’ll Be Together)” is best viewed as a stylistic writing exercise. This is clearly a case where the instrumental track mattered more to Bruce than the lyrics–in interviews, he confesses to being enamored by the sound of the original track and wanting to build on it, to flesh it out using the craft and skill he’d honed over the decades since.
 
@@ -43,4 +43,4 @@ Recorded:** September 26-30, 1977 (backing track), 2010 (vocals and modern eleme
 **Released:** *The Promise* (2010)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

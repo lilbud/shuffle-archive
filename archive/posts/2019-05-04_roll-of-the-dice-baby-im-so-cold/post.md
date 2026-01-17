@@ -1,6 +1,6 @@
 From time to time here on the Shuffle, we profile Springsteen original songs that never made it to vinyl but instead ended up donating their DNA to other songs that did.
 
-“[True Love is Hard to Come By](http://estreetshuffle.com/index.php/2018/05/19/roll-of-the-dice-true-love-is-hard-to-come-by/),” for example, led to “[Janey, Don’t You Lose Heart,](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” and “[Stockton Boys](http://estreetshuffle.com/index.php/2019/01/10/roll-of-the-dice-stockton-boys/)” donated some lyrics to “[Working on the Highway.](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” Bruce appears to have worked on “[Eloise](http://estreetshuffle.com/index.php/2018/09/17/roll-of-the-dice-eloise/)” and “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” at the same time; they share the same melody, but only one of the twins survived. Don’t even get me started on “[Garden State Parkway Blues](http://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/).” (But do check out that entry if you’re not familiar with it, because that song’s DNA is all over Bruce’s catalog.)
+“[True Love is Hard to Come By](https://estreetshuffle.com/index.php/2018/05/19/roll-of-the-dice-true-love-is-hard-to-come-by/),” for example, led to “[Janey, Don’t You Lose Heart,](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” and “[Stockton Boys](https://estreetshuffle.com/index.php/2019/01/10/roll-of-the-dice-stockton-boys/)” donated some lyrics to “[Working on the Highway.](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” Bruce appears to have worked on “[Eloise](https://estreetshuffle.com/index.php/2018/09/17/roll-of-the-dice-eloise/)” and “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” at the same time; they share the same melody, but only one of the twins survived. Don’t even get me started on “[Garden State Parkway Blues](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/).” (But do check out that entry if you’re not familiar with it, because that song’s DNA is all over Bruce’s catalog.)
 
 There are too many examples of this across Bruce’s catalog to fully recount, but today’s roll of the dice stands out among them.
 
@@ -8,7 +8,7 @@ There are too many examples of this across Bruce’s catalog to fully recount, b
 
 Bruce recorded “Loose Ends” with the E Street Band in July 1979; he premiered “Follow That Dream” on stage in Paris in April 1981. So it’s remarkable that in early 1982 (with *Nebraska* likely very much on his mind), he sat down at home in Colt’s Neck, pressed the record button on a cassette recorder, and played this:
 
-[https://www.youtube.com/watch?v=ZRt53xaHyYQ](https://www.youtube.com/watch?v=ZRt53xaHyYQ)
+[Watch on Youtube: Bruce Springsteen Baby I'm So Cold Turn The Lights Down Low](https://www.youtube.com/watch?v=ZRt53xaHyYQ)
 
 Since the lyrics are so close to those of “Loose Ends,” I’ll save my detailed analysis for when I someday profile that classic from *Tracks.* But even though the lyrics are strikingly similar, the subtle differences make for an entirely different song.
 
@@ -68,4 +68,4 @@ That recording likely resides in the vault, a strong candidate (we can only hope
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -8,7 +8,7 @@ When “Letter to You” debuted as the first single and title track for Bruce�
 
 “Letter to You” became the first Springsteen track since “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)” to leave me stone cold.
 
-[https://www.youtube.com/watch?v=4wtHDwDzVtQ](https://www.youtube.com/watch?v=4wtHDwDzVtQ)
+[Watch on Youtube: Letter To You](https://www.youtube.com/watch?v=4wtHDwDzVtQ)
 
 I *hated* that realization. And I hated even more having to confess it in writing–especially because:
 
@@ -40,7 +40,7 @@ Please humor me.
 
 Let’s take a listen (acoustic version!) so we can appreciate Bruce’s heartfelt lyrics together. (Skip to 1:38 to bypass the dirty joke.)
 
-[https://videopress.com/embed/Cor6CHI8](https://videopress.com/embed/Cor6CHI8)
+[Watch Video Highlight](https://videopress.com/embed/Cor6CHI8)
 
 It’s actually a challenge to analyze most of the new songs on *[Letter to You](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)—*not because they’re laden with metaphor and symbolism, but for the exact opposite reason: Bruce writes so straightforwardly on this album and draws so much from his personal history that the songs call more for annotation than analysis.
 
@@ -93,7 +93,7 @@ Lyrically, “Letter to You” reminds me of “[Surprise, Surprise](https://est
 
 There’s no better point of comparison than the bridges. Take a listen to the album version, and how Brue stretches out “In my l-ehhhhhhhhhh-ter to you…” for no real reason or effect that I can discern. It distracts more than it underlines. (It’s probably the element of the song that turns me off the most.)
 
-[https://www.youtube.com/watch?v=AQyLEz0qy-g](https://www.youtube.com/watch?v=AQyLEz0qy-g)
+[Watch on Youtube: Bruce Springsteen - Letter To You (Official Video)](https://www.youtube.com/watch?v=AQyLEz0qy-g)
 
 Compare with the [acoustic version](https://vimeo.com/493498107/84b3b1301d) now–see what I mean? Bruce extends the “letter” just a beat shorter than on the album, but it makes all the difference.
 

@@ -20,13 +20,13 @@ And so in 1976, Bruce stared that scary question in the face and refused to flin
 
 Answering that question led him away from his romantic *Born to Run* songwriting and opened a darker, realistic vein that produced “The Promise,” “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/),” and what still stands as one of his crowning songwriting achievements: “Racing in the Street.”
 
-[https://www.youtube.com/watch?v=cm9UuM3UXdc](https://www.youtube.com/watch?v=cm9UuM3UXdc)
+[Watch on Youtube: Racing in the Street](https://www.youtube.com/watch?v=cm9UuM3UXdc)
 
 Bruce wrote all those songs around the same time, but unlike the others, Bruce didn’t preview “Racing in the Street” on tour. Instead, he held onto it tightly until the legal injunction that prevented him from entering a recording studio was lifted.
 
 On July 2, 1977, Bruce recorded the earliest known version of “Racing in the Street” at Atlantic Studios. It’s incomplete–missing the final verse and featuring several early lyrical phrases that would ultimately be changed–but his breathtaking solo piano performance is laden with empathy for his characters. If you haven’t heard it before, you really should take a few minutes to do so now.
 
-[https://videopress.com/embed/TkMyNoop](https://videopress.com/embed/TkMyNoop)
+[Watch Video Highlight](https://videopress.com/embed/TkMyNoop)
 
 Bruce’s final lyrics for “Racing in the Street” (completed and recorded only a month after the solo recording above–that’s how quickly Bruce gelled the song) are among the subtlest he’d yet written, so much so that listeners and critics have often too confidently and completely characterized it as depressive and fatalistic. It *is* those things, but it’s also defiant and hopeful and even a bit sweet.
 
@@ -120,7 +120,7 @@ Both songwriters, however, should impress the heck out of us for having written 
 
 Oh wait, they just did.
 
-[https://www.youtube.com/watch?v=hHLGZxlBpLA](https://www.youtube.com/watch?v=hHLGZxlBpLA)
+[Watch on Youtube: John Mellencamp - Wasted Days ft. Bruce Springsteen](https://www.youtube.com/watch?v=hHLGZxlBpLA)
 
 “Wasted Days” is very much in keeping for the authors of “Racing in the Street” and “Jack and Diane.” But what’s more terrifying: idling in place when your days are numbered, or feeling forever stuck when forever is still a mighty long time?
 
@@ -135,17 +135,17 @@ This is a carefully arranged song with an uncharacteristically restrained perfor
 
 At almost seven minutes, “Racing in the Street” is already one of Bruce’s longer studio tracks. On stage, it’s only grown in length and majesty over the decades. It was a set centerpiece from the beginning, a nightly highlight during the Darkness Tour. Bruce and the band performed the song in its album arrangement, but we can already hear the intro and outro evolving. (Clarence also gets a sax solo–his instrument was conspicuously absent on the album track.)
 
-[https://www.youtube.com/watch?v=yYf3mCEVAnU](https://www.youtube.com/watch?v=yYf3mCEVAnU)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Racing in the Street (Live in Houston, 1978)](https://www.youtube.com/watch?v=yYf3mCEVAnU)
 
 Over the years, though, it’s been Roy Bittan who’s emerged as the hero of live performances of “Racing in the Street,” and watching this performance from Philadelphia in 2016, it’s easy to understand why. The entire band is at the top of their game, but Roy is simply majestic.
 
-[https://www.youtube.com/watch?v=DQc_HLYh_NI](https://www.youtube.com/watch?v=DQc_HLYh_NI)
+[Watch on Youtube: Racing In The Street - Philadelphia (Best Version) - 9/9/16](https://www.youtube.com/watch?v=DQc_HLYh_NI)
 
 **Bonus #1**: In 2010, Bruce released an alternate vintage version of “Racing in the Street” on his album *The Promise.*” Commonly known as “Racing in the Street (’78)” (inexplicably, since it was recorded in 1977), the song features lyrics closer to the original solo piano version above, arranged for a more powerful band performance.
 
 It’s a fascinating insight into the evolution of a classic song, but even though it’s a fantastic performance (featuring David Lindley on violin), the arrangement stomps on the song’s sadness and robs it of its emotional power.
 
-[https://www.youtube.com/watch?v=LE78g3UzyfM](https://www.youtube.com/watch?v=LE78g3UzyfM)
+[Watch on Youtube: Racing in the Street ('78)](https://www.youtube.com/watch?v=LE78g3UzyfM)
 
 Interestingly, Bruce had to do a minor bit of surgery on his ’77 studio outtake in order to release it. There’s one–and only one–lyric line in the track that’s modern, a seconds-long 2010 Bruce vocal grafted onto a 1977 vintage performance. Did you notice it?
 
@@ -157,17 +157,17 @@ If not, take a listen to the original raw outtake–I’m pretty certain you’l
 
 That version of “Racing” has made only a few outings in concert, the first of which even featured Lindley reprising his violin part 33 years later.
 
-[https://www.youtube.com/watch?v=xlremWeb08o](https://www.youtube.com/watch?v=xlremWeb08o)
+[Watch on Youtube: Bruce Springsteen - Racing in the Street (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=xlremWeb08o)
 
 It’s likely to stay rare, though, because after performing the original version more than 350 times across four decades, when Bruce and the band attempt to play the alternate version, they risk their muscle memory running them off the rails. I was there in Uncasville when they did their best to open with that alternate version in 2014, and you can hear it go awry pretty early.
 
-[https://www.youtube.com/watch?v=LL0ejclelxg](https://www.youtube.com/watch?v=LL0ejclelxg)
+[Watch on Youtube: Bruce Springsteen - Racing In The Street ('78)](https://www.youtube.com/watch?v=LL0ejclelxg)
 
 That version of “Racing in the Street” is likely to stay a curiosity, but the original version is sure to always rank among Bruce’s best work, a favorite of fans and critics alike.
 
 **Bonus #2:** My favorite version of “Racing in the Street” isn’t any of the above. It’s the to-die-for acoustic version from 1996 performed by just Bruce on guitar accompanied by Soozie Tyrell on violin. It’s simply stunning.
 
-[https://www.youtube.com/watch?v=PiCrYEChi9Q](https://www.youtube.com/watch?v=PiCrYEChi9Q)
+[Watch on Youtube: Bruce Springsteen- Racing in the Street Asbury Park 1996](https://www.youtube.com/watch?v=PiCrYEChi9Q)
 
 **Racing in the Street  
 Recorded:** August 1977 (both versions)  

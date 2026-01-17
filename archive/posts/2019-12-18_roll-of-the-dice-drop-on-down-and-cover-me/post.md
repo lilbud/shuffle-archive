@@ -4,13 +4,13 @@ This.
 
 Even Bruce must have recognized at some point just that “Cover Me” wasn’t ready for prime time, because he continued to work on the song long, long after he recorded the version that’s on the album.
 
-In early June of 1983–almost a year and a half after he recorded “Cover Me,” Bruce went back into the studio with the E Street Band and recorded a much, *much* stronger version of it. While the lyrics were still largely the same, Bruce stripped out the paranoid urgency, dialed up the tenderness, and set it all against one of his best mid-eighties backing tracks (a melody so good, in fact, that he’d nick it a couple of weeks later for “[Janey, Don’t You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)“).
+In early June of 1983–almost a year and a half after he recorded “Cover Me,” Bruce went back into the studio with the E Street Band and recorded a much, *much* stronger version of it. While the lyrics were still largely the same, Bruce stripped out the paranoid urgency, dialed up the tenderness, and set it all against one of his best mid-eighties backing tracks (a melody so good, in fact, that he’d nick it a couple of weeks later for “[Janey, Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)“).
 
 The result: “Drop on Down and Cover Me,” which I’d rank at or very near the top of the still-missing-in-action outtakes crying out for an official release.
 
 Take a listen:
 
-[https://www.youtube.com/watch?v=4iQh-UzJiH4](https://www.youtube.com/watch?v=4iQh-UzJiH4)
+[Watch on Youtube: Bruce Springstenn - Drop On Down And Cover Me](https://www.youtube.com/watch?v=4iQh-UzJiH4)
 
 I’m not sure there’s a better example of how subtle changes can dramatically alter a song than “Drop on Down and Cover Me.” The lyrics undoubtedly sound very familiar–most of them are virtually identical.
 
@@ -60,7 +60,7 @@ Both narrators are looking for shelter, but the protagonist of “Cover Me” is
 
 Like all art, music is subjective. But “Drop on Down and Cover Me” is such a superior song to the officially released “Cover Me” that I can’t help but wonder why Bruce chose to release the older version.
 
-It clearly wasn’t always his intention to do so–in the summer of 1983, Bruce had an album sequence that included “Drop on Down and Cover Me” right in the middle of Side One (after “[None But the Brave](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)” and before “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)“–what an album that would have been).
+It clearly wasn’t always his intention to do so–in the summer of 1983, Bruce had an album sequence that included “Drop on Down and Cover Me” right in the middle of Side One (after “[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)” and before “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)“–what an album that would have been).
 
 Unless we’re lucky enough to get a sign-requested debut someday, we’re not likely to ever gain any more insight; for now, we’ll just chalk it up as just one more unsolved Springsteen mystery.
 
@@ -69,4 +69,4 @@ Recorded:** May 31 – June 2, 1983
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

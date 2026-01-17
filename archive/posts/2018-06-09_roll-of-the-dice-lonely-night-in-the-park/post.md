@@ -6,11 +6,11 @@ Well, let’s just say there’s a lot going on here.
 
 Maybe too much, in fact:
 
-[https://www.youtube.com/watch?v=CzlPd_PZVCM](https://www.youtube.com/watch?v=CzlPd_PZVCM)
+[Watch on Youtube: Bruce Springsteen - Lonely Night In The Park](https://www.youtube.com/watch?v=CzlPd_PZVCM)
 
 First, that introduction–it sounds like it’s lifted straight from John Mellencamp’s “I Need a Lover.” (Although that song was released three years after “Lonely Night in the Park” was recorded, so it’s either coincidence or a lift from rather than by Bruce.)
 
-[https://www.youtube.com/watch?v=uGPP2PbayJc](https://www.youtube.com/watch?v=uGPP2PbayJc)
+[Watch on Youtube: John Mellencamp - I Need A Lover (full version)](https://www.youtube.com/watch?v=uGPP2PbayJc)
 
 Then the lyrics kick in, and the scene is set at a topless bar:
 
@@ -42,7 +42,7 @@ What’s next? Ooh, there’s a mini-bridge on the piano, and it sounds maddenin
 
 Oh yeah, here:
 
-[https://www.youtube.com/watch?v=-IiWtFY-vGE?start=46](https://www.youtube.com/watch?v=-IiWtFY-vGE?start=46)
+[Watch on Youtube: Day After Day (Remastered 2010)](https://www.youtube.com/watch?v=-IiWtFY-vGE?start=46)
 
 That song came out four years prior, so who knows if that was intentional not?
 
@@ -59,7 +59,7 @@ That must be funny, because Bruce laughs here.
 
 Wow, that sounds familiar too! Remember this classic?
 
-[https://www.youtube.com/watch?v=s2a2Nrw_6G0?start=29](https://www.youtube.com/watch?v=s2a2Nrw_6G0?start=29)
+[Watch on Youtube: Chuck Berry - Little Queenie](https://www.youtube.com/watch?v=s2a2Nrw_6G0?start=29)
 
 Knowing Bruce’s fondness for that song and its setlist appearances that year, I’m definitely chalking that up as a deliberate homage.
 
@@ -132,4 +132,4 @@ Lonely lonely lonely night…
 **Never Released**  
 **Never Performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

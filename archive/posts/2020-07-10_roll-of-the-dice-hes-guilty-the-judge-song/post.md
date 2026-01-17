@@ -12,13 +12,13 @@ Case in point: “He’s Guilty (The Judge Song),” written in the summer of 19
 
 Take a listen, and you’ll hear a much showier, cockier Bruce Springsteen tearing it up on guitar (and a pretty darn impressive Danny Federici keyboard solo, too).
 
-[https://www.youtube.com/watch?v=8bcFwoMd8wc](https://www.youtube.com/watch?v=8bcFwoMd8wc)
+[Watch on Youtube: Bruce Springsteen - He's Guilty (The Judge Song) (2016) [Chapter and Verse]](https://www.youtube.com/watch?v=8bcFwoMd8wc)
 
 See what I mean? Bruce’s Steel Mill material is typically more jam than song–and at only 4:38, that track suggests remarkable restraint on the part of the band.
 
 But it’s only a suggestion, because their actual studio performance stretched out much longer–Bruce edited the track, presumably for time and modern sensibilities. Here’s the original version of “He’s Guilty (The Judge Song)” in all its glory:
 
-[https://videopress.com/embed/ruLW1gSF](https://videopress.com/embed/ruLW1gSF)
+[Watch Video Highlight](https://videopress.com/embed/ruLW1gSF)
 
 Lyrically, “He’s Guilty (The Judge Song)” is slight–there’s very little to analyze or dissect. That said, there are a few lines worth at least annotating:
 
@@ -54,7 +54,7 @@ In later performances, Bruce would add a verse after the mid-song jam that lends
 
 You can hear that additional verse in the performance below, along with an even more ferocious guitar solo.
 
-[https://www.youtube.com/watch?v=tkcpeSH555M](https://www.youtube.com/watch?v=tkcpeSH555M)
+[Watch on Youtube: Bruce Springsteen and Steel Mill: Guilty 1971 01 23, Upstage, Asbury Park, NJ](https://www.youtube.com/watch?v=tkcpeSH555M)
 
 That clip you just listened to also happens to be the very last performance of both the song and the band, on January 23, 1971.
 
@@ -70,4 +70,4 @@ https://www.youtube.com/watch?v=ElFaxyfclRc
 **First performed:** January 13, 1970 (San Francisco, CA)  
 **Last performed:** January 23, 1971 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

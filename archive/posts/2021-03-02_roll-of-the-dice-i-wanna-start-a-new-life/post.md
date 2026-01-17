@@ -2,7 +2,7 @@ Today’s entry is another abandoned work-in-progress, but it’s one that showe
 
 This home demo of recording of “I Wanna Start a New Life” dates back to late 1979, likely after Bruce had finished his ultimately abandoned *The Ties That Bind* album, but before the second batch of sessions that produced the songs that would ultimately round out the two-disc *The River*.
 
-[https://videopress.com/embed/Gh4b2H5f](https://videopress.com/embed/Gh4b2H5f)
+[Watch Video Highlight](https://videopress.com/embed/Gh4b2H5f)
 
 We only have two verses (of which two lines are completely bluffed) and a chorus to figure out what Bruce was reaching for, but we also have a gorgeous acoustic melody that sounds for all the world like something Jackson Browne might have recorded.
 

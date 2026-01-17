@@ -8,7 +8,7 @@ Only at the last minute did Bruce yank this punk rave-up from Disc 3. At a mere 
 
 Why did he pull it? That I can’t answer, although I suspect it has at least a little to do with the fact that it’s essentially the musical twin of “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/).”
 
-[https://www.youtube.com/watch?v=gxBhIeTARBE](https://www.youtube.com/watch?v=gxBhIeTARBE)
+[Watch on Youtube: Held Up Without a Gun (Single B-side - 1980)](https://www.youtube.com/watch?v=gxBhIeTARBE)
 
 “Held Up Without a Gun” typically gets characterized as a song about the 1979 Oil Crisis, when gasoline prices spiked when it was even available at all.
 
@@ -35,11 +35,11 @@ It’s also a ten-second synopsis of “The Promise.” A few years down the roa
 
 “Held Up Without a Gun” had only a single live outing following its B-side release, on New Year’s Eve 1980, but that live performance (as brief as the studio track) got not one but two official releases: one on *The Essential Bruce Springsteen* in 2003, and one when Bruce’s official archive series released the entire show.
 
-[https://www.youtube.com/watch?v=SZDRGo3euZo](https://www.youtube.com/watch?v=SZDRGo3euZo)
+[Watch on Youtube: Held Up Without a Gun (Live at Nassau Coliseum, Uniondale, NY - December 1980)](https://www.youtube.com/watch?v=SZDRGo3euZo)
 
 It would be more than 27 years before Bruce performed it again in concert, but when gas prices spiked in 2008 during the Magic Tour, he brought it back for three encore performances that summer.
 
-[https://www.youtube.com/watch?v=mIbVndmUJ-E](https://www.youtube.com/watch?v=mIbVndmUJ-E)
+[Watch on Youtube: Bruce Springsteen Held Up Without A Gun Giants Stadium New Jersey 28/07/2008](https://www.youtube.com/watch?v=mIbVndmUJ-E)
 
 “Held Up Without a Gun” made one more appearance, on the Wrecking Ball Tour in 2012. With only five performances ever, it remains on many fans’ chase lists and is likely to stay there. If you’re lucky enough to catch it, pay attention–because if you blink, you might miss it.
 

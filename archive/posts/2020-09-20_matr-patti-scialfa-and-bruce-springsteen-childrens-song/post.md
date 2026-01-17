@@ -1,6 +1,6 @@
 In 2011, Christy Turlington directed and released a documentary called *No Woman No Cry*, shining a spotlight on the shockingly high mortality rate for expectant mothers, particularly among women living in poverty.
 
-[https://www.youtube.com/watch?v=2EqOnBTi_fs](https://www.youtube.com/watch?v=2EqOnBTi_fs)
+[Watch on Youtube: No Woman, No Cry (2011) - Official Trailer](https://www.youtube.com/watch?v=2EqOnBTi_fs)
 
 The film inspired a companion benefit album called *Every Mother Counts,* named after Turlington’s foundation. Turlington personally recruited the artists–all women–who contributed to the album.
 
@@ -12,7 +12,7 @@ One of those artists was Patti Scialfa. Patti readily agreed to participate, but
 
 Ultimately, Patti and Bruce recorded the song as a duet, tapping Ron Aniello for production duty during the *[Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*sessions. While that may technically have violated the “mothers only” rule for the album, the gentle, parental benediction turned out too lovely to keep in the vault.
 
-[https://www.youtube.com/watch?v=XndDKzxj9xs](https://www.youtube.com/watch?v=XndDKzxj9xs)
+[Watch on Youtube: Patti Scialfa - Children's Song](https://www.youtube.com/watch?v=XndDKzxj9xs)
 
 Bruce’s participation might have drawn more attention (and therefore sales) to the project, but Bruce, Patti, and Christy agreed to keep Bruce’s name off the credits to better support the album’s theme.
 
@@ -24,5 +24,3 @@ If you managed to snap up one of those rare original CDs, congratulations on sco
 Recorded:** 2011  
 **Released:** *Every Mother Counts* (2011)  
 **Never performed**
-
- 

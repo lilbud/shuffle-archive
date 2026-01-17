@@ -2,7 +2,7 @@
 
 We can forgive *Backstreets* for the error, because they certainly weren’t the only ones to swear that this 1983 instrumental track by Clarence Clemons and The Red Bank Rockers was really a Big Man-fronted E Street Band in disguise.
 
-[https://www.youtube.com/watch?v=WJ99dt7Eis0](https://www.youtube.com/watch?v=WJ99dt7Eis0)
+[Watch on Youtube: Summer On Signal Hill](https://www.youtube.com/watch?v=WJ99dt7Eis0)
 
 Even that lead guitar sounds like Bruce, but it’s not–it’s actually David Landau, Jon’s brother.
 

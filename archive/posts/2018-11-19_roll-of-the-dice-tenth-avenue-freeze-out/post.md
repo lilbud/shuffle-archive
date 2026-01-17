@@ -1,6 +1,6 @@
 Let’s get one thing out of the way right off the bat: I’m not even going to *try* to analyze and explain what the phrase “Tenth Avenue freeze-out” means. After all, if you ask Bruce, even he’ll admit:
 
-[https://videopress.com/embed/0IwH2mV0](https://videopress.com/embed/0IwH2mV0)
+[Watch Video Highlight](https://videopress.com/embed/0IwH2mV0)
 
 But “Tenth Avenue Freeze-Out” the song… now *that* we can discuss.
 
@@ -12,7 +12,7 @@ Because that’s exactly what “Tenth Avenue Freeze-Out” is: a self-mythology
 
 But at its origin, it was a cocky, almost braggadocious strut. It entered the scene as the second track on *Born to Run*, on the heels of what is arguably Bruce’s greatest songwriting achievement. As if he knows just how masterful and enduring that song would turn out to be, when the famous coda of “Thunder Road” fades, the very next thing we hear is a herald of trumpets announcing the arrival of the future of rock and roll. Drum roll, please!
 
-[https://www.youtube.com/watch?v=g5mxxU2R2sc](https://www.youtube.com/watch?v=g5mxxU2R2sc)
+[Watch on Youtube: Tenth Avenue Freeze-Out](https://www.youtube.com/watch?v=g5mxxU2R2sc)
 
 Those first twenty-five seconds are some serious self-aggrandizement–and Bruce knows it, because he brings himself and us back down to earth with some serious self-bathos:
 
@@ -87,7 +87,7 @@ Regardless of whether it’s literally Clarence or just a voice in Bruce’s own
 
 In fact, in an early work-in-progress version, not only does the Big Man feature prominently throughout the song, so does Steve Van Zandt, known here as “Miami.”
 
-[https://www.youtube.com/watch?v=priQeFgyvj4](https://www.youtube.com/watch?v=priQeFgyvj4)
+[Watch on Youtube: Bruce Springsteen - "Tenth Avenue Freeze-Out" (early version)](https://www.youtube.com/watch?v=priQeFgyvj4)
 
 And that’s appropriate too, because “Tenth Avenue Freeze-Out” does more than just celebrate Clarence joining the band–it announces the arrival of Steve Van Zandt as well.
 
@@ -97,37 +97,37 @@ Steve was hired when he broke a logjam blocking the completion of “Tenth Avenu
 
 Bruce, Steve, and the band finished recording the song on May 16, 1975. Barely two months later, they debuted it on stage at the opening show of the Born to Run Tour. Listening to it more than four decades later, it bursts with barely contained energy. It’s also Steve’s debut performance with the band, and his vocals are prominent, already helping to cement the band’s new sound.
 
-[https://www.youtube.com/watch?v=H3UyPOT1rNQ](https://www.youtube.com/watch?v=H3UyPOT1rNQ)
+[Watch on Youtube: Bruce Springsteen - "Tenth Avenue Freeze-Out" - Providence, 1975-07-20](https://www.youtube.com/watch?v=H3UyPOT1rNQ)
 
 In December, the song was released as a single, but it barely cracked the Hot 100 and only charted for three short weeks. But it quickly became a fan favorite in concert.
 
 Bruce started re-arranging and re-interpreting “Tenth Avenue Freeze-Out” almost immediately. At the year’s last stand at Philadelphia’s Tower Theater, Bruce debuted a stunning (and never repeated) slow full-band arrangement. Fittingly, Clarence’s vocals and Steve’s guitar are just as prominent as Bruce’s lead.
 
-[https://www.youtube.com/watch?v=7DLG0uylO8w](https://www.youtube.com/watch?v=7DLG0uylO8w)
+[Watch on Youtube: Bruce Springsteen 10th avenue freeze out. Versión blusera muy lenta (subtitulada ESPAÑOL) 31/12/1975](https://www.youtube.com/watch?v=7DLG0uylO8w)
 
 But for the most part, it remained true to its original uptempo strut. It’s been a mainstay of every tour, and frequently a showcase for the guest-starring Miami Horns.
 
-[https://www.youtube.com/watch?v=Cl55sfgBX1w](https://www.youtube.com/watch?v=Cl55sfgBX1w)
+[Watch on Youtube: Tenth Avenue Freeze-Out [Live] - Bruce Springsteen & the E Street Band (Live 1975/85)](https://www.youtube.com/watch?v=Cl55sfgBX1w)
 
 During the E Street Band’s decade-long hiatus, “Tenth Avenue” went missing in action for the most part. When it did surface, it carried extra heft. At Bruce’s pair of solo acoustic shows in 1990, the song sounded forlorn. With no one present to remind him to get the picture, it seemed Bruce had forgotten the lesson that led him to write the song.
 
-[https://www.youtube.com/watch?v=H1Am-ERrfVc](https://www.youtube.com/watch?v=H1Am-ERrfVc)
+[Watch on Youtube: Bruce Springsteen - Tenth Avenue Freeze-Out](https://www.youtube.com/watch?v=H1Am-ERrfVc)
 
 But the next time it surfaced, he’d remembered: At a special benefit show in 1993, Bruce was joined by two surprise guests, and the trio celebrated by the song was reunited.
 
-[https://www.youtube.com/watch?v=rbSBt9Jp8Ms](https://www.youtube.com/watch?v=rbSBt9Jp8Ms)
+[Watch on Youtube: Tenth Avenue Freeze Out Bruce Springsteen with THE BIG MAN Clarence Clemons June 24 93 NJ](https://www.youtube.com/watch?v=rbSBt9Jp8Ms)
 
 That night, that moment, was a powerful emotional release, and Bruce surely noticed. When the E Street Band officially reunited in 1999, “Tenth Avenue Freeze-Out” became the emotional centerpiece of the show, growing in length and power and meaning throughout the tour, and ushering in the modern era of the E Street Band. Bruce gave the song room to breathe and allowed the fans to celebrate each member of the band individually.
 
-[https://www.youtube.com/watch?v=r1twvwbB_cU](https://www.youtube.com/watch?v=r1twvwbB_cU)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Tenth Avenue Freeze-Out (Live in New York City)](https://www.youtube.com/watch?v=r1twvwbB_cU)
 
 Probably because of its outsize presence on the Reunion Tour, Bruce largely gave the song a rest during the Rising Tour. It returned on the Magic Tour, however, and it’s been an encore staple ever since. Even after Clarence passed away in 2011, Bruce made the song a permanent setlist fixture, using it not only to pay tribute to his dearly departed friends (Danny Federici had passed three years prior) but to immortalize them–halting the song during the final verse for an arena-shaking roar of release, remembrance, and love.
 
-[https://www.youtube.com/watch?v=Jl31oHGilsE](https://www.youtube.com/watch?v=Jl31oHGilsE)
+[Watch on Youtube: Tenth Ave Freeze-Out - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=Jl31oHGilsE)
 
 The break in the song eventually healed, just like a broken heart does, but “Tenth Avenue Freeze-Out” remained and likely will always be a nightly E Street ritual, a communal tribute and celebration of…
 
-[https://www.youtube.com/watch?v=r1twvwbB_cU?start=1090](https://www.youtube.com/watch?v=r1twvwbB_cU?start=1090)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Tenth Avenue Freeze-Out (Live in New York City)](https://www.youtube.com/watch?v=r1twvwbB_cU?start=1090)
 
 **Tenth Avenue Freeze-Out**  
 **Recorded:** May 5-16, 1975  
@@ -135,4 +135,4 @@ The break in the song eventually healed, just like a broken heart does, but “T
 **First performed:** July 20, 1975 (Providence, RI)  
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

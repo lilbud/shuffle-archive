@@ -1,20 +1,20 @@
 Because the album that represents The Ghost of Tom Joad recording sessions is so serious and earnest, we tend to characterize that entire period as such.
 
-But for all of the socially conscious material that made it on to the album, there were the misfits that were left by the wayside. “[Tiger Rose](http://estreetshuffle.com/index.php/2019/01/26/rotd-matr-cm-tiger-rose/),” for example, was an adulterous rockabilly farce; Bruce ended up giving it away to Sonny Burgess. “[I’m Turning Into Elvis](https://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/)” was a parody on the surface but belied some lurking sub-basement insecurity.
+But for all of the socially conscious material that made it on to the album, there were the misfits that were left by the wayside. “[Tiger Rose](https://estreetshuffle.com/index.php/2019/01/26/rotd-matr-cm-tiger-rose/),” for example, was an adulterous rockabilly farce; Bruce ended up giving it away to Sonny Burgess. “[I’m Turning Into Elvis](https://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/)” was a parody on the surface but belied some lurking sub-basement insecurity.
 
 And then there were the songs reputedly (and self-reportedly) written along the tour, during those long flights and lonely hotel nights. “[Pilgrim in the Temple of Love](https://estreetshuffle.com/index.php/2020/12/08/roll-of-the-dice-pilgrim-in-the-temple-of-love/)” is the best-known of these, probably because of its racy subject matter. But “Sell It and They Will Come” came first–in fact, Bruce used the same melody for both, which is probably why Bruce never played them both on the same night, even though he played both throughout the tour.
 
 Here’s Bruce describing the song’s genesis just before he debuted it in Detroit in January 1996:
 
-[http://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3?_=4](http://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3?_=4)
+[https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3?_=4)
 
-<http://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2019/02/SjNQpgFmmjfnxHnJHbtGdk9vhBqzrySMuwPtymQl.mp3>
 
 As for the song itself… well, one could argue that it’s at least as socially conscious as the rest of the Joad material, just in a different fashion. Depending on the night and the delivery, it was either an homage to, lament of, or apology for American infomercials. And although the song has so many pop culture references that it now sounds as dated as “[I’m a Rocker,](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)” the song is as relevant now as it was then.
 
 Let’s take a listen. Here’s one of the clearest recordings of “Sell It and They Will Come,” from Hamburg on February 17, 1997:
 
-[https://www.youtube.com/watch?v=p3gXbDRfLRw](https://www.youtube.com/watch?v=p3gXbDRfLRw)
+[Watch on Youtube: Bruce Springsteen - "Sell It and They Will Come" - Hamburg, 1997-02-17](https://www.youtube.com/watch?v=p3gXbDRfLRw)
 
 Okay, so it’s not among Bruce’s best work; I don’t think Bruce would claim it to be. But it lightened up an otherwise mostly sober setlist. And while the song doesn’t invite (or warrant) particularly deep analysis, let’s take a closer look anyway.
 
@@ -37,7 +37,7 @@ As far as I know, the products and pitchmen Bruce refers to in the song are real
 
 But the Stimulator… that was indeed a thing:
 
-[https://www.youtube.com/watch?v=wRf6N9uWGps](https://www.youtube.com/watch?v=wRf6N9uWGps)
+[Watch on Youtube: "The Stimulator" VHS Introduction Tape... Not nearly as fun as it could have been.](https://www.youtube.com/watch?v=wRf6N9uWGps)
 
 If the Stimulator looks like the igniter for an outdoor grill, that’s because it basically is. You used it (if you bought it) to zap yourself and essentially tase the pain away. What could go wrong?
 
@@ -51,11 +51,11 @@ By the end of the Ghost of Tom Joad Tour, the FDA had shut down the operation, b
 
 Ah, the Flowbee. That was (and is) a real thing, too. It’s still being sold today, but I’m not about to link to it. I will, however, share this demonstration:
 
-[https://www.youtube.com/watch?v=bvz8sEPixCo](https://www.youtube.com/watch?v=bvz8sEPixCo)
+[Watch on Youtube: Flowbee Fun](https://www.youtube.com/watch?v=bvz8sEPixCo)
 
 And Dionne Warwick? Bruce wasn’t talking about her actual friends, he was referring to the organization known as the Psychic Friends Network. Their infomercials ran for many years, but here’s the one that was likely playing during Bruce’s solo acoustic tour:
 
-[https://www.youtube.com/watch?v=myg9bXI-p7Y](https://www.youtube.com/watch?v=myg9bXI-p7Y)
+[Watch on Youtube: Psychic Friends Network #12](https://www.youtube.com/watch?v=myg9bXI-p7Y)
 
 *You can try it, you can buy it, it’ll help you in bed, but don’t be fooled folks: there’s only one*  
 *I forget that guy’s name but somebody said, “Sell it and they will come, boys, sell it and they will come”*
@@ -65,11 +65,11 @@ And Dionne Warwick? Bruce wasn’t talking about her actual friends, he was refe
 
 Cher? Yes, the iconic performer hosted some Lori Davis hair product infomercials in the mid-nineties:
 
-[https://www.youtube.com/watch?v=DLw4yHZ6o_w](https://www.youtube.com/watch?v=DLw4yHZ6o_w)
+[Watch on Youtube: Cher Infomercial For Lori Davis Hair](https://www.youtube.com/watch?v=DLw4yHZ6o_w)
 
 …and as for Tony Little: Why was Bruce so harsh, and why did that line get such applause? Well, imagine seeing this guy all over your television late at night:
 
-[https://www.youtube.com/watch?v=tuPdTmS2j_o](https://www.youtube.com/watch?v=tuPdTmS2j_o)
+[Watch on Youtube: Tony Little's "Ab Isolator" Commercial (1994)](https://www.youtube.com/watch?v=tuPdTmS2j_o)
 
 At least Bruce was honest enough to confess to his own hypocrisy, both in hawking his own wares and perhaps the real reason he found himself unable to switch off the TV:
 
@@ -86,4 +86,4 @@ By the time Bruce embarked on another acoustic tour almost a decade later, he’
 **First performed:** January 10, 1996 (Detroit, MI)  
 **Last performed:** December 6, 1996 (Birmingham, AL)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -22,7 +22,7 @@ If you’ve never listened to *The Ghost of Tom Joad* in a darkened room with ov
 
 *The Ghost of Tom Joad* is widely considered to be a solo album, but only seven of its twelve tracks qualify as such. The other five feature small combos that include E Streeters Garry Tallent, Danny Federici, and Soozie Tyrell playing with remarkable delicacy. *Every* musician on the album plays that way. If there’s a single word that describes the album’s sound it would be: gentle. It takes a close, careful and above all *quiet* listen to truly appreciate the delicate beauty of this collection.
 
-[https://www.youtube.com/watch?v=CumZ9dugKKU?list=OLAK5uy_kJWc11v4XUCaBVwStO3aZtEU58NmRDcD8](https://www.youtube.com/watch?v=CumZ9dugKKU?list=OLAK5uy_kJWc11v4XUCaBVwStO3aZtEU58NmRDcD8)
+[Watch on Youtube: The Ghost of Tom Joad](https://www.youtube.com/watch?v=CumZ9dugKKU?list=OLAK5uy_kJWc11v4XUCaBVwStO3aZtEU58NmRDcD8)
 
 This is also one of Springsteen’s most thematically cohesive albums. At the time of its release in 1995, only *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)* rivaled it for focus.
 

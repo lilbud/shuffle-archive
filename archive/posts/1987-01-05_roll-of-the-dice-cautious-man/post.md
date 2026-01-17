@@ -2,13 +2,13 @@
 
 It’s an iconic scene in movie history: the Reverend Harry Powell’s tale of Love vs. Hate in the 1955 film *Night of the Hunter.*
 
-[https://www.youtube.com/watch?v=jcTv-BEwabk](https://www.youtube.com/watch?v=jcTv-BEwabk)
+[Watch on Youtube: The Night of the Hunter (3/11) Movie CLIP - Love and Hate (1955) HD](https://www.youtube.com/watch?v=jcTv-BEwabk)
 
 That notion of love and hate waging eternal war within us–symbolized by the tattooed words on the hands we use for both–imprinted itself on viewers and artists alike.
 
 In 1989, Spike Lee paid homage to that scene in his cinema classic, *Do the Right Thing.* 
 
-[https://www.youtube.com/watch?v=pa-oUPTr9LI](https://www.youtube.com/watch?v=pa-oUPTr9LI)
+[Watch on Youtube: Do the Right Thing (6/10) Movie CLIP - LOVE and HATE (1989) HD](https://www.youtube.com/watch?v=pa-oUPTr9LI)
 
 (Do *the Right Thing* also features a direct and discomfiting Springsteen reference that I don’t feel comfortable sharing here for reasons obvious to anyone who’s seen the film. If you haven’t, you really should. But I digress.)
 
@@ -20,7 +20,7 @@ By the mid-eighties, Bruce was self-aware enough to recognize those tendencies w
 
 And while Bruce is almost always coy and careful when asked whether his songs are autobiographical, it’s hard to imagine that “Cautious Man” is anything but. Even Bruce admitted (in Peter Ames Carlin’s outstanding 2012 biography, *Bruce*), “If there was some part of myself that I was trying to explain, for better or worse, that song describes a good amount of it.”
 
-[https://www.youtube.com/watch?v=QRHPkseMFnU](https://www.youtube.com/watch?v=QRHPkseMFnU)
+[Watch on Youtube: Cautious Man](https://www.youtube.com/watch?v=QRHPkseMFnU)
 
 While it’s true that Bruce invented a character for “Cautious Man,” the similarities between Bill Horton and Bruce Springsteen are evident from the first verse.
 
@@ -81,15 +81,15 @@ For cautious men, there’s no ending, just a long road.
 
 “Cautious Man” is more than a quiet song–it’s a delicate one. Bruce’s phrasing and instrumentation are intimate and very deliberate, which is likely why Bruce has so rarely performed it in concert.
 
-In fact, “Cautious Man” only made a single stage appearance in the first seventeen years since its studio release. At his Bloomington stop on the *Tunnel of Love Express* Tour, Bruce premiered it following “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” a sequence that hints at a likely reason why Bruce chose that night to debut it. (See my entry for “[Boom Boom](http://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)” for a much bigger hint.)
+In fact, “Cautious Man” only made a single stage appearance in the first seventeen years since its studio release. At his Bloomington stop on the *Tunnel of Love Express* Tour, Bruce premiered it following “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” a sequence that hints at a likely reason why Bruce chose that night to debut it. (See my entry for “[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)” for a much bigger hint.)
 
-[https://www.youtube.com/watch?v=4VtfZH44nqk](https://www.youtube.com/watch?v=4VtfZH44nqk)
+[Watch on Youtube: Bruce Springsteen - CAUTIOUS MAN 1988 (audio)](https://www.youtube.com/watch?v=4VtfZH44nqk)
 
 It would take another seventeen years for Bruce to play “Cautious Man” in public again. Early into his solo acoustic tour, Bruce shocked his Hollywood audience by resurrecting “Cautious Man” after its long absence, introducing it as a song about “brinksmanship,” which may be the closest he’s ever come to acknowledging its inspiration. He played it several more times during the tour, but only by way of a simple introduction as “one of my favorites.”
 
 Here’s Bruce’s last performance of “Cautious Man” to date, in East Rutherford toward the tail end of the Devils & Dust Tour.
 
-[https://www.youtube.com/watch?v=Yxtw7W5xZao](https://www.youtube.com/watch?v=Yxtw7W5xZao)
+[Watch on Youtube: Bruce Springsteen - Cautious Man (Solo Acoustic) - E. Rutherford-11/17/05](https://www.youtube.com/watch?v=Yxtw7W5xZao)
 
 **Cautious Man  
 Recorded:** January-April 1987  

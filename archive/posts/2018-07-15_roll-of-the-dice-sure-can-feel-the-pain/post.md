@@ -2,7 +2,7 @@ Bruce is a self-confessed fan of psychedelic rock, even if its influence can be 
 
 Case in point: listen to this 13-minute guitar epic from Bruce’s days fronting The Bruce Springsteen Band. Recorded at a concert at The Student Prince on December 3, 1971, this would appear to be the only known performance and recording of this Springsteen original composition.
 
-[https://www.youtube.com/watch?v=bKUlWPTptBY](https://www.youtube.com/watch?v=bKUlWPTptBY)
+[Watch on Youtube: Bruce Springsteen Band - SURE CAN FEEL THE PAIN 1971 (audio)](https://www.youtube.com/watch?v=bKUlWPTptBY)
 
 What’s it about? I like to think I’m pretty good at analyzing Bruce’s catalog, but I have to admit this one–with its surrealistic imagery and that impenetrable last verse–escapes me. But that may be precisely the goal, as it is with much acid rock.
 
@@ -67,4 +67,4 @@ Never Released
 First performed:** December 3, 1971 (Asbury Park, NJ)  
 **Last performed:** December 3, 1971 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

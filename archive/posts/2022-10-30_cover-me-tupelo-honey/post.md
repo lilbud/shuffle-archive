@@ -8,13 +8,13 @@ Springsteen named Morrison’s “Madame George” one of his desert island disc
 
 Bruce has often cited Morrison’s *Astral Weeks* album as a huge influence on his work, but his admiration for Morrison extends beyond 1968. Greil Marcus suggests that “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” is structurally based on Morrison’s 1972 single, “Tupelo Honey.”
 
-[https://www.youtube.com/watch?v=QGkQ4mPiyoU](https://www.youtube.com/watch?v=QGkQ4mPiyoU)
+[Watch on Youtube: Tupelo Honey](https://www.youtube.com/watch?v=QGkQ4mPiyoU)
 
 That may or may not be true, but it’s certainly clear that Bruce was an admirer of Morrison’*s Tupelo Honey* album. The title track never cracked the Top 40, but Morrison’s romantic lyrics and impassioned vocals made it a favorite of both fans and artists.
 
 When Bruce took the E Street Band on tour in support of his *Tunnel of Love* album in 1988, he frequently added romantic covers into his setlists and sound checks. At a couple of early sound checks, he led the band through not one but three of Morrison’s hits: “[Brown Eyed Girl](https://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/), “[Crazy Love](https://estreetshuffle.com/index.php/2019/06/27/cover-me-crazy-love/),” and “Tupelo Honey.” The latter two actually share the same melody, so Bruce performed them as a medley as Morrison often has in concert.
 
-[https://www.youtube.com/watch?v=0SQ-gElK3lE](https://www.youtube.com/watch?v=0SQ-gElK3lE)
+[Watch on Youtube: Bruce Springsteen - CRAZY LOVE/ TUPELO HONEY 1988 (audio)](https://www.youtube.com/watch?v=0SQ-gElK3lE)
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/09-Tupelo-Honey.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/10/09-Tupelo-Honey.mp3?_=8)
 

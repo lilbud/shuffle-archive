@@ -4,7 +4,7 @@ Pete Seeger was right: they had to sing *all* the verses. Because that day–Jan
 
 On the day that America’s first Black president assumed his office, Woody Guthrie’s biting response to “God Bless America” was stripped of its bitter irony and gleamed under the grey winter skies like a jewel in the sun.
 
-[https://www.youtube.com/watch?v=wnvCPQqQWds](https://www.youtube.com/watch?v=wnvCPQqQWds)
+[Watch on Youtube: Pete Seeger & Bruce Springsteen - This Land is Your Land - Obama Inauguration](https://www.youtube.com/watch?v=wnvCPQqQWds)
 
 As was his habit, Seeger spoon-fed the crowd each line a half-second before they sang it back to him. For the first several verses, it was unnecessary. Anyone who went to primary school in America knows the words by heart.
 
@@ -35,7 +35,7 @@ That’s the message of Guthrie’s song, but to this day it goes largely unreco
 
 He wrote the song in 1939 with the best of intentions. Ironically, he was inspired by another saccharinely patriotic song that was wildly popular that year: Irving Berlin’s “God Bless America.”
 
-[https://www.youtube.com/watch?v=QGMHnNqAjrI](https://www.youtube.com/watch?v=QGMHnNqAjrI)
+[Watch on Youtube: 1939 HITS ARCHIVE: God Bless America - Kate Smith (her original recording)](https://www.youtube.com/watch?v=QGMHnNqAjrI)
 
 Berlin’s song, like Guthrie’s more well-known verses, is merely a catalog of American natural treasures. However, Berlin also wrote an introduction that didn’t make Kate Smith’s recording but which she performed in concert whenever she sang the song:
 
@@ -48,9 +48,9 @@ Yes, it was wartime. (Berlin actually wrote “God Bless America” during World
 
 Guthrie wrote “This Land Is Your Land” as an answer to “God Bless America,” copying and polishing its catalog of wonders and even titling it originally as “God Blessed America For Me.” He borrowed the melody from two popular songs by The Carter Family, “Little Darling, Pal of Mine” and “When the World’s On Fire.”
 
-[https://www.youtube.com/watch?v=jit3r-NNlys](https://www.youtube.com/watch?v=jit3r-NNlys)
+[Watch on Youtube: The Carter Family - When The World's On Fire (1930)](https://www.youtube.com/watch?v=jit3r-NNlys)
 
-[https://www.youtube.com/watch?v=Ci4C-IUr2EY](https://www.youtube.com/watch?v=Ci4C-IUr2EY)
+[Watch on Youtube: The Carter Family - Little Darling, Pal Of Mine (1935)](https://www.youtube.com/watch?v=Ci4C-IUr2EY)
 
 Lyrically, Guthrie balanced his song by pointing out where America was falling short and failing its citizens. When he first recorded it in 1944, “This Land Is Your Land” included one of his additional verses:
 
@@ -59,11 +59,11 @@ Lyrically, Guthrie balanced his song by pointing out where America was falling s
 *But on the back side it didn’t say nothin’*  
 *This land was made for you and me*
 
-[https://www.youtube.com/watch?v=1my1jn6QHzE](https://www.youtube.com/watch?v=1my1jn6QHzE)
+[Watch on Youtube: This Land is Your Land - Woody Guthrie](https://www.youtube.com/watch?v=1my1jn6QHzE)
 
 No one heard that version, though. It stayed in the vault for a half-century before it was finally released. The version most of us are familiar with is the sanitized one he released in 1951. By then, an anti-communist fervor was sweeping the country, and it’s possible that the sympathetic Guthrie was nevertheless wary of being blacklisted.
 
-[https://www.youtube.com/watch?v=xH0Xd8yxH4Q](https://www.youtube.com/watch?v=xH0Xd8yxH4Q)
+[Watch on Youtube: This Land is Your Land](https://www.youtube.com/watch?v=xH0Xd8yxH4Q)
 
 “This Land Is You Land” was never a hit. You wouldn’t have found it on the radio or in jukeboxes, and yet somehow it became ingrained in American schoolchildren from the redwood forests to the New York island.
 
@@ -71,19 +71,19 @@ Credit ethnomusicologist Alan Lomax, who made it his mission to preserve America
 
 That’s how “This Land Is Your Land” came to be sung in classrooms across America, rivaling and perhaps surpassing “God Bless America” in its ubiquity. And while most Americans weren’t aware of the political leanings of its author, enough were to keep its message alive.
 
-[https://www.youtube.com/watch?v=hzZE9fZFRy8](https://www.youtube.com/watch?v=hzZE9fZFRy8)
+[Watch on Youtube: Sarah Paulson best scene in Mrs America](https://www.youtube.com/watch?v=hzZE9fZFRy8)
 
 Even though the versions in print and on record excluded Guthrie’s sharpest lyrics, the folk music tradition kept them alive, with Seeger in particular insisting on performing every single verse when he sang it.
 
-[https://www.youtube.com/watch?v=rYKaLs7A4zM](https://www.youtube.com/watch?v=rYKaLs7A4zM)
+[Watch on Youtube: Pete Seeger - "This Land Is Your Land" (Unreleased) [Official Audio]](https://www.youtube.com/watch?v=rYKaLs7A4zM)
 
 Bruce Springsteen, for all his professed hesitancy in the pull-quote at the top of this essay, always insisted on performing all the verses, starting with his first performance in 1980, a performance he included in his *Live 1975-85* box set six years later, to the puzzlement of many fans.
 
-[https://www.youtube.com/watch?v=2Cs2woIb2fY](https://www.youtube.com/watch?v=2Cs2woIb2fY)
+[Watch on Youtube: This Land is Your Land (Live at Nassau Coliseum, Uniondale, NY - December 1980)](https://www.youtube.com/watch?v=2Cs2woIb2fY)
 
 Springsteen was captivated with the beauty and poetry of Guthrie’s words, along with Guthrie’s ability to simultaneously hold his country accountable. He continued performing “This Land Is Your Land” throughout the remainder of the River Tour (even in Europe), and he reprised it in the summer of 1985 on the Born in the USA Tour. The version below (from Bruce’s tour-closing stand in Los Angeles) remains his definitive performance.
 
-[https://videopress.com/embed/G2VDe202](https://videopress.com/embed/G2VDe202)
+[Watch Video Highlight](https://videopress.com/embed/G2VDe202)
 
 When Bruce next toured in 1988, “This Land Is Your Land” didn’t fit his relationship-themed setlist, so he retired it from rotation. Other than a brief ensemble encore at a 1996 Woody Guthrie tribute concert, it would be decades before Bruce performed Guthrie’s signature song again in public.
 
@@ -95,13 +95,13 @@ In Philadelphia, Columbus, Cleveland, and Ypsilanti, Michigan, Bruce took to the
 
 Springsteen’s arrangement of “This Land Is Your Land” that year was far removed from his 1980s performances. Feeling victory in the air, his performances were optimistic, energizing and galvanizing. This video from his Michigan rally–with endearing behind-the-scenes footage of the Obama family singing and dancing along–is a rarely seen treasure.
 
-[https://www.youtube.com/watch?v=15O34MS3CZ0](https://www.youtube.com/watch?v=15O34MS3CZ0)
+[Watch on Youtube: (Official Video) Bruce Springsteen - New - This Land Is Your Land - By the People: For the People](https://www.youtube.com/watch?v=15O34MS3CZ0)
 
 Bruce went on to perform “This Land Is Your Land” a handful of times since, including in the 2009 film *The People Speak*, and a star-studded closing encore at South by Southwest.
 
-[https://www.youtube.com/watch?v=bL34HXegnT0](https://www.youtube.com/watch?v=bL34HXegnT0)
+[Watch on Youtube: Bruce Springsteen | This Land Is Your Land - The People Speak - 2009](https://www.youtube.com/watch?v=bL34HXegnT0)
 
-[https://www.youtube.com/watch?v=pYdwoJqkMbA](https://www.youtube.com/watch?v=pYdwoJqkMbA)
+[Watch on Youtube: Bruce Springsteen & The E Street Band with Friends - This Land is Your Land (Pro-Shot)](https://www.youtube.com/watch?v=pYdwoJqkMbA)
 
 But no performance of “This Land Is Your Land” by anyone was seen by or touched as many people as Bruce’s duet with Pete Seeger on the steps of the Lincoln Memorial on Inauguration Day, 2009.
 

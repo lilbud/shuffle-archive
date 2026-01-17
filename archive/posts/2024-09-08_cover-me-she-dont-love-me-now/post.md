@@ -13,13 +13,13 @@ If we listen to “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/rol
 Which is why it’s so refreshing to hear Bruce’s rendition of Jesse Malin’s “She Don’t Love Me Now,”  
 a return to form for Bruce and a fitting tribute to [an artist we’ve featured here many times before](https://estreetshuffle.com/?s=jesse+malin).
 
-[https://www.youtube.com/watch?v=gLK-Z9QilVk](https://www.youtube.com/watch?v=gLK-Z9QilVk)
+[Watch on Youtube: Bruce Springsteen/Jesse Malin - She Don't Love Me Now (Official Visualizer)](https://www.youtube.com/watch?v=gLK-Z9QilVk)
 
 Bruce and Jesse have performed many of Malin’s songs on stage together over the years. Bruce even appears on the studio version of “[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/).”
 
 So why did Bruce choose to cover a song the pair have never performed? I’m guessing it has something to do with the original track’s production. Recorded for Malin’s 2015 album, *New York Before the War*, “She Don’t Love Me Now” is clearly influenced by the classic Stax sound. Even without Jesse’s admission in recent interviews, we can hear it almost immediately in the backing horns, an unusual presence in a Jesse Malin song.
 
-[https://www.youtube.com/watch?v=6-5mB3gs8b8](https://www.youtube.com/watch?v=6-5mB3gs8b8)
+[Watch on Youtube: Jesse Malin - She Don't Love Me Now (Official Music Video)](https://www.youtube.com/watch?v=6-5mB3gs8b8)
 
 Now if we listen to Jesse’s original and Bruce’s cover back-to-back, at first blush they might not sound that different. But they certainly *feel* different, don’t they?
 

@@ -14,7 +14,7 @@ Bruce makes an appearance on the track, too–playing guitar and keyboard and co
 
 Let’s take a listen:
 
-[https://www.youtube.com/watch?v=JhP4ZBIxpeE](https://www.youtube.com/watch?v=JhP4ZBIxpeE)
+[Watch on Youtube: All the way home/Southside Johnny & the Asbury Jukes](https://www.youtube.com/watch?v=JhP4ZBIxpeE)
 
 Man, that’s a great song. Every time I listen to it–and I mean *every* time–I can’t help but get lost in it.
 
@@ -58,11 +58,11 @@ To put it another way: “Tougher Than the Rest” is the song you write before 
 
 Bruce debuted his live solo rendition of “All the Way Home” very early in his 1992 tour, breaking it out in the middle of his homecoming stand at the Meadowlands.
 
-[https://www.youtube.com/watch?v=_FhpvZT3dks](https://www.youtube.com/watch?v=_FhpvZT3dks)
+[Watch on Youtube: Bruce Springsteen All the way home meadowlands 1992](https://www.youtube.com/watch?v=_FhpvZT3dks)
 
 Bruce played it again a week later, this time as a beautiful duet with Southside Johnny.
 
-[https://www.youtube.com/watch?v=4eUlKzoBLTs](https://www.youtube.com/watch?v=4eUlKzoBLTs)
+[Watch on Youtube: Bruce Springsteen with Southside Johnny - ALL THE WAY HOME 1992 live](https://www.youtube.com/watch?v=4eUlKzoBLTs)
 
 For a few weeks, it seemed like we had a setlist keeper on our hands, but unfortunately, Bruce dropped the song by Labor Day. Other than a one-off performance the following spring, Bruce didn’t touch “All the Way Home” for more than two decades.
 
@@ -72,7 +72,7 @@ When the track list was announced for Bruce’s 2005 album, I was delighted to d
 
 But nothing prepared me for what my ears encountered when I first played the CD and heard… this.
 
-[https://www.youtube.com/watch?v=b9rYol3bFeE](https://www.youtube.com/watch?v=b9rYol3bFeE)
+[Watch on Youtube: All The Way Home](https://www.youtube.com/watch?v=b9rYol3bFeE)
 
 Now, don’t get me wrong: I am by no means a purist, traditionalist, or whatever label you want to apply to someone who can’t accept an alternative arrangement to a beloved song. Bruce’s skill as an arranger–his uncanny ability to recast and reinvent his songs time and time again–is in fact the talent of his that I admire the most.
 
@@ -103,7 +103,7 @@ Go back and listen to Southside’s magnificent version and then listen to Bruce
 
 Bruce seems to have intuitively realized this by the time he launched his solo tour in support of *Devils & Dust–*his arrangement of “All the Way Home” kept the spirit of the album version but raised the vocals into an almost falsetto that infused them with vulnerability missing from the studio version.
 
-[https://www.youtube.com/watch?v=lktzNxSulWs](https://www.youtube.com/watch?v=lktzNxSulWs)
+[Watch on Youtube: Bruce Springsteen - Video All The Way Home](https://www.youtube.com/watch?v=lktzNxSulWs)
 
 In 2006, Bruce finally nailed the right mix, combining his more emotional vocals with an instrumental arrangement perfectly suited for the Sessions Band. He only played it three times toward the very end of that all-too-brief tour, but each time he did, “All the Way Home” latched onto the crowd (and vice versa) within its opening bars.
 
@@ -111,7 +111,7 @@ Granted, these were Italian and Spanish crowds, and they latch onto *everything*
 
 So I’ll leave you to listen to it. Turn up the volume and enjoy. I will as well–but then I’m gonna go back and listen to that wonderful Southside version again. That’s the one I hope to hear again someday soon.
 
-[https://www.youtube.com/watch?v=PiDrdW64Vs8](https://www.youtube.com/watch?v=PiDrdW64Vs8)
+[Watch on Youtube: All The Way Home Rome 10/10/2006](https://www.youtube.com/watch?v=PiDrdW64Vs8)
 
 **All the Way Home**  
 **Recorded:** July 1991 (Southside Johnny version), 2004 (Bruce version)  
@@ -119,4 +119,4 @@ So I’ll leave you to listen to it. Turn up the volume and enjoy. I will as wel
 **First performed:** July 30, 1992 (East Rutherford, NJ)  
 **Last performed:** October 25, 2006 (Santander, Spain)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -4,7 +4,7 @@ With apologies to Bruce: the true Queen of the Supermarket belongs to Elvis.
 
 Elvis Costello released “Alison” as the second single from his very first album in 1977. The tender ballad never made the charts, but it became a signature song for Elvis and one of his most beloved.
 
-[https://www.youtube.com/watch?v=C9GlC9GyF4Y](https://www.youtube.com/watch?v=C9GlC9GyF4Y)
+[Watch on Youtube: ELVIS COSTELLO Alison 1977](https://www.youtube.com/watch?v=C9GlC9GyF4Y)
 
 In the winter of 2001, Bruce reprised his successful Asbury Park benefit holiday shows from the previous year, expanding them from a pair to a string of five shows over the course of a week. Every show featured a set list full of holiday classics, Springsteen chestnuts, and eclectic surprises.
 
@@ -12,7 +12,7 @@ The run culminated in a star-studded final show that featured appearances by Bru
 
 Elvis only joined Bruce for two brief numbers, one of which was a cover. The other one, however, was “Alison,” and Costello’s lovely acoustic rendition–with Bruce on backing vocals–was one of the highlights of the night.
 
-[https://videopress.com/embed/yWeJgOPo](https://videopress.com/embed/yWeJgOPo)
+[Watch Video Highlight](https://videopress.com/embed/yWeJgOPo)
 
 (Apologies for the abrupt ending; Elvis segued into “[The Tracks of My Tears](https://estreetshuffle.com/index.php/2019/10/16/matr-soul-asylum-and-bruce-springsteen-the-tracks-of-my-tears/)” from there.)
 

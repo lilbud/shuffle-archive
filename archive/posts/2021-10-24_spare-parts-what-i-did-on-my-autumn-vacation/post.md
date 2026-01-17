@@ -6,7 +6,7 @@ As promised, the *Roll of the Dice, Cover Me, and Meeting Across the River* seri
 
 Last Sunday, I visited the *Bruce Springsteen Live!* exhibit at the Grammy Museum Experience in Newark. Curated, designed and presented by the Bruce Springsteen Archives and Center for American Music, the exhibit is a delight for any true Springsteen fan. Display cases are filled with artifacts familiar and new…
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/IMG_1783.jpeg)
+![](https://estreetshuffle.com/wp-content/uploads/2021/10/IMG_1783-rotated.jpeg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/IMG_1784.jpeg)
 
@@ -20,17 +20,17 @@ It takes about two hours to experience the entirety of the exhibit, but if you�
 
 It was just a one-hour drive from the museum to Asbury Park, where I attended the special *Between the Lines* event that same afternoon with Bruce, Stevie, and a star-studded supporting cast to benefit [TeachRock,](https://teachrock.org/) an organization I’ve been proud to support for years.
 
-This was a strict no-filming event, so I don’t have any video to share–but the good news is that it was professionally filmed, so hopefully everyone will have a chance to watch it someday soon. In the meantime, check out my [Backstreets review](http://backstreets.com/news.html#BTL) for highlights.
+This was a strict no-filming event, so I don’t have any video to share–but the good news is that it was professionally filmed, so hopefully everyone will have a chance to watch it someday soon. In the meantime, check out my [Backstreets review](https://backstreets.com/news.html#BTL) for highlights.
 
 A few days later, I was in New York City for the annual Robin Hood benefit gala, where Bruce made an appearance to play three songs and stuck around to congratulate Paul McCartney, who received a special award from the foundation. And this time filming was permitted, so enjoy Bruce’s performance below, along with my Backstreets report [here](https://www.backstreets.com/news.html#rhf).
 
-[https://videopress.com/embed/V4mnAWFo](https://videopress.com/embed/V4mnAWFo)
+[Watch Video Highlight](https://videopress.com/embed/V4mnAWFo)
 
-[https://videopress.com/embed/UqkgcR2k](https://videopress.com/embed/UqkgcR2k)
+[Watch Video Highlight](https://videopress.com/embed/UqkgcR2k)
 
-[https://videopress.com/embed/7uzJH4Vh](https://videopress.com/embed/7uzJH4Vh)
+[Watch Video Highlight](https://videopress.com/embed/7uzJH4Vh)
 
-[https://videopress.com/embed/XY89nWSA](https://videopress.com/embed/XY89nWSA)
+[Watch Video Highlight](https://videopress.com/embed/XY89nWSA)
 
 The next day, on my way back from New York, I stopped by Monmouth University to visit the [Springsteen Archives](https://springsteenarchives.org/), located in an unimposing small house on campus. The house may be cozy, but each of its rooms are filled to the brim with artifacts, clippings, and other items of historic significance–over 35,000 holdings in all, with more arriving on a regular basis.
 
@@ -44,6 +44,6 @@ The coolest thing I saw during my visit? This iconic hat. If you recognize it, y
 
 I’m already planning to spend a couple more days in the Archives newspaper and periodicals room in the near future to help flesh out next year’s Kingdom of Day’s posts. If you’re interested in checking it out too, read this [FAQ page](https://springsteenarchives.org/faq/) for instructions and expectations. My deep thanks to Eileen Chapman and Tim Cabrey for a wonderful introductory visit.
 
-I also had a chance to take Stan Goldstein and Jean Mikle’s outstanding [Rock and Roll Tour of the Jersey Shore](http://www.njrockmap.com/) while I was in the neighborhood. I’d been on the tour once before a few years ago, but there’s too much history in the Asbury area to fit in a single day. I saw a few new (to me) sights, had lunch at Federici’s in Freehold, met some cool Spring-Nuts, and had a chance to talk with original E Street Band drummer “Mad Dog” Vini Lopez for a bit and hear some great stories. (Vini was a special guest on the tour.) Highly recommended if and when you find yourself in or around Asbury Park sometime.
+I also had a chance to take Stan Goldstein and Jean Mikle’s outstanding [Rock and Roll Tour of the Jersey Shore](https://www.njrockmap.com/) while I was in the neighborhood. I’d been on the tour once before a few years ago, but there’s too much history in the Asbury area to fit in a single day. I saw a few new (to me) sights, had lunch at Federici’s in Freehold, met some cool Spring-Nuts, and had a chance to talk with original E Street Band drummer “Mad Dog” Vini Lopez for a bit and hear some great stories. (Vini was a special guest on the tour.) Highly recommended if and when you find yourself in or around Asbury Park sometime.
 
 It’s been a great week, but it’s time to get back to work. Thanks for sticking around while I enjoyed a change of scenery. Regular content resumes tomorrow.

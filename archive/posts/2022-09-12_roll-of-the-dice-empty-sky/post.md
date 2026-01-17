@@ -1,20 +1,14 @@
 > On the morning of September 11, 2001, with the skies so clear that the Twin Towers across the river appeared to be within reach, the very essence of what our country stands for – freedom, tolerance, and the pursuit of happiness – was attacked.
 > 
-> 
-> 
 > This memorial is dedicated to New Jersey’s innocent loved ones who were violently and senselessly murdered that day at the World Trade Center, The Pentagon, and in Shanksville, PA.
 > 
-> 
-> 
 > Let this memorial reflect the legacies of those whose lives were lost, that their unfulfilled dreams and hopes may result in a better future for society. Their unique qualities and characteristics enriched our lives immeasurably, and through this memorial their stories shall live on.
-> 
-> 
 > 
 > *Inscribed on Empty Sky, the New Jersey September 11th Memorial*
 
 It’s fitting that New Jersey’s official September 11th Memorial borrows its name from a Bruce Springsteen song, because that song captures the loss and grief of those who lost loved ones on that day better than any other–and it does so in only eight unique lines.
 
-[https://www.youtube.com/watch?v=Duxv-4qlCjQ](https://www.youtube.com/watch?v=Duxv-4qlCjQ)
+[Watch on Youtube: Empty Sky](https://www.youtube.com/watch?v=Duxv-4qlCjQ)
 
 *The Rising* is widely considered to be a response to the events of September 11, 2001, and from a curated perspective it certainly is. However, many of the album’s songs were written well before the events of 9/11 and only take on that resonance by theme and proximity.
 
@@ -45,7 +39,7 @@ When we lose someone to an act of horrific evil, Bruce tells us, we have a choic
 
 There’s no sermonizing or moral message in “Empty Sky.” Bruce doesn’t attempt to instruct or persuade. He simply understands and gives voice to the experience of all those who were robbed of their loved ones that day, and in doing so he memorializes it as enduringly as a concrete memorial could.
 
-[https://www.youtube.com/watch?v=Gl4G2P-T0hA](https://www.youtube.com/watch?v=Gl4G2P-T0hA)
+[Watch on Youtube: Jersey City, New Jersey - Empty Sky September 11th Memorial at Liberty State Park (2020)](https://www.youtube.com/watch?v=Gl4G2P-T0hA)
 
 Of course, just because Bruce meant his song as an expression of grief rather than a desire for vengeance, that didn’t preclude some fans from inferring the latter. Enough fans cheered at the “eye for an eye” line enough times that the artists was finally moved to address it during his 2003 concert in Atlantic City.
 
@@ -55,15 +49,17 @@ Of course, just because Bruce meant his song as an expression of grief rather th
 
 Other than the rare exceptional occasion, Bruce typically found his audiences receptive to his quiet, introspective song. That was very likely due at least in part to the arrangement he used in concert: a quiet, plaintive acoustic duet with Patti Scialfa that betrayed not a hint of anger.
 
-[https://www.youtube.com/watch?v=GwpcTn1djC8](https://www.youtube.com/watch?v=GwpcTn1djC8)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Empty Sky (Live In Barcelona)](https://www.youtube.com/watch?v=GwpcTn1djC8)
 
 “Empty Sky” made a handful of appearances on Bruce’s solo Devils and Dust Tour, including the tour finale in Trenton.
 
-[https://www.youtube.com/watch?v=x4e5K2fBMR0](https://www.youtube.com/watch?v=x4e5K2fBMR0)
+[Watch on Youtube: Empty Sky (Live at Sovereign Bank Arena , Trenton, NJ - 11/22/05 - Official Audio)](https://www.youtube.com/watch?v=x4e5K2fBMR0)
 
 In the years since, “Empty Sky” has been essentially relegated to the history books (apart from a couple of cameos), too quiet for Bruce’s rock setlists and too far removed from the original events for modern audiences to appreciate its nuance. On vinyl, though, it remains one of the central, essential tracks that gives *The Rising* its enduring power.
 
-[https://videopress.com/embed/1Uvx6IoY](https://videopress.com/embed/1Uvx6IoY)
+[Watch Video Highlight](https://videopress.com/embed/1Uvx6IoY)
+
+
 
 **Empty Sky  
 Recorded:** March-April, 2002  

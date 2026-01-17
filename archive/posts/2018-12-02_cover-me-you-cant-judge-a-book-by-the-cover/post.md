@@ -2,7 +2,7 @@ It’s rare for Bruce to include a cover song on a studio album, but it’s been
 
 He did it most recently on *Chapter & Verse*, where he spotlighted his earliest (officially released) cover: Bo Diddley’s “You Can’t Judge a Book by the Cover.”
 
-[https://www.youtube.com/watch?v=BDjQdv0OS0Q](https://www.youtube.com/watch?v=BDjQdv0OS0Q)
+[Watch on Youtube: You Can't Judge a Book by the Cover](https://www.youtube.com/watch?v=BDjQdv0OS0Q)
 
 Ouch. Sounds rough, doesn’t it?
 

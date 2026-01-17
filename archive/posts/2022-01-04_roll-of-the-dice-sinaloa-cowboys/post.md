@@ -1,10 +1,6 @@
 > “The cookers themselves–recruited from the fields–sometimes are not aware of the dangers. Hydriodic acid… eats through not only skin but concrete. If inhaled, its fumes cause chemical pneumonia, which can bring a quick, painful death.
 > 
-> 
-> 
 > “‘We have no idea how may dead Mexicans we find in the desert died from breathing in meth fumes,’ one DEA agent said.”
-> 
-> 
 > 
 > — Mark Arax and Tom Gorman, *Los Angeles Times,* March 13, 1995
 
@@ -16,7 +12,7 @@ Arax and Gorman revealed a vast Mexican network of methamphetamine laboratories 
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/01/Sinaloa1resize.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/01/Sinaloa2.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2022/01/Sinaloa2-scaled.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/01/Sinaloa3.jpg)
 
@@ -34,7 +30,7 @@ But Arax and Gorman weren’t the only inspiration for Bruce’s tale. “A song
 
 Something about his transient friend’s intimately personal tragedy combined with the backdrop of a larger epidemic fused in Bruce’s mind, and the result was the quiet short story/folk song that Bruce included on his 1995 album, [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/).
 
-[https://www.youtube.com/watch?v=zOVHCOOqJyo](https://www.youtube.com/watch?v=zOVHCOOqJyo)
+[Watch on Youtube: Sinaloa Cowboys](https://www.youtube.com/watch?v=zOVHCOOqJyo)
 
 “Sinaloa Cowboys” is the tragic three-act story of Miguel and Louis Rosales, two fictional young brothers from northern Mexico who cross the border to make a decent living as field workers in California, despite their father’s warning that no gift comes without a price. It’s a somber, contemplative performance, performed entirely by Bruce and solely on his acoustic guitar and keyboard.
 
@@ -78,17 +74,17 @@ Bruce tells his story in rich detail and plain language without a trace of metap
 
 Bruce credited the reporters in his album liner notes, and he dedicated the song nightly to his unnamed Arizona biker friend throughout his solo acoustic tour from 1995 to 1997.
 
-[https://www.youtube.com/watch?v=utGY3x0oiLs](https://www.youtube.com/watch?v=utGY3x0oiLs)
+[Watch on Youtube: Bruce Springsteen - Sinaloa Cowboys (live Firenze '97)](https://www.youtube.com/watch?v=utGY3x0oiLs)
 
 “Sinaloa Cowboys” worked perfectly on the Ghost of Tom Joad Tour. Bruce politely (and sometimes not-so-politely) asked for and received respectful quiet to give his songs room to breathe, and in that space it was easy to close your eyes and watch the story of the Rosales brothers as if on the silver screen.
 
 But when Bruce reunited the E Street Band in 1999, most of the songs from his recent solo album didn’t or couldn’t successfully translate to the E Street stage. Bruce did give “Sinaloa Cowboys” a shot once, though–in Oakland on October 28, 1999, the song’s only full-band performance ever.
 
-[https://www.youtube.com/watch?v=bLo07jpukyM](https://www.youtube.com/watch?v=bLo07jpukyM)
+[Watch on Youtube: Bruce Springsteen - SINALOA COWBOYS 1999 (audio)](https://www.youtube.com/watch?v=bLo07jpukyM)
 
 Besides that full-band one-off, “Sinaloa Cowboys” has made only three appearances in the years since–all acoustic, and none later than 2005.
 
-[https://www.youtube.com/watch?v=E2tBZDyBbqM](https://www.youtube.com/watch?v=E2tBZDyBbqM)
+[Watch on Youtube: Bruce Springsteen - SINALOA COWBOYS 2005 live](https://www.youtube.com/watch?v=E2tBZDyBbqM)
 
 Bruce wrote and released “Sinaloa Cowboys” not long after the Sinaloa Cartel first came to American awareness and attention. In the years since, both the cartel and their product have only strengthened their hold, their leader El Chapo becoming an almost mythical anti-folk hero.
 

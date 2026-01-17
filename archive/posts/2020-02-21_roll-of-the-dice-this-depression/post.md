@@ -14,7 +14,7 @@ Serving as the centerpiece of an economic-themed album, Bruce slyly camouflaged 
 
 In other words, Bruce’s depression was hiding in plain sight all the time.
 
-[https://www.youtube.com/watch?v=QqjRo8Etmzg](https://www.youtube.com/watch?v=QqjRo8Etmzg)
+[Watch on Youtube: This Depression](https://www.youtube.com/watch?v=QqjRo8Etmzg)
 
 Anchored by an intentionally plodding, almost miring drum beat (played by Bruce), punctuated by Patti’s wordless, distant backing vocals, and abstracted by Tom Morello’s otherworldly guitar solo, Bruce and producer Ron Aniello crafted the sonic equivalent of depression.
 
@@ -65,21 +65,21 @@ Bruce debuted “This Depression” in concert twice: on back-to-back nights in 
 
 On Night One, Bruce premiered “This Depression” as an intimate solo performance on acoustic guitar and harmonica. It’s a beautiful arrangement that lays bare the soul of the song, and although fan-filmed videos can be very deceptive depending on where the filmer is placed, the crowd appears rapt by Bruce’s vulnerable performance.
 
-[https://www.youtube.com/watch?v=Y1g5pVM2VsY](https://www.youtube.com/watch?v=Y1g5pVM2VsY)
+[Watch on Youtube: Bruce Springsteen - Live in Bergen 23 July 2012 - This Depression (Acoustic)](https://www.youtube.com/watch?v=Y1g5pVM2VsY)
 
 Bruce played it again on Night Two, this time with the full E Street Band behind him:
 
-[https://www.youtube.com/watch?v=_js1gWuxB_E](https://www.youtube.com/watch?v=_js1gWuxB_E)
+[Watch on Youtube: Bruce Springsteen - This Depression (Full Band), Bergen, Jul 24, 2012](https://www.youtube.com/watch?v=_js1gWuxB_E)
 
 In that first performance, Nils Lofgren’s guitar solos impress in their own right, but “This Depression” really needs Tom Morello’s presence to convey the eerie alienation of the full-band arrangement.
 
 Fortunately, Tom made more than a few guest appearances on the Wrecking Ball Tour, and Bruce made sure to take advantage of the opportunity during a few of their U.S. performances. Here’s one of the best ones, from the penultimate show of the American leg:
 
-[https://www.youtube.com/watch?v=J9gct0PZchc](https://www.youtube.com/watch?v=J9gct0PZchc)
+[Watch on Youtube: Bruce Springsteen " This Depression" Anaheim, CA 12-4-12](https://www.youtube.com/watch?v=J9gct0PZchc)
 
 “This Depression” made only one more appearance after that Anaheim performance above. On July 24, 2013 (a year to the day from its full-band debut), Bruce played “This Depression” for the last time to date.
 
-[https://www.youtube.com/watch?v=AtnJexfbZ0w](https://www.youtube.com/watch?v=AtnJexfbZ0w)
+[Watch on Youtube: Bruce Springsteen - This Depression (Leeds, July 24, 2013)](https://www.youtube.com/watch?v=AtnJexfbZ0w)
 
 Despite a momentary lyrical lapse and some audio difficulties during Nils’ solo, it’s a powerful performance and a reminder that “This Depression” deserves more frequent outings in the future.
 
@@ -89,4 +89,4 @@ Recorded**: Unknown
 **First performed**: July 23, 2012 (Bergen, Norway)  
 **Last performed**: July 24, 2013 (Leeds, England)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

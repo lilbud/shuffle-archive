@@ -7,7 +7,7 @@ When Nina Simone released her devastatingly vulnerable and powerful “Don’t L
 
 And yet there it is, at the end of the song: a simple but instantly recognizable violin riff familiar to anyone in E Street Nation.
 
-[https://www.youtube.com/watch?v=9ckv6-yhnIY](https://www.youtube.com/watch?v=9ckv6-yhnIY)
+[Watch on Youtube: Nina Simone - Don't Let Me Be Misunderstood](https://www.youtube.com/watch?v=9ckv6-yhnIY)
 
 I’d like to think Bruce would have discovered “Don’t Let Me Be Misunderstood” anyway at some point, because it’s such an incredible song, and because Simone’s performance is far and away better than any cover by anyone else since. (That may be hyperbole, since I haven’t heard them all, but just take another listen to her searing vocals and tell me: can *you* imagine anyone topping that?)
 
@@ -19,7 +19,7 @@ https://www.youtube.com/watch?v=IC6uXVGVnq0
 
 Still, it was enough to capture the imagination of Bruce Springsteen, a long-avowed Animals fan. A decade ago, Bruce and Little Steven shared their mutual appreciation of The Animals on an episode of *Little Steven’s Underground Garage*, and it was then that Bruce spilled the beans about “Badlands.” Take a listen:
 
-[https://videopress.com/embed/Vi2qMA7f](https://videopress.com/embed/Vi2qMA7f)
+[Watch Video Highlight](https://videopress.com/embed/Vi2qMA7f)
 
 And yet even though he’d covered The Animals many times in concert, and even though “Don’t Let Me Be Misunderstood” inspired one of his most-performed songs, Bruce has never covered it in concert.
 
@@ -27,7 +27,7 @@ However, he did sound check it once.
 
 At a rehearsal in Atlanta on the Tunnel of Love Tour, Bruce and the E Street Band broke in “Don’t Let Me Be Misunderstood,” with the Miami Horns joining Danny Federici’s organ to make the riff more powerful than ever.
 
-[https://www.youtube.com/watch?v=t7ztfMGFjL8](https://www.youtube.com/watch?v=t7ztfMGFjL8)
+[Watch on Youtube: Bruce Springsteen - DON'T LET ME BE MISUNDERSTOOD 1988 (audio)](https://www.youtube.com/watch?v=t7ztfMGFjL8)
 
 Given the theme of the tour, what was going on in his life at the time, and all that Bruce has shared in recent years about his lifelong mental health challenges, it’s no wonder “Don’t Let Me Be Misunderstood” spoke to him.
 
@@ -36,5 +36,3 @@ The only wonder is why he’s never performed it at a proper concert.
 **Don’t Let Me Be Misunderstood  
 First Performed:** March 23, 1988 (Atlanta, GA) – soundcheck only  
 **Last Performed:** March 23, 1988 (Atlanta, GA) – soundcheck only
-
- 

@@ -61,9 +61,7 @@ The fact that “Spirit in the Night” swings as much as it does is entirely du
 
 Let’s take a listen.
 
- 
-
-[https://www.youtube.com/watch?v=hFEeqfqoTSY](https://www.youtube.com/watch?v=hFEeqfqoTSY)
+[Watch on Youtube: Spirit in the Night](https://www.youtube.com/watch?v=hFEeqfqoTSY)
 
 “Spirit in the Night” attracts a lot of discussion among fans trying to dissect it, but it’s actually pretty direct, at least by early Springsteen standards. The setup couldn’t be simpler: Crazy Janey and the bishop–oops, I mean her mission man–are playing cards in the alley when a car pulls up with Wild Billy and G-Man.
 
@@ -136,43 +134,43 @@ It also provides the first glimpse at what would eventually evolve into the E St
 
 “Spirit in the Night” made its live debut mere weeks after its vinyl debut. Here’s the earliest known performance, from January 31, 1973.
 
-[https://videopress.com/embed/fJbgXAjP](https://videopress.com/embed/fJbgXAjP)
+[Watch Video Highlight](https://videopress.com/embed/fJbgXAjP)
 
 Even in that earliest performance, we can hear Bruce reaching for the drama, milking the late-song pause for effect. Over the years, the song would grow in length and passion, and we are fortunate to have so many professionally filmed, officially released performances from different eras to trace its arc. From the earliest days in 1973…
 
-[https://www.youtube.com/watch?v=aNNJh1fLRx8](https://www.youtube.com/watch?v=aNNJh1fLRx8)
+[Watch on Youtube: Bruce Springsteen - Spirit In the Night (Live at the Ahmanson Theater, Los Angeles, 1973)](https://www.youtube.com/watch?v=aNNJh1fLRx8)
 
 …to the just-famous days following the release of *Born to Run,* where the band now known as E Street created ambiance with a dramatic introduction, and in the late song break… well, just watch.
 
-[https://www.youtube.com/watch?v=dp-aRBV7jLc](https://www.youtube.com/watch?v=dp-aRBV7jLc)
+[Watch on Youtube: Spirit In the Night (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=dp-aRBV7jLc)
 
 From the Darkness Tour…
 
-[https://www.youtube.com/watch?v=6bXikpoQ6sw](https://www.youtube.com/watch?v=6bXikpoQ6sw)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Spirit In The Night (Live in Houston, 1978)](https://www.youtube.com/watch?v=6bXikpoQ6sw)
 
 …to the Rising Tour (in an unusual acoustic performance, with an uncharacteristic brain fart):
 
-[https://www.youtube.com/watch?v=gGMSXEQdGL0](https://www.youtube.com/watch?v=gGMSXEQdGL0)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Spirit in the Night (Live In Barcelona)](https://www.youtube.com/watch?v=gGMSXEQdGL0)
 
 …to the modern-day [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)and *High Hopes* era, where “Spirit in the Night” became a full-on production number with an introduction that sometimes eclipsed the song itself.
 
-[https://www.youtube.com/watch?v=B1Mq-QT5jwI](https://www.youtube.com/watch?v=B1Mq-QT5jwI)
+[Watch on Youtube: Spirit in the night - pro shot dallas - Bruce springsteen](https://www.youtube.com/watch?v=B1Mq-QT5jwI)
 
 Other than its notable absence during the Tunnel of Love Tour, “Spirit in the Night” has never missed a Springsteen tour, even making cameo acoustic appearances during the 1992-93 Tour…
 
-[https://www.youtube.com/watch?v=8OOZbxKB0dY](https://www.youtube.com/watch?v=8OOZbxKB0dY)
+[Watch on Youtube: Bruce Springsteen Spirit in the night rare version](https://www.youtube.com/watch?v=8OOZbxKB0dY)
 
 …the Ghost of Tom Joad era (in an almost-E Street Band reunion):
 
-[https://videopress.com/embed/uFZCRCRS](https://videopress.com/embed/uFZCRCRS)
+[Watch Video Highlight](https://videopress.com/embed/uFZCRCRS)
 
 …and the Devils & Dust Tour:
 
-[https://www.youtube.com/watch?v=KKVsfrUxWdA](https://www.youtube.com/watch?v=KKVsfrUxWdA)
+[Watch on Youtube: 15. Spirit In The Night (Bruce Springsteen - Live In Copenhagen 6-22-2005)](https://www.youtube.com/watch?v=KKVsfrUxWdA)
 
 Even now, with a tour nowhere on the horizon, catch Bruce at a surprise appearance in Asbury Park, and you might be lucky enough to feel the spirit.
 
-[https://www.youtube.com/watch?v=n9PfwJZ5aDI](https://www.youtube.com/watch?v=n9PfwJZ5aDI)
+[Watch on Youtube: Bruce Springsteen - Spirit In The Night](https://www.youtube.com/watch?v=n9PfwJZ5aDI)
 
 Although the 1973 single went nowhere chart-wise, “Spirit in the Night” remains one of Bruce Springsteen’s most iconic songs, a fan-favorite in every era.
 

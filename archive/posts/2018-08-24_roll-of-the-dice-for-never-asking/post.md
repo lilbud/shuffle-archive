@@ -1,12 +1,12 @@
-It’s time for another visit to the “[1968 Notebook](http://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/),” where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don’t appear on any bootlegs.
+It’s time for another visit to the “[1968 Notebook](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/),” where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don’t appear on any bootlegs.
 
-(Previous entries: “[Turn Around,](http://estreetshuffle.com/index.php/2018/07/09/roll-of-the-dice-turn-around/)” “[Crystal](http://estreetshuffle.com/index.php/2018/05/11/roll-of-the-dice-crystal/),’ and “[Until the Rain Comes](http://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/).”
+(Previous entries: “[Turn Around,](https://estreetshuffle.com/index.php/2018/07/09/roll-of-the-dice-turn-around/)” “[Crystal](https://estreetshuffle.com/index.php/2018/05/11/roll-of-the-dice-crystal/),’ and “[Until the Rain Comes](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/).”
 
 Today’s entry, “For Never Asking” is at least believed to have been played publicly in the spring of 1968 at one of Bruce’s solo gigs at the Off Broad Street Coffee House in Red Bank.
 
 Bruce dates the handwritten pages below as April 29, 1968, but as the notebook contains 11 songs date-stamped over a three-day period, it’s likely that the date represents when Bruce transcribed the songs, not when he composed them.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/forneverasking_lyrics-300x145.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/08/forneverasking_lyrics.jpg)
 
 It’s interesting to note that the first page of lyrics are transcribed almost in paragraph form, rather than in a one-lyric-per-line format, and that strikes me as curious. It’s not always a matter of not being able to fit a complete line, so I wonder why Bruce chose that particular format only for the first four verses.
 
@@ -69,4 +69,4 @@ Bruce gets no answers to his questions, though, and he returns to his alienation
 
 “For Never Asking” is a stark, sobering song–we don’t know what it would have sounded like, but it seems that it was intended as a solo acoustic song. Bruce may never have released it, but it’s a theme and a battle he would revisit throughout his life and career.
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

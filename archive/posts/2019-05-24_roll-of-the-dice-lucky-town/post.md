@@ -4,11 +4,11 @@ But by the time the song is over, we realize that Bruce has turned “Hungry Hea
 
 And with that revelation about the title track for Bruce’s tenth studio album, we realize that we are listening to a very different Bruce Springsteen than we’ve ever heard before.
 
-[https://www.youtube.com/watch?v=NMTrHfiOsmg](https://www.youtube.com/watch?v=NMTrHfiOsmg)
+[Watch on Youtube: Lucky Town](https://www.youtube.com/watch?v=NMTrHfiOsmg)
 
 “Lucky Town” is a return to form for Bruce. Freed from the overly lavish production and arrangements that weighed down much of *Human Touch*, “Lucky Town” saunters its way over the rise. It’s also an intensely personal song not just lyrically, but musically: Bruce plays every instrument on the tracks but the drums.
 
-It’s the second song on the album that bears its name, but the opening track “[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)” (a brilliant song in its own right) feels unnaturally ebullient by comparison. “Lucky Town” feels more natural, Bruce sounds more at ease, and the use of a minor key melody set against hopeful lyrics is a clever twist on Bruce’s more common reverse formula.
+It’s the second song on the album that bears its name, but the opening track “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)” (a brilliant song in its own right) feels unnaturally ebullient by comparison. “Lucky Town” feels more natural, Bruce sounds more at ease, and the use of a minor key melody set against hopeful lyrics is a clever twist on Bruce’s more common reverse formula.
 
 The first verse reads like a deliberate “Hungry Heart” callback, with a hero who doesn’t know where he’s going, but he knows he has to go:
 
@@ -55,19 +55,19 @@ Those final lines still resonate years later, and as a personal credo you could 
 
 “Lucky Town” made its official live debut at an intimate, private show for Sony insiders; the rest of us were introduced to it when Bruce played it as his first-ever performance on *Saturday Night Live*, more than a month before he kicked off his world tour.
 
-[https://www.youtube.com/watch?v=kisUZm1yMpQ](https://www.youtube.com/watch?v=kisUZm1yMpQ)
+[Watch on Youtube: Bruce Springsteen - Lucky Town (9-5-1992, Rehearsal)](https://www.youtube.com/watch?v=kisUZm1yMpQ)
 
 If you couldn’t stay up late enough for SNL or forgot to record it, your next chance to see Bruce perform it for free was on his episode of *MTV Unplugged*.
 
-[https://www.youtube.com/watch?v=LJaU_6swr60](https://www.youtube.com/watch?v=LJaU_6swr60)
+[Watch on Youtube: Bruce Springsteen - Lucky Town (MTV Plugged - Official HD Video)](https://www.youtube.com/watch?v=LJaU_6swr60)
 
 “Lucky Town” has made sparing appearances since the 1992-93 touring years, and most of those were on Bruce’s solo acoustic tour in 2005. Pared down to just his guitar and harmonica, the intimacy and satisfaction expressed in the song shine through even more strongly than in the full-band version.
 
-[https://www.youtube.com/watch?v=WIzXbXIf9p4](https://www.youtube.com/watch?v=WIzXbXIf9p4)
+[Watch on Youtube: Bruce Springsteen - Lucky Town (Solo Acoustic) - E. Rutherford-11/17/05](https://www.youtube.com/watch?v=WIzXbXIf9p4)
 
-But the full-on E Street Band version shines too. I’ll leave you with a great recent performance, from Rome on the Wrecking Ball Tour, recorded in outstanding quality. (The full show is available for purchase as part of Bruce’s official archive series–get it [here](http://live.brucespringsteen.net/live-music/0,13494/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-11-2013-Ippodromo-delle-Capannelle-Rome-IT.html).)
+But the full-on E Street Band version shines too. I’ll leave you with a great recent performance, from Rome on the Wrecking Ball Tour, recorded in outstanding quality. (The full show is available for purchase as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,13494/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-7-11-2013-Ippodromo-delle-Capannelle-Rome-IT.html).)
 
-[https://www.youtube.com/watch?v=aX6dOswftlc](https://www.youtube.com/watch?v=aX6dOswftlc)
+[Watch on Youtube: Lucky Town (Live at Ippodromo delle Capannelle, Rome, Italy - 7/11/2013)](https://www.youtube.com/watch?v=aX6dOswftlc)
 
 **Lucky Town**  
 **Recorded:** September 1992-January 1992  
@@ -75,4 +75,4 @@ But the full-on E Street Band version shines too. I’ll leave you with a great 
 **First performed:** May 6, 1992 (New York City, NY)  
 **Last performed:** June 24, 2023 (Gothenburg, Sweden)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

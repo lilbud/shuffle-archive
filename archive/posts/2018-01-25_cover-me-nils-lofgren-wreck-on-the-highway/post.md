@@ -4,6 +4,4 @@ Originally recorded for a Bruce tribute album in 1997, it was re-released on Nil
 
 Nils’ vocals suit the song, but for my money the highlight is Nils’ take one the long guitar outro. This is easily a repeat-listen cover.
 
-[https://www.youtube.com/watch?v=HsBRnnzn6Vc](https://www.youtube.com/watch?v=HsBRnnzn6Vc)
-
- 
+[Watch on Youtube: Nils Lofgren - Wreck on the Highway](https://www.youtube.com/watch?v=HsBRnnzn6Vc)

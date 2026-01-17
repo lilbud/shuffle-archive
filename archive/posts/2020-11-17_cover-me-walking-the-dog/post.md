@@ -10,11 +10,11 @@ The original E Street Band was virtually identical to the Bruce Springsteen Band
 
 Perhaps the best illustration of this can be found in our heroes’ cover of “Walking the Dog,” originally recorded by Rufus Thomas. “Walking the Dog” is an odd song; with verses based almost entirely on a children’s nursery rhyme paired with a non sequitur chorus and dog whistles, it verges perilously close to a novelty song. Despite (or perhaps because of) that, “Walking the Dog” became a hit for Thomas, cracking the Top Ten in 1963.
 
-[https://www.youtube.com/watch?v=Fw1KAlQSYjw](https://www.youtube.com/watch?v=Fw1KAlQSYjw)
+[Watch on Youtube: Rufus Thomas - Walking The Dog (1964)](https://www.youtube.com/watch?v=Fw1KAlQSYjw)
 
 There’s something irresistibly charming about “Walking the Dog,” which may explain why the Rolling Stones fell under its spell–they recorded and released their own cover the following year.
 
-[https://www.youtube.com/watch?v=g_VU6BY4xSY](https://www.youtube.com/watch?v=g_VU6BY4xSY)
+[Watch on Youtube: Walking the dog 🐶 The Rolling Stones 1964](https://www.youtube.com/watch?v=g_VU6BY4xSY)
 
 As for Bruce and his band(s), “Walking the Dog” was frequently set listed from late 1971 through mid-1974. There aren’t any great quality Bruce Springsteen Band performances of “Walking the Dog” circulating, but documents exist of their 1971 and 1972 performances.
 
@@ -24,7 +24,7 @@ The E Street Band didn’t revive “Walking the Dog” until the autumn of 1973
 
 No two performances sounded alike. Take, for example, these two early 1974 performances. First, let’s listen to their January 29th performance at Muther’s Music Emporium in Nashville. (Disregard the incorrect date and venue displayed in the video below.)
 
-[https://videopress.com/embed/yJb7k2NK](https://videopress.com/embed/yJb7k2NK)
+[Watch Video Highlight](https://videopress.com/embed/yJb7k2NK)
 
 In this clip, the E Street Band is light on its feet, despite drummer Vini Lopez’s charmingly sloppy propulsion. Bruce commands the band like a drill sergeant (right down to the whistle), even though the band just wans to “Party!”
 
@@ -34,7 +34,7 @@ By the end of the song, the E Street Band is racing for the finish line, with Br
 
 This E Street Band is sneakier and sultrier, but Bruce is in even tighter control, frequently bringing the band to a halt for a “What it is!” by the Big Man, a primal scream by the bandleader, or a long, loooonnnngggg stone silence.
 
-[https://www.youtube.com/watch?v=ra7nlRC3p4k](https://www.youtube.com/watch?v=ra7nlRC3p4k)
+[Watch on Youtube: Bruce Springsteen & the E-Street Band-Walking the Dog (live)](https://www.youtube.com/watch?v=ra7nlRC3p4k)
 
 This “Walking the Dog” is almost an entirely new arrangement from the band’s previous performance, but one thing hasn’t changed: it’s still a showcase for some spectacular solos from Danny, David, and Clarence. (Bruce isn’t bad, either.)
 
@@ -42,12 +42,10 @@ The E Street Band played their last “Walking the Dog” on April 9, 1974, one 
 
 There was one other time, however–way back in 1982, with Sonny Kenn & The Wild Ideas at Big Man’s West in the spring of 1982.
 
-[https://videopress.com/embed/GNPWZPcD](https://videopress.com/embed/GNPWZPcD)
+[Watch Video Highlight](https://videopress.com/embed/GNPWZPcD)
 
 That performance was nowhere near as daring or expansive as any of the Bruce Springsteen Band or E Street Band versions, but it remains the last recorded document of Bruce performing a song that was a staple of his early set lists.
 
 **Walking the Dog**  
 **First performed:** December 11, 1971 (Asbury Park, NJ)  
 **Last performed:** July 17, 2004 (Asbury Park, NJ)
-
- 

@@ -8,4 +8,4 @@ The 8-Bit Arcade team gets points for the sheer audaciousness of even *attemptin
 
 So without further ado, take a listen to the 8-Bit Arcade cover of “Western Stars,” and prepare to be impressed.
 
-[https://www.youtube.com/watch?v=u-1C6RRF1No](https://www.youtube.com/watch?v=u-1C6RRF1No)
+[Watch on Youtube: 8-BIT ARCADE - Western Stars (8-Bit Bruce Springsteen Emulation)](https://www.youtube.com/watch?v=u-1C6RRF1No)

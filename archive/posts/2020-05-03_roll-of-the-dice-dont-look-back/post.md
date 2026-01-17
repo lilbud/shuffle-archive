@@ -1,6 +1,6 @@
 It was one of the very first songs Bruce recorded for *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/),* and it was the last song to be cut.
 
-At one point it closed the album, at another it kicked off Side Two. Early on, it was the second track on Side One, inheriting and building the out-of-the-gate momentum from “[Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/).”
+At one point it closed the album, at another it kicked off Side Two. Early on, it was the second track on Side One, inheriting and building the out-of-the-gate momentum from “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/).”
 
 It should have been a hit, and judging by fan reaction when Bruce played it in concert (he actually wrote it and performed it several times during his 1977 “Lawsuit Tour”) it probably *would* have been a hit had Bruce released it in 1978 instead of 1998.
 
@@ -8,7 +8,7 @@ But unfortunately, “Don’t Look Back” committed the sin of drawing water fr
 
 But what a track it was. Let’s take a listen. Even better, let’s watch as Bruce and the E Street Band work it out in the studio.
 
-[https://www.youtube.com/watch?v=YYkjsuiINV4](https://www.youtube.com/watch?v=YYkjsuiINV4)
+[Watch on Youtube: Don't Look Back (NYC, 78) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=YYkjsuiINV4)
 
 “Don’t Look Back” is a hard and brilliant rocker. Had it actually held the second slot on the album after “Badlands,” we would have had a back-to-back power pair of anthems that would have made the album a freight train almost impossible to slow down.
 
@@ -22,19 +22,21 @@ But while it may have been idling thematically, lyrically “Don’t Look Back�
 
 Here’s Bruce’s first-ever performance of “Don’t Look Back,” from Toledo on the evening of March 10, 1977.
 
-[https://videopress.com/embed/ofg8Vn4K](https://videopress.com/embed/ofg8Vn4K)
+[Watch Video Highlight](https://videopress.com/embed/ofg8Vn4K)
+
+
 
 Although Bruce is performing it in public, it’s clearly still a prototype. Some lyrics are bluffed, and we need to work harder to understand the theme. (Angel doesn’t even make her first appearance until midway through the second verse.)
 
 Compare that with Bruce’s last pre-Reunion era performance of “Don’t Look Back,” from the closing night of the Lawsuit Tour. The first half of the song is virtually in final form, but the bridge and final verse have significant differences.
 
-[https://www.youtube.com/watch?v=s_cwfe-0E8w](https://www.youtube.com/watch?v=s_cwfe-0E8w)
+[Watch on Youtube: Bruce Springsteen - DON'T LOOK BACK 1977 (audio)](https://www.youtube.com/watch?v=s_cwfe-0E8w)
 
 In fact, one of the more curious facets of “Don’t Look Back” is how it served as a spawning ground for key lyrical elements that would find their way to other songs. The dynamo from the debut performance above would of course end up in “P[rove It All Night.](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” By the end of the month, Bruce was opening the third verse with “Tonight we’ll wash our sins off down in the sea,” a line that would migrate to “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/).”
 
 Even in June, just weeks before Bruce recorded the final version that would appear two decades later on *Tracks,* Bruce was still tinkering with the lyrics. Here’s an early take:
 
-[https://videopress.com/embed/e533kuJ1](https://videopress.com/embed/e533kuJ1)
+[Watch Video Highlight](https://videopress.com/embed/e533kuJ1)
 
 Truthfully, even the recorded version still sounds like a work in progress. The lyrics read like they’re finished, but when we listen to the song, they seem at times like they don’t quite fit the music and the meter.
 
@@ -71,23 +73,23 @@ Bruce is also obviously still very much in his infatuation phase with automotive
 
 But that’s a quibble. Because anyone who’s ever heard Bruce perform “Don’t Look Back” in concert knows that this isn’t a song that demands attention to its lyrics. This is a song that you *feel*, and the only lyrics you need concern yourself with are the ones in that amazing, explosive, fist-pumping coda that ranks high among Bruce’s hardest rocking moments on record. If you’ve been fortunate enough to be there one of the few times Bruce has played it live, you’ve experienced an adrenaline rush that’s exhilarating even by Springsteen standards.
 
-Because Bruce performed “Don’t Look Back” back in ’77 as he evolved it, and because so many of those shows were captured as bootlegs, “Don’t Look Back” became a favorite long before its official release. (It may have been helped by [The Knack’s fantastic cover](http://estreetshuffle.com/index.php/2018/01/22/cover-me-the-knack-dont-look-back/) of it on their 1979 debut album.) So it’s not surprising that “Don’t Look Back” was one of the earlier tracks from *Tracks* to be re-introduced to Bruce’s set list on the Reunion Tour that followed the release of the box set.
+Because Bruce performed “Don’t Look Back” back in ’77 as he evolved it, and because so many of those shows were captured as bootlegs, “Don’t Look Back” became a favorite long before its official release. (It may have been helped by [The Knack’s fantastic cover](https://estreetshuffle.com/index.php/2018/01/22/cover-me-the-knack-dont-look-back/) of it on their 1979 debut album.) So it’s not surprising that “Don’t Look Back” was one of the earlier tracks from *Tracks* to be re-introduced to Bruce’s set list on the Reunion Tour that followed the release of the box set.
 
 Bruce performed it sixteen times on the Reunion Tour (even more than on the Lawsuit Tour), and the very last one was captured for Bruce’s *Live in New York City* video release.
 
-[https://www.youtube.com/watch?v=2i5QJBSNcvo](https://www.youtube.com/watch?v=2i5QJBSNcvo)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Don't Look Back (Live in New York City)](https://www.youtube.com/watch?v=2i5QJBSNcvo)
 
 But in the past twenty years, “Don’t Look Back” has made only four appearances, making it a truly sought-after rarity for many fans–rare enough that the last time Bruce played it (at the very last show of the High Hopes Tour), it took him and the band a few minutes to work out how to play it.
 
 I’ll leave you with a terrific video of that performance of “Don’t Look Back” — my personal favorite (and the only one I’ve seen live).
 
-[https://videopress.com/embed/7N8Z2fdo](https://videopress.com/embed/7N8Z2fdo)
+[Watch Video Highlight](https://videopress.com/embed/7N8Z2fdo)
 
 **Bonus:** The lyrics for “Don’t Look Back” may have been constantly evolving, but the backing track was pretty well set from the get-go. Here are two early instrumental takes that offer fascinating glimpses into fuller, more lush arrangements that might have breathed a bit more had Bruce pursued them.
 
-[https://www.youtube.com/watch?v=y4X6BeO0d9M](https://www.youtube.com/watch?v=y4X6BeO0d9M)
+[Watch on Youtube: Bruce Springsteen Don´t Look Back Instrumental](https://www.youtube.com/watch?v=y4X6BeO0d9M)
 
-[https://videopress.com/embed/L5e9SzQt](https://videopress.com/embed/L5e9SzQt)
+[Watch Video Highlight](https://videopress.com/embed/L5e9SzQt)
 
 **Don’t Look Back  
 Recorded:** July 2, 1977 – March 2, 1978  
@@ -95,4 +97,4 @@ Recorded:** July 2, 1977 – March 2, 1978
 **First performed:** March 10, 1977 (Toledo, OH)  
 **Last performed:** May 18, 2014 (Uncasville, CT)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

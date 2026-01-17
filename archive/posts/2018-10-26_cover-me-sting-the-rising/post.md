@@ -6,6 +6,4 @@ Backed by a full choir, Sting did Bruce proud and then some. Just watch–even m
 
 What a surreal and emotional moment that must have been for Bruce–watch his face and you can almost read his thoughts.
 
-[https://www.youtube.com/watch?v=tmWYg4W9CaY](https://www.youtube.com/watch?v=tmWYg4W9CaY)
-
- 
+[Watch on Youtube: Sting - "The Rising" (Bruce Springsteen Tribute) | 2009 Kennedy Center Honors](https://www.youtube.com/watch?v=tmWYg4W9CaY)

@@ -6,7 +6,7 @@ The tale of Mother and Ted McGrath was a popular resistance song throughout the 
 
 First recorded in 1958 by Burl Ives, the original arrangement had little in common with Bruce’s version (still almost fifty years down the road), but the lyrics are virtually identical.
 
-[https://www.youtube.com/watch?v=bkSroTDVFtg](https://www.youtube.com/watch?v=bkSroTDVFtg)
+[Watch on Youtube: Mrs. McGrath](https://www.youtube.com/watch?v=bkSroTDVFtg)
 
 When Ted McGrath goes off to war in his scarlet cloak and fine-cocked hat, his mother couldn’t be more proud. “Here’s my son Ted! Won’t you clear the way!” she cries.
 
@@ -18,15 +18,17 @@ There’s no resolution, no more to the reunion–we leave Ted and his mother th
 
 Other artists covered “Mrs. McGrath” as well, including (of course) Pete Seeger, but the arrangements all hewed closely to the original.
 
-[https://www.youtube.com/watch?v=jR_HzJLXZzE](https://www.youtube.com/watch?v=jR_HzJLXZzE)
+[Watch on Youtube: Mrs. McGrath](https://www.youtube.com/watch?v=jR_HzJLXZzE)
 
 And then, on March 19, 2005, Bruce assembled a group of musicians at his home to record a series of songs that would come to be known as the Seeger Sessions. Among those songs: a dramatic interpretation and updating of “Mrs. McGrath.”
 
-[https://www.youtube.com/watch?v=N9Kf0HTFNho](https://www.youtube.com/watch?v=N9Kf0HTFNho)
+[Watch on Youtube: Mrs. McGrath](https://www.youtube.com/watch?v=N9Kf0HTFNho)
 
 Note the Irish pronunciation of “McGraw” — that’s a nuance that seems to have escaped Bruce when he recorded his version. He must have realized it before he played the song in Dublin, though–he corrected himself for that particular live performance:
 
-[https://videopress.com/embed/kPchYwxD](https://videopress.com/embed/kPchYwxD)
+[Watch Video Highlight](https://videopress.com/embed/kPchYwxD)
+
+
 
 Bruce’s new version is a powerful one: without altering the melody, he arranges it into a military march, making it impossible to miss the context.
 
@@ -37,11 +39,11 @@ Lyrically, he updates the song as well, mostly in small surgical ways. But Bruce
 
 Although Bruce hasn’t played “Mrs. McGrath” since that too-short 2006 tour, we’re fortunate enough to have several professionally short performances to enjoy. Here are two of the best, bookends of sorts–first from the opening show of the Seeger Sessions Tour at Jazz Fest in New Orleans:
 
-[https://www.youtube.com/watch?v=eR97oc-_vpk](https://www.youtube.com/watch?v=eR97oc-_vpk)
+[Watch on Youtube: Mrs. McGrath (Live at the New Orleans Jazz & Heritage Festival, 2006)](https://www.youtube.com/watch?v=eR97oc-_vpk)
 
 …and then from the last week of the tour, in Dublin.
 
-[https://www.youtube.com/watch?v=HStktGoF1as](https://www.youtube.com/watch?v=HStktGoF1as)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - Mrs. McGrath (Live In Dublin)](https://www.youtube.com/watch?v=HStktGoF1as)
 
 Whether Bruce will ever sing it again remains to be seen. But someone surely will, until the day when it’s no longer necessary to rage against war and loss.
 

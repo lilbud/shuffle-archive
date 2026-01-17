@@ -6,16 +6,14 @@ The following year, he did it again: Bowie recorded[a cover of “It’s Hard to
 
 But in between, Bowie recorded what would turn out to be the most-covered track of his own: his 1974 single, “Rebel Rebel,” with a killer riff that carried it to #64 on the Billboard Hot 100. (It fared much better in the U.K., reaching #5.)
 
-[https://www.youtube.com/watch?v=FA25s6Nn-IQ](https://www.youtube.com/watch?v=FA25s6Nn-IQ)
+[Watch on Youtube: David Bowie • Rebel Rebel • 1974 • Original Single Mix • 2019 Remaster](https://www.youtube.com/watch?v=FA25s6Nn-IQ)
 
 So when Bowie passed away in January 2016, just before Bruce embarked on his River Tour with the E Street Band, Bruce paid tribute to his friend and original cover artist by opening his encore set with a searing performance of the oft-covered “Rebel Rebel.”
 
-[https://www.youtube.com/watch?v=KuMo6E5qboE](https://www.youtube.com/watch?v=KuMo6E5qboE)
+[Watch on Youtube: Bruce Springsteen - Rebel Rebel (Live 2016)](https://www.youtube.com/watch?v=KuMo6E5qboE)
 
 It proved to be only a one-off, but the band nailed it–a fitting one-time-only tribute to one of rock’s greatest legends by another.
 
 **Rebel Rebel  
 First performed:** January 16, 2016 (Pittsburgh, PA)  
 **Last performed:** January 16, 2016 (Pittsburgh, PA)
-
- 

@@ -6,11 +6,11 @@ Their post-Motown period had a promising start with “Ain’t No Woman (Like th
 
 The Four Tops took a break from recording in 1978 after a string of unsuccessful albums with ABC Records, but as the seventies gave way to the eighties, the band signed with Casablanca and scored what would prove to be their last big hit with “When She Was My Girl.”
 
-[https://www.youtube.com/watch?v=1ghRnZngYek](https://www.youtube.com/watch?v=1ghRnZngYek)
+[Watch on Youtube: Four Tops " When She Was My Girl " (1981)](https://www.youtube.com/watch?v=1ghRnZngYek)
 
 Thematically and lyrically, “When She Was My Girl” could have been a sequel to “Ain’t No Woman (Like the One I’ve Got”), but it introduced a new sound for the group–infectiously poppy and deceptively carefree. It just missed the Top Ten on the Hot 100, but it reached number one in the Billboard R&B chart and became a multi-national hit. It also made the Four Tops one of the few acts at the time to have Top 40 singles in three consecutive decades.
 
-[https://www.youtube.com/watch?v=t1lQXF5nsBs](https://www.youtube.com/watch?v=t1lQXF5nsBs)
+[Watch on Youtube: The Four Tops - "When She Was My Girl" Live - 'Fridays' (1981)](https://www.youtube.com/watch?v=t1lQXF5nsBs)
 
 Riding the success of their hit single, the Four Tops returned to Motown in 1983, but except for a minor-charting team-up with Smokey Robinson on “Indestructible” in 1988, the group never had a Top Forty single again.
 
@@ -18,7 +18,7 @@ With such iconic Holland-Dozier-Holland singles like “Baby I Need Your Loving,
 
 But only a little bit, because “When She Was My Girl” is undeniably fun to sing.
 
-[https://www.youtube.com/watch?v=zNKOKfSEKSo](https://www.youtube.com/watch?v=zNKOKfSEKSo)
+[Watch on Youtube: Bruce Springsteen - When She Was My Girl (Official Audio)](https://www.youtube.com/watch?v=zNKOKfSEKSo)
 
 For a few brief moments during the introduction, it seems like Bruce and Ron Aniello might be steering the track in a funkier, more seventies than eighties vein, but alas, it’s only a tease.
 

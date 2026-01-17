@@ -1,8 +1,8 @@
-It’s time for another dip into the “[1968 Notebook,](http://estreetshuffle.com/?s=notebook)” a compendium of early, unrecorded song drafts by an eighteen-year-old Bruce Springsteen(!), unbeknownst to fans until it was auctioned, allowing fans to get a peek at it.
+It’s time for another dip into the “[1968 Notebook,](https://estreetshuffle.com/?s=notebook)” a compendium of early, unrecorded song drafts by an eighteen-year-old Bruce Springsteen(!), unbeknownst to fans until it was auctioned, allowing fans to get a peek at it.
 
 Today’s entry is the thirteenth song in the notebook’s table of contents: “New York Morning Love.”
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1968_lyricsnotebook-contentspage-195x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/08/1968_lyricsnotebook-contentspage.jpg)
 
 Like all of the songs in Bruce’s notebook, we have no record of Bruce ever performing “New York Morning Love” live, and there’s no known recording–so we don’t know what the song would have sounded like.
 
@@ -12,7 +12,7 @@ Perhaps it’s for the best that “New York Morning Love” never made it to th
 
 “New York Morning Love” is high on melodrama. Keep in mind that Bruce was only eighteen at the time and still living in a New Jersey small town… and then read his imagining of New York city affair, one that bears eyebrow-raising consequences.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/40451594614_1023aeb631_o-300x219.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/10/40451594614_1023aeb631_o.jpg)
 
 Let’s take a close look at those lyrics:
 
@@ -74,4 +74,4 @@ So while a recorded version of “New York Morning Love” isn’t likely to eve
 Never recorded**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

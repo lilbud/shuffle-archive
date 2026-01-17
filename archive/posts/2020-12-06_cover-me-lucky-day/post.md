@@ -4,13 +4,13 @@ But on an early spring day on the Tunnel of Love Tour in 1988, Bruce Springsteen
 
 “Lucky Day” wasn’t written by Escovedo (he co-wrote only one song on the album), but his guitar and vocals are present throughout the track and the rest of the band’s 1983 debut album, *Sundown.*
 
-[https://www.youtube.com/watch?v=drEPTgodc1g](https://www.youtube.com/watch?v=drEPTgodc1g)
+[Watch on Youtube: Rank and File Lucky Day 0001](https://www.youtube.com/watch?v=drEPTgodc1g)
 
 Neither the album nor the band ever made it big, but they garnered some serious critical buzz and caught Bruce’s attention.
 
 The original track is dreamy and summer-ish, and in their fleeting rehearsal take, Bruce and the band did their best to honor it with an arrangement that positively shimmers.
 
-[https://www.youtube.com/watch?v=HQWn67iVoQM](https://www.youtube.com/watch?v=HQWn67iVoQM)
+[Watch on Youtube: Lucky Day (Rank and File cover)](https://www.youtube.com/watch?v=HQWn67iVoQM)
 
 In those pre-prompter days, Bruce didn’t have lyrics on demand, so much of what we hear is bluffed. Still, the track had obviously made an impression on him.
 
@@ -19,5 +19,3 @@ Bruce has never played “Lucky Day” in concert, and as far as we know he neve
 **Lucky Day  
 First performed:** March 23, 1988 (Atlanta, GA – soundcheck only)  
 **Last performed:** March 23, 1988 (Atlanta, GA – soundcheck only)
-
- 

@@ -1,4 +1,4 @@
-“I *still* don’t know what it means!” remarked Allan Clarke in a [2014 interview](http://thestrangebrew.co.uk/allan-clarke-hollies-microsite/would-you-believe/) about his cover of “[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/).”
+“I *still* don’t know what it means!” remarked Allan Clarke in a [2014 interview](https://thestrangebrew.co.uk/allan-clarke-hollies-microsite/would-you-believe/) about his cover of “[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/).”
 
 *“I was introduced to Bruce Springsteen’s music back in the early 70s when he was coming on the scene. I went to a music publisher which a friend of mine was running. He said ‘I’ve got this guy from America who’s just sent me quite a few of his songs. I think he’s gonna be quite big.’ I said ‘Let’s hear it’.*
 
@@ -20,7 +20,7 @@ Sciaky played the cover in full for Bruce and the band; we can only imagine the 
 
 The thing is, though: it’s a *great* cover. Clarke not only captured the spirit of the song, he managed to summon the early E Street sound as well–the arrangement sounds very much like what we would have expected if Bruce had played it live on his 1973-74 tours (except for maybe that funky but tantalizingly brief mid-song break).
 
-[https://www.youtube.com/watch?v=e8CndiWMuWs](https://www.youtube.com/watch?v=e8CndiWMuWs)
+[Watch on Youtube: IF I WAS THE PRIEST - ALLAN CLARCKE all rights reserved](https://www.youtube.com/watch?v=e8CndiWMuWs)
 
 After listening to Clarke’s version, Bruce complimented the harmonies but seemed eager to change the subject, which they quickly did.
 
@@ -33,5 +33,3 @@ Bruce may have wished he could put that genie back in the bottle, but we can hea
 With 46 years between Clarke’s cover and Bruce’s own version, “If I Were the Priest” holds the record for the longest head start for a Springsteen cover.
 
 (You can hear Clarke’s cover of “Born to Run” [here](https://estreetshuffle.com/index.php/2018/04/30/cover-me-allan-clarke-born-to-run/).)
-
- 

@@ -6,7 +6,7 @@ One of the songs that managed to escape was “War Nurse.”
 
 Recorded in the spring of 1972 at Jim Cretecos’ apartment, “War Nurse” is little more than a character study. Uncharacteristically taut at barely two minutes, one wonders if Bruce intended “War Nurse” as a complete song or if it was merely a character study, perhaps an early work-in-progress of something greater down the line.
 
-[https://www.youtube.com/watch?v=_dWZ4Yrpk_c](https://www.youtube.com/watch?v=_dWZ4Yrpk_c)
+[Watch on Youtube: Bruce Springsteen - War Nurse](https://www.youtube.com/watch?v=_dWZ4Yrpk_c)
 
 Bruce tells us very little about the war nurse, and that appears to be intentional. Rather than paint her as a distinct character, he universalizes her–paying tribute to all of the women who served their country by saving lives, regardless of their pre-war walk of life.
 

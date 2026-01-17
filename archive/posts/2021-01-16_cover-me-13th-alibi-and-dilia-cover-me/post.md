@@ -8,7 +8,7 @@ J.D. saw my post on a Springsteen-related Facebook group and directed me to his 
 
 Trust me: even if you hate “Cover Me”–*especially* if you hate it, in fact–you need to watch this. Imagine “Cover Me” arranged like “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/),” and that’s what you’re about to hear.
 
-[https://www.youtube.com/watch?v=MDxtlX5xFwg](https://www.youtube.com/watch?v=MDxtlX5xFwg)
+[Watch on Youtube: Bruce Springsteen - "Cover Me" performed by DiLiA* & 13th Alibi](https://www.youtube.com/watch?v=MDxtlX5xFwg)
 
 DiLiA and 13th Alibi recognized the sultry, sensual heat at the heart of “Cover Me,” and they zeroed right in on it.
 

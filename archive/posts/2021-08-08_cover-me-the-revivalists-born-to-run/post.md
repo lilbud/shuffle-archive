@@ -10,7 +10,7 @@ What song absolutely *has* to be the final encore of your opening stand?
 
 You already know, don’t you? The Revivalists sure did, too–they closed out their Red Rocks show last month with an explosion of joy and catharsis that the world knows as “Born to Run.”
 
-[https://www.youtube.com/watch?v=CeYAP4iLRgM](https://www.youtube.com/watch?v=CeYAP4iLRgM)
+[Watch on Youtube: Bruce Springsteen - Born To Run (The Revivalists Cover - Live At Red Rocks)](https://www.youtube.com/watch?v=CeYAP4iLRgM)
 
 Saxophonist Rob Ingraham (who more than does justice to Clarence’s famous solo) told fans, “This was the release to end all releases- our first ‘normal’ shows in over a year at one of the greatest venues in the world, Red Rocks. I can’t put what it meant into words, but this video of us closing out the weekend with one of rock’s greatest anthems captures the feeling.”
 

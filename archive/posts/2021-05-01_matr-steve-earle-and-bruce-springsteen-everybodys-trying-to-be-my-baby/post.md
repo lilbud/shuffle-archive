@@ -2,17 +2,17 @@ This is the story of an original hillbilly song from the 1930s that found its wa
 
 Most of us know “Everybody’s Trying to Be My Baby” as the final track from *Beatles for Sale* and *Beatles ’65,* with George Harrison on lead vocals…
 
-[https://www.youtube.com/watch?v=wn7FiAdHcmw](https://www.youtube.com/watch?v=wn7FiAdHcmw)
+[Watch on Youtube: Everybody's Trying To Be My Baby (Remastered 2009)](https://www.youtube.com/watch?v=wn7FiAdHcmw)
 
-[https://www.youtube.com/watch?v=u7vc6_qW0UA](https://www.youtube.com/watch?v=u7vc6_qW0UA)
+[Watch on Youtube: 64. Everybody's Trying To Be My Baby.](https://www.youtube.com/watch?v=u7vc6_qW0UA)
 
 …and if you know your rock history, you know that The Beatles version of “Everybody’s Trying to Be My Baby” was a cover of an original song credited to Carl Perkins, of whom Harrison was a great fan.
 
-[https://www.youtube.com/watch?v=d1sY356CRgM](https://www.youtube.com/watch?v=d1sY356CRgM)
+[Watch on Youtube: Carl Perkins - Everybody's Trying to Be My Baby](https://www.youtube.com/watch?v=d1sY356CRgM)
 
 But “Everybody’s Trying to Be My Baby” goes back much further than that. In 1936, American country singer-songwriter Rex Griffin recorded his own original song by the same name, and it doesn’t require a very close listen to realize the similarities go far beyond the title.
 
-[https://www.youtube.com/watch?v=bHOK0YSjBU0](https://www.youtube.com/watch?v=bHOK0YSjBU0)
+[Watch on Youtube: Rex Griffin - Everybody's Trying To Be My Baby](https://www.youtube.com/watch?v=bHOK0YSjBU0)
 
 Did Perkins unjustly claim writing credit for “Everybody’s Trying to Be My Baby?”
 
@@ -24,12 +24,10 @@ Griffin’s original remains an obscurity, but Perkins’ adaptation continues t
 
 Bruce Springsteen was a guest at one of those appearances, and when he joined Earle on stage the first song they performed together was “Everybody’s Trying to Be My Baby,” with Bruce on backing vocals for much of the song but taking the lead on the final verse.
 
-[https://www.youtube.com/watch?v=_Vx3vw4MUv4](https://www.youtube.com/watch?v=_Vx3vw4MUv4)
+[Watch on Youtube: Everybodys Trying To Be My Baby-Bruce Springsteen & Steve Earle (6-02-1998 TradeWinds, Seabright,NJ)](https://www.youtube.com/watch?v=_Vx3vw4MUv4)
 
 That was a one-off for Bruce; he hasn’t played “Everybody’s Trying to Be My Baby” since. But if Bruce ever goes back out on the road with the Sessions Band again, Griffin’s original would make a great set list addition.
 
 **Everybody’s Trying to Be My Baby**  
 **First performed:** February 6, 1998 (Sea Bright, NJ)  
 **Last performed:** February 6, 1998 (Sea Bright, NJ)
-
- 

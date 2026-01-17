@@ -12,13 +12,13 @@ And interestingly, there is no footage of “Rainmaker” in the *Letter to You*
 
 One thing is certain, though: “Burnin’ Train” certainly doesn’t *sound* like the rest of *Letter to You*. Take a listen and hear for yourself.
 
-[https://www.youtube.com/watch?v=tTwpR6SCyRw](https://www.youtube.com/watch?v=tTwpR6SCyRw)
+[Watch on Youtube: Bruce Springsteen - Burnin' Train (Official Audio)](https://www.youtube.com/watch?v=tTwpR6SCyRw)
 
 A hard-charging, full-on rocker, “Burnin’ Train has a completely unique sound compared to the rest of its album-mates. Although the song reportedly dates back to the immediately post-*Lucky Town* era, it doesn’t sound very nineties, either.
 
 If anything, “Burnin’ Train” seems to be a close musical cousin to “[Gypsy Biker,](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)” so similar are their backing tracks–particularly their guitar solos.
 
-[https://www.youtube.com/watch?v=uLqNoQpOfms](https://www.youtube.com/watch?v=uLqNoQpOfms)
+[Watch on Youtube: Gypsy Biker](https://www.youtube.com/watch?v=uLqNoQpOfms)
 
 Lyrically, though, “Burnin’ Train” is a perfect fit for *Letter to You*.
 
@@ -67,7 +67,7 @@ But why quibble? Bruce’s message is clear: hot sex = long life.
 
 May you live long and prosper.
 
-[https://www.youtube.com/watch?v=93LbbdUR3xs](https://www.youtube.com/watch?v=93LbbdUR3xs)
+[Watch on Youtube: ~ Bruce Springsteen - Burnin' Train - Tampa, February 1, 2023 (multicam w/official audio) ~](https://www.youtube.com/watch?v=93LbbdUR3xs)
 
 **Burnin’ Train  
 Recorded:** ? – 2019  

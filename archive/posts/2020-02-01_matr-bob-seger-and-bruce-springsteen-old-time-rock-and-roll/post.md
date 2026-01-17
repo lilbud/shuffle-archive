@@ -2,7 +2,7 @@ There’s no official video for the studio version of Bob Seger’s “Old Time 
 
 That’s just as well, because come on: how could any video compete with the iconic movie scene it’s most associated with?
 
-[https://www.youtube.com/watch?v=8elAi-7G0OE](https://www.youtube.com/watch?v=8elAi-7G0OE)
+[Watch on Youtube: Bob Seger - Old Time Rock And Roll (Risky Business) (1983)](https://www.youtube.com/watch?v=8elAi-7G0OE)
 
 “Old Time Rock and Roll” charted in the Top 100 twice–once when it was originally released in the spring of 1979 (it peaked at #28), and again in 1983 when *Risky Business* was released (peaking at #48).
 
@@ -10,7 +10,7 @@ But despite their long-time association (they first played together in 1980), Bo
 
 It was worth the wait. Turn the volume up, switch to full-screen mode, and enjoy:
 
-[https://www.youtube.com/watch?v=auqlW2ofMyI](https://www.youtube.com/watch?v=auqlW2ofMyI)
+[Watch on Youtube: Bruce Springsteen & Bob Seger | Old Time Rock & Roll - New York - 01/12/2011 (Multicam/Dubbed)](https://www.youtube.com/watch?v=auqlW2ofMyI)
 
 Bob and Bruce’s team-up was pretty spectacular, considering they’d never played the song together before.
 
@@ -18,10 +18,8 @@ But while Bruce might have never played “Old Time Rock and Roll” with the so
 
 That performance is a lot harder to find than the 2011, but here it is for your listening pleasure. From Sunday night, July 23, 1989, check out Bruce Springsteen with Cats on a Smooth Surface playing Bruce’s very first performance of “Old Time Rock and Roll.” It’s incomplete, but it’s still a fun listen.
 
-[https://videopress.com/embed/bLlxnLzl](https://videopress.com/embed/bLlxnLzl)
+[Watch Video Highlight](https://videopress.com/embed/bLlxnLzl)
 
 **Old Time Rock and Roll  
 First performed:** July 23, 1989 (Asbury Park, NJ)  
 **Last performed:** December 1, 2011 (New York City, NY)
-
- 

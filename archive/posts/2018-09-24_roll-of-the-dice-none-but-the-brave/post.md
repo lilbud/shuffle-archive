@@ -12,9 +12,9 @@ Perhaps I’m reaching. But let me explain before you decide for yourself.
 
 Let’s start with the unreleased outtake.
 
-[https://www.youtube.com/watch?v=syZB1xaNo0s](https://www.youtube.com/watch?v=syZB1xaNo0s)
+[Watch on Youtube: Bruce Springsteen - "None But the Brave" original outtake](https://www.youtube.com/watch?v=syZB1xaNo0s)
 
-So let’s just lay this out first and foremost: whichever version we’re listening to, “None But the Brave” is magnificent. It’s heartfelt and heartbreaking, and it captures the E Street Band sound at perhaps its most quintessential. Why in the world Bruce chose to leave it off of *Born in the U.S.A.* is beyond me. Perhaps he felt the central conceit of the song–the left-behind friend/lover singing to his gone-to-greener-pastures girl–was essentially the same one used for “[Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” on that album, but in my opinion “None But the Brave” is the superior song.
+So let’s just lay this out first and foremost: whichever version we’re listening to, “None But the Brave” is magnificent. It’s heartfelt and heartbreaking, and it captures the E Street Band sound at perhaps its most quintessential. Why in the world Bruce chose to leave it off of *Born in the U.S.A.* is beyond me. Perhaps he felt the central conceit of the song–the left-behind friend/lover singing to his gone-to-greener-pastures girl–was essentially the same one used for “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” on that album, but in my opinion “None But the Brave” is the superior song.
 
 Its first verse and chorus establish the scene and the situation with Bruce’s by-now trademark verbal economy:
 
@@ -62,7 +62,7 @@ Again, he’s haunted: he knows she’s gone, but his image of her is so vivid t
 *As the drummer counts away*  
 *I take her hand, we move away*
 
-Oof–that verse packs an emotional wallop! At first evoking “[My Love Will Not Let You Down,](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)” (another contemporary outtake), the singer searches for connection in some new eyes, hoping to recapture the spark of what he had with his lost love. And then we visit “[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)” (a much later composition that paints a similar scene) as he hooks up with a girl just because she reminds him of his loss. His emotional pain is laid stark before us. (By the way, that bolded line is deliberate. We’ll come back to that later.)
+Oof–that verse packs an emotional wallop! At first evoking “[My Love Will Not Let You Down,](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)” (another contemporary outtake), the singer searches for connection in some new eyes, hoping to recapture the spark of what he had with his lost love. And then we visit “[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)” (a much later composition that paints a similar scene) as he hooks up with a girl just because she reminds him of his loss. His emotional pain is laid stark before us. (By the way, that bolded line is deliberate. We’ll come back to that later.)
 
 Our protagonist is self-aware, at least. He knows he is defeated, and he pities his friends who are still caught up in the game, even though he knows they are destined to defeat as soon as life or love deals them a hand they’re not strong enough to play:
 
@@ -81,7 +81,7 @@ And finally, he rages:
 
 And in that final line, we understand the one thing he does not–that even though he considers himself one of the brave, robbed of the freedom and life of which he dreamt, the bravery that life demands isn’t the courage to dream but rather the strength, determination, and fortitude to make them real.
 
-“None But the Brave” is at heart a tragic song. “[Bobby Jean,](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” at least, features a hero at peace, even if his heart has a hole in it. The hero of “None But the Brave” is broken.
+“None But the Brave” is at heart a tragic song. “[Bobby Jean,](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” at least, features a hero at peace, even if his heart has a hole in it. The hero of “None But the Brave” is broken.
 
 So: that’s the original version, recorded June 27, 1983.
 
@@ -91,7 +91,7 @@ Or was it?
 
 Like I wrote earlier, the released version is clearly not the same one that had been floating around bootlegger’s circles for years. Give a listen, and see for yourself:
 
-[https://www.youtube.com/watch?v=j6Z2l9iBMkQ](https://www.youtube.com/watch?v=j6Z2l9iBMkQ)
+[Watch on Youtube: None But the Brave (Studio Outtake - 1983)](https://www.youtube.com/watch?v=j6Z2l9iBMkQ)
 
 Again, I’m pretty sure the instrumental track is the same–perhaps sped up just a touch, and certainly a more delicate mix (particularly after the bridge) but that’s all.
 
@@ -141,17 +141,17 @@ And a man… a man who’s defeat seems all the more understandable, and his rag
 
 A man whose bravery isn’t ironic in the least.
 
-Is that the song Bruce wrote and recorded in 1983? Of course not. But I believe it’s the one he sang in 2003. Bruce has shown us how songs can transform and transcend their original meanings–sometimes over long periods of time (“[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)“) and sometimes short ones (“My City of Ruins”).
+Is that the song Bruce wrote and recorded in 1983? Of course not. But I believe it’s the one he sang in 2003. Bruce has shown us how songs can transform and transcend their original meanings–sometimes over long periods of time (“[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)“) and sometimes short ones (“My City of Ruins”).
 
 I’ll add this one to that club. Either way, in either incarnation, it remains one of my favorite Springsteen songs.
 
 “None But the Brave” made its live debut shortly after its album releases, at Bruce’s Asbury Park holiday shows in December 2003. Here’s the second-ever performance, from the December 7th show.
 
-[https://www.youtube.com/watch?v=quCBpLQ0ogY](https://www.youtube.com/watch?v=quCBpLQ0ogY)
+[Watch on Youtube: Bruce Springsteen: NONE BUT THE BRAVE](https://www.youtube.com/watch?v=quCBpLQ0ogY)
 
-The first E Street Band performance was more than four years later, in Vancouver on the Magic tour, and [I was lucky enough to be there for it](http://estreetshuffle.com/index.php/2018/03/31/where-the-band-was-vancouver-march-31-2008/). Bruce has played it a mere handful of times since (usually and comically checking with the band to make sure they know how to start it); here’s one of the more recent performances from Zurich in 2016:
+The first E Street Band performance was more than four years later, in Vancouver on the Magic tour, and [I was lucky enough to be there for it](https://estreetshuffle.com/index.php/2018/03/31/where-the-band-was-vancouver-march-31-2008/). Bruce has played it a mere handful of times since (usually and comically checking with the band to make sure they know how to start it); here’s one of the more recent performances from Zurich in 2016:
 
-[https://www.youtube.com/watch?v=B5KHuimPF0M](https://www.youtube.com/watch?v=B5KHuimPF0M)
+[Watch on Youtube: Bruce Springsteen - None But The Brave (Zurich, July 31, 2016) [2 cam mix and dubbed audio]](https://www.youtube.com/watch?v=B5KHuimPF0M)
 
 But whether I was in the house or listening on CD or YouTube, in my opinion, none of Bruce’s live performances have measured up to that wonderful 1983/2003 recording. It’s part of a small subset of Bruce’s catalog that can’t be improved (or at least hasn’t been yet) when performed live.
 
@@ -165,4 +165,4 @@ Am I reading too much into the song? Perhaps–I admitted that possibility at th
 **First performed:** December 5, 2003 (Asbury Park, NJ)  
 **Last performed:** February 18, 2017 (Hunter Valley, Australia)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

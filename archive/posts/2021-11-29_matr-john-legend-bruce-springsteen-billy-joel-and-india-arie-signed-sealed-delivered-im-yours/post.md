@@ -1,12 +1,12 @@
 Stevie Wonder’s “Signed, Sealed, Delivered I’m Yours” was a smash hit from the beginning, topping the U.S. R&B chart for six weeks and peaking at #3 on the Hot 100 in 1970.
 
-[https://www.youtube.com/watch?v=pUj9frKY46E](https://www.youtube.com/watch?v=pUj9frKY46E)
+[Watch on Youtube: Stevie Wonder - Signed, Sealed, Delivered I'm Yours](https://www.youtube.com/watch?v=pUj9frKY46E)
 
 The song signaled an inflection point in Wonder’s career on the wings of a new creative confidence and artistic control over his work.
 
 But “Signed, Sealed, Delivered I’m Yours” earned a more permanent place in history in 2008, when U.S. presidential candidate (and Bruce’s future BFF) Barack Obama embraced it as his campaign’s theme song all the way through Election Day and his first on-stage appearance in Grant Park as president-elect.
 
-[https://www.youtube.com/watch?v=iUqwkgyLv-8](https://www.youtube.com/watch?v=iUqwkgyLv-8)
+[Watch on Youtube: Obama Grant Park Rally - Signed Sealed Delivered](https://www.youtube.com/watch?v=iUqwkgyLv-8)
 
 The Obama campaign played Wonder’s 1970 single at virtually every rally that election season, so when Bruce Springsteen, Billy Joel, John Legend, and India Arie banded together in support of Obama during the final push, there was really only one song they could have chosen to end the night on.
 
@@ -18,10 +18,8 @@ Bruce and Billy’s main set has been circulating broadly for a while now, but t
 
 And if audio from that performance is rare, video is scarcer still. But check this out: it’s only about a minute or so, but it’s enough to capture the energy and excitement in the room that night, and the anticipation of eight years to come.
 
-[https://www.youtube.com/watch?v=Gz20pPR3yXU](https://www.youtube.com/watch?v=Gz20pPR3yXU)
+[Watch on Youtube: Barack Obama Signed, Sealed & Delivered at NYC Change Rocks](https://www.youtube.com/watch?v=Gz20pPR3yXU)
 
 **Signed, Sealed, Delivered I’m Yours  
 First performed:** October 16, 2008 (New York City, NY)  
 **Last performed:** October 16, 2008 (New York City, NY)
-
- 

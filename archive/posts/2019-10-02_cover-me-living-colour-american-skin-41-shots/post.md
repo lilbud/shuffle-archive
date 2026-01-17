@@ -6,10 +6,8 @@ If you haven’t seen this before, trust me: you need to.
 
 The arrangement is intense and original, and Corey Glover’s vocal performance is absolutely mesmerizing. I can only imagine what was going through his mind as tears streaked down his face during the crossfire (and that’s only barely a metaphor) of Will Calhoun’s drums.
 
-[https://www.youtube.com/watch?v=MiC68406c3M](https://www.youtube.com/watch?v=MiC68406c3M)
+[Watch on Youtube: Living Colour - "American Skin (41 Shots)" Montreux 2001](https://www.youtube.com/watch?v=MiC68406c3M)
 
 It’s not one of the most well-known Springsteen covers out there, but it’s certainly one of the strongest.
 
 And without question, the most heartfelt.
-
- 

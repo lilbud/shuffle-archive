@@ -6,7 +6,7 @@ The trip deeply affected her.
 
 Upon returning home, Crow poured her feelings into music, wrote “Redemption Day,” and recorded it for her sophomore album, *Sheryl Crow*.
 
-[https://www.youtube.com/watch?v=LkLoQQYcCJc](https://www.youtube.com/watch?v=LkLoQQYcCJc)
+[Watch on Youtube: Redemption Day](https://www.youtube.com/watch?v=LkLoQQYcCJc)
 
 The album spawned three hit singles, but “Redemption Day” wasn’t one of them. It was never even released as a single, but it still found an audience, including one person in particular for whom the song seemed tailor-made.
 
@@ -16,18 +16,16 @@ Musically, “Redemption Day” sounds like a Johnny Cash song, so it was fittin
 
 In 2019, Crow recorded yet a third version of the song, this one a blend of her new vocals (and piano) with Cash’s previously recorded vocals, and released it that April.
 
-[https://www.youtube.com/watch?v=rKg0vz0HIlo](https://www.youtube.com/watch?v=rKg0vz0HIlo)
+[Watch on Youtube: Sheryl Crow, Johnny Cash - Redemption Day](https://www.youtube.com/watch?v=rKg0vz0HIlo)
 
 So when Crow was announced as part of the roster for that year’s Stand Up for Heroes event six months later, it was a pretty good bet that “Redemption Day” would be one of the songs she would perform.
 
 What no one could have predicted is that she’d perform it as a duet with Bruce Springsteen in their first and only performance together to date.
 
-[https://www.youtube.com/watch?v=2us2vS93Aac](https://www.youtube.com/watch?v=2us2vS93Aac)
+[Watch on Youtube: Bruce Springsteen & Sheryl Crow - "Redemption Day" - Theater at MSG - 11/4/19](https://www.youtube.com/watch?v=2us2vS93Aac)
 
 Sheryl and Bruce traded lead vocals in their intimate acoustic performance, immediately establishing the evening’s first musical performance as the highlight of the event. Their duet may have been a one-time-only affair, but “Redemption Day” is just as relevant today as when Crow wrote it.
 
 **Redemption Day  
 First performed:** November 4, 2019 (New York City, NY)  
 **Last performed:** November 4, 2019 (New York City, NY)
-
- 

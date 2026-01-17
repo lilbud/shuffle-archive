@@ -52,7 +52,7 @@ To some, “Wrecking Ball” is a song about a decrepit stadium scheduled for de
 
 To me, it’s about my dad.
 
-[https://www.youtube.com/watch?v=StVADmXbOEs](https://www.youtube.com/watch?v=StVADmXbOEs)
+[Watch on Youtube: Wrecking Ball](https://www.youtube.com/watch?v=StVADmXbOEs)
 
 Great songs take on meaning to those who listen, and “Wrecking Ball” is a great song. From any other songwriter, though, it would have been a lark.
 
@@ -77,7 +77,7 @@ Anthropomorphized arenas are not the stuff about which great rock songs are typi
 
 It’s a cocktail of nostalgia, defiance, and solidarity that couldn’t have been crafted more perfectly for his New Jersey audience the night he debuted it in 2009. The crowd roared its approval at all the right calculated moments, and when the E Street Band explodes into the second chorus, it’s an adrenaline-fueled rush.
 
-[https://www.youtube.com/watch?v=e1mL_Z1Adao](https://www.youtube.com/watch?v=e1mL_Z1Adao)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Wrecking Ball (Live at Giants Stadium, 2009)](https://www.youtube.com/watch?v=e1mL_Z1Adao)
 
 As specific as the first half of the song is, however, the second half is universal. It also holds the powerful message at the core of “Wrecking Ball.”
 

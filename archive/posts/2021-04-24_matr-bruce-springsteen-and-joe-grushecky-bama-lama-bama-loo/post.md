@@ -10,11 +10,11 @@ It’s surprisingly hard to remember all the words to a song, even one you sing 
 
 It doesn’t help when the song doesn’t exactly follow a narrative structure. Take Little Richard’s “Bama Lama Bama Loo,” for example. A late career entry, it only notched as high as #82 on the Billboard Top 100 in the summer of 1964.
 
-[https://www.youtube.com/watch?v=ojgQ5lfLmUw](https://www.youtube.com/watch?v=ojgQ5lfLmUw)
+[Watch on Youtube: Little Richard "Bama Lama Bama Loo"](https://www.youtube.com/watch?v=ojgQ5lfLmUw)
 
 There aren’t a whole lot of lyrics in “Bama Lama Bama Loo,” but when Bruce took lead vocals with Joe Grushecky and The Houserockers on an impromptu cover of it in the summer of ’94, Bruce couldn’t remember *any of them*.
 
-[https://www.youtube.com/watch?v=IOqobm0202Q](https://www.youtube.com/watch?v=IOqobm0202Q)
+[Watch on Youtube: Bama Lama Lama Loo - Bruce Springteen (20-08-1994 Marz American Style, Long Branc, New Jersey)](https://www.youtube.com/watch?v=IOqobm0202Q)
 
 We can tell pretty quickly that Bruce is flying by the seat of his pants: he starts with the chorus and doesn’t budge from it for almost a full minute. And he doesn’t even get *that* right–he sings it as “bama lama *lama* loo.”
 
@@ -27,5 +27,3 @@ I bet he wished he had a teleprompter that night, though.
 **Bama Lama Bama Loo  
 First performed:** September 18, 1982 (Red Bank, NJ)  
 **Last performed:** August 20, 1994 (Long Branch, NJ)
-
- 

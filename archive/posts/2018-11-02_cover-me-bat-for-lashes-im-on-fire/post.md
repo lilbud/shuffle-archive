@@ -4,6 +4,4 @@ Bat For Lashes (Natasha Khan) completely co-opts “[I’m on Fire,](https://est
 
 Carried by an instrumental track that’s all piano, strings, and marxophone–and absolutely no percussion–Khan’s rendition of “I’m on Fire” is searingly yearning from start to finish.
 
-[https://www.youtube.com/watch?v=Rhat3oUbNkw](https://www.youtube.com/watch?v=Rhat3oUbNkw)
-
- 
+[Watch on Youtube: BAT FOR LASHES I'm On Fire](https://www.youtube.com/watch?v=Rhat3oUbNkw)

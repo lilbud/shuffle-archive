@@ -1,10 +1,6 @@
 > “At certain moments, time is obliterated in the presence of somebody you love; there seems to be a transcendence of time in love.
 > 
-> 
-> 
 > The normal markers of the day, the month, the year, as you get older those very fearsome markers… in the presence of love, they lose some of their power.”
-> 
-> 
 > 
 > — Bruce Springsteen to Mark Hagen, *The Guardian,* January 18, 2009
 
@@ -12,7 +8,7 @@ In the end, we have nothing but time.
 
 And time is funny: if we squander it, the days remaining seem perilously few and menacing. If we spend it well, the days left seem like a veritable kingdom.
 
-[https://www.youtube.com/watch?v=NDug_5ibZ9o?start=89](https://www.youtube.com/watch?v=NDug_5ibZ9o?start=89)
+[Watch on Youtube: Making Of Working On A Dream- Kingdom Of Days](https://www.youtube.com/watch?v=NDug_5ibZ9o?start=89)
 
 “Kingdom of Days” is the kind of song only someone with fewer tomorrows than yesterdays could write, and only someone thoroughly content with their todays. And only someone lucky enough to have found the right person to spend those days with.
 
@@ -75,7 +71,7 @@ In the end, we have nothing but time. Spend it wisely, with the right person.
 
 “Kingdom of Days” was a nightly staple during the early months of the Working on a Dream Tour, one of the rare album tracks to survive past the opening few weeks.
 
-[https://www.youtube.com/watch?v=tD4ecB9IMgQ](https://www.youtube.com/watch?v=tD4ecB9IMgQ)
+[Watch on Youtube: Bruce Springsteen & ESB - Kingdom Of Days (live)](https://www.youtube.com/watch?v=tD4ecB9IMgQ)
 
 By the summer, though, it had disappeared from the set list, never to return.
 
@@ -83,11 +79,11 @@ Never, that is, except for a pair of acoustic performances in the spring of 2014
 
 Watch this performance all the way through to hear Bruce channel his inner Orbison in one of his warmest vocal performances on-stage in recent years.
 
-[https://www.youtube.com/watch?v=Sv31KH_Q2YQ](https://www.youtube.com/watch?v=Sv31KH_Q2YQ)
+[Watch on Youtube: Bruce Springsteen - 2014-05-22 Pittsburgh - Kingdom Of Days (solo acoustic)](https://www.youtube.com/watch?v=Sv31KH_Q2YQ)
 
 **Bonus:** the DVD that accompanied *Working on a Dream* contained some behind-the-scenes footage from the recording sessions. Here’s a look at the creation of “Kingdom of Days.”
 
-[https://videopress.com/embed/6UU4PT3e](https://videopress.com/embed/6UU4PT3e)
+[Watch Video Highlight](https://videopress.com/embed/6UU4PT3e)
 
 **Kingdom of Days  
 Recorded:** Early 2008  

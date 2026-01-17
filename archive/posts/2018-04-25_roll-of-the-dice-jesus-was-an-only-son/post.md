@@ -2,7 +2,7 @@ I wasn’t sure what to make of “Jesus Was an Only Son” when I first heard i
 
 I’m used to hearing a lot of religious imagery in Bruce’s music, but nothing as overt and dominant as in this track.
 
-[https://www.youtube.com/watch?v=80CinQPxD0A](https://www.youtube.com/watch?v=80CinQPxD0A)
+[Watch on Youtube: Jesus Was an Only Son](https://www.youtube.com/watch?v=80CinQPxD0A)
 
 Even when he performed it on VH1 Storytellers, I couldn’t quite track him at first. I couldn’t find the link from the song to his assertion that it “starts from the premise that everybody knows what it’s like to be saved.”
 
@@ -23,11 +23,11 @@ That verse transcends its context. On its face, Bruce is writing about Mary abou
 
 Bruce performed “Jesus Was an Only Son” live throughout his 2005 solo acoustic tour, but my favorite performances were from his Seeger Sessions tour the following year. There’s a delicacy in his guitar work that conveys the tenderness of the song in a way that his solo piano performance doesn’t, and his harmonica is filled with the parental anguish of losing a child.
 
-[https://www.youtube.com/watch?v=t2fcnKztw_c](https://www.youtube.com/watch?v=t2fcnKztw_c)
+[Watch on Youtube: Jesus Was An Only Son](https://www.youtube.com/watch?v=t2fcnKztw_c)
 
 …but those 2005 solo performances are remarkable for Bruce’s narrative before and interwoven through the song.
 
-[https://www.youtube.com/watch?v=Qelew5_k90E](https://www.youtube.com/watch?v=Qelew5_k90E)
+[Watch on Youtube: Bruce Springsteen - Jesus Was An Only Son (w/ Intro) - Seattle - 8/11/05](https://www.youtube.com/watch?v=Qelew5_k90E)
 
 Despite its historical subject matter, “Jesus Was an Only Son” feels like one of Bruce’s most intimate songs, tied to a particular time and place of life. It’s unlikely ever to be performed in an E Street Band concert, and I wouldn’t be surprised if we never hear it performed live again.
 
@@ -37,4 +37,4 @@ Despite its historical subject matter, “Jesus Was an Only Son” feels like on
 **First performed:** April 4, 2005 (Red Bank, NJ/VH1 Storytellers)  
 **Last performed:** November 19, 2006 (Dublin, Ireland)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

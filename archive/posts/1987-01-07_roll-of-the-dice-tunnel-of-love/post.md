@@ -8,7 +8,7 @@ It sports a complex soundscape, an odd but irresistible rhythm, and what I would
 
 Thirty-plus years on, “Tunnel of Love” remains one of Bruce Springsteen’s most important and revealing recordings, and it almost didn’t make the album at all.
 
-[https://www.youtube.com/watch?v=M4K7XZGeHTE](https://www.youtube.com/watch?v=M4K7XZGeHTE)
+[Watch on Youtube: Bruce Springsteen - Tunnel of Love (Official Video)](https://www.youtube.com/watch?v=M4K7XZGeHTE)
 
 Reports first surfaced of Bruce’s separation from Julianne Phillips, his first wife, in June 1988 after tabloid photos ran photos of Bruce and Patti in a state of undress on a hotel balcony in Rome. Phillips’ spokesperson quickly confirmed the separation, but both Bruce and Julie otherwise remained tight-lipped.
 
@@ -96,23 +96,25 @@ Once completed, “Tunnel of Love” became the last song added to the album, bu
 
 “Tunnel of Love” was still riding high when the Tunnel of Love Express Tour finally kicked off in late February 1988, and fans attending the show found that it not only served as the opening song each night, it also informed the show’s entire conceit, with each band member taking a ticket as they took the stage. And even if Bruce and Patti’s relationship remained a secret during those early months, it was evident to anyone paying attention that there was something between them.
 
-[https://www.youtube.com/watch?v=xPd7_f9dLgQ](https://www.youtube.com/watch?v=xPd7_f9dLgQ)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Tunnel of Love](https://www.youtube.com/watch?v=xPd7_f9dLgQ)
 
 Yet despite appearing at every show of its namesake tour, “Tunnel of Love” disappeared from Bruce’s set lists after the Amnesty International tour wrapped up in late 1988. It finally reappeared late on the Rising Tour and made several appearances (fittingly) throughout the Magic Tour.
 
 Bruce even played a spare but remarkably effective solo version on the electric piano in 2005 on his solo acoustic tour.
 
-[https://www.youtube.com/watch?v=92yhQNYpMCw](https://www.youtube.com/watch?v=92yhQNYpMCw)
+[Watch on Youtube: Tunnel of Love (Live at the Van Andel Arena, Grand Rapids, MI - 8/3/05 - Official Audio)](https://www.youtube.com/watch?v=92yhQNYpMCw)
 
 Since the Magic Tour, “Tunnel of Love” has made only a single appearance, at Gothenburg on the 2016 River Tour.
 
-[https://www.youtube.com/watch?v=OmU3lSF9d6s](https://www.youtube.com/watch?v=OmU3lSF9d6s)
+[Watch on Youtube: Tunnel Of Love Multicam Mix 2016 06 25 Dubbed](https://www.youtube.com/watch?v=OmU3lSF9d6s)
 
 But don’t count out future appearances. “Tunnel of Love” is too significant a track in Bruce’s catalog to stay absent for long.
 
 **Bonus:** Here’s an alternate, rarely seen cut of Meiert Avis’ award-winning video with less carnival imagery and more Bruce.
 
-[https://videopress.com/embed/laIqiHGm](https://videopress.com/embed/laIqiHGm)
+[Watch Video Highlight](https://videopress.com/embed/laIqiHGm)
+
+
 
 **Tunnel of Love  
 Recorded:** June-July, 1987  

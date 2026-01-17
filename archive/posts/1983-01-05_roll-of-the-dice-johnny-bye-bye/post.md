@@ -1,7 +1,5 @@
 > “I remember when I was nine years old and my mother had on *The Ed Sullivan Show* and Elvis came on. I sat there and I said, ‘When I grow up, I wanna be just like that.’ I remember I was sitting at home when somebody called me up and told me that he died. It´s something I still think about all the time… how somebody that had so much and was so alive inside could end up losing so bad and seeming so lonely.”
 > 
-> 
-> 
 > — Bruce Springsteen, September 2, 1981
 
 In March of 1981, Bruce Springsteen was exhausted.
@@ -12,7 +10,7 @@ Atypically, he cancelled almost three weeks worth of shows and retreated to his 
 
 He had an outtake from his previous record called “Come On (Let’s Go Tonight)” that didn’t make either *Darkness on the Edge of Town* or *The River–*most likely because its melody (and a few of its lyrics) gave way to “Factory.”
 
-[https://www.youtube.com/watch?v=j_LBQD2nghw](https://www.youtube.com/watch?v=j_LBQD2nghw)
+[Watch on Youtube: Come On (Let's Go Tonight)](https://www.youtube.com/watch?v=j_LBQD2nghw)
 
 But “Come On (Let’s Go Tonight)” was more than just a prototypical “Factory.” It was actually a profound meditation on the difference between wealth and happiness, and how even the most successful entertainer in the world succumbed to his demons in the end. (“Everybody wants heaven,” Bruce wrote, “but nobody wants to die.”)
 
@@ -26,7 +24,7 @@ This new version of “Come On (Let’s Go Tonight)” was more uptempo and urge
 
 It was a stronger song, and one that showed considerable promise. When he returned to the stage a few weeks later, Bruce brought his new song with him. It wasn’t the version he’d recorded at home, though–the song had evolved and now featured a new melody, three new verses, and a new title: “Johnny Bye Bye.”
 
-[https://www.youtube.com/watch?v=PWTmqL6HsiA](https://www.youtube.com/watch?v=PWTmqL6HsiA)
+[Watch on Youtube: Bruce Springsteen - Johnny Bye-Bye (Live at Wembley Stadium, London, UK - 06/05/81 - Official Audio)](https://www.youtube.com/watch?v=PWTmqL6HsiA)
 
 “Johnny Bye Bye” featured a contemplative, almost pensive melody, but its lyrics ran the gamut from wistfully romantic to brutally tragic.
 
@@ -34,11 +32,11 @@ To understand (let alone appreciate) “Johnny Bye Bye,” we first have to unde
 
 One of the most recognizable and most covered songs in rock history, “Johnny B. Goode” was the story of a country boy with uncanny musical talent who (with his mother’s encouragement) dreams of making it big.
 
-[https://www.youtube.com/watch?v=Y-9Y4CCIWnM](https://www.youtube.com/watch?v=Y-9Y4CCIWnM)
+[Watch on Youtube: Johnny Be Goode](https://www.youtube.com/watch?v=Y-9Y4CCIWnM)
 
 “Bye Bye Johnny” picks up the story. Still unflagging in her support for her son’s dreams, Johnny’s mother empties her life savings to send her boy out west to become not just a pop star, but a movie star too (not unlike a certain boy from Memphis).
 
-[https://www.youtube.com/watch?v=zdNH78oEHpE](https://www.youtube.com/watch?v=zdNH78oEHpE)
+[Watch on Youtube: Chuck Berry - "Bye Bye Johnny"](https://www.youtube.com/watch?v=zdNH78oEHpE)
 
 “Bye Bye Johnny” has a happy ending: Johnny makes it big, falls in love, and promises his mother he will send for her soon.
 
@@ -85,11 +83,11 @@ Success brought down Hank, and it brought down Elvis. Bruce saw the parallel bet
 
 In early 1983, however, Bruce made another attempt, once again recasting the musical accompaniment (this time almost rockabilly) and recruiting Roy Bittan and Max Weinberg to join him on what would otherwise be a solo track. Lyrically, Bruce tightened the song, eliminating a verse to bring the song in well under two minutes.
 
-[https://www.youtube.com/watch?v=VK2l94VDFkU](https://www.youtube.com/watch?v=VK2l94VDFkU)
+[Watch on Youtube: Johnny Bye-Bye (Single B-Side - 1984)](https://www.youtube.com/watch?v=VK2l94VDFkU)
 
 That version of “Johnny Bye Bye” appeared on the B-side of the single for “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/),” and Bruce played it throughout the fall and winter of 1984-1985.
 
-[https://www.youtube.com/watch?v=MQ6hQ2iHD2g](https://www.youtube.com/watch?v=MQ6hQ2iHD2g)
+[Watch on Youtube: Bruce Springsteen Johnny Bye Bye Tempe 08/11/1984](https://www.youtube.com/watch?v=MQ6hQ2iHD2g)
 
 There’s yet another officially released version of “Johnny Bye Bye” — the one that appears on Bruce’s 1998 *Tracks* box set. That version is essentially the same one as the “I’m on Fire” B-side, but it features a drum machine instead of Max’s live drumming. (Max is not credited on the *Tracks* version.)
 
@@ -97,7 +95,7 @@ That version doesn’t appear to be officially streamable on-line, however, so I
 
 Both the *Tracks* version and the “I’m on Fire” B-side versions were recorded in January 1983, but Bruce continued to work on the song for the next couple of months. On March 9, Bruce recorded another version of “Johnny Bye Bye,” one that would remain in his vault for more than forty years before finally enjoying an official release on *L.A. Garage Sessions ’83* in 2025.
 
-[https://www.youtube.com/watch?v=JhZH2sekSQ8](https://www.youtube.com/watch?v=JhZH2sekSQ8)
+[Watch on Youtube: Bruce Springsteen - Johnny Bye Bye (Official Audio)](https://www.youtube.com/watch?v=JhZH2sekSQ8)
 
 Lyrically, this “new” version is virtually identical to the earlier two releases, with only minor wording substitutions and a single line change: the woman on the roadside now cries “Johnny, please come back” instead of “He’s gone, he’s gone.”
 
@@ -110,7 +108,7 @@ And there’s yet even *another* version of “Johnny Bye Bye,” recorded two w
 *Stars rising in the black and endless sky burn on*  
 *He stares up into the darkness, he looks down then walks on*
 
-[https://www.youtube.com/watch?v=d89fQRSqKS8](https://www.youtube.com/watch?v=d89fQRSqKS8)
+[Watch on Youtube: Bruce Springsteen Bye Bye Johnny #5 AKA Johnny Bye Bye](https://www.youtube.com/watch?v=d89fQRSqKS8)
 
 For a song that he tinkered with so incessantly and performed on stage 71 times, it’s surprising that “Johnny Bye Bye” disappeared from Bruce’s set lists in the middle of the Born in the U.S.A. Tour, never to return.
 

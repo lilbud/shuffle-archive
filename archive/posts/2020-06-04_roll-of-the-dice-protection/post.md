@@ -8,13 +8,13 @@ In early 1979, fresh off the Darkness Tour, Bruce started tinkering with some ne
 
 The earlier leaked outtakes feature Bruce’s typical pseudolyrical bluffing that readers of this blog are by now familiar with. Trying to make sense of them can be an unrewarding experience, as these outtakes are essentially working sessions as Bruce starts, stops, and tries out different phrasing, throwing in nonsense syllables for parts he hasn’t quite worked out yet.
 
-[https://www.youtube.com/watch?v=p7LHBLZDmYI](https://www.youtube.com/watch?v=p7LHBLZDmYI)
+[Watch on Youtube: Bruce Springsteen Protection #1](https://www.youtube.com/watch?v=p7LHBLZDmYI)
 
 But as the recordings progress, the song takes shape, and by take #5 below (I know the video says #4, but it’s not), we have a complete song that holds together very nicely.
 
-[https://www.youtube.com/watch?v=HzKt0tGpep0](https://www.youtube.com/watch?v=HzKt0tGpep0)
+[Watch on Youtube: Bruce Springsteen Protection #4](https://www.youtube.com/watch?v=HzKt0tGpep0)
 
-“Protection” wouldn’t have been the deepest song in Bruce’s catalog had he chosen to release it on *The River,* but it certainly would have been one of the sweeter and poppier ones. It would have fit nicely with songs like “[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” and “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/).”
+“Protection” wouldn’t have been the deepest song in Bruce’s catalog had he chosen to release it on *The River,* but it certainly would have been one of the sweeter and poppier ones. It would have fit nicely with songs like “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” and “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/).”
 
 In fact, it may be the lyrical similarity to “Two Hearts” that doomed “Protection”–it doesn’t require a stretch of the imagination to wonder whether the narrators of both songs are addressing the same girl.
 
@@ -92,11 +92,11 @@ Oh, and remember how I mentioned earlier that part of “Protection” would som
 
 If not, listen to this earlier outtake with its melody transposed at around the 0:20 mark, and I bet you’ll recognize it in an instant.
 
-[https://www.youtube.com/watch?v=DN36rwMCfQ4](https://www.youtube.com/watch?v=DN36rwMCfQ4)
+[Watch on Youtube: Bruce Springsteen Protection #3 Incomplete Take](https://www.youtube.com/watch?v=DN36rwMCfQ4)
 
 Yep, that’s the melody of “Restless Nights,” which Bruce would start working on in early 1980, around the same time as “Two Hearts.”
 
-[https://www.youtube.com/watch?v=OI9KVgJv0_c](https://www.youtube.com/watch?v=OI9KVgJv0_c)
+[Watch on Youtube: Bruce Springsteen - Restless Nights](https://www.youtube.com/watch?v=OI9KVgJv0_c)
 
 So even if “Protection” is destined to remain locked away in the vaults, its DNA lives on in at least one (if not two) River-era classics.
 
@@ -105,4 +105,4 @@ Recorded:** January-May 1979 (demo only)
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

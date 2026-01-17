@@ -2,29 +2,29 @@
 
 On the evening of March 23, 2012 in Tampa, early in the Wrecking Ball Tour, Bruce swapped out “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)” for a tour premiere of “Does This Bus Stop on 82nd Street.”
 
-[https://www.youtube.com/watch?v=48hPyA5TGG0](https://www.youtube.com/watch?v=48hPyA5TGG0)
+[Watch on Youtube: Does This Bus Stop at 82nd Street? - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=48hPyA5TGG0)
 
 Listening to the newly expanded, impressively tight E Street Band–complete with horn section and expanded percussion–ace the song on its first tour outing, trading solos and catching every cue, it’s easy to forget:
 
 “Does This Bus Stop on 82nd Street” used to be a runaway train, always a moment away from a complete wreck. Compare the performance above with this pulse-racing early version by the original E Street Band, from January 1974:
 
-[https://videopress.com/embed/Kou5zDLL](https://videopress.com/embed/Kou5zDLL)
+[Watch Video Highlight](https://videopress.com/embed/Kou5zDLL)
 
 I’ve listened to that clip dozens of times and I *still* keep expecting the train wreck that never comes. Vini Lopez in particular is *all over the freaking place*–he gives Animal a run for his money.
 
-[https://www.youtube.com/watch?v=VeQg2auVlU4](https://www.youtube.com/watch?v=VeQg2auVlU4)
+[Watch on Youtube: Muppet Songs: Animal - Drum Solo](https://www.youtube.com/watch?v=VeQg2auVlU4)
 
 But whether you prefer the pure adrenaline 1974 version or the more manageable modern arrangement, the key to understanding “Does This Bus Stop on 82nd Street” is realizing: *it’s barely even a song*.
 
 The original album version clocks in at just a breath over two minutes. There’s no chorus, no plot, no point-of-view character, no message, and the song doesn’t end so much as just… stops.
 
-[https://www.youtube.com/watch?v=RTFUcl49L1E](https://www.youtube.com/watch?v=RTFUcl49L1E)
+[Watch on Youtube: Does This Bus Stop at 82nd Street?](https://www.youtube.com/watch?v=RTFUcl49L1E)
 
 “Does This Bus Stop at 82nd Street” sounds for all the world like what it probably was: a mental exercise for a bored young songwriter trying to pass the time on a long bus ride from Jersey to New York City.
 
 Bruce admitted as much during a radio performance when the song was brand-spanking-new, explaining that the first part of the song was indeed written on the bus to 82nd Street, the second part on the subway to a gig downtown, and the third part was written at his house.
 
-[https://www.youtube.com/watch?v=Cc9qJ1lz5P8](https://www.youtube.com/watch?v=Cc9qJ1lz5P8)
+[Watch on Youtube: Bruce Springsteen - DOES THIS BUS STOP AT 82nd STREET? 1973 (audio)](https://www.youtube.com/watch?v=Cc9qJ1lz5P8)
 
 But the very fact of its insubstantiality makes “Does This Bus Stop on 82nd Street” endlessly malleable, as the radio performance above proved early on. (I’m more partial to the slow, jazzy street scene version than the uptempo ones.) My theory is that Bruce uses inventive arrangements to distract the listener from thinking too hard about the song.
 
@@ -32,7 +32,7 @@ But the very fact of its insubstantiality makes “Does This Bus Stop on 82nd St
 
 “Does This Bus Stop on 82nd Street” was one of the earlier songs Bruce wrote for his first album. In fact, he first recorded a demo of it at CBS Studio on May 3, 1972, with nearly identical lyrics (but in slightly different order). That version would be released 26 years later on *Tracks*.
 
-[https://www.youtube.com/watch?v=YeicNZPARZg](https://www.youtube.com/watch?v=YeicNZPARZg)
+[Watch on Youtube: Does This Bus Stop At 82nd Street? (Demo Version - 1972)](https://www.youtube.com/watch?v=YeicNZPARZg)
 
 Okay, I guess I’ve stalled long enough: let’s take a close look at those lyrics.
 
@@ -89,17 +89,17 @@ Who knows why Bruce abandoned the song at that point? Perhaps his Spanish rose d
 
 In the end, and at its essence, “Does This Bus Stop on 82nd Street” is a songwriter’s exercise, a verbal painting caught by an artist’s eye. It’s also very likely heavily influenced by Bob Dylan’s songwriting style, something Bruce occasionally seems to wink at (check out the one-minute mark in the 1995 clip below).
 
-[https://www.youtube.com/watch?v=NJHhXqGfSvc](https://www.youtube.com/watch?v=NJHhXqGfSvc)
+[Watch on Youtube: Does This Bus Stop at 82nd Street? (Live at the Tower Theatre in Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=NJHhXqGfSvc)
 
 But the most important thing about it is: it’s just plain fun. Bruce has plenty of weighty songs in his catalog. It’s nice to occasionally lose ourselves in a trifle, and Bruce seems to agree. That’s why “Does This Bus Stop at 82nd Street” is never likely to miss a tour.
 
 Heck, Bruce even played it once on the Seeger Sessions Tour.
 
-[https://videopress.com/embed/YxzSDQZo](https://videopress.com/embed/YxzSDQZo)
+[Watch Video Highlight](https://videopress.com/embed/YxzSDQZo)
 
 So until we catch that bus again, here’s one more performance to enjoy–the last “Bus Stop” outing to date, from Perth on January 22, 2017.
 
-[https://www.youtube.com/watch?v=isGuAxRlZ-w](https://www.youtube.com/watch?v=isGuAxRlZ-w)
+[Watch on Youtube: Does This Bus Stop at 82nd Street - Bruce Springsteen - Perth Arena - 22-01-2017](https://www.youtube.com/watch?v=isGuAxRlZ-w)
 
 **Does This Bus Stop at 82nd Street?  
 Recorded:** June 27-July 12, 1972  

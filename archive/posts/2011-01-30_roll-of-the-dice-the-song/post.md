@@ -2,13 +2,13 @@ There’s some debate as to the actual name of this unreleased, never-performed 
 
 In Bruce’s handwritten notes, he refers to it as “I Heard the Word,” and certainly that line is oft-repeated. It was eventually copyrighted in 1995 under the title “The Word.”
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1972_handwrittensonglist2-194x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/06/1972_handwrittensonglist2.jpg)
 
 But in the actual studio recording from 1972, it’s referred to verbally as “The Song,” and so that’s what we’ll go with.
 
 Regardless of what you call the song, “The Song” is rather typical of Bruce’s early songwriting: lyrically lush with colorful nicknames, religious imagery, and dense metaphor describing the unknowable, unattainable, unchainable object of his desire.
 
-[https://www.youtube.com/watch?v=lLKRhwmJz_U](https://www.youtube.com/watch?v=lLKRhwmJz_U)
+[Watch on Youtube: Bruce Springsteen the song the word I heard the word](https://www.youtube.com/watch?v=lLKRhwmJz_U)
 
 *Well you flash your tongue like diamonds*  
 *You tied me to your wildcat schemes*  

@@ -2,17 +2,17 @@ It started the way many of Bruce’s great songs did–with a hook.
 
 Sometime during the autumn of 1981, Bruce broke out his cassette recorder at his home in Colts Neck, and recorded two different deliveries of the chorus (if you can call it that) of what would become “Club Soul City.”
 
-[https://www.youtube.com/watch?v=jZ4rLMDqeUU](https://www.youtube.com/watch?v=jZ4rLMDqeUU)
+[Watch on Youtube: Bruce Springsteen Club Soul City Nebraska Outtakes 1981/1982](https://www.youtube.com/watch?v=jZ4rLMDqeUU)
 
 Oh yeah… the second one’s the stuff. But those 55 seconds are the only glimpse we have into the development of a song that Bruce would quickly finish and donate to Gary U.S. Bonds.
 
-Gary’s cover of “Club Soul City” appears on *On the Line*, his 1982 follow-up to his *Dedication* comeback album. Produced by both Bruce and Steve Van Zandt, *On the Line* features no less than *seven* original Springsteen compositions (see “[Angelyne](http://estreetshuffle.com/index.php/2019/02/04/cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/)” for another), and the entire E Street Band backs Bonds throughout.
+Gary’s cover of “Club Soul City” appears on *On the Line*, his 1982 follow-up to his *Dedication* comeback album. Produced by both Bruce and Steve Van Zandt, *On the Line* features no less than *seven* original Springsteen compositions (see “[Angelyne](https://estreetshuffle.com/index.php/2019/02/04/cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/)” for another), and the entire E Street Band backs Bonds throughout.
 
 In fact, if not for Columbia’s insistence on removing Bruce’s backing from the album, it wouldn’t be that much of a stretch to call *On the Line* a lost Springsteen album. Bruce’s contributions to *On the Line* are light pop numbers, in stark contrast to what he was writing and recording in that *Nebraska* era; I’m sure Bonds was more than happy to provide an outlet for the lighter side of Bruce’s songwriting.
 
 Let’s take a listen:
 
-[https://www.youtube.com/watch?v=kOEgaUp-3Pw](https://www.youtube.com/watch?v=kOEgaUp-3Pw)
+[Watch on Youtube: GARY U.S. BONDS - Club soul city](https://www.youtube.com/watch?v=kOEgaUp-3Pw)
 
 “Club Soul City” doesn’t demand a lot of analysis. In fact, it’s basically a more soulful re-write of “[Heartbreak Hotel](https://estreetshuffle.com/index.php/2021/04/11/matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/).” While Bruce doesn’t provide the club’s address, it’s almost certainly down at the end of Lonely Street.
 
@@ -46,6 +46,4 @@ Man, it must have killed Bruce not to provide those call-and-response backing vo
 
 Despite his many performances with Bonds over the years, Bruce has never played “Club Soul City” live. The closest he came was during a 1992 soundcheck in Milan; you can hear him working out the song below. It’s too bad the song never made it to the setlist during that tour–“Club Soul City” would have been a good fit for the 1992-93 touring band.
 
-[https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
-
- 
+[CSC Milano 1992 by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&show_artwork=true&maxheight=1000&maxwidth=758)

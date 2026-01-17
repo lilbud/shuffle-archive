@@ -1,14 +1,14 @@
 It started as an elegy.
 
-[https://www.youtube.com/watch?v=r5_8gpiSotI](https://www.youtube.com/watch?v=r5_8gpiSotI)
+[Watch on Youtube: The Rising](https://www.youtube.com/watch?v=r5_8gpiSotI)
 
 It became a celebration.
 
-[https://www.youtube.com/watch?v=f5e1WlOyr1U](https://www.youtube.com/watch?v=f5e1WlOyr1U)
+[Watch on Youtube: the rising - bruce springsteen](https://www.youtube.com/watch?v=f5e1WlOyr1U)
 
 Ultimately, it grew into an anthem.
 
-[https://www.youtube.com/watch?v=KExE6wL_GFM](https://www.youtube.com/watch?v=KExE6wL_GFM)
+[Watch on Youtube: Rise Up at the Democratic Convention | Joe Biden For President 2020](https://www.youtube.com/watch?v=KExE6wL_GFM)
 
 And along the way, it reintroduced the world to one of the 20th century’s greatest songwriters and made it clear he’d hold that rank in the 21st century, too.
 
@@ -26,7 +26,7 @@ He’d already written “Into the Fire,” the story of a 9/11 first responder�
 
 “The Rising” has been so thoroughly discussed by so many that it’s almost pointless for me to do my customary line-by-line analysis. Bruce already did that himself during his VH-1 *Storytellers* appearance in 2005.
 
-[https://www.youtube.com/watch?v=7G_n8l-2SCQ](https://www.youtube.com/watch?v=7G_n8l-2SCQ)
+[Watch on Youtube: Bruce Springsteen - The Rising - The Story (From VH1 Storytellers)](https://www.youtube.com/watch?v=7G_n8l-2SCQ)
 
 But we can’t properly appreciate “The Rising” without admiring the superb artistry with which it’s constructed, so let’s take a run at it anyway.
 
@@ -128,7 +128,7 @@ It’s why President-Elect Biden’s campaign commissioned a new video for “Th
 
 (To those who dismiss the 2020 video as a campaign ad: watch it again. If you can’t recognize how absolutely *perfect* this video is for Bruce’s song, really pay attention to the lyrics. Whoever created this video for “The Rising”–with its parade of ordinary acts of personal heroism–viscerally understands this song. It may be one of Bruce’s finest official videos ever.)
 
-[https://www.youtube.com/watch?v=KExE6wL_GFM](https://www.youtube.com/watch?v=KExE6wL_GFM)
+[Watch on Youtube: Rise Up at the Democratic Convention | Joe Biden For President 2020](https://www.youtube.com/watch?v=KExE6wL_GFM)
 
 In the eighteen years since its release, “The Rising” has become one of Bruce’s most beloved songs, and one of his most frequently performed.
 
@@ -138,19 +138,19 @@ In fact, if we only consider Bruce’s 21st-century performances, “The Rising�
 
 Which makes selecting live performances to feature a task both easy and daunting–even narrowed to official releases, there’s an embarrassment of riches from which to choose. From Bruce’s contemporary Rising Tour performance in Barcelona…
 
-[https://www.youtube.com/watch?v=A9LpsP0goJ8](https://www.youtube.com/watch?v=A9LpsP0goJ8)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - The Rising (Live In Barcelona)](https://www.youtube.com/watch?v=A9LpsP0goJ8)
 
 …to the aforementioned *Storytellers* performance…
 
-[https://www.youtube.com/watch?v=PTCqXYOujxk](https://www.youtube.com/watch?v=PTCqXYOujxk)
+[Watch on Youtube: Bruce Springsteen - The Rising -The Song (From VH1 Storytellers)](https://www.youtube.com/watch?v=PTCqXYOujxk)
 
 …Hyde Park in 2009…
 
-[https://www.youtube.com/watch?v=P5pNqBhz8uI](https://www.youtube.com/watch?v=P5pNqBhz8uI)
+[Watch on Youtube: The Rising -The Song (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=P5pNqBhz8uI)
 
 …and of course, its anchor appearance in *Springsteen on Broadway*, where it communicated Bruce’s sense of duty and calling without any introductory narrative (the only song in the show for which that’s the case).
 
-[https://www.youtube.com/watch?v=a4AwFNGN8vI](https://www.youtube.com/watch?v=a4AwFNGN8vI)
+[Watch on Youtube: Bruce Springsteen - The Rising (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=a4AwFNGN8vI)
 
 In all, Bruce has performed “The Rising” an astonishing 864 times to date, a number that will almost certainly be rendered out-of-date soon after publication.
 
@@ -163,7 +163,7 @@ In craft, content, performance, and artistry, it stands incontrovertibly as one 
 
 **Bonus:** The 2020 official video for “The Rising” wasn’t the first video for the song (although it’s certainly the most viewed). Back in 2003, a video for “The Rising” aired once–and only once–on an Australian television show called *Rage*. As far as I know, it was never aired before or since, but it’s floated around collector’s circles and YouTube for years. It’s not a great video (which may be why it’s never been seen or even acknowledged since), but as a curiosity, it’s worth a watch.
 
-[https://www.youtube.com/watch?v=6i-fiRgbpr4](https://www.youtube.com/watch?v=6i-fiRgbpr4)
+[Watch on Youtube: Bruce Springsteen - The Rising (official video)](https://www.youtube.com/watch?v=6i-fiRgbpr4)
 
 **The Rising  
 Recorded:** February-March 2002  

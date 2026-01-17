@@ -18,7 +18,7 @@ But what about when people leave us too soon? When parents pass early, their chi
 
 Nothing is stable anymore, nothing reliable. Every step is shaky and unsure, the ground constantly shifting. This is the unsteady foundation of “Silver Palomino.”
 
-[https://www.youtube.com/watch?v=9sr7nxcIBZ8](https://www.youtube.com/watch?v=9sr7nxcIBZ8)
+[Watch on Youtube: Silver Palomino](https://www.youtube.com/watch?v=9sr7nxcIBZ8)
 
 On September 4, 1996, Rumson resident Fiona Williams-Chappel died of heart failure at the age of 37.
 
@@ -100,7 +100,7 @@ As for our narrator, he rides in red, the color of blood and life, a nightly vis
 
 **Bonus:** Bruce performed “Silver Palomino” frequently during the Devils & Dust Tour (including once when Tyler Chappel was in the audience in Albany), but not at all since. Here’s one of his best performances, captured on film on the tour’s opening night.
 
-[https://www.youtube.com/watch?v=F20vN0Fs8ZU](https://www.youtube.com/watch?v=F20vN0Fs8ZU)
+[Watch on Youtube: Silver Palomino (solo acoustic) Bruce Springsteen 4/25/2005 Detroit, MI](https://www.youtube.com/watch?v=F20vN0Fs8ZU)
 
 **Silver Palomino  
 Recorded:** 1996-97 (core recording), 2004 (strings)  

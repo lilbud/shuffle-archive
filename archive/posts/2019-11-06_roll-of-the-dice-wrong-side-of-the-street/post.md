@@ -1,16 +1,16 @@
-Bruce’s penchant for tinkering with old recordings and grafting modern elements has accelerated in recent years, and sometimes the seams are more noticeable than others. (I’m looking at you, “[The Brokenhearted](http://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/).”)
+Bruce’s penchant for tinkering with old recordings and grafting modern elements has accelerated in recent years, and sometimes the seams are more noticeable than others. (I’m looking at you, “[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/).”)
 
 *The Promise* is full of such hybrid creations, but “Wrong Side of the Street” is one of the subtler ones: a vintage 1977 backing track paired with modern 2010-ish vocals.
 
 Originally and mystifyingly recorded under the title “English Song” on October 14, 1977, the song escaped into the wild via enterprising bootleggers. Unfortunately, though, the version that circulated for years had lyrics that were somewhat bluffed and largely incoherent. Take a listen:
 
-[https://www.youtube.com/watch?v=zEYtyVdY7Rc](https://www.youtube.com/watch?v=zEYtyVdY7Rc)
+[Watch on Youtube: BRUCE SPRINGSTEEN - Endless Night (English Sons) - remast. outtake, 1978](https://www.youtube.com/watch?v=zEYtyVdY7Rc)
 
 It’s not at all clear that Bruce intended the song to be called “Wrong Side of the Street,” and in fact the phrase only appears a couple of times (as does the phrase, “Endless Night,” which is the title the bootleg version often circulated under).
 
 But when Bruce decided to spruce up the song for release on his 2010 *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*companion album, *The Promise*, that’s the phrase that Bruce seemed to glom on to.
 
-[https://www.youtube.com/watch?v=gtxR_9j6kLg](https://www.youtube.com/watch?v=gtxR_9j6kLg)
+[Watch on Youtube: Wrong Side of the Street](https://www.youtube.com/watch?v=gtxR_9j6kLg)
 
 And it works, because “Wrong Side of the Street” is a light, straightforward rocker that’s about the late-night rendezvous of a couple from opposite sides of the metaphorical tracks–or, I suppose, the street.
 
@@ -63,4 +63,4 @@ It’s hard to blame Bruce, though, because it’s a great backing track with te
 **Released:** *The Promise* (2010)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

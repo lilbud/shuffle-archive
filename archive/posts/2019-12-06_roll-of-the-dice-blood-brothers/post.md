@@ -4,7 +4,7 @@ How can such a nihilistic song give us so much feels?
 
 That’s the irony underlying the song that–despite only having been played five times ever–has come to symbolize for many the 21st-century E Street Band era.
 
-[https://www.youtube.com/watch?v=YAuIPCem2uk](https://www.youtube.com/watch?v=YAuIPCem2uk)
+[Watch on Youtube: Blood Brothers](https://www.youtube.com/watch?v=YAuIPCem2uk)
 
 On first listen–heck, maybe even on *any* listen–“Blood Brothers” is shocking in its apathy. If asked to name a defining trait for Bruce Springsteen on *Family Feud*, “passion” would almost certainly be the number one answer. But the singer of “Blood Brothers” can’t dredge any of it up–he can only remember it in the faint, foolish, glow of youth.
 
@@ -33,16 +33,12 @@ Remember, this is the man who only a few years earlier wrote one of the other de
 *We swore we’d travel darlin’ side by side*  
 *We’d help each other stay in stride*
 
- 
-
-Granted, “[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” is a romantic song and “Blood Brothers” a fraternal one, but the narrator of the latter seems to have lost the heart of the former.
+Granted, “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” is a romantic song and “Blood Brothers” a fraternal one, but the narrator of the latter seems to have lost the heart of the former.
 
 *Now the hardness of this world slowly grinds your dreams away*  
 *Making a fool’s joke out of the promises we make*  
 *And what once seemed black and white turns to so many shades of gray*  
 *We lose ourselves in work to do, work to do and bills to pay*
-
- 
 
 If there’s an emotional core to “Blood Brothers,” this is it: that the passion and promise of youth inevitably comes under siege by the pressures of age.
 
@@ -75,7 +71,7 @@ That apathy carried through more than just the lyrics; during his professionally
 
 In any event, besides the “official” version above that appears on *Greatest Hits,* we also have this “rock” version (with abbreviated lyrics) from the *Blood Brothers* EP.
 
-[https://www.youtube.com/watch?v=LrzSY2bVDzg](https://www.youtube.com/watch?v=LrzSY2bVDzg)
+[Watch on Youtube: Blood Brothers (Alternate Version)](https://www.youtube.com/watch?v=LrzSY2bVDzg)
 
 Interestingly, the rock version discards the “I don’t know why” ending of the official version and replaces it with this couplet:
 
@@ -86,21 +82,21 @@ Those lines don’t appear in any other of the versions floating around, so it m
 
 And then there’s whatever this version is:
 
-[https://videopress.com/embed/yPReuND7](https://videopress.com/embed/yPReuND7)
+[Watch Video Highlight](https://videopress.com/embed/yPReuND7)
 
 …and this lovely acoustic version (with some slight lyrical changes and verse swapping):
 
-[https://videopress.com/embed/f1SqqG0a](https://videopress.com/embed/f1SqqG0a)
+[Watch Video Highlight](https://videopress.com/embed/f1SqqG0a)
 
 But the version at the top of this essay is the one that Bruce decided to release, and it’s the version he sang once at Sony Studios in 1995 before changing the song forever five years later.
 
-[https://www.youtube.com/watch?v=h4_QjWnGhx4](https://www.youtube.com/watch?v=h4_QjWnGhx4)
+[Watch on Youtube: Bruce Springsteen - Blood Brothers - NYC 1995](https://www.youtube.com/watch?v=h4_QjWnGhx4)
 
-Over the course of the Reunion Tour, the E Street Band re-formed their familial bonds. Fans could see the band’s intimacy gel over the course of the tour, and by the time the tour came to a close, their nightly “[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” closer seemed less of a re-dedication promise and more of a statement of fact.
+Over the course of the Reunion Tour, the E Street Band re-formed their familial bonds. Fans could see the band’s intimacy gel over the course of the tour, and by the time the tour came to a close, their nightly “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” closer seemed less of a re-dedication promise and more of a statement of fact.
 
 But on closing night, Bruce had one more song in mind after “Land of Hope and Dreams,” and while the band may have known it was coming, they were clearly not emotionally prepared for how Bruce had changed the song.
 
-[https://www.youtube.com/watch?v=j5-QMHFiIA4](https://www.youtube.com/watch?v=j5-QMHFiIA4)
+[Watch on Youtube: Bruce Springsteen - Blood Brothers (NYC, 1/07/2000)](https://www.youtube.com/watch?v=j5-QMHFiIA4)
 
 Bruce completely excised the nihilistic last verse and replaced it with lyrics that showed how in touch Bruce was with his heart at that moment. And if there was any doubt at all among those in attendance, Bruce’s tears and husky vocals put it to rest.
 
@@ -118,7 +114,7 @@ In that last line, that last word, Bruce finally made the song explicitly about 
 
 When the E Street Band took to the road again on the Rising Tour, Bruce once again close the tour with “Blood Brothers,” his band surrounding him.
 
-[https://www.youtube.com/watch?v=6jTGdIALiY4](https://www.youtube.com/watch?v=6jTGdIALiY4)
+[Watch on Youtube: 30 Blood Brothers Bruce Springsteen Shea Stadium 4th October 2003](https://www.youtube.com/watch?v=6jTGdIALiY4)
 
 It was the last time that Bruce performed “Blood Brothers” before the sweet became tinged with bitter.
 
@@ -126,15 +122,15 @@ The E Street Band didn’t tour again (other than a brief Vote for Change sprint
 
 When the band regrouped for their first show after Danny’s passing, a video tribute preceded the concert–a Danny montage set to, of course, “Blood Brothers.”
 
-[https://www.youtube.com/watch?v=RybT8oUUdCQ](https://www.youtube.com/watch?v=RybT8oUUdCQ)
+[Watch on Youtube: Bruce Springsteen - Blood Brothers (A Tribute to Danny)](https://www.youtube.com/watch?v=RybT8oUUdCQ)
 
 The following night, Bruce and the band–still healing as they would continue to do for some time to come–opened with their one and only performance of the rock arrangement of “Blood Brothers.”
 
-[https://videopress.com/embed/HB5j102B](https://videopress.com/embed/HB5j102B)
+[Watch Video Highlight](https://videopress.com/embed/HB5j102B)
 
 Bruce only played “Blood Brothers” one time since–by request in Perth in 2017, and at the opening rather than closing show of a tour.
 
-[https://www.youtube.com/watch?v=wRXHzpR7hhs](https://www.youtube.com/watch?v=wRXHzpR7hhs)
+[Watch on Youtube: Blood Brothers (Acoustic) - Bruce Springsteen - Perth Arena - 22-01-2017](https://www.youtube.com/watch?v=wRXHzpR7hhs)
 
 It’s notable that Bruce reverted to the original lyrics in the clip above for the first time since he debuted the song in 1995.
 
@@ -148,4 +144,4 @@ Recorded:** January 1995
 **First performed:** April 4, 1995 (New York City, NY)  
 **Last performed:** January 22, 2017 (Perth, Australia)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

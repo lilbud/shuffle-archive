@@ -10,7 +10,7 @@ Because someone was using the bridge closure to send a message, and that someone
 
 (The message actually came from members of Christie’s administration, who Christie readily threw under the bus as details of the scandal came to light. No evidence ever incontrovertibly linked Christie’s involvement to the incident.)
 
-[https://www.youtube.com/watch?v=34Gdu-TINEM](https://www.youtube.com/watch?v=34Gdu-TINEM)
+[Watch on Youtube: Chris Christie 'Bridgegate' Scandal](https://www.youtube.com/watch?v=34Gdu-TINEM)
 
 By early 2014, “Bridgegate” was a national scandal. Americans watched in outrage and schadenfreude as the true story unfolded, and Christie went from respected presidential hopeful to the butt of late night comedians’ jokes.
 
@@ -18,7 +18,7 @@ One of those comedians was Jimmy Fallon, who carped the diem when Bruce Springst
 
 And not just any song. They rewrote “Born to Run” in light of recent events (I suspect Fallon and his team did the heavy lifting) and opened the show with Fallon doing his best 80s Bruce impersonation. Before long, though, the real Springsteen (in classic 80s getup) joined him at the microphone.
 
-[https://player.vimeo.com/video/84278263?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/84278263?dnt=1&amp;app_id=122963)
+[www.facebook.com/SpringsteenChile](https://player.vimeo.com/video/84278263?dnt=1&app_id=122963)
 
 “Gov. Christie Traffic Jam” became an immediate viral sensation, thanks to the timeliness of its subject matter. the biting cleverness of its lyrics…
 
@@ -55,5 +55,3 @@ But at least for Christie, there were no hard feelings. On his first day as a pr
 **Gov. Christie Traffic Jam  
 First performed:** January 14, 2014  
 **Last performed:** January 14, 2014
-
- 

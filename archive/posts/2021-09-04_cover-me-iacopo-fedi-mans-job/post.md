@@ -10,7 +10,7 @@ Almost all of the fifteen finalists checked that box with their video submission
 
 But Iacopo Fedi’s cover of “[Man’s Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)” wasn’t one of them.
 
-[https://www.youtube.com/watch?v=856UzDiB5zo](https://www.youtube.com/watch?v=856UzDiB5zo)
+[Watch on Youtube: Man's Job - Iacopo Fedi](https://www.youtube.com/watch?v=856UzDiB5zo)
 
 Iacopo’s video certainly wasn’t bad, and it definitely was a different take on the song. But it featured a slick, synthy production that reminded me of what I didn’t like about the *Human Touch* album in general (even though “Man’s Job” is one of its lesser offenders).
 
@@ -22,7 +22,7 @@ As it turned out, he didn’t. He went a different way instead, and boy was I gl
 
 Trust me and watch this straight through–and prepare to be as blown away as I was.
 
-[https://videopress.com/embed/y8xGamAc](https://videopress.com/embed/y8xGamAc)
+[Watch Video Highlight](https://videopress.com/embed/y8xGamAc)
 
 Slowed down and stripped down to its bare essentials, Iacopo’s arrangement gave him plenty of room to showcase his impressively powerful vocals. All the elements clicked, and his performance of “Man’s Job” ended up being one of my top three favorites of the night.
 
@@ -31,5 +31,3 @@ Fedi’s astounding performance landed him in eleventh place for the evening, wh
 I’ll be featuring several more of my favorite performances over the coming weeks, along with my overall impressions of the event. But for now, my thanks and admiration to creator/organizer Alberto Lanfranchi and his wonderful, warm team for putting on an amazing event during a challenging time, and for allowing me to be a part of it.
 
 And thank you, Iacopo, for re-inventing Bruce’s song and deepening my appreciation of it. Your live performance that night will likely remain my single favorite performance of “Man’s Job” by anyone, Bruce included.
-
- 

@@ -4,7 +4,7 @@ Every once in a while, Bruce writes a pure pop song like “[Surprise, Surprise]
 
 That was as true at the beginning as it is now. Take “Last Night in Tulsa,” for example.
 
-[https://videopress.com/embed/9Hc9f0XV](https://videopress.com/embed/9Hc9f0XV)
+[Watch Video Highlight](https://videopress.com/embed/9Hc9f0XV)
 
 Bruce wrote and performed “Last Night in Tulsa” during his Bruce Springsteen Band period, and although there are at least three known performances of it, this is the only one that widely circulates.
 

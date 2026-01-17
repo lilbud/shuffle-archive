@@ -4,13 +4,13 @@ Bruce Springsteen was scheduled to perform the following evening at FedExField i
 
 It seems obvious, in retrospect: “I Walk the Line,” Cash’s first #1 hit (on the Billboard Country chart) refused to leave the record charts for 43 weeks when it was released in 1956.
 
-[https://www.youtube.com/watch?v=oQFicmUfKi4](https://www.youtube.com/watch?v=oQFicmUfKi4)
+[Watch on Youtube: I Walk the Line](https://www.youtube.com/watch?v=oQFicmUfKi4)
 
 Lyrically simple but musically complex, Cash’s love song to his first wife became a signature song, establishing his sound and racking up accolades. *Rolling Stone* ranked it as the #1 greatest country song of all time and #30 on its *500 Greatest Songs of All Time* list.
 
 So it was a perfect choice for Bruce’s salute to Johnny, and he wasted no time getting to it. On the evening of September 13, Bruce strolled onto the stage with his acoustic guitar in hand, and without a word of introduction or explanation (none was necessary) he performed a beautiful acoustic arrangement of “I Walk the Line.”
 
-[https://www.youtube.com/watch?v=n6xNSEGRNbo](https://www.youtube.com/watch?v=n6xNSEGRNbo)
+[Watch on Youtube: Bruce Springsteen | I Walk The Line - Landover - 13/09/2003](https://www.youtube.com/watch?v=n6xNSEGRNbo)
 
 Bruce wisely avoided the original version’s challenging key changes, which also meant he didn’t have to mimic Johnny’s humming (which Cash did on the record in order to find the right pitch).
 
@@ -21,5 +21,3 @@ Bruce must have been pleased with how it came off, because he opened his show wi
 **I Walk The Line  
 First performed:** September 13, 2003 (Landover, MD)  
 **Last performed:** September 14, 2003 (Chapel Hill, NC)
-
- 

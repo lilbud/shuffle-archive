@@ -1,10 +1,10 @@
 *Men Without Women* was Little Steven’s first Disciples of Soul album, but at least for three of its tracks, it might be more accurate to call it a Little Steven-fronted E Street Band project.
 
-We took a listen to “[Angel Eyes](http://estreetshuffle.com/index.php/2019/07/26/matr-little-steven-and-bruce-springsteen-angel-eyes/)” and “[Until the Good is Gone](http://estreetshuffle.com/index.php/2018/11/17/meeting-across-the-river-little-steven-and-bruce-springsteen-until-the-good-is-gone/)” a couple of years ago; now we round out the trilogy with the album’s title track, “Men Without Women.” (All three tracks were recorded with Little Steven’s E Street Band and Asbury Jukes mates before he recruited his Disciples.)
+We took a listen to “[Angel Eyes](https://estreetshuffle.com/index.php/2019/07/26/matr-little-steven-and-bruce-springsteen-angel-eyes/)” and “[Until the Good is Gone](https://estreetshuffle.com/index.php/2018/11/17/meeting-across-the-river-little-steven-and-bruce-springsteen-until-the-good-is-gone/)” a couple of years ago; now we round out the trilogy with the album’s title track, “Men Without Women.” (All three tracks were recorded with Little Steven’s E Street Band and Asbury Jukes mates before he recruited his Disciples.)
 
 “Men Without Women” may be the least performed of the album’s three tracks with (uncredited) Springsteen contributions, but it’s a great song that any man who’s ever done something stupid when out with the guys will understand.
 
-[https://www.youtube.com/watch?v=Jm58U1BZM-M](https://www.youtube.com/watch?v=Jm58U1BZM-M)
+[Watch on Youtube: Men Without Women](https://www.youtube.com/watch?v=Jm58U1BZM-M)
 
 We can clearly hear Bruce’s delightfully messy harmony vocals kick in close to the one-minute mark, and they grow increasingly prominent (and out of sync) through the bridge and final verse. We clearly sense that *these* two men are about to do the things that men without women do.
 
@@ -16,5 +16,3 @@ As with “Angel Eyes,” Bruce and Steve have never performed “Men Without Wo
 Recorded:** November 1981  
 **Released:** *Men Without Women* (1982)  
 **Never performed**
-
- 

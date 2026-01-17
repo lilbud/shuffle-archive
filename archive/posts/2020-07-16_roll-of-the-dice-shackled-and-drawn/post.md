@@ -10,11 +10,11 @@ Hands down: “Shackled and Drawn.”
 
 “Shackled and Drawn” has been my favorite *Wrecking Ball* track from my very first listen, and it was a reliable nightly highlight for almost all of the eighteen shows I was fortunate enough to catch on the Wrecking Ball and High Hopes tours.
 
-But when Bruce [opened with it in Vancouver](http://estreetshuffle.com/index.php/2018/11/26/where-the-band-was-vancouver-november-26-2012/) towards the end of the final North American leg… well, that was easily the best show opener I’ve ever seen in my seventy shows over the years.
+But when Bruce [opened with it in Vancouver](https://estreetshuffle.com/index.php/2018/11/26/where-the-band-was-vancouver-november-26-2012/) towards the end of the final North American leg… well, that was easily the best show opener I’ve ever seen in my seventy shows over the years.
 
 I mean, come on: is there any more fitting way to kick off a Springsteen show than a work chant in the dark? Work songs are meant to coordinate labor for maximum power, and isn’t that what a concert is at its best? Check it out:
 
-[https://www.youtube.com/watch?v=d0YBm4hm9Nc](https://www.youtube.com/watch?v=d0YBm4hm9Nc)
+[Watch on Youtube: Bruce Springsteen opening song Vancouver 2012 Shackled and Drawn](https://www.youtube.com/watch?v=d0YBm4hm9Nc)
 
 When those house lights went on, that audience was locked and primed for a long, communal evening.
 
@@ -30,7 +30,7 @@ He didn’t, of course, but that doesn’t diminish my admiration for “Shackle
 
 Let’s take a listen to the album track–itself a fascinating melange of vintage and modern styles. sounding for all the world like a cross between a carnival, a revival, and a shanty.
 
-[https://www.youtube.com/watch?v=GGLRj-OFWaw](https://www.youtube.com/watch?v=GGLRj-OFWaw)
+[Watch on Youtube: Shackled And Drawn](https://www.youtube.com/watch?v=GGLRj-OFWaw)
 
 If we’re looking for a song that exemplifies Bruce’s reputation as a bard for the working man, we need look no farther than “Shackled and Drawn.”
 
@@ -97,13 +97,13 @@ There’s no song in Bruce’s catalog that more aptly captures the emotional im
 *What’s a poor boy to do but keep singing his song*  
 *I woke up this morning shackled and drawn*
 
-Oh, and we can’t let that “poor boy” reference pass us by for a third time without noting Bruce’s homage to The Rolling Stones’ “[Street Fighting Man](http://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/).” Bruce cited “What can a poor boy do but sing in a rock and roll band” as one of the greatest lyrics of all time; it’s fitting that Bruce borrows it for his own call to revolution.
+Oh, and we can’t let that “poor boy” reference pass us by for a third time without noting Bruce’s homage to The Rolling Stones’ “[Street Fighting Man](https://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/).” Bruce cited “What can a poor boy do but sing in a rock and roll band” as one of the greatest lyrics of all time; it’s fitting that Bruce borrows it for his own call to revolution.
 
 And make no mistake: “Shackled and Drawn” is as much a call to revolution (and as much an admission of its futility) as is “Street Fighting Man.”
 
 As if to erase any doubt of that, Bruce ends the song with a spotlight on Cindy Mizelle, quoting Lyn Collins’ galvanizing “Me and My Baby Got Our Own Thing Going.”
 
-[https://www.youtube.com/watch?v=Shq07MiCa6Q](https://www.youtube.com/watch?v=Shq07MiCa6Q)
+[Watch on Youtube: LYN COLLINS - me and my baby got our own thing going](https://www.youtube.com/watch?v=Shq07MiCa6Q)
 
 Bruce’s lyrics quote the opening of Collins’ 1972 single–
 
@@ -136,7 +136,7 @@ And if that doesn’t make “Shackled and Drawn” the epitome of one of Bruce�
 
 Here’s that one-off performance, the last “Shackled and Drawn” to date.
 
-[https://www.youtube.com/watch?v=-0cJ5iOn9_M](https://www.youtube.com/watch?v=-0cJ5iOn9_M)
+[Watch on Youtube: Bruce Springsteen - Ullevi Gothenburg 25-06-16 - Shackled And Drawn (HD from 4K)](https://www.youtube.com/watch?v=-0cJ5iOn9_M)
 
 **Shackled and Drawn  
 Recorded:** 2011  
@@ -144,4 +144,4 @@ Recorded:** 2011
 **First performed:** March 9, 2012 (New York City, NY)  
 Last performed: June 25, 2016 (Gothenburg, Sweden)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

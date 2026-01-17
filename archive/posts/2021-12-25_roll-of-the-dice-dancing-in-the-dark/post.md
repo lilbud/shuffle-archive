@@ -1,10 +1,6 @@
 > “Jon [Landau] had been bothering me to write a single, which is something he rarely does. But he did that day. And he wanted something *direct.* That seemed to be what he was hitting on me for at the time. I was angry. I had written a lot of songs and was kind of fed up with the whole thing. We’d been making the record for a long time and I was bored with the whole situation.
 > 
-> 
-> 
 > That particular night I came home and sat on the edge of my bed and the thing I remember thinking first was that we had a record, but it wasn’t necessarily finished; I could change the whole thing right now if I wanted to.
-> 
-> 
 > 
 > That’s all I remember thinking: if I wanted to I could do something right now that would change the whole thing…” *–Bruce Springsteen to Bill Flanagan, April 1987*
 
@@ -22,9 +18,9 @@ So Landau goaded an exhausted Bruce into writing just one more song, and while h
 
 And he did it in the most calculatedly passive-aggressive way possible: by writing meta lyrics about how sick and tired he was of working on the album and grafting them onto a backing track modeled after two of the previous year’s most commercial pop successes–the metronomic percussion of Michael Jackson’s “Beat It” (another Landau contribution via a suggestion to Max Weinberg) and the muted riff of The Police’s #1 smash, “[Every Breath You Take](https://estreetshuffle.com/index.php/2019/04/07/matr-sting-and-bruce-springsteen-every-breath-you-take/).”
 
-[https://www.youtube.com/watch?v=oRdxUFDoQe0](https://www.youtube.com/watch?v=oRdxUFDoQe0)
+[Watch on Youtube: Michael Jackson - Beat It (Official 4K Video)](https://www.youtube.com/watch?v=oRdxUFDoQe0)
 
-[https://www.youtube.com/watch?v=OMOGaugKpzs](https://www.youtube.com/watch?v=OMOGaugKpzs)
+[Watch on Youtube: The Police - Every Breath You Take (Official Music Video)](https://www.youtube.com/watch?v=OMOGaugKpzs)
 
 And because he’s Bruce Springsteen, it worked.
 
@@ -37,7 +33,7 @@ His opening verse takes its inspiration from John Prine’s 1971 classic, “Ang
 *Then come home in the evening*  
 *And have nothing to say?*
 
-[https://www.youtube.com/watch?v=U6cagWYTGCY](https://www.youtube.com/watch?v=U6cagWYTGCY)
+[Watch on Youtube: Angel from Montgomery](https://www.youtube.com/watch?v=U6cagWYTGCY)
 
 Bruce started with Prine’s lyrics about life passing you by while you sit around getting older, but quickly realized they didn’t ring true. He was a rock star, after all, and rock stars do *not* go to work in the morning. They go to work at night. So he inverted the conceit, and he was off to the races.
 
@@ -106,19 +102,21 @@ But Bruce’s first attempt at a real video was a bit on-the-nose. He’d hired 
 
 Here’s that completed but never released original video.
 
-[https://www.youtube.com/watch?v=vh8NQo1p5sA](https://www.youtube.com/watch?v=vh8NQo1p5sA)
+[Watch on Youtube: Bruce Springsteen "Dancing in the Dark" Studio Video](https://www.youtube.com/watch?v=vh8NQo1p5sA)
 
 Bruce was not happy with the way that turned out, and even without the benefit of hindsight, it’s easy to see why.
 
 To add insult to injury, not only did the video escape into the bootleg wild, but so did video footage of Bruce and Clarence practicing their moves at home. Watch if you like, but be prepared to cringe.
 
-[https://videopress.com/embed/X0n4ro1l](https://videopress.com/embed/X0n4ro1l)
+[Watch Video Highlight](https://videopress.com/embed/X0n4ro1l)
+
+
 
 Bruce fired Stein and Pearl and hired up-and-coming director Brian DePalma instead, fresh off a run of popular and critically acclaimed films. Together, they came up with a new concept, a wish-fulfillment fantasy that every Springsteen fan could relate to.
 
 In a new video that wouldn’t be released until after “Dancing in the Dark” had already crested one spot shy of the top of the Hot 100, a young girl played by an unknown actress gazes adoringly at her idol while he performs (lipsyncs, actually) on stage, only for them to make eye contact toward the end of the song. In a moment that thrilled viewers worldwide and set a precedent forever after, Bruce invites the girl on stage, and they dance–awkwardly but charmingly.
 
-[https://www.youtube.com/watch?v=129kuDCQtHs](https://www.youtube.com/watch?v=129kuDCQtHs)
+[Watch on Youtube: Bruce Springsteen - Dancing In the Dark (Official Video)](https://www.youtube.com/watch?v=129kuDCQtHs)
 
 The young girl, of course, was actress Courtney Cox, and “Dancing in the Dark” was her on-screen breakthrough. But there were obviously a lot of other people at that performance, too.
 
@@ -128,19 +126,21 @@ The song had already crested on the Hot 100, but the video took off like wildfir
 
 Fans had good reason to practice those moves: from the very beginning, Bruce was likely to pull a lucky fan on stage during “Dancing in the Dark,” and once word got out, fans were practicing their moves all over the world.
 
-[https://www.youtube.com/watch?v=IbvcLQSzPi8](https://www.youtube.com/watch?v=IbvcLQSzPi8)
+[Watch on Youtube: Live in Toronto 1984 2-dancing in the dark](https://www.youtube.com/watch?v=IbvcLQSzPi8)
 
-[https://www.youtube.com/watch?v=sfk0uMLhXqY](https://www.youtube.com/watch?v=sfk0uMLhXqY)
+[Watch on Youtube: Dancing in the dark ( 88 live ) bruce springsteen](https://www.youtube.com/watch?v=sfk0uMLhXqY)
 
 In the meantime, while Bruce was filling arenas and stadiums, “Dancing in the Dark” was picking up awards. First, it won for Best Single at the American Music Awards in January 1985. Then he won a Grammy (his first ever) for Best Rock Vocal Performance, and the Best Stage Performance in a Video award at the VMAs.
 
-[https://videopress.com/embed/hYRH5uew](https://videopress.com/embed/hYRH5uew)
+[Watch Video Highlight](https://videopress.com/embed/hYRH5uew)
+
+
 
 *Rolling Stone* readers voted “Dancing in the Dark” Single of the Year, and the magazine enshrined it as one of the 500 Songs That Shaped Rock and Roll. And while it didn’t make it all the way to the top of the chart in America, it did in Belgium and The Netherlands, and it was the Number One song of the year in Australia.
 
 “Dancing in the Dark” got serious airplay at the dance clubs too, thanks to extended remixes produced by the legendary Arthur Baker. The remixes landed Bruce in the Top 10 on the Billboard Hot Dance Music/Club Play chart–territory no one could have ever predicted Bruce claiming–and became the best-selling twelve-inch single in 1984.
 
-[https://www.youtube.com/watch?v=gX5ljyECT0E](https://www.youtube.com/watch?v=gX5ljyECT0E)
+[Watch on Youtube: Dancing In The Dark (Blaster Mix) - Bruce Springsteen](https://www.youtube.com/watch?v=gX5ljyECT0E)
 
 “Dancing in the Dark” was an unparalleled success for Bruce. Never before or again would he have a hit anywhere near that magnitude, although a few other tracks from *Born in the U.S.A.* seemed determined to give it a run for its money.
 
@@ -148,25 +148,25 @@ There was only one problem with Bruce’s greatest hit: it was incredibly dated.
 
 Bruce tried playing it acoustically as early as 1986, but in his struggle to find a fresh arrangement, he just recreated the original, with Danny Federici’s accordion standing in for The Big Man’s saxophone.
 
-[https://www.youtube.com/watch?v=RjT-Rk-o7zM](https://www.youtube.com/watch?v=RjT-Rk-o7zM)
+[Watch on Youtube: Dancing In the Dark (Live at Shoreline Amphitheatre, Mountain View, CA - 10/13/86 - Off...](https://www.youtube.com/watch?v=RjT-Rk-o7zM)
 
 Bruce tried a few other arrangements over the years, but none worked well enough to lift “Dancing in the Dark” beyond cameo status. As late as the Reunion Tour, he was still experimenting, this time with a country-ish arrangement that rollicks more than it rocks.
 
-[https://www.youtube.com/watch?v=M_XKihvL2ZU](https://www.youtube.com/watch?v=M_XKihvL2ZU)
+[Watch on Youtube: Dancing In The Dark (country) Bruce Springsteen (2000)](https://www.youtube.com/watch?v=M_XKihvL2ZU)
 
 Early on in the Rising Tour, he finally hit on an arrangement that worked, dialing back the synth, amping up the wall of guitars in the bigger, brawnier post-Reunion E Street Band, taking it uptempo, and transforming “Dancing in the Dark” into a modern rocker that’s familiar enough to tug nostalgically at his older fans’ heartstrings while his younger ones pogo with abandon.
 
-[https://www.youtube.com/watch?v=R0Dk_LuD5d8](https://www.youtube.com/watch?v=R0Dk_LuD5d8)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Dancing in the Dark (Live In Barcelona)](https://www.youtube.com/watch?v=R0Dk_LuD5d8)
 
 Once the new “Dancing in the Dark” earned its place in Bruce’s encore set, it rarely left it. Ever since, fans know that if they attend an E Street Band show, there are two songs they are guaranteed to hear in the encores: “Born to Run” and “Dancing in the Dark.”
 
-[https://www.youtube.com/watch?v=hadKa4CV1Wg](https://www.youtube.com/watch?v=hadKa4CV1Wg)
+[Watch on Youtube: Dancing In The Dark (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=hadKa4CV1Wg)
 
-[https://www.youtube.com/watch?v=x7lfzARGXGw](https://www.youtube.com/watch?v=x7lfzARGXGw)
+[Watch on Youtube: Bruce Springsteen - Dancing In the Dark (from Born In The U.S.A. Live: London 2013)](https://www.youtube.com/watch?v=x7lfzARGXGw)
 
 Bruce even found an acoustic arrangement that worked, securing his greatest hit a berth in his Broadway show and acoustic benefit performances.
 
-[https://www.youtube.com/watch?v=rWad2yy2W2o](https://www.youtube.com/watch?v=rWad2yy2W2o)
+[Watch on Youtube: Dancing in the Dark - Bruce Springsteen (live at Stand Up for Heroes 2013)](https://www.youtube.com/watch?v=rWad2yy2W2o)
 
 And as for those dance moves that inspired a generation…
 
@@ -174,13 +174,13 @@ They inspired another. And then another.
 
 To this day, when Bruce hits the road with the E Street Band, there’s guaranteed to be a fan or two (or a dozen) on stage with them at the end of the night, dancing with abandon. And as the artist gets older, the dancers get younger–a fact that must certainly delight a songwriter and performer thinking hard about his legacy.
 
-[https://videopress.com/embed/v4n1R752](https://videopress.com/embed/v4n1R752)
+[Watch Video Highlight](https://videopress.com/embed/v4n1R752)
 
 (Thanks, Sandy, for that video!)
 
 With luck, Bruce and the E Street Band will be back out on the road next year, and when they do, you can bet that night after night there will be dancing in the dark.
 
-[https://www.youtube.com/watch?v=g_9_r4r4nFI](https://www.youtube.com/watch?v=g_9_r4r4nFI)
+[Watch on Youtube: Bruce Springsteen performing “Dancing in the Dark” live at the BOK Center in Tulsa, OK Feb. 21, 2023](https://www.youtube.com/watch?v=g_9_r4r4nFI)
 
 **Dancing in the Dark  
 Recorded:** February 14 – March 8, 1984  

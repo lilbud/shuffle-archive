@@ -4,7 +4,7 @@ Let’s just call it a reunion album, because eight of the eleven tracks on Sout
 
 *Better Days* is one of Southside’s best albums, and one of its standout tracks is Steve’s “I’ve Been Working Too Hard,” a rave-up tailor-made for Southside that featured Little Steven on backing vocals, and none other than Jon Bon Jovi on duet vocals.
 
-[https://www.youtube.com/watch?v=UmzsOcF5f7k](https://www.youtube.com/watch?v=UmzsOcF5f7k)
+[Watch on Youtube: I've Been Working Too Hard](https://www.youtube.com/watch?v=UmzsOcF5f7k)
 
 The song became a minor, regional hit for Southside, and a crowd-pleaser in concert.
 
@@ -14,7 +14,7 @@ But that didn’t stop him from performing it with Southside in concert on two o
 
 The latter of those two times was caught on video–and while the quality is rough, it’s still a joy to watch. From May 27, 2001 (three days shy of the 25th anniversary of Southside’s radio broadcast from The Stone Pony), here’s Southside and Bruce (with Graham Parker) singing “I’ve Been Working Too Hard.”
 
-[https://videopress.com/embed/d2Z88t4f](https://videopress.com/embed/d2Z88t4f)
+[Watch Video Highlight](https://videopress.com/embed/d2Z88t4f)
 
 **I’ve Been Working Too Hard  
 First performed:** July 16, 1994 (Asbury Park, NJ)  

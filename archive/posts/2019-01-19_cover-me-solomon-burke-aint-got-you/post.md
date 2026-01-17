@@ -10,7 +10,7 @@ But I’m not sure that Bruce anticipated where Burke was going to take his song
 
 For most of the song, the lyric changes are stylistic, better suited to his increasingly over-the-top vocal performance. But after the bridge… well, you’ll need to listen for yourself:
 
-[https://www.youtube.com/watch?v=zHIT2xZ0Upw](https://www.youtube.com/watch?v=zHIT2xZ0Upw)
+[Watch on Youtube: Ain' got you](https://www.youtube.com/watch?v=zHIT2xZ0Upw)
 
 Well, now. “Smoke my cigar,” indeed.
 
@@ -21,7 +21,3 @@ But like I always say: if you’re gonna cover Bruce, be different or be great.
 This one is *definitely* different.
 
 As for great… you tell me. What do you think?
-
- 
-
- 

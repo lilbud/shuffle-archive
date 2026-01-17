@@ -1,10 +1,10 @@
-Someday, I’d love to see Bruce play “You’ll Be Comin’ Down” back-to-back with “[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)” and see if he has the same epiphany that he had in Sunrise a few years ago…
+Someday, I’d love to see Bruce play “You’ll Be Comin’ Down” back-to-back with “[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)” and see if he has the same epiphany that he had in Sunrise a few years ago…
 
-[https://www.youtube.com/watch?v=KtyeEEnkLAk?start=20](https://www.youtube.com/watch?v=KtyeEEnkLAk?start=20)
+[Watch on Youtube: Linda Let Me Be the One (edited)- Springsteen - BB&T Arena Sunrise, FL - April 29, 2014](https://www.youtube.com/watch?v=KtyeEEnkLAk?start=20)
 
 …because it’s sure hard not to hear echoes of “[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)” from 1992 when you listen to this under-the-radar track from Bruce’s 2007 *Magic* album, particularly the chorus:
 
-[https://www.youtube.com/watch?v=487gIbI4Z4I](https://www.youtube.com/watch?v=487gIbI4Z4I)
+[Watch on Youtube: You'll Be Comin' Down](https://www.youtube.com/watch?v=487gIbI4Z4I)
 
 Let’s set the musical similarities aside though, because lyrically the songs couldn’t be more extreme polar opposites. Whereas “Lucky Town” is optimistic, fueled by idealism tempered with life experience, “You’ll Be Comin’ Down” is downright cynical.
 
@@ -60,9 +60,9 @@ But with preceding context, it’s pretty clear that Bruce is saying that someda
 
 IMHO, “You’ll Be Comin’ Down” is the weakest song on *Magic,* and perhaps that’s why Bruce has only ever played it live once, in the heart of that album’s tour in Columbus. Here’s a pro-shot snippet and an audio clip of the performance in its entirety.
 
-[https://www.youtube.com/watch?v=w6jctYNR8Ds](https://www.youtube.com/watch?v=w6jctYNR8Ds)
+[Watch on Youtube: You'll be coming down Bruce Springsteen](https://www.youtube.com/watch?v=w6jctYNR8Ds)
 
-[https://www.youtube.com/watch?v=ZhcOV4f3xho](https://www.youtube.com/watch?v=ZhcOV4f3xho)
+[Watch on Youtube: Bruce Springsteen - You'll Be Comin' Down (Live 24-3-2008)](https://www.youtube.com/watch?v=ZhcOV4f3xho)
 
 It’s actually a solid performance, both on stage and on record, and the song itself isn’t bad either. It’s just not great.
 
@@ -72,4 +72,4 @@ Got a different opinion? Please share–when I find a Springsteen song I don’t
 **First performed:** March 24, 2008 (Columbus, OH)  
 **Last performed:** March 24, 2008 (Columbus, OH)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -8,7 +8,7 @@ But for the life of me, I cannot fathom why Bruce left “My Love Will Not Let Y
 
 Seriously. Turn up the volume, press play below, and tell me you don’t get an adrenaline rush:
 
-[https://www.youtube.com/watch?v=c7ky70i_VGc](https://www.youtube.com/watch?v=c7ky70i_VGc)
+[Watch on Youtube: Bruce Springsteen || My love will not let you down](https://www.youtube.com/watch?v=c7ky70i_VGc)
 
 Had this song made it onto *Born in the U.S.A.* (reportedly, Bruce’s manager Jon Landau wanted it as the opener to Side 2), there’s no doubt in my mind that it would have been an absolute monster hit. Instead, it was released 16 years after it was recorded buried smack in the middle of the *Tracks* box set of coulda-shoulda outtakes.
 
@@ -86,7 +86,7 @@ Bruce clearly enjoys singing it as much as fans love hearing it–not just becau
 
 No surprise that Bruce opened his first U.S. reunion show with the E Street Band with this song. I expect it to continue to be a frequent setlist guest ever after.
 
-[https://www.youtube.com/watch?v=i0gycxFYxiA](https://www.youtube.com/watch?v=i0gycxFYxiA)
+[Watch on Youtube: my love will not let you down & The promised land - (u.s tour opener reunion ) bruce springsteen](https://www.youtube.com/watch?v=i0gycxFYxiA)
 
 **My Love Will Not Let You Down**  
 **Recorded:** May 5, 1982  
@@ -94,4 +94,4 @@ No surprise that Bruce opened his first U.S. reunion show with the E Street Band
 **First performed:** March 18, 1999 (Asbury Park, NJ)  
 **Last performed:** July 13, 2023 (Copenhagen, Denmark)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

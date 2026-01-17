@@ -2,7 +2,7 @@ At the June 26, 1993 Kristen Ann Carr benefit concert, Bruce and the 1992-1993 b
 
 It’s the only time Bruce has performed this song to date.
 
-[https://www.youtube.com/watch?v=30DrA9_lIwc](https://www.youtube.com/watch?v=30DrA9_lIwc)
+[Watch on Youtube: Bruce Springsteen - LONESOME VALLEY 1993 (audio)](https://www.youtube.com/watch?v=30DrA9_lIwc)
 
 **Lonesome Valley  
 First performed:** June 26, 1993  

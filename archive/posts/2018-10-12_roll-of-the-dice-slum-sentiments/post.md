@@ -1,10 +1,10 @@
-It’s time for another visit to the “[1968 Notebook](http://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/),” where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don’t appear on any bootlegs.
+It’s time for another visit to the “[1968 Notebook](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/),” where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don’t appear on any bootlegs.
 
-(Previous entries: “[Turn Around,](http://estreetshuffle.com/index.php/2018/07/09/roll-of-the-dice-turn-around/)” “[Crystal](http://estreetshuffle.com/index.php/2018/05/11/roll-of-the-dice-crystal/),’ “[Until the Rain Comes](http://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/),” and “[For Never Asking](http://estreetshuffle.com/index.php/2018/08/24/roll-of-the-dice-for-never-asking/).”
+(Previous entries: “[Turn Around,](https://estreetshuffle.com/index.php/2018/07/09/roll-of-the-dice-turn-around/)” “[Crystal](https://estreetshuffle.com/index.php/2018/05/11/roll-of-the-dice-crystal/),’ “[Until the Rain Comes](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/),” and “[For Never Asking](https://estreetshuffle.com/index.php/2018/08/24/roll-of-the-dice-for-never-asking/).”
 
 Today’s entry, “Slum Sentiments,” doesn’t have any date stamp, and there is no evidence that Bruce ever performed it. As one of the later songs in the notebook, it was probably written (or at least transcribed) sometime after April 1968, possibly a few months later.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/slumsentiments_lyrics-300x219.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/10/slumsentiments_lyrics.jpg)
 
 In “Slum Sentiments,” Bruce paints a picture rather than tells a story. There’s no message, and nothing happens; instead, he creates a stark portrait of a hopeless poverty:
 
@@ -50,4 +50,4 @@ It’s a weak verse, but it has a killer final image: the hobo vomiting gently i
 Never recorded  
 Never** **performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

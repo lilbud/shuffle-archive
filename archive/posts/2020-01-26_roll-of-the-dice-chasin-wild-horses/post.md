@@ -8,13 +8,13 @@ Seven months after its release, with the benefit of distance, catalog comparison
 
 Released shortly before his 70th birthday (and recorded some years prior), *Western Stars* introduces us to a handful of characters late in their lives. They’ve made mistakes, as have we all, and to varying degrees of success they dedicate themselves to moving forward regardless, as do we all. That’s the theme of *Western Stars* in a nutshell: living your life when the road ahead is so much shorter than the road already traveled. If we are each the sum of our life experiences and decisions, how do we continue to grow and move forward while carrying the weight of them?
 
-Over the next few years, we’ll explore each and every track on the album, from the carpe diem “[Drive Fast (The Stuntman)](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/)” and the achingly beautiful “[Moonlight Motel,](http://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)” both of which I rank in Bruce’s top ten best songs ever, to what is perhaps the happiest and most romantic song Bruce has ever written, “[Hitch Hikin’](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/).”
+Over the next few years, we’ll explore each and every track on the album, from the carpe diem “[Drive Fast (The Stuntman)](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/)” and the achingly beautiful “[Moonlight Motel,](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)” both of which I rank in Bruce’s top ten best songs ever, to what is perhaps the happiest and most romantic song Bruce has ever written, “[Hitch Hikin’](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/).”
 
 But today we’ll start with the album’s literal centerpiece, “Chasin’ Wild Horses.”
 
 We’ll break it down in a moment, but as with every track on *Western Stars*, we need to first take a deep, close listen to fully appreciate the subtlety and artistry at work. If you have headphones available, take them out and listen:
 
-[https://www.youtube.com/watch?v=pPb2Y9Ob_tY](https://www.youtube.com/watch?v=pPb2Y9Ob_tY)
+[Watch on Youtube: Bruce Springsteen - Chasin' Wild Horses (Official Audio)](https://www.youtube.com/watch?v=pPb2Y9Ob_tY)
 
 “Chasin’ Wild Horses” is the tale of a man trying to outrun his past or to at least banish it from his mind’s eye. But as we all know from having tried it, attempting to suppress the memory of your mistakes or losses is like… well, chasing wild horses.
 
@@ -43,7 +43,7 @@ In the next verse, we learn that whatever our narrator’s running from, it brou
 *Up on the Montana line*  
 *Chasing wild horses, chasing wild horses*
 
-There’s a musical structure at work so far: each verse begins on an up note (with a melody reminiscent of “[Your Own Worst Enemy](http://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)“), but each subsequent line ends on a downer. By the end of the second verse, Marc Muller’s pedal steel enters, painting the exterior scene and drawing us out of the narrator’s reverie across a deliberately monotonous bridge that represents the physical tedium that serves as a substitute for solace:
+There’s a musical structure at work so far: each verse begins on an up note (with a melody reminiscent of “[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)“), but each subsequent line ends on a downer. By the end of the second verse, Marc Muller’s pedal steel enters, painting the exterior scene and drawing us out of the narrator’s reverie across a deliberately monotonous bridge that represents the physical tedium that serves as a substitute for solace:
 
 *We’re out before sunup*  
 *We’re in after sundown*  
@@ -71,7 +71,7 @@ We only see her hair, but to the narrator it stands out against the blue sky lik
 
 The orchestra swells now, anchored by repetitive piano riff (presumably Ron Aniello) that creates the effect of an emotional whirlwind that catches us up in it, along with the narrator with whom we are now inseparably bound.
 
-My favorite part of the song comes next, as past merges with present in a way that’s very reminiscent of “[Reno](http://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/),” another Springsteen masterpiece.
+My favorite part of the song comes next, as past merges with present in a way that’s very reminiscent of “[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/),” another Springsteen masterpiece.
 
 *A fingernail moon in a twilight sky*  
 *I’m riding in the high grass of the switchback*  
@@ -98,7 +98,7 @@ To date, Bruce has only performed the songs on *Western Stars* a single time, at
 
 The film version of *Western Stars* received much-deserved praise, but I’d argue that not every song translates well from album to stage. “Chasin’ Wild Horses” is a case in point–it loses some of its subtlety in translation. The orchestra in Bruce’s barn is too powerful to deliver the full range of emotional impact that the album version achieves. The emotional twister of a coda is a bit too strong (the horns drown out the more gentle piano), and the echo of the canyon is completely absent.
 
-[https://www.youtube.com/watch?v=3nKvR5EptEM](https://www.youtube.com/watch?v=3nKvR5EptEM)
+[Watch on Youtube: Bruce Springsteen - Chasin' Wild Horses (Film Version - Official Audio)](https://www.youtube.com/watch?v=3nKvR5EptEM)
 
 Still, there’s nothing like hearing Bruce’s music brought to life by a full orchestra, and if the performance pales by comparison to the album, it’s only because the album is such perfection already.
 
@@ -112,6 +112,4 @@ Recorded:** Unknown
 **First performed:** April 2019 (exact date unknown) (Colts Neck, NJ)  
 **Last performed:** April 2019 (exact date unknown) (Colts Neck, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
- 
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

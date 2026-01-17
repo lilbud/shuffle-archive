@@ -6,7 +6,7 @@ Today’s cover comes from Lorenzo’s 2009 tribute album, *Hearts of Stone*, an
 
 Today, we’ll listen to my favorite track on the album, Lorenzo’s beautiful interpretation of “[Linda Let Me Be The One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/).”
 
-[https://www.youtube.com/watch?v=39QGkZFXvr8](https://www.youtube.com/watch?v=39QGkZFXvr8)
+[Watch on Youtube: @LorenzoBertocchini - Linda Let Me Be The One #lorenzobertocchini #musiclovers](https://www.youtube.com/watch?v=39QGkZFXvr8)
 
 Lorenzo strips away the Spectorian production of Bruce’s original, but he manages to retain all the romance via a beautifully arranged acoustic band performance.
 

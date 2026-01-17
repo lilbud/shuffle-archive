@@ -6,7 +6,7 @@ And then there are songs like “Where the Bands Are.” If you analyze them too
 
 Just listen to this River-era outtake from *Tracks,* and marvel at how much leash Bruce gives each member of the band and how they stay perfectly attuned to each other even while strutting their own stuff. Max in particular has a ball, and Steve and Bruce’s guitar solos dance effortlessly with each other:
 
-[https://www.youtube.com/watch?v=7FrUma-rtZA](https://www.youtube.com/watch?v=7FrUma-rtZA)
+[Watch on Youtube: Bruce Springsteen - Where The Bands Are (Credits) (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=7FrUma-rtZA)
 
 Amazing, isn’t it? It’s hard to think of a song on *The River* (or any other album) that shows off the talent and cohesion of the E Street Band better than “Where the Bands Are.” And those hand claps and harmonies–Steve has never sounded better.
 
@@ -41,21 +41,21 @@ The second verse makes it clear that this song isn’t just about the music, tho
 *I wanna have to shout it out loud (shout it out loud)*  
 *Shout it out loud*
 
-That “heart of stone” isn’t a throwaway metaphor–it’s verbatim link to a song that *did* make it on *The River* that’s also about connection: “[Two Hearts.](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)“
+That “heart of stone” isn’t a throwaway metaphor–it’s verbatim link to a song that *did* make it on *The River* that’s also about connection: “[Two Hearts.](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)“
 
 Is Bruce asking his girl out because he thinks the music will free her inhibitions, or because he knows it will free his own? The answer is yes to both. (I’m sure it’s no coincidence that they’re headed down to *Union* Street.)
 
-(Side note: Bruce ironically repurposed the first two lines of that carefree verse and used them in one of his least carefree songs: “[Jackson Cage.](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” The songs are so substantively different that I’d wager most fans never notice the self-plagiarism.)
+(Side note: Bruce ironically repurposed the first two lines of that carefree verse and used them in one of his least carefree songs: “[Jackson Cage.](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” The songs are so substantively different that I’d wager most fans never notice the self-plagiarism.)
 
 “Where the Bands Are” was recorded in 1979, but fans didn’t get to hear it (officially, at least) for almost two decades–until it was finally released on *Tracks* in late 1998.
 
 However, a raw mix of the same recording had escaped and circulated earlier. It runs a bit fast, but I actually prefer it that way. Combined with a bit of coarseness in the mix, it has more energy, grit, and a bit of edge:
 
-[https://www.youtube.com/watch?v=09zDi3hcbLg](https://www.youtube.com/watch?v=09zDi3hcbLg)
+[Watch on Youtube: Bruce Springsteen - "Where the Bands Are" (unreleased outtake)](https://www.youtube.com/watch?v=09zDi3hcbLg)
 
 Unlike other River-era outtakes, “Where the Bands Are” didn’t receive its live debut until after its official release, early on the Reunion Tour in Milan, Italy. Luckily, that premiere performance was captured on video. (Unfortunately, so was Clarence’s solo–not one of his better performances.)
 
-[https://www.youtube.com/watch?v=DUFmXltd774](https://www.youtube.com/watch?v=DUFmXltd774)
+[Watch on Youtube: Bruce Springsteen where the bands are Milan 99](https://www.youtube.com/watch?v=DUFmXltd774)
 
 Once set free on stage, “Where the Bands Are” made many return appearances throughout the 1999 leg of the Reunion Tour, but surprisingly Bruce dropped it after the holidays, playing it only once for the remainder of the tour.
 
@@ -63,11 +63,11 @@ For a while, it seemed like Bruce would treat “Where the Bands Are” as an in
 
 The sole exception: a dedication from Bruce to his fans during his Wrecking Ball stand in Gothenburg, Sweden. That performance remains my favorite live rendition of the song, starting slowly and solo before the band barrels in and nails it. Again, we’re fortunate to have that performance captured–in amazing quality. Enjoy the last performance to date–but hopefully not the last for good–of “Where the Bands Are.”
 
-[https://www.youtube.com/watch?v=aKE8uUZIWkM](https://www.youtube.com/watch?v=aKE8uUZIWkM)
+[Watch on Youtube: Bruce Springsteen - Where The Bands Are](https://www.youtube.com/watch?v=aKE8uUZIWkM)
 
 **Where the Bands Are****Recorded:** October 9, 1979  
 **Released:** *Tracks* (1998)  
 **First performed:** April 19, 1999 (Milan, Italy)  
 **Last performed:** July 12, 2012 (Gothenburg, Sweden)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

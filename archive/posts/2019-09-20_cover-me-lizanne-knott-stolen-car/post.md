@@ -4,7 +4,7 @@ The event featured an array of wonderful artists, but their song choices largely
 
 But singer/songwriter Lizanne Knott went deep that night, turning in a lovely cover of “Stolen Car.”
 
-[https://www.youtube.com/watch?v=tKbOdmrYNso](https://www.youtube.com/watch?v=tKbOdmrYNso)
+[Watch on Youtube: Lizanne Knott: Stolen Car (Bruce Springsteen cover)](https://www.youtube.com/watch?v=tKbOdmrYNso)
 
 More wistful than haunted, Lizanne’s arrangement makes for a very different song than Bruce’s original. But isn’t that what a cover should be?
 

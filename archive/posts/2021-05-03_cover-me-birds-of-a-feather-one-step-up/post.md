@@ -10,7 +10,7 @@ By any measure, they’ve been astoundingly productive: they recently finished r
 
 They’ve also been recording a series of beautiful cover performances in their Acoustic Sessions series, including this delicate rendition of “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/),” featuring Ryan Leon on guitar, Amy McKay on piano, and their lovely duet vocal.
 
-[https://www.youtube.com/watch?v=1m13nDsiYrs](https://www.youtube.com/watch?v=1m13nDsiYrs)
+[Watch on Youtube: Bruce Springsteen - One Step Up - Acoustic Cover by Birds of a Feather](https://www.youtube.com/watch?v=1m13nDsiYrs)
 
 “One Step Up” is one of Bruce’s saddest and loneliest songs, and like its album-mate “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” it translates to a duet without losing any of its poignancy.
 

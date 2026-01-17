@@ -1,4 +1,4 @@
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/terryssong_rememberingterrymagovern1-1-300x113.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2018/07/terryssong_rememberingterrymagovern1-1.jpg)
 
 From the Asbury Park Press, August 1, 2007:
 
@@ -14,7 +14,7 @@ Terry passed away in his sleep on July 30, 2007. His memorial service was held t
 
 Written and performed less than three days since Magovern’s untimely death, this is–simply–“Terry’s Song.”
 
-[https://www.youtube.com/watch?v=jo9tv7J0HR8](https://www.youtube.com/watch?v=jo9tv7J0HR8)
+[Watch on Youtube: Terry's Song](https://www.youtube.com/watch?v=jo9tv7J0HR8)
 
 Bruce introduces “Terry’s Song” on a mournful piano, but his dour mood doesn’t last long. After a moment of silence, Bruce’s acoustic guitar kicks in, and Bruce lovingly and audaciously compares his friend to the world’s great wonders:
 
@@ -70,7 +70,7 @@ Bruce plays all instruments on the song. Even the backing vocals are his–this 
 
 In concert, Bruce has played it only three times, and only by dedication or request. The most recent time was in Perth in 2014, and that performance is below. Bruce performs it on his guitar only, and it’s therefore perhaps a bit skewed toward mourning instead of celebrating. That may be why Bruce doesn’t play it more often. As he said just after the performance below, “That’s a tough one to sing.”
 
-[https://www.youtube.com/watch?v=sNW3knnity0](https://www.youtube.com/watch?v=sNW3knnity0)
+[Watch on Youtube: Terry's Song - Bruce Springsteen - Perth Arena 8-2-14](https://www.youtube.com/watch?v=sNW3knnity0)
 
 **Terry’s Song**  
 **Recorded:** August 2007  
@@ -78,4 +78,4 @@ In concert, Bruce has played it only three times, and only by dedication or requ
 **First performed:** August 2, 2007 (Red Bank, NJ)  
 **Last performed:** February 8, 2014 (Perth, Australia)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

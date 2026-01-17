@@ -6,7 +6,7 @@ It’s the opening track that gets all the attention, and it’s hard to argue t
 
 “I’m a Thousand Miles From Home” is everything “All Just to Get to You” isn’t: slow, simple, meditative, and world-weary.
 
-[https://www.youtube.com/watch?v=VJtl9sC8_KA](https://www.youtube.com/watch?v=VJtl9sC8_KA)
+[Watch on Youtube: I'm A Thousand Miles From Home](https://www.youtube.com/watch?v=VJtl9sC8_KA)
 
 It also features some *very* Springsteenian lyrics:
 
@@ -26,5 +26,3 @@ Unlike “All Just to Get to You,” which Bruce has performed with Ely seven ti
 Recorded:** April 1995  
 **Released:** *Letter to Laredo* (1995)  
 **Never performed**
-
- 

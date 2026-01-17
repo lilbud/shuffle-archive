@@ -2,7 +2,7 @@ It features arguably the greatest guitar riff of all time and almost certainly t
 
 And it’s one of the first songs Bruce Springsteen ever covered.
 
-[https://www.youtube.com/watch?v=nrIPxlFzDi0](https://www.youtube.com/watch?v=nrIPxlFzDi0)
+[Watch on Youtube: The Rolling Stones - (I Can't Get No) Satisfaction (Official Lyric Video)](https://www.youtube.com/watch?v=nrIPxlFzDi0)
 
 The Rolling Stones released “(I Can’t Get No) Satisfaction” on June 5, 1965, and by October, sixteen-year-old Bruce Springsteen was covering it at a wedding reception with his high school band, The Castiles.
 
@@ -14,13 +14,13 @@ The 1988 induction ceremony was all about The Beatles, Bob Dylan, and The Beach 
 
 Mick Jagger took center stage for “(I Can’t Get No)” Satisfaction, and while many iconic musicians can be spotted arrayed across the stage, only Bruce Springsteen got the nod to join Jagger at the mic. Watch that performance below and feel Bruce’s palpable thrill.
 
-[https://www.youtube.com/watch?v=1cJ-_zf5WI4](https://www.youtube.com/watch?v=1cJ-_zf5WI4)
+[Watch on Youtube: Rolling Stones perform "(I Can't Get No) Satisfaction" at 1988 Rock and Roll Hall of Fame Inductions](https://www.youtube.com/watch?v=1cJ-_zf5WI4)
 
 The Rolling Stones were indeed inducted a year later, and while Bruce joined The Stones on stage for “Satisfaction” again that night, this time he stayed very much in the background.
 
 It would be decades before Bruce performed it again, but in 2009 he broke it out twice by request during his Working on a Dream Tour. He played it by request in 2014, too, in a terrific performance by the super-sized E Street Band, which in this case included a special guest performer–the young girl who requested the song.
 
-[https://www.youtube.com/watch?v=Vk3ponly6m8](https://www.youtube.com/watch?v=Vk3ponly6m8)
+[Watch on Youtube: Bruce Springsteen - Satisfaction](https://www.youtube.com/watch?v=Vk3ponly6m8)
 
 Bruce hasn’t played “Satisfaction” since, but it’s clear from the performance above that he always has that riff at the ready.
 
@@ -29,5 +29,3 @@ And why shouldn’t he? He started practicing it 57 years ago.
 **(I Can’t Get No) Satisfaction**  
 **First performed:** October 1965 (Monmouth County, NJ)  
 **Last performed:** April 17, 2014 (Nashville, TN)
-
- 

@@ -6,7 +6,7 @@ After a string of essays demanding deep lyrical analysis, it’s a relief to be 
 
 It’s funny and light, but it rings with painful truth to a parent of a teenage daughter.
 
-[https://www.youtube.com/watch?v=x4ks7xrFPIE](https://www.youtube.com/watch?v=x4ks7xrFPIE)
+[Watch on Youtube: Ricky Wants A Man Of Her Own (Studio Outtake - 1979)](https://www.youtube.com/watch?v=x4ks7xrFPIE)
 
 Bruce made a wise choice writing from the perspective of Ricky’s big brother: falling age-wise in between his sister and his parents, the narrator is able to empathize with both, to observe and note both the humor and the angst.
 
@@ -60,13 +60,13 @@ Max leads the band back in for the big finish, twisting the parental knife with 
 *She wants a man of her*  
 *Ricky wants a man of her own*
 
-Bruce and the E Street Band recorded “Ricky” early on during the River sessions, and it would have been a great fit on the album along light, fun rockers like “[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” and “[Crush on You](http://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/).” In fact, on the first cut of the album in late 1979, “Ricky” was the fourth track on what would have been Side One. But as time passed, the album grew from one disc to two, and as Bruce added tracks he also subtracted for balance and flow. Unfortunately, Ricky was one of the casualties.
+Bruce and the E Street Band recorded “Ricky” early on during the River sessions, and it would have been a great fit on the album along light, fun rockers like “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” and “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/).” In fact, on the first cut of the album in late 1979, “Ricky” was the fourth track on what would have been Side One. But as time passed, the album grew from one disc to two, and as Bruce added tracks he also subtracted for balance and flow. Unfortunately, Ricky was one of the casualties.
 
 Bruce eventually did right by “Ricky,” lifting her grounding and sending her off into the world on *Tracks* in 1998, and again on *The Ties That Bind: The River Collection* in 2015.
 
 And in all that time, Bruce brought Ricky out on stage exactly once: at the very last show of the Magic Tour in Kansas City, where he opened the show with it. I was fortunate enough to be there in the pit, and it was a genuine “holy crap” highlight (even if they played it just a tad too slow).
 
-[https://www.youtube.com/watch?v=MgB2hcrCqEQ](https://www.youtube.com/watch?v=MgB2hcrCqEQ)
+[Watch on Youtube: audio: BRUCE SPRINGSTEEN -- Ricky Wants A Man Of Her Own -- 2008 KANSAS CITY](https://www.youtube.com/watch?v=MgB2hcrCqEQ)
 
 I was genuinely surprised that “Ricky” didn’t get an encore during the 2016 River Tour–that seemed like a no-brainer to me–but hope springs eternal. Let’s hope Bruce brings her back for the next tour; she’s certainly fully grown by now.
 
@@ -75,7 +75,7 @@ I was genuinely surprised that “Ricky” didn’t get an encore during the 201
 *Well daddy’s pullin’ out his hair, he says, “The girl ain’t got no direction”*  
 *She don’t care to bring her boyfriends home to pass daddy’s inspection*
 
-[https://videopress.com/embed/Zef83eCx](https://videopress.com/embed/Zef83eCx)
+[Watch Video Highlight](https://videopress.com/embed/Zef83eCx)
 
 **Ricky Wants a Man of Her Own**  
 **Recorded:** July 16, 1979  
@@ -83,4 +83,4 @@ I was genuinely surprised that “Ricky” didn’t get an encore during the 201
 **First performed:** August 24, 2008 (Kansas City, MO)  
 **Last performed:** August 24, 2008 (Kansas City, MO)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

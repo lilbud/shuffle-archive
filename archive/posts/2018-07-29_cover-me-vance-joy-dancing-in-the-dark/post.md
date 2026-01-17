@@ -4,8 +4,4 @@ This one’s my favorite, from June 7, 2014 in Toronto. Something about his voca
 
 There’s some beautiful camera work at play here, but Vance’s performance is commanding on its own.
 
-[https://www.youtube.com/watch?v=jBUiMiUgFlg](https://www.youtube.com/watch?v=jBUiMiUgFlg)
-
- 
-
- 
+[Watch on Youtube: Vance Joy - Dancing in the Dark (Take 2 Classic Cover)](https://www.youtube.com/watch?v=jBUiMiUgFlg)

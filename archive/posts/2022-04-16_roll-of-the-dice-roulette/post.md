@@ -1,12 +1,12 @@
 On December 30, 1978, Three Mile Island Unit 2 began commercial operation near Harrisburg in western Pennsylvania. Eighty-eight days later, the nuclear reactor suffered a partial meltdown when its cooling system malfunctioned, releasing deadly radiation into the atmosphere. To this date, the Three Mile Island incident remains the most significant accident in U.S. commercial nuclear power history.
 
-[https://www.youtube.com/watch?v=Ev6IJOlROto](https://www.youtube.com/watch?v=Ev6IJOlROto)
+[Watch on Youtube: March 28, 1979​: ​​​Three Mile Island nuclear power plant accident](https://www.youtube.com/watch?v=Ev6IJOlROto)
 
 The radiation leak happened on the day of the meltdown, March 28, 1979, but it wouldn’t be discovered until two days later. When word of the leak got out, local residents were advised to stay indoors “indefinitely” but were not evacuated.
 
 Confusingly, however, Pennsylvania Governor Dick Thornburgh advised all pregnant women and small children within a five-mile radius of the accident to leave the area. The mixed messages created civic distrust and caused a panic, and within days over 100,000 residents had fled the area.
 
-[https://www.youtube.com/watch?v=rCJbmUGoXXU](https://www.youtube.com/watch?v=rCJbmUGoXXU)
+[Watch on Youtube: Video Vault: 1979 Three Mile Island](https://www.youtube.com/watch?v=rCJbmUGoXXU)
 
 News of the reactor meltdown gripped not just local residents but the nation and the world in fear.
 
@@ -16,7 +16,7 @@ Those of us who lived in the area paid *very* close attention to official update
 
 Bruce Springsteen shared that distrust, and within a few days of the accident, he’d already written a song about it. He recorded the acoustic home demo below while the news was still playing out on television screens across the country.
 
-[https://www.youtube.com/watch?v=KecBkkUKM-c](https://www.youtube.com/watch?v=KecBkkUKM-c)
+[Watch on Youtube: Bruce Springsteen Roulette #1 Acoustic Demo](https://www.youtube.com/watch?v=KecBkkUKM-c)
 
 Bruce continued working on his song that week, and on April 3rd–just four days after the governor’s alarming press conference and evacuation order/non-order–he assembled the E Street Band in the studio to take a crack at a still in progress but much more developed version.
 
@@ -28,15 +28,15 @@ Bruce’s song was called “Roulette,” after the way state officials were tak
 
 Even in its earliest full-band version, “Roulette” kicks off with a terrifying drum entrance by Max Weinberg on the tom-toms and a suspenseful guitar riff lifted from Magazine’s “Shot by Both Sides.”
 
-[https://www.youtube.com/watch?v=Qu3R-H5on1s](https://www.youtube.com/watch?v=Qu3R-H5on1s)
+[Watch on Youtube: Shot By Both Sides (Remastered)](https://www.youtube.com/watch?v=Qu3R-H5on1s)
 
 The final version of “Roulette” became the first song recorded for the album that would become *The River,* and while it wouldn’t make the final cut, its punk spirit and live energy set the tone for much of that record. No less than ten confirmed mixes were created, and the three official releases of the song (on the B-side of the 1988 single for “[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/),” the 1998 *Tracks* box set, and the disc of outtakes on the 2015 *The Ties That Bind* box set) are all different mixes of the same recording.
 
-[https://www.youtube.com/watch?v=_QWRFI3M0mo](https://www.youtube.com/watch?v=_QWRFI3M0mo)
+[Watch on Youtube: Roulette (Studio Outtake - 1979)](https://www.youtube.com/watch?v=_QWRFI3M0mo)
 
 With such urgency, relevance, power, and detail, it’s surprising that it took almost a decade before fans heard “Roulette” either on disc or on stage. (It was released on vinyl and debuted in concert during the same week in February 1988.)
 
-[https://videopress.com/embed/t4ks0AI4](https://videopress.com/embed/t4ks0AI4)
+[Watch Video Highlight](https://videopress.com/embed/t4ks0AI4)
 
 That’s likely because Bruce was never fully comfortable with the visceral paranoia that informed its creation. “I may just have gotten afraid,” he told Mark Hagen in a 1999 interview for *Mojo.* “It went a little over the top, which is what’s good about it. In truth it probably should have gotten put on. It would have been one of the best things on the record and it was just a mistake at the time.”
 
@@ -116,15 +116,15 @@ But the second half of the final verse (extended by two lines to milk the moment
 
 Bruce played “Roulette” regularly throughout the Tunnel of Love Express Tour, debuting it on stage just two days before it appeared in record stores, but he wouldn’t play it again until very late in the Reunion Tour, as a one-off in Hartford.
 
-[https://www.youtube.com/watch?v=93GEG1Q9JiY](https://www.youtube.com/watch?v=93GEG1Q9JiY)
+[Watch on Youtube: ~ Bruce Springsteen - Roulette (Hartford, May 8, 2000) ~](https://www.youtube.com/watch?v=93GEG1Q9JiY)
 
 It made a pair of cameos at the tail end of the Rising Tour, too.
 
-[https://www.youtube.com/watch?v=1RIlLmRc_8M](https://www.youtube.com/watch?v=1RIlLmRc_8M)
+[Watch on Youtube: 4 Roulette Bruce Springsteen Shea Stadium 4th October 2003](https://www.youtube.com/watch?v=1RIlLmRc_8M)
 
 “Roulette” seems to make an appearance or three in every E Street Band tour, in fact–just enough to still be considered a true rarity (it’s only been played fifteen times in the last twenty years) but frequently enough to remain hopeful if it’s still on your chase list.
 
-[https://www.youtube.com/watch?v=ypEmmZJXg10](https://www.youtube.com/watch?v=ypEmmZJXg10)
+[Watch on Youtube: Bruce Springsteen - Roulette - San Siro Milano Italy 05-07-16](https://www.youtube.com/watch?v=ypEmmZJXg10)
 
 Bruce never released “Roulette” on an official album, relegating it instead to outtake box set collections. Still, it’s importance as a milestone in Bruce’s career can’t be understated. Not only was it the first song recorded for *The River,* it also established an edgier, timelier, and more topical turn in his songwriting that he would lean into over the years to come.
 

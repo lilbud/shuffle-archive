@@ -8,9 +8,9 @@ And then, in the summer of 2002 came *The Rising,* Bruce Springsteen’s first a
 
 But towards the end of the album comes a remarkable three-song sequence that directly addresses the tragedy of the year before. The title track is the centerpiece, drawing us into a 9/11 first responder’s final moments. “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)” is bookended by two songs that focus on the loss felt by those left behind by the ones who rose on that day.
 
-Of the two, “[Paradise](http://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/)” is the more artistic; I shared my thoughts on it during the earliest days of my blog. But “You’re Missing” is the more powerful song for its simplicity.
+Of the two, “[Paradise](https://estreetshuffle.com/index.php/2018/01/07/roll-of-the-dice-paradise/)” is the more artistic; I shared my thoughts on it during the earliest days of my blog. But “You’re Missing” is the more powerful song for its simplicity.
 
-[https://www.youtube.com/watch?v=V_1escDofdQ](https://www.youtube.com/watch?v=V_1escDofdQ)
+[Watch on Youtube: You're Missing](https://www.youtube.com/watch?v=V_1escDofdQ)
 
 “You’re Missing” is a melancholy reverie. Roy Bittan’s pump organ draws us in gently at the start, as if we’re waking from or succumbing to a dream. Larry Lemaster’s cello establishes a monotonous melody; Max Weinberg provides a plodding backbeat. Soozie’s violin weaves sadly through the song. The combined effect is one inertia: we feel pulled forward rather than carried.
 
@@ -89,17 +89,17 @@ Grief takes us down a long, lonely tunnel, but somewhere at the far, far end of 
 
 Bruce performed “You’re Missing” over 100 times throughout the Rising Tour, in an arrangement very close to that of the album. Bruce tried his best nightly to give the song the quiet tenderness it deserved, but in large arenas, that was a tough feat to pull off.
 
-[https://www.youtube.com/watch?v=xsrz3mPq7pM](https://www.youtube.com/watch?v=xsrz3mPq7pM)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - You're Missing (Live In Barcelona)](https://www.youtube.com/watch?v=xsrz3mPq7pM)
 
 So if you ask me for my favorite live performance of “You’re Missing,” I’ll choose the one almost no one was in the room for: on October 5, 2002, Bruce quietly rehearsed in an empty studio for his *Saturday Night Live* appearance that evening.
 
 Bruce only soundchecked three songs that afternoon: “[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/),” “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/),” and a solo piano rendition of “You’re Missing.” Performed in a darkened, empty studio with no accompaniment other than Bruce’s piano, nothing distracts from the pain and pathos of Bruce’s lyrics.
 
-[https://www.youtube.com/watch?v=o1kgnwHGXbg](https://www.youtube.com/watch?v=o1kgnwHGXbg)
+[Watch on Youtube: Bruce Springsteen rehearsal "You're Missing" in 2002](https://www.youtube.com/watch?v=o1kgnwHGXbg)
 
 In the 17 years since the end of the Rising Tour, “You’re Missing” has been mostly, well, missing. Bruce has only played it twice in the intervening years, once on his solo acoustic tour in 2005, and once on the 15th anniversary of the 9/11 attacks. That last performance to date was also the first in more than a decade; for those of us in the room, given the occasion and long absence, “You’re Missing” felt as fresh and raw as when Bruce first debuted it.
 
-[https://www.youtube.com/watch?v=pkoEwCTtZZA](https://www.youtube.com/watch?v=pkoEwCTtZZA)
+[Watch on Youtube: You're Missing - Bruce Springsteen (11-09-2016 Consol Energy Center, Pittsburgh, Pensilvania)](https://www.youtube.com/watch?v=pkoEwCTtZZA)
 
 Other than that special one-off, Bruce seems to have retired “You’re Missing” from rotation, and that’s okay. It’s a song that comes out when needed, when a community is reeling or reminded of a terrible tragedy. We can only hope that such occasions never come again.
 
@@ -109,4 +109,4 @@ Released: *The Rising* (2002)
 First performed: July 25, 2002 (Asbury Park, NJ)  
 Last performed: September 11, 2016 (Pittsburgh, PA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

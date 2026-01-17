@@ -12,7 +12,7 @@ Theard’s songs tended toward the blue end of the spectrum. In 1936, for exampl
 *You got the best washboard bin in my tub*  
 *I start rubbin’, rubbin’ on the darned old thing*
 
-[https://www.youtube.com/watch?v=EWOaEvjx8q8](https://www.youtube.com/watch?v=EWOaEvjx8q8)
+[Watch on Youtube: Oscars Chicago Swingers - New Rubbin On That Darn Old Thing 1936](https://www.youtube.com/watch?v=EWOaEvjx8q8)
 
 And in 1947, Theard co-wrote “Hard Ridin’ Mama” for Wynonie Harris with such memorable lines as:
 
@@ -22,7 +22,7 @@ She’s a rough riding mama and she treats my pony fine*
 *Can’t find nobody nowhere in this land  
 Who can ride my pony just like my baby can*
 
-[https://www.youtube.com/watch?v=L63Thx25dMQ](https://www.youtube.com/watch?v=L63Thx25dMQ)
+[Watch on Youtube: Wynonie Harris - Hard Ridin' Mama](https://www.youtube.com/watch?v=L63Thx25dMQ)
 
 And in 1937, he recorded what indirectly became one of his most influential records, “Spo-Dee-O-Dee,” a song about the pleasures of… well let’s just say the title is a euphemism, and the song features lyrics like:
 
@@ -32,7 +32,7 @@ And in 1937, he recorded what indirectly became one of his most influential reco
 *Keep on diggin’ don’t you stop*  
 *Get your kicks and blow your top*
 
-[https://www.youtube.com/watch?v=omdQLxf_J_s](https://www.youtube.com/watch?v=omdQLxf_J_s)
+[Watch on Youtube: Spo-Dee-O-Dee (93029)](https://www.youtube.com/watch?v=omdQLxf_J_s)
 
 With lyrics like that, “Spo-Dee-O-Dee” was destined to be a classic.
 
@@ -61,19 +61,19 @@ McGhee was released from the army in 1946, and the following year he recorded an
 
 The result was “Drinkin’ Wine Spo-Dee-O=Dee,” and while it didn’t score any action on its original release, when McGhee re-recorded it for Atlantic it peaked at #2 on the Billboard R&B chart for four weeks (and refused to leave the chart for almost six months).
 
-[https://www.youtube.com/watch?v=0ZATF7fIa6o](https://www.youtube.com/watch?v=0ZATF7fIa6o)
+[Watch on Youtube: 1949 Stick McGhee - Drinkin’ Wine, Spo-Dee-O-Dee](https://www.youtube.com/watch?v=0ZATF7fIa6o)
 
 Over the years that followed, “Drinkin’ Wine Spo-Dee-O-Dee” inspired a river of covers (not to mention the Spodi cocktail) from artists like Wynonie Harris and Jerry Lee Lewis, for whom the song became a staple in live performances.
 
-[https://www.youtube.com/watch?v=zoM321aGtKk](https://www.youtube.com/watch?v=zoM321aGtKk)
+[Watch on Youtube: (1957) Sun ''Drinkin' Wine Spo-Dee-O-Dee'' (1) Jerry Lee Lewis](https://www.youtube.com/watch?v=zoM321aGtKk)
 
 In 1953, McGhee’s song came perilously close to becoming a novelty song when Donny Baker cleaned it up a bit *too* much in his single, “Drinkin’ Pop Sodee-O-Dee”
 
-[https://www.youtube.com/watch?v=iwJRi7sa_kU](https://www.youtube.com/watch?v=iwJRi7sa_kU)
+[Watch on Youtube: DONNY BAKER - Drinkin' Pop - Sodee - O - Dee (Pop Pop) / Sleepy Time Gal (1953)](https://www.youtube.com/watch?v=iwJRi7sa_kU)
 
 Luckily, the over-21 version maintained its hold on rock-and-roll musicians, and the song continued to spawn new recordings, morphing and evolving along with the genre. By 1959, it was barely recognizable when The Nightcaps dropped the “Spo-Dee-O-Dee” entirely for their arrangement of “Wine Wine Wine.”
 
-[https://www.youtube.com/watch?v=c495jrP_Z7M](https://www.youtube.com/watch?v=c495jrP_Z7M)
+[Watch on Youtube: Nightcaps, The - Wine, Wine, Wine - 1959](https://www.youtube.com/watch?v=c495jrP_Z7M)
 
 I know, I know… where’s the Bruce Springsteen connection, right?
 
@@ -81,7 +81,7 @@ Well, in the summer of 2014, Bruce was on tour in Australia, and a week earlier 
 
 On Night Two, Bruce and the band opened with a slow burn cover of “[Spill the Wine](https://estreetshuffle.com/index.php/2018/03/15/cover-me-spill-the-wine/)” by Eric Burdon and War, but on Night One, they barreled out of the gate with a Seeger Sessions-esque arrangement of “Drinkin’ Wine Spo-Dee-O-Dee” that took the audience back to the big band era, with a big, big swinging arrangement that ranks among the highlights of that tour.
 
-[https://www.youtube.com/watch?v=UFghhh2ohI8](https://www.youtube.com/watch?v=UFghhh2ohI8)
+[Watch on Youtube: Drinkin' Wine, Spo-Dee-O-Deee - Bruce Springsteen - Hope Estate Hunter Valley 22-2-14](https://www.youtube.com/watch?v=UFghhh2ohI8)
 
 Notably, Bruce dropped the Spo-Dee-O-Dees from the chorus, too–replacing them with fine (or at least accessible) labels and varietals, leading to a fun mix of shtick and style.
 
@@ -92,5 +92,3 @@ And yes, I could have taken us here on a much more direct route. But we would ha
 **Drinkin’ Wine, Spo-Dee-O-Dee  
 First performed:** February 22, 2014 (Hunter Valley, Australia)  
 **Last performed:** February 22, 2014 (Hunter Valley, Australia)
-
- 

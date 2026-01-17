@@ -4,7 +4,7 @@ Unfortunately (and surprisingly, given Bruce’s talent for breathing new life i
 
 The Havalinas made a name for themselves on the L.A. music scene in the early nineties, piquing Bruce’s interest and earning his admiration (although he admits to never catching them play live). A group of talented musicians playing unusual rock instruments, The Havalinas had a sort of punk-folkabilly sound that stood out against the sea of grunge that dominated that period. “High Hopes” from their debut album is one of the best examples.
 
-[https://www.youtube.com/watch?v=RzKA2QZDXE4](https://www.youtube.com/watch?v=RzKA2QZDXE4)
+[Watch on Youtube: The Havalinas - High Hopes](https://www.youtube.com/watch?v=RzKA2QZDXE4)
 
 The percussive drum-and-guitar intro of “High Hopes” compels instant attention and holds it throughout, and the video suggests the band has a good amount of stage charisma as well. Combined with the song’s Springsteenian themes, it’s no surprise that Bruce was taken with it.
 
@@ -16,7 +16,7 @@ Bruce ultimately chose not to release “High Hopes” on *Greatest Hits–*a wi
 
 More importantly, the newly reunited E Streeters hadn’t yet gelled. Listening to the recording, one gets the impression that each of them was doing their own thing rather than playing off each other–especially Clarence, who takes a wandering solo that’s practically subterranean in the mix.
 
-[https://www.youtube.com/watch?v=EHMNKejDo68](https://www.youtube.com/watch?v=EHMNKejDo68)
+[Watch on Youtube: High Hopes](https://www.youtube.com/watch?v=EHMNKejDo68)
 
 Bruce eventually released “High Hopes” on his 1996 *Blood Brothers* EP, but it went pretty much unnoticed by fans and critics and never surfaced in Bruce’s set lists.
 
@@ -26,7 +26,7 @@ That was the year that Tom Morello joined the E Street Band, sitting in for Litt
 
 While preparing for the upcoming Australian leg of the Wrecking Ball Tour, Morello heard Bruce’s version of “High Hopes” on E Street Radio and thought it had potential. He suggested as much to Bruce, who agreed to add it to the set list. They sound checked it at the first show in Brisbane, and then on Night Two, they opened with it.
 
-[https://www.youtube.com/watch?v=Z7ksWwv3GtQ](https://www.youtube.com/watch?v=Z7ksWwv3GtQ)
+[Watch on Youtube: Bruce Springsteen - High Hopes - Brisbane March 16](https://www.youtube.com/watch?v=Z7ksWwv3GtQ)
 
 Their new arrangement went over well–so well, in fact, that Bruce gathered the band at a studio in Sydney the very next day and recorded a new version of the song.
 
@@ -34,7 +34,7 @@ And this one was *much* better.
 
 Rather than try to imitate the sound of the original version, Bruce, Tom, and the band went in a different direction. This modern version of “High Hopes” has almost a metallic zydeco feel, thanks to Charlie Giordano, the track’s unsung hero.
 
-[https://www.youtube.com/watch?v=rOPDhoZH91g](https://www.youtube.com/watch?v=rOPDhoZH91g)
+[Watch on Youtube: Bruce Springsteen - High Hopes](https://www.youtube.com/watch?v=rOPDhoZH91g)
 
 Morello’s inimitable guitar-shredding infuses the song with a hard edge, and the E Street Horns only add to the New Orleans flavor of the arrangement. It still pales when compared with the Havalinas’ original, but it’s at least a fresh take by a larger and tighter E Street Band that comes to life on stage.
 
@@ -42,7 +42,7 @@ Morello’s inimitable guitar-shredding infuses the song with a hard edge, and t
 
 When Bruce went back out on the road in 2014 for a victory lap, “High Hopes” featured regularly in almost every show, one of the many nightly showcases for Morello.
 
-[https://www.youtube.com/watch?v=z03Ms69MB_8](https://www.youtube.com/watch?v=z03Ms69MB_8)
+[Watch on Youtube: Bruce Springsteen & Tom Morello High Hopes Dallas, 2014](https://www.youtube.com/watch?v=z03Ms69MB_8)
 
 When Morello went home to his own band, “High Hopes” left the E Street Band behind, too. It hasn’t been seen in Bruce’s set list since the closing night of its namesake tour, but should Morello make a guest appearance the next time the E Street Band hits the road, perhaps we’ll get to catch it once again.
 

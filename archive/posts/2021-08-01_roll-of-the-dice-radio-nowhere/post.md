@@ -8,7 +8,7 @@ Even the term “rock and roll” began as a colloquialism for religious rapture
 
 So it’s not much of a stretch to label Bruce Springsteen’s Grammy-winning 2007 single “Radio Nowhere” a mission statement for rock stars current and aspiring.
 
-[https://www.youtube.com/watch?v=2f3XaoHqQuQ](https://www.youtube.com/watch?v=2f3XaoHqQuQ)
+[Watch on Youtube: Radio Nowhere](https://www.youtube.com/watch?v=2f3XaoHqQuQ)
 
 And perhaps rockers past as well.
 
@@ -67,7 +67,7 @@ There’s a world out there somewhere, and we’re not part of it.
 
 Bruce’s revealing video for “Radio Nowhere” shows a bustling city of anonymous strangers. Life happens in front of us, along with moments of intimacy, but they’re all viewed from a distance, intercut with photos of the singer being torn apart. (The implication is that the singer is doing it to himself.) This is one of Thom Zimny’s earliest works with Bruce, and its one of his best.
 
-[https://videopress.com/embed/qVYvGTu5](https://videopress.com/embed/qVYvGTu5)
+[Watch Video Highlight](https://videopress.com/embed/qVYvGTu5)
 
 In a contemporaneous interview, Bruce described “Radio Nowhere” as apocalyptic, “an end of the world scenario,” but that’s just its window dressing. Zimny’s video gives away the song’s true significance.
 
@@ -84,7 +84,7 @@ And since we’re discussing similarities to other songs, I supposed this is as 
 
 Yes, the instantly recognizable riff and chord progression of “Radio Nowhere” is unmistakably borrowed from Tommy Tutone’s “867-5309.”
 
-[https://www.youtube.com/watch?v=6WTdTwcmxyo](https://www.youtube.com/watch?v=6WTdTwcmxyo)
+[Watch on Youtube: Tommy Tutone - 867-5309/Jenny](https://www.youtube.com/watch?v=6WTdTwcmxyo)
 
 To dismiss the similarity (as many fans and critics do) strikes me as disingenuous.
 
@@ -96,15 +96,15 @@ It was an odd controversy at the time (fueled, no doubt, by some tongue-in-cheek
 
 So let’s look past the separated-at-birth riffs and appreciate the E Street Band’s performance on”Radio Nowhere” for what it is: a powerful, hard-driving, galvanizing instrumental clarion call as powerful as any in the rock canon. There’s a reason why “Radio Nowhere” tends to only appear as an opener, encore, or lead-in to a main set finale. Like “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” (with which “Radio Nowhere” shares common traits), it reliably rallies the audience to the peak of emotion, energy, and zeal required for the moment… even at 8:45 in the morning.
 
-[https://www.youtube.com/watch?v=h8Xb8Cq9NrI](https://www.youtube.com/watch?v=h8Xb8Cq9NrI)
+[Watch on Youtube: Bruce Springsteen - Radio Nowhere (Live) [HQ TV version]](https://www.youtube.com/watch?v=h8Xb8Cq9NrI)
 
 That was one of Bruce’s earliest performances of “Radio Nowhere.” The song quickly became a set list staple, opening most shows on the Magic Tour and carrying through to the Working on a Dream and Wrecking Ball tours and beyond.
 
-[https://www.youtube.com/watch?v=HpdKECVnoRs](https://www.youtube.com/watch?v=HpdKECVnoRs)
+[Watch on Youtube: Radio Nowhere (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=HpdKECVnoRs)
 
 It should also be mentioned that when Jay Weinberg filled in for his dad on drums during the 2009 tour, he absolutely *owned* “Radio Nowhere,” elevating it to a new level with his fierce playing.
 
-[https://www.youtube.com/watch?v=NOA6a3LTGso?start=1](https://www.youtube.com/watch?v=NOA6a3LTGso?start=1)
+[Watch on Youtube: Radio Nowhere with Jay Weinberg - Philly April 29 2009](https://www.youtube.com/watch?v=NOA6a3LTGso?start=1)
 
 When it came to airplay, however, Bruce’s song went… well, radio nowhere. It was released as the lead single in advance of *Magic*, but it didn’t even crack the Billboard Hot 100. (It did, however, chart in other countries.) “Radio Nowhere” fared better at the Grammy Awards, where it earned Bruce an award for Best Solo Rock Vocal Performance.
 

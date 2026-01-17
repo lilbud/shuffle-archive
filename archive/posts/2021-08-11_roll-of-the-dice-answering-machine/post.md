@@ -8,7 +8,7 @@ By the mid-1980s, answering machines had grown from a novelty item into a necess
 
 If you had an answering machine, it’s a safe bet that at one point or another you agonized over coming up with a greeting that would make people smile or laugh. We all did–even rock stars.
 
-[https://videopress.com/embed/zL8OU1w8](https://videopress.com/embed/zL8OU1w8)
+[Watch Video Highlight](https://videopress.com/embed/zL8OU1w8)
 
 Okay, that wasn’t real.
 
@@ -16,7 +16,7 @@ But still, I guarantee you that even Bruce Springsteen spent more time than he�
 
 It was time well spent, though, because his *actual* answering machine message was pretty darn awesome. And yes, this one is a genuine, unreleased, original Springsteen composition.
 
-[https://www.youtube.com/watch?v=xZOfaAQRLgo](https://www.youtube.com/watch?v=xZOfaAQRLgo)
+[Watch on Youtube: Bruce Springsteen's Answering Machine Message](https://www.youtube.com/watch?v=xZOfaAQRLgo)
 
 “Answering Machine” (as this unreleased gem has come to be known) is a fine example of a classic early-eighties Springsteen song: a rocking, uptempo melody that masks the disconnection and alienation in Bruce’s lyrics.
 

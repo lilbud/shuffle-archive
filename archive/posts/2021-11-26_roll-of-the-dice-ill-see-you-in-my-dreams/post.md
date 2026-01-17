@@ -6,7 +6,7 @@ For maybe an hour, we slept that way, Nora in my arms, swaddled and breathing ge
 
 And now I’m sitting in a dark hotel room, staring at a blank screen that’s daring me to analyze a song about death.
 
-[https://www.youtube.com/watch?v=dJkaZ8hQM60](https://www.youtube.com/watch?v=dJkaZ8hQM60)
+[Watch on Youtube: Bruce Springsteen - I'll See You In My Dreams (Lyric Video)](https://www.youtube.com/watch?v=dJkaZ8hQM60)
 
 When Nora’s mom was only eighteen months old, we took a family trip to Tokyo. Not long into the long flight home to Seattle, Casey fell asleep in my arms like her daughter would 23 years later. But an eighteen-month-old is a lot bigger and heavier than a one-week-old, and it didn’t take very long for that airplane seat to get pretty uncomfortable. My arms fell asleep, my bladder got full, and my stomach rumbled with hunger.
 
@@ -56,15 +56,15 @@ And like so many of the best of Bruce’s songs, we can distill “I’ll See Yo
 
 He sings them with increasing emphasis in every performance, starting with the song’s debut at last year’s Stand Up For Heroes event…
 
-[https://www.youtube.com/watch?v=Zy-rValx5Ik](https://www.youtube.com/watch?v=Zy-rValx5Ik)
+[Watch on Youtube: I’ll See You in My Dreams - Bruce Springsteen and Patti Scialfa (Stand Up for Heroes 2020)](https://www.youtube.com/watch?v=Zy-rValx5Ik)
 
 …and as succor for a reeling nation at the height of the pandemic, when he performed it with the E Street Band on *Saturday Night Live*.
 
-[https://player.vimeo.com/video/490323235?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/490323235?dnt=1&amp;app_id=122963)
+[I'll See You In My Dreams - Live On SNL](https://player.vimeo.com/video/490323235?dnt=1&app_id=122963)
 
 And as he visited with his ghosts each night during his second Broadway run, Bruce closed each show with a tear-streamed promise that sometimes felt just as desperate as defiant.
 
-[https://www.youtube.com/watch?v=y9jgZsW7Bew](https://www.youtube.com/watch?v=y9jgZsW7Bew)
+[Watch on Youtube: Bruce Springsteen I'll See You In My Dreams live on Broadway 14/07/2021](https://www.youtube.com/watch?v=y9jgZsW7Bew)
 
 But for me, “I’ll See You in My Dreams” isn’t desperate at all, and it doesn’t fill me with loss.
 
@@ -78,7 +78,7 @@ It’s a little snug and cozy right now, but it’ll grow.
 
 Happy Thanksgiving.
 
-[https://www.youtube.com/watch?v=xJum7B1KnkA](https://www.youtube.com/watch?v=xJum7B1KnkA)
+[Watch on Youtube: September 11, 2021](https://www.youtube.com/watch?v=xJum7B1KnkA)
 
 **I’ll See You in My Dreams  
 Recorded:** November 2019  

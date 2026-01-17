@@ -1,10 +1,10 @@
 Hailing back to early 1983, in the midst of what would become known retroactively as the *Born in the U.S.A. Sessions,* “Unsatisfied Heart” existed in the wild for decades only as a demo recorded by Bruce in his home studio.
 
-[https://www.youtube.com/watch?v=8hgDodSeEoo](https://www.youtube.com/watch?v=8hgDodSeEoo)
+[Watch on Youtube: Bruce Springsteen Unsatisifed Heart](https://www.youtube.com/watch?v=8hgDodSeEoo)
 
 When it was finally released in 2025 on *L.A. Garage Sessions ’83,* however, it was in a far more polished form. And unlike most of its album-mates, the released version of “Unsatisfied Heart” features contributions from E Street Band members Roy Bittan and Max Weinberg, making it a genuinely new and unheard entity.
 
-[https://www.youtube.com/watch?v=IHZPSeoja8A](https://www.youtube.com/watch?v=IHZPSeoja8A)
+[Watch on Youtube: Bruce Springsteen - Unsatisfied Heart (Official Audio)](https://www.youtube.com/watch?v=IHZPSeoja8A)
 
 This essay was originally written in 2018 and is based on the long-circulating bootleg demo. However, the lyrical differences are minor (with one notable exception, acknowledged below), so I’ve left the bulk of the text unaltered.
 

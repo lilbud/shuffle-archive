@@ -1,6 +1,6 @@
 We’ll get to the Springsteen connection in a minute; for the moment, you’ll need to excuse me while I rock out to the greatest punk band ever. Turn up the volume and join me, won’t you?
 
-[https://www.youtube.com/watch?v=bm51ihfi1p4](https://www.youtube.com/watch?v=bm51ihfi1p4)
+[Watch on Youtube: Ramones - I Wanna Be Sedated (Official Music Video)](https://www.youtube.com/watch?v=bm51ihfi1p4)
 
 Whew. Okay, now we can proceed.
 
@@ -10,9 +10,9 @@ Apparently Bruce does, because he didn’t hesitate to grab the sign request for
 
 After taking a moment or ten to work out the song with the band, they barrel-rolled through it, as loose and woolly as the song deserves. Take a listen:
 
-[http://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=1](http://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=1)
 
-<http://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3>
 
 (Oh, and a fun fact about that brilliant video at the top of the post: that’s a very young Courtney Love playing the role of the bride.)
 

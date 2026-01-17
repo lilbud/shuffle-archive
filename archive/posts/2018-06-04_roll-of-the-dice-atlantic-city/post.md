@@ -9,7 +9,7 @@ Unless you grew up around the Jersey Shore prior to the 1980s, it’s hard to tr
 
 Luckily, I spent much of my childhood summers at Atlantic City in the seventies, and I remember the events that Bruce sings about playing out in our local newspapers and on the boardwalk. So allow me to set the stage–but first, watch the song’s video (Bruce’s first one ever). It really helps.
 
-[https://www.youtube.com/watch?v=M3eu1gW-bQ8](https://www.youtube.com/watch?v=M3eu1gW-bQ8)
+[Watch on Youtube: Bruce Springsteen - Atlantic City](https://www.youtube.com/watch?v=M3eu1gW-bQ8)
 
 Pretty bleak, isn’t it?
 
@@ -101,15 +101,15 @@ That’s a master class in songwriting, folks: *four* different layers and inter
 
 I mentioned earlier that Philip Testa–the Chicken Man–was murdered in March of 1981. Bruce’s imagination must have been immediately catalyzed by the event, because within a month, he’d worked out a demo for a song called “Fist Full of Dollars.” The melody isn’t familiar, and the setting is geographically generic (although clearly somewhere along the shore), but the lyrics sure are familiar:
 
-[https://www.youtube.com/watch?v=ygKQBCzsHYc](https://www.youtube.com/watch?v=ygKQBCzsHYc)
+[Watch on Youtube: Bruce Springsteen - "Fist Full of Dollars" #1](https://www.youtube.com/watch?v=ygKQBCzsHYc)
 
 The almost-final Testa lyrics stand in such stark contrast to the roughness of the rest of the lyrics that it’s natural to assume that it was Testa’s death that moved Bruce to write the song, and that he only happened upon the Atlantic City metaphor for death and resurrection later. But not much later–Bruce continued working on the song, and before long, he’d transplanted it to Atlantic City (still unnamed, but the casinos give it away):
 
-[https://www.youtube.com/watch?v=U9DCzrozM6w](https://www.youtube.com/watch?v=U9DCzrozM6w)
+[Watch on Youtube: Bruce Springsteen - "Fist Full of Dollars" #2](https://www.youtube.com/watch?v=U9DCzrozM6w)
 
 However, both of these prototypes lack the death/resurrection theme and complexity of the final product. That would come soon enough, too. About six months or so later, Bruce had settled on the melody, theme, and most of the lyrics. You’ll hear a couple of lines in the demo below that didn’t make the final cut, though.
 
-[https://www.youtube.com/watch?v=N8w6zocoZic](https://www.youtube.com/watch?v=N8w6zocoZic)
+[Watch on Youtube: Bruce Springsteen - "Atlantic City" early demo, alt lyrics](https://www.youtube.com/watch?v=N8w6zocoZic)
 
 Let’s talk about that final cut for a moment: “Atlantic City” is one of the songs Bruce recorded during the *Nebraska* sessions at his home studio in Colts Neck, NJ. Benefiting from a four-track recorder, Bruce recorded his own backing vocals and plays all the instruments we hear, including the mandolin and glockenspiel, which evoke the old-time, pre-casino Atlantic City so well.
 
@@ -117,23 +117,23 @@ So much care was taken with the layered vocals and instrumentation–which makes
 
 Bruce released the song on the *Nebraska* album in September 1982, but since he didn’t tour for that album, he wouldn’t perform it live until almost two years later. When the Born in the USA Tour kicked off, “Atlantic City” featured prominently on the setlist from the very first show. Listen to that very first live performance from June 29, 1984 here:
 
-[https://www.youtube.com/watch?v=MAZqy2AmUmM](https://www.youtube.com/watch?v=MAZqy2AmUmM)
+[Watch on Youtube: Bruce Springsteen - Atlantic City (Live 1984)](https://www.youtube.com/watch?v=MAZqy2AmUmM)
 
 Notably, the arrangement is full band, as Bruce had originally intended (“Atlantic City” is one of the Nebraska songs that successfully transitioned from acoustic to electric–others proved famously elusive).
 
 Bruce wouldn’t play “Atlantic City’ acoustically in public until 1990, where it featured in the legendary Christic shows.
 
-[https://www.youtube.com/watch?v=kNT9uP5bW7g](https://www.youtube.com/watch?v=kNT9uP5bW7g)
+[Watch on Youtube: Bruce Springsteen - Atlantic City (acoustic)](https://www.youtube.com/watch?v=kNT9uP5bW7g)
 
 “Atlantic City” has been a staple of almost every tour setlist since its debut–the Tunnel of Love tour remains the only tour without a single outing. The arrangements typically vary between full band and solo acoustic guitar, but there have been a few notable exceptions, including solo piano renditions in 2005:
 
-[https://videopress.com/embed/BjucTnAN](https://videopress.com/embed/BjucTnAN)
+[Watch Video Highlight](https://videopress.com/embed/BjucTnAN)
 
 …and a dramatic new arrangement for the Seeger Sessions Tour 2006 that transforms the song’s protagonist from fatalist to optimist:
 
-[https://www.youtube.com/watch?v=I-KINbIukLs](https://www.youtube.com/watch?v=I-KINbIukLs)
+[Watch on Youtube: Bruce Springsteen with the Sessions Band - Atlantic City (Live In Dublin)](https://www.youtube.com/watch?v=I-KINbIukLs)
 
-In any arrangement, in any setting, “Atlantic City” remains one of Bruce’s crowning song-writing achievements. He’d covered similar ground earlier (“[Meeting Across the River](http://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)“) and he’d return to it later (“[Easy Money](https://estreetshuffle.com/index.php/2021/06/10/roll-of-the-dice-easy-money/)” is so close to the let’s-go-out-and-be-well-dressed-criminals motif of “Atlantic City” that I wonder why he took the time to revisit it), but for its combination of layered metaphor, real-world setting, atmospheric recording, and clever final reveal, “Atlantic City” remains alone at the top of that mini-genre. Maybe that’s why it’s had no less than *six* official album releases and is one of his most covered songs.
+In any arrangement, in any setting, “Atlantic City” remains one of Bruce’s crowning song-writing achievements. He’d covered similar ground earlier (“[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)“) and he’d return to it later (“[Easy Money](https://estreetshuffle.com/index.php/2021/06/10/roll-of-the-dice-easy-money/)” is so close to the let’s-go-out-and-be-well-dressed-criminals motif of “Atlantic City” that I wonder why he took the time to revisit it), but for its combination of layered metaphor, real-world setting, atmospheric recording, and clever final reveal, “Atlantic City” remains alone at the top of that mini-genre. Maybe that’s why it’s had no less than *six* official album releases and is one of his most covered songs.
 
 **Atlantic City**  
 **Recorded**: December 1981 – January 1982  
@@ -141,4 +141,4 @@ In any arrangement, in any setting, “Atlantic City” remains one of Bruce’s
 **First performed**: June 29, 1984 (St. Louis, MO)  
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

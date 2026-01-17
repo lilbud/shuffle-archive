@@ -10,15 +10,15 @@ Except they weren’t really characters.
 
 The Church Street Five was the house band for Legrand Records, which happened to be Gary U.S. Bonds’ record label, and their standout performer was a saxophonist named Gene Barge… also known as “Daddy G.”
 
-[https://www.youtube.com/watch?v=bHOeIxcS-VA](https://www.youtube.com/watch?v=bHOeIxcS-VA)
+[Watch on Youtube: Gene "Daddy G" Barge](https://www.youtube.com/watch?v=bHOeIxcS-VA)
 
 In 1960, The Church Street Five recorded an instrumental called “A Night With Daddy G” that featured their star saxophonist and a very familiar melody.
 
-[https://www.youtube.com/watch?v=MisEdV89Yp8](https://www.youtube.com/watch?v=MisEdV89Yp8)
+[Watch on Youtube: A Night With Daddy G (Part 1 & 2)-Church Street Five-1961- 45-Legrand 0574 & 0575.wmv](https://www.youtube.com/watch?v=MisEdV89Yp8)
 
 The following year, Bonds (or perhaps his manager, accounts vary) wrote lyrics to accompany the instrumental, assembled Daddy G and the Church Street Five, and recorded “Quarter to Three.” (Now you know why Bonds yells “Blow, Daddy!”)
 
-[https://www.youtube.com/watch?v=C7cAZhW-WGs](https://www.youtube.com/watch?v=C7cAZhW-WGs)
+[Watch on Youtube: Gary US Bonds - Quarter to Three 1961 www.thegroovewithcharleshightower.com](https://www.youtube.com/watch?v=C7cAZhW-WGs)
 
 “Quarter to Three” was an instant hit, topping the Billboard Hot 100 for two weeks in the summer of 1961, driven in part by the “[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)” effect of Bonds’ indecipherable patter at the beginning of the track.
 
@@ -26,11 +26,11 @@ The following year, Bonds (or perhaps his manager, accounts vary) wrote lyrics t
 
 *Rolling Stone* included “Quarter to Three” on its “500 Songs That Shaped Rock and Roll” list. That honor was well-earned, because the influence of Bonds’ hit was felt almost immediately, starting with Dion’s immortal “Runaround Sue,” released only a few months later…
 
-[https://www.youtube.com/watch?v=ik57HLn0Nm0](https://www.youtube.com/watch?v=ik57HLn0Nm0)
+[Watch on Youtube: DION ~ RUNAROUND SUE](https://www.youtube.com/watch?v=ik57HLn0Nm0)
 
 …and continues through the present day.
 
-[https://www.youtube.com/watch?v=ShlW5plD_40](https://www.youtube.com/watch?v=ShlW5plD_40)
+[Watch on Youtube: Meghan Trainor - Dear Future Husband (Official Video)](https://www.youtube.com/watch?v=ShlW5plD_40)
 
 “Quarter to Three” first surfaced in Bruce’s set lists very early in his career, and it was a reliable crowd-pleaser from the start. In fact, Bruce’s very first known performance brought the house down… or at least the stage.
 
@@ -40,11 +40,11 @@ Bruce debuted “Quarter to Three” as his final encore at New York’s Avery F
 
 You can hear that abrupt ending in the bootleg recording below.
 
-[https://videopress.com/embed/79joqG9f](https://videopress.com/embed/79joqG9f)
+[Watch Video Highlight](https://videopress.com/embed/79joqG9f)
 
 Fast forward to the Born to Run Tour a year later at Hammersmith Odeon (after Bruce and the band had performed the song dozens of times), and “Quarter to Three” was honed to a tight, frenetic showpiece, with The Big Man proving a suitable Daddy G stand-in.
 
-[https://www.youtube.com/watch?v=iOYMHP89xrg](https://www.youtube.com/watch?v=iOYMHP89xrg)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Quarter to Three (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=iOYMHP89xrg)
 
 Bruce and the E Street Band performed “Quarter to Three” more than 75 times in concert before Bruce and Bonds ever met in person. That moment finally came in October 1976, when Bruce caught Bonds’ show at a club called The Hanger on the Jersey shore.
 
@@ -52,19 +52,19 @@ Bruce and the E Street Band performed “Quarter to Three” more than 75 times 
 
 One of the songs Bruce and Bonds performed that night was the song Bruce used to wake his family with in the middle of the night, and the following week Bruce asked Gary to reciprocate at the E Street Band’s Palladium show. Their duet on “Quarter to Three”–captured below on a bootleg tape–marked their very first performance together on an E Street stage.
 
-[https://videopress.com/embed/OMKZJIxG](https://videopress.com/embed/OMKZJIxG)
+[Watch Video Highlight](https://videopress.com/embed/OMKZJIxG)
 
 Bruce continued performing “Quarter to Three” throughout the Darkness Tour, accompanied by stage antics that went increasingly over the top. Proclaiming himself “a prisoner of rock and roll,” he was more possessed than imprisoned by it.
 
-[https://www.youtube.com/watch?v=k1wqVIZR0ho](https://www.youtube.com/watch?v=k1wqVIZR0ho)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Quarter To Three (Live in Houston, 1978)](https://www.youtube.com/watch?v=k1wqVIZR0ho)
 
 On the eve of his 30th birthday, Bruce rocked himself to faux exhaustion in one of his most famous filmed performances (soon to be released as an official concert film).
 
-[https://www.youtube.com/watch?v=m2umNcwnjg8](https://www.youtube.com/watch?v=m2umNcwnjg8)
+[Watch on Youtube: No Nukes Encore - Quarter to Three, excellent performance!](https://www.youtube.com/watch?v=m2umNcwnjg8)
 
 That legendary M.U.S.E. performance marked the end of regular “Quarter to Three” appearances in Bruce’s set lists, but both it and Bonds himself have made a handful of cameo appearances with Bruce over the years since, including this one from the end of the Rising Tour in 2003.
 
-[https://www.youtube.com/watch?v=KI_dO_6cwDc](https://www.youtube.com/watch?v=KI_dO_6cwDc)
+[Watch on Youtube: 28 Quarter To Three Bruce Springsteen Shea Stadium 4th October 2003](https://www.youtube.com/watch?v=KI_dO_6cwDc)
 
 Bonds, of course, plays his greatest hit regularly during his own shows.
 
@@ -72,7 +72,7 @@ Daddy G is still around, too. Besides his long and influential career on the Chi
 
 Now 95 years old, Daddy G still performs from time to time, and when he does, he’s almost guaranteed to play his signature song, the one that eventually led to some of Bruce’s most exciting on-stage moments: “A Night with Daddy G.”
 
-[https://www.youtube.com/watch?v=H3jWn4e60ZE](https://www.youtube.com/watch?v=H3jWn4e60ZE)
+[Watch on Youtube: Daddy G 8/31/2014 Church Street Celebration](https://www.youtube.com/watch?v=H3jWn4e60ZE)
 
 **Quarter to Three  
 First performed:** October 4, 1974 (New York City, NY)  

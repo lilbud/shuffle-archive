@@ -24,16 +24,14 @@ We do have the band’s live performance with Bruce that night, though–and eve
 
 And even if it wasn’t: you’d know Bruce was on stage just from the taper/bouncer chatter unfortunately captured in the foreground. A hat tip to the persistent taper who managed to come away with a pretty great recording regardless!
 
-[https://videopress.com/embed/Ub94o55O](https://videopress.com/embed/Ub94o55O)
+[Watch Video Highlight](https://videopress.com/embed/Ub94o55O)
 
 If you’re looking for more definitive evidence of Bruce’s on-stage contribution, check out this video clip from that performance. Only the last three-and-a-half minutes or so were captured, but there’s a pretty great “[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)” at the end of it (with Bruce’s vocals) as a bonus.
 
-[https://www.youtube.com/watch?v=Cq5tE0a3m-M](https://www.youtube.com/watch?v=Cq5tE0a3m-M)
+[Watch on Youtube: Solar Circus - 8/10/95- with Bruce Springsteen, Better Things, Mustang Sally](https://www.youtube.com/watch?v=Cq5tE0a3m-M)
 
 Bruce never played with Solar Circus again, but at least for that one August night, he joined local musicians and fans in paying tribute to an American music icon taken too soon.
 
 **Better Things  
 First performed:** August 10, 1995 (Long Branch, NJ)  
 **Last performed:** August 10, 1995 (Long Branch, NJ)
-
- 

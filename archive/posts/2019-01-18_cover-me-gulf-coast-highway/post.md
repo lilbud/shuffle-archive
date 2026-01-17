@@ -2,7 +2,7 @@ In February 1988, just prior to the kickoff of Bruce’s Tunnel of Love Express 
 
 Tucked away at the end of Side One of that album is a gorgeous duet with Mac McAnally called “Gulf Coast Highway,” that sounds for all the world like a Bruce Springsteen song.
 
-[https://www.youtube.com/watch?v=okUYwIdxRWs](https://www.youtube.com/watch?v=okUYwIdxRWs)
+[Watch on Youtube: Nanci Griffith - Gulf Coast Highway](https://www.youtube.com/watch?v=okUYwIdxRWs)
 
 In fact, with lyrics like these, “Gulf Coast Highway” would be right at home on *The Ghost of Tom Joad* (even though that album was still seven years in the future):
 
@@ -21,7 +21,7 @@ In fact, with lyrics like these, “Gulf Coast Highway” would be right at home
 
 Bruce was apparently taken with the song, because not long after the song’s release, he soundchecked it at least once. The recording below is from a soundcheck sometime during his stand at Madison Square Garden in 1988. Take a listen–it’s a beautiful arrangement featuring Patti’s lovely backing vocals.
 
-[https://www.youtube.com/watch?v=wgN6OHlkoZU](https://www.youtube.com/watch?v=wgN6OHlkoZU)
+[Watch on Youtube: Bruce Springsteen - "Gulf Coast Highway" - New York, 1988](https://www.youtube.com/watch?v=wgN6OHlkoZU)
 
 Too bad Bruce bluffs some of the vocals; this is one cover I’d love to have a true recording of.
 

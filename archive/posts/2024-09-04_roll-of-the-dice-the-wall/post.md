@@ -6,7 +6,7 @@ The MRC houses millions of artifacts collected throughout American history and a
 
 The Floor is the eventual home for items left in tribute and remembrance by visitors to the Vietnam Veterans Memorial, or as most call it, “The Wall.” If it was open to the public, you’d see aisle after aisle of blue boxes stacked floor to ceiling, although some items (like the motorcycle in the video below) are too large to be contained.
 
-[https://videopress.com/embed/dlsQz1Oq](https://videopress.com/embed/dlsQz1Oq)
+[Watch Video Highlight](https://videopress.com/embed/dlsQz1Oq)
 
 The Vietnam Veterans Memorial collection is the only one of its kind, comprised entirely of donated items. It started organically almost as soon as the memorial opened in 1982. Long before Internet memes and social media, visitors from around the world were somehow moved en masse to leave items at the wall below the names of their loved ones.
 
@@ -34,7 +34,7 @@ Although the session yielded such gems as “Another Thin Line” and “[Code o
 
 Neither of them abandoned the idea, however. In 2002, Joe released “On The Wall” on his *Fingerprints* album.
 
-[https://www.youtube.com/watch?v=DrSo_sTiJRA](https://www.youtube.com/watch?v=DrSo_sTiJRA)
+[Watch on Youtube: On The Wall](https://www.youtube.com/watch?v=DrSo_sTiJRA)
 
 “On The Wall” is a rocker through and through, but its verses are as intimate as a spoken-word story. The second half of the song focuses on Ranger Black, the very same park ranger profiled in the *USA Today* article Joe saved.
 
@@ -60,7 +60,7 @@ In the article, the reporter asked Ranger Black if he’d ever been particularly
 
 As for Bruce, he took a quieter, pensive, almost muted approach. He wrote “The Wall” in the voice of a visitor trying to make sense of his long-ago loss. While Bruce fictionalizes the name of his childhood friend, Billy is clearly a stand-in for Walter, as anyone who has read *Born to Run* or attended *Springsteen on Broadway* will recognize.
 
-[https://www.youtube.com/watch?v=CZIPyLtCEdA](https://www.youtube.com/watch?v=CZIPyLtCEdA)
+[Watch on Youtube: Bruce Springsteen - The Wall](https://www.youtube.com/watch?v=CZIPyLtCEdA)
 
 Even before his autobiography and Broadway run, however, Bruce admitted his influence in the liner notes to *High Hopes*, the album that houses “The Wall.”
 
@@ -74,7 +74,7 @@ Walter Cichon went missing in action on March 30, 1968. He remains listed that w
 
 When he debuted “The Wall” in concert in 2003, more than a decade before a studio recording surfaced, Bruce credited Joe as co-writer. “We kinda wrote this song together in some fashion.”
 
-[https://www.youtube.com/watch?v=uqe-nglQ8Hw](https://www.youtube.com/watch?v=uqe-nglQ8Hw)
+[Watch on Youtube: Bruce Springsteen The Wall Somerville 19/02/2003](https://www.youtube.com/watch?v=uqe-nglQ8Hw)
 
 Joe believes Bruce was overly generous and gracious for saying so. When “The Wall” finally appeared on *High Hopes* eleven years later, Bruce set the record straight in the liner notes, explaining that the song’s title and premise came from Joe, but the words and music were all his.
 
@@ -84,7 +84,7 @@ Although he had only performed the song acoustically to that point, Bruce cut �
 
 “The way they transfer the music to digital, there’s no track sheet and you don’t know who is playing what. I didn’t know who was playing what, and I added some touches to it. But that’s the E Street Band back in the day.”
 
-[https://www.youtube.com/watch?v=XluqvohdcqY](https://www.youtube.com/watch?v=XluqvohdcqY)
+[Watch on Youtube: The Wall](https://www.youtube.com/watch?v=XluqvohdcqY)
 
 “The Wall” remained pretty much intact in its journey from stage to disc. Bruce altered a few lyrical details (a striped t-shirt instead of a black one, the day goes on instead of life, dog tags instead of high school pictures, etc.) but nothing remotely substantial enough to change the meaning or power of the song on the listener.
 
@@ -122,9 +122,9 @@ The final verse is exquisite in its subtlety, juxtaposing the images of blood re
 
 In a town where life-altering decisions are made by those far removed from consequences sits a place of profound intimacy for those who live with them forevermore.
 
-[https://www.youtube.com/watch?v=piMyePznQWE](https://www.youtube.com/watch?v=piMyePznQWE)
+[Watch on Youtube: The Wall (solo piano) Bruce Springsteen 11/16/2005 NJ](https://www.youtube.com/watch?v=piMyePznQWE)
 
-[https://www.youtube.com/watch?v=j3m0BXVKPu0](https://www.youtube.com/watch?v=j3m0BXVKPu0)
+[Watch on Youtube: Bruce Springsteen- "The Wall" (Charlotte, NC 04/19/14)](https://www.youtube.com/watch?v=j3m0BXVKPu0)
 
 **The Wall  
 Recorded:** Late 1990s  

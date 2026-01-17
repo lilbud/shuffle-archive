@@ -2,10 +2,8 @@
 
 Here’s the 1984 version…
 
-[https://www.youtube.com/watch?v=OMZAKaLR-yM](https://www.youtube.com/watch?v=OMZAKaLR-yM)
+[Watch on Youtube: Nitty Gritty Dirt Band - Cadillac Ranch.](https://www.youtube.com/watch?v=OMZAKaLR-yM)
 
 …and as a bonus, here they are still performing it in 2011. Like Bruce, they’re better with age!
 
-[https://www.youtube.com/watch?v=F7svzn-5vUg](https://www.youtube.com/watch?v=F7svzn-5vUg)
-
- 
+[Watch on Youtube: Nitty Gritty Dirt Band - Cadillac Ranch (Live)](https://www.youtube.com/watch?v=F7svzn-5vUg)

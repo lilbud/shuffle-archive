@@ -2,7 +2,7 @@
 
 One of those lighter moments was “Labor of Love,” and even if it didn’t fit the theme of the album, it became one of Joe’s best-loved (*Billboard* editor Thom Duffy named it one of the ten best singles of 1995) and most-played songs, showing up in almost every show.
 
-[https://www.youtube.com/watch?v=DSdpmShd7e4](https://www.youtube.com/watch?v=DSdpmShd7e4)
+[Watch on Youtube: Labor of Love](https://www.youtube.com/watch?v=DSdpmShd7e4)
 
 As he did with the rest of the album, Bruce Springsteen produced the ebullient track, and he contributed his instrumental talents on the guitar and mandolin, too.
 
@@ -14,7 +14,7 @@ Appearing on vinyl and CD more than four years before Bruce debuted his own song
 
 Bruce made on-stage appearances with Joe and The Houserockers on “Labor of Love” too, nightly throughout Joe’s 1995 October Assault mini-tour in support of the new album–including an appearance at Tramps in New York City, presented in soundboard quality below.
 
-[https://videopress.com/embed/GNQEIU6t](https://videopress.com/embed/GNQEIU6t)
+[Watch Video Highlight](https://videopress.com/embed/GNQEIU6t)
 
 Unfortunately, despite their many and frequent on-stage team-ups year after year after year, it’s been almost a quarter-century since Bruce has joined Joe on “Labor of Love.”
 
@@ -25,5 +25,3 @@ But catch [Joe and his band at the Wonder Bar on July 9th](https://www.ticketmas
 **Labor of Love  
 First performed:** July 22, 1995 (Sea Bright, NJ)  
 **Last performed:** March 2, 1998 (Pittsburgh, PA)
-
- 

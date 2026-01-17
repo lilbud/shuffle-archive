@@ -6,7 +6,7 @@ But until it was released on the 2015 box set *The Ties That Bind: The River Col
 
 And that’s too bad, because “The Man Who Got Away” is an absolutely fantastic song, three-and-a-half minutes of taut rock storytelling accompanied by a tight E Street Band.
 
-[https://www.youtube.com/watch?v=Xqc_s3sOOUE](https://www.youtube.com/watch?v=Xqc_s3sOOUE)
+[Watch on Youtube: The Man Who Got Away (Studio Outtake - 1979)](https://www.youtube.com/watch?v=Xqc_s3sOOUE)
 
 Often compared to “[Be True,](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)” its sibling outtake, because of its Hollywood imagery, the two songs couldn’t be more different. “Be True” ranks among Bruce’s best romantic pop songs, but in a different arrangement, “The Man Who Got Away” would have been at home on *Nebraska*.
 
@@ -64,17 +64,17 @@ But other than its under-the-radar official release in the anniversary box set, 
 
 **Bonus #1:** Here’s an inside look at Bruce working on an early acoustic version of “The Man Who Got Away.” The lyrics are very different–the song would evolve considerably before Bruce brought it to the band.
 
-[https://www.youtube.com/watch?v=KaOta11KKKU](https://www.youtube.com/watch?v=KaOta11KKKU)
+[Watch on Youtube: Bruce Springsteen Man Who Got Away #2 Acoustic Demo](https://www.youtube.com/watch?v=KaOta11KKKU)
 
 **Bonus #2:** Although it took more than 35 years for us to get an official release of “The Man Who Got Away,” we did get a glimpse of it much, much earlier when a recording of an E Street Band rehearsal escaped into the wild. Take a listen to that full run-through of “The Man Who Got Away,” followed by Bruce listening to the recording and practicing his harmonies.
 
-[https://www.youtube.com/watch?v=0EAjq87xUjs](https://www.youtube.com/watch?v=0EAjq87xUjs)
+[Watch on Youtube: Bruce Springsteen Man Who Got Away #1](https://www.youtube.com/watch?v=0EAjq87xUjs)
 
-[https://www.youtube.com/watch?v=XNBuiArqUzQ](https://www.youtube.com/watch?v=XNBuiArqUzQ)
+[Watch on Youtube: Bruce Springsteen Man Who Got Away harmonies](https://www.youtube.com/watch?v=XNBuiArqUzQ)
 
 **The Man Who Got Away  
 Recorded:** June 13-July 5, 1979  
 **Released:** *The Ties That Bind: The River Collection* (2015)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

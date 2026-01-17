@@ -8,7 +8,7 @@ Rather than attempt a recreation of the original, though, Tebo did what the best
 
 Let’s see how he did.
 
-[https://www.youtube.com/watch?v=WN2tyOTl1OU](https://www.youtube.com/watch?v=WN2tyOTl1OU)
+[Watch on Youtube: New York City Serenade - Bruce Springsteen (Cover by Paul Tebo)](https://www.youtube.com/watch?v=WN2tyOTl1OU)
 
 Tebo gets a big thumbs-up from this blogger: terrific vocals, a fresh but still recognizable arrangement, and a clear reverence for the original song. Only the fact that he abbreviated the song keeps it from getting top marks in my book, but then again I’m not sure how he would have adapted the “listen to your junkman” section.
 

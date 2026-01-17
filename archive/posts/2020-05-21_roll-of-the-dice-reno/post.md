@@ -8,11 +8,11 @@ Everything about “Reno” is perfect–on the album track, at least. Bruce’s
 
 Let’s take a close listen.
 
-[https://www.youtube.com/watch?v=8TXYAaJeSS0](https://www.youtube.com/watch?v=8TXYAaJeSS0)
+[Watch on Youtube: Reno](https://www.youtube.com/watch?v=8TXYAaJeSS0)
 
 There’s a lot to unpack here: “Reno” is beautifully layered and meticulously detailed. It’s about as finely crafted a song as Bruce has ever written, rivaled only by much of *Western Stars*.
 
-Before we jump into the lyrics, go back and take a close listen to the instrumentation, at least in the introduction. Then compare it with “[Maria’s Bed](http://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/),” which follows three songs later on the same album. Notice the similarities, not in melody but in sound: this is important, and we’ll address it directly in a little while.
+Before we jump into the lyrics, go back and take a close listen to the instrumentation, at least in the introduction. Then compare it with “[Maria’s Bed](https://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/),” which follows three songs later on the same album. Notice the similarities, not in melody but in sound: this is important, and we’ll address it directly in a little while.
 
 “Reno” begins in a hotel room, although we don’t learn this until the end of the first verse. Pay attention to the way Bruce parcels out exposition, because the master is at work:
 
@@ -64,7 +64,7 @@ Bruce only mentions Maria by name once, which is all he really had to do in orde
 
 Or did we?
 
-Go back and take a close listen to “Maria’s Bed” again. Like I wrote in [this essay](http://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/) a couple of years ago, I believe “Maria’s Bed” and “Reno” are two halves of the same story, prequel and sequel. Not only do the two songs work perfectly together, not only do they feature the same love interest, they even feature similar instrumentation. “Maria’s Bed” may be jaunty compared with the aching “Reno,” but they sound similar, as if the same musicians are playing the same instruments (they’re not). That’s probably not coincidental.
+Go back and take a close listen to “Maria’s Bed” again. Like I wrote in [this essay](https://estreetshuffle.com/index.php/2018/11/16/roll-of-the-dice-marias-bed/) a couple of years ago, I believe “Maria’s Bed” and “Reno” are two halves of the same story, prequel and sequel. Not only do the two songs work perfectly together, not only do they feature the same love interest, they even feature similar instrumentation. “Maria’s Bed” may be jaunty compared with the aching “Reno,” but they sound similar, as if the same musicians are playing the same instruments (they’re not). That’s probably not coincidental.
 
 The core backing track for “Reno” is believed to date back to the late 1990s; I’m pretty certain that “Maria’s Bed” hails from that era as well–it shares too much lyrical DNA with “Further On (Up the Road)” to not have originated in the same period.
 
@@ -104,7 +104,7 @@ However, there is one superb live performance that’s worth viewing, and it’s
 
 It’s very different from Bruce’s nightly performance on tour, and the only live performance of “Reno” that I revisit frequently. I’ll leave you with that beautiful performance of this heartbreaking song.
 
-[https://www.youtube.com/watch?v=mfJ0_WREIEg](https://www.youtube.com/watch?v=mfJ0_WREIEg)
+[Watch on Youtube: Bruce Springsteen - Reno ("Devils & Dust" Acoustic Performances)](https://www.youtube.com/watch?v=mfJ0_WREIEg)
 
 **Reno  
 Recorded:** 1997-2004  
@@ -112,4 +112,4 @@ Recorded:** 1997-2004
 **First performed:** April 22, 2005 (Asbury Park, NJ)  
 **Last performed:** November 22, 2005 (Trenton, NJ)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

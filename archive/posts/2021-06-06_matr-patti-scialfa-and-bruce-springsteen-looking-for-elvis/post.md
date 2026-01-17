@@ -2,7 +2,7 @@
 
 “Looking For Elvis” is more than just one of Patti Scialfa’s angriest songs; it’s also one of her best.
 
-[https://www.youtube.com/watch?v=VlkZTfUhRZ8](https://www.youtube.com/watch?v=VlkZTfUhRZ8)
+[Watch on Youtube: Looking For Elvis](https://www.youtube.com/watch?v=VlkZTfUhRZ8)
 
 Patti doesn’t verge into the civic arena with her songwriting very often, but with “Looking For Elvis” she proved that she can write political songs when she wants to.
 
@@ -29,18 +29,16 @@ Both are great songs, but “Looking For Elvis” fit the Magic Tour’s theme f
 
 Now, if you listened to Bruce’s radio show last summer you might have caught him and Patti discussing “Looking For Elvis” in Episode 9–and Bruce made a curious recollection:
 
-[https://videopress.com/embed/8pX05LTC](https://videopress.com/embed/8pX05LTC)
+[Watch Video Highlight](https://videopress.com/embed/8pX05LTC)
 
 Bruce was wrong, though. They didn’t cut the track at Convention Hall. But as Patti correctly recalled, they *did* perform it live there (on a closed set) for an Elvis documentary called *Viva Las Vegas* (which you can find on DVD if you’re so inclined).
 
 And that live performance is very worth watching–it’s even stronger than the studio track. Bruce whoops up a storm in his extended solo, and Patti’s vocals are so angry that she uncharacteristically growls at times. Capping off with a “[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)” tag, this is an outstanding performance that deserves more views than it’s received.
 
-[https://videopress.com/embed/l9Jujnvp](https://videopress.com/embed/l9Jujnvp)
+[Watch Video Highlight](https://videopress.com/embed/l9Jujnvp)
 
 **Play It As It Lays  
 Recorded:** Unknown  
 **Released:** *Play It As It Lays* (2007)  
 **First performed:** August 2007 (exact date unknown)  
 **Last performed:** August 2007 (exact date unknown)
-
- 

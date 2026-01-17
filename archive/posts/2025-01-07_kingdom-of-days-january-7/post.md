@@ -2,23 +2,23 @@
 
 **1985**: Bruce and the E Street Band play the first of two shows at the Market Square Arena in Indianapolis.
 
-[https://videopress.com/embed/u6P0Qra6](https://videopress.com/embed/u6P0Qra6)
+[Watch Video Highlight](https://videopress.com/embed/u6P0Qra6)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Indianapolis_Star_1985_01_08_Page_14.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-07a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Indianapolis_News_1985_01_08_12.jpg?w=758&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Indianapolis_News_1985_01_08_12-scaled.jpg)
 
 **1996:** Bruce plays an acoustic set at Salle Wilfrid-Pelletier in Montreal.
 
-[https://videopress.com/embed/BajA8CC1](https://videopress.com/embed/BajA8CC1)
+[Watch Video Highlight](https://videopress.com/embed/BajA8CC1)
 
-[https://videopress.com/embed/pEU1H6gx](https://videopress.com/embed/pEU1H6gx)
+[Watch Video Highlight](https://videopress.com/embed/pEU1H6gx)
 
-[https://videopress.com/embed/LEvBa7FU](https://videopress.com/embed/LEvBa7FU)
+[Watch Video Highlight](https://videopress.com/embed/LEvBa7FU)
 
-[https://videopress.com/embed/NDBz2bh5](https://videopress.com/embed/NDBz2bh5)
+[Watch Video Highlight](https://videopress.com/embed/NDBz2bh5)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/1996-01-07.png)
 
@@ -30,11 +30,11 @@
 
 **2021:** On Apple Music’s *Beyond the Influence Radio* show, host Tim McGraw interviews Bruce about his latest album, *Letter to You*.
 
-[https://www.youtube.com/watch?v=7OMTyppnWLM](https://www.youtube.com/watch?v=7OMTyppnWLM)
+[Watch on Youtube: Tim McGraw & Bruce Springsteen: ‘Letter To You’ Documentary and E Street Band’s Legacy | Apple Music](https://www.youtube.com/watch?v=7OMTyppnWLM)
 
 **2023:** The first of a series of scholarly symposiums is convened at Monmouth University to celebrate the golden anniversary of *[Greetings From Asbury Park, N.J.](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0105-album.jpg?w=500&ssl=1)*Panelists include Mike Appel, Vini Lopez, Garry Tallent, David Sancious, and more.
 
-[https://www.youtube.com/watch?v=eJ4BWxKjyqI](https://www.youtube.com/watch?v=eJ4BWxKjyqI)
+[Watch on Youtube: Greetings From Asbury Park Symposium - LOPEZ, SANCIOUS, TALLENT WITH PAT RODDY January 7,2023](https://www.youtube.com/watch?v=eJ4BWxKjyqI)
 
 **2024:** Bruce and Patti attend the Golden Globe Awards in Beverly Hills, where he is nominated for (but doesn’t win) the Best Original Song, Motion Picture award for “Addicted to Romance.”
 

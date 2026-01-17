@@ -1,6 +1,6 @@
 If every rocker needs a mission statement, for Joe Grushecky, “I Was Born to Rock” is a pretty great candidate.
 
-[https://www.youtube.com/watch?v=GNbJlqlWVCI](https://www.youtube.com/watch?v=GNbJlqlWVCI)
+[Watch on Youtube: I Was Born To Rock](https://www.youtube.com/watch?v=GNbJlqlWVCI)
 
 Tucked deep into Joe’s otherwise weighty *Somewhere East of Eden* album (his seventeenth studio album, released in 2013), “I Was Born to Rock” is crunchy and catchy, playfully and powerfully personal.
 
@@ -12,7 +12,7 @@ That moment came in May 2014, when Bruce joined Joe for a pair of Pittsburgh sho
 
 Take a listen below and enjoy Joe and Bruce’s only team-up to date on “I Was Born to Rock.”
 
-[https://videopress.com/embed/TTD71Lro](https://videopress.com/embed/TTD71Lro)
+[Watch Video Highlight](https://videopress.com/embed/TTD71Lro)
 
 **I Was Born to Rock  
 First performed:** May 22, 2014 (Pittsburgh, PA)  

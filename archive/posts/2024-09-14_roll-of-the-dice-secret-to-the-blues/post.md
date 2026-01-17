@@ -6,7 +6,7 @@ It’s almost impossible to find songs from the Bruce Springsteen Band era that 
 
 And then there’s “Secret to the Blues.”
 
-[https://www.youtube.com/watch?v=7cpSujTLZ9s](https://www.youtube.com/watch?v=7cpSujTLZ9s)
+[Watch on Youtube: Bruce Springsteen & the E-Street Band-Secret to the Blues (live)](https://www.youtube.com/watch?v=7cpSujTLZ9s)
 
 Now you could argue that “Secret to the Blues” isn’t technically a crossover, as its three known performances were all in 1973. But you could also argue that it’s essentially the same song as “[The Band’s Just Bopping the Blues,](https://estreetshuffle.com/index.php/2021/01/19/roll-of-the-dice-the-bands-just-boppin-the-blues/)” which was played twice (that we know of) by the BSB in 1971-72.
 

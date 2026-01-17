@@ -6,10 +6,8 @@ It’s a great song, of course–one of Bruce’s finest, in my opinion. But it�
 
 But The Folding Chairs were up to the challenge, tackling “New York City Serenade” as their entry for this year’s [*Cover Me* contest](https://www.noiespringsteen.com/contest/). Their arrangement starts out faithful to Bruce’s original but soon shifts more definitively into the band’s wheelhouse with a bluegrass-inflected arrangement that works beautifully.
 
-[https://www.youtube.com/watch?v=bj-dFrGC1AU](https://www.youtube.com/watch?v=bj-dFrGC1AU)
+[Watch on Youtube: New York City Serenade - Bruce Springsteen cover by The Folding Chairs](https://www.youtube.com/watch?v=bj-dFrGC1AU)
 
 Entries are now closed for this year’s *Cover Me* contest; now the judges face the daunting task of selecting the finalists. With a line-up of great entries like the ones I’ve featured here these last couple of months, that’s not going to be easy.
 
 Stay tuned–more great covers to come.
-
- 

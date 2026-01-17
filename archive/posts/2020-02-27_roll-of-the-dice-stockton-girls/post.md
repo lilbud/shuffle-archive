@@ -1,10 +1,10 @@
-We took a look at Bruce Springsteen’s abandoned “[Stockton Boys](http://estreetshuffle.com/index.php/2019/01/10/roll-of-the-dice-stockton-boys/)” home demos a year or so ago; today we’ll listen to their sister song.
+We took a look at Bruce Springsteen’s abandoned “[Stockton Boys](https://estreetshuffle.com/index.php/2019/01/10/roll-of-the-dice-stockton-boys/)” home demos a year or so ago; today we’ll listen to their sister song.
 
 Truthfully, “Stockton Girls” really shouldn’t qualify as a separate song–it’s more of a “Stockton Boys” variation than anything else. The melody is identical, as is the theme. If it weren’t for the fact that Bruce rewrote the entire set of lyrics, we’d consider it an experiment in gender-fluid songwriting.
 
 But Bruce did rewrite the lyrics, and it’s instructive to take a close listen and appreciate how Bruce approaches his craft.
 
-[https://www.youtube.com/watch?v=_cKBiQvTO2w](https://www.youtube.com/watch?v=_cKBiQvTO2w)
+[Watch on Youtube: Bruce Springsteen Stockton Girls](https://www.youtube.com/watch?v=_cKBiQvTO2w)
 
 The exact chronology of the Stockton siblings is unclear–we don’t know whether the girls came first, last, or somewhere in between the four “Stockton Boys” demos. All five of the demos (four boys, one girl) feature partially or heavily bluffed lyrics, so there’s little we can glean by comparing the lyrical completeness.
 
@@ -42,7 +42,7 @@ Even the second verses are parallel, with the Stockton Boys leaving their wives 
 *They come running down from the factory*  
 *I love those Stockton girls*
 
-Bruce never finished either song (that we know of), although he would develop a similar theme in “Out on the Street” and repurpose a couple of “Stockton Boys” lyrics for “[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).”
+Bruce never finished either song (that we know of), although he would develop a similar theme in “Out on the Street” and repurpose a couple of “Stockton Boys” lyrics for “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).”
 
 In the end, both “Stockton Boys” and “Stockton Girls” are curiosities, signposts on the road to *The River*.
 
@@ -51,4 +51,4 @@ Recorded:** Autumn 1979 (home demo only)
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

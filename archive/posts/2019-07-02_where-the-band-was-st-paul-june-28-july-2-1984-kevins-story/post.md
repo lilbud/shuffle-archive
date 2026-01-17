@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor’s Note:*** *I wasn’t planning on having another guest blogger so soon, but a funny thing happened after I published [Sandi Pederson’s Where the Band Was report](http://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/) from Bruce’s “Dancing in the Dark” video shoot and opening Born in the U.S.A. Tour shows the other day: Another fan who was there for both the shoot and those opening shows read Sandi’s article and reached out to me with more detail about the video shoot and some absolutely stunning photos from those shows.*
+***Editor’s Note:*** *I wasn’t planning on having another guest blogger so soon, but a funny thing happened after I published [Sandi Pederson’s Where the Band Was report](https://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/) from Bruce’s “Dancing in the Dark” video shoot and opening Born in the U.S.A. Tour shows the other day: Another fan who was there for both the shoot and those opening shows read Sandi’s article and reached out to me with more detail about the video shoot and some absolutely stunning photos from those shows.*
 
 *Kevin Doyle was one of the 200 or so extras behind the stage… at least at first. How he got there and where he ended up is his story to tell, so without further ado, here’s Kevin’s first-hand account of that historic day in St. Paul, interspersed with his incredible photos from the shows that followed during the opening St. Paul Stand.*
 
@@ -20,7 +20,7 @@ Needless to say, I did not have a voucher. With my camera in hand, I was just ab
 
 To my delight, one of the girls had to back out and the second followed, thus giving me an opportunity to plead my case to the security guard to let me take their place. After several “pleases” I was in… but not so fast: I was told that I could not enter with my camera and needed to return it to my car. And with no car (because my transportation was my bike), I was back to square one.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/Bruce-629-300x278.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/Bruce-629.jpg)
 
 Just at that moment, a car pulled up to the entrance and the guy that got out was my manager at the movie theater where I worked. He was a runner for the local production company and was making a delivery. What were the chances? My camera was now safely tucked away into the trunk of Ray’s car, and I was free to enter the Saint Paul Civic Center.
 
@@ -40,7 +40,7 @@ Bruce performed “Dancing in the Dark” a few times with everyone in that loca
 
 The next stop was the section behind the Mighty Max–a sure bet to get on camera if you could get into the seats right behind the drum kit…and that we did, myself and my two other friends. That is, until the guy with the headset went around the section and pulled selected people from their seats and gathered them on the steps and in the aisle. My friend Jackie and myself were among them, even though we pleaded to be allowed to stay in our seats. After all, we thought were golden right where we were. We didn’t want to be fillers in and around the section. But our pleas were to no avail.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/bruce-and-patti-300x272.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/bruce-and-patti.jpg)
 
 We couldn’t have been more wrong about being golden, though, because the headset guy told us, “You guys are all going down to the front of the stage!”
 
@@ -52,7 +52,7 @@ The focus of attention and the cause of a hold-up, I once again was blessed with
 
 The look on his face was priceless, funny now but not so much then. He told me to make it fast. I approached the white shirt guy (who had no idea what I was about to ask) and explained my situation as quickly as I could, keeping in mind that I was holding up production with my drama. All the while, Mr. De Palma had to be dumbfounded and confused by what was going on. I would say with confidence that was my fifteen seconds of fame.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/Bruce-71-300x258.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/07/Bruce-71.jpg)
 
 Long story short, I got the white shirt and remained with my friend Jackie. Once we realized that Courtney Cox was not a Bruce fan and just brought in to be the “one,” we understood why Brian De Palma struggled with directing her to be more enthusiastic, more “fan-like.” She really didn’t look like she belonged. I bet every other fan who was there as an extra knew that they would have been a better choice to dance with Bruce.
 

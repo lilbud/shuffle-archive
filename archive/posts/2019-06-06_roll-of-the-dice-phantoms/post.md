@@ -9,21 +9,21 @@ Too often dismissed as a work-in-progress “Zero and Blind Terry,” “Phantom
 
 Surviving records suggest that Bruce worked on and recorded “Phantoms” and “Zero and Blind Terry” simultaneously during the sessions that yielded his second album. Perhaps he intended for the stronger twin to survive; ultimately neither did.
 
-But whereas “Zero and Blind Terry” foretold the arrival of “Romantic Bruce” (“[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” and “[4th of July Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” lay just ahead in the not-too-distant future), “Phantoms” closed the chapter on… what shall we call him? Western Bruce? Historical Bruce? Hallucinatory Bruce? Regardless, “Phantoms” marked the end of songs like “[The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/),” “[Santa Ana](http://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/),” and “[If I Was the Priest](http://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/).” The tone and imagery of Bruce’s songs would shift from this point forward. (He’d temporarily relapse about 35 years later, but that’s an essay for another day.)
+But whereas “Zero and Blind Terry” foretold the arrival of “Romantic Bruce” (“[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” and “[4th of July Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)” lay just ahead in the not-too-distant future), “Phantoms” closed the chapter on… what shall we call him? Western Bruce? Historical Bruce? Hallucinatory Bruce? Regardless, “Phantoms” marked the end of songs like “[The Angel](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/),” “[Santa Ana](https://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/),” and “[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/).” The tone and imagery of Bruce’s songs would shift from this point forward. (He’d temporarily relapse about 35 years later, but that’s an essay for another day.)
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=X0u-OIKzBoA](https://www.youtube.com/watch?v=X0u-OIKzBoA)
+[Watch on Youtube: Phantoms - Bruce Springsteen](https://www.youtube.com/watch?v=X0u-OIKzBoA)
 
 Although records aren’t clear enough to tell us exactly what Bruce had in mind with his dueling “Phantoms” and “Zero and Blind Terry,” we have enough artifacts of the former to suggest that Bruce was tinkering with “Phantoms” right up until the point he abandoned it.
 
 First, we have an early lyrics sheet that shows us that Bruce hadn’t yet settled on a name for Jamey’s love interest. What’s fascinating are the two names he’d tried and tossed: Sandy and Mary. Both women would make an appearance in Bruce’s catalog soon enough.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/06/phantoms-lyrics-242x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/06/phantoms-lyrics.jpg)
 
 An early live recording (but not *that* early–only weeks before Bruce recorded “Phantoms” in the studio, in fact) tells the same story but apparently with understudies: the recording below is the tale of Billy and Bobby instead of Jamey and Jessie.
 
-[https://videopress.com/embed/LLhVt7Mc](https://videopress.com/embed/LLhVt7Mc)
+[Watch Video Highlight](https://videopress.com/embed/LLhVt7Mc)
 
 Still other early lyrics revolve around Billy and Lou, and sometimes the action switches from St. George to St. Croix.
 
@@ -68,4 +68,4 @@ Miles to go is miles away.
 **First performed:** June 13, 1973 (Binghamton, NY)  
 **Last performed:** June 13, 1973 (Binghamton, NY)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

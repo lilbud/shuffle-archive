@@ -20,7 +20,7 @@ In its early incarnations, the characters and backdrop might have been ripped fr
 
 His yearning to escape the girl he’d been saddled with and run off with his fantasy girl consumed him, and in his mind the narrator was always running, running to Angelyne. In this early outtake, in fact, Mary isn’t even mentioned.
 
-[https://www.youtube.com/watch?v=8eKuVgBuNI0](https://www.youtube.com/watch?v=8eKuVgBuNI0)
+[Watch on Youtube: Bruce Springsteen Angelyne #4 Acoustic Demo](https://www.youtube.com/watch?v=8eKuVgBuNI0)
 
 *I come from down in the valley where mister straight from day number one*  
 *They bring you up to do what your daddy done*  
@@ -33,7 +33,7 @@ His yearning to escape the girl he’d been saddled with and run off with his fa
 
 We meet Mary in this next demo, and this is where it becomes clear that our narrator longs to escape the life he’s made for himself.
 
-[https://www.youtube.com/watch?v=APldzhXlBIE](https://www.youtube.com/watch?v=APldzhXlBIE)
+[Watch on Youtube: Bruce Springsteen Angelyne #1 Acoustic Demo](https://www.youtube.com/watch?v=APldzhXlBIE)
 
 *Well mister when you’re young*  
 *They bring you up to do, yeah, what your daddy done*  
@@ -55,7 +55,7 @@ We meet Mary in this next demo, and this is where it becomes clear that our narr
 
 Bruce continued working on the song, building toward a bitter climax that railed against the cruelty of a dream promised but unfulfilled.
 
-[https://www.youtube.com/watch?v=nopdtlnNXkM](https://www.youtube.com/watch?v=nopdtlnNXkM)
+[Watch on Youtube: Bruce Springsteen Angelyne #3 Acoustic Demo](https://www.youtube.com/watch?v=nopdtlnNXkM)
 
 *I act like I don’t remember, Mary acts like she don’t care*  
 *I remember running wild in her brother’s car*  
@@ -78,7 +78,7 @@ Bruce worked on “Oh Angelyne” throughout the first half of 1979, crafting an
 
 But then inspiration hit. On tour the previous summer, Bruce had become fascinated to the point of obsession with the music of Hank Williams. In interviews ever after, he would refer to his original inspiration as Hank’s “My Bucket’s Got a Hole In It,” but it’s hard to believe he wasn’t at least subsequently and substantially inspired by another of Williams’ songs, “Long Gone Lonesome Blues.”
 
-[https://www.youtube.com/watch?v=esIK2-XvHM4](https://www.youtube.com/watch?v=esIK2-XvHM4)
+[Watch on Youtube: Long Gone Lonesome Blues](https://www.youtube.com/watch?v=esIK2-XvHM4)
 
 In particular, there’s a striking familiarity in that song’s first verse…
 

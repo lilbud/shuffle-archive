@@ -1,6 +1,6 @@
 When I was in eighth grade, the very first song we learned and performed in choir that year was Journey’s “Don’t Stop Believin’.”
 
-[https://www.youtube.com/watch?v=1k8craCGpgs](https://www.youtube.com/watch?v=1k8craCGpgs)
+[Watch on Youtube: Journey - Don't Stop Believin' (Official Audio)](https://www.youtube.com/watch?v=1k8craCGpgs)
 
 You might be thinking, so what? Doesn’t *every* middle school choir learn that song?
 
@@ -20,11 +20,11 @@ Both the 2010 and 2019 events had an eighties theme, and both featured “Don’
 
 In 2010, Bruce traded lead vocals with Sting, Lady Gaga, Elton John, Debbie Harry, and Shirley Bassey–an absolutely astounding, one-time-only line-up.
 
-[https://www.youtube.com/watch?v=12KUafflsCE](https://www.youtube.com/watch?v=12KUafflsCE)
+[Watch on Youtube: Lady Gaga, Elton John, and others singing Don't Stop Believin'](https://www.youtube.com/watch?v=12KUafflsCE)
 
 In 2019, Bruce stayed in the background while Ada Dyer took the lead vocal, but his backing vocals are present along with Sting, John Mellencamp, James Taylor, The Eurythmics, Ricky Martin, Bob Geldof, DMC, and more.
 
-[https://www.youtube.com/watch?v=JZSkLVbBNk8](https://www.youtube.com/watch?v=JZSkLVbBNk8)
+[Watch on Youtube: Rainforest Benefit Concert Finale - Don’t Stop Believing @ Beacon Theater 12-9-2019](https://www.youtube.com/watch?v=JZSkLVbBNk8)
 
 If you can’t pick out Bruce’s backing vocals in the clip above, don’t worry. I was there that night, and I couldn’t either–like everyone else in the room, I was too busy singing at the top of my lungs.
 

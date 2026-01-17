@@ -1,10 +1,10 @@
-At first, it seems like we’re in “[Ain’t Good Enough For You](http://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)” territory: a sad sack hero doing his best to please his girl, only to find that she sets the bar just a little bit higher than he can clear.
+At first, it seems like we’re in “[Ain’t Good Enough For You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)” territory: a sad sack hero doing his best to please his girl, only to find that she sets the bar just a little bit higher than he can clear.
 
 But “Cindy” quickly takes a darker turn, and it isn’t long before we realize that our narrator may be more of a stalker than a suitor.
 
 “Cindy” is an outcast from *The River,* although it was a finalist among the dozens of songs Bruce cut during those recording sessions, and it was actually on the original single-album version that Bruce submitted to the record label. It was ultimately dropped very late in the game, and that’s too bad–because much like “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/),” it combines the trappings of romantic pop with darker lyrics and undertones. It would have fit very nicely on the album. Let’s take a listen.
 
-[https://www.youtube.com/watch?v=ZlI-L52KrnY](https://www.youtube.com/watch?v=ZlI-L52KrnY)
+[Watch on Youtube: Cindy](https://www.youtube.com/watch?v=ZlI-L52KrnY)
 
 Bruce doesn’t waste any time–there’s no introduction here, just a cold open into a first verse that immediately establishes our sympathies for the singer:
 
@@ -61,7 +61,7 @@ So yeah, we’re in full-on creep mode now.
 
 “Cindy” had been floating around for years in bootleg form before it was released on original single-disc version of *The River* that accompanied that album’s anniversary box set, and the official version is essentially identical to the bootleg. There is a curious unofficial mix, though, with Clarence providing harmony vocals dialed up way too high in the mix (especially because he flubs the lyrics in a couple of places). It’s an interesting listen, but Bruce made the right decision in submerging Clarence’s vocals in the final mix.
 
-[https://www.youtube.com/watch?v=HJF0WbQuKvw](https://www.youtube.com/watch?v=HJF0WbQuKvw)
+[Watch on Youtube: Bruce Springsteen Cindy #2 Alternate Take with Clarence´s harmony vocals](https://www.youtube.com/watch?v=HJF0WbQuKvw)
 
 “Cindy” has never been performed live, and even though Bruce makes no attempts to justify or redeem his point-of-view character, in the post-#metoo era, it’s unlikely it ever will.
 
@@ -70,4 +70,4 @@ So yeah, we’re in full-on creep mode now.
 **Released:** *The Ties That Bind: The River Collection* (2015)  
 **Never performed live**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

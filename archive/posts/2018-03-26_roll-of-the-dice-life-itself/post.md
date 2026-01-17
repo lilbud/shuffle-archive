@@ -1,8 +1,8 @@
-Little known fact: “Life Itself” was actually released ahead of Bruce’s *Working on a Dream* album, along with the video below. “[Working on a Dream](http://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)” (the single) and “[My Lucky Day](http://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)” also received the pre-release treatment, and both garnered much more attention than “Life Itself.”
+Little known fact: “Life Itself” was actually released ahead of Bruce’s *Working on a Dream* album, along with the video below. “[Working on a Dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)” (the single) and “[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)” also received the pre-release treatment, and both garnered much more attention than “Life Itself.”
 
 That’s too bad, because “Life Itself” is clearly the most complex and mature song of the three, and it deserved more airplay than it received.
 
-[https://www.youtube.com/watch?v=Pk8KPdWgAJY](https://www.youtube.com/watch?v=Pk8KPdWgAJY)
+[Watch on Youtube: Bruce Springsteen - Life Itself (Video Version)](https://www.youtube.com/watch?v=Pk8KPdWgAJY)
 
 At first listen, “Life Itself” plays like a straight Springsteen love song: Boy meets troubled girl and falls hard:
 
@@ -48,4 +48,4 @@ Recorded:** 2007-2008
 **Released:** “Life Itself” (single) (2008); *Working on a Dream* (2009)  
 **Never Performed**
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

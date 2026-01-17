@@ -1,6 +1,6 @@
 “Lonely Teardrops” was Jackie Wilson’s breakthrough hit, catapulting him to the top of the Billboard R&B chart and into the Top 10 of the Billboard Hot 100 in 1959.
 
-[https://www.youtube.com/watch?v=2nEfuE8Pw4U](https://www.youtube.com/watch?v=2nEfuE8Pw4U)
+[Watch on Youtube: Jackie Wilson - Lonely teardrops](https://www.youtube.com/watch?v=2nEfuE8Pw4U)
 
 It was the song that made Wilson a superstar, earning him the sobriquet “Mr. Excitement,” and it was the last song he ever performed before collapsing on stage mid-song from a heart attack.
 
@@ -12,7 +12,7 @@ But until the Tunnel of Love Tour more than a decade later, Bruce had never cove
 
 The second of those two performances (with Jon Landau joining the band on guitar) was officially released as part of Bruce’s official archive series, with “Lonely Teardrops” released for free on YouTube.
 
-[https://www.youtube.com/watch?v=SxbVieRyZYI](https://www.youtube.com/watch?v=SxbVieRyZYI)
+[Watch on Youtube: Bruce Springsteen "Lonely Teardrops" Madison Square Garden, May 23 1988](https://www.youtube.com/watch?v=SxbVieRyZYI)
 
 Bruce took full advantage of the band’s horn section in a bright arrangement that’s perhaps just a bit too slow and at least a minute too long to rank among his best covers (they came at the end of long shows, after all). Still, it’s a faithful and respectful performance of one of rock’s more important songs, deserving of its official release.
 

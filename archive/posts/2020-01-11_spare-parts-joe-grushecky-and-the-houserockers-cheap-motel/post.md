@@ -4,7 +4,7 @@ In one sense, “Cheap Motel” is an original Springsteen song in that Bruce wr
 
 (The lyrics sure read like a Springsteen song, though: Joe’s “I had a job/I had a girl” protagonist drifts through the American southwest until he’s picked up by the police for building a bomb(!). Given that the two men wrote the song together in 1995 during the same time that Bruce was recording [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/), it certainly seems like Joe was at least strongly influenced by Bruce’s then-current recording project.)
 
-[https://www.youtube.com/watch?v=_Mz3q2pKR74](https://www.youtube.com/watch?v=_Mz3q2pKR74)
+[Watch on Youtube: Joe Grushecky- "Cheap Motel" co-written by Bruce](https://www.youtube.com/watch?v=_Mz3q2pKR74)
 
 In another sense, it’s a cover, because Bruce didn’t play any part in the studio recording.
 

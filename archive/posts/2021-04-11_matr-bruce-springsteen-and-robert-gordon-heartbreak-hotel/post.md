@@ -1,6 +1,6 @@
 “Heartbreak Hotel” was Elvis Presley’s first monster hit, topping the Billboard Hot 100 for seven weeks, the Country & Western chart for *seventeen* weeks, and even reaching #3 on the R&B chart–all at the same time.
 
-[https://www.youtube.com/watch?v=e9BLw4W5KU8](https://www.youtube.com/watch?v=e9BLw4W5KU8)
+[Watch on Youtube: Elvis Presley - Heartbreak Hotel (Official Audio)](https://www.youtube.com/watch?v=e9BLw4W5KU8)
 
 It didn’t start out that way, though.
 
@@ -10,7 +10,7 @@ Elvis was invited back a week later, but again he was barred from playing his ne
 
 Only on February 11, his third consecutive weekly appearance, did the Dorsey Brothers relent. Elvis drove up to New York City during a snowstorm to perform his new song (along with “[Blue Suede Shoes](https://estreetshuffle.com/index.php/2020/10/19/matr-bruce-springsteen-and-john-eddie-blue-suede-shoes/)“) backed by the house orchestra. With little time to rehearse, it wasn’t the tightest performance, but it did the trick.
 
-[https://videopress.com/embed/Jwg7YAQB](https://videopress.com/embed/Jwg7YAQB)
+[Watch Video Highlight](https://videopress.com/embed/Jwg7YAQB)
 
 “Heartbreak Hotel” entered the Billboard Pop and Country & Western charts eleven days later; within two months, it would be sitting on top of both.
 
@@ -28,11 +28,11 @@ They must have had a great time in the studio that day, because the very next ni
 
 And that’s how Bruce came to cover “Heartbreak Hotel” for the first of what eventually amount to two dozen times. In the recording of that debut performance below, Robert and Bruce trade lead vocals, with Bruce sounding particularly, um, heartbroken.
 
-[https://www.youtube.com/watch?v=LBkx1AWpJ-8](https://www.youtube.com/watch?v=LBkx1AWpJ-8)
+[Watch on Youtube: Robert Gordon & Bruce Springsteen duet '77](https://www.youtube.com/watch?v=LBkx1AWpJ-8)
 
 When Bruce went out on tour for *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)* the following year, he added “Heartbreak Hotel” as a frequent cover, beginning with his legendary performance at the Roxy on July 7, 1978 (with a particular inspired solo by Roy).
 
-[https://www.youtube.com/watch?v=0AuotOg1kCI](https://www.youtube.com/watch?v=0AuotOg1kCI)
+[Watch on Youtube: Bruce Springsteen - Heartbreak Hotel, The Roxy L.A., 7-7-78](https://www.youtube.com/watch?v=0AuotOg1kCI)
 
 Bruce continued to perform “Heartbreak Hotel” throughout the Darkness Tour, and he played it with Robert Gordon a couple more times in 1979 as well. But after a one-off performance with the Stone Pony’s house band Cats on a Smooth Surface in 1982, Bruce left the song in the rearview mirror.
 
@@ -41,5 +41,3 @@ Almost forty years down the road, Bruce has yet to revisit “Heartbreak Hotel.�
 **Heartbreak Hotel  
 First performed:** December 2, 1977 (New York City, NY)  
 **Last performed:** June 13, 1982 (Asbury Park, NJ)
-
- 

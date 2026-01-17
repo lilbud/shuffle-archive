@@ -4,11 +4,11 @@ Despite its near universal recognition and acclaim, “Rockin’ Robin” stoppe
 
 Operating under the pseudonym Jimmie Thomas, songwriter Leon René (responsible for such hits as “[I Sold My Heart to the Junkman](https://estreetshuffle.com/index.php/2020/06/21/cover-me-i-sold-my-heart-to-the-junkman/)“) wrote and produced “Rockin’ Robin” for Bobby Day, who scored a national hit with it in 1958.
 
-[https://www.youtube.com/watch?v=4OFESufsZG0](https://www.youtube.com/watch?v=4OFESufsZG0)
+[Watch on Youtube: Bobby Day "Rockin' Robin"](https://www.youtube.com/watch?v=4OFESufsZG0)
 
 Fourteen years later, Michael Jackson accomplished the same feat with his version.
 
-[https://www.youtube.com/watch?v=z-OteAgvINc](https://www.youtube.com/watch?v=z-OteAgvINc)
+[Watch on Youtube: Rockin' Robin The Jackson 5 Five 1972 Michael Joseph Jackson 08-29-1958 To 06-25-2009](https://www.youtube.com/watch?v=z-OteAgvINc)
 
 It may never have been a number one single in either incarnation, but that didn’t stop “Rockin’ Robin” from becoming an enduring oldies favorite. With its irresistible beat and “Tweedle-lee-dee-dee-dee” introduction, “Rockin’ Robin” is as infectious and joyous as rock and roll gets.
 
@@ -20,12 +20,10 @@ Maybe it struck him as just a bit too silly for a serious concert, or maybe he j
 
 Of course they didn’t, and patience was rewarded with the E Street Band’s only known performance of “Rockin’ Robin.”
 
-[https://www.youtube.com/watch?v=LaxnqBwsMMk](https://www.youtube.com/watch?v=LaxnqBwsMMk)
+[Watch on Youtube: Rockin' Robin - Bruce Springsteen (20-09-2009 United Center,Chicago)](https://www.youtube.com/watch?v=LaxnqBwsMMk)
 
 Okay, so it was a bit too slow to capture the magic of the original, and it lacked the all-important intro, but it was still one of those magic anything-can-happen moments when Bruce goes off-road for fan requests.
 
 **Rockin’ Robin  
 First performed:** September 20, 2009 (Chicago, IL)  
 **Last performed:** September 20, 2009 (Chicago, IL)
-
- 

@@ -4,7 +4,7 @@ Because in Denmark, Sanne is legendary. With a continuous recording career since
 
 So it’s a treat to discover that Sanne actually covered one of Bruce’s songs way back on her 1991 album, *Where the Blue Begins*. And not just any Springsteen song, mind you–Sanne chose a seriously deep cut: “[The Fever,](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)” which Bruce wouldn’t even officially release until 1998. (Southside Johnny covered it much earlier, of course.)
 
-[https://www.youtube.com/watch?v=DR2Pc2MVC9s](https://www.youtube.com/watch?v=DR2Pc2MVC9s)
+[Watch on Youtube: The Fever](https://www.youtube.com/watch?v=DR2Pc2MVC9s)
 
 There’s really only one rule when it comes to covering “The Fever.” You can speed it up, slow it down, change the mood, re-arrange it, whatever moves you… as long as you *feel* it.
 

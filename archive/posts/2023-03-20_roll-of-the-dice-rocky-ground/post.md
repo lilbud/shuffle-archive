@@ -1,6 +1,6 @@
 “Rocky Ground” may be wrapped in gospel trappings, but its themes are as Springsteenian as anything on [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/).
 
-[https://www.youtube.com/watch?v=qPmIIXXv0d8](https://www.youtube.com/watch?v=qPmIIXXv0d8)
+[Watch on Youtube: Bruce Springsteen - Rocky Ground (Video)](https://www.youtube.com/watch?v=qPmIIXXv0d8)
 
 A fusion of hymn and hip-hop, with a military cadence and mournful melody, “Rocky Ground” was received by fans and critics in 2012 somewhere on the spectrum of novel experiment to bold departure. Today, it stands as one of Bruce’s best twenty-first century compositions, increasingly resonant with each passing year.
 
@@ -10,11 +10,11 @@ While *Wrecking Ball* is certainly an album of protest and resistance, “Rocky 
 
 That’s not evident at the start, however. The first words we hear over an ominous opening tone are “I’m a soldier!”, reportedly sampled from a 1942 recording of “I’m a Soldier in the Army of the Lord.”
 
-[https://www.youtube.com/watch?v=L8G4dhY7PaM](https://www.youtube.com/watch?v=L8G4dhY7PaM)
+[Watch on Youtube: I'm A Soldier In The Army Of The Lord](https://www.youtube.com/watch?v=L8G4dhY7PaM)
 
 (Your ears will have to be better than mine to pick the sample out from that dated and distant recording, but you can hear the line more clearly in this better-known version by The Soul Stirrers.)
 
-[https://www.youtube.com/watch?v=VmizCScGLmY](https://www.youtube.com/watch?v=VmizCScGLmY)
+[Watch on Youtube: The Soul Stirrers - "I'm a Soldier"](https://www.youtube.com/watch?v=VmizCScGLmY)
 
 The next voice we hear still isn’t Springsteen’s, but rather his frequent collaborator Michelle Moore, who provides backing vocals on six of Bruce’s studio albums and at more than 200 of his concerts.
 
@@ -79,11 +79,11 @@ In the end, “Rocky Ground” is the dance between faith and reality. We need t
 
 Bruce clearly has a fondness for it, though, because he not only featured it regularly throughout the Wrecking Ball Tour, he often led off the encore set with it, wisely sharing the spotlight with Moore in a simpler, sparer, brass-centric arrangement.
 
-[https://www.youtube.com/watch?v=GFe1zEnIqus](https://www.youtube.com/watch?v=GFe1zEnIqus)
+[Watch on Youtube: Rocky Ground - Bruce Springsteen (22-09-2012 MetLife Stadium, East Rutherford, New Jersey)](https://www.youtube.com/watch?v=GFe1zEnIqus)
 
 Bruce also issued “Rocky Ground” as the second single from [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/), in digital audio, video, and vinyl forms, even though other tracks had far more obvious commercial potential. (He did have it remixed and shortened, though–the resulting “modern mix” is relatively unknown even to fans.)
 
-[https://www.youtube.com/watch?v=Id2Rss2RfgQ](https://www.youtube.com/watch?v=Id2Rss2RfgQ)
+[Watch on Youtube: Bruce Springsteen - Rocky Ground (Modern Mix Video)](https://www.youtube.com/watch?v=Id2Rss2RfgQ)
 
 *Rolling Stone* liked “Rocky Ground,” too. They named it the seventh best song (by anyone) of 2012.
 

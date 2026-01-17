@@ -4,13 +4,13 @@ The impetus was a very special stop on his Ghost of Tom Joad solo acoustic tour,
 
 The show was intimate (it was literally held in the school gymnasium), familial (only residents of the borough were allowed to buy tickets), and ribald–Bruce seemed to take great pleasure in playing songs like “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” in front of the assembled nuns, no doubt a cathartic experience for a graduate of a repressive Catholic school education.
 
-We can only imagine what Bruce must have felt like returning to “the scene of the crime.” (Bruce certainly gave us much assistance to do so in his 2016 autobiography.) As the [November 8th date approached](http://estreetshuffle.com/index.php/2018/11/08/kingdom-of-days-november-8/), Bruce decided to do more than just play a standard tour show; he invited some special guests (Patti and Soozie) to join him on stage, and tour premiered a whopping eight songs for the hometown crowd.
+We can only imagine what Bruce must have felt like returning to “the scene of the crime.” (Bruce certainly gave us much assistance to do so in his 2016 autobiography.) As the [November 8th date approached](https://estreetshuffle.com/index.php/2018/11/08/kingdom-of-days-november-8/), Bruce decided to do more than just play a standard tour show; he invited some special guests (Patti and Soozie) to join him on stage, and tour premiered a whopping eight songs for the hometown crowd.
 
 But he saved the biggest and best surprise for the very last encore: he’d written a brand new song for the occasion: a tender, funny, pointed, and affectionately disrespectful remembrance called, simply, “Freehold.”
 
 Listen to that performance below (including an unintentional interlude where Bruce is reminded why he uses his Telepromptr most of the time).
 
-[https://www.youtube.com/watch?v=F7q4FbeRDwc](https://www.youtube.com/watch?v=F7q4FbeRDwc)
+[Watch on Youtube: 26. In Freehold (Bruce Springsteen - Live In Freehold 11-8-1996)](https://www.youtube.com/watch?v=F7q4FbeRDwc)
 
 I’ll forego my usual analysis of Bruce’s lyrics this time, because Bruce bares it all openly on the page. It’s interesting to note just how well the lyrics match with Bruce’s eventual book and stage show–and to remember how new this information was when Bruce first debuted this song back in 1996. There are few annotations worth making, though:
 
@@ -129,7 +129,7 @@ And in response to news of his hometown’s defeated proposal to erect a ten-foo
 
 Listen to that updated performance below:
 
-[https://www.youtube.com/watch?v=FLlz_IihzFA](https://www.youtube.com/watch?v=FLlz_IihzFA)
+[Watch on Youtube: Bruce Springsteen - FREEHOLD](https://www.youtube.com/watch?v=FLlz_IihzFA)
 
 “Freehold” is a sweet song, but after Bruce’s year-plus-long residency on Broadway and his preceding autobiography tour, it’s likely that Bruce is going to give the song a rest for a good long while.
 
@@ -140,4 +140,4 @@ As far as we know, he’s never recorded “Freehold” in the studio. It remain
 **First performed:** November 8, 1996 (Freehold, NJ)  
 **Last performed:** February 20, 2003 (Somerville, MA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

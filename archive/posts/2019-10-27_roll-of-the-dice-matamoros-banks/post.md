@@ -14,7 +14,7 @@ It’s unclear when Bruce wrote “Matamoros Banks,” but good money would stak
 
 Let’s take a listen–and if you can, use headphones so that you can appreciate the delicate, subtle orchestration and ornamentation that elevates the song above its heart-breaking lyrics.
 
-[https://www.youtube.com/watch?v=Ro_LfiIrWW4](https://www.youtube.com/watch?v=Ro_LfiIrWW4)
+[Watch on Youtube: Matamoros Banks](https://www.youtube.com/watch?v=Ro_LfiIrWW4)
 
 On the rare instances where you’ll hear or read discussion of “Matamoros Banks,” it will almost certainly be the song’s reverse chronology that gets first mention. And yes, “Matamoros Banks” is notable for that innovative story-telling device.
 
@@ -92,7 +92,7 @@ Our lovers will indeed meet again on the river banks one day, but tragically, to
 
 Bruce performed “Matamoros Banks” nightly on his 2005 solo acoustic tour, always preceding it with an impassioned plea for empathy and action.
 
-[https://www.youtube.com/watch?v=lsOSG6FXW3M](https://www.youtube.com/watch?v=lsOSG6FXW3M)
+[Watch on Youtube: Matamoros Banks (solo acoustic) Bruce Springsteen 4/25/2005 Detroit, MI](https://www.youtube.com/watch?v=lsOSG6FXW3M)
 
 But as the tour went on, the emotional impact of “Matamoros Banks” diminished as fans seized the opportunity afforded by the near darkness at the end of the nightly set-closer to rush the stage.
 
@@ -102,7 +102,7 @@ Read into that whatever irony you will.
 
 So in lieu of another concert video, I’ll leave you with my favorite live performance of “Matamoros Banks”–the one from the DVD side of the DualDisc version of the *Devils & Dust* album. It features Bruce’s live arrangement (complete with falsetto ending), filmed in quiet reflection and contemplation–the way the song is meant to be heard.
 
-[https://www.youtube.com/watch?v=PoWQaoJJ-es](https://www.youtube.com/watch?v=PoWQaoJJ-es)
+[Watch on Youtube: Bruce Springsteen - Matamoros Banks ("Devils & Dust" Acoustic Performances)](https://www.youtube.com/watch?v=PoWQaoJJ-es)
 
 **Updated January 5, 2020:**
 
@@ -110,7 +110,7 @@ Shortly before Christmas, Bruce unexpectedly and without fanfare published a new
 
 *More than 2,500 asylum-seekers are living in a state of intense danger on the streets of Matamoros, Mexico. Many of the most vulnerable people fleeing danger and persecution in Central America and the Caribbean end up in Matamoros because of the widespread belief that the crossing at that point is relatively easier than desert ports of entry. The majority of people waiting at the makeshift refugee camp on the river’s edge are single mothers with multiple young children seeking to reunite with their extended family in the United States. This problem is worsening, as more than 100 new migrants arrive each day and are forced to remain (potentially for up to two years) pursuant to new US government policies. Grassroots groups in the area are the only organizations currently providing support, but their resources are limited, and they are overwhelmed by the growing scope of this crisis. Project Adelante seeks to provide support for families and youth by bringing together professionals across disciplines (refugee camp management, law, medicine, mental health, child development, and religion) to evaluate and address the range of needs, working with existing partners in both Mexico and Brownsville when possible, to effectively respond to the crisis in Matamoros.* 
 
-[https://www.youtube.com/watch?v=T5hpk4taBZY](https://www.youtube.com/watch?v=T5hpk4taBZY)
+[Watch on Youtube: Project Adelante](https://www.youtube.com/watch?v=T5hpk4taBZY)
 
 The footage hails from (we believe) one of Bruce’s solo acoustic shows in Boston in 2005, and it finally does justice to this beautiful song with a superbly filmed performance.
 
@@ -120,4 +120,4 @@ Recorded:** 2004 (strings); uncertain (core recording)
 **First performed:** April 21, 2005 (Asbury Park, NJ)  
 **Last performed:** November 22, 2005 (Trenton, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

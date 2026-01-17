@@ -2,7 +2,7 @@
 
 That’s Bruce Springsteen waxing poetic about Bob Dylan’s “I Want You,” to Michael Watts in *Melody Maker* on November 30, 1974–the day after he debuted a stunning, smoldering interpretation of Dylan’s 1966 ballad.
 
-[https://www.youtube.com/watch?v=-iIS6ZZ9RVA](https://www.youtube.com/watch?v=-iIS6ZZ9RVA)
+[Watch on Youtube: Bob Dylan - I Want You (Official Audio)](https://www.youtube.com/watch?v=-iIS6ZZ9RVA)
 
 Dylan’s original barely cracked the Top 20 on its original release, but it captured the hearts of musicians and romantics ever since.
 
@@ -10,7 +10,7 @@ As for why Bruce chose to cover it at that particular early point in his career�
 
 Even now, you can hear their delicate dance: Roy and Danny create a music box backdrop against which the grace of Suki’s violin and the urgency of Bruce’s vocals intertwine. Even when the band kicks in after the first chorus, our attention stays fixated on Bruce and Suki.
 
-[https://www.youtube.com/watch?v=UJs0Whh5qSA](https://www.youtube.com/watch?v=UJs0Whh5qSA)
+[Watch on Youtube: I Want You (Live)](https://www.youtube.com/watch?v=UJs0Whh5qSA)
 
 Those few fans old enough now and hip enough then to have caught the E Street Band during that pre-fame period recall the on-stage heat between Bruce and Suki. Regardless of whether it was for show or for real, it made for some memorable moments nightly–and “I Want You” was definitely one of them.
 
@@ -19,5 +19,3 @@ Sadly, when Suki Lahav said goodbye to the E Street Band, so did “I Want You.�
 **I Want You  
 First performed:** November 11, 1973 (Ewing, NJ)  
 **Last performed:** March 9, 1975 (Washington, DC)
-
- 

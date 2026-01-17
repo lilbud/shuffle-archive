@@ -1,10 +1,6 @@
 > “I was with my parents in Amarillo, and there was this blinding dust storm–you couldn’t even see across the street. Everybody had bandannas across their faces to keep the dust out. We were at a Pontiac dealership, and this guy was selling cars. Suddenly, he said, ‘And now we’ve got a kid up here that’s gonna play a little piano for you.’ And it was Jerry Lee Lewis–just him and a piano, flailing away.
 > 
-> 
-> 
 > “The wind was blowing so hard, it was knocking the microphone stand over, and you couldn’t hardly see the stage through all the dust. Jerry Lee would play a couple songs, then the guy would sell his Pontiacs, and he gave away hot dogs all covered in dirt from the storm. It was just surreal, and my little 7- or 8-year-old mind was saying, ‘Damn–that’s what I want to do when *I* grow up!’”
-> 
-> 
 > 
 > –Joe Ely, *Los Angeles Times,* November 17, 1992
 
@@ -16,7 +12,7 @@ The date was May 20, 1993, and Bruce was on tour in Dublin with his new touring 
 
 Jerry Lee came out four songs later, which must have felt like quite the missed opportunity for Ely. The Boss gave deference to The Killer, who was nearing sixty at the time, dropping into the background to support Lewis on his signature 1957 hit single, “Great Balls of Fire.”
 
-[https://www.youtube.com/watch?v=i7grEaOtKG4](https://www.youtube.com/watch?v=i7grEaOtKG4)
+[Watch on Youtube: JERRY LEE LEWIS on THE STEVE ALLEN SHOW 1957 Great Balls Of Fire](https://www.youtube.com/watch?v=i7grEaOtKG4)
 
 “Great Balls of Fire” was a smash hit upon release, selling over one million copies in ten days and stopping just one spot shy of the top of Billboard Hot 100. (It would reach #1 in the U.K and on the U.S. country chart, though). It remains one of the most well-known and most instantly recognizable rock songs ever, ranking #96 on *Rolling Stone’s* Greatest Songs of All Time list.
 
@@ -26,7 +22,7 @@ It was also one of the most electrifying songs ever, certainly at the time of it
 
 By 1993, though, Lewis had slowed down, and while the crowd was enthusiastic in their response, the performance itself was plodding at times and uneven throughout.
 
-[https://www.youtube.com/watch?v=dnKoh7CrHHs](https://www.youtube.com/watch?v=dnKoh7CrHHs)
+[Watch on Youtube: Bruce Springsteen Great Balls of Fire Dublin 20/05/1993](https://www.youtube.com/watch?v=dnKoh7CrHHs)
 
 They made up for it (barely) in Cleveland two years later.
 
@@ -36,7 +32,7 @@ On this night, Lewis was not pleased to learn that Berry and the E Streeters wou
 
 Watching that performance below, it’s hard to pick out any tension on the stage. But while their performance is certainly more polished than the last time Bruce and Jerry Lee shared a stage, there’s nothing particularly remarkable about it, either.
 
-[https://www.youtube.com/watch?v=PiBlCZZ7TXU](https://www.youtube.com/watch?v=PiBlCZZ7TXU)
+[Watch on Youtube: Great Balls Of Fire - Bruce Springsteen (2-9-1995 Cleveland Municipal Stadium, Cleveland, Ohio)](https://www.youtube.com/watch?v=PiBlCZZ7TXU)
 
 Bruce took another crack at “Great Balls of Fire” with Joe Grushecky in 2004, and another with the E Street Band in 2009, but it took until 2014 for his definitive performance.
 
@@ -48,14 +44,12 @@ Joe took lead vocals on the former, channeling The Killer in his peak glory. Tha
 
 Watch Bruce spontaneously decide to keep it going when Joe tries to end it at around the 1:50 mark. From that point forward, they fly by the seat of their pants.
 
-[https://www.youtube.com/watch?v=L4K9AXwts-U](https://www.youtube.com/watch?v=L4K9AXwts-U)
+[Watch on Youtube: Great Balls Of Fire-Bruce Springsteen & Joe Ely (6-05-2014 Cynthia Woods Mitchell Pavilion, Houston)](https://www.youtube.com/watch?v=L4K9AXwts-U)
 
 **Update 1/3/2024:** At the Rock and Roll Hall of Fame induction ceremony in 2022, attendees (including this blogger) were delighted by a surprise encore performance at the ceremony’s conclusion: a loose, seemingly unplanned team-up on “Great Balls of Fire” by Bruce and John Mellencamp.
 
-[https://www.youtube.com/watch?v=x5T_Jgxew0o](https://www.youtube.com/watch?v=x5T_Jgxew0o)
+[Watch on Youtube: Great Balls Of Fire-Bruce Springsteen & John Mellencamp (5-11-2022 Microsoft Theater,Los Angeles,CA)](https://www.youtube.com/watch?v=x5T_Jgxew0o)
 
 **Great Balls of Fire  
 First performed:** October 29, 1990 (San Fernando Valley, CA)  
 **Last performed:** November 5, 2022 (Los Angeles, CA)
-
- 

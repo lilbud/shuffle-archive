@@ -2,11 +2,11 @@ Call it a meeting of the Mutual Admiration Society.
 
 Billy Joel kicked off his 1976 *Turnstiles* album with “Say Goodbye to Hollywood,” a song he wrote with Ronnie Spector in mind. Billy’s homage is obvious from the opening bars. Compare his song below…
 
-[https://www.youtube.com/watch?v=47PtUvHIQpk](https://www.youtube.com/watch?v=47PtUvHIQpk)
+[Watch on Youtube: Say Goodbye To Hollywood - Billy Joel](https://www.youtube.com/watch?v=47PtUvHIQpk)
 
-…with Spector’s 1963 hit, “[Be My Baby](http://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/).”
+…with Spector’s 1963 hit, “[Be My Baby](https://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/).”
 
-[https://www.youtube.com/watch?v=jSPpbOGnFgk](https://www.youtube.com/watch?v=jSPpbOGnFgk)
+[Watch on Youtube: The Ronettes - Be My Baby (Official Audio)](https://www.youtube.com/watch?v=jSPpbOGnFgk)
 
 See what I mean?
 
@@ -22,7 +22,7 @@ By this time, the band was seriously hurting for money, and it was Steve Van Zan
 
 Unfortunately, though, Spector’s vocals and the mighty E Street Band were overpowered by the busy arrangement. There’s a *lot* going on in this recording.
 
-[https://www.youtube.com/watch?v=yJ72eejEcTQ](https://www.youtube.com/watch?v=yJ72eejEcTQ)
+[Watch on Youtube: Ronnie Spector & The E Street Band - 14 Say Goodbye To Hollywood (HQ)](https://www.youtube.com/watch?v=yJ72eejEcTQ)
 
 The single was released in April but failed to catch fire; it would be a few years before Spector would record her comeback album. Still, this was the first official recording to credit the E Street Band, and it’s significant to Springsteen fans for at least that reason.
 
@@ -32,7 +32,7 @@ This time, without the excess studio orchestration and production, Bruce and the
 
 The result is a much better version (IMO) of Ronnie Spector and the E Street Band covering Billy Joel’s “Say Goodbye to Hollywood.” Take a listen.
 
-[https://videopress.com/embed/O6eF1MI9](https://videopress.com/embed/O6eF1MI9)
+[Watch Video Highlight](https://videopress.com/embed/O6eF1MI9)
 
 **Say Goodbye to Hollywood**  
 **Recorded:** January 1977  

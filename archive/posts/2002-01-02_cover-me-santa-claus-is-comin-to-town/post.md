@@ -22,7 +22,7 @@ Haven Gillespie wrote the lyrics for “Santa Claus is Comin’ to Town” durin
 
 It was this version–set to music by J. Fred Coots–that radio star Eddie Cantor performed on his radio show that 1934 holiday season.
 
-[https://www.youtube.com/watch?v=kM_eWxvLGiM](https://www.youtube.com/watch?v=kM_eWxvLGiM)
+[Watch on Youtube: Eddie Cantor - SANTA CLAUS IS COMING TO TOWN - 1934](https://www.youtube.com/watch?v=kM_eWxvLGiM)
 
 Cantor’s performance turned Gillespie and Coots’ song into an immediate smash, selling more than 30,000 copies within the first twenty-four hours of its radio debut.
 
@@ -34,29 +34,29 @@ Within fifteen minutes (to his probable chagrin), Gillespie had a song, The rest
 
 “Santa Claus Is Comin’ To Town” went on to be covered by over 200 artists across every decade since its original release, and in 1962 it crossed over into rock and roll when The Four Seasons put their own instantly recognizable stamp on it.
 
-[https://www.youtube.com/watch?v=6I1WujBgK64](https://www.youtube.com/watch?v=6I1WujBgK64)
+[Watch on Youtube: Frankie Valli & The Four Seasons - Santa Claus Is Coming To Town (Official Audio)](https://www.youtube.com/watch?v=6I1WujBgK64)
 
 But while The Four Seasons might have gained the song a rock foothold, it was Phil Spector and The Crystals who hit upon the arrangement that would endure and influence artists from The Jackson Five to Mariah Carey… and of course Bruce Springsteen.
 
-[https://www.youtube.com/watch?v=FK2tcFFB6ZM](https://www.youtube.com/watch?v=FK2tcFFB6ZM)
+[Watch on Youtube: The Crystals - Santa Claus Is Coming to Town (Official Audio)](https://www.youtube.com/watch?v=FK2tcFFB6ZM)
 
 A famous devotee of the Spector sound and the girl groups of the 1960s, Bruce was heavily inspired by The Crystals 1963 version, right down to its spoken-world story introduction.
 
 Although he’d been performing it since at least late 1973, it was his December 12, 1975 performance at C.W. Post College that Bruce decided to capture for posterity.
 
-[https://www.youtube.com/watch?v=76WFkKp8Tjs](https://www.youtube.com/watch?v=76WFkKp8Tjs)
+[Watch on Youtube: Bruce Springsteen - Santa Claus Is Comin' To Town (Official Audio)](https://www.youtube.com/watch?v=76WFkKp8Tjs)
 
 He wouldn’t release it officially until 1981, when he contributed it to a *Sesame Street* compilation album and promotional single, but the track escaped into the wild anyway, thanks to Bruce’s then-manager Mike Appel. Appel sent reel-to-reel tapes of the performance to select radio stations, and Bruce’s cover got immediate airplay. It became a holiday staple ever after.
 
 It became an immediate fan favorite in concert, too, reliably appearing any time a tour stretched into the holiday season.
 
-[https://www.youtube.com/watch?v=RcV8INh0d7g](https://www.youtube.com/watch?v=RcV8INh0d7g)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Santa Claus Is Comin' To Town (Live in Houston, 1978)](https://www.youtube.com/watch?v=RcV8INh0d7g)
 
-[https://www.youtube.com/watch?v=iSgEDKjmT5o](https://www.youtube.com/watch?v=iSgEDKjmT5o)
+[Watch on Youtube: Bruce Springsteen - Santa Claus Is Comin' To Town - 2007](https://www.youtube.com/watch?v=iSgEDKjmT5o)
 
 …and sometimes even in the off-season.
 
-[https://www.youtube.com/watch?v=lrkI254iEaU](https://www.youtube.com/watch?v=lrkI254iEaU)
+[Watch on Youtube: Santa claus is coming to town bruce springsteen etihad manchester 2016 live](https://www.youtube.com/watch?v=lrkI254iEaU)
 
 These days, Santa is likely to turn up any time of year, if you ask nicely. (Creative signs and Santa hats help.) And as for that vintage 1975 recording, now 46 years old… you’ll find that on your FM dial each and every December.
 

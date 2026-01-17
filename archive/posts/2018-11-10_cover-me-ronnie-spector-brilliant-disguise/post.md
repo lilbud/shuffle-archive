@@ -2,7 +2,7 @@ Here’s a Springsteen cover that’s flown largely under the radar… perhaps d
 
 Don’t get me wrong: I’m a huge Ronnie Spector fan, and it’s nice to hear her take a run at one of Bruce’s songs given their long association and friendship.
 
-And “[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” is actually a pretty neat choice for her; she’s so closely associated with the more innocent crush/love songs of the sixties, that it’s fascinating to hear her tackle a song that grapples with the reality of relationships.
+And “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” is actually a pretty neat choice for her; she’s so closely associated with the more innocent crush/love songs of the sixties, that it’s fascinating to hear her tackle a song that grapples with the reality of relationships.
 
 Her voice is in fine form on this 2001 recording, and I have no problem with artists flipping the gender of a song’s lyrics, even though it shouldn’t really be necessary.
 
@@ -12,6 +12,4 @@ You had me until the coda. That was unforgivable.
 
 Whoa-oh-oh-oh indeed.
 
-[https://www.youtube.com/watch?v=DEgiQ7aMTjQ](https://www.youtube.com/watch?v=DEgiQ7aMTjQ)
-
- 
+[Watch on Youtube: Ronnie Spector - "Brilliant Disguise"](https://www.youtube.com/watch?v=DEgiQ7aMTjQ)

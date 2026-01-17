@@ -4,6 +4,4 @@ Schneider may live and work in Germany, but she’s got New Jersey bonafides: sh
 
 And then there’s her cover of Bruce’s “[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/).” It’s not the most interesting of videos to watch (it was 1980, after all, still pre-MTV), but she certainly commits to the song.
 
-[https://www.youtube.com/watch?v=suTLLHbZgT4](https://www.youtube.com/watch?v=suTLLHbZgT4)
-
- 
+[Watch on Youtube: Helen Schneider - Hearts of Stone 1980](https://www.youtube.com/watch?v=suTLLHbZgT4)

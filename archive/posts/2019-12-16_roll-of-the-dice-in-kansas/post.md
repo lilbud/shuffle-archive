@@ -2,11 +2,11 @@ This one’s for the completists (like me).
 
 For all the many songs Bruce has recorded or performed over the years, there are so many more that never saw the light of day.
 
-Some of them have surfaced in old, yellowing notebooks over the years, often through on-line auctions that provide fans with a peek into Bruce’s early songwriting process. The most notable of these are the ones Bruce transcribed in his “[1968 Notebook](http://estreetshuffle.com/?s=1968+notebook),” many of which I’ve blogged about here (and the rest of which are topics for later essays). Those early, pre-label compositions feature mostly or fully fleshed-out lyrics, and some even have chord notations.
+Some of them have surfaced in old, yellowing notebooks over the years, often through on-line auctions that provide fans with a peek into Bruce’s early songwriting process. The most notable of these are the ones Bruce transcribed in his “[1968 Notebook](https://estreetshuffle.com/?s=1968+notebook),” many of which I’ve blogged about here (and the rest of which are topics for later essays). Those early, pre-label compositions feature mostly or fully fleshed-out lyrics, and some even have chord notations.
 
-But here’s one that Bruce seems to have abandoned almost as soon as he started. With nothing to go one–no title, no chords, no date, barely even a verse–it’s a curiosity at best. I wouldn’t even know if its existence had this photograph not found its way to [Brucebase](http://brucebase.wikidot.com/).
+But here’s one that Bruce seems to have abandoned almost as soon as he started. With nothing to go one–no title, no chords, no date, barely even a verse–it’s a curiosity at best. I wouldn’t even know if its existence had this photograph not found its way to [Brucebase](https://brucebase.wikidot.com/).
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/inkansas-194x300.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/11/inkansas.jpg)
 
 Bruce seems to be teeing up some kind of environmental message, but that’s pure speculation, since we have nothing else to go by.
 
@@ -21,4 +21,4 @@ And while the composition is undated, I would peg it circa 1971-1972, based pure
 Never recorded**  
 **Never performed** 
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

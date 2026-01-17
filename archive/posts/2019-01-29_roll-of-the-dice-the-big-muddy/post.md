@@ -2,19 +2,19 @@ If you ask me for my top ten Springsteen on songs on any given day, you won’t 
 
 But if you ask me for my top twenty, I guarantee “The Big Muddy” will be on it every time. It’s one of Bruce’s best songs, and while it may not come immediately to mind when mentally browsing Bruce’s catalog, when you hear it, it’s bound to stick with you for days afterward.
 
-“The Big Muddy” sticks out like a sore thumb on *Lucky Town*, the 1992 album that introduced it to us. On an album full of bright, shiny optimism, how the heck did a song like this end up smack in the middle of it? Only “[Souls of the Departed](http://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)” keeps it from being the sole rebel on the album, but whereas “Souls of the Departed” is an angry song, “The Big Muddy” is just… unsettling.
+“The Big Muddy” sticks out like a sore thumb on *Lucky Town*, the 1992 album that introduced it to us. On an album full of bright, shiny optimism, how the heck did a song like this end up smack in the middle of it? Only “[Souls of the Departed](https://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)” keeps it from being the sole rebel on the album, but whereas “Souls of the Departed” is an angry song, “The Big Muddy” is just… unsettling.
 
 Everything about it sounds ominous, from Bruce’s lyrics to his idle guitar and meandering riff. (Bruce plays almost solo, accompanied only by Roy on keyboards and Gary Mallaber on drums.) This is the song of a man uncertain about the way forward.
 
 Let’s take a listen.
 
-[https://www.youtube.com/watch?v=kdZKratq6mw](https://www.youtube.com/watch?v=kdZKratq6mw)
+[Watch on Youtube: The Big Muddy](https://www.youtube.com/watch?v=kdZKratq6mw)
 
 That’s one foreboding song, isn’t it?
 
 It’s also one of Bruce’s most referential songs, so before we dive into the lyrics, let’s start by acknowledging the song’s title–an intentional reference to Pete Seeger’s famous anti-war song, “Waist Deep in the Big Muddy.”
 
-[https://www.youtube.com/watch?v=uXnJVkEX8O4](https://www.youtube.com/watch?v=uXnJVkEX8O4)
+[Watch on Youtube: Pete Seeger: Waist Deep in the Big Muddy](https://www.youtube.com/watch?v=uXnJVkEX8O4)
 
 Bruce’s song is focused on more intimate conflicts than Pete’s song, but they share a central conceit: that the waters of moral corruption run deep, and if you think you can wade in one side and out the other, you’re very likely deceiving yourself–perhaps irredeemably so.
 
@@ -85,7 +85,7 @@ We do have one particularly stellar live performance to enjoy, however: Bruce pe
 
 Enjoy the official video (yes, there is one) for “The Big Muddy.”
 
-[https://www.youtube.com/watch?v=nkSoGDQ09M8](https://www.youtube.com/watch?v=nkSoGDQ09M8)
+[Watch on Youtube: Bruce Springsteen - The Big Muddy (MTV Plugged - Official HD Video)](https://www.youtube.com/watch?v=nkSoGDQ09M8)
 
 **The Big Muddy**  
 **Recorded:** Late 1991  
@@ -93,4 +93,4 @@ Enjoy the official video (yes, there is one) for “The Big Muddy.”
 **First performed:** May 6, 1992 (New York City, NY)  
 **Last performed:** December 17, 1992 (Lexington, KY)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

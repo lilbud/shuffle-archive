@@ -4,7 +4,7 @@ Rarely requested or even (I suspect) remembered, this 1979 outtake from *The Riv
 
 What makes “Dollhouse” so tubular is its backing track, featuring the E Street Band at their new waviest.
 
-[https://www.youtube.com/watch?v=HpF_i71cqVQ](https://www.youtube.com/watch?v=HpF_i71cqVQ)
+[Watch on Youtube: Dollhouse (Studio Outtake - 1979)](https://www.youtube.com/watch?v=HpF_i71cqVQ)
 
 Whether we’re focusing on the music or the lyrics, the first thing we have to acknowledge about “Dollhouse” is its conceit.
 
@@ -83,7 +83,9 @@ There’s no resolution in “Dollhouse”–just a warning that Rome is burning
 
 Bruce has steered clear of “Dollhouse” in concert. He attempted it only once, early on the Reunion Tour in Vienna, but the recently reunited E Street Band couldn’t recapture the ferocity and alchemy of the studio track.
 
-[https://videopress.com/embed/xVc2UNfN](https://videopress.com/embed/xVc2UNfN)
+[dollhouse-1999-04-24-mp4](https://videopress.com/embed/xVc2UNfN)
+
+
 
 We haven’t heard from “Dollhouse” since that night over twenty years ago, and it strikes me as a longshot to ever surface in Bruce’s set lists again. But that’s okay–it’s rare for one of Bruce’s songs to be perfectly captured in a studio recording, but “Dollhouse” is one of those cases that likely can’t be improved on stage.
 
@@ -100,9 +102,9 @@ But there’s one new section that stands out for those of us familiar with the 
 
 Not only did that excised verse break the song’s spell by abandoning the metaphor in the second line, that last line tips the narrator into unsympathetic terrain. Both are likely reasons for the verse being ultimately discarded.
 
-[https://www.youtube.com/watch?v=4M3PedaOG0k](https://www.youtube.com/watch?v=4M3PedaOG0k)
+[Watch on Youtube: Bruce Springsteen Living in A Dollhouse #1 AKA Dollhouse](https://www.youtube.com/watch?v=4M3PedaOG0k)
 
-[https://www.youtube.com/watch?v=QfndficoGvg](https://www.youtube.com/watch?v=QfndficoGvg)
+[Watch on Youtube: Bruce Springsteen Living in A Doll House AKA Dollhouse](https://www.youtube.com/watch?v=QfndficoGvg)
 
 **Dollhouse  
 Recorded:** August 20-21, 1979  
@@ -110,4 +112,4 @@ Recorded:** August 20-21, 1979
 **First performed:** April 24, 1999 (Vienna, Austria)  
 **Last performed:** April 25, 1999 (Vienna, Austria)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

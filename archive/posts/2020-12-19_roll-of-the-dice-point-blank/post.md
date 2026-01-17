@@ -4,7 +4,7 @@ Bruce Springsteen’s songbook is filled with songs inspired by film noir, but �
 
 Smoky, moody, and entirely nocturnal, “Point Blank” is among the darkest and starkest songs in Bruce’s catalog.
 
-[https://www.youtube.com/watch?v=aQcxrt9-6ZI](https://www.youtube.com/watch?v=aQcxrt9-6ZI)
+[Watch on Youtube: Point Blank](https://www.youtube.com/watch?v=aQcxrt9-6ZI)
 
 Musically, “Point Blank” dazzles. In Bruce’s strongest, subtlest arrangement on record since “New York City Serenade,” every E Street Band member shines: Roy owns the spotlight, inviting us to a seedy nightclub long before the lyrics reveal it, while Danny’s organ draws us down into despair; Max’s restraint underscores Bruce’s dispassionate vocals; even Clarence’s metronomic triangle is critical, conveying the monotony of our femme fatale’s life in order for Roy and Danny to soar above it.
 
@@ -100,7 +100,7 @@ What sets “Point Blank” apart from most other songs in Bruce’s catalog, ho
 
 Bruce debuted a work-in-progress version of “Point Blank” on stage in Los Angeles mere weeks after he claimed to have composed it at a Boston soundcheck during the Darkness Tour.
 
-[https://www.youtube.com/watch?v=fDJl28OsimY](https://www.youtube.com/watch?v=fDJl28OsimY)
+[Watch on Youtube: Bruce Springsteen - POINT BLANK 1978 (audio)](https://www.youtube.com/watch?v=fDJl28OsimY)
 
 Although the melody is clearly recognizable, and the first verse is in fairly final form, this first version of “Point Blank” differs significantly from his final version: there’s a bridge that would be excised from the final song, and lyrics that suggest that the narrator’s love interest is more a hostage to a chemical dependency than her own passivity.
 
@@ -117,17 +117,17 @@ Most importantly, though, the arrangement is more aggressive and Bruce’s vocal
 
 Bruce seems to have realized this, because “Point Blank” didn’t surface again for more than two months. When it did, the arrangement was in its more familiar and restrained incarnation. The bridge was still present, however (it would remain throughout the tour), and while the lyrics had shaped up a bit, they were still far from their final form.
 
-[https://videopress.com/embed/lKFkFzq1](https://videopress.com/embed/lKFkFzq1)
+[Watch Video Highlight](https://videopress.com/embed/lKFkFzq1)
 
 By the end of the tour, Bruce and the band had settled into the song, playing it regularly and evolving it subtly each night, as in this beautifully captured performance in Houston.
 
-[https://www.youtube.com/watch?v=8uzZU9FC1rA](https://www.youtube.com/watch?v=8uzZU9FC1rA)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Point Blank (Live in Houston, 1978)](https://www.youtube.com/watch?v=8uzZU9FC1rA)
 
 Based on how close “Point Blank” was at that point to its final album arrangement on *The River*, one might assume that Bruce was at least satisfied with the song’s musicality, choosing instead to focus on refining the lyrics.
 
 But that apparently wasn’t the case, because when Bruce took the band into the studio to work on “Point Blank” six months after that Houston performance above, he’d taken the song in an entirely different direction as a straight-up rocker.
 
-[https://www.youtube.com/watch?v=tHkii-j_Cac](https://www.youtube.com/watch?v=tHkii-j_Cac)
+[Watch on Youtube: Bruce Springsteen Point Blank (Complete different arrangement)](https://www.youtube.com/watch?v=tHkii-j_Cac)
 
 Interestingly, Bruce bluffed most of the lyrics beyond the familiar first verse, suggesting that he had already dismissed his earlier, harsher lyrics but hadn’t yet written replacements. He continued to work on the lyrics in this arrangement, and in this next take we can hear the dream sequence starting to take shape.
 
@@ -137,7 +137,7 @@ Interestingly, Bruce bluffed most of the lyrics beyond the familiar first verse,
 
 Bruce found the lyrics he was looking for in “[Party Lights](https://estreetshuffle.com/index.php/2019/11/14/roll-of-the-dice-party-lights/),” another song he’d written and recorded for *The River.*
 
-[https://www.youtube.com/watch?v=S2WWQAvS_6I](https://www.youtube.com/watch?v=S2WWQAvS_6I)
+[Watch on Youtube: Bruce Springsteen - Party Lights (The River: Outtakes) [Lyric]](https://www.youtube.com/watch?v=S2WWQAvS_6I)
 
 Bruce took the first two verses of “Party Lights”…
 
@@ -151,29 +151,29 @@ Bruce took the first two verses of “Party Lights”…
 
 …and transplanted them into “Point Blank” as its new second verse. Once the final dream sequence verse was complete, so was the song, which Bruce recorded (shortly after he’d completed it), released on his fifth album, and performed throughout his 1980 tour.
 
-[https://www.youtube.com/watch?v=MLmj-WWcPB8](https://www.youtube.com/watch?v=MLmj-WWcPB8)
+[Watch on Youtube: Bruce Springsteen - Point Blank (Live - Landover 1980)](https://www.youtube.com/watch?v=MLmj-WWcPB8)
 
 Still, Bruce never forgot his brief flirtation with that alternate arrangement. In 1995, Bruce surprised his California fans when he tour debuted “Point Blank” in a new acoustic arrangement that clearly evoked his abandoned rock version.
 
-[https://www.youtube.com/watch?v=wsJb5NcjuIk](https://www.youtube.com/watch?v=wsJb5NcjuIk)
+[Watch on Youtube: Bruce Springsteen Point Blank California 1995 acoustic](https://www.youtube.com/watch?v=wsJb5NcjuIk)
 
 In all its many arrangements, however, there was always one notable omission. Despite the emotional, evocative power of Clarence Clemons’ saxophone, Bruce had never deployed it in one of his saddest songs.
 
 Bruce rectified that on the Reunion Tour, placing The Big Man in the spotlight for an extended, sorrowful introduction to “Point Blank.”
 
-[https://www.youtube.com/watch?v=pjnIjTCfg-s](https://www.youtube.com/watch?v=pjnIjTCfg-s)
+[Watch on Youtube: Bruce Springsteen - POINT BLANK 1999 - live](https://www.youtube.com/watch?v=pjnIjTCfg-s)
 
 Post-reunion, “Point Blank” returned to its original arrangement, although oddly Bruce reverted to his original 1978 “baby the lights go out” ending rather than the “bang bang, baby, you’re dead” album ending.
 
 During the revival of the River Tour in 2016, Bruce introduced a dramatic, cinematic overture and restored the “bang bang” ending, creating what many (or at least I) would consider the definitive version of “Point Blank.”
 
-[https://www.youtube.com/watch?v=JWuJmYzHOVo](https://www.youtube.com/watch?v=JWuJmYzHOVo)
+[Watch on Youtube: Bruce Springsteen - Point Blank Roma 2016 Multicam](https://www.youtube.com/watch?v=JWuJmYzHOVo)
 
 I consider that to be the definitive arrangement, but does Bruce? Time will tell, I suppose, but given his endless tinkering with it, I’m guessing we’ve yet to hear the final form of “Point Blank.”
 
 **Bonus:** In 2005, Bruce debuted yet another arrangement for “Point Blank,” this time as a solo number on the electric piano. I include it here as a curiosity, because musically… well, let’s just say that “Point Blank” demands a tenured professor at the piano, and Bruce is an associate at best.
 
-[https://www.youtube.com/watch?v=lUXbgUkM8_g](https://www.youtube.com/watch?v=lUXbgUkM8_g)
+[Watch on Youtube: Bruce Springsteen- Point Blank (Acoustic)](https://www.youtube.com/watch?v=lUXbgUkM8_g)
 
 **Point Blank  
 Recorded:** Late 1979 – Early 1980  
@@ -181,4 +181,4 @@ Recorded:** Late 1979 – Early 1980
 **First performed:** July 7, 1978 (West Hollywood, CA)  
 **Last performed:** July 28, 2016 (Oslo, Norway)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

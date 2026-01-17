@@ -4,7 +4,7 @@ After listening to Jesse perform songs from his debut album at Bruce’s Asbury 
 
 By the time Jesse released his third album, *Glitter in the Gutter,* in 2007, I was a fan for life. Even so, I was completely unprepared for the power of the fourth track on that CD, “Broken Radio.”
 
-[https://player.vimeo.com/video/561594962?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/561594962?dnt=1&amp;app_id=122963)
+[Jesse Malin- Broken Radio (with Bruce Springsteen)](https://player.vimeo.com/video/561594962?dnt=1&app_id=122963)
 
 Jesse wrote “Broken Radio” for his mother, who died when he was only eighteen. Jesse has described her as an aspiring singer who never made it big. A single parent, she became a waitress but never forgot her dream. And if a song ever came on the radio, she’d stop what she was doing and sing.
 
@@ -27,11 +27,11 @@ Bruce and Jesse performed “Broken Radio” live together twice–almost exactl
 
 Their debut performance was at the Light of Day benefit in 2010. Despite the welcome addition of a viola to warm up the sound, though, Jesse and Bruce couldn’t quite match the tenderness of their studio performance. (Bruce also missed his final cue, leaving Jesse hanging, although you’d only know it if you were intimately familiar with the original recording.)
 
-[https://www.youtube.com/watch?v=WQUvW0MC_Bo](https://www.youtube.com/watch?v=WQUvW0MC_Bo)
+[Watch on Youtube: Broken Radio - Bruce Springsteen & Jesse Malin - Light of Day 10 - Jan 16 2010](https://www.youtube.com/watch?v=WQUvW0MC_Bo)
 
 But 364 days later, they had another chance at it at Light of Day 2011, and this time they nailed it:
 
-[https://www.youtube.com/watch?v=DJ9UWFwtFDU](https://www.youtube.com/watch?v=DJ9UWFwtFDU)
+[Watch on Youtube: Broken radio Bruce Springsteen with Jesse Malin Light of Day 1/15/11](https://www.youtube.com/watch?v=DJ9UWFwtFDU)
 
 Bruce seemed to be really feeling the lyrics that night, in a way he hadn’t just a year before. During his Broadway show in 2018, Bruce would regularly refer to his mother’s seven-year battle with Alzheimer’s disease. Backing out the math, I can’t help but wonder if on this night in 2011, “Broken Radio” was beginning to take on an unexpectedly new resonance.
 

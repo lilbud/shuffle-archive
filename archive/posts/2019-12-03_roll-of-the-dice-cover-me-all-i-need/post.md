@@ -1,12 +1,12 @@
 In the early summer of 1981, inspiration struck (as it often did), and Bruce captured it on tape in his home studio in the form of a mostly-bluffed new song called “All I Need.”
 
-[https://www.youtube.com/watch?v=KfD2XtK0hQQ](https://www.youtube.com/watch?v=KfD2XtK0hQQ)
+[Watch on Youtube: Bruce Springsteen All I Need](https://www.youtube.com/watch?v=KfD2XtK0hQQ)
 
 His home demo was far from a fully-realized song (none of the lyrics would survive to the final version except for the chorus), but Bruce must have known he was on to something with that soulful hook and melody.
 
 Bruce seemed eager enough to bring “All I Need” to life that he arranged it on the spot during a soundcheck run-through with the band just days later, during their venue-opening stand at the Brendan Byrne Arena in July 1981.
 
-[https://www.youtube.com/watch?v=BMaC0idOuQY](https://www.youtube.com/watch?v=BMaC0idOuQY)
+[Watch on Youtube: Bruce Springsteen All I Need](https://www.youtube.com/watch?v=BMaC0idOuQY)
 
 (If the melody sounds more than a bit familiar, that’s probably because Bruce borrowed heavily from his arrangement of Ike and Tina Turner’s “[It’s Gonna Work Out Fine](https://estreetshuffle.com/index.php/2021/01/02/cover-me-its-gonna-work-out-fine/)” that he and the band played frequently during the Born to Run Tour.)
 
@@ -20,13 +20,13 @@ But a recording doesn’t guarantee a release, as Springsteen fans well know. Br
 
 So Bruce took “All I Need” and six other original songs in the same vein and donated them to Gary U.S. Bonds for Bonds’ next album, *On the Line*.
 
-Bruce and Steve Van Zandt had produced Bonds’ “comeback” album, *Dedication*, in 1981, and they reprised their co-producer roles for *On the Line* as well. Between the two albums, Bruce donated an amazingly generous *ten* songs to Bonds, a number of which could have been hits for Bruce (including, of course, “[This Little Girl](http://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)” which Bonds scored with in 1981).
+Bruce and Steve Van Zandt had produced Bonds’ “comeback” album, *Dedication*, in 1981, and they reprised their co-producer roles for *On the Line* as well. Between the two albums, Bruce donated an amazingly generous *ten* songs to Bonds, a number of which could have been hits for Bruce (including, of course, “[This Little Girl](https://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)” which Bonds scored with in 1981).
 
 But of all the songs Bruce gave away for *On the Line* that cried out for an official Springsteen release, “All I Need” ranks near the top. Such a recording almost certainly exists, and it very probably uses the exact same E Street Band backing track that Bonds recorded his vocals over. Let’s take a listen:
 
-[https://videopress.com/embed/HbdN8Y0e](https://videopress.com/embed/HbdN8Y0e)
+[Watch Video Highlight](https://videopress.com/embed/HbdN8Y0e)
 
-Bruce still sticks pretty close to that “It’s Gonna Work Out Fine” melody, but it’s lusher now, more romantic and soulful, with a coda at least inspired by if not lifted from “[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/).”
+Bruce still sticks pretty close to that “It’s Gonna Work Out Fine” melody, but it’s lusher now, more romantic and soulful, with a coda at least inspired by if not lifted from “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/).”
 
 The lyrics speak for themselves–not much is required in the way of analysis. This is a pure R&B pop song., with Bruce’s narrator finding all the validation he needs in the love of his girl.
 
@@ -65,4 +65,4 @@ Bruce has never performed “All I Need” live, not even with Bonds. But as lon
 **Released:** *On the Line* (1982)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

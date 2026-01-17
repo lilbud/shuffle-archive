@@ -2,11 +2,11 @@ To the degree that fans think about “Lucky Man” at all (after all, it was a 
 
 Consider me on Team Sincere.
 
-Recorded late in the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)recording sessions, Bruce’s songwriting had already taken a turn from the sweet (“[Walk Like a Man](http://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/),” “[Two for the Road](https://estreetshuffle.com/index.php/2020/06/30/roll-of-the-dice-two-for-the-road/),” “[The Honeymooners](http://estreetshuffle.com/index.php/2018/04/04/roll-of-the-dice-the-honeymooners/),” and “[The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)” were all recorded near the outset) to the sinister (“[One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)” and “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” were the last to be recorded at the end).
+Recorded late in the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)recording sessions, Bruce’s songwriting had already taken a turn from the sweet (“[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/),” “[Two for the Road](https://estreetshuffle.com/index.php/2020/06/30/roll-of-the-dice-two-for-the-road/),” “[The Honeymooners](https://estreetshuffle.com/index.php/2018/04/04/roll-of-the-dice-the-honeymooners/),” and “[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)” were all recorded near the outset) to the sinister (“[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)” and “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” were the last to be recorded at the end).
 
 Bruce will probably never make it clear exactly what was going on between him and first wife Julianne Phillips at the time, but the darker turn in his songwriting certainly suggests that something was accelerating. The idea of a rootless, itinerant driver savoring his freedom from romantic ties must have seemed like a pretty potent escape fantasy.
 
-[https://www.youtube.com/watch?v=eRcqy9kbqmo](https://www.youtube.com/watch?v=eRcqy9kbqmo)
+[Watch on Youtube: Lucky Man (Single B-Side - 1987)](https://www.youtube.com/watch?v=eRcqy9kbqmo)
 
 “Lucky Man” has a lot in common with “[Hitch Hikin’,](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)” a song Bruce would record decades later (and another song that divides fans in their interpretations). But there’s a key difference between the two songs, besides the obvious one of their instrumentation (“Lucky Man” is lean and bass-driven; “Hitch-Hikin'” is lush and orchestral).
 
@@ -64,7 +64,7 @@ The final lines of the song are strikingly familiar:
 *I don’t miss no girl, I don’t miss no home*  
 *He travels fastest who travels alone*
 
-Bruce uses very similar words to very different ends in “[Valentine’s Day,](http://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)” another song from the Tunnel of Love sessions:
+Bruce uses very similar words to very different ends in “[Valentine’s Day,](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)” another song from the Tunnel of Love sessions:
 
 *They say he travels fastest who travels alone*  
 *But tonight I miss my girl mister tonight I miss my home*
@@ -88,4 +88,4 @@ Recorded:** April 4, 1987
 **Released:** *Brilliant Disguise* (single B-side, 1987), *Tracks* (1998)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

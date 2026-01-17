@@ -1,7 +1,5 @@
 > “This is a song I cut in the early ’90s. It was on *Human Touch,* but we didn’t quite get it right… I kind of screwed it up when I recorded it… It kind of got away from me… didn’t get a good version of it, but it was a good song.”
 > 
-> 
-> 
 > — Bruce Springsteen, various on-stage confessions in 2005
 
 Thank goodness he knows.
@@ -10,7 +8,7 @@ Thank goodness he knows.
 
 Okay, maybe that’s too harsh an indictment. But for anyone at all familiar with the song from its debut performances at the Christic concerts a year and a half earlier, there’s just no comparison.
 
-[https://www.youtube.com/watch?v=1RQCfxPkHXs](https://www.youtube.com/watch?v=1RQCfxPkHXs)
+[Watch on Youtube: Bruce Springsteen - Real World (Los Angeles, November 16, 1990)](https://www.youtube.com/watch?v=1RQCfxPkHXs)
 
 “Real World” is one of the most unabashedly romantic songs Bruce has ever written–vulnerable, redemptive, and full of promise, devotion, and commitment. It’s one of my favorite songs in his entire catalog… as long as I pretend the album track doesn’t exist.
 
@@ -34,13 +32,13 @@ Bruce was less technical when asked about it in the summer of 1992: “What I st
 
 Both theories hold water when listening to the album track. It certainly sounds artificially assembled. Although it sports a thundering Randy Jackson bassline and a scorching Springsteen guitar solo, almost everything noteworthy gets submerged beneath an ocean of synthesizer. It’s a wall of sound, and not the good kind.
 
-[https://www.youtube.com/watch?v=BPGEfeToQYw](https://www.youtube.com/watch?v=BPGEfeToQYw)
+[Watch on Youtube: Bruce Springsteen - Real World (Audio)](https://www.youtube.com/watch?v=BPGEfeToQYw)
 
 But we also hear the soul sound that Bruce was reaching for but never quite achieves. Sam Moore is criminally wasted here. Bruce scored a coup by enlisting Moore to provide backing vocals (he guested on “[Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)” and “[Man’s Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)” as well), but what should have been an electrifying soul-shouting duel of a coda sounds almost literally phoned in, thanks to a too-distant mix.
 
 But enough of that. Let’s pretend that version doesn’t exist, okay? Let’s remember it the way he debuted it in 1990 and has played it live every time post-1993: warm, tender, and alone at the piano.
 
-[https://www.youtube.com/watch?v=lNtOzTcLnek](https://www.youtube.com/watch?v=lNtOzTcLnek)
+[Watch on Youtube: Bruce Springsteen - Real World (Live 2005-06-04)](https://www.youtube.com/watch?v=lNtOzTcLnek)
 
 When Bruce first cut “Real World,” he was newly in love, about a year into his relationship with Patti and a year before they’d marry. “This is when I was feeling the love and showing the love,” he admitted from the stage in 2005. More importantly, their firstborn child was on the way, and Bruce was *definitely* feeling the love.
 
@@ -105,13 +103,13 @@ The love and support of one’s partner may be potent vaccination against self-d
 
 Because most of the world didn’t have access to the Christic bootlegs in 1992, “Real World” never received the acclaim it deserved. In concert, Bruce tweaked the album arrangement by tailoring it to his new touring band, and the result was a more natural, freer-flowing rock and soul showpiece that serves as the last new song of the main set throughout World Tour 1992.
 
-[https://www.youtube.com/watch?v=fmIBGYgbsXs](https://www.youtube.com/watch?v=fmIBGYgbsXs)
+[Watch on Youtube: Real World Bruce Springsteen June 17, 1992 Stockholm, Sweeden](https://www.youtube.com/watch?v=fmIBGYgbsXs)
 
 Other than a couple of 1993 cameos, however, “Real World” subsequently disappeared for more than a decade. When it finally did return in 2005, Bruce restored its original arrangement, confessing its superiority nightly.
 
 He’s played it that way ever since, including its final outings in Cork in 2013, where he played it twice–once in the pre-show and once in the encore.
 
-[https://www.youtube.com/watch?v=XRZVfITpIF4](https://www.youtube.com/watch?v=XRZVfITpIF4)
+[Watch on Youtube: Real World (Pre-show) - Bruce Springsteen - Cork 18th July 2013](https://www.youtube.com/watch?v=XRZVfITpIF4)
 
 Bruce seems to have surrendered “Real World” to its original incarnation, a decision I suspect most fans wholeheartedly endorse. That may take it out of the set list running for all but solo acoustic tours (or the occasional solo number on a band tour), but it’s too personal and meaningful a song for it to be gone for good.
 

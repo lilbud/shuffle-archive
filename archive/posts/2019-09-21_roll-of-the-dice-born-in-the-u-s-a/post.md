@@ -1,4 +1,4 @@
-Last month, we took a look at Bruce’s unreleased *Nebraska-*era home demo, “[Vietnam](http://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/).”
+Last month, we took a look at Bruce’s unreleased *Nebraska-*era home demo, “[Vietnam](https://estreetshuffle.com/index.php/2019/08/31/roll-of-the-dice-vietnam/).”
 
 “Vietnam” was the grandfather of both “Born in the U.S.A.” and “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/),” but by the end of that essay, it was pretty clear which path Bruce was going to follow first.
 
@@ -8,11 +8,11 @@ Last month, we took a look at Bruce’s unreleased *Nebraska-*era home demo, “
 
 So let’s pick our story up where we left off, with the melody of “Vietnam” paired with prequel lyrics to “Born in the U.S.A.”–and the first appearance of what would eventually become an iconic chorus.
 
-[https://videopress.com/embed/ZZMFFtgu](https://videopress.com/embed/ZZMFFtgu)
+[Watch Video Highlight](https://videopress.com/embed/ZZMFFtgu)
 
 Bruce continued working on the song throughout the remainder of 1981, and the three takes in the combined clip below show his remarkable craft at work. Let’s eavesdrop as Bruce inches his way toward his vision. In this next version, we have a new but familiar melody. For the first time, we can hear the final song taking shape:
 
-[https://videopress.com/embed/ypaZ9d3b](https://videopress.com/embed/ypaZ9d3b)
+[Watch Video Highlight](https://videopress.com/embed/ypaZ9d3b)
 
 Bruce’s lyrics have progressed significantly, although the chorus sounds just a bit too jingoistic for the tone Bruce is trying to strike.
 
@@ -83,7 +83,7 @@ There’s one final verse here, and it almost sounds like an afterthought. It’
 
 You’d think that Bruce would instinctively realize he was venturing from the narrative. Instead, in the next take, he doubles down:
 
-[https://videopress.com/embed/tFEoOcRo](https://videopress.com/embed/tFEoOcRo)
+[Watch Video Highlight](https://videopress.com/embed/tFEoOcRo)
 
 Yes, you heard those lyrics right:
 
@@ -110,11 +110,11 @@ There’s also a final verse that’s hard to make out, and that’s too bad–b
 
 In Bruce’s next take, the classic introduction is now completely in place. In fact, the entire song is now *very* close to final–other than the masterful yet economical verse with the VA man (which Bruce is still struggling to find the right place for) and the still-missing “ten years burning down the road” closing, the song is essentially complete.
 
-[https://videopress.com/embed/xqUD3rof](https://videopress.com/embed/xqUD3rof)
+[Watch Video Highlight](https://videopress.com/embed/xqUD3rof)
 
 Finally, in this last version, we hear a much more comfortable and confident Bruce. He clearly feels that he’s close to completion, and indeed the final lyrics are all present.
 
-[https://videopress.com/embed/c1iuoKno](https://videopress.com/embed/c1iuoKno)
+[Watch Video Highlight](https://videopress.com/embed/c1iuoKno)
 
 But we also have the return of the backstory verses from “Vietnam” along with some harrowing, you-are-there imagery that’s powerful enough to overpower the pain and neglect that await him upon his return home:
 
@@ -127,13 +127,13 @@ Bruce would shortly and wisely drop those lyrics.
 
 The next version of “Born in the U.S.A.” is the one Bruce eventually released on *Tracks*. It’s tighter now, with an eerie echo and anguished howls that makes the singer seem even more isolated and alone than on the rock version–enough to raise goosebumps if you listen to it in a dark room.
 
-[https://www.youtube.com/watch?v=3UBei3n4FOY](https://www.youtube.com/watch?v=3UBei3n4FOY)
+[Watch on Youtube: Born In The USA (acoustic from Tracks)](https://www.youtube.com/watch?v=3UBei3n4FOY)
 
 There’s also the first hint of an electrified “Born in the U.S.A.” near the end of the clip above. Indeed, Bruce seems to have intended “Born in the U.S.A.” to be a rocker from the beginning (although Max Weinberg recalls recording a country version somewhere along the way). Bruce sent the above version of the song to his manager, dismissing it as “a little ditty” that should be done “very hard rockin’.”
 
 As powerful as the acoustic version is, it’s hard to argue with Bruce. In late April 1982, Bruce assembled the E Street Band to take a crack at the song, and their eight-minute(!) unreleased take (only their second, and the one that would form the basis for the final version) immediately proves Bruce’s point. Roy’s synthesizer riff is a clarion call for the veteran’s countrymen to wake up and *see* him, and Bruce’s rock vocals convey the perfect mix of anger, anguish, loss, and betrayal.
 
-[https://videopress.com/embed/KAVddP0t](https://videopress.com/embed/KAVddP0t)
+[Watch Video Highlight](https://videopress.com/embed/KAVddP0t)
 
 Bruce and the boys would finally nail the song just a few days later, on May 3, 1982, with a much shorter jam but with Max’s famous-ever-after lightning-in-a-bottle drum solo that just barely holds the band together until Bruce counts them back in.
 
@@ -141,55 +141,55 @@ The finished track was magic, and the band knew it. Released more than two years
 
 On Thanksgiving eve, Bruce released his video for the song, strangely pairing the recording with out-of-sync concert footage and a dubbed audience. “Born in the U.S.A,” may be one of Bruce’s better songs, but it’s not one of his better videos. Even the cutaways to a small child followed by a vast cemetery were too subtle to register with most viewers.
 
-[https://www.youtube.com/watch?v=EPhWR4d3FJQ](https://www.youtube.com/watch?v=EPhWR4d3FJQ)
+[Watch on Youtube: Bruce Springsteen - Born in the U.S.A. (Official Video)](https://www.youtube.com/watch?v=EPhWR4d3FJQ)
 
 The song became famously elusive, with most casual listeners (and even [famous commentators](https://www.washingtonpost.com/archive/politics/1984/09/13/bruce-springsteens-usa/f6502baa-a8eb-48ad-ba85-7fa848d8833e/?noredirect=on)) completely missing the message of the song.
 
 The President of the United States seems to have been in their company. Although technically and ironically his words were not inaccurate, it’s highly likely that “Born in the U.S.A.” was the song Reagan had in mind when he said this at a campaign stop:
 
-[https://www.youtube.com/watch?v=z8BRWNaOdlc](https://www.youtube.com/watch?v=z8BRWNaOdlc)
+[Watch on Youtube: Ronald Reagan - Bruce Springsteen (19.09.1984)](https://www.youtube.com/watch?v=z8BRWNaOdlc)
 
 In fairness, though, at times it seemed like Bruce was determined to feed the controversy. In January 1985, producer Arthur Baker (who had previously tried his hand at “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” and “[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)“) produced a trio of remixes of Bruce’s anthem.
 
 These remixes draw a lot of scorn, but if you listen carefully, they’re actually pretty good–especially the “Freedom Mix” below. Yes, it’s mostly a curiosity today, but had the final minute of Bruce’s studio version sounded as harrowing and haunted as the final minutes of Baker’s remix, a lot fewer people would have misunderstood the song.
 
-[https://www.youtube.com/watch?v=DsNQb0KO5Zo](https://www.youtube.com/watch?v=DsNQb0KO5Zo)
+[Watch on Youtube: Born In The U.S.A. (The Freedom Mix) - Bruce Springsteen](https://www.youtube.com/watch?v=DsNQb0KO5Zo)
 
 Still, the existence of these remixes–a relatively new phenomenon in general at the time, and one typically reserved for dance/pop songs–made it easy for casual listeners to embrace the celebratory backing track rather than focus on the lyrics.
 
-[https://www.youtube.com/watch?v=6qah-0-vzh0](https://www.youtube.com/watch?v=6qah-0-vzh0)
+[Watch on Youtube: Born In The U.S.A. (Dub) - Bruce Springsteen](https://www.youtube.com/watch?v=6qah-0-vzh0)
 
-[https://www.youtube.com/watch?v=irOHUCpnXGU](https://www.youtube.com/watch?v=irOHUCpnXGU)
+[Watch on Youtube: Bruce Springsteen - Born In The USA (Arthur Baker Radio Mix)](https://www.youtube.com/watch?v=irOHUCpnXGU)
 
 “Born in the U.S.A.” made its live debut just days after its vinyl debut, at a tour warm-up at The Stone Pony on the evening of June 8, 1984. To this day, it remains one of the few opportunities fans have had to witness the song’s powerful rock arrangement in an intimate venue.
 
-[https://videopress.com/embed/PG3WCwBE](https://videopress.com/embed/PG3WCwBE)
+[Watch Video Highlight](https://videopress.com/embed/PG3WCwBE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/09/1984-06-08-300x200.jpg)
+![](https://estreetshuffle.com/wp-content/uploads/2019/09/1984-06-08.jpg)
 
 “Born in the U.S.A.” immediately became a tour staple–not just for the tour named after it, but for almost every tour ever after.
 
-[https://www.youtube.com/watch?v=tIekamBDiAw](https://www.youtube.com/watch?v=tIekamBDiAw)
+[Watch on Youtube: Born In The USA - Bruce Springsteen Paris 85](https://www.youtube.com/watch?v=tIekamBDiAw)
 
 When Bruce made an off-tour appearance at Neil and Pegi Young’s Bridge School Benefit, he debuted a bluesy new acoustic arrangement, proving the song is just as powerful in either form.
 
-[https://www.youtube.com/watch?v=jwEOBwvIwAY](https://www.youtube.com/watch?v=jwEOBwvIwAY)
+[Watch on Youtube: Born In The U.S.A. (Acoustic) - Bruce Springsteen](https://www.youtube.com/watch?v=jwEOBwvIwAY)
 
 Bruce even kept “Born in the U.S.A.” in the set during his 1992-1993 World Tour, although perhaps that wasn’t one of his best decisions. Unlike many fans, I give the 1992-93 band their due and appreciate what they brought to Bruce’s music. But “Born in the U.S.A.” was not particularly well-suited to their sound. Judge for yourself:
 
-[https://www.youtube.com/watch?v=jxKCltMv2zE](https://www.youtube.com/watch?v=jxKCltMv2zE)
+[Watch on Youtube: Born in the U.S.A. - Bruce Springsteen (live at the Stadio Marc'Antonio Bentegodi, Verona 1993)](https://www.youtube.com/watch?v=jxKCltMv2zE)
 
 On his solo acoustic tour in support of [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/), Bruce stripped “Born in the U.S.A.” back to its bluesy Bridge arrangement, but it wasn’t until the Reunion Tour that he finally landed on an arrangement that unmistakably communicated the song’s message. Bruce’s nightly twelve-string performance is still remembered as a highlight of that tour.
 
-[https://www.youtube.com/watch?v=5MtAxD9TE88](https://www.youtube.com/watch?v=5MtAxD9TE88)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Born In the U.S.A. (Live in New York City)](https://www.youtube.com/watch?v=5MtAxD9TE88)
 
 Bruce brought the rock arrangement back during the Rising Tour as America inched closer to war in the Middle East, and it’s remained a staple of virtually every tour since, a powerful protest and resistance song embraced by audiences around the world who respond to its spirit even more than its lyrics. Even as recently as the 2016 River Tour, “Born in the U.S.A.” remains as potent as ever.
 
-[https://www.youtube.com/watch?v=kkVlx5epEwE](https://www.youtube.com/watch?v=kkVlx5epEwE)
+[Watch on Youtube: Bruce Springsteen - Born in the U.S.A (Live 2016)](https://www.youtube.com/watch?v=kkVlx5epEwE)
 
 And in 2017, Bruce selected “Born in the U.S.A.” as one of only a handful of songs to build his Broadway show around, using his acoustic blues introduction paired with an a capella vocal and dramatic timing to devastating effect to underscore his awakening to social causes in general and the plight of veterans specifically. The performance that’s featured in the official broadcast and recording may be Bruce’s most powerful ever.
 
-[https://www.youtube.com/watch?v=GxTntdzrYek](https://www.youtube.com/watch?v=GxTntdzrYek)
+[Watch on Youtube: Bruce Springsteen - Born In the U.S.A. (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=GxTntdzrYek)
 
 Today, “Born in the U.S.A.” holds a special place in Bruce’s catalog, beloved by fans, critics, and the songwriter himself. *Rolling Stone* ranks “Born in the U.S.A.” #275 on their 500 Greatest Songs of All Time list, and RIAA ranks it #59 on their 365 Songs of the Century. It’s a song that reminds and galvanizes as needed, rising again and again to meet the moment when called upon.
 
@@ -203,4 +203,4 @@ Recorded:** April 27-May 3, 1984
 **First performed:** June 8, 1984 (Asbury Park, NJ)  
 **Last performed:** July 6, 2023 (London, England)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

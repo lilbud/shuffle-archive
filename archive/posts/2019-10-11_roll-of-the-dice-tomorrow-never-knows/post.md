@@ -2,13 +2,13 @@ It’s easy to forget about “Tomorrow Never Knows.” Bruce has never performe
 
 Bruce wrote “Tomorrow Never Knows” during the mixing stages of *Magic–*in fact, it was one of the very first songs written for the album that would become *Working on a Dream.* 
 
-That first group of songs also included “[What Love Can Do](http://estreetshuffle.com/index.php/2018/11/25/roll-of-the-dice-what-love-can-do/),” “This Life,” “[Life Itself](http://estreetshuffle.com/index.php/2018/03/26/roll-of-the-dice-life-itself/),” and “[My Lucky Day](http://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/),” and together with “Tomorrow Never Knows,” it’s clear that Bruce was beginning to come to terms with aging in a way that he really hadn’t addressed before.
+That first group of songs also included “[What Love Can Do](https://estreetshuffle.com/index.php/2018/11/25/roll-of-the-dice-what-love-can-do/),” “This Life,” “[Life Itself](https://estreetshuffle.com/index.php/2018/03/26/roll-of-the-dice-life-itself/),” and “[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/),” and together with “Tomorrow Never Knows,” it’s clear that Bruce was beginning to come to terms with aging in a way that he really hadn’t addressed before.
 
 *Working on a Dream* would develop into a fascinating document of an artist taking stock of his life, love, family, friends and body of work. It’s the gateway to all of his later work, both musically and lyrically–and “Tomorrow Never Knows” is one of the plainest yet loveliest examples.
 
 Take a careful listen to the song below, and use headphones if you have them to get the full effect.
 
-[https://www.youtube.com/watch?v=9e3kD4a4W6o](https://www.youtube.com/watch?v=9e3kD4a4W6o)
+[Watch on Youtube: Tomorrow Never Knows](https://www.youtube.com/watch?v=9e3kD4a4W6o)
 
 When the album was first released, “Tomorrow Never Knows” struck me as what it would sound like if the Sessions Band covered a Beatles song (perhaps that was intentional given the song’s allusional title), but when I listen to it now, I hear a clear throughline to *Western Stars*.
 
@@ -62,4 +62,4 @@ Taken as a whole, it presents a snapshot of an artist truly coming to terms with
 **Released:** *Working on a Dream* (2009)  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

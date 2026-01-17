@@ -6,6 +6,6 @@ Their version is even harder-driving than Bruce’s live arrangement. Fierce and
 
 Turn the volume up *loud* and listen.
 
-[https://www.youtube.com/watch?v=NhUozBCWBjg](https://www.youtube.com/watch?v=NhUozBCWBjg)
+[Watch on Youtube: Dancing in the Dark (Cover) | The Bishop's Daredevil Stunt Club](https://www.youtube.com/watch?v=NhUozBCWBjg)
 
-For more from The Bishop’s Daredevil Stunt Club, visit their official site [here](http://bishopband.com/).
+For more from The Bishop’s Daredevil Stunt Club, visit their official site [here](https://bishopband.com/).

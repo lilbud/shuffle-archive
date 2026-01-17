@@ -4,7 +4,7 @@ I remember listening to “Stray Bullet” for the first time when it was releas
 
 (If you haven’t heard this song before, listen before reading further–the power of the song lies in how it sneaks up on you.)
 
-[https://www.youtube.com/watch?v=3FgBFxEB8kg](https://www.youtube.com/watch?v=3FgBFxEB8kg)
+[Watch on Youtube: Bruce Springsteen - Stray Bullet (The River: Outtakes)](https://www.youtube.com/watch?v=3FgBFxEB8kg)
 
 Musically, it’s unlike anything else Bruce recorded at that point in his career; lyrically, it covers some very dark and very bloody ground.
 
@@ -59,4 +59,4 @@ Recorded:** February 24, March 9, and April 10, 1980 (it’s unclear from which 
 **Released**: *The River: Outtakes* (2015)  
 **Never Performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

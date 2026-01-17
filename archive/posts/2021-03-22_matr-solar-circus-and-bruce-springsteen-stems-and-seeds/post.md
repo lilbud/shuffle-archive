@@ -2,7 +2,7 @@ The band is Solar Circus, a North Jersey-based Grateful Dead-influenced band (at
 
 The song is “Stems and Seeds,” the opening track from the band’s 1992 *Step Right Up* album and featured song in *Tie-died: Rock ‘n Roll’s Most Deadicated Fans.*
 
-[https://www.youtube.com/watch?v=dWxYkrA-594](https://www.youtube.com/watch?v=dWxYkrA-594)
+[Watch on Youtube: Solar Circus ~ 'Step Right Up' (1992) full album](https://www.youtube.com/watch?v=dWxYkrA-594)
 
 The date was August 10, 1995–just one day after Grateful Dead founder Jerry Garcia passed away from a heart attack at the young age of 53.
 
@@ -16,12 +16,10 @@ In true Springsteen fashion, a couple of songs turned into five; in true Dead fa
 
 Bruce doesn’t sing in the recording below (since this was an impromptu performance, we can assume that he wasn’t familiar enough with the band’s original songs), but we can hear his prominent guitar throughout, especially when he takes a solo about five minutes in.
 
-[https://videopress.com/embed/wvkjqrYF](https://videopress.com/embed/wvkjqrYF)
+[Watch Video Highlight](https://videopress.com/embed/wvkjqrYF)
 
 That was the first and only time Bruce performed with Solar Circus. If you’d like to see video from that night, check out my [*Kingdom of Days* post for August 10](https://estreetshuffle.com/index.php/2020/08/10/kingdom-of-days-august-10/).
 
 **Stems and Seeds  
 First performed:** August 10, 1995 (Long Branch, NJ)  
 **Last performed:** August 10, 1995 (Long Branch, NJ)
-
- 

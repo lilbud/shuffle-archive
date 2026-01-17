@@ -1,12 +1,12 @@
 No, that’s not a typo in the title: this is the story of *Betty* Jean.
 
-We all know [*Bobby* Jean’s story](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/), of course: ze went away and there was nothing we could have done or said to keep hir from doing otherwise. We didn’t even get to say goodbye.
+We all know [*Bobby* Jean’s story](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/), of course: ze went away and there was nothing we could have done or said to keep hir from doing otherwise. We didn’t even get to say goodbye.
 
 Hir older sister, Betty, however… oh, she stayed all right, and she made life a mixed blessing for her man.
 
 Let’s take a listen to “Betty Jean,” Bruce’s unreleased outtake from the *Born in the U.S.A.* sessions, recorded six months earlier than her gender-fluid sibling:
 
-[https://www.youtube.com/watch?v=5M3i-cVWXKQ](https://www.youtube.com/watch?v=5M3i-cVWXKQ)
+[Watch on Youtube: Bruce Springsteen - Betty Jean](https://www.youtube.com/watch?v=5M3i-cVWXKQ)
 
 Well, she’s sure a handful, isn’t she?
 
@@ -51,7 +51,7 @@ And there we have it: the tale of Betty Jean, who peaked early while her sibling
 
 A final curiosity about the Jeans: they actually have a *third* sibling.
 
-*Beverly* Jean made her debut in “[Delivery Man,](http://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/)” another unreleased song from the *Born in the U.S.A. Sessions*. You can tell Betty and Beverly are sisters because they both have the same “eyes like a jack rabbit starin’ dead in your high beams.”
+*Beverly* Jean made her debut in “[Delivery Man,](https://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/)” another unreleased song from the *Born in the U.S.A. Sessions*. You can tell Betty and Beverly are sisters because they both have the same “eyes like a jack rabbit starin’ dead in your high beams.”
 
 But Beverly’s story is a tale for another day.
 
@@ -62,4 +62,4 @@ Bobby may have been the only member of the Jean family to make it out into the w
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,7 +1,5 @@
 > “Sometimes you’ve been too beat up or haven’t healed enough of the fear out of you to know a good thing when you’ve found it. Sometimes you just gravitate to the pain. It’s what you’re used to. It’s how you recognize yourself. It feels like home. It feels more familiar to you than love. So that’s where you go.
 > 
-> 
-> 
 > You don’t know how to hold on to love, but you know how to hold on to hurt.”
 > 
 > 
@@ -11,7 +9,7 @@
 
 With due respect to the author, I think he misdirects a bit. “Somewhere North of Nashville” is less about being lost on life’s highway and more about the wrong turn that led him off-road.
 
-[https://www.youtube.com/watch?v=FC3_D4PVlF8](https://www.youtube.com/watch?v=FC3_D4PVlF8)
+[Watch on Youtube: Bruce Springsteen - Somewhere North of Nashville (Official Audio)](https://www.youtube.com/watch?v=FC3_D4PVlF8)
 
 At one minute and fifty-two seconds, “Somewhere North of Nashville” is the shortest song on *Western Stars* and one of his shortest in his entire catalog. But as with “[Camilla Horn](https://estreetshuffle.com/index.php/2022/06/07/roll-of-the-dice-camilla-horn/)” a couple of days ago (short songs seem to be our theme this week), Bruce demonstrates that it needn’t take more than two minutes to bring a character to life.
 
@@ -53,7 +51,7 @@ Bruce has only performed “Somewhere North of Nashville” live once, but at le
 
 During the key bridge, Bruce catches the camera and his gaze meets ours just as he says the words, *I traded you for this song*. And in that moment, we feel the full force of his character’s sadness and regret. It’s one of the most powerful moments in the entire film.
 
-[https://www.youtube.com/watch?v=QFYy08tkdIk](https://www.youtube.com/watch?v=QFYy08tkdIk)
+[Watch on Youtube: Somewhere North of Nashville - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=QFYy08tkdIk)
 
 **Somewhere North of Nashville  
 Recorded:** Unknown  
