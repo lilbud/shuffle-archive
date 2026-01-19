@@ -1,4 +1,4 @@
-name: update database and push
+name: grab latest posts
 on:
   # Allows you to run this workflow manually from the Actions tab
   workflow_dispatch:
