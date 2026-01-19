@@ -10,6 +10,8 @@ dependencies = [
     "httpx>=0.28.1",
     "lxml>=6.0.2",
     "markdown>=3.9",
+    "pandas>=2.3.3",
+    "standardebooks>=2.10.2",
     "user-agent>=0.1.14",
     "utidylib>=1.0.0",
 ]

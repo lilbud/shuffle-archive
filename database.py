@@ -9,7 +9,7 @@ import psycopg
 from dotenv import load_dotenv
 from psycopg.rows import dict_row
 
-from cleanup import format_article_content
+from cleanup import initial_cleanup
 
 load_dotenv()
 
@@ -45,7 +45,7 @@ def insert_post(data: dict, cur: psycopg.Cursor, conn: psycopg.Connection) -> No
 
     title = ftfy.fix_text(data["title"]["rendered"])
 
-    content = format_article_content(data["content"]["rendered"])
+    content = initial_cleanup(data["content"]["rendered"])
 
     excerpt = data["excerpt"]["rendered"]
 
@@ -83,8 +83,6 @@ def insert_post(data: dict, cur: psycopg.Cursor, conn: psycopg.Connection) -> No
         (id, last_modified),
     ).fetchone()["id"]
 
-    print(post_id)
-
     if post_id and int(data["featured_media"]) != 0:
         cur.execute(
             """insert into media (media_id, url, post_id)
@@ -102,29 +100,29 @@ def insert_post(data: dict, cur: psycopg.Cursor, conn: psycopg.Connection) -> No
             {"media": media, "post": id},
         )
 
-        for item in data["categories"]:
-            category = cur.execute(
-                """select id from categories where category_id = %(category)s""",
-                {"category": item},
-            ).fetchone()["id"]
+    for item in data["categories"]:
+        category = cur.execute(
+            """select id from categories where category_id = %(category)s""",
+            {"category": item},
+        ).fetchone()["id"]
 
-            cur.execute(
-                """INSERT INTO post_categories (post_id, category_id)
-                VALUES (%(post)s, %(category)s) on conflict do nothing""",
-                {"post": post_id, "category": category},
-            )
+        cur.execute(
+            """INSERT INTO post_categories (post_id, category_id)
+            VALUES (%(post)s, %(category)s) on conflict do nothing""",
+            {"post": post_id, "category": category},
+        )
 
-        for item in data["tags"]:
-            tag = cur.execute(
-                """select id from tags where tag_id = %(tag)s""",
-                {"tag": item},
-            ).fetchone()["id"]
+    for item in data["tags"]:
+        tag = cur.execute(
+            """select id from tags where tag_id = %(tag)s""",
+            {"tag": item},
+        ).fetchone()["id"]
 
-            cur.execute(
-                """INSERT INTO post_tags (post_id, tag_id)
-                VALUES (%(post)s, %(tag)s) on conflict do nothing""",
-                {"post": post_id, "tag": tag},
-            )
+        cur.execute(
+            """INSERT INTO post_tags (post_id, tag_id)
+            VALUES (%(post)s, %(tag)s) on conflict do nothing""",
+            {"post": post_id, "tag": tag},
+        )
 
     for item in data["jetpack-related-posts"]:
         related = cur.execute(

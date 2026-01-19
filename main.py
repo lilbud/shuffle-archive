@@ -12,7 +12,7 @@ from psycopg.rows import dict_row
 from user_agent import generate_user_agent
 
 from archive import archive_posts
-from cleanup import format_article_content
+from cleanup import initial_cleanup
 from database import insert_post, load_db
 
 cookies = {"wordpress_test_cookie": "WP Cookie check"}
@@ -145,7 +145,11 @@ def get_media(cur: psycopg.Cursor, conn: psycopg.Connection):
             print("no missing media URLs")
 
 
-def save_posts(posts: list[dict], cur: psycopg.Cursor) -> None:
+def save_posts(
+    posts: list[dict],
+    cur: psycopg.Cursor,
+    conn: psycopg.Connection,
+) -> None:
     """Iterate list of post dicts and save each to file."""
     for post in posts:
         timestamp = datetime.datetime.strptime(
@@ -159,10 +163,10 @@ def save_posts(posts: list[dict], cur: psycopg.Cursor) -> None:
             with save_path.open("w", encoding="utf-8") as f:
                 json.dump(post, f)
 
-        insert_post(post, cur)
+        insert_post(post, cur, conn)
 
 
-def get_latest_posts(cur: psycopg.Cursor) -> None:
+def get_latest_posts(cur: psycopg.Cursor, conn: psycopg.Connection) -> None:
     """Get posts ordered by modified date.
 
     Rather than creating new posts, the site is instead opting to replace the content of
@@ -199,10 +203,10 @@ def get_latest_posts(cur: psycopg.Cursor) -> None:
             )
 
             posts = res.json()
-            save_posts(posts, cur)
+            save_posts(posts, cur, conn)
 
 
-def get_newest_posts(cur: psycopg.Cursor) -> None:
+def get_newest_posts(cur: psycopg.Cursor, conn: psycopg.Connection) -> None:
     """Get newest posts from the site.
 
     Posts are saved in individual files, as well as inserted into database.
@@ -230,7 +234,7 @@ def get_newest_posts(cur: psycopg.Cursor) -> None:
             # )
 
             posts = res.json()
-            save_posts(posts, cur)
+            save_posts(posts, cur, conn)
 
         # if total_pages > 1:
         #     for i in range(2, total_pages + 1):
@@ -276,12 +280,12 @@ def get_comments():
 if __name__ == "__main__":
     with load_db() as conn, conn.cursor() as cur:
         # print("Grabbing newest posts.")
-        # get_newest_posts(cur)
+        # get_newest_posts(cur, conn)
 
         # get_categories(cur)
 
         print("Grabbing recently updated posts.")
-        get_latest_posts(cur)
+        get_latest_posts(cur, conn)
 
         # archive_posts(cur)
 

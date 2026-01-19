@@ -4,3 +4,4 @@ lxml
 user-agent
 markdown
 pandas
+standardebooks

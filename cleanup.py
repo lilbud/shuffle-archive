@@ -8,8 +8,6 @@ import ftfy
 import html_to_markdown
 from bs4 import BeautifulSoup as bs4
 
-# from markdownify import markdownify as md
-
 
 def format_date(date: str) -> datetime.datetime:
     """Convert date string to datetime object."""
@@ -21,26 +19,16 @@ def format_date(date: str) -> datetime.datetime:
     )
 
 
-def format_article_content(orig_content: str) -> str:
-    """HTML cleaning.
+def link_fixes(soup: bs4) -> bs4:
+    for link in soup.find_all("a"):
+        if "estreetshuffle" in link["href"]:
+            text = ftfy.fix_text(link.get_text())
 
-    Apply a few fixes for missing tags, replace some links.
-    """
-    # multiple new line replace
-    orig_content = re.sub("(\r?\n){2}", "<p></p>", orig_content)
+            print(text)
 
-    # Replace <p> tag with space with closed tag.
-    orig_content = re.sub(r"<p>\s+</p>", "<p></p>", orig_content)
 
-    # replace empty line
-    orig_content = re.sub(r"^$", "", orig_content)
-
-    # replace http with https
-    orig_content = re.sub("http:", "https:", orig_content)
-
-    soup = bs4(orig_content, "lxml")
-
-    # fix iframes having embed links instead of direct
+def video_fixes(soup: bs4) -> bs4:
+    """Fix for video iframe elements."""
     for iframe in soup.find_all("iframe"):
         src = iframe.get("src")
         title = iframe.get("title", "Watch Video")
@@ -88,7 +76,34 @@ def format_article_content(orig_content: str) -> str:
         else:
             iframe.replace_with(link_container)
 
+    return soup
+
+
+def initial_cleanup(orig_content: str) -> str:
+    """HTML cleaning.
+
+    Apply a few fixes for missing tags, replace some links.
+    """
+    # multiple new line replace
+    orig_content = re.sub("(\r?\n){2}", "<p></p>", orig_content)
+
+    # Replace <p> tag with space with closed tag.
+    orig_content = re.sub(r"<p>\s+</p>", "<p></p>", orig_content)
+
+    # replace empty line
+    orig_content = re.sub(r"^$", "", orig_content)
+
+    # replace http with https
+    orig_content = re.sub("http:", "https:", orig_content)
+
+    soup = bs4(orig_content, "lxml")
+
+    # fix iframes having embed links instead of direct
+    soup = video_fixes(soup)
+
     for img in soup.find_all("img"):
+        container = soup.new_tag("p")
+
         # remove wordpress CDN from images, change to direct link
         if img.get("data-orig-file"):
             img["src"] = re.sub(r"i\d.wp.com/|\?.*", "", img["data-orig-file"])
