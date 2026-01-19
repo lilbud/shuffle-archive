@@ -1,0 +1,35 @@
+name: update database and push
+on:
+  # Allows you to run this workflow manually from the Actions tab
+  workflow_dispatch:
+
+  # Run at 6am
+  schedule:
+    - cron: '0 6 * * *'
+jobs:
+  updateposts:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout
+        uses: actions/checkout@v3
+      - name: Set up Python 3.x
+        uses: actions/setup-python@v4
+        with:
+          python-version: 3.12
+      - name: Install dependencies
+        run: |
+          python -m pip install --upgrade pip
+          python -m pip install -r requirements.txt
+      
+      - name: run database update
+        run: python get_latest.py
+
+      - name: Commit
+        run: |
+          git config --local user.name "${GITHUB_ACTOR}"
+          git config --local user.email "${GITHUB_ACTOR}@users.noreply.github.com"
+          git commit -am "Grabbed Newest Posts From API" || echo "No changes to commit"
+      - name: Push
+        run: |
+          git push origin main
