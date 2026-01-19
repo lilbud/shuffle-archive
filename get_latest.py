@@ -3,10 +3,7 @@ import json
 from pathlib import Path
 
 import httpx
-import psycopg
 from user_agent import generate_user_agent
-
-from main import get_posts_by_page
 
 cookies = {"wordpress_test_cookie": "WP Cookie check"}
 headers = {
