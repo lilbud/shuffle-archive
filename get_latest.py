@@ -64,6 +64,8 @@ def get_latest_posts() -> None:
             save_path = Path(f"./posts_json/{post['id']}_{int(timestamp)}.json")
 
             if not save_path.exists():
+                print(save_path)
+
                 with save_path.open("w", encoding="utf-8") as f:
                     json.dump(post, f)
 

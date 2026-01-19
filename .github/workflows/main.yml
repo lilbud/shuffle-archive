@@ -32,4 +32,4 @@ jobs:
           git commit -am "Grabbed Newest Posts From API" || echo "No changes to commit"
       - name: Push
         run: |
-          git push origin main
+          git push origin master
