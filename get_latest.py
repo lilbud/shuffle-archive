@@ -50,7 +50,7 @@ def get_latest_posts() -> None:
 
         with Path("./notes/report.txt").open("a") as f:
             f.write(
-                f"{datetime.datetime.now().astimezone(datetime.UTC)} Found {total_pages} pages and {total_posts} posts",
+                f"\n{datetime.datetime.now().astimezone(datetime.UTC)} Found {total_pages} pages and {total_posts} posts",
             )
 
         posts = res.json()
