@@ -25,6 +25,7 @@ def archive_posts(cur: psycopg.Cursor) -> None:
 
     for post in posts:
         date = post["published"].date()
+        template = bs4(Path("./template.html").read_text(), "html.parser")
 
         # if not Path(f"./archive/posts/{date}_{post['slug']}").exists():
         print(f"./archive/posts/{date}_{post['slug']}")
@@ -37,25 +38,18 @@ def archive_posts(cur: psycopg.Cursor) -> None:
         save_path = Path(f"./archive/posts/{date}_{post['slug']}")
         save_path.mkdir(exist_ok=True)
 
+        meta_description_tag = template.find("meta", attrs={"name": "description"})
+
+        if meta_description_tag:
+            meta_description_tag["content"] = post["excerpt"]
+
         soup = bs4(post["content"], "html.parser")
+        body = template.find("body")
 
-        if not soup.find("html"):
-            new_html = soup.new_tag("html", lang="en")
-            head = soup.new_tag("head")
-            meta = soup.new_tag("meta", charset="UTF-8")
-            title = soup.new_tag("title")
-            title.string = post["title"]
-            head.append(meta)
-            head.append(title)
+        template.title.string = post["title"]
 
-            body = soup.new_tag("body")
-            # Move existing content into the new body
-            for element in list(soup.contents):
-                body.append(element.extract())
-
-            new_html.append(head)
-            new_html.append(body)
-            soup.append(new_html)
+        for item in soup.contents:
+            body.append(item)
 
         if not Path(save_path, "meta.json").exists():
             with Path(f"./posts_json/{post_id}_{last_modified}.json").open(
@@ -74,15 +68,14 @@ def archive_posts(cur: psycopg.Cursor) -> None:
             print("created json")
 
         # write post HTML from database to post folder
-        # if not Path(save_path, "post.html").exists():
-        with Path(save_path, "post.html").open("w", encoding="utf-8") as f:
-            f.write("<!DOCTYPE html>\n")
-            f.write(str(soup))
+        if not Path(save_path, "post.html").exists():
+            with Path(save_path, "post.html").open("w", encoding="utf-8") as f:
+                f.write(str(template))
 
+        # convert post to markdown and save
         if not Path(save_path, "post.md").exists():
-            # convert post to markdown and save
             with Path(save_path, "post.md").open("w", encoding="utf-8") as f:
-                f.write(html_to_markdown.convert(str(soup)))
+                f.write(html_to_markdown.convert(str(template)))
 
 
 if __name__ == "__main__":

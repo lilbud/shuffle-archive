@@ -1,14 +1,11 @@
 import datetime
 import json
-import re
 import time
 from pathlib import Path
-from zoneinfo import ZoneInfo
 
 import ftfy
 import httpx
 import psycopg
-from psycopg.rows import dict_row
 from user_agent import generate_user_agent
 
 from archive import archive_posts
@@ -31,7 +28,7 @@ headers = {
 }
 
 
-def get_tags() -> None:
+def get_tags(cur: psycopg.Cursor) -> None:
     """Get all tags using WP REST API."""
     with httpx.Client(
         headers=headers,
@@ -277,18 +274,18 @@ def get_comments():
             time.sleep(1)
 
 
-if __name__ == "__main__":
-    with load_db() as conn, conn.cursor() as cur:
-        # print("Grabbing newest posts.")
-        # get_newest_posts(cur, conn)
+# if __name__ == "__main__":
+#     with load_db() as conn, conn.cursor() as cur:
+# print("Grabbing newest posts.")
+# get_newest_posts(cur, conn)
 
-        # get_categories(cur)
+# get_categories(cur)
 
-        print("Grabbing recently updated posts.")
-        get_latest_posts(cur, conn)
+# print("Grabbing recently updated posts.")
+# get_latest_posts(cur, conn)
 
-        # archive_posts(cur)
+# archive_posts(cur)
 
-        # get_media(cur, conn)
+# get_media(cur, conn)
 
-        # get_comments()
+# get_comments()

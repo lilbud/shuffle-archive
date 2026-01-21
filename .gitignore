@@ -36,3 +36,6 @@ notes/booktest/
 
 # zip file backups
 *.zip
+
+# books folder, contains tests of standard toolset
+books/

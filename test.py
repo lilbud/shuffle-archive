@@ -6,10 +6,14 @@ from pathlib import Path
 import ftfy
 import html_to_markdown
 import httpx
+import regex
 import se
+import slugify
 import tidy
 from bs4 import BeautifulSoup as bs4
+from bs4 import Comment
 from se import formatting
+from se.se_epub import SeEpub
 
 from cleanup import initial_cleanup, link_fixes
 from database import insert_post, load_db
@@ -18,20 +22,30 @@ posts = Path(r".\archive\posts")
 
 tags = []
 
+template = Path("./template.html")
+soup = bs4(template.read_text(), "html.parser")
+
+
+# se_epub = SeEpub(r".\books\spare-parts\lilbud_e-street-shuffle-spare-parts")
+
+
+# print(se_epub)
+
+# print(se_epub.generate_toc())
+
+
 if __name__ == "__main__":
     with load_db() as conn, conn.cursor() as cur:
-        soup = bs4("", "html.parser")
+        soup.title.string = "E Street Shuffle: Spare Parts"
 
-        if not soup.find("html"):
-            new_html = soup.new_tag("html", lang="en")
-            head = soup.new_tag("head")
-            meta = soup.new_tag("meta", charset="UTF-8")
-            title = soup.new_tag("title")
-            title.string = "E Street Shuffle: Spare Parts"
-            head.append(meta)
-            head.append(title)
-            body = soup.new_tag("body")
-            new_html.append(head)
+        meta_description_tag = soup.find("meta", attrs={"name": "description"})
+
+        if meta_description_tag:
+            meta_description_tag["content"] = (
+                "Posts from the E Street Shuffle 'Spare Parts' category."
+            )
+
+        body = soup.find("body")
 
         posts = [
             "37fb361f-23aa-4134-85c1-795590c7565f",
@@ -71,28 +85,26 @@ if __name__ == "__main__":
 
                 post_title = soup.new_tag("h2")
                 post_title.string = res["title"]
+                post_title["epub:type"] = "title"
 
-                post_meta = soup.new_tag("div")
-                post_published = soup.new_tag("h3")
+                post_published = soup.new_tag("span")
 
                 post_published.string = (
                     f"Originally Published: {res['published'].strftime('%B %d, %Y')}"
                 )
 
-                post_meta.append(post_published)
-
+                body.append(Comment("se:split"))
                 body.append(post_title)
-                body.append(post_meta)
+                body.append(post_published)
 
-                for element in list(content.find("body").contents):
-                    # if element.string:
-                    #     element.string = element.string.strip()
+                for element in content.find("body").find_all(True, recursive=True):
+                    if "style" in element.attrs:
+                        del element.attrs["style"]
 
+                for element in content.find("body").contents:
                     body.append(element)
 
-        new_html.append(body)
-        soup.append(new_html)
-
-        with Path("./books/spare-parts/test.html").open("w", encoding="utf-8") as f:
-            f.write("<!DOCTYPE html>\n")
-            f.write(str(soup))
+        with Path(
+            r".\books\\spare-parts\\lilbud_e-street-shuffle-spare-parts\\src\\epub\text\body.xhtml",
+        ).open("w", encoding="utf-8") as f:
+            f.write(str(soup.find("body").decode_contents()))

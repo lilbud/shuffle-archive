@@ -47,7 +47,7 @@ def insert_post(data: dict, cur: psycopg.Cursor, conn: psycopg.Connection) -> No
 
     content = initial_cleanup(data["content"]["rendered"])
 
-    excerpt = data["excerpt"]["rendered"]
+    excerpt = html_to_markdown(data["excerpt"]["rendered"])
 
     # the only author on the site is Ken, so no point in querying with only one result.
     author = "c8f4a2a5-a55d-4ef7-82d3-d59a8940c107"
