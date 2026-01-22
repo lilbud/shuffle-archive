@@ -48,8 +48,13 @@ def archive_posts(cur: psycopg.Cursor) -> None:
 
         template.title.string = post["title"]
 
-        for item in soup.contents:
-            body.append(item)
+        for item in soup.find_all(True):
+            if item.name == "img":
+                container = soup.new_tag("p")
+                container.append(item)
+                body.append(item)
+            else:
+                body.append(item)
 
         if not Path(save_path, "meta.json").exists():
             with Path(f"./posts_json/{post_id}_{last_modified}.json").open(

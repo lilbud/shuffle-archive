@@ -6,12 +6,14 @@ from pathlib import Path
 import ftfy
 import html_to_markdown
 import httpx
+import markdown
 import regex
 import se
 import slugify
 import tidy
 from bs4 import BeautifulSoup as bs4
 from bs4 import Comment
+from minify_html import minify
 from se import formatting
 from se.se_epub import SeEpub
 
@@ -81,7 +83,11 @@ if __name__ == "__main__":
 
             if html:
                 print(html)
-                content = bs4(html.read_text(encoding="utf-8"), "lxml")
+
+                content = html.read_text(encoding="utf-8")
+                content = initial_cleanup(content)
+
+                content = bs4(content, "lxml")
 
                 post_title = soup.new_tag("h2")
                 post_title.string = res["title"]
@@ -97,14 +103,14 @@ if __name__ == "__main__":
                 body.append(post_title)
                 body.append(post_published)
 
-                for element in content.find("body").find_all(True, recursive=True):
-                    if "style" in element.attrs:
-                        del element.attrs["style"]
-
                 for element in content.find("body").contents:
                     body.append(element)
 
         with Path(
             r".\books\\spare-parts\\lilbud_e-street-shuffle-spare-parts\\src\\epub\text\body.xhtml",
         ).open("w", encoding="utf-8") as f:
-            f.write(str(soup.find("body").decode_contents()))
+            content = str(soup.find("body"))
+
+            content = re.sub("(\r?\n){2,}", "\n", content)
+
+            f.write(content)

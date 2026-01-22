@@ -4,6 +4,7 @@ import time
 from pathlib import Path
 
 import ftfy
+import html_to_markdown
 import httpx
 import psycopg
 from user_agent import generate_user_agent
@@ -275,7 +276,7 @@ def get_comments():
 
 
 # if __name__ == "__main__":
-#     with load_db() as conn, conn.cursor() as cur:
+    # with load_db() as conn, conn.cursor() as cur:
 # print("Grabbing newest posts.")
 # get_newest_posts(cur, conn)
 

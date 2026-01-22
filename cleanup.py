@@ -85,13 +85,16 @@ def initial_cleanup(orig_content: str) -> str:
     Apply a few fixes for missing tags, replace some links.
     """
     # multiple new line replace
-    orig_content = re.sub("(\r?\n){2}", "<p></p>", orig_content)
+    orig_content = re.sub("(\r?\n){2,}", "", orig_content)
 
     # Replace <p> tag with space with closed tag.
     orig_content = re.sub(r"<p>\s+</p>", "<p></p>", orig_content)
 
     # replace empty line
     orig_content = re.sub(r"^$", "", orig_content)
+
+    # add break after H element
+    orig_content = re.sub(r"(</h\d>)", r"\1\n", orig_content)
 
     # replace http with https
     orig_content = re.sub("http:", "https:", orig_content)
@@ -101,17 +104,28 @@ def initial_cleanup(orig_content: str) -> str:
     # fix iframes having embed links instead of direct
     soup = video_fixes(soup)
 
+    # image fixes
     for img in soup.find_all("img"):
-        container = soup.new_tag("p")
-
         # remove wordpress CDN from images, change to direct link
         if img.get("data-orig-file"):
             img["src"] = re.sub(r"i\d.wp.com/|\?.*", "", img["data-orig-file"])
         else:
             img["src"] = re.sub(r"i\d.wp.com/|\?.*", "", img["src"])
 
+        # assign uploaded image id to item id attribute
         if img.get("data-attachment-id"):
-            img["id"] = img.get("data-attachment-id")
+            img["id"] = f"image-{img.get('data-attachment-id')}"
+
+        # remove id if empty
+        if img.get("id") == "":
+            del img.attrs["id"]
+
+        # assign height and width if either is missing
+        if not img.get("height"):
+            img["height"] = "auto"
+
+        if not img.get("width"):
+            img["width"] = "auto"
 
         # remove wordpress data attributes
         attrs_to_del = [attr for attr in img.attrs if attr.startswith("data-")]
@@ -123,9 +137,8 @@ def initial_cleanup(orig_content: str) -> str:
         for attr in extra_attrs:
             del img[attr]
 
-    # Remove empty tags
-    for p in soup.find_all("p"):
-        if not p.get_text(strip=True) and not p.find("img"):
-            p.decompose()
+    for element in soup.find_all(recursive=True):
+        if element.get("id") == "":
+            del element.attrs["id"]
 
-    return str(soup.body.decode_contents())
+    return str(soup)
