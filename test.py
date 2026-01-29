@@ -103,6 +103,10 @@ if __name__ == "__main__":
                 body.append(post_title)
                 body.append(post_published)
 
+                for element in content.find_all():
+                    if element.name == "a" and "estreetshuffle" in element.get("href"):
+                        element.unwrap()
+
                 for element in content.find("body").contents:
                     body.append(element)
 

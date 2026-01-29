@@ -38,4 +38,4 @@ notes/booktest/
 *.zip
 
 # books folder, contains tests of standard toolset
-books/
+books/*
