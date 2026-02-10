@@ -8,7 +8,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2023/10/Intelligencer_Journal_1974_10_26_page_7.jpg)
 
-**1976:** Bruce’s second ever show at the Philadelphia Spectrum features a unique “[Something in the Night,](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” with a new last verse that is never heard again.
+**1976:** Bruce's second ever show at the Philadelphia Spectrum features a unique "[Something in the Night,](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)" with a new last verse that is never heard again.
 
 [Watch on Youtube: Bruce Springsteen - Something in the Night 76](https://www.youtube.com/watch?v=mzDqyQhidyA)
 
@@ -16,7 +16,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/1976-10-27.png)
 
-**1977:** At The Record Plant in New York City, Bruce records “[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)” and “[Preacher’s Daughter.](https://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)” The former will not be released for more than two decades; the latter remains in the vault to this day.
+**1977:** At The Record Plant in New York City, Bruce records "[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)" and "[Preacher's Daughter.](https://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)" The former will not be released for more than two decades; the latter remains in the vault to this day.
 
 [Watch on Youtube: Iceman (Studio Outtake - 1977)](https://www.youtube.com/watch?v=38uXE7CPDYY)
 
@@ -28,7 +28,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/10/46735344874_c8e2fd32b2_o.jpg)
 
-**1983:** At The Hit Factory in New York City, Bruce and the E Street Band record “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/).”
+**1983:** At The Hit Factory in New York City, Bruce and the E Street Band record "[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)."
 
 [Watch on Youtube: No Surrender](https://www.youtube.com/watch?v=txKhQ9cbhgo)
 
@@ -42,7 +42,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1996-10-27c.png)
 
-**1998:** Bruce grants an interview for BBC’s *A Secret History* documentary and performs a couple of songs for the show at The Saint in Asbury Park. The documentary will air in December to promote the upcoming *Tracks* collection.
+**1998:** Bruce grants an interview for BBC's *A Secret History* documentary and performs a couple of songs for the show at The Saint in Asbury Park. The documentary will air in December to promote the upcoming *Tracks* collection.
 
 [Watch Video Highlight](https://videopress.com/embed/3Q8W4UOi)
 
@@ -58,7 +58,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2002-10-27.png)
 
-**2012:** Bruce performs an acoustic set at a re-election rally for President Obama at Soldiers & Sailors Memorial Hall in Pittsburgh. Later that night, he tour premieres “[Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)” followed by a rare “[Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)” at his Wrecking Ball show at the Consol Arena. Joe and Johnny Grushecky guest-star during the encores.
+**2012:** Bruce performs an acoustic set at a re-election rally for President Obama at Soldiers & Sailors Memorial Hall in Pittsburgh. Later that night, he tour premieres "[Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)" followed by a rare "[Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)" at his Wrecking Ball show at the Consol Arena. Joe and Johnny Grushecky guest-star during the encores.
 
 [Watch on Youtube: Bruce Springsteen "No Surrender" Obama Rally Pittsburgh 10-27-2012](https://www.youtube.com/watch?v=axnr88woH6A)
 

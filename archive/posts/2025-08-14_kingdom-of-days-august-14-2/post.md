@@ -1,12 +1,12 @@
 ***New for 2025:** Audio for 1985; new entry for 2004*
 
-**1966:** The Castiles (along with Steve Van Zandt’s band, The Shadows) play the Surf ‘n’ See Club in Sea Bright, New Jersey.
+**1966:** The Castiles (along with Steve Van Zandt's band, The Shadows) play the Surf 'n' See Club in Sea Bright, New Jersey.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/08/1966-0814.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/08/1966-08-14.jpg)
 
-**1970:** Steel Mill plays an outdoor show under the stars, on the parking deck at 7th and Marshall Streets in Richmond. Mercy Flight, a local band that includes future Steel Mill bandmate Robbin Thompson, plays just before Steel Mill, impressing Bruce enough that he will shortly extend Robbin an offer to join Steel Mill. Audio circulates of this show, including “[The War is Over](https://estreetshuffle.com/index.php/2019/03/23/roll-of-the-dice-the-war-is-over/)” and rare instrumental performances of “[Sherlock Goes Home](https://estreetshuffle.com/index.php/2018/09/21/roll-of-the-dice-sherlock-goes-holmes/)” and “[KT-88](https://estreetshuffle.com/index.php/2018/03/12/roll-of-the-dice-kt-88/).” Check out a great retrospective of this show [here](https://richmond.com/entertainment/music/lohmann-50-years-ago-springsteens-band-steel-mill-headlined-a-concert-atop-a-richmond-parking/article_0c3ad978-a46b-5910-93d4-b22dd8b6dcb6.html),
+**1970:** Steel Mill plays an outdoor show under the stars, on the parking deck at 7th and Marshall Streets in Richmond. Mercy Flight, a local band that includes future Steel Mill bandmate Robbin Thompson, plays just before Steel Mill, impressing Bruce enough that he will shortly extend Robbin an offer to join Steel Mill. Audio circulates of this show, including "[The War is Over](https://estreetshuffle.com/index.php/2019/03/23/roll-of-the-dice-the-war-is-over/)" and rare instrumental performances of "[Sherlock Goes Home](https://estreetshuffle.com/index.php/2018/09/21/roll-of-the-dice-sherlock-goes-holmes/)" and "[KT-88](https://estreetshuffle.com/index.php/2018/03/12/roll-of-the-dice-kt-88/)." Check out a great retrospective of this show [here](https://richmond.com/entertainment/music/lohmann-50-years-ago-springsteens-band-steel-mill-headlined-a-concert-atop-a-richmond-parking/article_0c3ad978-a46b-5910-93d4-b22dd8b6dcb6.html),
 
 [Watch on Youtube: Bruce Springsteen's band Steel Mill performs "Come On"; 8-14-70](https://www.youtube.com/watch?v=7-AMJV5EDRI)
 
@@ -14,11 +14,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/08/1970-08-14.jpg)
 
-**1972:** Bruce plays his third of six two-shows-a-night solo gigs at Max’s Kansas City that week.
+**1972:** Bruce plays his third of six two-shows-a-night solo gigs at Max's Kansas City that week.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11-1.jpg)
 
-**1973:** Bruce and the E Street Band play Uncle Al’s Erlton Theater Lounge in Cherry Hill, New Jersey. Why was Bruce’s name so hard to spell correctly during these years?
+**1973:** Bruce and the E Street Band play Uncle Al's Erlton Theater Lounge in Cherry Hill, New Jersey. Why was Bruce's name so hard to spell correctly during these years?
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/08/1973-0814.jpg)
 
@@ -32,13 +32,13 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/08/1974-08-14.jpg)
 
-**1975:** Bruce’s legendary Bottom Line stand continues with a second night of two shows.
+**1975:** Bruce's legendary Bottom Line stand continues with a second night of two shows.
 
 [Watch on Youtube: New York 14/08/1975](https://www.youtube.com/playlist?list=PLJTyL9twk3zCbJCnCimF1D6g8Y00aaUtv)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1975-08-14.png)
 
-**1978:** The Darkness Tour descends on the Hampton Roads Coliseum in Hampton, Virginia, where Bruce opens with his live debut cover of “[High School Confidential](https://estreetshuffle.com/index.php/2020/05/04/cover-me-high-school-confidential/).”
+**1978:** The Darkness Tour descends on the Hampton Roads Coliseum in Hampton, Virginia, where Bruce opens with his live debut cover of "[High School Confidential](https://estreetshuffle.com/index.php/2020/05/04/cover-me-high-school-confidential/)."
 
 [Watch Video Highlight](https://videopress.com/embed/yodpb4X6)
 
@@ -50,11 +50,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/08/1983-0814.jpg)
 
-**1985:** In the U.S., there’s arguably no city more fervent in their Bruce fandom than Philadelphia. Bruce and the band play their first of two shows at Veterans Stadium today, and anticipation has been high since the moment tickets went on-sale:
+**1985:** In the U.S., there's arguably no city more fervent in their Bruce fandom than Philadelphia. Bruce and the band play their first of two shows at Veterans Stadium today, and anticipation has been high since the moment tickets went on-sale:
 
 [Watch on Youtube: Bruce Springsteen - Philly ticket onsale for 8/14/85 show](https://www.youtube.com/watch?v=vnhG9efJc_Q)
 
-The show itself is a scorcher–literally, with the temperature topping 100 degrees–and it’s captured on video for bootleg posterity.
+The show itself is a scorcher–literally, with the temperature topping 100 degrees–and it's captured on video for bootleg posterity.
 
 [Watch Video Highlight](https://videopress.com/embed/yyrK9G4Q)
 
@@ -66,7 +66,7 @@ The show itself is a scorcher–literally, with the temperature topping 100 degr
 
 [Watch on Youtube: Philadelphia 14/08/1985](https://www.youtube.com/playlist?list=PLJTyL9twk3zByePnIHPj0gzfR8gjaiLYi)
 
-You’d be forgiven for thinking nothing else happened in the news today–here’s almost a half hour of newly uploaded news footage covering the event.
+You'd be forgiven for thinking nothing else happened in the news today–here's almost a half hour of newly uploaded news footage covering the event.
 
 [Watch on Youtube: Bruce Springsteen - Local News covers Philly shows - 1985-08-14](https://www.youtube.com/watch?v=BfvMvjikgJM)
 
@@ -80,7 +80,7 @@ You’d be forgiven for thinking nothing else happened in the news today–here�
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/08/The_Philadelphia_Inquirer_1985_08_16_Page_56.jpg)
 
-**1987:** Bruce joins The Fairlanes on-stage for four songs (including “[Savin’ Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)“) at The Deck House in Asbury Park.
+**1987:** Bruce joins The Fairlanes on-stage for four songs (including "[Savin' Up](https://estreetshuffle.com/index.php/2018/05/14/roll-of-the-dice-cover-me-clarence-clemons-savin-up/)") at The Deck House in Asbury Park.
 
 **1992:** Bruce and his new touring band play their second of two World Tour 1992 shows at the Centrum in Worcester. Watch the extensive news coverage below.
 
@@ -88,7 +88,7 @@ You’d be forgiven for thinking nothing else happened in the news today–here�
 
 [Watch Video Highlight](https://videopress.com/embed/1XXRtozr)
 
-**1995:** Bruce joins Ronnie Mack and the Barndance Band on stage at Jack’s Sugar Shack in Hollywood.
+**1995:** Bruce joins Ronnie Mack and the Barndance Band on stage at Jack's Sugar Shack in Hollywood.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/08/1995-08-14.jpg)
 
@@ -100,13 +100,13 @@ You’d be forgiven for thinking nothing else happened in the news today–here�
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-14.png)
 
-**2004:** Bruce attends Little Steven’s International Underground Garage Festival in New York City, He doesn’t perform, but he does introduce two bands, The Fuzztones and The Chesterfield Kings.
+**2004:** Bruce attends Little Steven's International Underground Garage Festival in New York City, He doesn't perform, but he does introduce two bands, The Fuzztones and The Chesterfield Kings.
 
 [Watch on Youtube: The Chesterfield Kings introduced by Springsteen 1](https://www.youtube.com/watch?v=9CdgAf-_MQU)
 
 [Watch on Youtube: Chesterfield Kings Festival: Short](https://www.youtube.com/watch?v=tTu4jTzl_pI)
 
-**2012:** Bruce and the E Street Band return to Boston’s Fenway Park to kick off the final American leg of the Wrecking Ball Tour. While Bruce tour premieres “[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)” mid-set and “[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)” in the encores, the set is otherwise fairly standard. The following night would more than make up for it. For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/08/14/where-the-band-was-boston-august-14-2012/)
+**2012:** Bruce and the E Street Band return to Boston's Fenway Park to kick off the final American leg of the Wrecking Ball Tour. While Bruce tour premieres "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)" mid-set and "[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)" in the encores, the set is otherwise fairly standard. The following night would more than make up for it. For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/08/14/where-the-band-was-boston-august-14-2012/)
 
 [Watch on Youtube: Wrecking Ball Tour Coming to Boston's Fenway Park on August 14](https://www.youtube.com/watch?v=-PW-ajAH9Ik)
 
@@ -120,7 +120,7 @@ You’d be forgiven for thinking nothing else happened in the news today–here�
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2020:** A special nocturnal-themed Episode 10 (“In Dreams”) of *From My Home to Yours* airs at midnight.
+**2020:** A special nocturnal-themed Episode 10 ("In Dreams") of *From My Home to Yours* airs at midnight.
 
 [https://estreetshuffle.com/wp-content/uploads/2021/08/2020-08-15-Bruce-E-Street-Radio-DJ-set-10.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2021/08/2020-08-15-Bruce-E-Street-Radio-DJ-set-10.mp3?_=5)
 

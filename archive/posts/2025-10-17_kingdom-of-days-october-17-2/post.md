@@ -10,19 +10,17 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1971-1017.jpg)
 
-**1973:** Bruce and the E Street Band play their third of five nights at Oliver’s in Boston.
+**1973:** Bruce and the E Street Band play their third of five nights at Oliver's in Boston.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/10/1973-1016.jpg)
 
-**1974:** Bruce and the E Street Band work on “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” during a recording session at 914 Sound Studios in Blauvelt, New York.
+**1974:** Bruce and the E Street Band work on "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" during a recording session at 914 Sound Studios in Blauvelt, New York.
 
 **1975:** Bruce and the E Street Band play two shows at the Roxy in West Hollywood, the first of which is broadcast live on the radio.
 
 [Watch on Youtube: Bruce Springsteen Live Concert - The Roxy 10/17/75](https://www.youtube.com/watch?v=Lg01I4qSQf4)
 
 [https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3?_=16](https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3?_=16)
-
-<https://estreetshuffle.com/wp-content/uploads/2024/10/04-Its-Gonna-Work-Out-Fine__Merged.mp3>
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/10/47753636752_5d704a5bfc_o.jpg)
 
@@ -32,7 +30,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/10/1976-1017.jpg)
 
-**1978:** Bruce makes a guest appearance with The Knack at their show at the Troubadour in West Hollywood, where they jam to “Mona” into “[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/).”
+**1978:** Bruce makes a guest appearance with The Knack at their show at the Troubadour in West Hollywood, where they jam to "Mona" into "[Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)."
 
 [Watch on Youtube: Bruce Springsteen and The Knack, "Mona/Not Fade Away" - 1978-10-17](https://www.youtube.com/watch?v=2mn9G4zdRQ0)
 
@@ -60,7 +58,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17b.png)
 
-**1992:** World Tour 1992 continues its Canadian leg with a show at the Olympic Saddledome in Calgary, Bruce’s first-ever show in Alberta.
+**1992:** World Tour 1992 continues its Canadian leg with a show at the Olympic Saddledome in Calgary, Bruce's first-ever show in Alberta.
 
 [Watch Video Highlight](https://videopress.com/embed/6SNwRz24)
 
@@ -72,7 +70,7 @@
 
 [Watch on Youtube: Born In The U.S.A.](https://www.youtube.com/playlist?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1995:** Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushecky at The Stone Pony for the kick-off of a mini-tour in support of [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/), Joe’s new Bruce-produced album released earlier today.
+**1995:** Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushecky at The Stone Pony for the kick-off of a mini-tour in support of [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/), Joe's new Bruce-produced album released earlier today.
 
 [Watch on Youtube: Bruce Springsteen - Down The Road Apiece (audio)](https://www.youtube.com/watch?v=k3hhViVRpf0)
 
@@ -82,7 +80,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17c.png)
 
-**1996:** Bruce plays the second of two solo acoustic Ghost of Tom Joad Tour shows at Denver’s Paramount Theater.
+**1996:** Bruce plays the second of two solo acoustic Ghost of Tom Joad Tour shows at Denver's Paramount Theater.
 
 [Watch Video Highlight](https://videopress.com/embed/0padY2o4)
 
@@ -98,7 +96,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/10/1999-1017.jpg)
 
-**2005:** Bruce straps on an electric guitar for a change, when he takes a short break from his solo acoustic tour to join U2 on stage (along with Patti) for “[People Get Ready](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)” at the Wachovia Center in Philadelphia.
+**2005:** Bruce straps on an electric guitar for a change, when he takes a short break from his solo acoustic tour to join U2 on stage (along with Patti) for "[People Get Ready](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)" at the Wachovia Center in Philadelphia.
 
 [Watch Video Highlight](https://videopress.com/embed/Ds6Exsh4)
 
@@ -128,7 +126,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2021:** Bruce and Little Steven hold court at Asbury Lanes as a promotional event for *Unrequited Infatuations*, Steven’s autobiography, and as a benefit for TeachRock. Jon Stewart, Jon Landau, Nona Hendryx, Steve Buscemi, and Richie Sambora appear as panelists before the main event.
+**2021:** Bruce and Little Steven hold court at Asbury Lanes as a promotional event for *Unrequited Infatuations*, Steven's autobiography, and as a benefit for TeachRock. Jon Stewart, Jon Landau, Nona Hendryx, Steve Buscemi, and Richie Sambora appear as panelists before the main event.
 
 [Watch on Youtube: Stevie Van Zandt & Bruce Springsteen - Between the Lines (Trailer)](https://www.youtube.com/watch?v=5G8dvv_sHqs)
 

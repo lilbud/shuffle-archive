@@ -1,10 +1,10 @@
 ***New for 2025:** No updates*
 
-**1969:** Child, Bruce’s new band, performs at Pandemonium in Wanamassa, New Jersey.
+**1969:** Child, Bruce's new band, performs at Pandemonium in Wanamassa, New Jersey.
 
 **1971:** Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
 
-**1973:** Night Two of seven at Oliver’s in Boston.
+**1973:** Night Two of seven at Oliver's in Boston.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1.jpg)
 
@@ -40,9 +40,9 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/2000-03-13-rotated.jpg)
 
-**2006:** Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park’s Paramount Theater.
+**2006:** Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park's Paramount Theater.
 
-**2009**: The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg’s benefit.
+**2009**: The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg's benefit.
 
 **2016:** The River Tour (2016 Edition) moves on to the Oracle Arena in Oakland. For highlights, see my [*Where the Band Was*](https://estreetshuffle.com/index.php/2018/03/13/where-the-band-was-oakland-march-13-2016/) report for that show.
 

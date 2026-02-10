@@ -4,23 +4,23 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1970-0328.jpg)
 
-**1976:** Bruce and the E Street Band play a gig at Duke University, where “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)” makes its proper live debut.
+**1976:** Bruce and the E Street Band play a gig at Duke University, where "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)" makes its proper live debut.
 
 [Watch on Youtube: Bruce Springsteen - 1976-03-28 Cameron Indoor Stadium, Durham, NC](https://www.youtube.com/watch?v=5oWCb3rgJHA)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1976-03-28.jpg)
 
-**1979:** Three Mile Island nuclear power plant partially melts down in Pennsylvania. The incident inspires Bruce to write “[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/).”
+**1979:** Three Mile Island nuclear power plant partially melts down in Pennsylvania. The incident inspires Bruce to write "[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)."
 
 **1981:** Bruce postpones a show in Birmingham to recover from the previous leg of the River Tour.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
 
-**1985:** At their fifth and final night in Sydney on the Born in the U.S.A. Tour, Bruce and the E Street Band play “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/).” It will be a full twenty-five years before anyone hears the E Street Band perform it again.
+**1985:** At their fifth and final night in Sydney on the Born in the U.S.A. Tour, Bruce and the E Street Band play "[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)." It will be a full twenty-five years before anyone hears the E Street Band perform it again.
 
 [Watch Video Highlight](https://videopress.com/embed/Wk0wuyNr)
 
-**1988:** A rather significant show from the Tunnel of Love Express Tour in Detroit–the live recording of “[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)” that appears on *Chimes of Freedom* hails from this date. Also, *Inside the Tunnel of Love*, an MTV special, will air late this year, featuring footage from this night. The entire show is available as part of Bruce’s official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24299/bruce-springsteen-the-e-street-band-joe-louis-arena-detroit-mi-03-28-1988-mp3-flac-or-online-music-streaming.html). Backstage before the show, Bruce meets Gino Washington, the original recording artist for “Gino is a Coward,” for the first time. (Bruce has been covering Gino’s song in a transformed version called “[I’m a Coward](https://estreetshuffle.com/index.php/2018/01/16/roll-of-the-dice-cover-me-im-a-coward/)” nightly.)
+**1988:** A rather significant show from the Tunnel of Love Express Tour in Detroit–the live recording of "[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)" that appears on *Chimes of Freedom* hails from this date. Also, *Inside the Tunnel of Love*, an MTV special, will air late this year, featuring footage from this night. The entire show is available as part of Bruce's official archive series–get it [here](https://live.brucespringsteen.net/live-music/0,24299/bruce-springsteen-the-e-street-band-joe-louis-arena-detroit-mi-03-28-1988-mp3-flac-or-online-music-streaming.html). Backstage before the show, Bruce meets Gino Washington, the original recording artist for "Gino is a Coward," for the first time. (Bruce has been covering Gino's song in a transformed version called "[I'm a Coward](https://estreetshuffle.com/index.php/2018/01/16/roll-of-the-dice-cover-me-im-a-coward/)" nightly.)
 
 [Watch on Youtube: Be True (Live at Joe Louis Arena, Detroit, MI - March 1988)](https://www.youtube.com/watch?v=oNjm71mWGpc)
 
@@ -40,7 +40,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/03/1988-03-28a.jpg)
 
-**2003:** Bruce and the E Street Band play their first-ever show in New Zealand at the Western Springs Stadium in Auckland, where he tour premieres “[Who’ll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/).”
+**2003:** Bruce and the E Street Band play their first-ever show in New Zealand at the Western Springs Stadium in Auckland, where he tour premieres "[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)."
 
 **2008:** The Magic Tour begins its Pacific Northwest swing with a show at the Rose Garden in Portland. For more highlights, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/03/28/where-the-band-was-portland-march-28-2008/) from this show.
 
@@ -50,7 +50,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg)
 
-**2012:** At the first of two nights at the Wells Fargo Center in Philadelphia, “[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)” makes a very rare appearance.
+**2012:** At the first of two nights at the Wells Fargo Center in Philadelphia, "[Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)" makes a very rare appearance.
 
 [Watch Video Highlight](https://videopress.com/embed/xaRe5dtt)
 
@@ -60,7 +60,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/03/2012-03-28-scaled.jpg)
 
-**2016:** At Madison Square Garden in NYC, Bruce breaks out the tour premiere of “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” with its classic segue into “Jungleland” in the post-album set.
+**2016:** At Madison Square Garden in NYC, Bruce breaks out the tour premiere of "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)" with its classic segue into "Jungleland" in the post-album set.
 
 [Watch on Youtube: Bruce Springsteen Meet Me in the City New York MSG 2016](https://www.youtube.com/watch?v=HHcf30KilOI)
 
@@ -72,7 +72,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/03/bloomberg.jpg)
 
-**2024:** Bruce and the E Street Band return to San Francisco after more than two decades away, opening the show with “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)” for the first time in 47 years.
+**2024:** Bruce and the E Street Band return to San Francisco after more than two decades away, opening the show with "[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)" for the first time in 47 years.
 
 [Watch on Youtube: Something in the Night / Lonesome Day - Bruce Springsteen & ESB (live at SF 3/28/2024)](https://www.youtube.com/watch?v=aDptrfS-xP4)
 

@@ -8,9 +8,9 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/01/bobbywilliams.jpg)
 
-**1972:** The Bruce Springsteen Band continues a three-night gig at The Captain’s Garter in Neptune, New Jersey.
+**1972:** The Bruce Springsteen Band continues a three-night gig at The Captain's Garter in Neptune, New Jersey.
 
-**1974:** Bruce and the band open for Freddie King at Muther’s Music Emporium in Nashville. Intended as an unofficial promotional opportunity co-located with a CBS Sales Convention, Mike Appel is unable to drum up the attendance he’d hoped for, and the theater is quite empty–but the show is recorded from the soundboard nonetheless. Listen to the unusual arrangement of “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)” below.
+**1974:** Bruce and the band open for Freddie King at Muther's Music Emporium in Nashville. Intended as an unofficial promotional opportunity co-located with a CBS Sales Convention, Mike Appel is unable to drum up the attendance he'd hoped for, and the theater is quite empty–but the show is recorded from the soundboard nonetheless. Listen to the unusual arrangement of "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)" below.
 
 [Watch on Youtube: Bruce Springsteen - INCIDENT ON 57TH STREET 1974 (audio)](https://www.youtube.com/watch?v=vi3gv3GLZ3s)
 
@@ -28,7 +28,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/01/1981-01-29a.jpg)
 
-**1991:** Bruce records “[Goin’ Cali](https://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/)” at A&M Studios in Los Angeles. It will be released seven years later on *Tracks*.
+**1991:** Bruce records "[Goin' Cali](https://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/)" at A&M Studios in Los Angeles. It will be released seven years later on *Tracks*.
 
 [Watch on Youtube: Goin' Cali (Studio Outtake - 1991)](https://www.youtube.com/watch?v=hSwtuwgZ9J4)
 
@@ -40,19 +40,19 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_1998_01_30_Page_2.jpg)
 
-**2009:** Bruce and the E Street Band hold a press conference (Bruce’s first in over twenty years) and a dress rehearsal for their upcoming Super Bowl performance.
+**2009:** Bruce and the E Street Band hold a press conference (Bruce's first in over twenty years) and a dress rehearsal for their upcoming Super Bowl performance.
 
 [Watch on Youtube: Bruce Springsteen taking Viagra](https://www.youtube.com/watch?v=b5-nERmAwo8)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/Pittsburgh_Post_Gazette_2009_01_30_Page_48.jpg)
 
-**2011:** Bruce plays a benefit for his kids’ school at The Stone Pony in Asbury Park, joined by Bobby Bandiera, Max Weinberg, and Southside Johnny.
+**2011:** Bruce plays a benefit for his kids' school at The Stone Pony in Asbury Park, joined by Bobby Bandiera, Max Weinberg, and Southside Johnny.
 
 [Watch on Youtube: BRUCE SPRINSTEEN @THE STONE PONY from the stage.](https://www.youtube.com/watch?v=6V07k6CHBHA)
 
 [Watch on Youtube: Bruce stone pony 1/30/2011](https://www.youtube.com/watch?v=l7420VsTrPU)
 
-**2014:** The final night in Cape Town brings *sixteen* tour premieres, including the first-ever performance of “[This Is Your Sword.](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)” Mos Def guest-stars in the encore for “Sun City.”
+**2014:** The final night in Cape Town brings *sixteen* tour premieres, including the first-ever performance of "[This Is Your Sword.](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)" Mos Def guest-stars in the encore for "Sun City."
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/01/2014-0129.jpg)
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: 2014-01-29 - Bruce Springsteen - Cape Town Bellville Velodrome - Thunder Road - HD](https://www.youtube.com/watch?v=bWMS6wt_A5I)
 
-Also today: Le Grand Journal publishes Antoine de Caunes’ interview with Bruce.
+Also today: Le Grand Journal publishes Antoine de Caunes' interview with Bruce.
 
 [Watch on Youtube: Bruce Springsteen, l'interview - Le Grand Journal](https://www.youtube.com/watch?v=js0SOEnIOlw)
 

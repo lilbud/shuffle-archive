@@ -6,60 +6,60 @@ In 1993, Bruce Springsteen had just finished a year-long world tour with his new
 
 It was a good time for a friend to ask him for a favor, and Joe Grushecky needed a favor.
 
-In 1993, Joe was at a career nadir. Financially struggling and creatively blocked, Joe was working constantly and unable to see a path forward to a new album. At his wife’s suggestion, he called Bruce and asked him if he could help jumpstart a new record by recording a couple of songs with him.
+In 1993, Joe was at a career nadir. Financially struggling and creatively blocked, Joe was working constantly and unable to see a path forward to a new album. At his wife's suggestion, he called Bruce and asked him if he could help jumpstart a new record by recording a couple of songs with him.
 
-As a good friend would, Bruce said yes. Over the next year and a half, those couple of songs developed into a full album: Joe’s 1995 Bruce-produced masterpiece, *American Babylon,* featuring two songs co-written by Bruce and an album full of standout tracks.
+As a good friend would, Bruce said yes. Over the next year and a half, those couple of songs developed into a full album: Joe's 1995 Bruce-produced masterpiece, *American Babylon,* featuring two songs co-written by Bruce and an album full of standout tracks.
 
 *American Babylon* turns 25 today, and in anticipation of the milestone Joe and I sat down a couple of months ago to take a look back at the making and meaning of his landmark album. While some of this story has been told before, Joe shared new detail and revelations that are sure to raise the eyebrows of both Grushecky and Springsteen fans alike.
 
-I originally planned to feature excerpts from the interview in a retrospective essay, but our conversation proved too rich and illuminating to cut any of it. So without further ado, let’s take a trip back to *American Babylon* with Joe Grushecky.
+I originally planned to feature excerpts from the interview in a retrospective essay, but our conversation proved too rich and illuminating to cut any of it. So without further ado, let's take a trip back to *American Babylon* with Joe Grushecky.
 
 ---
 
 
-**Ken: First of all, Joe, thanks for making time to talk. I’ve been looking forward to this conversation for a long time. I’m a big fan of your music, but *American Babylon* has a special place for me. It’s not only my favorite of your albums, it’s my favorite album that came out that year. It’s probably one of my favorite albums of that entire decade, and since I don’t really get a chance very often to say to an artist how much I appreciate their work, I just want to thank you for that.**
+**Ken: First of all, Joe, thanks for making time to talk. I've been looking forward to this conversation for a long time. I'm a big fan of your music, but *American Babylon* has a special place for me. It's not only my favorite of your albums, it's my favorite album that came out that year. It's probably one of my favorite albums of that entire decade, and since I don't really get a chance very often to say to an artist how much I appreciate their work, I just want to thank you for that.**
 
-Joe: Oh, I’m glad you liked it!
+Joe: Oh, I'm glad you liked it!
 
-**I’m a big fan. So I’m curious: where does *American Babylon* rank in *your* perception of your catalog?**
+**I'm a big fan. So I'm curious: where does *American Babylon* rank in *your* perception of your catalog?**
 
-It’s near the top. I mean, there was [*Have a Good Time But Get Out Alive*](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/), the 40th anniversary edition that we’re promoting now. That was the record that… my life began to change with *Love’s So Tough*, but it *really* hit a different level with *Have a Good Time But Get Out Alive.*
+It's near the top. I mean, there was [*Have a Good Time But Get Out Alive*](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/), the 40th anniversary edition that we're promoting now. That was the record that... my life began to change with *Love's So Tough*, but it *really* hit a different level with *Have a Good Time But Get Out Alive.*
 
 [Watch on Youtube: Have a Good Time but... Get out Alive](https://www.youtube.com/playlist?list=OLAK5uy_m8XucNiryNwVfJUu1EI206RMqA_KaLTK8)
 
-But when I made *American Babylon*, I was down about as far as you could go. I mean *nothing* was going right. We couldn’t get an agent. We had put out several good records in a row and nothing happened. Nobody was interested in anything that I was doing, and I was working like crazy. I was playing at least two nights a week, sometimes three. I had a day gig working with these really poorly behaved kids, and then I was teaching GED at night. So I basically was working myself to death.
+But when I made *American Babylon*, I was down about as far as you could go. I mean *nothing* was going right. We couldn't get an agent. We had put out several good records in a row and nothing happened. Nobody was interested in anything that I was doing, and I was working like crazy. I was playing at least two nights a week, sometimes three. I had a day gig working with these really poorly behaved kids, and then I was teaching GED at night. So I basically was working myself to death.
 
-*American Babylon* changed things for me in a good way, sort of beginning of an uphill climb again. I was very thankful–I don’t know what I’d have done without that record. I mean I’d have kept on making music, but it got us a lot of attention again.
+*American Babylon* changed things for me in a good way, sort of beginning of an uphill climb again. I was very thankful–I don't know what I'd have done without that record. I mean I'd have kept on making music, but it got us a lot of attention again.
 
-It also cemented my relationship with Bruce. We’ve been really good friends ever since.
+It also cemented my relationship with Bruce. We've been really good friends ever since.
 
-**There’s a lot of questions I want to ask you about the album and the songs themselves, but since you just brought him up, I’m curious: you’ve known Bruce a long time, well before *American Babylon*. I’ve read different accounts of how you guys first met.**
+**There's a lot of questions I want to ask you about the album and the songs themselves, but since you just brought him up, I'm curious: you've known Bruce a long time, well before *American Babylon*. I've read different accounts of how you guys first met.**
 
 Well, Steven [Van Zandt] worked on *Have a Good Time But Get Out Alive*. I probably told you that before.
 
 **Yeah. So it was back on the recording of that.**
 
-Yeah. And Steve would work with us during the day and then go down and work with Bruce at the Power Station later. I can remember him telling us, “Bruce would really like this record. I’ve been telling Bruce about this record. He’d really like your band.”
+Yeah. And Steve would work with us during the day and then go down and work with Bruce at the Power Station later. I can remember him telling us, "Bruce would really like this record. I've been telling Bruce about this record. He'd really like your band."
 
-After the initial tracks were done, we took about a two-to-three week break, and then I came back on my own to do overdubs, do some singing, and mixed the record with Mick Ronson and Ian Hunter. Mick was working with Meat Loaf on a follow-up to *Bat Out of Hell*. And one night when I got to New York, I called Mick, and he said “oh yeah, come down.”
+After the initial tracks were done, we took about a two-to-three week break, and then I came back on my own to do overdubs, do some singing, and mixed the record with Mick Ronson and Ian Hunter. Mick was working with Meat Loaf on a follow-up to *Bat Out of Hell*. And one night when I got to New York, I called Mick, and he said "oh yeah, come down."
 
-He was working at the Power Station, and they just had a phenomenal band: Max, Garry, Nicky Hopkins, Davey Johnstone from Elton John’s band, and Mick Ronson playing guitar. They were cutting tracks with that band, and I was hanging in one room just meeting Mick, figuring out what we’re going to do the next day. And Steve and Bruce came up, and I had a short conversation with both of them, because they were working.
+He was working at the Power Station, and they just had a phenomenal band: Max, Garry, Nicky Hopkins, Davey Johnstone from Elton John's band, and Mick Ronson playing guitar. They were cutting tracks with that band, and I was hanging in one room just meeting Mick, figuring out what we're going to do the next day. And Steve and Bruce came up, and I had a short conversation with both of them, because they were working.
 
-That’s the first time I met Bruce. And I guess he just took a liking to that record. Then what really cemented it was one night in 1982, he came to see us play at Big Man’s West and sat in with us, and we went out after and basically hung out the whole night, and just… you know, why do you become friends with a person? We just hit it off. Same age, same influences, sort of same upbringing, real working-class families.
+That's the first time I met Bruce. And I guess he just took a liking to that record. Then what really cemented it was one night in 1982, he came to see us play at Big Man's West and sat in with us, and we went out after and basically hung out the whole night, and just... you know, why do you become friends with a person? We just hit it off. Same age, same influences, sort of same upbringing, real working-class families.
 
 [Watch Video Highlight](https://videopress.com/embed/vfcrn5r7)
 
 
 
-**Yeah. It’s easy to see. I mean, I don’t know Bruce, but just from what I know about you guys, I can see why you would click and become friends. It’s another thing, though, to collaborate the way you guys have. Bruce hasn’t really done that with that many people and certainly with no one outside of Steve to the extent that you guys have. I’d love to know a little bit more about your collaborating relationship. You guys wrote several songs together. How does that work?**
+**Yeah. It's easy to see. I mean, I don't know Bruce, but just from what I know about you guys, I can see why you would click and become friends. It's another thing, though, to collaborate the way you guys have. Bruce hasn't really done that with that many people and certainly with no one outside of Steve to the extent that you guys have. I'd love to know a little bit more about your collaborating relationship. You guys wrote several songs together. How does that work?**
 
-Well, the first one, I went out to Los Angeles. He invited me to Los Angeles, and we did “Chain Smokin’” and…
+Well, the first one, I went out to Los Angeles. He invited me to Los Angeles, and we did "Chain Smokin'" and...
 
-**“[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/),” right?**
+**"[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)," right?**
 
-Yeah. “Never Be Enough Time,” and I played him a bunch of other songs, but they weren’t very good. I mean, like I said: I was almost flatlined. I had “[Chain Smokin’,](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)” but the rest of the songs were very forgettable.
+Yeah. "Never Be Enough Time," and I played him a bunch of other songs, but they weren't very good. I mean, like I said: I was almost flatlined. I had "[Chain Smokin',](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)" but the rest of the songs were very forgettable.
 
-So when the sessions were coming to an end he said, “You know, you gotta write some better songs. The songs aren’t very good.” And he was right. They *weren’t* very good songs. He said, “You write so much better than this. These aren’t up to any kind of standard.” They were pretty lousy.
+So when the sessions were coming to an end he said, "You know, you gotta write some better songs. The songs aren't very good." And he was right. They *weren't* very good songs. He said, "You write so much better than this. These aren't up to any kind of standard." They were pretty lousy.
 
 As fate would have it, I came home and we played a gig somewhere, and one of my old-time fans came up, and he handed me a book called *Homestead*.
 
@@ -69,401 +69,401 @@ Yeah, he handed me a book called *Homestead*, and I start reading it. Especially
 
 With the Iron City Houserockers, we had helped establish the first food bank in America, for steel workers. I think it was the first one, and actually Dan Rather did a story on us on CBS News. And through the years, I had become friends with the people who we helped out. So I was familiar with some of the guys, this guy Ron Wyden and Jay Weinberg and Mike Stout. They were the real–almost radical–end of the steel workers, the real pro-union guys when the whole thing was collapsing.
 
-I read the book, and I think it mentioned Bruce. I’m sure it mentioned Bruce, because he became involved. It also mentioned us, it’s something we have in common.
+I read the book, and I think it mentioned Bruce. I'm sure it mentioned Bruce, because he became involved. It also mentioned us, it's something we have in common.
 
-I live in the South Hills of Pittsburgh, and every day when I’d go to work, I go through a tunnel. I had to cross the river in a tunnel, and I can remember coming out of this tunnel, and this song just came to me about Homestead. So I started writing it down, and in the meantime we were going to go to New York to finish those first two songs.
+I live in the South Hills of Pittsburgh, and every day when I'd go to work, I go through a tunnel. I had to cross the river in a tunnel, and I can remember coming out of this tunnel, and this song just came to me about Homestead. So I started writing it down, and in the meantime we were going to go to New York to finish those first two songs.
 
-So I wrote these lyrics, but I just didn’t have any good music for him. I tried to come up with stuff, and it just wasn’t happening. So we finished recording “Chain Smokin’” and “Never Be Enough Time,” and I thought, at least this is going to get me started again. Right at the end of our session, I pulled out the paper I had in my notebook and I said, “Hey, you know, if you feel like it… if you get the urge, here’s some lyrics. I think the lyrics are really good, but I don’t have any good music for it.”
+So I wrote these lyrics, but I just didn't have any good music for him. I tried to come up with stuff, and it just wasn't happening. So we finished recording "Chain Smokin'" and "Never Be Enough Time," and I thought, at least this is going to get me started again. Right at the end of our session, I pulled out the paper I had in my notebook and I said, "Hey, you know, if you feel like it... if you get the urge, here's some lyrics. I think the lyrics are really good, but I don't have any good music for it."
 
 So I get back to Pittsburgh, and I go to work. I used to work at a school where we had the worst-behaved kids in eighty different school districts. These kids were just terribly behaved. Most of them were criminals. I had a class of kids where everyone had a P.O. and you were with them all day long. They never changed classes. You had to eat with them, had to take them to the bathroom. It was unrelenting. There were no breaks. It was not a union job for us.
 
-Well, I had been calling off. I was real honest with my supervisor, and I was telling her, “Well, I have a chance to go to Los Angeles to record with Bruce Springsteen, and then I have a chance to go to New York.” So I was working, but I was [paid next to nothing] to begin with, and this place was so wild to work in. I mean we were licensed to restrain. It was so crazy. They couldn’t keep anybody working there.
+Well, I had been calling off. I was real honest with my supervisor, and I was telling her, "Well, I have a chance to go to Los Angeles to record with Bruce Springsteen, and then I have a chance to go to New York." So I was working, but I was [paid next to nothing] to begin with, and this place was so wild to work in. I mean we were licensed to restrain. It was so crazy. They couldn't keep anybody working there.
 
-And if nothing else, I have a good work ethic. I showed up every day, I did my job, rarely missed. Anyway, so she calls me in the office, this is right before the weekend I go back, and she says “This is not coming from me, but the head honcho…” His name was… fuck was his name? First name was Dick. I remember, because he was a dick. (laughs)
+And if nothing else, I have a good work ethic. I showed up every day, I did my job, rarely missed. Anyway, so she calls me in the office, this is right before the weekend I go back, and she says "This is not coming from me, but the head honcho..." His name was... fuck was his name? First name was Dick. I remember, because he was a dick. (laughs)
 
 **We probably want to protect the guilty anyway. [laughs]**
 
-Yeah! [laughs] Anyways, he says, “If you go to work with Bruce Springsteen again, we’re firing you.” And I go, “What?? Fire me? Are you crazy? You can’t even get people to work here!” And I said, “I’m taking off without pay.”
+Yeah! [laughs] Anyways, he says, "If you go to work with Bruce Springsteen again, we're firing you." And I go, "What?? Fire me? Are you crazy? You can't even get people to work here!" And I said, "I'm taking off without pay."
 
-But for some reason, he had it in for Bruce Springsteen. He did *not* like Bruce Springsteen, and he didn’t want me to work with Bruce Springsteen. For whatever reason, I never found out.
+But for some reason, he had it in for Bruce Springsteen. He did *not* like Bruce Springsteen, and he didn't want me to work with Bruce Springsteen. For whatever reason, I never found out.
 
-So the following weekend comes, and it’s Sunday night, and my wife comes and hands me the phone and says it’s Bruce. Bruce goes and starts playing “[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)” on the phone. And I said, “Oh man, that’s *great*!” He said “we got to record this!” I said, “Oh, that’s fabulous! When?” He says, “Tuesday.”
+So the following weekend comes, and it's Sunday night, and my wife comes and hands me the phone and says it's Bruce. Bruce goes and starts playing "[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)" on the phone. And I said, "Oh man, that's *great*!" He said "we got to record this!" I said, "Oh, that's fabulous! When?" He says, "Tuesday."
 
-So now I go into work on Monday. Monday night, I call in sick. Now I’m being a little bit sneaky instead of being honest, because who’s going to pass up the chance to do that? Lee Ann and I flew up to New York, and somebody picked us up and took us to Bruce’s in Jersey.
+So now I go into work on Monday. Monday night, I call in sick. Now I'm being a little bit sneaky instead of being honest, because who's going to pass up the chance to do that? Lee Ann and I flew up to New York, and somebody picked us up and took us to Bruce's in Jersey.
 
-The next day we get up, and we’re working on a song in Bruce’s study. I had my mom and dad at home watching my kids, and in the midst of working on this song… I was a bit nervous, to tell you the truth, because Bruce was using Drop D tuning, and I was not familiar with it at that time. I couldn’t figure out what the hell he was playing! I should have just asked him, but I guess…I don’t know, I was almost overwhelmed because Bruce Springsteen is recording one of my songs that we’re writing together!
+The next day we get up, and we're working on a song in Bruce's study. I had my mom and dad at home watching my kids, and in the midst of working on this song... I was a bit nervous, to tell you the truth, because Bruce was using Drop D tuning, and I was not familiar with it at that time. I couldn't figure out what the hell he was playing! I should have just asked him, but I guess...I don't know, I was almost overwhelmed because Bruce Springsteen is recording one of my songs that we're writing together!
 
 [Watch on Youtube: Homestead](https://www.youtube.com/watch?v=rNH1lwkS-B8)
 
-So we’re going over the music that he wrote for this, and Patti comes into his study and she has the phone. (This is pre-cell phone days.) And it’s my mom. Patti said, “Your mom wants you to call. She just called and left a message.” So right away, you think the worst–you think that somethings wrong with the kids, blah blah blah, something’s terribly wrong.
+So we're going over the music that he wrote for this, and Patti comes into his study and she has the phone. (This is pre-cell phone days.) And it's my mom. Patti said, "Your mom wants you to call. She just called and left a message." So right away, you think the worst–you think that somethings wrong with the kids, blah blah blah, something's terribly wrong.
 
 **But you were busted!**
 
-Yeah. [laughs] So I called, and she said “Joey,” (she always called me Joey) “Joey, you gotta call work right away.” And I said, “What’s wrong?” And my mom said, “If you don’t call them in fifteen minutes they’re firing you.” I said, “Get out!”
+Yeah. [laughs] So I called, and she said "Joey," (she always called me Joey) "Joey, you gotta call work right away." And I said, "What's wrong?" And my mom said, "If you don't call them in fifteen minutes they're firing you." I said, "Get out!"
 
-So I called, and Dick got on the phone and he says, “Where are you?” And I said, “Well, you know, I’m sick.” He says, “So why didn’t you answer the phone?” I said, “Well I was in the bathroom! I’m sick.” He said, “You’re not with Bruce Springsteen are you?” And Bruce is two feet away. I said, “No, I’m not at Bruce Springsteen’s. I’m home in Pittsburgh.” And then he made me come in with a doctor’s excuse, so I had to go to my buddy who was a doctor and tell him the whole story and get a doctor’s excuse. I ended up taking off three days of work just because I was pissed off then, instead of just doing what I had to do.
+So I called, and Dick got on the phone and he says, "Where are you?" And I said, "Well, you know, I'm sick." He says, "So why didn't you answer the phone?" I said, "Well I was in the bathroom! I'm sick." He said, "You're not with Bruce Springsteen are you?" And Bruce is two feet away. I said, "No, I'm not at Bruce Springsteen's. I'm home in Pittsburgh." And then he made me come in with a doctor's excuse, so I had to go to my buddy who was a doctor and tell him the whole story and get a doctor's excuse. I ended up taking off three days of work just because I was pissed off then, instead of just doing what I had to do.
 
-**That’s really funny. This is the kind of thing that makes me think of the butterfly effect, you know? Little things that have these big ripples. This guy, if you had listened to him, not only would your career have gone a different way…. If you look at Bruce’s career during the back half of the nineties, it’s pretty obvious that the work he did with you kind of led him down that *[Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)* path, because you can see a lot of parallels between “[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)” and “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/).” And then I remember reading that when he came off of that tour, he reconnected with you and you guys did “[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)” and “Another Thin Line.”**
+**That's really funny. This is the kind of thing that makes me think of the butterfly effect, you know? Little things that have these big ripples. This guy, if you had listened to him, not only would your career have gone a different way.... If you look at Bruce's career during the back half of the nineties, it's pretty obvious that the work he did with you kind of led him down that *[Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)* path, because you can see a lot of parallels between "[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)" and "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)." And then I remember reading that when he came off of that tour, he reconnected with you and you guys did "[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)" and "Another Thin Line."**
 
 Yep.
 
-**And that kind of bridged him back into his “rock voice.” And so… boy, if you had listened to that guy, it might have single-handedly derailed both of you guys.**
+**And that kind of bridged him back into his "rock voice." And so... boy, if you had listened to that guy, it might have single-handedly derailed both of you guys.**
 
-Luckily I didn’t listen to him. I still got a little rebellion left in me!
+Luckily I didn't listen to him. I still got a little rebellion left in me!
 
-**I’m glad! [laughs]**
+**I'm glad! [laughs]**
 
-So I went in and asked for a leave of absence to go out on that October Assault. He wouldn’t let me take two weeks off! So I said, “Fuck that, I quit.” I quit right there. I said, “I even don’t know what’s wrong with you people.” Like I said, they couldn’t keep people there. Me and this other older guy, we had the worst of the worst. We had the most terribly behaved kids in the whole school, he and I together. All day long all by ourselves. And his son got really sick, and then his father got really sick, so he kept missing all kinds of work. And I was there by myself, basically holding the fort down and it was almost unspeakable.
+So I went in and asked for a leave of absence to go out on that October Assault. He wouldn't let me take two weeks off! So I said, "Fuck that, I quit." I quit right there. I said, "I even don't know what's wrong with you people." Like I said, they couldn't keep people there. Me and this other older guy, we had the worst of the worst. We had the most terribly behaved kids in the whole school, he and I together. All day long all by ourselves. And his son got really sick, and then his father got really sick, so he kept missing all kinds of work. And I was there by myself, basically holding the fort down and it was almost unspeakable.
 
-They had something against Bruce Springsteen. I don’t know what it was.
+They had something against Bruce Springsteen. I don't know what it was.
 
-**That’s crazy. Hey, can I ask you some questions about the album?**
+**That's crazy. Hey, can I ask you some questions about the album?**
 
 Sure.
 
-**All right, let’s start with the title. One of the things that’s always struck me about *American Babylon* is that it’s like two albums in one. Half the songs are love songs, relationship songs. The other half are in the civic or political vein. You could have gone either way with it, but you went both. I’ve always thought that title tracks or titles make a statement about how you view the work. And you went with *American Babylon*. Why? What was the significance of that for you?**
+**All right, let's start with the title. One of the things that's always struck me about *American Babylon* is that it's like two albums in one. Half the songs are love songs, relationship songs. The other half are in the civic or political vein. You could have gone either way with it, but you went both. I've always thought that title tracks or titles make a statement about how you view the work. And you went with *American Babylon*. Why? What was the significance of that for you?**
 
-Well, probably because of the job I was working in. The kids stole my car the other day. They did! They stole my car, they broke my car, the kids I was working with. I mean right off the bat that’s a true statement. And I just felt, my god, what’s the country coming to?” We had the Rodney King thing going on at that time, and we had just fought the Iraq war (the first one). It just seemed like everything was crazy, and I myself was intimately involved with in some cases horrific stories about maltreatment of children. I had a lot of kids who were just physically, mentally, sexually abused.
+Well, probably because of the job I was working in. The kids stole my car the other day. They did! They stole my car, they broke my car, the kids I was working with. I mean right off the bat that's a true statement. And I just felt, my god, what's the country coming to?" We had the Rodney King thing going on at that time, and we had just fought the Iraq war (the first one). It just seemed like everything was crazy, and I myself was intimately involved with in some cases horrific stories about maltreatment of children. I had a lot of kids who were just physically, mentally, sexually abused.
 
-I actually wrote “No Strings Attached” and “[American Babylon](https://estreetshuffle.com/index.php/2020/12/11/matr-joe-grushecky-and-bruce-springsteen-american-babylon/)” on the same night. I came home, and I had a lot of slow songs. I thought, I gotta get some rock and roll stuff here. I was really excited by “American Babylon.” I thought I was on to something.
+I actually wrote "No Strings Attached" and "[American Babylon](https://estreetshuffle.com/index.php/2020/12/11/matr-joe-grushecky-and-bruce-springsteen-american-babylon/)" on the same night. I came home, and I had a lot of slow songs. I thought, I gotta get some rock and roll stuff here. I was really excited by "American Babylon." I thought I was on to something.
 
-Before the final recording sessions in L.A., we recorded “American Babylon” here in Pittsburgh as a demo. Bruce heard it and said, “man, that’s the title.” I didn’t have a title up until then, and I was fishing for one.
+Before the final recording sessions in L.A., we recorded "American Babylon" here in Pittsburgh as a demo. Bruce heard it and said, "man, that's the title." I didn't have a title up until then, and I was fishing for one.
 
-**And that’s the one track that didn’t have Bruce’s involvement in it, right?**
+**And that's the one track that didn't have Bruce's involvement in it, right?**
 
-No, because I was so excited when I wrote it! I went down to the studio with Rick Witkowski who I always worked with. And we did a version there, and it was just boom, boom, boom, one take–couple of overdubs for guitar stuff and that was it. That was the record. I hadn’t planned to do a finished master. I was excited about the song and I wanted to present it to Bruce. He heard it one time, and he said “Here’s your title track. There’s no reason to re-record that one.”
+No, because I was so excited when I wrote it! I went down to the studio with Rick Witkowski who I always worked with. And we did a version there, and it was just boom, boom, boom, one take–couple of overdubs for guitar stuff and that was it. That was the record. I hadn't planned to do a finished master. I was excited about the song and I wanted to present it to Bruce. He heard it one time, and he said "Here's your title track. There's no reason to re-record that one."
 
 [Watch on Youtube: American Babylon](https://www.youtube.com/watch?v=it0MaZc8ewg)
 
-**It’s funny you say that. I’m flashing back to [our *Have a Good Time* conversation](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/) and how when you put those bonus tracks out there was that demo of “Don’t Let Them Push You Around” that was wildly different from the final version.**
+**It's funny you say that. I'm flashing back to [our *Have a Good Time* conversation](https://estreetshuffle.com/index.php/2020/05/22/have-a-good-time-but-get-out-alive/) and how when you put those bonus tracks out there was that demo of "Don't Let Them Push You Around" that was wildly different from the final version.**
 
 [Watch on Youtube: Dont Let Them Push You Around (Demo)](https://www.youtube.com/watch?v=39gDr_UAxSU)
 
 **Do you have any demos lying around of any of the *American Babylon* material that are significantly different in arrangement or sound compared to the final version?**
 
-No, pretty much not. We were very efficient in that record. That’s the only song I cut somewhere else. So usually when we were doing the *American Babylon* stuff, it was just whatever I brought into the studio. The band usually had a pretty good idea of what I wanted to do, because we rehearsed it before we went, before we would go to Los Angeles. We wanted to make our time there as productive as possible.
+No, pretty much not. We were very efficient in that record. That's the only song I cut somewhere else. So usually when we were doing the *American Babylon* stuff, it was just whatever I brought into the studio. The band usually had a pretty good idea of what I wanted to do, because we rehearsed it before we went, before we would go to Los Angeles. We wanted to make our time there as productive as possible.
 
-With the stuff I did for MCA when I was on Cleveland International, they would actually give me a budget to go do demos, so I would go fish around in the studio. Sometimes I would write stuff right in the studio. It was a whole different approach, but the *American Babylon* record was pretty much planned out before we went. I mean, with regard to what songs we were going to do. I didn’t have a lot of… I wasn’t on a hot streak then. I didn’t have a lot of songs that I could just throw out there and see what was going to stick.
+With the stuff I did for MCA when I was on Cleveland International, they would actually give me a budget to go do demos, so I would go fish around in the studio. Sometimes I would write stuff right in the studio. It was a whole different approach, but the *American Babylon* record was pretty much planned out before we went. I mean, with regard to what songs we were going to do. I didn't have a lot of... I wasn't on a hot streak then. I didn't have a lot of songs that I could just throw out there and see what was going to stick.
 
-**Well, I know the order of recording. I know you started with “[Chain Smokin’](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)” and “Never Be Enough Time”–which by the way, I think are two of your best songs.**
+**Well, I know the order of recording. I know you started with "[Chain Smokin'](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)" and "Never Be Enough Time"–which by the way, I think are two of your best songs.**
 
-I’m really happy with both of those.
+I'm really happy with both of those.
 
-**I love the fact that “Chain Smokin’” *sounds* like someone chain smoking. It’s just… musically tremendous.** 
+**I love the fact that "Chain Smokin'" *sounds* like someone chain smoking. It's just... musically tremendous.**
 
 [Watch on Youtube: Chain Smokin'](https://www.youtube.com/watch?v=8wQfzwQSSAU)
 
-**“Never Be Enough Time” has, I think, my single favorite lyric of yours–the Miracles and Temptations line, which I think is brilliantly clever in how it works on multiple levels.** **I have trouble reconciling how strong those songs are with your statement–which I absolutely believe–but it’s mind-boggling to me that the rest of your songs were so (as you put it) sub-par. Why weren’t you able to uncork that bottled lightning?**
+**"Never Be Enough Time" has, I think, my single favorite lyric of yours–the Miracles and Temptations line, which I think is brilliantly clever in how it works on multiple levels.** **I have trouble reconciling how strong those songs are with your statement–which I absolutely believe–but it's mind-boggling to me that the rest of your songs were so (as you put it) sub-par. Why weren't you able to uncork that bottled lightning?**
 
-Well, “Chain Smokin’” was a song that I’d been playing around with for a while. I started taking some acoustic gigs, and I was never a “copy” guy. It never appealed to me, first of all, doing a whole night of covers. And second of all, I was never very good at it. So I had been working on “Chain Smokin’” for a while, and I just thought it was a *really* good song.
+Well, "Chain Smokin'" was a song that I'd been playing around with for a while. I started taking some acoustic gigs, and I was never a "copy" guy. It never appealed to me, first of all, doing a whole night of covers. And second of all, I was never very good at it. So I had been working on "Chain Smokin'" for a while, and I just thought it was a *really* good song.
 
 **It is.**
 
-“Never Be Enough Time” was actually a song that I recorded with the Iron City Houserockers on our last record, *Cracking Under Pressure*. We did a completely different version of it.
+"Never Be Enough Time" was actually a song that I recorded with the Iron City Houserockers on our last record, *Cracking Under Pressure*. We did a completely different version of it.
 
 [Watch on Youtube: Joe Grushecky & the Houserockers - Never Be Enough Time 1988](https://www.youtube.com/watch?v=qh3pAs3LMjM)
 
 So I was playing those two acoustically when I went out to work with Bruce, and I had a couple other songs, but I was just glad that he picked those two.
 
-We were just going to do “Chain Smokin’” initially. I knew I had one good song, and the rest of them weren’t very good. I can’t even remember what they were. I’m sure I got them stashed somewhere, but I played them. He said, “Well… you got anything else?”
+We were just going to do "Chain Smokin'" initially. I knew I had one good song, and the rest of them weren't very good. I can't even remember what they were. I'm sure I got them stashed somewhere, but I played them. He said, "Well... you got anything else?"
 
-So I played him “Never Been Enough Time.” And he *loved* it right off the bat. I said, “well, I already recorded this one.” But he said, “Let’s hear your version of it.” So I played him the version we did with the Iron City Houserockers, and then I played the version we were doing now and they were *really* different. And he said, “This is a great song.” I had a blast doing that one.
+So I played him "Never Been Enough Time." And he *loved* it right off the bat. I said, "well, I already recorded this one." But he said, "Let's hear your version of it." So I played him the version we did with the Iron City Houserockers, and then I played the version we were doing now and they were *really* different. And he said, "This is a great song." I had a blast doing that one.
 
 **You both sounded like you had a blast. I can *feel* you guys having so much fun there.**
 
-Because we were face to face singing! All these vocals are live, you know. It was a stormy night in Los Angeles, and he had the skylights and the thunder and lightning was going off, and we’re just standing at this microphone going at it face-to-face.
+Because we were face to face singing! All these vocals are live, you know. It was a stormy night in Los Angeles, and he had the skylights and the thunder and lightning was going off, and we're just standing at this microphone going at it face-to-face.
 
 [Watch on Youtube: Joe Grushecky & The Houserockers - Never Be Enough Time](https://www.youtube.com/watch?v=6Qe0HaOEKoM)
 
-But like I said, after I did those two, I knew I needed some better songs, because the ones that I had didn’t stand up. So that’s it, and I was fortunate enough to come up with “Homestead.” So I had a three-pack that was pretty good.
+But like I said, after I did those two, I knew I needed some better songs, because the ones that I had didn't stand up. So that's it, and I was fortunate enough to come up with "Homestead." So I had a three-pack that was pretty good.
 
-**By the way, Grzybowski is *not* an easy name to sing. Was that an Easter egg in “Homestead”? When I was doing research, I found a newspaper reference to a guy at Craig House, where you worked at the time…**
+**By the way, Grzybowski is *not* an easy name to sing. Was that an Easter egg in "Homestead"? When I was doing research, I found a newspaper reference to a guy at Craig House, where you worked at the time...**
 
 Named Grzybowski.
 
-**Yeah! Is that…?**
+**Yeah! Is that...?**
 
 His dad worked in Homestead.
 
 **I was wondering where that name came from.**
 
-Well, I grew up in a coal mining town. My family was all coal miners, both sides of the family. My dad dropped out of school when he was twelve years old to work in a coal mine. So he really… I don’t want to say *forced* me, but he highly encouraged me to get my education. That’s why I have a teaching degree. I would never have done it on my own.
+Well, I grew up in a coal mining town. My family was all coal miners, both sides of the family. My dad dropped out of school when he was twelve years old to work in a coal mine. So he really... I don't want to say *forced* me, but he highly encouraged me to get my education. That's why I have a teaching degree. I would never have done it on my own.
 
-The town we grew up in, the coal mines were dead by the time I was born in that particular area. So all the guys, all the Serbians and Italians, they all worked at Homestead. So in the summer, they’d have an open house, and they’d take us. My neighbors would take us down and say, “look where we work!”
+The town we grew up in, the coal mines were dead by the time I was born in that particular area. So all the guys, all the Serbians and Italians, they all worked at Homestead. So in the summer, they'd have an open house, and they'd take us. My neighbors would take us down and say, "look where we work!"
 
-It was horrifying. You’d see all this molten steel and the noise and the dirt, but everybody worked there. So I just picked his name out of a hat. I could have picked a lot of other ones. I just liked the way it sounded and it was so Pittsburgh: Grzybowski.
+It was horrifying. You'd see all this molten steel and the noise and the dirt, but everybody worked there. So I just picked his name out of a hat. I could have picked a lot of other ones. I just liked the way it sounded and it was so Pittsburgh: Grzybowski.
 
 [Watch on Youtube: Dark and Bloody Ground](https://www.youtube.com/watch?v=rGL4zbzeclA)
 
-**Yeah. It works. So you guys you did “Homestead,” and I think you did “Dark and Bloody Ground” at the same time?**
+**Yeah. It works. So you guys you did "Homestead," and I think you did "Dark and Bloody Ground" at the same time?**
 
-No… I don’t know if I have a… Do you have the sequence?
+No... I don't know if I have a... Do you have the sequence?
 
 **I do. But I thought those two–**
 
-We did “Homestead” in November at The Hit Factory, but the next songs we did after that were “Talk Show” and “[Comin’ Down Maria.](https://estreetshuffle.com/index.php/2021/09/05/matr-joe-grushecky-bruce-springsteen-and-patti-scialfa-comin-down-maria/)” We did “[Only Lovers Left Alive](https://estreetshuffle.com/index.php/2021/06/27/matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/),” too, but I ended up re-recording that one with the band.
+We did "Homestead" in November at The Hit Factory, but the next songs we did after that were "Talk Show" and "[Comin' Down Maria.](https://estreetshuffle.com/index.php/2021/09/05/matr-joe-grushecky-bruce-springsteen-and-patti-scialfa-comin-down-maria/)" We did "[Only Lovers Left Alive](https://estreetshuffle.com/index.php/2021/06/27/matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/)," too, but I ended up re-recording that one with the band.
 
-**Okay… That’s not what I saw reflected in Brucebase, so this is new info. Brucebase has “Talk Show” and “Comin’ Down Maria” pinned to October ’94, almost a year later, with no mention of “Only Lovers Left Alive.” The chronology I have—and please correct me if I’m wrong—is October/November ’93, you guys did “Chain Smokin’” and “Never Be Enough Time,” and there was a February session in ’94 which I thought was “Homestead,” “Dark and Bloody Ground,” and “[Labor of Love](https://estreetshuffle.com/index.php/2022/05/08/matr-joe-grushecky-and-bruce-springsteen-labor-of-love/).”**
+**Okay... That's not what I saw reflected in Brucebase, so this is new info. Brucebase has "Talk Show" and "Comin' Down Maria" pinned to October '94, almost a year later, with no mention of "Only Lovers Left Alive." The chronology I have—and please correct me if I'm wrong—is October/November '93, you guys did "Chain Smokin'" and "Never Be Enough Time," and there was a February session in '94 which I thought was "Homestead," "Dark and Bloody Ground," and "[Labor of Love](https://estreetshuffle.com/index.php/2022/05/08/matr-joe-grushecky-and-bruce-springsteen-labor-of-love/)."**
 
-No. “Comin’ Down Maria” and “Talk Show” were the next two we did. The Pirates had an All-Star game here in Pittsburgh–I took my son to the Home Run Derby, and the next day I flew to New Jersey when we worked on those two songs. We also did “[Only Lovers Left Alive](https://estreetshuffle.com/index.php/2021/06/27/matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/),” which Bruce helped arrange and played a long guitar solo on, but ultimately I thought that should be a band song. When I recorded it later with the band, Bruce opted to sit that one out. I have an outtake of it somewhere, though.
+No. "Comin' Down Maria" and "Talk Show" were the next two we did. The Pirates had an All-Star game here in Pittsburgh–I took my son to the Home Run Derby, and the next day I flew to New Jersey when we worked on those two songs. We also did "[Only Lovers Left Alive](https://estreetshuffle.com/index.php/2021/06/27/matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/)," which Bruce helped arrange and played a long guitar solo on, but ultimately I thought that should be a band song. When I recorded it later with the band, Bruce opted to sit that one out. I have an outtake of it somewhere, though.
 
-**Okay, so this is July ‘94?**
+**Okay, so this is July '94?**
 
-Yeah. And then at some point we didn’t do anything for a while, and then March ’95, I went out with the band and we finished the record. I went back out in May and did overdubs.
+Yeah. And then at some point we didn't do anything for a while, and then March '95, I went out with the band and we finished the record. I went back out in May and did overdubs.
 
-**Okay, so July ’94 for “[Comin’ Down Maria](https://estreetshuffle.com/index.php/2021/09/05/matr-joe-grushecky-bruce-springsteen-and-patti-scialfa-comin-down-maria/),” “Talk Show” and the “Lovers” outtake, and then August for “Dark and Bloody Ground” and “Labor of Love”? Brucebase has those two and a few others pegged to August ’94.**
+**Okay, so July '94 for "[Comin' Down Maria](https://estreetshuffle.com/index.php/2021/09/05/matr-joe-grushecky-bruce-springsteen-and-patti-scialfa-comin-down-maria/)," "Talk Show" and the "Lovers" outtake, and then August for "Dark and Bloody Ground" and "Labor of Love"? Brucebase has those two and a few others pegged to August '94.**
 
-It wasn’t August. The next time we went out was in March of ‘95. It’d be before May, because May was my last session with Bruce. We basically finished the record in May. I went out in March with the band and we recorded. I brought “American Babylon” with me, and then we did all the rest of the record.
+It wasn't August. The next time we went out was in March of '95. It'd be before May, because May was my last session with Bruce. We basically finished the record in May. I went out in March with the band and we recorded. I brought "American Babylon" with me, and then we did all the rest of the record.
 
-**And “Dark and Bloody Ground” is another one that you and Bruce wrote together, right?**
+**And "Dark and Bloody Ground" is another one that you and Bruce wrote together, right?**
 
-Yes. I’ll tell you the “Dark and Bloody Ground” story. We were recording “Homestead” at The Hit Factory, and the assistant engineer came up to me and said, “Hey, are you from Kentucky?” And I said no, why do you ask? He said, “Well the first line is *I was born in the corn fields of Kentucky* from “Homestead.”
+Yes. I'll tell you the "Dark and Bloody Ground" story. We were recording "Homestead" at The Hit Factory, and the assistant engineer came up to me and said, "Hey, are you from Kentucky?" And I said no, why do you ask? He said, "Well the first line is *I was born in the corn fields of Kentucky* from "Homestead."
 
-I said, “This guy that I’m sort of building a character on is from Kentucky, and I’m just sort of telling his story along with all the people I knew back home that worked in Homestead. He said, “Did you ever hear of the Kentucky Cycle?” Have *you* ever heard of the Kentucky Cycle, written by Robert Schenkkan?
+I said, "This guy that I'm sort of building a character on is from Kentucky, and I'm just sort of telling his story along with all the people I knew back home that worked in Homestead. He said, "Did you ever hear of the Kentucky Cycle?" Have *you* ever heard of the Kentucky Cycle, written by Robert Schenkkan?
 
-**I’m not familiar with it.**
+**I'm not familiar with it.**
 
-Okay, well the Kentucky Cycle is a play that was on Broadway. It was a six-hour play, so it didn’t last too long, but it was about the struggle of land in Kentucky. In American history, the native Americans called Kentucky the dark and bloody ground, because people would fight over it. So in this play, it starts out white man against red man and goes on to the Civil War, the Hatfield-McCoy fights, the coal companies against the miners… It’s all this struggle, struggle, struggle.
+Okay, well the Kentucky Cycle is a play that was on Broadway. It was a six-hour play, so it didn't last too long, but it was about the struggle of land in Kentucky. In American history, the native Americans called Kentucky the dark and bloody ground, because people would fight over it. So in this play, it starts out white man against red man and goes on to the Civil War, the Hatfield-McCoy fights, the coal companies against the miners... It's all this struggle, struggle, struggle.
 
-**And you’re like, “six hours! I can do that in six minutes.”**
+**And you're like, "six hours! I can do that in six minutes."**
 
-Yeah, right. [laughs] So anyways, for some reason I was aware of it. I had read about it. The play had come and gone already, but I was aware of the storyline and the play. Don’t ask me how, but I knew about it, and this is another one of these moments…
+Yeah, right. [laughs] So anyways, for some reason I was aware of it. I had read about it. The play had come and gone already, but I was aware of the storyline and the play. Don't ask me how, but I knew about it, and this is another one of these moments...
 
-I get back after recording “Homestead” and I was working at night, like I said. I was working in the day with these emotionally needy kids, and then at night I was teaching people to get their GED. I was still doing it. I went back and they asked me to help for a while.
+I get back after recording "Homestead" and I was working at night, like I said. I was working in the day with these emotionally needy kids, and then at night I was teaching people to get their GED. I was still doing it. I went back and they asked me to help for a while.
 
-Oh, and another thing I’ve done over the years is I helped establish this library.
+Oh, and another thing I've done over the years is I helped establish this library.
 
-People don’t know about it, because it’s so far in the past, but I tell people this should have been the Joe Grushecky Memorial Library. They look at me like I’m crazy. We had all these books from the Catholic schools that were closing, and I went through thousands and thousands of books, got rid of the old textbooks and kept all the rest and started this library.
+People don't know about it, because it's so far in the past, but I tell people this should have been the Joe Grushecky Memorial Library. They look at me like I'm crazy. We had all these books from the Catholic schools that were closing, and I went through thousands and thousands of books, got rid of the old textbooks and kept all the rest and started this library.
 
-So I was sitting in a desk in this library where I taught GED, and it was my first night back from doing “Homestead,” and I walk in, and there’s the play sitting on my desk. Sitting right there in front of me and I said, “Holy shit!”
+So I was sitting in a desk in this library where I taught GED, and it was my first night back from doing "Homestead," and I walk in, and there's the play sitting on my desk. Sitting right there in front of me and I said, "Holy shit!"
 
-So I took the book home and read it before I gave it back. I probably should have kept it. Anyway, that became the basis of the song. So in my mind, Bruce had to do the music to that one, because of “Homestead.” It was sort of a similar situation. It tied things together for me mentally, so when we were doing the sessions, I gave him the lyrics and I said. “I got something here that I think would work great for us.”
+So I took the book home and read it before I gave it back. I probably should have kept it. Anyway, that became the basis of the song. So in my mind, Bruce had to do the music to that one, because of "Homestead." It was sort of a similar situation. It tied things together for me mentally, so when we were doing the sessions, I gave him the lyrics and I said. "I got something here that I think would work great for us."
 
 I thought it would be logical. You know, he primarily did the music and I primarily did the lyrics on those two. So he wrote the music for that one. Actually, I got a tape of him singing it somewhere.
 
 **That would be cool to hear someday!**
 
-So that’s how that came about. And then we just sort of pieced the rest of the record together from the songs that I had written, and like I said, before we went out for the final sessions, I was determined to write some more rock and roll songs, because I was writing all these slower mid-tempo things.
+So that's how that came about. And then we just sort of pieced the rest of the record together from the songs that I had written, and like I said, before we went out for the final sessions, I was determined to write some more rock and roll songs, because I was writing all these slower mid-tempo things.
 
-**There are some really great up-tempo songs on that album. “No Strings Attached” is an awesome song. I love that song because it sounds from the title and the sound like it’s a casual hookup song, but it’s deeply romantic if you listen to it. That’s a great one.**
+**There are some really great up-tempo songs on that album. "No Strings Attached" is an awesome song. I love that song because it sounds from the title and the sound like it's a casual hookup song, but it's deeply romantic if you listen to it. That's a great one.**
 
 [Watch on Youtube: No Strings Attached](https://www.youtube.com/watch?v=-hrohc583Gc)
 
-**And then “Labor of Love,” of course. That’s a song that you had written on your own. Bruce doesn’t have any co-writing credit on that. Right?**
+**And then "Labor of Love," of course. That's a song that you had written on your own. Bruce doesn't have any co-writing credit on that. Right?**
 
 Right.
 
-**And yet, there’s that whole mandolin part—**
+**And yet, there's that whole mandolin part—**
 
 [sings the mandolin part]
 
-**–exactly! That shows up later in “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).” When I first heard that I was like, “Whoa! That’s instantly recognizable.” Did he ask you if he could use that?**
+**–exactly! That shows up later in "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)." When I first heard that I was like, "Whoa! That's instantly recognizable." Did he ask you if he could use that?**
 
-That was just his bit to begin with. Bruce played that part on guitar and mandolin on “Labor of Love.” We trade ideas back and forth, so we both used it.
+That was just his bit to begin with. Bruce played that part on guitar and mandolin on "Labor of Love." We trade ideas back and forth, so we both used it.
 
 [Watch on Youtube: Labor of Love](https://www.youtube.com/watch?v=DSdpmShd7e4)
 
-**How did Patti’s contribution come about for “Comin’ Down Maria”?**
+**How did Patti's contribution come about for "Comin' Down Maria"?**
 
-I just had that song. It was just Bruce and I recording it. And one of us (probably me) said, “Hey Patti, want to sit in on this?” So she came over.
+I just had that song. It was just Bruce and I recording it. And one of us (probably me) said, "Hey Patti, want to sit in on this?" So she came over.
 
-“Comin’ Down Maria” and “Talk Show” are both just me and Bruce. We’re the only guys playing instruments on those. If there’s drum sets, it’s probably electronic drums somehow that we did, plus Patti singing on “Comin’ Down Maria.” The rest of the stuff is just he and I.
+"Comin' Down Maria" and "Talk Show" are both just me and Bruce. We're the only guys playing instruments on those. If there's drum sets, it's probably electronic drums somehow that we did, plus Patti singing on "Comin' Down Maria." The rest of the stuff is just he and I.
 
 [Watch on Youtube: Comin' Down Maria](https://www.youtube.com/watch?v=WLshTQTt0Rg)
 
-**Wait. I did not know that. I’m not sure *anybody* knows that, actually.**
+**Wait. I did not know that. I'm not sure *anybody* knows that, actually.**
 
-Well… I don’t think at that point… [laughs sheepishly]
+Well... I don't think at that point... [laughs sheepishly]
 
-We didn’t actually want to say how much he had done on the record, because he’s pretty much all over it. He’s on every track except “No Strings Attached” and “American Babylon.” On every other song he is playing or singing or something.
+We didn't actually want to say how much he had done on the record, because he's pretty much all over it. He's on every track except "No Strings Attached" and "American Babylon." On every other song he is playing or singing or something.
 
-**Huh. So, he’s on “Talk Show”?**
+**Huh. So, he's on "Talk Show"?**
 
-Yeah, that’s *all* him.
+Yeah, that's *all* him.
 
 **Wow. I did not know that.**
 
-Well, *nobody* does. I’m spilling the beans. You’re the first guy to know.
+Well, *nobody* does. I'm spilling the beans. You're the first guy to know.
 
 **Ooh, I get to break an exclusive?**
 
-[laughs] You know, I don’t say much about anything, but it’s been 25 years…
+[laughs] You know, I don't say much about anything, but it's been 25 years...
 
 [Watch on Youtube: Talk Show](https://www.youtube.com/watch?v=d2OCZHh7w_0)
 
-**Okay, “Only Lovers Left Alive.” Like I said earlier, title tracks are interesting to me. Album sequences are interesting to me. That is a *dark* note to close that album on.**
+**Okay, "Only Lovers Left Alive." Like I said earlier, title tracks are interesting to me. Album sequences are interesting to me. That is a *dark* note to close that album on.**
 
-Yeah, well it’s sort of a dark record. It started with “Dark and Bloody Ground” and we have “American Babylon” in the middle and then “[Only Lovers Left Alive](https://estreetshuffle.com/index.php/2021/06/27/matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/).” But I did purposely try to put in some lighter moments in with “No Strings Attached” and also “Labor of Love.”
+Yeah, well it's sort of a dark record. It started with "Dark and Bloody Ground" and we have "American Babylon" in the middle and then "[Only Lovers Left Alive](https://estreetshuffle.com/index.php/2021/06/27/matr-joe-grushecky-and-bruce-springsteen-only-lovers-left-alive/)." But I did purposely try to put in some lighter moments in with "No Strings Attached" and also "Labor of Love."
 
-**It’s really interesting to me that you see it as a dark album. I’ve always heard it as equal parts light and dark. I think it’s literally half and half, six and six. It feels very yin and yang, and I wondered whether that was deliberate. But it sounds like you think of it as a darker album–a dark album with some light songs.**
+**It's really interesting to me that you see it as a dark album. I've always heard it as equal parts light and dark. I think it's literally half and half, six and six. It feels very yin and yang, and I wondered whether that was deliberate. But it sounds like you think of it as a darker album–a dark album with some light songs.**
 
-Yeah. I tried to lighten it up a little bit. I didn’t want people slitting their wrists listening to the record, but “Only Lovers Left Alive,” I was sitting on that title for years and years. I actually had a book called *Only Lovers Left Alive* when I was in high school, because I read that the Rolling Stones had licensed that book to make a movie. This is back when I was… this is early, like when the Stones first hit. I had the book for years and years. It probably just fell apart, it was a little paperback, and I always liked the title of it: *Only Lovers Left Alive*.
+Yeah. I tried to lighten it up a little bit. I didn't want people slitting their wrists listening to the record, but "Only Lovers Left Alive," I was sitting on that title for years and years. I actually had a book called *Only Lovers Left Alive* when I was in high school, because I read that the Rolling Stones had licensed that book to make a movie. This is back when I was... this is early, like when the Stones first hit. I had the book for years and years. It probably just fell apart, it was a little paperback, and I always liked the title of it: *Only Lovers Left Alive*.
 
 [Watch on Youtube: Only Lovers Left Alive](https://www.youtube.com/watch?v=_JGAd81f--4)
 
-**That’s a great title.**
+**That's a great title.**
 
-So I fashioned a story. If you go back and listen to the record, there’s a lot of stuff about kids and families in that record.
+So I fashioned a story. If you go back and listen to the record, there's a lot of stuff about kids and families in that record.
 
 **Yeah. It ends on a really ambiguous note, because is this kid going to follow in the footsteps of his father?**
 
-Yeah, and that’s a question I would always ask myself almost every day after work. Am I making a difference with these kids? Because some were so far gone, like I said. I had kids that… I don’t even want to tell you what happened to them, because they were so horribly abused and neglected. It was just unspeakable, some of the stuff that happened to these kids. And I’d always think, honestly, are they going to make it? And it’s always a thrill… actually one of them just popped up on my Facebook about two weeks ago, he was one of my favorites.
+Yeah, and that's a question I would always ask myself almost every day after work. Am I making a difference with these kids? Because some were so far gone, like I said. I had kids that... I don't even want to tell you what happened to them, because they were so horribly abused and neglected. It was just unspeakable, some of the stuff that happened to these kids. And I'd always think, honestly, are they going to make it? And it's always a thrill... actually one of them just popped up on my Facebook about two weeks ago, he was one of my favorites.
 
 **Is he in a good place?**
 
-You know, I always feel weird about following up on them, because you have to be respectful of their rights to privacy, but he has a business down in Florida. He has a wife, a couple of kids, so he seemed to be doing pretty good. Most of the kids that I run into that I’ve worked with always thank me for helping them because I would always tell them, the moment I let you do anything that you want to do, that means I don’t care. I said, “I care enough about you to correct your bad behavior.” I would always tell them.
+You know, I always feel weird about following up on them, because you have to be respectful of their rights to privacy, but he has a business down in Florida. He has a wife, a couple of kids, so he seemed to be doing pretty good. Most of the kids that I run into that I've worked with always thank me for helping them because I would always tell them, the moment I let you do anything that you want to do, that means I don't care. I said, "I care enough about you to correct your bad behavior." I would always tell them.
 
-**I think I told you last time we talked. My wife’s a special ed teacher and she has these crises of confidence sometimes, like how do I know if what I’m doing matters? If it’s going to make a difference? And we’re always like, “You’ll know way down the line.” Or you know any day you open up the paper and there’s not like an article written about a kid being shot or in jail or whatever, but that’s kind of the way you know, I guess for the time being.**
+**I think I told you last time we talked. My wife's a special ed teacher and she has these crises of confidence sometimes, like how do I know if what I'm doing matters? If it's going to make a difference? And we're always like, "You'll know way down the line." Or you know any day you open up the paper and there's not like an article written about a kid being shot or in jail or whatever, but that's kind of the way you know, I guess for the time being.**
 
-Yeah. When I first started, I worked with really severely disabled mentally and physically handicapped kids. I mean severely institutionalized. I could see results with them, because I was teaching them how to eat, how to go to the bathroom and stuff. So I could see results, but when I was working this job, when I was doing *American Babylon*, it was just like these really terribly abused and neglected kids and they acted out all day long. So you’re saying, “Oh my God.” It was relentless, but a lot of them have contacted me later in life, and it always gives me a boost to know that they are doing well.
+Yeah. When I first started, I worked with really severely disabled mentally and physically handicapped kids. I mean severely institutionalized. I could see results with them, because I was teaching them how to eat, how to go to the bathroom and stuff. So I could see results, but when I was working this job, when I was doing *American Babylon*, it was just like these really terribly abused and neglected kids and they acted out all day long. So you're saying, "Oh my God." It was relentless, but a lot of them have contacted me later in life, and it always gives me a boost to know that they are doing well.
 
-**I’m glad you have that. Hey, I know we’ve been talking a long time now, but just a couple more questions I’d like to ask you–I guess the big one is, looking back on this, why *didn’t* this album become the monster it should have been?**
+**I'm glad you have that. Hey, I know we've been talking a long time now, but just a couple more questions I'd like to ask you–I guess the big one is, looking back on this, why *didn't* this album become the monster it should have been?**
 
-[laughs] I don’t know… I mean why didn’t *Have a Good Time But Get Out Alive* become the monster it should’ve been? I mean, you got to have everything going. You got to have the good agents. We couldn’t find a good agent. We couldn’t get on a good tour. We had no money behind us. Nobody could afford to quit their job and go at it full time. You have to have everything firing all at the same time.
+[laughs] I don't know... I mean why didn't *Have a Good Time But Get Out Alive* become the monster it should've been? I mean, you got to have everything going. You got to have the good agents. We couldn't find a good agent. We couldn't get on a good tour. We had no money behind us. Nobody could afford to quit their job and go at it full time. You have to have everything firing all at the same time.
 
 
-**It’s just mind-boggling to me. I mean… jeez, you even had Bruce out on tour with you!**
+**It's just mind-boggling to me. I mean... jeez, you even had Bruce out on tour with you!**
 
 [Watch Video Highlight](https://videopress.com/embed/WoQylHbz)
 
 
 
-**Do you ever look back on it and go, “Boy, if we had done this or tried this maybe…” Or do you think it was just kind of the cards that were just dealt at the time?**
+**Do you ever look back on it and go, "Boy, if we had done this or tried this maybe..." Or do you think it was just kind of the cards that were just dealt at the time?**
 
-I think on this one it was probably the cards were dealt at the time. I mean we couldn’t have done much more than we did given our situation. Like I said, we’ve never had the luxury of not working. Everybody in our band had a day gig. I mean we *still* have day gigs. Everybody in my band works, and we just were never able to crack through in a big way. We never got that big radio song.
+I think on this one it was probably the cards were dealt at the time. I mean we couldn't have done much more than we did given our situation. Like I said, we've never had the luxury of not working. Everybody in our band had a day gig. I mean we *still* have day gigs. Everybody in my band works, and we just were never able to crack through in a big way. We never got that big radio song.
 
-**I don’t know, man. You certainly had at least a half dozen of them on the album.**
+**I don't know, man. You certainly had at least a half dozen of them on the album.**
 
-Well, according to *you*, but… [laughs] 
+Well, according to *you*, but... [laughs]
 
-**I told you at the top of the call the reason that this album means so much to me is at that point in my life I felt like music had pretty much left me behind. What I loved about rock and roll… it seemed like nobody was doing it at the time. It was just going in a totally different direction. I had just moved to the Northwest and everything was all grunge and it just never resonated with me.**
+**I told you at the top of the call the reason that this album means so much to me is at that point in my life I felt like music had pretty much left me behind. What I loved about rock and roll... it seemed like nobody was doing it at the time. It was just going in a totally different direction. I had just moved to the Northwest and everything was all grunge and it just never resonated with me.**
 
 Yeah, I never got behind grunge at all.
 
-**And then even Bruce was going in a different direction, but then your album came out. I was like, “Yes! This is rock and roll.” And what was great about it is that it was fresh. It didn’t sound dated, and it sounded like rock. And it felt like rock that nobody else was making at the time. I only wish I had been able to catch you guys on that tour.**
+**And then even Bruce was going in a different direction, but then your album came out. I was like, "Yes! This is rock and roll." And what was great about it is that it was fresh. It didn't sound dated, and it sounded like rock. And it felt like rock that nobody else was making at the time. I only wish I had been able to catch you guys on that tour.**
 
-Oh, it’s a great album. I mean I can still… on any given night we play a ton of songs off it. “Homestead” is probably one of the best songs I ever wrote.
+Oh, it's a great album. I mean I can still... on any given night we play a ton of songs off it. "Homestead" is probably one of the best songs I ever wrote.
 
-**It is. It’s fantastic. I don’t know why Bruce doesn’t play it more often, or at all really.**
+**It is. It's fantastic. I don't know why Bruce doesn't play it more often, or at all really.**
 
 Bruce has a version of it. You heard that, right, on E Street Radio?
 
 [Watch on Youtube: Bruce Springsteen - HOMESTEAD Rare Studio Recording Joe Grushecky 2013](https://www.youtube.com/watch?v=qmmxYCR52rY)
 
-**I *have* heard it, but live, I mean–you guys have done it live together, but I don’t think he’s played it on his own without you, or with the band at all.**
+**I *have* heard it, but live, I mean–you guys have done it live together, but I don't think he's played it on his own without you, or with the band at all.**
 
-Did you hear the “[Idiot’s Delight](https://estreetshuffle.com/index.php/2021/03/12/rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/)” he did?
+Did you hear the "[Idiot's Delight](https://estreetshuffle.com/index.php/2021/03/12/rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/)" he did?
 
-**[Blogger’s Note: Bruce and Joe wrote “Idiot’s Delight” together.] I did! I did, when he played it on his radio show recently. I was like, hello! Where did *you* come from?**
+**[Blogger's Note: Bruce and Joe wrote "Idiot's Delight" together.] I did! I did, when he played it on his radio show recently. I was like, hello! Where did *you* come from?**
 
 [Watch on Youtube: Bruce Springsteen - Idiot's Delight](https://www.youtube.com/watch?v=oiQ5QgBUUAg)
 
-**So the last question I have… well, you emailed me a month or so back and asked if I knew how many times you and Bruce had played together, and I sent you a list of 53 times. Did you even realize that it had been that many times?**
+**So the last question I have... well, you emailed me a month or so back and asked if I knew how many times you and Bruce had played together, and I sent you a list of 53 times. Did you even realize that it had been that many times?**
 
-No, I didn’t!
+No, I didn't!
 
-**That’s a lot of times.**
+**That's a lot of times.**
 
-The reason I e-mailed, we were having some type of discussion sitting on my patio with my wife and kids about how many times I’ve played with Bruce, and I said I had written a bunch of them down when we first started, but then I got lax, so I had no idea. I figured you must’ve known because shortly after, you put out that little blurb about, was it “[Talking to the King](https://estreetshuffle.com/index.php/2020/06/12/matr-joe-grushecky-and-bruce-springsteen-talking-to-the-king/)?”
+The reason I e-mailed, we were having some type of discussion sitting on my patio with my wife and kids about how many times I've played with Bruce, and I said I had written a bunch of them down when we first started, but then I got lax, so I had no idea. I figured you must've known because shortly after, you put out that little blurb about, was it "[Talking to the King](https://estreetshuffle.com/index.php/2020/06/12/matr-joe-grushecky-and-bruce-springsteen-talking-to-the-king/)?"
 
 **Yeah.**
 
-So I said if anybody would know, Ken would know. Actually, I’m very glad I have that.
+So I said if anybody would know, Ken would know. Actually, I'm very glad I have that.
 
-**Hopefully you have recordings of all those times too because if not…**
+**Hopefully you have recordings of all those times too because if not...**
 
-You can send me anything you want. [laughs] I’d be glad to have it.
+You can send me anything you want. [laughs] I'd be glad to have it.
 
-**Cool. I’m curious though: so you guys definitely have some reliables that you play together, both from your catalog and his. Who chooses the Springsteen songs that you include, you or him? Do you have favorite songs that you guys like to play?**
+**Cool. I'm curious though: so you guys definitely have some reliables that you play together, both from your catalog and his. Who chooses the Springsteen songs that you include, you or him? Do you have favorite songs that you guys like to play?**
 
-Well I try to… I rehearse the band, and I try to pick songs that I think my band could do justice to. Obviously, the big saxophone solos are not something that we could do in an appropriate fashion. And some of the songs that I like to hear, I present them to Bruce. And he picks the ones he wants to play and then occasionally he’ll say, “Well, let’s do *this* one.” That’s why we started to do [singing] [*save my love for you*](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/). We started doing that one.
+Well I try to... I rehearse the band, and I try to pick songs that I think my band could do justice to. Obviously, the big saxophone solos are not something that we could do in an appropriate fashion. And some of the songs that I like to hear, I present them to Bruce. And he picks the ones he wants to play and then occasionally he'll say, "Well, let's do *this* one." That's why we started to do [singing] [*save my love for you*](https://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/). We started doing that one.
 
 [Watch on Youtube: Bruce Springsteen with Joe Grushecky and the Houserockers-Save My Love](https://www.youtube.com/watch?v=dptZn4uH4iA)
 
-**Yeah. And you guys did “[Frankie Fell in Love.](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)” I think you guys were the first ones to play both of those.**
+**Yeah. And you guys did "[Frankie Fell in Love.](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)" I think you guys were the first ones to play both of those.**
 
-Yeah. We were the first ones. I think I suggested that because it had that Stones vibe. I’m a big Stones fan.
+Yeah. We were the first ones. I think I suggested that because it had that Stones vibe. I'm a big Stones fan.
 
 [Watch on Youtube: "Frankie Fell In Love" Bruce Springsteen ~ LOD 14 ~ Video by Rose A Montana](https://www.youtube.com/watch?v=V7Uvg3flrrU)
 
-**That’s such a great song. I was wondering what the dynamic was there. It’s funny because he blends right into your band.**
+**That's such a great song. I was wondering what the dynamic was there. It's funny because he blends right into your band.**
 
-Oh yeah…
+Oh yeah...
 
-**I mean yes, the audience will fixate on him because he’s Bruce Springsteen, but sonically it’s like he’s part of the band.**
+**I mean yes, the audience will fixate on him because he's Bruce Springsteen, but sonically it's like he's part of the band.**
 
-People have asked me what it’s like playing with Bruce Springsteen. I say it’s just like having Roberto Clemente on your team or Mickey Mantle. Or Joe Montana. You are a better team.
+People have asked me what it's like playing with Bruce Springsteen. I say it's just like having Roberto Clemente on your team or Mickey Mantle. Or Joe Montana. You are a better team.
 
 **Alright, so absolutely last question, I promise. You guys did a big blitz for *Have A Good Time*. This is kind of a milestone anniversary and a milestone record. Anything you guys have planned?**
 
-We’re working on it. We’re in the midst of recording a new record, also.
+We're working on it. We're in the midst of recording a new record, also.
 
-**I’m *so* glad to hear that!**
+**I'm *so* glad to hear that!**
 
-I got some really good songs that I was excited about, and this pandemic just brought everything to a screeching halt. We’ve done some live-in-the-studio filming that we’re going to throw out there.
+I got some really good songs that I was excited about, and this pandemic just brought everything to a screeching halt. We've done some live-in-the-studio filming that we're going to throw out there.
 
-**Yeah, I saw the video you guys did the other day. I bookmarked it to make sure because I was actually out somewhere when I saw it. You did…**
+**Yeah, I saw the video you guys did the other day. I bookmarked it to make sure because I was actually out somewhere when I saw it. You did...**
 
-“[Everything’s Going to Work Out Right](https://estreetshuffle.com/index.php/2021/05/09/matr-joe-grushecky-and-bruce-springsteen-everythings-going-to-work-out-right/).”
+"[Everything's Going to Work Out Right](https://estreetshuffle.com/index.php/2021/05/09/matr-joe-grushecky-and-bruce-springsteen-everythings-going-to-work-out-right/)."
 
 [Watch on Youtube: Rock For Relief - Joe Grushecky and The Houserockers - "Everything's Gonna Work Out Right"](https://www.youtube.com/watch?v=M6sFMtDO6iM)
 
-We’re going to put up “Have a Good Time (But Get Out Alive)” today.
+We're going to put up "Have a Good Time (But Get Out Alive)" today.
 
-**Nice! I’ll look for that.**
+**Nice! I'll look for that.**
 
-And then next year we have the 40th anniversary of *Blood on the Bricks*. I’m gonna start working on it at some point, because I do have outtakes for that one. Like I said, I had the luxury of going in the studio for a couple of weeks. It cost us… I mean the budgets were $75,000, $80,000 in those days. A thousand dollars would go a long way in Pittsburgh. So we could go book a studio for a couple of weeks for a thousand dollars and we would just go there and do our… I always come in with songs and say, “Listen to this one, listen to this.” And then we’ll work them out in the studio and then we would present them to the producers or in this case, with *Blood in the Bricks*, it was Steve Cropper. He actually came into Pittsburgh and we did probably six, eight days of pre-production. So we rehearsed every day for six to eight hours with him.
+And then next year we have the 40th anniversary of *Blood on the Bricks*. I'm gonna start working on it at some point, because I do have outtakes for that one. Like I said, I had the luxury of going in the studio for a couple of weeks. It cost us... I mean the budgets were $75,000, $80,000 in those days. A thousand dollars would go a long way in Pittsburgh. So we could go book a studio for a couple of weeks for a thousand dollars and we would just go there and do our... I always come in with songs and say, "Listen to this one, listen to this." And then we'll work them out in the studio and then we would present them to the producers or in this case, with *Blood in the Bricks*, it was Steve Cropper. He actually came into Pittsburgh and we did probably six, eight days of pre-production. So we rehearsed every day for six to eight hours with him.
 
-**So 40 years is the magic number for getting some anniversary love, or can we look forward to something for American Babylon’s 25th?**
+**So 40 years is the magic number for getting some anniversary love, or can we look forward to something for American Babylon's 25th?**
 
-[laughs] I’ll tell you, American Babylon… that’s a hell of an album, man!
+[laughs] I'll tell you, American Babylon... that's a hell of an album, man!
 
 **It is!**
 
-It’s a great record.
+It's a great record.
 
-**I know, that’s why you gotta do *something*! I mean, maybe you can’t tour right now, but you’ve got to do *something.* Cleveland International has been doing such a great job of promoting the *Have a Good Time* anniversary… I know American Babylon wasn’t on that label originally, but maybe…?**
+**I know, that's why you gotta do *something*! I mean, maybe you can't tour right now, but you've got to do *something.* Cleveland International has been doing such a great job of promoting the *Have a Good Time* anniversary... I know American Babylon wasn't on that label originally, but maybe...?**
 
-Well, the reason we were able to do so much stuff with *Have a Good Time But Get Out Alive* is that Cleveland Entertainment got back online, so we’re hooking up with Steve Popovich Jr. and Cleveland International again. We have several projects we are working on. I wanted to find a home for all my music, so it feels right to be working with Steve. It feels I’ve come full circle. More to come…
+Well, the reason we were able to do so much stuff with *Have a Good Time But Get Out Alive* is that Cleveland Entertainment got back online, so we're hooking up with Steve Popovich Jr. and Cleveland International again. We have several projects we are working on. I wanted to find a home for all my music, so it feels right to be working with Steve. It feels I've come full circle. More to come...
 
-**Well, here’s hoping!** **You got a whole bunch of great albums, man. Please keep adding to them, and hopefully we will get a chance to meet up in person at a show sometime. When you guys are back on the road I’ll be there.**
+**Well, here's hoping!** **You got a whole bunch of great albums, man. Please keep adding to them, and hopefully we will get a chance to meet up in person at a show sometime. When you guys are back on the road I'll be there.**
 
 Well, I saw you at the last Light of Day, right? You were on stage.
 
-**I was. I’m so glad I did that, too, because that was *this year,* 2020.**
+**I was. I'm so glad I did that, too, because that was *this year,* 2020.**
 
-[Watch on Youtube: Grushecky & Houserockers Bruce Springsteen “Talking to the King” ~ Rose A Montana Video](https://www.youtube.com/watch?v=JnFv1WiWmeo)
+[Watch on Youtube: Grushecky & Houserockers Bruce Springsteen "Talking to the King" ~ Rose A Montana Video](https://www.youtube.com/watch?v=JnFv1WiWmeo)
 
-**It’s *crazy* that was this year. It just seems like it was *forever* ago.**
+**It's *crazy* that was this year. It just seems like it was *forever* ago.**
 
-Well, it’s going to be virtual next year. Nobody’s opening back up.
+Well, it's going to be virtual next year. Nobody's opening back up.
 
-**How do you… When will you feel ready, do you think? What would it take for you to feel okay going back out there?**
+**How do you... When will you feel ready, do you think? What would it take for you to feel okay going back out there?**
 
-You know, I don’t even know. Probably a vaccine. I had pneumonia a couple years ago, so…
+You know, I don't even know. Probably a vaccine. I had pneumonia a couple years ago, so...
 
-**Yeah, you don’t want to chance that.**
+**Yeah, you don't want to chance that.**
 
 No.
 
-**It’s going to be a long… a friend of mine who works at Google just sent me a link today that they just announced that they’re keeping their employees home through next July. Not working in the office.**
+**It's going to be a long... a friend of mine who works at Google just sent me a link today that they just announced that they're keeping their employees home through next July. Not working in the office.**
 
 Yeah, I heard that today too.
 
-**Feels like we’re all going to have to get pretty inventive for a while in our entertainment options.**
+**Feels like we're all going to have to get pretty inventive for a while in our entertainment options.**
 
-Well, we need some leadership. They need to shut the country, the whole place down. I’m old, but they’re talking about going back to school…
+Well, we need some leadership. They need to shut the country, the whole place down. I'm old, but they're talking about going back to school...
 
 **We have a shared vested interest, because two people in my house are teachers.**
 
-It’s frightening. I can’t believe they’re even discussing it.
+It's frightening. I can't believe they're even discussing it.
 
-**It’s infuriating, because I mean if we had the leadership to just say, “Look, we’re going to give you guys a week or two-week notice. We’re going to go into lockdown—the whole country. Stock up your food. Do what you need to do. Make your preparations and then just hunker down.” We get through it. Right?**
+**It's infuriating, because I mean if we had the leadership to just say, "Look, we're going to give you guys a week or two-week notice. We're going to go into lockdown—the whole country. Stock up your food. Do what you need to do. Make your preparations and then just hunker down." We get through it. Right?**
 
 Yeah.
 
 **But no one wants to just come to terms with that, and it seems like a lot of folks are going to die and a lot of jobs are going to be lost, and a lot of damage is going to be wreaked before eventually someone will.**
 
-**Anyway… that’s a dark note to end on! Although I guess it’s appropriate for *American Babylon*. [laughs]**
+**Anyway... that's a dark note to end on! Although I guess it's appropriate for *American Babylon*. [laughs]**
 
-Well… [laughs] what’s more *American Babylon* than a fricking pandemic and a depression at the same time?
+Well... [laughs] what's more *American Babylon* than a fricking pandemic and a depression at the same time?

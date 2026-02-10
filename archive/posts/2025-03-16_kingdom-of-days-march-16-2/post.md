@@ -1,6 +1,6 @@
 ***New for 2025:** Video for 2023*
 
-**1973:** Bruce and the (not yet named) E Street Band play a gig at Oliver’s in Boston, their fifth of seven straight nights.
+**1973:** Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, their fifth of seven straight nights.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316.jpg)
 
@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Bruce Springsten, news report, interview and live from Copenhagen, Denmark 1996](https://www.youtube.com/watch?v=_p690qQT8L0)
 
-**2004:** Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on “[Take It Easy](https://estreetshuffle.com/index.php/2018/01/18/cover-me-take-it-easy/).”
+**2004:** Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on "[Take It Easy](https://estreetshuffle.com/index.php/2018/01/18/cover-me-take-it-easy/)."
 
 [Watch on Youtube: Jackson Browne and Bruce Springsteen - "Take It Easy" - 2004-03-16](https://www.youtube.com/watch?v=b7y7zEisP1k)
 
@@ -34,7 +34,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/03/2008-03-16.jpg)
 
-**2013:** Night Two in Brisbane opens with the live debut of “[High Hopes](https://estreetshuffle.com/index.php/2021/08/25/cover-me-high-hopes/).”
+**2013:** Night Two in Brisbane opens with the live debut of "[High Hopes](https://estreetshuffle.com/index.php/2021/08/25/cover-me-high-hopes/)."
 
 [Watch on Youtube: Bruce Springsteen - High Hopes - Brisbane March 16](https://www.youtube.com/watch?v=Z7ksWwv3GtQ)
 
@@ -48,7 +48,7 @@
 
 **2023:** Bruce returns to the stage at Wells Fargo Center in Philadelphia, recovered from an illness that forced the cancellation of three shows the previous week.
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance + “No Surrender” - Philadelphia, PA - 3-16-2023](https://www.youtube.com/watch?v=r6p-giPN5qI)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance + "No Surrender" - Philadelphia, PA - 3-16-2023](https://www.youtube.com/watch?v=r6p-giPN5qI)
 
 [Watch on Youtube: Trapped - Springsteen - Philadelphia March 16, 2023](https://www.youtube.com/watch?v=G_bAlbzUkVk)
 

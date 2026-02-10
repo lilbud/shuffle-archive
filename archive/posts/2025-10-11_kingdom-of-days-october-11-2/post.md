@@ -16,13 +16,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/10/1974-1011.jpg)
 
-**1975:** Bruce makes his first appearance on *American Top 40* with his charting single, “Born to Run.”
+**1975:** Bruce makes his first appearance on *American Top 40* with his charting single, "Born to Run."
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3?_=1)
 
-<https://estreetshuffle.com/wp-content/uploads/2021/10/AT4075.mp3>
-
-That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Center in Red Bank. David Sancious makes a guest appearance during the late show on “[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/),” and the entire late show can be heard below. Both shows are filmed by Barry Rebo, and snippets will surface years later in official documentaries for *Born to Run* and *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*.
+That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Center in Red Bank. David Sancious makes a guest appearance during the late show on "[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)," and the entire late show can be heard below. Both shows are filmed by Barry Rebo, and snippets will surface years later in official documentaries for *Born to Run* and *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*.
 
 [Watch on Youtube: Red Bank (10/11/1975)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1DL5_iSUDHpUkeqMP84tuCF)
 
@@ -30,11 +28,11 @@ That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Cent
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1975-10-11.jpg)
 
-**1979:** Bruce records “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)” with the E Street Band at The Power Station in New York City.
+**1979:** Bruce records "[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)" with the E Street Band at The Power Station in New York City.
 
 [Watch on Youtube: Crush on You](https://www.youtube.com/watch?v=zDN8pvyKYkU)
 
-**1980:** At Night Two at Chicago’s Uptown Theater on the River Tour, Bruce tour premieres “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” and “[Good Rockin’ Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/),” and “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” features a new introduction (actually an older unreleased song) called “[Here She Comes Walkin’](https://estreetshuffle.com/index.php/2020/09/24/roll-of-the-dice-here-she-comes-walkin/).” Bruce will resurrect this introduction more than 35 years later on the River Tour’s sequel.
+**1980:** At Night Two at Chicago's Uptown Theater on the River Tour, Bruce tour premieres "[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)" and "[Good Rockin' Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)," and "[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)" features a new introduction (actually an older unreleased song) called "[Here She Comes Walkin'](https://estreetshuffle.com/index.php/2020/09/24/roll-of-the-dice-here-she-comes-walkin/)." Bruce will resurrect this introduction more than 35 years later on the River Tour's sequel.
 
 [Watch Video Highlight](https://videopress.com/embed/rrBFWpm2)
 
@@ -50,7 +48,7 @@ That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Cent
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2004-10-11.jpg)
 
-**2017:** One final tweak during the last preview performance of *Springsteen on Broadway:* “[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” and “[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)” return to their original sequence.
+**2017:** One final tweak during the last preview performance of *Springsteen on Broadway:* "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" and "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)" return to their original sequence.
 
 [Watch Video Highlight](https://videopress.com/embed/8HmDEFpr)
 

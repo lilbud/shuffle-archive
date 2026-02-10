@@ -99,6 +99,21 @@ def initial_cleanup(orig_content: str) -> str:
     # replace http with https
     orig_content = re.sub("http:", "https:", orig_content)
 
+    # space between end tag and comma
+    orig_content = re.sub("> ,", ">,", orig_content)
+
+    # space between open tag and open quote
+    orig_content = re.sub("“ <", "“<", orig_content)
+    
+    # space between end tag and close quote
+    orig_content = re.sub("> ”", ">”", orig_content)
+
+    # replace bad dbl quote
+    orig_content = re.sub("“|”", '"', orig_content)
+
+    # replace bad single quote
+    orig_content = re.sub("‘|’", "'", orig_content)
+
     soup = bs4(orig_content, "lxml")
 
     # fix iframes having embed links instead of direct
@@ -140,5 +155,8 @@ def initial_cleanup(orig_content: str) -> str:
     for element in soup.find_all(recursive=True):
         if element.get("id") == "":
             del element.attrs["id"]
+        
+        # if element.name == "script" and "videopress" in element.get('src'):
+        #     element.decompose()
 
     return str(soup)

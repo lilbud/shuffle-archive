@@ -16,7 +16,7 @@
 
 **1981:** A scheduled River Tour show in Paris for this date was moved to April 18.
 
-**1983:** Bruce works on “[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)” at his home studio in Los Angeles.
+**1983:** Bruce works on "[Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)" at his home studio in Los Angeles.
 
 [Watch on Youtube: Bruce Springsteen Cynthia solo version](https://www.youtube.com/watch?v=Ky7XO1Jliv4)
 
@@ -26,7 +26,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/1988-04-20.jpg)
 
-**1993:** The second of two nights in Rotterdam for Bruce’s World Tour 1993.
+**1993:** The second of two nights in Rotterdam for Bruce's World Tour 1993.
 
 [Watch Video Highlight](https://videopress.com/embed/VX775UJx)
 
@@ -34,7 +34,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/bNxmQ6UM)
 
-**1999:** Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with the first-ever performance of “[I Wanna Be With You.](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)” This is only the second Night Two of the tour, and Bruce breaks the set list open with the first performances of “[Atlantic City,](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/),” “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/),” “[Cadillac Ranch,](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” and “This Hard Land” of the Reunion era.
+**1999:** Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with the first-ever performance of "[I Wanna Be With You.](https://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)" This is only the second Night Two of the tour, and Bruce breaks the set list open with the first performances of "[Atlantic City,](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)," "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)," "[Cadillac Ranch,](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" and "This Hard Land" of the Reunion era.
 
 [Watch on Youtube: I Wanna Be With You Bruce Springsteen April 20 1999 Milan, ITA](https://www.youtube.com/watch?v=tHNbxq82eYI)
 
@@ -50,7 +50,7 @@
 
 **2005:** At the Paramount Theater in Asbury Park, Bruce holds his final rehearsal before beginning his solo acoustic tour.
 
-**2006:** The first public warm-up show for the Seeger Sessions Tour features the premiere of “[How Can a Poor Man Stand Such Times and Live](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/),” “[When the Saints Go Marching In](https://estreetshuffle.com/index.php/2021/03/28/cover-me-when-the-saints-go-marching-in/)” and the album tracks.
+**2006:** The first public warm-up show for the Seeger Sessions Tour features the premiere of "[How Can a Poor Man Stand Such Times and Live](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)," "[When the Saints Go Marching In](https://estreetshuffle.com/index.php/2021/03/28/cover-me-when-the-saints-go-marching-in/)" and the album tracks.
 
 [Watch Video Highlight](https://videopress.com/embed/rGqntUpa)
 
@@ -66,7 +66,7 @@
 
 **2013:** Bruce attends (but does not perform at) the annual Kirsten Ann Carr Fund event.
 
-**2016:** At Baltimore’s River show, “[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)” features one of what turns into several marriage proposals along the tour.
+**2016:** At Baltimore's River show, "[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)" features one of what turns into several marriage proposals along the tour.
 
 [Watch on Youtube: "Hungry Heart & Bruce Crowd Surfs" Bruce Springsteen@Royal Farms Arena Baltimore 4/20/16](https://www.youtube.com/watch?v=2909CodHLiE)
 

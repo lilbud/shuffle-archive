@@ -26,13 +26,13 @@
 
 [Watch on Youtube: Nebraska](https://www.youtube.com/playlist?list=OLAK5uy_mP8T22kYL-tavvs0Mrd9UeFWZK2kUH1_Y)
 
-**2003:** Bruce performs a solo acoustic rendition of “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” at perhaps the most unexpected venue for it: the funeral for long-time friend John Mulheren at the Holy Cross Roman Catholic Church in Rumson.
+**2003:** Bruce performs a solo acoustic rendition of "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" at perhaps the most unexpected venue for it: the funeral for long-time friend John Mulheren at the Holy Cross Roman Catholic Church in Rumson.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/2003-12-19a.png)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/2003-12-19b.png)
 
-**2004:** This year’s holiday shows are at Harry’s Roadhouse in Asbury Park, and although there are a pair of shows, they’re both on the same night. Bobby Bandiera provides the backing band for both shows; Southside Johnny guest stars for the early show (joining Bruce for “[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)“) and Max, Patti, and Willie Nile join Bruce for the late show. Both setlists are a mix of seasonal and eclectic, and both deserve a listen this time each year.
+**2004:** This year's holiday shows are at Harry's Roadhouse in Asbury Park, and although there are a pair of shows, they're both on the same night. Bobby Bandiera provides the backing band for both shows; Southside Johnny guest stars for the early show (joining Bruce for "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)") and Max, Patti, and Willie Nile join Bruce for the late show. Both setlists are a mix of seasonal and eclectic, and both deserve a listen this time each year.
 
 [Watch Video Highlight](https://videopress.com/embed/Q3QRdapp)
 
@@ -60,7 +60,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2023/12/The_Independent_Sat__Dec_22__2007_-scaled.jpg)
 
-**2015:** Bruce and the E Street Band perform on *Saturday Night Live,* where Bruce debuts “[Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/).” They also play “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/),” and in a departure for the show, they play a third song: “Santa Claus is Comin’ to Town” with Paul McCartney, Tina Fey, Amy Poehler, and the entire cast and crew.
+**2015:** Bruce and the E Street Band perform on *Saturday Night Live,* where Bruce debuts "[Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/)." They also play "[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)," and in a departure for the show, they play a third song: "Santa Claus is Comin' to Town" with Paul McCartney, Tina Fey, Amy Poehler, and the entire cast and crew.
 
 [Watch on Youtube: SNL Hosts Tina Fey & Amy Poehler Are Psyched For Bruce Springsteen and the E Street Band](https://www.youtube.com/watch?v=i86lXf1MDsY)
 
@@ -78,4 +78,4 @@
 
 **2018:** Bruce calls the E Street Radio studio to discuss his newly released *Springsteen on Broadway* streaming video.
 
-[Watch on Youtube: Bruce Springsteen expresses his appreciation for guest, Thom Zimny’s work on Springsteen on Broadway](https://www.youtube.com/watch?v=DyNyLbQLPaY)
+[Watch on Youtube: Bruce Springsteen expresses his appreciation for guest, Thom Zimny's work on Springsteen on Broadway](https://www.youtube.com/watch?v=DyNyLbQLPaY)

@@ -4,7 +4,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/1975-02-21.jpg)
 
-**1995:** After more than five years apart, Bruce reconvenes the E Street Band to promote his *Greatest Hits* album. The band gathers at Tramps nightclub in New York City and rehearses for their gig that evening, where they will debut and record a live performance video for “[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/).” Many fan favorites also make their return on this night, including the first-ever full-band performance of “This Hard Land.”
+**1995:** After more than five years apart, Bruce reconvenes the E Street Band to promote his *Greatest Hits* album. The band gathers at Tramps nightclub in New York City and rehearses for their gig that evening, where they will debut and record a live performance video for "[Murder Incorporated](https://estreetshuffle.com/index.php/2020/04/19/roll-of-the-dice-murder-incorporated/)." Many fan favorites also make their return on this night, including the first-ever full-band performance of "This Hard Land."
 
 [Watch Video Highlight](https://videopress.com/embed/o98o5YmB)
 
@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/yVJU9zQW)
 
-**2016:** The 2016 version of the River Tour stops at KFC Yum! Center in Louisville, where “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” makes its tour debut. Bruce and Patti also record a tribute greeting for James Burrows, which airs on television that evening.
+**2016:** The 2016 version of the River Tour stops at KFC Yum! Center in Louisville, where "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" makes its tour debut. Bruce and Patti also record a tribute greeting for James Burrows, which airs on television that evening.
 
 [Watch Video Highlight](https://videopress.com/embed/oa55aClm)
 
@@ -36,7 +36,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/2016-02-21b.jpg)
 
-**2017:** Bruce plays his first show ever in Christchurch, New Zealand. The show features a poignant “My City of Ruins,” played for the city that suffered a devastating earthquake in 2011.
+**2017:** Bruce plays his first show ever in Christchurch, New Zealand. The show features a poignant "My City of Ruins," played for the city that suffered a devastating earthquake in 2011.
 
 [Watch on Youtube: 30,000 to watch Springsteen on eve of quake anniversary: RNZ Checkpoint](https://www.youtube.com/watch?v=NKPQm6C4VvI)
 
@@ -44,12 +44,12 @@
 
 [Watch on Youtube: Bruce Springsteen - "My City Of Ruins"](https://www.youtube.com/watch?v=ntgpWPwTVnM)
 
-**2023:** Jake is back in action in Tulsa after a bout with COVID, but the virus continues its tour of the E Street Band. Lisa Lowell misses this show and the next one, but the rest of the band turns in a great show in the undersold BOK Center, tour premiering “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)” in the encores.
+**2023:** Jake is back in action in Tulsa after a bout with COVID, but the virus continues its tour of the E Street Band. Lisa Lowell misses this show and the next one, but the rest of the band turns in a great show in the undersold BOK Center, tour premiering "[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)" in the encores.
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance + “No Surrender” - Tulsa, OK - February 23, 2023](https://www.youtube.com/watch?v=-bxN1RTASUU)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - Entrance + "No Surrender" - Tulsa, OK - February 23, 2023](https://www.youtube.com/watch?v=-bxN1RTASUU)
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band - “If I Was The Priest” - Tulsa, Oklahoma - February 21,2023](https://www.youtube.com/watch?v=qjxfJla5oIc)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - "If I Was The Priest" - Tulsa, Oklahoma - February 21,2023](https://www.youtube.com/watch?v=qjxfJla5oIc)
 
-[Watch on Youtube: Bruce Springsteen and The E Street Band - “Bobby Jean” - Tulsa, Oklahoma - February 21, 2023](https://www.youtube.com/watch?v=2AqGRt4kw5U)
+[Watch on Youtube: Bruce Springsteen and The E Street Band - "Bobby Jean" - Tulsa, Oklahoma - February 21, 2023](https://www.youtube.com/watch?v=2AqGRt4kw5U)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/02/Tulsa_World_Thu__Feb_23__2023_-scaled.jpg)

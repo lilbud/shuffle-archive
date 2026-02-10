@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 2006; review for 2012; new entry for 2024*
 
-**1972:** Clarence Clemons plays his final show with Norman Selden’s Joyful Noyze at the Club Plaza in Bayville, New Jersey. Four days later, he will perform as a member of Bruce Springsteen’s new band.
+**1972:** Clarence Clemons plays his final show with Norman Selden's Joyful Noyze at the Club Plaza in Bayville, New Jersey. Four days later, he will perform as a member of Bruce Springsteen's new band.
 
 **1974:** Bruce postpones a scheduled show at Camden County College to exactly a month later.
 
@@ -18,7 +18,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-21c.png)
 
-**1992:** Bruce and his new touring band play their first of two nights at Mountain View’s Shoreline Amphitheater.
+**1992:** Bruce and his new touring band play their first of two nights at Mountain View's Shoreline Amphitheater.
 
 [Watch Video Highlight](https://videopress.com/embed/gPmGIaLQ)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Bruce Springsteen, John Eddie, and Friends - "Bang a Gong (Get It On)" / "Route 66"](https://www.youtube.com/watch?v=9osA0jMFeBk)
 
-**1995:** Bruce joins Joe Grushecky and The Houserockers for their second of two shows at Nick’s Fat City in Pittsburgh, where Bruce plays “[Gimme Shelter](https://estreetshuffle.com/index.php/2019/09/09/matr-joe-grushecky-and-bruce-springsteen-gimme-shelter/)” in full for the first and only time. “[Rebel Music](https://estreetshuffle.com/index.php/2020/03/25/matr-joe-grushecky-and-bruce-springsteen-rebel-music/)” will eventually be released on Grushecky’s *October Assault* CD, and several songs from this show will be released on the 25th anniversary re-issue of [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/).
+**1995:** Bruce joins Joe Grushecky and The Houserockers for their second of two shows at Nick's Fat City in Pittsburgh, where Bruce plays "[Gimme Shelter](https://estreetshuffle.com/index.php/2019/09/09/matr-joe-grushecky-and-bruce-springsteen-gimme-shelter/)" in full for the first and only time. "[Rebel Music](https://estreetshuffle.com/index.php/2020/03/25/matr-joe-grushecky-and-bruce-springsteen-rebel-music/)" will eventually be released on Grushecky's *October Assault* CD, and several songs from this show will be released on the 25th anniversary re-issue of [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/).
 
 [Watch on Youtube: Gimme shelter - Joe Grushecky with Bruce Springsteen](https://www.youtube.com/watch?v=5WmQuWwpyf8)
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: Light of Day (Live)](https://www.youtube.com/watch?v=B5nlBl0H6YM)
 
-**1996:** Bruce plays a solo acoustic show at Arizona State University in Tempe, where local resident Nils Lofgren makes a guest appearance for “[No Surrender.](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)”
+**1996:** Bruce plays a solo acoustic show at Arizona State University in Tempe, where local resident Nils Lofgren makes a guest appearance for "[No Surrender.](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)"
 
 [Watch on Youtube: Bruce Springsteen & Nils Lofgren, "No Surrender" Tempe, 1996-10-21](https://www.youtube.com/watch?v=ZW2CbgB4iJQ)
 
@@ -60,11 +60,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2000-10-21b.png)
 
-**2005:** Bruce plays a solo acoustic show at the Dunkin’ Donuts Center in Providence, where he plays “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)” on acoustic guitar for the first time on the tour.
+**2005:** Bruce plays a solo acoustic show at the Dunkin' Donuts Center in Providence, where he plays "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" on acoustic guitar for the first time on the tour.
 
 [Watch Video Highlight](https://videopress.com/embed/mdvpoUqG)
 
-**2006:** Bruce and the Sessions Band continue their Spanish tour with a show in Valencia, debuting their cover of “[Love of the Common People](https://estreetshuffle.com/index.php/2020/10/21/cover-me-love-of-the-common-people/).”
+**2006:** Bruce and the Sessions Band continue their Spanish tour with a show in Valencia, debuting their cover of "[Love of the Common People](https://estreetshuffle.com/index.php/2020/10/21/cover-me-love-of-the-common-people/)."
 
 [Watch on Youtube: Bruce and the Seeger Valencia 06](https://www.youtube.com/watch?v=xJdDNH2Hwzw)
 
@@ -72,7 +72,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live In Valencia 2006 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=jkIGTsVsbLk)
 
-**2007:** Bruce and the E Street Band bring the Magic Tour to Chicago’s United Center for the first of two nights.
+**2007:** Bruce and the E Street Band bring the Magic Tour to Chicago's United Center for the first of two nights.
 
 [Watch Video Highlight](https://videopress.com/embed/AnsrBEUd)
 
@@ -80,7 +80,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2007-10-21b.png)
 
-**2012:** Bruce and the band play a Wrecking Ball show at Copps Coliseum in Hamilton, Ontario, where Bruce tour premieres “[Terry’s Song](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)” in tribute to an 11-year-old girl who recently passed away.
+**2012:** Bruce and the band play a Wrecking Ball show at Copps Coliseum in Hamilton, Ontario, where Bruce tour premieres "[Terry's Song](https://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)" in tribute to an 11-year-old girl who recently passed away.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - MY LOVE WILL NOT LET YOU DOWN at Hamilton, Copps Coliseum](https://www.youtube.com/watch?v=wLmM7zJFX_A)
 
@@ -100,13 +100,11 @@
 
 **2019:** Bruce appears on *Jimmy Kimmel Live!* as part of his promotional tour for *Western Stars*.
 
-[Watch on Youtube: Jimmy Kimmel’s FULL INTERVIEW with Bruce Springsteen](https://www.youtube.com/watch?v=JujARMOYFHI)
+[Watch on Youtube: Jimmy Kimmel's FULL INTERVIEW with Bruce Springsteen](https://www.youtube.com/watch?v=JujARMOYFHI)
 
 **2020:** E Street Radio airs Episode 3 of *Letter to You Radio*, featuring a conversation between Bruce and Brandon Flowers. That evening, Bruce appears on *The Late Show with Stephen Colbert.*
 
 [https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-21-LTY-Radio-3-Bruce-Brandon-Flowers.mp3?_=13](https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-21-LTY-Radio-3-Bruce-Brandon-Flowers.mp3?_=13)
-
-<https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-21-LTY-Radio-3-Bruce-Brandon-Flowers.mp3>
 
 [Watch on Youtube: Bruce Springsteen On 50 Years Working With Friends: The Only Place That Happens Is Rock And Roll](https://www.youtube.com/watch?v=JBH-kZ3fjxc)
 

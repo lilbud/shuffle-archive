@@ -22,7 +22,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/dAro3Txt)
 
-**1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/),” “[Darlington County,](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)” “[My Hometown,](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” and “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” all make their live debuts. Listen to this historic bar gig below.
+**1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)," "[Darlington County,](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)" "[My Hometown,](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)" and "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" all make their live debuts. Listen to this historic bar gig below.
 
 [Watch on Youtube: Bruce Springsteen (bootleg) - Stone Pony June 6th 1984 (full album)](https://www.youtube.com/watch?v=_vH_efNE9ZU)
 
@@ -30,7 +30,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1984-06-08.jpg)
 
-**1985:** The stadium-breaker! Bruce’s encore of “Twist and Shout” almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.
+**1985:** The stadium-breaker! Bruce's encore of "Twist and Shout" almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.
 
 [Watch on Youtube: Bruce Springsteen Gothenburg 8/6/1985 Full Concert](https://www.youtube.com/watch?v=hfIsMDrMlSY)
 
@@ -38,13 +38,13 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Bristol_Herald_Courier__Bristol_Virginia_Tennessean_Mon__Jun_10__1985_-scaled.jpg)
 
-**1991:** At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)“–written for the occasion–for the very first time.
+**1991:** At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)"–written for the occasion–for the very first time.
 
 [Watch on Youtube: News coverage: Bruce Springsteen marries Patti Scialfa - June 9, 1991](https://www.youtube.com/watch?v=om5UcNKA5XY)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/1991-06-08.jpg)
 
-**2003:** Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” for the occasion.
+**2003:** Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" for the occasion.
 
 [Watch on Youtube: Bruce Springsteen - YOU'RE MISSING (live @ Firenze)](https://www.youtube.com/watch?v=k7xqgp6x-44)
 

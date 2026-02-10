@@ -1,6 +1,6 @@
 ***New for 2025:** Advertisement for 1977; new entry for 2002*
 
-**1977:** At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bruce and the E Street Band add a one-time-only “Farmer John” into “Twist and Shout.”
+**1977:** At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bruce and the E Street Band add a one-time-only "Farmer John" into "Twist and Shout."
 
 [Watch on Youtube: Farmer John (Don Harris and Terry Dewey cover)](https://www.youtube.com/watch?v=FCJHKUBH7OI)
 
@@ -12,7 +12,7 @@
 
 **2002:** Bruce, Patti, and Little Steven attend the 15th Annual Silver Clef Awards dinner and auction at the Roseland Ballroom in New York City.
 
-**2003:** “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” gets a rare outing at the Blue Cross Arena in Rochester, along with the Rising Tour premiere of “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/).”
+**2003:** "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)" gets a rare outing at the Blue Cross Arena in Rochester, along with the Rising Tour premiere of "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)."
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Fire](https://www.youtube.com/watch?v=AMhdLG0vX7I)
 

@@ -1,6 +1,6 @@
-**1942:** Clarence “Big Man” Clemons is born in Norfolk, Virginia.
+**1942:** Clarence "Big Man" Clemons is born in Norfolk, Virginia.
 
-**1973:** Bruce and the band continue their Boston residency with two shows at Paul’s Mall.
+**1973:** Bruce and the band continue their Boston residency with two shows at Paul's Mall.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/12/1973-01-11.jpg)
 
@@ -16,11 +16,11 @@
 
 [Watch on Youtube: Bruce Springsteen - Wreck on the Highway (V1) - Band Rehearsal, Telegraph Hill (January 11, 1980)](https://www.youtube.com/watch?v=3pAfoBsiEh4)
 
-**1996:** Bruce plays the second of two shows at Detroit’s Fox Theater.
+**1996:** Bruce plays the second of two shows at Detroit's Fox Theater.
 
 [Watch Video Highlight](https://videopress.com/embed/w4Rg1WKW)
 
-**2002:** On the occasion of Clarence’s 60th birthday, Bruce joins Clarence on stage at B.B. King’s nightclub in Mashantucket, Connecticut. They play four songs together, including “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” with B.B. King.
+**2002:** On the occasion of Clarence's 60th birthday, Bruce joins Clarence on stage at B.B. King's nightclub in Mashantucket, Connecticut. They play four songs together, including "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)" with B.B. King.
 
 [Watch Video Highlight](https://videopress.com/embed/jbc3T593)
 
@@ -28,7 +28,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/2001-01-11b.png)
 
-**2009**: At the 66th Annual Golden Globes, Bruce wins the award for Best Original Song for “[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)” (and wishes Clarence a happy birthday in his acceptance speech).
+**2009**: At the 66th Annual Golden Globes, Bruce wins the award for Best Original Song for "[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)" (and wishes Clarence a happy birthday in his acceptance speech).
 
 [Watch on Youtube: Bruce Springsteen Wins Best Original Song Motion Picture - Golden Globes 2009](https://www.youtube.com/watch?v=uEbhqOPKHdo)
 

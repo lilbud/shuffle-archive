@@ -6,18 +6,18 @@ Over the course of his career, Seixas gravitated increasingly toward countercult
 
 [Watch on Youtube: Raul Seixas - Sociedade Alternativa (Videoclipe Oficial)](https://www.youtube.com/watch?v=CfgYcLBP9lI)
 
-Influenced heavily by Alistair Crowley’s Law of Thelema (*Do what thou wilt shall be the whole of the Law)*, Seixas credo captures the essence of rock and roll pretty well, too.
+Influenced heavily by Alistair Crowley's Law of Thelema (*Do what thou wilt shall be the whole of the Law)*, Seixas credo captures the essence of rock and roll pretty well, too.
 
-If you’re a touring rock band visiting Brazil, odds are pretty good that you’re going to hear someone shout “Toca Raul!” (“Play Raul!”) at some point during the night. It’s kind of the Brazilian equivalent of “Freebird!”
+If you're a touring rock band visiting Brazil, odds are pretty good that you're going to hear someone shout "Toca Raul!" ("Play Raul!") at some point during the night. It's kind of the Brazilian equivalent of "Freebird!"
 
-So when Bruce took the stage for each of his two Brazilian shows in 2013–his first visit to the country in a quarter-century–he satisfied the “Toca Raul” contingent before they even had a chance to utter a single one.
+So when Bruce took the stage for each of his two Brazilian shows in 2013–his first visit to the country in a quarter-century–he satisfied the "Toca Raul" contingent before they even had a chance to utter a single one.
 
-Enjoy this professionally shot, Clearmountain-mixed, and Zimny-edited performance of “Sociedade Alternativa” by Bruce Springsteen and the super-sized E Street Band, featuring a spectacular mid-song trumpet solo by Curt Ramm.
+Enjoy this professionally shot, Clearmountain-mixed, and Zimny-edited performance of "Sociedade Alternativa" by Bruce Springsteen and the super-sized E Street Band, featuring a spectacular mid-song trumpet solo by Curt Ramm.
 
 [Watch Video Highlight](https://videopress.com/embed/tOFas7mk)
 
 Bruce may not have played there for 25 years, but by the end of that opening song that Rio crowd was part of E Street Nation.
 
-**Sociedade Alternativa  
-First performed:** September 18, 2013 (São Paulo, Brazil)  
+**Sociedade Alternativa
+First performed:** September 18, 2013 (São Paulo, Brazil)
 **Last performed:** September 21, 2013 (Rio De Janeiro, Brazil)

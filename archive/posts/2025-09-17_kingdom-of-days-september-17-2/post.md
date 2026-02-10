@@ -1,6 +1,6 @@
 ***New for 2025:** No updates*
 
-**1966:** The Castiles play the Surf ‘n’ See Club in Sea Bright, New Jersey.
+**1966:** The Castiles play the Surf 'n' See Club in Sea Bright, New Jersey.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1966-0917.jpg)
 
@@ -16,21 +16,19 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/09/The_Daily_Oklahoman_1975_09_17_20.jpg)
 
-**1978:** Bruce and the E Street Band close out their three-night Darkness Tour stand at the Palladium in New York City, tour premiering “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/).”
+**1978:** Bruce and the E Street Band close out their three-night Darkness Tour stand at the Palladium in New York City, tour premiering "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)."
 
 [https://estreetshuffle.com/wp-content/uploads/2023/09/201-Meeting-Across-the-River.flac?_=1](https://estreetshuffle.com/wp-content/uploads/2023/09/201-Meeting-Across-the-River.flac?_=1)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/09/201-Meeting-Across-the-River.flac>
-
 [Watch on Youtube: Bruce Springsteen - Prove It All Night - The Palladium, New York City, NY September 17, 1978 (SBD)](https://www.youtube.com/watch?v=E-5_5ft-rR8)
 
-**1984:** Bruce and the band play their fifth of six nights at the Philadelphia Spectrum. During the soundcheck, Bruce plays an original yet unreleased-to-this-day composition, “Beneath the Floodline.”
+**1984:** Bruce and the band play their fifth of six nights at the Philadelphia Spectrum. During the soundcheck, Bruce plays an original yet unreleased-to-this-day composition, "Beneath the Floodline."
 
 [1984-09-17 Philadelphia - Beneath The Floodline (soundcheck) by Brucebase Wiki](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F187932618&show_artwork=true&maxheight=1000&maxwidth=758)
 
 
 
-**1988:** The Human Rights Now! Tour stops at Montreal’s Olympic Stadium, where Bruce makes a guest-appearance during Sting’s set, duetting on “[Every Breath You Take](https://estreetshuffle.com/index.php/2019/04/07/matr-sting-and-bruce-springsteen-every-breath-you-take/),” Bruce’s first performance of that song.
+**1988:** The Human Rights Now! Tour stops at Montreal's Olympic Stadium, where Bruce makes a guest-appearance during Sting's set, duetting on "[Every Breath You Take](https://estreetshuffle.com/index.php/2019/04/07/matr-sting-and-bruce-springsteen-every-breath-you-take/)," Bruce's first performance of that song.
 
 [Watch Video Highlight](https://videopress.com/embed/XS7nF1a4)
 
@@ -42,6 +40,6 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/2003-09-17.jpg)
 
-**2006:** Bruce, Southside, Patti, and Bobby Bandiera and his band play a benefit at The Stone Pony for the Ranney School (which Bruce’s kids attended).
+**2006:** Bruce, Southside, Patti, and Bobby Bandiera and his band play a benefit at The Stone Pony for the Ranney School (which Bruce's kids attended).
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/2006-0917.jpg)

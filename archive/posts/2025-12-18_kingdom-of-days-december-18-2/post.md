@@ -10,11 +10,11 @@
 
 **1978:** A scheduled Darkness show in Portland, Oregon is postponed to the following day.
 
-**1980:** The River Tour comes home (or close to it, anyway) for the holidays, as Bruce and the band play their first of two nights at Madison Square Garden. Early in the set, they play “[Who’ll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)” for the first time ever.
+**1980:** The River Tour comes home (or close to it, anyway) for the holidays, as Bruce and the band play their first of two nights at Madison Square Garden. Early in the set, they play "[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)" for the first time ever.
 
 [Watch Video Highlight](https://videopress.com/embed/nmrhM2Ww)
 
-**1988:** Bruce joins local musicians at the Stone Pony and plays “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” for local ill and disabled children.
+**1988:** Bruce joins local musicians at the Stone Pony and plays "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" for local ill and disabled children.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/1988-12-18a.png)
 
@@ -28,7 +28,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/2000-12-18b.png)
 
-**2016:** BBC Radio 4 airs Bruce’s October 19th interview with Kirsty Young on *Desert Island Discs,* in which Bruce chooses eight songs he wouldn’t want to live without.
+**2016:** BBC Radio 4 airs Bruce's October 19th interview with Kirsty Young on *Desert Island Discs,* in which Bruce chooses eight songs he wouldn't want to live without.
 
 [https://estreetshuffle.com/wp-content/uploads/2023/12/DesertIslandDiscs-20161218-BruceSpringsteen.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2023/12/DesertIslandDiscs-20161218-BruceSpringsteen.mp3?_=1)
 

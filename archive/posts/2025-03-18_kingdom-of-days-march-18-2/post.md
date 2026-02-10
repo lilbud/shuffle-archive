@@ -12,11 +12,11 @@
 
 **1972:** The Bruce Springsteen Band plays a gig at Hampden-Sydney College in Virginia.
 
-**1973:** Bruce and his band finish their weeklong stint at Oliver’s in Boston with a rare Sunday matinee performance. Following the show, the band drives to the University of Rhode Island for an evening show opening for Sha Na Na. (Photo credit: Bob Savage)
+**1973:** Bruce and his band finish their weeklong stint at Oliver's in Boston with a rare Sunday matinee performance. Following the show, the band drives to the University of Rhode Island for an evening show opening for Sha Na Na. (Photo credit: Bob Savage)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0318.jpg)
 
-**1974:** Bruce and his unnamed band play their first two shows (of eight total) at Gertie’s in Dallas. Bruce is not yet popular in Dallas, and the shows are poorly attended.
+**1974:** Bruce and his unnamed band play their first two shows (of eight total) at Gertie's in Dallas. Bruce is not yet popular in Dallas, and the shows are poorly attended.
 
 **1977:** Bruce and the E Street Band bring the Lawsuit Tour to the Veterans Memorial Coliseum in New Haven, Connecticut.
 
@@ -26,13 +26,13 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-03-18.jpg)
 
-**1999:** Bruce and the reunited E Street Band play their first public show at Convention Hall in Asbury Park. The show is a warm-up for the upcoming tour and a benefit for local Asbury Park community organizations. “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)” and “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)” both make their debuts tonight; “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” makes its E Street Band debut; “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” is played for the first time in 15 years; and “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” and “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)” get new arrangements.
+**1999:** Bruce and the reunited E Street Band play their first public show at Convention Hall in Asbury Park. The show is a warm-up for the upcoming tour and a benefit for local Asbury Park community organizations. "[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)" and "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)" both make their debuts tonight; "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" makes its E Street Band debut; "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" is played for the first time in 15 years; and "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" and "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)" get new arrangements.
 
 News coverage from the day:
 
 [Watch on Youtube: Local news coverage of first rehearsal show - March 18, 1999](https://www.youtube.com/watch?v=zBc-SIs943E)
 
-…and video of the opener:
+...and video of the opener:
 
 [Watch on Youtube: Prove It All Night Bruce Springsteen March 18 1999, THE REUNION OF THE E STREET BAND](https://www.youtube.com/watch?v=yx-6qyVaUJA)
 
@@ -40,7 +40,7 @@ News coverage from the day:
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/1999-03-18b.jpg)
 
-**2000:** The Reunion Tour moves on to Memphis and the Pyramid Arena, where “Follow That Dream” makes its tour debut and only appearance.
+**2000:** The Reunion Tour moves on to Memphis and the Pyramid Arena, where "Follow That Dream" makes its tour debut and only appearance.
 
 [Watch on Youtube: Bruce Springsteen - FOLLOW THAT DREAM 2000 (audio)](https://www.youtube.com/watch?v=wKD0Fh5A8eg)
 
@@ -48,11 +48,11 @@ News coverage from the day:
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Commercial_Appeal_Sun__Mar_19__2000_.jpg)
 
-**2009:** Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park’s Convention Hall. Eavesdrop below to hear them work out several songs, including Jimmy Cliff’s “[Sufferin’ in the Land,](https://estreetshuffle.com/index.php/2020/09/14/cover-me-sufferin-in-the-land/)” which won’t make it to the final setlist.
+**2009:** Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park's Convention Hall. Eavesdrop below to hear them work out several songs, including Jimmy Cliff's "[Sufferin' in the Land,](https://estreetshuffle.com/index.php/2020/09/14/cover-me-sufferin-in-the-land/)" which won't make it to the final setlist.
 
 [Watch Video Highlight](https://videopress.com/embed/lxNzRjRj)
 
-**2011:** Bruce joins Dropkick Murphys on stage at the House of Blues in Boston for “[Peg O’ My Heart](https://estreetshuffle.com/index.php/2020/02/03/matr-dropkick-murphys-and-bruce-springsteen-peg-o-my-heart/),” “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/),” and “[I’m Shipping Up to Boston](https://estreetshuffle.com/index.php/2018/12/16/matr-dropkick-murphys-and-bruce-springsteen-im-shipping-up-to-boston/).”
+**2011:** Bruce joins Dropkick Murphys on stage at the House of Blues in Boston for "[Peg O' My Heart](https://estreetshuffle.com/index.php/2020/02/03/matr-dropkick-murphys-and-bruce-springsteen-peg-o-my-heart/)," "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)," and "[I'm Shipping Up to Boston](https://estreetshuffle.com/index.php/2018/12/16/matr-dropkick-murphys-and-bruce-springsteen-im-shipping-up-to-boston/)."
 
 [Watch on Youtube: Peg O' My Heart - Dropkick Murphys and The Boss (HiRes)](https://www.youtube.com/watch?v=rGvZGCh16yA)
 
@@ -62,7 +62,7 @@ News coverage from the day:
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/2011-03-18.jpg)
 
-**2012:** The Wrecking Ball Tour kicks off at Philips Arena in Atlanta, featuring the live debut of “[Easy Money](https://estreetshuffle.com/index.php/2021/06/10/roll-of-the-dice-easy-money/).” For more highlights from this show, see my [Where the Band Was report](https://estreetshuffle.com/index.php/2018/03/18/where-the-band-was-atlanta-march-18-2012/).
+**2012:** The Wrecking Ball Tour kicks off at Philips Arena in Atlanta, featuring the live debut of "[Easy Money](https://estreetshuffle.com/index.php/2021/06/10/roll-of-the-dice-easy-money/)." For more highlights from this show, see my [Where the Band Was report](https://estreetshuffle.com/index.php/2018/03/18/where-the-band-was-atlanta-march-18-2012/).
 
 [Watch on Youtube: Death To My Hometown (Atlanta 3/18/12)](https://www.youtube.com/watch?v=tH3X6MhqW4k)
 
@@ -82,11 +82,11 @@ News coverage from the day:
 
 [Watch on Youtube: Bruce Springsteen 2013-03-18 Thunder Road at Allphones Arena Sydney, Australia](https://www.youtube.com/watch?v=SZ1x1HZVp0c)
 
-**2023:** Bruce and the E Street Band bring their World Tour to Penn State University, where “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” makes its first tour appearance.
+**2023:** Bruce and the E Street Band bring their World Tour to Penn State University, where "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" makes its first tour appearance.
 
 [Watch on Youtube: Bruce Springsteen and The E Street Band - Hungry Heart - State College, PA - 03/18/2023](https://www.youtube.com/watch?v=Aoc_cCa9f0Y)
 
-[Watch on Youtube: Bruce Springsteen - I’m On Fire - State College, PA 03/18/23](https://www.youtube.com/watch?v=3urrJGvMa8Y)
+[Watch on Youtube: Bruce Springsteen - I'm On Fire - State College, PA 03/18/23](https://www.youtube.com/watch?v=3urrJGvMa8Y)
 
 [Watch on Youtube: 10th Ave Freeze Out - Springsteen - Penn State PA - 3/18/23](https://www.youtube.com/watch?v=bzpVJE1_dGk)
 

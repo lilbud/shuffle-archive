@@ -1,12 +1,12 @@
-If you’re Bruce Springsteen, and you’re in the middle of a tour, and your shows break the three-hour mark routinely, and you have six shows in a row coming up with only a day in between each of them, and you’re 66 years old, and your voice is straining, and you’ve just seen a doctor in Phoenix to make sure you’re good to go for the show, what do you do next?
+If you're Bruce Springsteen, and you're in the middle of a tour, and your shows break the three-hour mark routinely, and you have six shows in a row coming up with only a day in between each of them, and you're 66 years old, and your voice is straining, and you've just seen a doctor in Phoenix to make sure you're good to go for the show, what do you do next?
 
 Obviously, you turn in the longest show of the tour yet–35 songs–and play and sing your heart out until just a few minutes before midnight.
 
-There’s a point in every Springsteen tour where things loosen up and become unpredictable, and a point at which the show starts to grow until it bursts at the seams. We hadn’t yet hit the former by the time of this Oakland show (although it would shortly thereafter), but this show sure satisfied the latter.
+There's a point in every Springsteen tour where things loosen up and become unpredictable, and a point at which the show starts to grow until it bursts at the seams. We hadn't yet hit the former by the time of this Oakland show (although it would shortly thereafter), but this show sure satisfied the latter.
 
-The day of the show was one of the most inhospitable ones I can remember–just torrents of rain all day long. My friend Steve and I flew down for the show, and we were very glad we’d decided not to do GA for this show. (We got our tickets through Steve Van Zandt’s Rock and Roll Foundation and opted for great seats instead.) Even so, we had a hard time finding ways to stay dry in downtown Oakland, and as you can probably tell from the photo below, we were pretty well waterlogged by showtime.
+The day of the show was one of the most inhospitable ones I can remember–just torrents of rain all day long. My friend Steve and I flew down for the show, and we were very glad we'd decided not to do GA for this show. (We got our tickets through Steve Van Zandt's Rock and Roll Foundation and opted for great seats instead.) Even so, we had a hard time finding ways to stay dry in downtown Oakland, and as you can probably tell from the photo below, we were pretty well waterlogged by showtime.
 
-The Foundation tickets came with an awesome pre-show highlight, though–one that I’ll probably remember longer than the show itself: we got to meet Steve himself and take a quick photo with him!
+The Foundation tickets came with an awesome pre-show highlight, though–one that I'll probably remember longer than the show itself: we got to meet Steve himself and take a quick photo with him!
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/11313078_10208555440662040_8041608604007081818_o.jpg)
 

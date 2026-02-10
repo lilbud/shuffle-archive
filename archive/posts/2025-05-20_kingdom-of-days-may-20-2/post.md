@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Bruce Springsteen "Guide to Summer" June '92](https://www.youtube.com/watch?v=V8GA_hlYbzg)
 
-**1993:** Not one but two guest-stars when Bruce’s World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe’s “[Settle for Love](https://estreetshuffle.com/index.php/2020/04/22/matr-bruce-springsteen-and-joe-ely-settle-for-love/)” (which the two played at Joe’s show the night before), and Jerry Lee Lewis joined Bruce for encores of “[Great Balls of Fire](https://estreetshuffle.com/index.php/2022/08/10/matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/)” and “[Whole Lotta Shakin’ Goin’ On](https://estreetshuffle.com/index.php/2020/05/15/matr-bruce-springsteen-and-jerry-lee-lewis-whole-lotta-shakin-goin-on/).” Despite the special guests, the show is poorly reviewed by local press.
+**1993:** Not one but two guest-stars when Bruce's World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe's "[Settle for Love](https://estreetshuffle.com/index.php/2020/04/22/matr-bruce-springsteen-and-joe-ely-settle-for-love/)" (which the two played at Joe's show the night before), and Jerry Lee Lewis joined Bruce for encores of "[Great Balls of Fire](https://estreetshuffle.com/index.php/2022/08/10/matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/)" and "[Whole Lotta Shakin' Goin' On](https://estreetshuffle.com/index.php/2020/05/15/matr-bruce-springsteen-and-jerry-lee-lewis-whole-lotta-shakin-goin-on/)." Despite the special guests, the show is poorly reviewed by local press.
 
 [Watch on Youtube: Jerry Lee Lewis & Bruce Springsteen live in Dublin (1993)](https://www.youtube.com/watch?v=JkrlvfNoivc)
 
@@ -18,7 +18,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Star_Tue__May_25__1993_.jpg)
 
-**1995:** Bruce and Patti attend Don Henley’s wedding. Several musicians are in attendance and perform, including Bruce on “[634-5789 (Soulsville, U.S.A.)](https://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)”
+**1995:** Bruce and Patti attend Don Henley's wedding. Several musicians are in attendance and perform, including Bruce on "[634-5789 (Soulsville, U.S.A.)](https://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)"
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1995-0520.jpg)
 
@@ -30,11 +30,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20b.jpg)
 
-**2006:** “[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)” makes its Seeger Sessions Tour debut at the Oslo Spektrum.
+**2006:** "[Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)" makes its Seeger Sessions Tour debut at the Oslo Spektrum.
 
 [Watch Video Highlight](https://videopress.com/embed/zHfMSVF6)
 
-**2020:** Sirius XM debuts the fourth installment of Bruce’s *From My Home to Yours* series.
+**2020:** Sirius XM debuts the fourth installment of Bruce's *From My Home to Yours* series.
 
 [https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-20-Bruce-E-Street-Radio-DJ-set-4.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-20-Bruce-E-Street-Radio-DJ-set-4.mp3?_=8)
 

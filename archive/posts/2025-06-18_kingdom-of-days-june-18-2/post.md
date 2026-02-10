@@ -8,7 +8,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/06/1971-0618.jpg)
 
-**1983:** Bruce makes a guest appearance at The Stone Pony with The Diamonds. Listen to their mini-set of “[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/), “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/),” and “Twist and Shout” below.
+**1983:** Bruce makes a guest appearance at The Stone Pony with The Diamonds. Listen to their mini-set of "[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/), "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," and "Twist and Shout" below.
 
 [Watch Video Highlight](https://videopress.com/embed/bfu6gyfx)
 
@@ -20,27 +20,27 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/06/1985-0618.jpg)
 
-**1988:** In town for their Tunnel of Love show the following night, Bruce and Clarence make a guest appearance at the S.O.S. Racisme concert in Paris. The pair perform a mini-set, Bruce on guitar and harmonica and Clarence on sax and backing vocals. Watch this very unusual and beautiful performance below, including a wonderful “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” and the first-ever acoustic performance of “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).”
+**1988:** In town for their Tunnel of Love show the following night, Bruce and Clarence make a guest appearance at the S.O.S. Racisme concert in Paris. The pair perform a mini-set, Bruce on guitar and harmonica and Clarence on sax and backing vocals. Watch this very unusual and beautiful performance below, including a wonderful "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" and the first-ever acoustic performance of "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)."
 
 [Watch on Youtube: Bruce Springsteen and Clarrence Clemons SOS Racisme! 18th of June 1988 Paris](https://www.youtube.com/watch?v=7kltDPpjiP0)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1988-06-18.jpg)
 
-Meanwhile back home, newspapers report official confirmation of the end of Bruce’s separation from his first wife.
+Meanwhile back home, newspapers report official confirmation of the end of Bruce's separation from his first wife.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Daily_News_Sat__Jun_18__1988_.jpg)
 
-**1994:** Bruce performs “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)” with John Wesley Harding at McCabe’s Guitar Shop in Santa Monica. Their performance is recorded and will eventually be released as a bonus track on Harding’s *Awake* album in 2001.
+**1994:** Bruce performs "[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)" with John Wesley Harding at McCabe's Guitar Shop in Santa Monica. Their performance is recorded and will eventually be released as a bonus track on Harding's *Awake* album in 2001.
 
 [Watch on Youtube: John Wesley Harding Wreck On The Highway with Bruce Springsteen official video](https://www.youtube.com/watch?v=ND2EcrsB2bY)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/06/1994-06-18-scaled.jpg)
 
-**2008:** In Amsterdam on tour, Bruce finds time to perform “Thunder Road” via satellite for the memorial service for Tim Russert, who passed away five days earlier.
+**2008:** In Amsterdam on tour, Bruce finds time to perform "Thunder Road" via satellite for the memorial service for Tim Russert, who passed away five days earlier.
 
 [Watch on Youtube: Thunder Road - Tim Russert Memorial](https://www.youtube.com/watch?v=96ul2ivcmDQ)
 
-That night, Bruce plays three back-to-back tour premieres at Amsterdam’s Magic show: “[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/),” “[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/),” and “[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)” make for a great high-energy encore.
+That night, Bruce plays three back-to-back tour premieres at Amsterdam's Magic show: "[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)," "[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)," and "[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)" make for a great high-energy encore.
 
 [Watch on Youtube: Bruce Springsteen SUMMERTIME BLUES Amsterdam 18.06.2008](https://www.youtube.com/watch?v=g0PaDMFv50U)
 
@@ -64,7 +64,7 @@ That night, Bruce plays three back-to-back tour premieres at Amsterdam’s Magic
 
 [Watch on Youtube: Bruce Springsteen 2013-06-18 Glasgow - Shout](https://www.youtube.com/watch?v=d6Jqp8LBsQg)
 
-**2018:** The Asbury Lanes bowling alley and concert venue re-opens, and Bruce is on hand for the occasion. He joins Danny Clinch’s Tangiers Blues Band for four songs before an audience selected by a locals-only lottery.
+**2018:** The Asbury Lanes bowling alley and concert venue re-opens, and Bruce is on hand for the occasion. He joins Danny Clinch's Tangiers Blues Band for four songs before an audience selected by a locals-only lottery.
 
 [Watch on Youtube: Springsteen at Asbury Lanes, 6/18/18](https://www.youtube.com/watch?v=t7aCF9Uh85Q)
 

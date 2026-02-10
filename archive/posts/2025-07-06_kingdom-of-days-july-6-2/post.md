@@ -8,11 +8,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/06/mainpoint.jpg)
 
-**1975:** Bruce and the E Street Band work on “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)” at a *Born to Run* recording session at the Record Plant in New York City.
+**1975:** Bruce and the E Street Band work on "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)" at a *Born to Run* recording session at the Record Plant in New York City.
 
-**1978:** Bruce joins Gary Busey and The Old Dog Band on stage for “[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)” at the Sundance Saloon in Calabasas, California.
+**1978:** Bruce joins Gary Busey and The Old Dog Band on stage for "[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)" at the Sundance Saloon in Calabasas, California.
 
-**1981:** Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena’s opening stand. Recordings of “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/),” “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/),” and “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” will eventually be released on *Live 1975-85*.
+**1981:** Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena's opening stand. Recordings of "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)," "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)," and "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" will eventually be released on *Live 1975-85*.
 
 [Watch on Youtube: Independence Day (Live at Meadowlands Arena, E. Rutherford, NJ - July 1981)](https://www.youtube.com/watch?v=GSPNMNO5Enc)
 
@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Racing In The Street (Live at Meadowlands Arena, E. Rutherford, NJ - July 1981)](https://www.youtube.com/watch?v=dCILTxWFsow)
 
-**1984:** Night Two in Cincinnati on the Born in the U.S.A. Tour. Listen in on the soundcheck below, including a never-played “The Good, The Bad, and The Ugly.”
+**1984:** Night Two in Cincinnati on the Born in the U.S.A. Tour. Listen in on the soundcheck below, including a never-played "The Good, The Bad, and The Ugly."
 
 [Watch Video Highlight](https://videopress.com/embed/mB3khd4m)
 
@@ -38,25 +38,25 @@
 
 [Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/playlist?list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
 
-**1992:** Bruce and his new touring band kick off a five-night stand at Wembley Arena in London, the last stand of the European leg of World Tour 1992. The setlist features a rare “[With Every Wish.](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/)”
+**1992:** Bruce and his new touring band kick off a five-night stand at Wembley Arena in London, the last stand of the European leg of World Tour 1992. The setlist features a rare "[With Every Wish.](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/)"
 
 [Watch Video Highlight](https://videopress.com/embed/AzSUcXXM)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/07/1992-0706.jpg)
 
-**2019:** Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on “[Dirty Rotten Shame](https://estreetshuffle.com/index.php/2021/08/05/matr-garry-tallent-and-bruce-springsteen-dirty-rotten-shame/),” and later joining Southside Johnny & The Asbury Jukes for seven songs.
+**2019:** Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on "[Dirty Rotten Shame](https://estreetshuffle.com/index.php/2021/08/05/matr-garry-tallent-and-bruce-springsteen-dirty-rotten-shame/)," and later joining Southside Johnny & The Asbury Jukes for seven songs.
 
 [Watch on Youtube: Bruce Springsteen Gives Surprise Performance In Asbury Park](https://www.youtube.com/watch?v=mO5tTJvyA30)
 
 [Watch on Youtube: Bruce Springsteen with Garry Tallent at the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=eu9j35DrYTo)
 
-[Watch on Youtube: Bruce Springsteen sings “The Fever” with Southside Johnny st the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=yLy4Df41z0k)
+[Watch on Youtube: Bruce Springsteen sings "The Fever" with Southside Johnny st the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=yLy4Df41z0k)
 
 [Watch on Youtube: Bruce Springsteen and Southside Johnny: Talk to Me at the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=eZ2TOsR-imQ)
 
 [Watch on Youtube: Bruce Springsteen and Southside Johnny: I Don't Want to Go Home, Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=DpW738Y9FoE)
 
-[Watch on Youtube: Bruce Springsteen and Southside Johnny: Havin’ A Party at the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=At_NGkleZUI)
+[Watch on Youtube: Bruce Springsteen and Southside Johnny: Havin' A Party at the Stone Pony, July 6, 2019](https://www.youtube.com/watch?v=At_NGkleZUI)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/07/2019-07-06a.jpg)
 
@@ -68,4 +68,4 @@
 
 [Watch on Youtube: Working On The Highway - Bruce Springsteen, Hyde Park London 2023-07-06](https://www.youtube.com/watch?v=qs_vbgeV2-Q)
 
-[Watch on Youtube: BRUCE SPRINGSTEEN- „My Hometown“- London, July 6th- 2023, Hyde Park BST](https://www.youtube.com/watch?v=PeAhFEkCGfA)
+[Watch on Youtube: BRUCE SPRINGSTEEN- „My Hometown"- London, July 6th- 2023, Hyde Park BST](https://www.youtube.com/watch?v=PeAhFEkCGfA)

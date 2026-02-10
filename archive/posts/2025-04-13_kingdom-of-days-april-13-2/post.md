@@ -14,7 +14,7 @@
 
 **1974:** Bruce and his band open for Buzzy Linhart at The Joint in the Woods in Parsippany, New Jersey.
 
-**1976:** Bruce and the band play a sold-out show at Penn State University, where Bruce gets drawn into a scuffle between security and his road manager. Listen to a gorgeous rendition of “[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)” below.
+**1976:** Bruce and the band play a sold-out show at Penn State University, where Bruce gets drawn into a scuffle between security and his road manager. Listen to a gorgeous rendition of "[Frankie](https://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)" below.
 
 [Watch on Youtube: Bruce Springsteen Frankie 1976](https://www.youtube.com/watch?v=UGq8YkOyuMs)
 
@@ -28,33 +28,31 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1979-0413.jpg)
 
-**1984:** At the Ripley Music Hall in Philadelphia, Bruce joins Clarence Clemons and The Red Bank Rockers midway through their encore of “[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)” and stays for “Rockin’ All Over the World.” Listen to the moment the crowd realizes who’s there.
+**1984:** At the Ripley Music Hall in Philadelphia, Bruce joins Clarence Clemons and The Red Bank Rockers midway through their encore of "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)" and stays for "Rockin' All Over the World." Listen to the moment the crowd realizes who's there.
 
 [Watch on Youtube: Clarence Clemons and Bruce Springsteen - Philadelphia - 1984-04-13](https://www.youtube.com/watch?v=XlPAOjsEc9c)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/1984-04-13.jpg)
 
-**1985:** The third of five nights at Tokyo’s Yoyogi National Gymnasium, where Bruce plays “[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)” for the last time on the tour. Other than the two Christic shows in 1990, the song won’t be heard again for more than a decade.
+**1985:** The third of five nights at Tokyo's Yoyogi National Gymnasium, where Bruce plays "[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)" for the last time on the tour. Other than the two Christic shows in 1990, the song won't be heard again for more than a decade.
 
 [Watch Video Highlight](https://videopress.com/embed/jH8MQOe7)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/Daily_Record_Tue__Apr_16__1985_-scaled.jpg)
 
-Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s current hit “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)” with a story about his fascination with Elvis Presley.
+Also today: *American Top 40* guest host Chuck Britton introduces Bruce's current hit "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" with a story about his fascination with Elvis Presley.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3?_=1)
-
-<https://estreetshuffle.com/wp-content/uploads/2022/04/AT40-1985-04-13.mp3>
 
 **1988:** Bruce and the band play their second of two shows at The Summit in Houston.
 
 [Watch Video Highlight](https://videopress.com/embed/OkkTPjEr)
 
-**1993:** Bruce’s World Tour 1993 moves on to Lyon for a single show at Halle Tony Garnier.
+**1993:** Bruce's World Tour 1993 moves on to Lyon for a single show at Halle Tony Garnier.
 
 [Watch Video Highlight](https://videopress.com/embed/DWvX1khT)
 
-**1996:** The Italian leg of Bruce’s solo acoustic tour concludes with a show at Teatro Carlo Felice in Genoa.
+**1996:** The Italian leg of Bruce's solo acoustic tour concludes with a show at Teatro Carlo Felice in Genoa.
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - Genova, 13/4/1996 (full audio con traduzione parlato, master tape)](https://www.youtube.com/watch?v=KlnHV-oYuaM)
 
@@ -74,19 +72,17 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s curr
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.
 
-**2006:** At Asbury Park’s Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour. Their rehearsal performance of “[How Can a Poor Man Stand Such Times and Live?](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)” will be released on the *American Land Edition* of *[We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*.
+**2006:** At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour. Their rehearsal performance of "[How Can a Poor Man Stand Such Times and Live?](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)" will be released on the *American Land Edition* of *[We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*.
 
 [Watch on Youtube: How Can a Poor Man Stand Such Times and Live](https://www.youtube.com/watch?v=ibbOhr8t5pQ)
 
-**2008:** At the Magic Tour stop at the American Airlines Center in Dallas, “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” makes its tour premiere, and Jon Bon Jovi makes a guest appearance for “Glory Days.”
+**2008:** At the Magic Tour stop at the American Airlines Center in Dallas, "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" makes its tour premiere, and Jon Bon Jovi makes a guest appearance for "Glory Days."
 
 [https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3?_=2)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/04/2008-04-13-Glory-Days.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-13.jpg)
 
-**2012:** The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to “[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)” and plays “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)” in honor of Max’s birthday in the encores. Tour premiering tonight: “[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/),” “[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/),” and “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/).”
+**2012:** The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to "[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)" and plays "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)" in honor of Max's birthday in the encores. Tour premiering tonight: "[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)," "[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)," and "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)."
 
 [Watch on Youtube: Bruce Springsteen - Mountain of Love - Live from Buffalo (04/13/2012)](https://www.youtube.com/watch?v=WxyT7i0L4MQ)
 
@@ -98,8 +94,8 @@ Also today: *American Top 40* guest host Chuck Britton introduces Bruce’s curr
 
 **2018:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2019:** Bruce guest stars with Danny Clinch’s Tangiers Blues Band at the annual Kristen Ann Carr benefit.
+**2019:** Bruce guest stars with Danny Clinch's Tangiers Blues Band at the annual Kristen Ann Carr benefit.
 
-[Watch on Youtube: Bruce Springsteen with Danny Clinch /Tangier’s Blues Band (video shot by Esther Peyron)](https://www.youtube.com/watch?v=gC72nJOeExc)
+[Watch on Youtube: Bruce Springsteen with Danny Clinch /Tangier's Blues Band (video shot by Esther Peyron)](https://www.youtube.com/watch?v=gC72nJOeExc)
 
 [Watch on Youtube: Bruce Springsteen jams with Danny Clinch/Tangiers Blues Band at KAC 2019 "Down the Road A Piece"](https://www.youtube.com/watch?v=HfbSY7a8sks)

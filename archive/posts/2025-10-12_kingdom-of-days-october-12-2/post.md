@@ -12,7 +12,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1976-10-12.jpg)
 
-**1979:** Bruce records “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)” with the E Street Band at The Power Station in New York City.
+**1979:** Bruce records "[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)" with the E Street Band at The Power Station in New York City.
 
 [Watch on Youtube: Crush on You](https://www.youtube.com/watch?v=zDN8pvyKYkU)
 
@@ -22,7 +22,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1988-10-12.jpg)
 
-**2005:** Bruce tour premieres “Thunder Road” (in its only tour performance) and “[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)” (on autoharp), at his solo acoustic show in Minneapolis.
+**2005:** Bruce tour premieres "Thunder Road" (in its only tour performance) and "[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)" (on autoharp), at his solo acoustic show in Minneapolis.
 
 [Watch Video Highlight](https://videopress.com/embed/OSxHcFEA)
 
@@ -34,9 +34,9 @@
 
 **2013:** In Cambridge, Massachusetts, the American Academy of Arts and Sciences inducts Bruce into their ranks, along with Pete Seeger, Herbie Hancock, Sally Field, and Robert De Niro.
 
-**2017:** It’s officially opening night for *Springsteen on Broadway* at a star-studded premiere (including the entire E Street Band) that follows seven preview performances. In attendance tonight: Tom Hanks, Steven Spielberg, Kate Capshaw, Nathan Lane, Andrew Lloyd Weber, Ralph Lauren, Tina Fey, Jimmy Iovine, David Geffen, Laura Linney, Jon Stewart, Senator Chuck Schumer, the entire E Street Band and more.
+**2017:** It's officially opening night for *Springsteen on Broadway* at a star-studded premiere (including the entire E Street Band) that follows seven preview performances. In attendance tonight: Tom Hanks, Steven Spielberg, Kate Capshaw, Nathan Lane, Andrew Lloyd Weber, Ralph Lauren, Tina Fey, Jimmy Iovine, David Geffen, Laura Linney, Jon Stewart, Senator Chuck Schumer, the entire E Street Band and more.
 
-[Watch on Youtube: ‘The Boss’ Takes The Stage On Broadway](https://www.youtube.com/watch?v=xCn3Ffh0qjk)
+[Watch on Youtube: 'The Boss' Takes The Stage On Broadway](https://www.youtube.com/watch?v=xCn3Ffh0qjk)
 
 [Watch on Youtube: Springsteen kicks off Broadway run](https://www.youtube.com/watch?v=rqz8SskJ5aA)
 

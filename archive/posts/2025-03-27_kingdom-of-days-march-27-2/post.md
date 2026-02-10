@@ -4,11 +4,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1970-0327.jpg)
 
-**1971:** Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park’s Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band’s set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)
+**1971:** Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park's Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band's set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1971-0327.jpg)
 
-**1976:** Bruce and Steve drop by Atlanta’s WQXI-FM for an interview with DJ Cat Simon.
+**1976:** Bruce and Steve drop by Atlanta's WQXI-FM for an interview with DJ Cat Simon.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0327.jpg)
 
@@ -16,7 +16,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
 
-**1983:** Bruce checks out The Bangles’ performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.
+**1983:** Bruce checks out The Bangles' performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.
 
 [Susanna Hoffs on how Bruce Springsteen helped The Bangles get signed by SiriusXM Entertainment](https://w.soundcloud.com/player/?visual=true&url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F655331276&show_artwork=true&maxheight=1000&maxwidth=758)
 
@@ -26,11 +26,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/RxOJwN5n)
 
-**1996:** Bruce’s scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year’s Oscar ceremony.
+**1996:** Bruce's scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year's Oscar ceremony.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/03/19960322_Press_01_Reschedule.jpg)
 
-**2013:** The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/).”
+**2013:** The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)."
 
 [Watch on Youtube: Bruce Springsteen - Jungleland - Melbourne, Australia 27 March 2013](https://www.youtube.com/watch?v=VWJ36EUmKPg)
 
@@ -50,8 +50,8 @@
 
 [Watch on Youtube: Bruce Springsteen Washington DC 3-27-23 ENCORE](https://www.youtube.com/watch?v=bLUhR_LSLmc)
 
-**2024:** Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn, performing “Sandpaper” and an encore of “Revival” together. Maggie Rogers joins Bruce and Zach for the encore.
+**2024:** Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn, performing "Sandpaper" and an encore of "Revival" together. Maggie Rogers joins Bruce and Zach for the encore.
 
 [Watch on Youtube: Zach Bryan - Sandpaper (feat. Bruce Springsteen)](https://www.youtube.com/watch?v=07MFGBvHiEk)
 
-[Watch on Youtube: Zach Bryan w/ Bruce Springsteen & Maggie Rogers, “Revival” live at Barclays Center 3/27/24](https://www.youtube.com/watch?v=G_E1Q3un3iY)
+[Watch on Youtube: Zach Bryan w/ Bruce Springsteen & Maggie Rogers, "Revival" live at Barclays Center 3/27/24](https://www.youtube.com/watch?v=G_E1Q3un3iY)

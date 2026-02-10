@@ -4,7 +4,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1971-12-10.png)
 
-**1975:** Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall University, where they play “[Party Lights](https://estreetshuffle.com/index.php/2022/06/01/cover-me-party-lights/)” for the last time to date.
+**1975:** Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall University, where they play "[Party Lights](https://estreetshuffle.com/index.php/2022/06/01/cover-me-party-lights/)" for the last time to date.
 
 [Watch Video Highlight](https://videopress.com/embed/32Ky6u31)
 
@@ -24,7 +24,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1980-12-11.png)
 
-**1984:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, where they add “My Old Kentucky Home” to “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” for the occasion.
+**1984:** Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, where they add "My Old Kentucky Home" to "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" for the occasion.
 
 [Watch Video Highlight](https://videopress.com/embed/80rWaa1S)
 
@@ -44,6 +44,6 @@
 
 [Watch on Youtube: Bruce Springsteen - Italian TV appearance - 1998-12-11](https://www.youtube.com/watch?v=r5h51SBnXUo)
 
-**2002:** Bruce and the E Street Band team up with the Max Weinberg 7 on *Late Night with Conan O’Brien* for a special holiday performance and one of Bruce’s all-time best television appearances.
+**2002:** Bruce and the E Street Band team up with the Max Weinberg 7 on *Late Night with Conan O'Brien* for a special holiday performance and one of Bruce's all-time best television appearances.
 
 [Watch on Youtube: Bruce Springsteen & the E Street Band - Live on Conan - 12/11/2002](https://www.youtube.com/watch?v=jCfSu99bAqc)

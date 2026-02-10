@@ -1,12 +1,12 @@
-It must be tough to be a tour scheduler for Bruce Springsteen and the E Street Band, even when there’s not a pandemic going on.
+It must be tough to be a tour scheduler for Bruce Springsteen and the E Street Band, even when there's not a pandemic going on.
 
-It’s not like the old days where all the band members lived to tour. These days they all have their own solo careers and side interests, and sometimes the stars just won’t align perfectly. For example , in 2009, Max Weinberg had to bow out of several shows due to his late night television commitments, so Bruce drafted Jay Weinberg to sit in for his dad.
+It's not like the old days where all the band members lived to tour. These days they all have their own solo careers and side interests, and sometimes the stars just won't align perfectly. For example , in 2009, Max Weinberg had to bow out of several shows due to his late night television commitments, so Bruce drafted Jay Weinberg to sit in for his dad.
 
-But no one’s been harder to schedule around than the multi-talented, many-hatted Steven Van Zandt, whose television acting career has often required some creative scheduling logistics .
+But no one's been harder to schedule around than the multi-talented, many-hatted Steven Van Zandt, whose television acting career has often required some creative scheduling logistics .
 
-In 2013, however, geography trumped ingenuity. Stevie was deep into filming Season Two of *Lilyhammer* by then, which had become a smash hit in Norway where the show was set and filmed. (At one point, one-fifth of the country’s population was reportedly watching Stevie’s show.) Netflix brought the show over to America as its first original series, and demand was high for new episodes.
+In 2013, however, geography trumped ingenuity. Stevie was deep into filming Season Two of *Lilyhammer* by then, which had become a smash hit in Norway where the show was set and filmed. (At one point, one-fifth of the country's population was reportedly watching Stevie's show.) Netflix brought the show over to America as its first original series, and demand was high for new episodes.
 
-With the E Street Band heading down under to Australia in the early months of 2013, it just wasn’t practical for Stevie to jaunt back and forth to Norway. So for a short time (that wouldn’t be the last), Steve bowed out for a stretch, and Bruce tapped Tom Morello to take Little Steven’s place.
+With the E Street Band heading down under to Australia in the early months of 2013, it just wasn't practical for Stevie to jaunt back and forth to Norway. So for a short time (that wouldn't be the last), Steve bowed out for a stretch, and Bruce tapped Tom Morello to take Little Steven's place.
 
 Stevie rejoined the band on April 29th for the European leg of the tour, which kicked off in, of all places, Norway, where Stevie was now a bona fide TV superstar–and Bruce was not about to let the moment go unmilked.
 
@@ -14,24 +14,24 @@ When the band took the stage that night, Little Steven was conspicuously absent.
 
 [Watch on Youtube: My kind of town - -pro shot 2014 - steve van zandt- bruce springsteen](https://www.youtube.com/watch?v=qr6P2cFhWY4)
 
-Is there any genre out of reach out of the E Street Band? With their Wrecking Ball Tour horn section, they tackled Frank Sinatra’s 1964 “My Kind of Town” single (from the movie *Robin and the 7 Hoods*) with as much suppleness as they bring to Bruce’s own catalog.
+Is there any genre out of reach out of the E Street Band? With their Wrecking Ball Tour horn section, they tackled Frank Sinatra's 1964 "My Kind of Town" single (from the movie *Robin and the 7 Hoods*) with as much suppleness as they bring to Bruce's own catalog.
 
 [Watch on Youtube: My Kind of Town (Frank Sinatra) | Robin and the 7 Hoods | Warner Archive](https://www.youtube.com/watch?v=don1x4DHn2A)
 
-And let’s talk about those pipes! We rarely get to hear Stevie get a vocal spotlight moment on the E Street stage, and certainly not a song-length one. He certainly made the most of it, taking to a Sinatra standard with surprising ease.
+And let's talk about those pipes! We rarely get to hear Stevie get a vocal spotlight moment on the E Street stage, and certainly not a song-length one. He certainly made the most of it, taking to a Sinatra standard with surprising ease.
 
-There was a reason he seemed so comfortable with the song: it wasn’t the first time he’d performed it. He’d memorably performed it on an early episode of *Lilyhammer*, which is why the crowd reacted with such delight when he reprised it that night with Bruce and the band.
+There was a reason he seemed so comfortable with the song: it wasn't the first time he'd performed it. He'd memorably performed it on an early episode of *Lilyhammer*, which is why the crowd reacted with such delight when he reprised it that night with Bruce and the band.
 
 [Watch on Youtube: Little Steven - My Kind Of Town (From "Lilyhammer") ft. The Interstellar Jazz Renegades](https://www.youtube.com/watch?v=A_-9HZuyaTs)
 
-He’d covered it before, and he’d cover it again: When a *Lilyhammer* soundtrack album was released the following year, Little Steven’s cover of “My Kind of Town” was the album’s lead single.
+He'd covered it before, and he'd cover it again: When a *Lilyhammer* soundtrack album was released the following year, Little Steven's cover of "My Kind of Town" was the album's lead single.
 
 Stevie performed the song on the promotional tour that followed, including this great team-up with Jimmy Fallon on *The Tonight Show*.
 
 [Watch Video Highlight](https://videopress.com/embed/aqbx90Zx)
 
-*Lilyhammer* wrapped production after only three acclaimed seasons (including a great Bruce cameo in the final episode), but the *original* original Netflix series is still available to stream. If you haven’t checked it out yet, now’s a great time to do so.
+*Lilyhammer* wrapped production after only three acclaimed seasons (including a great Bruce cameo in the final episode), but the *original* original Netflix series is still available to stream. If you haven't checked it out yet, now's a great time to do so.
 
-**My Kind of Town**  
-**First performed:** April 29, 2013 (Oslo, Norway)  
+**My Kind of Town**
+**First performed:** April 29, 2013 (Oslo, Norway)
 **Last performed:** April 29, 2013 (Oslo, Norway)

@@ -6,15 +6,15 @@
 
 **1974:** A scheduled gig at Archbishop John Carroll High School in Radnor, Pennsylvania is cancelled due to low ticket sales.
 
-**1979:** Bruce and the E Street Band work on “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” at the Power Station in New York City.
+**1979:** Bruce and the E Street Band work on "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" at the Power Station in New York City.
 
-**1982:** Bruce records “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)” in his home studio. It will be released later on the year on *Nebraska*.
+**1982:** Bruce records "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)" in his home studio. It will be released later on the year on *Nebraska*.
 
 [Watch on Youtube: My Father's House](https://www.youtube.com/watch?v=r0NKGaPSSBQ)
 
 **1983:** Bruce and the E Street Band record for their upcoming album at The Hit Factory in New York City.
 
-**1993:** Bruce’s World Tour 1993 moves on to Rome for a show at Stadio Flaminio.
+**1993:** Bruce's World Tour 1993 moves on to Rome for a show at Stadio Flaminio.
 
 [Watch on Youtube: This Hard Land - Roma 1993 (SUB ITA)](https://www.youtube.com/watch?v=f_deiYzeqHI)
 
@@ -28,7 +28,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/fOZ2sDFN)
 
-**1999:** The Reunion Tour stops at RDS Arena in Dublin, where the E Street Band plays “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” for the very first time.
+**1999:** The Reunion Tour stops at RDS Arena in Dublin, where the E Street Band plays "[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)" for the very first time.
 
 [Watch Video Highlight](https://videopress.com/embed/EofiezBc)
 
@@ -42,7 +42,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Old Dan Tucker](https://www.youtube.com/watch?v=Iuh96kiIU2M?list=PLk9jHCsuoh6mPdX4YMgcpjjqh2IW4oDmZ)
 
-**2008:** Bruce and the E Street Band play their final of three shows at RDS Arena in Dublin as the final European leg of the Magic Tour picks up steam. The setlist features a rare outing for “[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/).”
+**2008:** Bruce and the E Street Band play their final of three shows at RDS Arena in Dublin as the final European leg of the Magic Tour picks up steam. The setlist features a rare outing for "[4th of July, Asbury Park (Sandy)](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)."
 
 [Watch on Youtube: Bruce Springsteen "Sandy " RDS Arena 25/5/2008](https://www.youtube.com/watch?v=0jxZCgUa79A)
 
@@ -50,7 +50,7 @@
 
 [Watch on Youtube: Bruce Springsteen Dublin 25/05/2008 Full Concert](https://www.youtube.com/watch?v=0ojWymGABfs)
 
-**2012:** Frankfurt fans get tour premieres of “[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/),” “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/),” and “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)” as the Wrecking Ball Tour reaches Germany.
+**2012:** Frankfurt fans get tour premieres of "[Summertime Blues](https://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)," "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)," and "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)" as the Wrecking Ball Tour reaches Germany.
 
 [Watch on Youtube: Bruce Springsteen - Badlands (end) + We Take Care Of Our Own (2012-05-25 - Frankfurt)](https://www.youtube.com/watch?v=dDd6mLOGLrc)
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Tenth Avenue Freeze-Out (2012-05-25 - Frankfurt)](https://www.youtube.com/watch?v=N4xxbtynLbU)
 
-**2016:** Of all the tour premieres one might predict for the River Tour’s stop in Manchester, “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” probably wouldn’t be one of them (but that’s what it was).
+**2016:** Of all the tour premieres one might predict for the River Tour's stop in Manchester, "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" probably wouldn't be one of them (but that's what it was).
 
 [Watch on Youtube: Santa claus is coming to town bruce springsteen etihad manchester 2016 live](https://www.youtube.com/watch?v=lrkI254iEaU)
 

@@ -1,10 +1,10 @@
 ***New for 2025:** New entry for 1978, 1979, 1996, and 2008*
 
-**1978:** At the Record Plant in New York City, Bruce and his studio team complete the mix for “[Darkness on the Edge of Town.](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)”
+**1978:** At the Record Plant in New York City, Bruce and his studio team complete the mix for "[Darkness on the Edge of Town.](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)"
 
 [Watch on Youtube: Darkness On the Edge of Town](https://www.youtube.com/watch?v=0LpdEyGhNxM)
 
-**1979:** Bruce and the E Street Band rehearse for their upcoming album in Bruce’s home studio in Holmdel, although several of the songs they work on won’t see release for almost four decades.
+**1979:** Bruce and the E Street Band rehearse for their upcoming album in Bruce's home studio in Holmdel, although several of the songs they work on won't see release for almost four decades.
 
 [Watch on Youtube: Bruce Springsteen Chain Lightning](https://www.youtube.com/watch?v=6CeHuKvkITU)
 
@@ -14,7 +14,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
 
-**1988:** Detroit radio station WRIF-FM airs a bootleg of last month’s Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can’t envision a day when bootlegs are commonly played on the radio.
+**1988:** Detroit radio station WRIF-FM airs a bootleg of last month's Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can't envision a day when bootlegs are commonly played on the radio.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/03/1988-03-30.jpg)
 
@@ -28,7 +28,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30b.png)
 
-**1996:** Bruce’s scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year’s Oscars ceremony.
+**1996:** Bruce's scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year's Oscars ceremony.
 
 **2000:** The Reunion Tour comes to the Pepsi Center in Denver for the first of two nights.
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Dave Grohl on Bruce Springsteen's "secret" letter (CFOX - Vancouver 2017)](https://www.youtube.com/watch?v=ftsBk0Sq2A8)
 
-**2013:** Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/).”
+**2013:** Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)."
 
 [Watch on Youtube: Tougher Than The Rest - Jimmy Barnes & Bruce Springsteen Hanging Rock Sat 30 March 2013](https://www.youtube.com/watch?v=rJtMOZ-MMRQ)
 

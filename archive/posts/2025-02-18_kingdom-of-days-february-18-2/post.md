@@ -16,7 +16,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1981-02-18.jpg)
 
-**1984:** Bruce and Nils jam at Bruce’s house and listen to the just-completed *Born in the U.S.A.* album. At some point, they watch TV and see MTV announce Steve Van Zandt’s departure from the band. Nils puts in a good word for himself that will pay off not that far down the road.
+**1984:** Bruce and Nils jam at Bruce's house and listen to the just-completed *Born in the U.S.A.* album. At some point, they watch TV and see MTV announce Steve Van Zandt's departure from the band. Nils puts in a good word for himself that will pay off not that far down the road.
 
 **1993:** *MTV Plugged* (the video release) is certified gold by the Recording Industry Association of America.
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Bruce Springsteen Born to Run Atlanta 2/18/16](https://www.youtube.com/watch?v=Qkdr9goDgJ8)
 
-**2017:** Bruce closes his Australian summer tour with a show at Hunter Valley that features rare performances of “[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)” and “[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/).”
+**2017:** Bruce closes his Australian summer tour with a show at Hunter Valley that features rare performances of "[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)" and "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)."
 
 [Watch on Youtube: I Fought The Law (Live at Hope Estate Winery, Hunter Valley, AU - 02/18/17 - Official Audio)](https://www.youtube.com/watch?v=IVuIXL30OC4)
 
@@ -46,11 +46,11 @@
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road - Hunter Valley 18th February 2017](https://www.youtube.com/watch?v=jZWSzzVzzWU)
 
-**2023:** Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during “[Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/).”
+**2023:** Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during "[Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)."
 
 [Watch on Youtube: Bruce Springsteen - Ghosts - Kansas City, 2/18/2023](https://www.youtube.com/watch?v=dQaRy0bGWMc)
 
-[Watch on Youtube: Bruce Springsteen- Kitty’s Back - Kansas City, 2/18/2023](https://www.youtube.com/watch?v=4L2PqWVCnbg)
+[Watch on Youtube: Bruce Springsteen- Kitty's Back - Kansas City, 2/18/2023](https://www.youtube.com/watch?v=4L2PqWVCnbg)
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band "Nightshift" T-Mobile Center, Kansas City, MO, 2.18.23](https://www.youtube.com/watch?v=qxnKwFtSnJY)
 

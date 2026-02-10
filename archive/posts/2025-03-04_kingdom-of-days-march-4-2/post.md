@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 1988*
 
-**1973:** What would have been Bruce’s first-ever appearance in Seattle is scuttled when he bows out of a scheduled gig opening for Paul Butterfield at the Paramount Theater. (Note: Brucebase lists this show as having been cancelled, but a newspaper review reveals that it went on without Bruce’s involvement.)
+**1973:** What would have been Bruce's first-ever appearance in Seattle is scuttled when he bows out of a scheduled gig opening for Paul Butterfield at the Paramount Theater. (Note: Brucebase lists this show as having been cancelled, but a newspaper review reveals that it went on without Bruce's involvement.)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1973-03-03.png)
 
@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Bruce Springsteen and Patti Scialfa at a hockey game - 1994-03-04](https://www.youtube.com/watch?v=zrVi-AgoBiE)
 
-**1999:** Rehearsals begin for Bruce Springsteen and the E Street Band’s Reunion Tour in Asbury Park.
+**1999:** Rehearsals begin for Bruce Springsteen and the E Street Band's Reunion Tour in Asbury Park.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1999-03-04.png)
 
@@ -36,7 +36,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/2000-03-04.jpg)
 
-**2003:** In Jacksonville along the Rising Tour, the band covers “[Let’s Go, Let’s Go, Let’s Go](https://estreetshuffle.com/index.php/2018/09/26/matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/)” in memory of Hank Ballard, who died the week prior. This show also features the tour debut (and only the second E Street Band performance) of “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/).” Watch the full show below.
+**2003:** In Jacksonville along the Rising Tour, the band covers "[Let's Go, Let's Go, Let's Go](https://estreetshuffle.com/index.php/2018/09/26/matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/)" in memory of Hank Ballard, who died the week prior. This show also features the tour debut (and only the second E Street Band performance) of "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)." Watch the full show below.
 
 [Watch Video Highlight](https://videopress.com/embed/xKFbULno)
 

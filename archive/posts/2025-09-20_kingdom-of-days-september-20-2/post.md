@@ -8,7 +8,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/oMbk0dT7)
 
-**1974:** Bruce and the new E Street Band play a sold-out show at Philadelphia’s Tower Theater.
+**1974:** Bruce and the new E Street Band play a sold-out show at Philadelphia's Tower Theater.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1974-0920.jpg)
 
@@ -18,7 +18,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1975-09-20.jpg)
 
-**1978:** Another stellar show from the Darkness Tour’s homecoming stand at the Capitol Theater in Passaic, available as part of Bruce’s official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18679/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-20-1978-Capitol-Theatre-Passaic-NJ.html)). Not only do we have yet another fully pro-shot video of this show, we also have a recording of the soundcheck, which has some fascinating covers and the earliest known version of a prototypical “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/).” The show itself features the tour premiere of “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” and a continually evolving “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/),” played here with its instrumental introduction for the first time.
+**1978:** Another stellar show from the Darkness Tour's homecoming stand at the Capitol Theater in Passaic, available as part of Bruce's official archive series (get it [here](https://live.brucespringsteen.net/live-music/0,18679/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-20-1978-Capitol-Theatre-Passaic-NJ.html)). Not only do we have yet another fully pro-shot video of this show, we also have a recording of the soundcheck, which has some fascinating covers and the earliest known version of a prototypical "[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)." The show itself features the tour premiere of "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" and a continually evolving "[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)," played here with its instrumental introduction for the first time.
 
 [Watch on Youtube: Bruce Springsteen - Go Away (Come Close) - Capitol Theatre, Passaic, NJ (September 20, 1978)](https://www.youtube.com/watch?v=Sj6CyZFOwkw)
 
@@ -36,17 +36,17 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/09/Lexington_Herald_Leader_1982_09_26_45-scaled.jpg)
 
-**1984:** In town a day early for his Born in the U.S.A. Tour stop, Bruce makes his second guest appearance with the Iron City Houserockers (fronted by Joe Grushecky in one of the band’s final performances) at the Pennsylvania Decade in Pittsburgh.
+**1984:** In town a day early for his Born in the U.S.A. Tour stop, Bruce makes his second guest appearance with the Iron City Houserockers (fronted by Joe Grushecky in one of the band's final performances) at the Pennsylvania Decade in Pittsburgh.
 
-**1993:** Patti Scialfa appears on *The Late Show with David Letterman,* promoting her recent *Rumble Doll* album and performing “Lucky Girl.”
+**1993:** Patti Scialfa appears on *The Late Show with David Letterman,* promoting her recent *Rumble Doll* album and performing "Lucky Girl."
 
 [Watch Video Highlight](https://videopress.com/embed/3ZCFGfGj)
 
-**1994:** Bruce and Paul Rodgers join John Fogerty on stage at the House of Blues in West Hollywood for “[In the Midnight Hour.](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)”
+**1994:** Bruce and Paul Rodgers join John Fogerty on stage at the House of Blues in West Hollywood for "[In the Midnight Hour.](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)"
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1994-09-20.jpg)
 
-**1999:** Bruce and the reunited E Street Band play their third of six nights in Philadelphia on the Reunion Tour, where Bruce improvises a new verse for “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).”
+**1999:** Bruce and the reunited E Street Band play their third of six nights in Philadelphia on the Reunion Tour, where Bruce improvises a new verse for "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)."
 
 [Watch Video Highlight](https://videopress.com/embed/cbcMa6fr)
 
@@ -54,11 +54,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/CBhRcW0u)
 
-**2002:** Bruce films the official video for “[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)” in Asbury Park with director Mark Pellington, performing the lead vocals live on every take–*for sixteen hours*.
+**2002:** Bruce films the official video for "[Lonesome Day](https://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)" in Asbury Park with director Mark Pellington, performing the lead vocals live on every take–*for sixteen hours*.
 
 [Watch on Youtube: Bruce Springsteen - Lonesome Day](https://www.youtube.com/watch?v=SAMkFVJ-ews)
 
-**2003:** Buffalo gets one of the best and certainly the most surprising shows from the Rising Tour stadium leg at the Darien Lake Performing Arts Center. Bruce opens with the tour premiere of “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” and debuts the as-yet-unreleased outtake, “[County Fair.](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/)” “[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)” is also tour premiered, and “Leap of Faith” makes a return appearance. By now, it’s apparent to all that Bruce is deliberately unearthing material he hasn’t touched in years (if at all), and when his upcoming compilation album, *The Essential Bruce Springsteen* tracklist is announced, it becomes clear why.
+**2003:** Buffalo gets one of the best and certainly the most surprising shows from the Rising Tour stadium leg at the Darien Lake Performing Arts Center. Bruce opens with the tour premiere of "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)" and debuts the as-yet-unreleased outtake, "[County Fair.](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/)" "[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)" is also tour premiered, and "Leap of Faith" makes a return appearance. By now, it's apparent to all that Bruce is deliberately unearthing material he hasn't touched in years (if at all), and when his upcoming compilation album, *The Essential Bruce Springsteen* tracklist is announced, it becomes clear why.
 
 [Watch on Youtube: Focus On: Federici (3-05) County Fair -- Darien Lake PAC - Buffalo, NY (9-20-2003)](https://www.youtube.com/watch?v=I21wWMXEvjw)
 
@@ -68,7 +68,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2006-09-20.jpg)
 
-**2009:** Bruce premieres a new concept, playing a full album start-to-finish in select shows. Kicking off at the United Center in Chicago, Bruce and the band play *Born to Run* in full, with Richard Davis and Curt Ramm as guest musicians. The encores are pretty great too, featuring tour premieres of “[Da Doo Ron Ron](https://estreetshuffle.com/index.php/2019/01/02/matr-bruce-springsteen-and-darlene-love-da-doo-ron-ron/)” and “[Rockin’ Robin](https://estreetshuffle.com/index.php/2021/08/10/cover-me-rockin-robin/),” and a rare “[I’m Goin’ Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/).” In the soundcheck, Bruce works on a new song to be debuted later in the month at Giants Stadium.
+**2009:** Bruce premieres a new concept, playing a full album start-to-finish in select shows. Kicking off at the United Center in Chicago, Bruce and the band play *Born to Run* in full, with Richard Davis and Curt Ramm as guest musicians. The encores are pretty great too, featuring tour premieres of "[Da Doo Ron Ron](https://estreetshuffle.com/index.php/2019/01/02/matr-bruce-springsteen-and-darlene-love-da-doo-ron-ron/)" and "[Rockin' Robin](https://estreetshuffle.com/index.php/2021/08/10/cover-me-rockin-robin/)," and a rare "[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)." In the soundcheck, Bruce works on a new song to be debuted later in the month at Giants Stadium.
 
 [Watch on Youtube: Bruce Springsteen Wrecking Ball 2009-09-20 Chicago Soundcheck](https://www.youtube.com/watch?v=0Vk6rblSo_4)
 

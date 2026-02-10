@@ -1,119 +1,119 @@
-Let’s just get this out of the way up front: we’re not going to discuss that horrendous “Jerry Maguire Mix.”
+Let's just get this out of the way up front: we're not going to discuss that horrendous "Jerry Maguire Mix."
 
-It’s not that I have something against the movie. In fact, it’s actually one of my top three all-time favorites. And I certainly don’t have anything against the song–“Secret Garden” ranks among my favorites as well.
+It's not that I have something against the movie. In fact, it's actually one of my top three all-time favorites. And I certainly don't have anything against the song–"Secret Garden" ranks among my favorites as well.
 
-I don’t even have an issue with the way the song was used in the movie–that pivotal scene is beautiful, and the song foreshadows the movie’s conflict that we can’t see coming yet (but should).
+I don't even have an issue with the way the song was used in the movie–that pivotal scene is beautiful, and the song foreshadows the movie's conflict that we can't see coming yet (but should).
 
-My beef is with whoever watched the movie, listened to the song, and came away thinking, “Wow, that’s a romantic song.”
+My beef is with whoever watched the movie, listened to the song, and came away thinking, "Wow, that's a romantic song."
 
-Because it’s not.
+Because it's not.
 
-Don’t give me any of that “You had me at hello” nonsense. The message of this song is: you won’t even have me at goodbye. Not all of me, anyway.
+Don't give me any of that "You had me at hello" nonsense. The message of this song is: you won't even have me at goodbye. Not all of me, anyway.
 
-Let’s take a careful listen, and then we’ll dig in. In fact, let’s start with the beautiful but rarely seen official video–it’s one of Bruce’s very best, and it gets the point across better than any movie montage could.
+Let's take a careful listen, and then we'll dig in. In fact, let's start with the beautiful but rarely seen official video–it's one of Bruce's very best, and it gets the point across better than any movie montage could.
 
 [Watch Video Highlight](https://videopress.com/embed/1Z00tuHY)
 
-(Yes, that video bears remarkable structural and stylistic similarity to the video for “[Girls in Their Summer Clothes”](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/) (right down to the color palette), and watching them back-to-back highlights the toll that time and age exact. The narrator of “Girls in Their Summer Clothes” has long since dropped his hammer and his vise, and he knows that garden is going to stay far out of reach.)
+(Yes, that video bears remarkable structural and stylistic similarity to the video for "[Girls in Their Summer Clothes"](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/) (right down to the color palette), and watching them back-to-back highlights the toll that time and age exact. The narrator of "Girls in Their Summer Clothes" has long since dropped his hammer and his vise, and he knows that garden is going to stay far out of reach.)
 
-Throughout the song, the phrase “secret garden” applies on two levels: first, as a metaphor for the parts of ourselves we keep hidden, even from those we love, and second as a literary reference to the novel by the same name. In the 1911 novel, the secret garden is a place of both mystery and healing; it rejuvenates a young boy physically and a young girl spiritually. Bruce’s lyrics are undoubtedly operating in both the physical and spiritual plane as well:
+Throughout the song, the phrase "secret garden" applies on two levels: first, as a metaphor for the parts of ourselves we keep hidden, even from those we love, and second as a literary reference to the novel by the same name. In the 1911 novel, the secret garden is a place of both mystery and healing; it rejuvenates a young boy physically and a young girl spiritually. Bruce's lyrics are undoubtedly operating in both the physical and spiritual plane as well:
 
-*She’ll let you in her house*  
-*If you come knocking late at night*  
-*She’ll let you in her mouth*  
-*If the words you say are right*  
-*If you pay the price*  
-*She’ll let you deep inside*  
-*But there’s a secret garden she hides*
+*She'll let you in her house*
+*If you come knocking late at night*
+*She'll let you in her mouth*
+*If the words you say are right*
+*If you pay the price*
+*She'll let you deep inside*
+*But there's a secret garden she hides*
 
-Honestly, this is really the entire song in one verse. If you never heard the rest of it, you’d still have the gist of it. Whether you interpret the verse sexually or romantically (the “let you in her mouth” line could refer to either a kiss or oral sex, the “let you deep inside” could be meant physically or emotionally), the upshot is the same: there’s a limit to our connections. We all keep part of ourselves hidden away, even from those we spend our lives with. And despite the gender-specific lyrics, I’m pretty sure that’s true for everyone.
+Honestly, this is really the entire song in one verse. If you never heard the rest of it, you'd still have the gist of it. Whether you interpret the verse sexually or romantically (the "let you in her mouth" line could refer to either a kiss or oral sex, the "let you deep inside" could be meant physically or emotionally), the upshot is the same: there's a limit to our connections. We all keep part of ourselves hidden away, even from those we spend our lives with. And despite the gender-specific lyrics, I'm pretty sure that's true for everyone.
 
 And yet, the secret garden is what we yearn for: something in our partners that we think holds the key to healing something in ourselves. Whether it promises forgiveness, validation, or something else, the secret garden is the sanctuary we seek in our loved one.
 
 In the second verse, Bruce underscores his point: intimacy is a matter of degrees, and with time, truth, and persistence, we strengthen and deepen our connections. But some walls remain unbreachable.
 
-*She’ll let you in her car*  
-*To go driving ’round*  
-*She’ll let you into the parts of herself*  
-*That’ll bring you down*  
-*She’ll let you in her heart*  
-*If you got a hammer and a vise*  
-*But into her secret garden, don’t think twice*
+*She'll let you in her car*
+*To go driving 'round*
+*She'll let you into the parts of herself*
+*That'll bring you down*
+*She'll let you in her heart*
+*If you got a hammer and a vise*
+*But into her secret garden, don't think twice*
 
-Like many of Bruce’s best songs, there’s a killer lyric lying in wait for us. In “Secret Garden” it’s in the bridge:
+Like many of Bruce's best songs, there's a killer lyric lying in wait for us. In "Secret Garden" it's in the bridge:
 
-*You’ve gone a million miles*  
-*How far’d you get*  
-*To that place where you can’t remember*  
-*And you can’t forget*
+*You've gone a million miles*
+*How far'd you get*
+*To that place where you can't remember*
+*And you can't forget*
 
-Oh, how I love that line. It haunts me just as much as the final lines of “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” or “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” — the notion of knowing that there’s a part of your partner that lies hidden away, unseeable but also unshakable.
+Oh, how I love that line. It haunts me just as much as the final lines of "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" or "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" — the notion of knowing that there's a part of your partner that lies hidden away, unseeable but also unshakable.
 
-It’s also worth pausing here for a moment to take note of the brilliance of the backing track. It’s so very un-E Street, both before and since, and yet the band captures the delicate yet disconcerting mood of the song so perfectly that one would think it was written for them (it wasn’t).
+It's also worth pausing here for a moment to take note of the brilliance of the backing track. It's so very un-E Street, both before and since, and yet the band captures the delicate yet disconcerting mood of the song so perfectly that one would think it was written for them (it wasn't).
 
-Those three notes are on endless repeat, making us feel as if we’re always in motion but never moving forward–which of course is exactly the subtext of the song.
+Those three notes are on endless repeat, making us feel as if we're always in motion but never moving forward–which of course is exactly the subtext of the song.
 
-“Secret Garden” ends with one of Bruce’s most beautiful verses, and also one of his most brutal:
+"Secret Garden" ends with one of Bruce's most beautiful verses, and also one of his most brutal:
 
-*She’ll lead you down the path*  
-*There’ll be tenderness in the air*  
-*She’ll let you come just far enough*  
-*So you know she’s really there*  
-*And she’ll look at you and smile*  
-*And her eyes will say*  
-*She’s got a secret garden*  
-*Where everything you want*  
-*Where everything you need*  
+*She'll lead you down the path*
+*There'll be tenderness in the air*
+*She'll let you come just far enough*
+*So you know she's really there*
+*And she'll look at you and smile*
+*And her eyes will say*
+*She's got a secret garden*
+*Where everything you want*
+*Where everything you need*
 *Will always stay a million miles away*
 
-It’s our wedding day, but even on this day which should represent our most intense and profound connection, we still–*still*–hide a part of ourselves from each other, and our eyes reveal that step we refuse to take. We don’t recognize it in the moment, of course, but it’s there.
+It's our wedding day, but even on this day which should represent our most intense and profound connection, we still–*still*–hide a part of ourselves from each other, and our eyes reveal that step we refuse to take. We don't recognize it in the moment, of course, but it's there.
 
-So no, “Secret Garden” isn’t a romantic song. But it’s not anti-romance, either. Bruce isn’t saying that a love or a marriage isn’t true if we keep some part of ourselves to ourselves, he’s simply pointing out love’s limits. Love doesn’t require us to lose ourselves in our partner, and neither does it require us to take responsibility for our partner’s happiness and fulfillment.
+So no, "Secret Garden" isn't a romantic song. But it's not anti-romance, either. Bruce isn't saying that a love or a marriage isn't true if we keep some part of ourselves to ourselves, he's simply pointing out love's limits. Love doesn't require us to lose ourselves in our partner, and neither does it require us to take responsibility for our partner's happiness and fulfillment.
 
-Relationships don’t have to be eternal, unbreakable, or all-encompassing for them to be true and meaningful and important.
+Relationships don't have to be eternal, unbreakable, or all-encompassing for them to be true and meaningful and important.
 
-And that’s the message of *Jerry Maguire* as well. Those who swoon at “You complete me” and “You had me at hello” miss the irony and actual point of the movie. Jerry and Dorothy *don’t* complete each other–they spend the entire movie learning to be complete people *without* needing each other. Only when they’ve accepted their own strengths, weaknesses, and limitations do they embrace and accept their imperfect relationship. (That’s why I believe that *Jerry Maguire* is the best cinematic love story of all time, but that’s an argument I’ll expand on someday when I start my Cameron Crowe blog.)
+And that's the message of *Jerry Maguire* as well. Those who swoon at "You complete me" and "You had me at hello" miss the irony and actual point of the movie. Jerry and Dorothy *don't* complete each other–they spend the entire movie learning to be complete people *without* needing each other. Only when they've accepted their own strengths, weaknesses, and limitations do they embrace and accept their imperfect relationship. (That's why I believe that *Jerry Maguire* is the best cinematic love story of all time, but that's an argument I'll expand on someday when I start my Cameron Crowe blog.)
 
-But before we go, we must discuss the coda, because it’s one of the Big Man’s most sublime performances on record. I’ll rank it right up there with “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” and “Jungleland” in emotional power, and Clarence knew it before he even played it:
+But before we go, we must discuss the coda, because it's one of the Big Man's most sublime performances on record. I'll rank it right up there with "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" and "Jungleland" in emotional power, and Clarence knew it before he even played it:
 
 [Watch Video Highlight](https://videopress.com/embed/yHSMTjnM)
 
-He wasn’t kidding. Watch Clarence’s actual performance below–you can feel him conjuring the song’s tenderness out of thin air.
+He wasn't kidding. Watch Clarence's actual performance below–you can feel him conjuring the song's tenderness out of thin air.
 
 [Watch Video Highlight](https://videopress.com/embed/ubLqo5Ic)
 
-Clarence’s solo notwithstanding, “Secret Garden” wasn’t perfection from the outset. An early version reveals that the essential elements are present, but the drums are too pronounced, the synth a bit too harsh, Bruce’s vocals a tad detached, and Clarence all but absent.
+Clarence's solo notwithstanding, "Secret Garden" wasn't perfection from the outset. An early version reveals that the essential elements are present, but the drums are too pronounced, the synth a bit too harsh, Bruce's vocals a tad detached, and Clarence all but absent.
 
 [Watch Video Highlight](https://videopress.com/embed/9skcQNaK)
 
-Even once Bruce had the final take in the can, he didn’t stop tinkering just yet: he had David Kahne layer a string arrangement on top of the song, to distracting effect. Fans argue about which version is stronger, but in my mind there’s no question: bigfooting Clarence’s solo is unforgivable. You can find this version on the *Blood Brothers* EP if you want to decide for yourself, or listen below.
+Even once Bruce had the final take in the can, he didn't stop tinkering just yet: he had David Kahne layer a string arrangement on top of the song, to distracting effect. Fans argue about which version is stronger, but in my mind there's no question: bigfooting Clarence's solo is unforgivable. You can find this version on the *Blood Brothers* EP if you want to decide for yourself, or listen below.
 
 [Watch on Youtube: Secret Garden (String Version)](https://www.youtube.com/watch?v=aaGZ1D8Q6b0)
 
-Thankfully Bruce recognized that the strings were too much and opted for the stringless version for the song’s original *Greatest Hits* release–and his explanation below nails it perfectly.
+Thankfully Bruce recognized that the strings were too much and opted for the stringless version for the song's original *Greatest Hits* release–and his explanation below nails it perfectly.
 
 [Watch Video Highlight](https://videopress.com/embed/RlqJlSpB)
 
-In concert, Bruce has played “Secret Garden” a mere seven times ever, and it remains high on my chase list. (He had it on the setlist at his last concert in Philadelphia but opted for a repeat of “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” instead. Sigh.)
+In concert, Bruce has played "Secret Garden" a mere seven times ever, and it remains high on my chase list. (He had it on the setlist at his last concert in Philadelphia but opted for a repeat of "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" instead. Sigh.)
 
-Luckily, though, we have a couple of great videos of those performances, starting with Bruce’s live debut of “Secret Garden” on *The Late Show With David Letterman* on April 4, 1995.
+Luckily, though, we have a couple of great videos of those performances, starting with Bruce's live debut of "Secret Garden" on *The Late Show With David Letterman* on April 4, 1995.
 
 [Watch on Youtube: Bruce Springsteen & E Street Band on Letterman, April 5, 1995](https://www.youtube.com/watch?v=KLtihzJ6gdw)
 
-…along with the first “proper” outing on the band’s Reunion Tour in 2000:
+...along with the first "proper" outing on the band's Reunion Tour in 2000:
 
 [Watch on Youtube: Secret Garden Bruce Springsteen June 22, 2000 MSG](https://www.youtube.com/watch?v=GmsriJlsZ38)
 
-I’ll leave you with one more, and it’s a special one: a dedication from Bruce to his loyal travelling fans from his Wrecking Ball show in Leeds, July 24, 2013.
+I'll leave you with one more, and it's a special one: a dedication from Bruce to his loyal travelling fans from his Wrecking Ball show in Leeds, July 24, 2013.
 
 [Watch on Youtube: Bruce Springsteen - Secret Garden (Leeds 7/24/13)](https://www.youtube.com/watch?v=dMriDhHDB1E)
 
-Now I’m going to Tony Roma’s.
+Now I'm going to Tony Roma's.
 
-**Secret Garden  
-Recorded:** January 1995  
-**Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)  
-**First performed:** April 5, 1995 (New York City, NY)  
+**Secret Garden
+Recorded:** January 1995
+**Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)
+**First performed:** April 5, 1995 (New York City, NY)
 **Last performed:** February 14, 2017 (Brisbane, Australia)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

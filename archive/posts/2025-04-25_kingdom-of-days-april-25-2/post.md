@@ -4,13 +4,13 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1973-0425.jpg)
 
-**1975:** Bruce works on “Jungleland” and “Thunder Road” at the Record Plant in New York City.
+**1975:** Bruce works on "Jungleland" and "Thunder Road" at the Record Plant in New York City.
 
-**1978:** Bruce and his studio team complete the mix for “[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)” at the Record Plant in New York City.
+**1978:** Bruce and his studio team complete the mix for "[Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)" at the Record Plant in New York City.
 
 [Watch on Youtube: Prove It All Night](https://www.youtube.com/watch?v=UzjkWdRqWFo)
 
-**1980:** Bruce and his studio team complete the mix for “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” at Clover studios in Los Angeles.
+**1980:** Bruce and his studio team complete the mix for "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" at Clover studios in Los Angeles.
 
 [Watch on Youtube: Independence Day](https://www.youtube.com/watch?v=9GggK3Sn258)
 
@@ -22,17 +22,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/77lAhHBZ)
 
-**1989:** At Micky Rourke’s Rubber Club in Los Angeles, Bruce joins a local band on stage for “[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/).”
+**1989:** At Micky Rourke's Rubber Club in Los Angeles, Bruce joins a local band on stage for "[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)."
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/1989-04-25.jpg)
 
-**1996:** Elliott Murphy and Joe Grushecky join Bruce for a final encore of “[Blowin’ Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/)” at Bruce’s second solo acoustic show at Brixton Academy in London.
+**1996:** Elliott Murphy and Joe Grushecky join Bruce for a final encore of "[Blowin' Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/)" at Bruce's second solo acoustic show at Brixton Academy in London.
 
 [Watch on Youtube: Bruce Springsteen No Surrender 1996 (Acoustic with Bruce and Crowd)](https://www.youtube.com/watch?v=3vI9BTN8l8E)
 
 [Watch Video Highlight](https://videopress.com/embed/4cjlbQWl)
 
-**2000:** The first of two Reunion shows at Mellon Arena in Pittsburgh features the first E Street Band performance of “[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)” and a Joe Grushecky guest appearance on “[Idiot’s Delight](https://estreetshuffle.com/index.php/2021/03/12/rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/).”
+**2000:** The first of two Reunion shows at Mellon Arena in Pittsburgh features the first E Street Band performance of "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)" and a Joe Grushecky guest appearance on "[Idiot's Delight](https://estreetshuffle.com/index.php/2021/03/12/rotd-matr-joe-grushecky-and-bruce-springsteen-idiots-delight/)."
 
 [Watch Video Highlight](https://videopress.com/embed/txuqoZGk)
 
@@ -64,7 +64,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/0RYCqo7d)
 
-That evening, a more awake Bruce and the Sessions Band play a third public warm-up show for their upcoming tour. Notable in the set list: Bruce’s first-ever performance and tour one-off of “[Turn! Turn! Turn (To Everything There is a Season)](https://estreetshuffle.com/index.php/2021/06/09/matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/).”
+That evening, a more awake Bruce and the Sessions Band play a third public warm-up show for their upcoming tour. Notable in the set list: Bruce's first-ever performance and tour one-off of "[Turn! Turn! Turn (To Everything There is a Season)](https://estreetshuffle.com/index.php/2021/06/09/matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/)."
 
 [Watch Video Highlight](https://videopress.com/embed/yTqnj3vq)
 
@@ -74,7 +74,7 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2006-0425b.jpg)
 
-**2008:** The Magic Tour moves to Atlanta for a show at Philips Arena, where “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)” makes its tour premiere.
+**2008:** The Magic Tour moves to Atlanta for a show at Philips Arena, where "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)" makes its tour premiere.
 
 [Watch Video Highlight](https://videopress.com/embed/CcJp0LLz)
 
@@ -82,7 +82,7 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-25b.jpg)
 
-**2016:** The closing night of the first U.S. leg of the River Tour (2016 version) at Barclays Center in Brooklyn brings the tour premieres of “[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)” and “[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)” along with a reprise of Bruce’s “[Purple Rain](https://estreetshuffle.com/index.php/2021/03/03/cover-me-purple-rain/)” tribute, a rare “[Loose Ends,](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)” and an adorable fan singalong to “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/).”
+**2016:** The closing night of the first U.S. leg of the River Tour (2016 version) at Barclays Center in Brooklyn brings the tour premieres of "[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)" and "[Trapped](https://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)" along with a reprise of Bruce's "[Purple Rain](https://estreetshuffle.com/index.php/2021/03/03/cover-me-purple-rain/)" tribute, a rare "[Loose Ends,](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)" and an adorable fan singalong to "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)."
 
 [Watch on Youtube: "Blinded by the light" - Bruce Springsteen & special guest"](https://www.youtube.com/watch?v=QTMfT2Pr_P4)
 

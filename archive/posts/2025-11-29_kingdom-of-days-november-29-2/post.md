@@ -6,7 +6,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/11/The_Times_1974_11_24_112-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/11/The_Times_1974_11_24_115-scaled.jpg)
 
-**1977:** At the Record Plant in New York City, Bruce records “[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/).” He won’t release it for another 33 years.
+**1977:** At the Record Plant in New York City, Bruce records "[The Brokenhearted](https://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)." He won't release it for another 33 years.
 
 [Watch on Youtube: The Brokenhearted](https://www.youtube.com/watch?v=YvilYiGDmoM)
 
@@ -20,11 +20,11 @@
 
 **1983:** Bruce holds a recording session for *Born in the U.S.A. at* The Hit Factory in New York City.
 
-**1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. shows at The Summit in Houston, where “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” gets its last outing for fifteen years.
+**1984:** Bruce and the E Street Band play their first of two Born in the U.S.A. shows at The Summit in Houston, where "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)" gets its last outing for fifteen years.
 
 [Watch Video Highlight](https://videopress.com/embed/7IdXR5EB)
 
-**1986:** Bruce debuts the video for his new single, “[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/),” from his *Live 1975-85* box set.
+**1986:** Bruce debuts the video for his new single, "[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)," from his *Live 1975-85* box set.
 
 [Watch on Youtube: Bruce Springsteen - War](https://www.youtube.com/watch?v=mn91L9goKfQ)
 
@@ -42,7 +42,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1999-11-29.png)
 
-**2016:** Bruce’s promotional book tour continues with an appearance at Joseph-Beth Booksellers in Cincinnati.
+**2016:** Bruce's promotional book tour continues with an appearance at Joseph-Beth Booksellers in Cincinnati.
 
 [Watch on Youtube: Bruce Springsteen meets fans at Joseph-Beth Booksellers](https://www.youtube.com/watch?v=d5k9aLewujE)
 

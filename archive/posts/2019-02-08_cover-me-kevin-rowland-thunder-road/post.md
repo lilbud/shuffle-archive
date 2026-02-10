@@ -1,23 +1,23 @@
-By now, you know my refrain: If you’re gonna cover Bruce, be great or be different.
+By now, you know my refrain: If you're gonna cover Bruce, be great or be different.
 
-But not *too* different, mind you, because Bruce has veto rights–which he exercised on Kevin Rowland’s cover of “Thunder Road.”
+But not *too* different, mind you, because Bruce has veto rights–which he exercised on Kevin Rowland's cover of "Thunder Road."
 
-Rowland was the lead singer of Dexys Midnight Runners. (If you’re one of my UK or Irish readers, you’re probably familiar with Dexys’ string of hits; if you’re reading this from elsewhere, you probably only know “Come on Eileen.”)
+Rowland was the lead singer of Dexys Midnight Runners. (If you're one of my UK or Irish readers, you're probably familiar with Dexys' string of hits; if you're reading this from elsewhere, you probably only know "Come on Eileen.")
 
 Rowland went solo in 1988, and it did not go well. His album flopped, and Rowland lapsed into substance abuse, depression, and bankruptcy. It would take more than a decade and a great deal of treatment before Rowland tried again with an album full of covers, his 1999 release *My Beauty*.
 
-Among the songs Rowland recorded for the album was “Thunder Road,” having secured permission from Bruce to include it,
+Among the songs Rowland recorded for the album was "Thunder Road," having secured permission from Bruce to include it,
 
 Then Bruce heard the finished recording, and he said: um, no.
 
-Why did Bruce take the unusual step of blocking the release of one of his songs after the artist had already recorded it? Take a listen and see if you can figure it out. (Warning: you won’t be able to unhear it.)
+Why did Bruce take the unusual step of blocking the release of one of his songs after the artist had already recorded it? Take a listen and see if you can figure it out. (Warning: you won't be able to unhear it.)
 
 [Watch on Youtube: Kevin Rowland (of Dexys Midnight Runners) - "Thunder Road"](https://www.youtube.com/watch?v=1x2S-7lu920)
 
 Unsurprisingly, Bruce was not pleased with the alterations Rowland made to one of his most iconic songs, and he sent word that Rowland was welcome to re-record it as originally written. Rowland sent a personal note to Bruce petitioning him to reconsider, but Bruce held firm.
 
-(This wasn’t the first time Bruce nixed an already recorded cover, however–he’d done the same with [Bette Midler](https://estreetshuffle.com/index.php/2018/11/26/cover-me-bette-midler-pink-cadillac/) for different reasons years earlier.)
+(This wasn't the first time Bruce nixed an already recorded cover, however–he'd done the same with [Bette Midler](https://estreetshuffle.com/index.php/2018/11/26/cover-me-bette-midler-pink-cadillac/) for different reasons years earlier.)
 
-So that’s why *My Beauty* went out with only eleven tracks instead of twelve, despite advance promotional hype and advance copies that included it (“Thunder Road” was mentioned in some early media reviews, written by reviewers who had received the advance copies before Bruce forced the removal of his song.)
+So that's why *My Beauty* went out with only eleven tracks instead of twelve, despite advance promotional hype and advance copies that included it ("Thunder Road" was mentioned in some early media reviews, written by reviewers who had received the advance copies before Bruce forced the removal of his song.)
 
-The original promotional album has become something of a collector’s item since then, so if you’re a completist who’s been searching for it… just make sure you listen to the song here first.
+The original promotional album has become something of a collector's item since then, so if you're a completist who's been searching for it... just make sure you listen to the song here first.

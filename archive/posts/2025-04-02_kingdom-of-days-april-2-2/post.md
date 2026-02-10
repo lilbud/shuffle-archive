@@ -1,6 +1,6 @@
 ***New for 2025:** No updates*
 
-**1969:** Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they’ll rename themselves Steel Mill.
+**1969:** Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they'll rename themselves Steel Mill.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1969-0402.jpg)
 
@@ -50,6 +50,6 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/03/2011-04-02b.jpg)
 
-Following the show, Bruce stops by the after-party for Clarence’s film at Syanxis. It’s the last time Bruce and Clarence will be seen together in public.
+Following the show, Bruce stops by the after-party for Clarence's film at Syanxis. It's the last time Bruce and Clarence will be seen together in public.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2011-04-02b.png)

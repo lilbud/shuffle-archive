@@ -4,7 +4,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1971-0910.jpg)
 
-**1982:** Bruce makes a guest appearance with Dave Edmunds on six songs at Big Man’s West in Red Bank.
+**1982:** Bruce makes a guest appearance with Dave Edmunds on six songs at Big Man's West in Red Bank.
 
 [Watch on Youtube: Dave Edmunds (With Bruce Springsteen) - Big Man's West Red Bank NJ (Full Album)](https://www.youtube.com/watch?v=0NEVucciGyE)
 
@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Bruce Springsteen & Dave Edmunds - Let's Talk About Us (1982-09-18, Red Bank, NJ)](https://www.youtube.com/watch?v=zrsRXBErrLU)
 
-**1984:** Bruce and the E Street Band close out their six-night Born in the U.S.A. stand at the Philadelphia Spectrum by tour premiering “[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)” and “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” (the first time they’ve ever played that song earlier than autumn).
+**1984:** Bruce and the E Street Band close out their six-night Born in the U.S.A. stand at the Philadelphia Spectrum by tour premiering "[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)" and "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" (the first time they've ever played that song earlier than autumn).
 
 [Watch on Youtube: Bruce Springsteen - Point Blank,I Fought The Law/Badlands (Live in Philly 9-18-1984)](https://www.youtube.com/watch?v=DoQJViKqZLs)
 
@@ -26,7 +26,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/09/Philadelphia_Daily_News_1984_09_20_Page_60-scaled.jpg)
 
-**1985:** Bruce plays “Stolen Car” for the last time for 18 years when he and the band play their first of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum.
+**1985:** Bruce plays "Stolen Car" for the last time for 18 years when he and the band play their first of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum.
 
 [Watch on Youtube: Bruce Springsteen: STOLEN CAR](https://www.youtube.com/watch?v=FPobte6iqSU)
 
@@ -38,13 +38,13 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/1985-09-18c.jpg)
 
-**1996:** At his solo acoustic show in Wallingford, Bruce plays a one-off “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)” by request.
+**1996:** At his solo acoustic show in Wallingford, Bruce plays a one-off "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)" by request.
 
 [Watch on Youtube: Bruce Springsteen - "My Father's House" Wallingford, 1996-0918](https://www.youtube.com/watch?v=jTvO_lAqDw8)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1996-09-18.jpg)
 
-**2003:** Another great show on Night Two in Hartford, with Bruce opening his Rising Show with the first-ever E Street Band performance of “[Souls of the Departed](https://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/),” the tour premiere of “[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/),” and a solo piano “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).”
+**2003:** Another great show on Night Two in Hartford, with Bruce opening his Rising Show with the first-ever E Street Band performance of "[Souls of the Departed](https://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)," the tour premiere of "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)," and a solo piano "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)."
 
 [Watch Video Highlight](https://videopress.com/embed/I9toXviI)
 
@@ -56,7 +56,7 @@
 
 **2007:** Bruce rehearses with the E Street Band for their upcoming Magic tour.
 
-**2013:** The Wrecking Ball Tour enters its last week with the first of two shows in Brazil, this one in Sao Paolo. Bruce opens with the premiere of Raul Seixas’ “[Sociedade Alternativa](https://estreetshuffle.com/index.php/2021/10/07/cover-me-sociedade-alternativa/).”
+**2013:** The Wrecking Ball Tour enters its last week with the first of two shows in Brazil, this one in Sao Paolo. Bruce opens with the premiere of Raul Seixas' "[Sociedade Alternativa](https://estreetshuffle.com/index.php/2021/10/07/cover-me-sociedade-alternativa/)."
 
 [Watch on Youtube: Bruce Springsteen - Sociedade Alternativa](https://www.youtube.com/watch?v=OuF6DiDDxWs)
 

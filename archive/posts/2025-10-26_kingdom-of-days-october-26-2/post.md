@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1972; audio for 1974; video for 1996*
 
-**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce completes “[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/),” “[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/),” “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/),” and “[The Angel.](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)”
+**1972:** At 914 Sound Studios in Blauvelt, New York, Bruce completes "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)," "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)," "[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)," and "[The Angel.](https://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)"
 
 [Watch on Youtube: It's Hard to Be a Saint in the City](https://www.youtube.com/watch?v=B2Rju9FVE2M)
 
@@ -28,11 +28,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1975-10-26b.png)
 
-**1976:** Bruce’s scheduled show at the Philadelphia Spectrum is postponed to the following day due to Clarence’s scheduling conflicts.
+**1976:** Bruce's scheduled show at the Philadelphia Spectrum is postponed to the following day due to Clarence's scheduling conflicts.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/10/medium-1.jpg)
 
-**1978:** Bruce and the E Street Band rehearse for the upcoming and final leg of the Darkness Tour at Bruce’s farmhouse in Holmdel.
+**1978:** Bruce and the E Street Band rehearse for the upcoming and final leg of the Darkness Tour at Bruce's farmhouse in Holmdel.
 
 [Watch on Youtube: Bruce Springsteen - The Ties That Bind - Holmdel - 10/26/78 (Rehearsal)](https://www.youtube.com/watch?v=4-llKqR-wgE)
 
@@ -40,13 +40,13 @@
 
 [Watch on Youtube: Bruce Springsteen - Tonight - Holmdel - 10/26/78 (Rehearsal)](https://www.youtube.com/watch?v=xcIMAzYLWME)
 
-**1983:** At The Hit Factory in New York City, Bruce records “Shut Down” and “100 Miles From Jackson.” Neither have ever been released.
+**1983:** At The Hit Factory in New York City, Bruce records "Shut Down" and "100 Miles From Jackson." Neither have ever been released.
 
-**1984:** The length of Bruce’ concerts have become legendary–so much so that local DJ Rick Dees discovers how easy it is to convince fans that Bruce’s concert at the Sports Arena last night is still going on this morning. Hundreds of listeners frantically call the arena and two dozen fans make the return trip to catch the end of Bruce’s “overnight encore.”
+**1984:** The length of Bruce' concerts have become legendary–so much so that local DJ Rick Dees discovers how easy it is to convince fans that Bruce's concert at the Sports Arena last night is still going on this morning. Hundreds of listeners frantically call the arena and two dozen fans make the return trip to catch the end of Bruce's "overnight encore."
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-26.png)
 
-Later that night, Bruce and the band play their second of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, and Bruce slips a little “[California Sun](https://estreetshuffle.com/index.php/2020/06/10/cover-me-california-sun/)” into the “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” for the occasion.
+Later that night, Bruce and the band play their second of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, and Bruce slips a little "[California Sun](https://estreetshuffle.com/index.php/2020/06/10/cover-me-california-sun/)" into the "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" for the occasion.
 
 [Watch on Youtube: Bruce Springsteen - "Detroit Medley" w/ "California Sun" - Los Angeles, 1984-10-26](https://www.youtube.com/watch?v=CijvNHFY058)
 
@@ -54,7 +54,7 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 [Watch on Youtube: Bruce Springsteen - "Living Proof" - Denver, 1992-10-26](https://www.youtube.com/watch?v=oDCcsSc9BTc)
 
-**1996:** Bruce plays a solo acoustic benefit show for the John Steinbeck Research Center at San Jose State University, featuring an extensive Steinbeck reading before “[Across the Border.](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)” Steinbeck’s widow Elaine presents Bruce with a signed copy of *The Grapes of Wrath*.
+**1996:** Bruce plays a solo acoustic benefit show for the John Steinbeck Research Center at San Jose State University, featuring an extensive Steinbeck reading before "[Across the Border.](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)" Steinbeck's widow Elaine presents Bruce with a signed copy of *The Grapes of Wrath*.
 
 [Watch on Youtube: Bruce Springsteen - Live In San Jose 1996 - Full Concert (HD Remastered)](https://www.youtube.com/watch?v=sCBAPAwx1eo)
 
@@ -70,11 +70,11 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/10/Record_Searchlight_1999_10_28_38-scaled.jpg)
 
-**2007:** Night Two in Oakland on the Magic Tour bring tour premieres of “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/),” “Racing in the Street” and “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).” For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/10/26/where-the-band-was-oakland-october-26-2007/)
+**2007:** Night Two in Oakland on the Magic Tour bring tour premieres of "[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)," "Racing in the Street" and "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)." For more highlights from this show, see my [*Where the Band Was* report.](https://estreetshuffle.com/index.php/2018/10/26/where-the-band-was-oakland-october-26-2007/)
 
 [Watch on Youtube: Oakland (10/26/2007)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1AgUSbCOKKetRVLMyzNPE0H)
 
-**2009:** Bruce’s cousin and assistant tour manager Lenny Sullivan passes away, prompting the last-minute cancellation of Bruce’s show in Kansas City.
+**2009:** Bruce's cousin and assistant tour manager Lenny Sullivan passes away, prompting the last-minute cancellation of Bruce's show in Kansas City.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/10/2009-10-26.png)
 
@@ -86,13 +86,11 @@ Later that night, Bruce and the band play their second of seven Born in the U.S.
 
 **2018:***Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2020:** Promotional appearances for [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/) continue: Bruce is today’s guest on *Conan O’Brien Needs a Friend*, *T**he Daily Show With Trevor Noah,* and *Triple M*.
+**2020:** Promotional appearances for [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/) continue: Bruce is today's guest on *Conan O'Brien Needs a Friend*, *T**he Daily Show With Trevor Noah,* and *Triple M*.
 
 [https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3?_=7)
 
-<https://estreetshuffle.com/wp-content/uploads/2023/10/bruceandconan.mp3>
-
-[Watch on Youtube: Bruce Springsteen - Spiritual Songwriting & “Letter to You” | The Daily Social Distancing Show](https://www.youtube.com/watch?v=QZuBEO-ilg4)
+[Watch on Youtube: Bruce Springsteen - Spiritual Songwriting & "Letter to You" | The Daily Social Distancing Show](https://www.youtube.com/watch?v=QZuBEO-ilg4)
 
 [Watch on Youtube: Bruce Springsteen on 50 years of E Street band, making Letter To You and more| Triple M](https://www.youtube.com/watch?v=9M1_aZ-qp9w)
 

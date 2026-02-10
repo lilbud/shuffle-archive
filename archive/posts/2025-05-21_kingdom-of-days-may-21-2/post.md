@@ -6,7 +6,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1971-0521.jpg)
 
-**1974:** Bruce cuts the first version of “Born to Run” in the studio (instrumental only).
+**1974:** Bruce cuts the first version of "Born to Run" in the studio (instrumental only).
 
 [Watch Video Highlight](https://videopress.com/embed/IGNGHlDK)
 
@@ -30,13 +30,13 @@
 
 [Watch on Youtube: Bruce Springsteen - This hard land, live in Firenze may 21st 1997](https://www.youtube.com/watch?v=D_QFzQ0fCDI)
 
-**1998:** ABC-TV airs a Rolling *Stone State of the Union* special featuring rare (for the time) band performances of “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” and “[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/).”
+**1998:** ABC-TV airs a Rolling *Stone State of the Union* special featuring rare (for the time) band performances of "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" and "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)."
 
 [Watch on Youtube: Rolling Stone Special - State of the Union (Bruce Springsteen)](https://www.youtube.com/watch?v=SsS2S0I_E6E)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/1998-05-21.jpg)
 
-**1999:** Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)” and the first “[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)” in 20 years. Watch the soundcheck below, featuring a lovely, lonely “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” and a bit of Patti Scialfa’s beautiful ballad, “[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/).”
+**1999:** Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of "[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)" and the first "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)" in 20 years. Watch the soundcheck below, featuring a lovely, lonely "[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" and a bit of Patti Scialfa's beautiful ballad, "[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)."
 
 [Watch on Youtube: Bruce Springsteen - London 1999-05-21 soundcheck including Racing In The Street](https://www.youtube.com/watch?v=0raE2AKOFtA)
 
@@ -74,7 +74,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/2009-05-21b.jpg)
 
-**2016:** When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres “My City of Ruins,” and “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).” Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html).
+**2016:** When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres "My City of Ruins," and "[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)." Buy or stream this show [here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html).
 
 [Watch on Youtube: Reportaje Bruce Springsteen Madrid 2016](https://www.youtube.com/watch?v=pyAY9FsJ_yI)
 

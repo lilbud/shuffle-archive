@@ -1,10 +1,10 @@
 ***New for 2025:** Audio for 1981*
 
-**1970:** Robbin Thompson makes his Steel Mill debut at the band’s University of Richmond gig.
+**1970:** Robbin Thompson makes his Steel Mill debut at the band's University of Richmond gig.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/08/1970-08-28.jpg)
 
-**1978:** Bruce tour premieres “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)” by request at his Darkness show in Pittsburgh. Elsewhere, Columbia Records produces new commercials to promote *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/),* and *Rolling Stone* publishes their first of what will prove to be many cover features of Bruce.
+**1978:** Bruce tour premieres "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)" by request at his Darkness show in Pittsburgh. Elsewhere, Columbia Records produces new commercials to promote *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/),* and *Rolling Stone* publishes their first of what will prove to be many cover features of Bruce.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/rs272.jpg)
 
@@ -18,7 +18,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/08/1978-0828.jpg)
 
-**1981:** At the final show of a six-night River Tour stand at the Los Angeles Sports Arena, Bruce and the E Street Band cover “Proud Mary” and “[Deportee (Plane Wreck at Los Gatos)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)” for the first time, and Flo and Eddie make a guest appearance on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” reprising their studio backing vocals.
+**1981:** At the final show of a six-night River Tour stand at the Los Angeles Sports Arena, Bruce and the E Street Band cover "Proud Mary" and "[Deportee (Plane Wreck at Los Gatos)](https://estreetshuffle.com/index.php/2020/01/05/cover-me-deportee-plane-wreck-at-los-gatos/)" for the first time, and Flo and Eddie make a guest appearance on "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" reprising their studio backing vocals.
 
 [Watch on Youtube: Bruce Springsteen: Proud Mary (LA, 08/28/1981)](https://www.youtube.com/watch?v=WnXIhhkINpM)
 
@@ -26,11 +26,11 @@
 
 [Watch on Youtube: Bruce Springsteen- prove it all night (1981)](https://www.youtube.com/watch?v=PTekyM4SET8)
 
-**1984:** At Night Three (of four) at Washington DC’s Capital Center in the pre-teleprompter days of the Born in the U.S.A. Tour, Bruce tour premieres “[Wooly Bully](https://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)” and forgets the lyrics to “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/),” leading to a comically and painfully awkward pause in the proceedings.
+**1984:** At Night Three (of four) at Washington DC's Capital Center in the pre-teleprompter days of the Born in the U.S.A. Tour, Bruce tour premieres "[Wooly Bully](https://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)" and forgets the lyrics to "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)," leading to a comically and painfully awkward pause in the proceedings.
 
 [Watch on Youtube: Bruce Springsteen - "Independence Day" 1984-08-28 Largo](https://www.youtube.com/watch?v=9Dt1W6kxZlo)
 
-**1992:** World Tour 1992 moves on to Philadelphia for the first of two shows at The Spectrum, where “[Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)” makes its full-band debut.
+**1992:** World Tour 1992 moves on to Philadelphia for the first of two shows at The Spectrum, where "[Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)" makes its full-band debut.
 
 [Watch on Youtube: Bruce Springsteen - Live debut of "Soul Driver" Philadelphia, 1992-08-28](https://www.youtube.com/watch?v=6dmP2rKyTo0)
 
@@ -46,17 +46,17 @@
 
 **1997:** Bruce makes a guest appearance with Jimmy & the Gigolos at The Derby in Hollywood.
 
-**2003:** The Rising Tour stadium leg returns to Giants Stadium, where Bruce and the E Street Band tour premiere “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” and Bobby Bandiera makes a guest appearance on “From Small Things (Big Things One Day Come).”
+**2003:** The Rising Tour stadium leg returns to Giants Stadium, where Bruce and the E Street Band tour premiere "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" and Bobby Bandiera makes a guest appearance on "From Small Things (Big Things One Day Come)."
 
 [Watch Video Highlight](https://videopress.com/embed/dY427w6M)
 
-**2007:** Bruce releases the lead single for his upcoming *Magic* album, “[Radio Nowhere,](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)” and announces a tour in support of the album.
+**2007:** Bruce releases the lead single for his upcoming *Magic* album, "[Radio Nowhere,](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)" and announces a tour in support of the album.
 
 [Watch on Youtube: Radio Nowhere](https://www.youtube.com/watch?v=2f3XaoHqQuQ)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/2007-08-28.png)
 
-**2016:** Bruce’s ten-show River Tour victory lap continues with a stop at the United Center in Chicago, where “New York City Serenade” and “[Jack of All Trades](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)” continue to get the string treatment (this time with local musicians), and “[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)” gets a rare outing.
+**2016:** Bruce's ten-show River Tour victory lap continues with a stop at the United Center in Chicago, where "New York City Serenade" and "[Jack of All Trades](https://estreetshuffle.com/index.php/2020/11/27/roll-of-the-dice-jack-of-all-trades/)" continue to get the string treatment (this time with local musicians), and "[None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)" gets a rare outing.
 
 [Watch on Youtube: "NYC Serenade" (MULTI-CAM) - Bruce Springsteen Chicago 8/28/2016](https://www.youtube.com/watch?v=Ninx4g1oiLI)
 

@@ -2,7 +2,7 @@
 
 **1973:** Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in Pennsylvania.
 
-**1976:** “The Promise” makes its second-ever appearance, still a work-in-progress, when the Lawsuit Tour stops in Santa Monica for the first of two nights.
+**1976:** "The Promise" makes its second-ever appearance, still a work-in-progress, when the Lawsuit Tour stops in Santa Monica for the first of two nights.
 
 [Watch on Youtube: Bruce Springsteen - THE PROMISE 1976 (audio)](https://www.youtube.com/watch?v=Q4pJ5hDqxTA)
 
@@ -12,7 +12,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/09/1976-09-29.jpg)
 
-**1977:** Bruce records “[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)” and “[Someday (We’ll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)” at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.
+**1977:** Bruce records "[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)" and "[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)" at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.
 
 [Watch on Youtube: Rendezvous](https://www.youtube.com/watch?v=0ena3tWYo-g)
 
@@ -28,7 +28,7 @@
 
 **1982:** Bruce plays two songs (although this is up for debate) with Billy Rancher & The Unreal Gods on stage at On Broadway in Westwood, New Jersey.
 
-**1985:** Bruce and the E Street Band play their second of four shows at the final stand of the Born in the U.S.A. Tour in Los Angeles. In attendance tonight: The cast of television’s *Growing Pains*.
+**1985:** Bruce and the E Street Band play their second of four shows at the final stand of the Born in the U.S.A. Tour in Los Angeles. In attendance tonight: The cast of television's *Growing Pains*.
 
 [Watch Video Highlight](https://videopress.com/embed/Tu2dlnHp)
 
@@ -36,7 +36,7 @@
 
 **1987:** Bruce rehearses with Roy Orbison at the Cocoanut Grove in Los Angeles for the filming of *Black & White Night* the following day.
 
-**1989:** Bruce makes a pit-stop at Matt’s Saloon in Prescott, Arizona while on a motorcycle trip from Los Angeles, joining house band Mile High Band on stage for about an hour and befriending and changing the life of a bartender before heading off to the Grand Canyon.
+**1989:** Bruce makes a pit-stop at Matt's Saloon in Prescott, Arizona while on a motorcycle trip from Los Angeles, joining house band Mile High Band on stage for about an hour and befriending and changing the life of a bartender before heading off to the Grand Canyon.
 
 [Watch on Youtube: The Time Bruce Springsteen Paid Off an Arizona Bartender's $160,000 in Medical Bills](https://www.youtube.com/watch?v=ordKJO1_Rxg)
 
@@ -64,11 +64,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/1996-09-29.jpg)
 
-**2002:** Bruce tour premieres “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” when the Rising Tour stops at the Fargodome in North Dakota.
+**2002:** Bruce tour premieres "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)" when the Rising Tour stops at the Fargodome in North Dakota.
 
 [Watch Video Highlight](https://videopress.com/embed/VydrrUiL)
 
-**2004:** Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park’s Convention Hall for their upcoming Vote for Change Tour.
+**2004:** Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park's Convention Hall for their upcoming Vote for Change Tour.
 
 **2016:** Bruce makes a book tour appearance at the Free Library of Philadelphia to promote his new autobiography, *Born to Run*. A local schoolboy skips class to meet Bruce and convinces Bruce to sign his absence note, which he duly hands to his teacher the next day.
 
@@ -84,19 +84,19 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2017-09-29.jpg)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of “This Hard Land” in place of his duet of “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” with Patti. In attendance tonight: Hozier.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" with Patti. In attendance tonight: Hozier.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/2018-09-29.jpg)
 
-**2022:** Bruce announces his twenty-first studio album, *Only the Strong Survive*, and releases a video for the album’s lead single, “Do I Love You (Indeed I Do).”
+**2022:** Bruce announces his twenty-first studio album, *Only the Strong Survive*, and releases a video for the album's lead single, "Do I Love You (Indeed I Do)."
 
 [Watch on Youtube: Bruce Springsteen - Do I Love You (Indeed I Do) (Official Video)](https://www.youtube.com/watch?v=O0jBwk71Qcw)
 
-That evening, Bruce and Patti perform “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
+That evening, Bruce and Patti perform "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
 > View this post on Instagram
-> 
+>
 > [A post shared by covenant- alex (@borntorunboss1)](https://www.instagram.com/tv/CjTHuJAtR9O/?utm_source=ig_embed&utm_campaign=loading)
 
 [Watch on Youtube: Oscar Isaac Bruce Springsteen take their wives to Albie Awards NYC! #brucespringsteen #oscarisaac](https://www.youtube.com/watch?v=yhCl8la_aeU)
 
-**2023:** Bruce’s scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.
+**2023:** Bruce's scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.

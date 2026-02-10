@@ -23,3 +23,17 @@ Both projects will be used as inspiration for how I end up creating my ebooks. T
 --pubdate: publish date,
 --publisher: "e-street-shuffle" or 'lilbud',
 --language: 'english',
+
+# ebook tool steps
+- generate body.xhtml with test.py, leaving comments in
+- se split-file
+- mv chapter
+- rm body
+- se clean .
+- se typogrify
+- se build-title .
+- se build-manifest .
+- se build-spine .
+- se build-toc .
+- se clean .
+- se lint .

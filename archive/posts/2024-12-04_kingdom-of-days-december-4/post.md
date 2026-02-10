@@ -1,6 +1,6 @@
 ***New for 2024:** New entry for 2023*
 
-**1948:** Bruce’s good friend, frequent co-performer, and one-time bandmate Southside Johnny Lyon is born in Neptune, New Jersey.
+**1948:** Bruce's good friend, frequent co-performer, and one-time bandmate Southside Johnny Lyon is born in Neptune, New Jersey.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/11/southside.jpg)
 
@@ -8,25 +8,25 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1971-12-04.png)
 
-**1980:** At their River Tour stop at the Buffalo Memorial Auditorium, Bruce and the E Street Band tour premiere “[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)” and officially usher in the holiday season with their first “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” of the tour. Check out rare video footage of a couple of songs.
+**1980:** At their River Tour stop at the Buffalo Memorial Auditorium, Bruce and the E Street Band tour premiere "[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)" and officially usher in the holiday season with their first "[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)" of the tour. Check out rare video footage of a couple of songs.
 
 [Watch on Youtube: Bruce Springsteen - Buffalo 1980 Muchmusic footage](https://www.youtube.com/watch?v=PGnzoL3by14)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/11/40492702103_734e8a51f0_o.jpg)
 
-**1990:** Bruce records “[My Lover Man](https://estreetshuffle.com/index.php/2018/10/24/roll-of-the-dice-my-lover-man/)” at Soundworks West in Los Angeles.
+**1990:** Bruce records "[My Lover Man](https://estreetshuffle.com/index.php/2018/10/24/roll-of-the-dice-my-lover-man/)" at Soundworks West in Los Angeles.
 
 [Watch on Youtube: My Lover Man (Studio Outtake - 1990)](https://www.youtube.com/watch?v=n-jzr3jSDX0)
 
-**1999:** The Diasco family gets an unexpected Christmas bonus: in June, they’d bid on and won a private Bon Jovi performance at their home in an auction benefiting the Doug Flutie Autism Foundation; when the band shows up to honor their obligation, they bring along some friends: Bruce, Patti, and Southside Johnny. Bruce joins Bon Jovi for six songs.
+**1999:** The Diasco family gets an unexpected Christmas bonus: in June, they'd bid on and won a private Bon Jovi performance at their home in an auction benefiting the Doug Flutie Autism Foundation; when the band shows up to honor their obligation, they bring along some friends: Bruce, Patti, and Southside Johnny. Bruce joins Bon Jovi for six songs.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1999-12-04.png)
 
-**2001:** Bruce, The Max Weinberg 7 and a host of friends play their second of five holiday shows at Asbury Park’s Convention Hall in support of local charities. All of last night’s guests are present, plus The Miami Horns, who kick things off with “Deck the Halls,” followed by “[Wild Billy’s Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)” played by just Bruce and Garry (on tuba).
+**2001:** Bruce, The Max Weinberg 7 and a host of friends play their second of five holiday shows at Asbury Park's Convention Hall in support of local charities. All of last night's guests are present, plus The Miami Horns, who kick things off with "Deck the Halls," followed by "[Wild Billy's Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)" played by just Bruce and Garry (on tuba).
 
 [Watch Video Highlight](https://videopress.com/embed/K55rhq4Y)
 
-**2002:** The Rising Tour stops at Mellon Arena in Pittsburgh, where Joe Grushecky joins Bruce for the tour premiere of “[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)” and stays through “[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)” and “Born to Run.” Bruce also tour premieres “[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)” and the show-closing “Santa Claus is Comin’ to Town.”
+**2002:** The Rising Tour stops at Mellon Arena in Pittsburgh, where Joe Grushecky joins Bruce for the tour premiere of "[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)" and stays through "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)" and "Born to Run." Bruce also tour premieres "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)" and the show-closing "Santa Claus is Comin' to Town."
 
 [Watch Video Highlight](https://videopress.com/embed/fMgCtazQ)
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: Springsteen, Oslo Spectrum 04 December 2007. Santa claus](https://www.youtube.com/watch?v=T6s2T96l35A)
 
-**2012:** Bruce kicks off his last week of the American Wrecking Ball Tour with a show at the Honda Center in Anaheim. Tom Morello joins the band for seven songs, including the show opener and closer, and Mike Ness makes a guest appearance as well for the tour premiere of “[Bad Luck](https://estreetshuffle.com/index.php/2020/06/25/matr-bruce-springsteen-and-mike-ness-bad-luck/).” “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)” also makes its tour debut at this show.
+**2012:** Bruce kicks off his last week of the American Wrecking Ball Tour with a show at the Honda Center in Anaheim. Tom Morello joins the band for seven songs, including the show opener and closer, and Mike Ness makes a guest appearance as well for the tour premiere of "[Bad Luck](https://estreetshuffle.com/index.php/2020/06/25/matr-bruce-springsteen-and-mike-ness-bad-luck/)." "[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" also makes its tour debut at this show.
 
 [Watch on Youtube: Bruce Springsteen " Land of Hope and Dreams" Anaheim 12-4-12](https://www.youtube.com/watch?v=JKvcjZepxjg)
 
@@ -60,4 +60,4 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2023:** Bruce’s scheduled show in Inglewood is postponed to the following April due to his peptic ulcer disease.
+**2023:** Bruce's scheduled show in Inglewood is postponed to the following April due to his peptic ulcer disease.

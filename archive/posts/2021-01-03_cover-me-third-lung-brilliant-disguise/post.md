@@ -1,11 +1,11 @@
-Here’s one that’ll get under your skin. At least, it got under mine.
+Here's one that'll get under your skin. At least, it got under mine.
 
 I keep an eye out for interesting Springsteen covers on a daily basis, and when I find one I like, I usually listen to it a few times, schedule it for publication, and then rarely look back. (It takes a lot of focused attention to keep this blog going on a daily schedule.)
 
-But I’ve been listening to Third Lung’s moody cover of “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” pretty regularly since the Reading (UK)-based band released it back around Thanksgiving.
+But I've been listening to Third Lung's moody cover of "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" pretty regularly since the Reading (UK)-based band released it back around Thanksgiving.
 
 [Watch on Youtube: Brilliant Disguise - Bruce Springsteen COVER by THIRD LUNG](https://www.youtube.com/watch?v=AMAh8rjBYC4)
 
-That pensive, stop-time guitar hook gives the song breathing room. forcing the listener to pay attention to the lyrics. If that’s not enough, Tom Farrelly’s impassioned vocals will give you chills, particularly on the bridge.
+That pensive, stop-time guitar hook gives the song breathing room. forcing the listener to pay attention to the lyrics. If that's not enough, Tom Farrelly's impassioned vocals will give you chills, particularly on the bridge.
 
 This is a spectacular cover.

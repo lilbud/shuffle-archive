@@ -4,7 +4,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/1970-09-06.jpg)
 
-**1975:** Boz Scaggs guest-stars on “Twist and Shout” when Bruce plays his first-ever show in Louisiana at the New Orleans Theater of the Performing Arts. (Photo credit: Barbara Pyle)
+**1975:** Boz Scaggs guest-stars on "Twist and Shout" when Bruce plays his first-ever show in Louisiana at the New Orleans Theater of the Performing Arts. (Photo credit: Barbara Pyle)
 
 [Watch Video Highlight](https://videopress.com/embed/dpbG8acj)
 
@@ -26,7 +26,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-09-06b.jpg)
 
-**1988:** Bruce plays his first and only show in Hungary when the Human Rights Now! Tour arrives in Budapest. Tour premiering tonight: “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” and “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).” Meanwhile, Bruce’s *Chimes of Freedom* EP is released to support the tour.
+**1988:** Bruce plays his first and only show in Hungary when the Human Rights Now! Tour arrives in Budapest. Tour premiering tonight: "[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)" and "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)." Meanwhile, Bruce's *Chimes of Freedom* EP is released to support the tour.
 
 [Watch on Youtube: Chimes of Freedom (Live at Stockholms Olympiastadion, Stockholm, SE - July 1988)](https://www.youtube.com/watch?v=WhvpFX63JGw)
 
@@ -40,7 +40,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/08/1988-09-06.jpg)
 
-**2003:** Bruce and the E Street Band play their first ever show at Boston’s Fenway Park, opening with the E Street Band premiere of “[Diddy Wah Diddy](https://estreetshuffle.com/index.php/2021/06/11/cover-me-diddy-wah-diddy/)” and featuring a rare “[Janey, Don’t You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)” and a show-closing “[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)” with Peter Wolf.
+**2003:** Bruce and the E Street Band play their first ever show at Boston's Fenway Park, opening with the E Street Band premiere of "[Diddy Wah Diddy](https://estreetshuffle.com/index.php/2021/06/11/cover-me-diddy-wah-diddy/)" and featuring a rare "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)" and a show-closing "[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)" with Peter Wolf.
 
 [Watch on Youtube: Bruce Springsteen & the e street Band,diddy wa diddy](https://www.youtube.com/watch?v=_jfOIVK70kc)
 

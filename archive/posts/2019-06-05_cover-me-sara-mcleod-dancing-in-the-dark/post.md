@@ -1,8 +1,8 @@
-Wow, do I love this version of [Bruce’s greatest hit](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).
+Wow, do I love this version of [Bruce's greatest hit](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/).
 
-It’s both different and great–and arguably an even better arrangement than Bruce’s original track.
+It's both different and great–and arguably an even better arrangement than Bruce's original track.
 
-The video’s fantastic, too: appropriately, it features Sara home alone, trying to start a fire without a spark. She eventually hits the streets, but the only connection she find is to the rhythmic, pounding drums and a backing track that sounds like it would have been right at home in an eighties dance club.
+The video's fantastic, too: appropriately, it features Sara home alone, trying to start a fire without a spark. She eventually hits the streets, but the only connection she find is to the rhythmic, pounding drums and a backing track that sounds like it would have been right at home in an eighties dance club.
 
 [Watch on Youtube: Sarah McLeod - Dancing in the Dark](https://www.youtube.com/watch?v=uuOb6VaLBQQ)
 

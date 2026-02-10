@@ -4,11 +4,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1969-0409.jpg)
 
-**1971:** The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays host to the “Bruce Springsteen Acoustyc Jam.”
+**1971:** The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays host to the "Bruce Springsteen Acoustyc Jam."
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1971-0410.jpg)
 
-**1974:** Bruce Springsteen meets future manager Jon Landau when Landau spots Bruce reading his review of *The Wild, The Innocent & The E Street Shuffle* during the break between two shows at Charlie’s Place in Cambridge, Massachusetts.
+**1974:** Bruce Springsteen meets future manager Jon Landau when Landau spots Bruce reading his review of *The Wild, The Innocent & The E Street Shuffle* during the break between two shows at Charlie's Place in Cambridge, Massachusetts.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1974-0412.jpg)
 
@@ -18,11 +18,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1976-0410.jpg)
 
-**1979:** Bruce and the E Street Band work on “[The Ties that Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)” at the Power Station in New York City.
+**1979:** Bruce and the E Street Band work on "[The Ties that Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)" at the Power Station in New York City.
 
 **1980:** Bruce works on mixing and overdubs for several *The River* tracks at Clover Studios in Los Angeles.
 
-**1982:** Bruce sits in with Beaver Brown for four songs at Big Man’s West in Red Bank.
+**1982:** Bruce sits in with Beaver Brown for four songs at Big Man's West in Red Bank.
 
 [Watch on Youtube: Bruce Springsteen and Beaver Brown - Red Bank - 1982-04-10](https://www.youtube.com/watch?v=xEk_SHW1r30)
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live Santa Cecilia 1996](https://www.youtube.com/watch?v=j2Wx5WNOidc)
 
-**2001:** Bruce’s 1998 U.K. legal victory against Masquerade Music is upheld by the Court of Appeal. Masquerade had imported and released an album of unreleased Springsteen songs without the artist’s permission.
+**2001:** Bruce's 1998 U.K. legal victory against Masquerade Music is upheld by the Court of Appeal. Masquerade had imported and released an album of unreleased Springsteen songs without the artist's permission.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/04/bootleg_btf.jpg)
 
@@ -48,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/9hgdYBzC)
 
-**2009:** The Working on a Dream Tour comes to Denver, along with four tour premieres including “[Racing in the Street,](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” “[Tougher Than the Rest,](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/),” and “[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/).”
+**2009:** The Working on a Dream Tour comes to Denver, along with four tour premieres including "[Racing in the Street,](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)" "[Tougher Than the Rest,](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" "[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)," and "[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)."
 
 [Watch on Youtube: BRUCE SPRINGSTEEN - JOHNNY 99 - DENVER 2009](https://www.youtube.com/watch?v=FDfLsusF-S8)
 
@@ -62,12 +62,12 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/04/2014-04-10-rotated.jpg)
 
-**2016:** A scheduled show in Greensboro is cancelled due to the state’s adoption of an anti-transgender law.
+**2016:** A scheduled show in Greensboro is cancelled due to the state's adoption of an anti-transgender law.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/2016-0408.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2021:** Bruce visits John Mellencamp at his studio in Belmont, Indiana, where he contributes to three tracks for John’s upcoming album, *Strictly a One-Eyed Jack.*
+**2021:** Bruce visits John Mellencamp at his studio in Belmont, Indiana, where he contributes to three tracks for John's upcoming album, *Strictly a One-Eyed Jack.*
 
 [Watch on Youtube: John Mellencamp - Wasted Days (Visualizer) ft. Bruce Springsteen](https://www.youtube.com/watch?v=B1Rz8rPdIDE)

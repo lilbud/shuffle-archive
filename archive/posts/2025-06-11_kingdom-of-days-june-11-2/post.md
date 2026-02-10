@@ -1,6 +1,6 @@
 ***New for 2025:** No updates*
 
-**1988:** The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of “Because the Night.”
+**1988:** The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of "Because the Night."
 
 [Watch on Youtube: Bruce Springsteen Live in Turin 1988](https://www.youtube.com/watch?v=Q9KzCea1pas)
 
@@ -30,9 +30,9 @@
 
 [Watch on Youtube: SPRINGSTEEN's Mom & Aunt dancing in Italy](https://www.youtube.com/watch?v=jIyY16fAwxs)
 
-**2005:** A scheduled solo acoustic show in Hamburg is rescheduled after Terry Magovern’s fiancée passes away.
+**2005:** A scheduled solo acoustic show in Hamburg is rescheduled after Terry Magovern's fiancée passes away.
 
-**2006:** The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where “[Long Black Veil](https://estreetshuffle.com/index.php/2020/02/05/cover-me-long-black-veil/)” makes its American premiere.
+**2006:** The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where "[Long Black Veil](https://estreetshuffle.com/index.php/2020/02/05/cover-me-long-black-veil/)" makes its American premiere.
 
 [Watch on Youtube: Bruce Springsteen Jacob's ladder live in St. Paul](https://www.youtube.com/watch?v=OJZmPNby-9U)
 

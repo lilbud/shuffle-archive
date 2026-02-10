@@ -4,7 +4,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1971-0910.jpg)
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum in Cincinnati, where “[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)” makes its tour premiere. If you can’t make the show, you can listen to a two-hour radio special on Bruce premiering tonight on the King Biscuit Flower Hour.
+**1978:** Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum in Cincinnati, where "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" makes its tour premiere. If you can't make the show, you can listen to a two-hour radio special on Bruce premiering tonight on the King Biscuit Flower Hour.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/09/1978-09-10a.jpg)
 
@@ -12,11 +12,11 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1978-0910.jpg)
 
-**1979:** Bruce records “Mr. Outside” on a cassette recorder at home in Holmdel. He will release it 36 years later on *The Ties That Bind: The River Collection*.
+**1979:** Bruce records "Mr. Outside" on a cassette recorder at home in Holmdel. He will release it 36 years later on *The Ties That Bind: The River Collection*.
 
 [Watch on Youtube: Mr. Outside (Studio Outtake - 1980)](https://www.youtube.com/watch?v=PLa8TaCNM28)
 
-**1981:** At Night Two on the River Tour at Chicago’s Rosemont Horizon, Bruce and the E Street Band play the one and only tour performance of “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/),” its last appearance for almost seven years.
+**1981:** At Night Two on the River Tour at Chicago's Rosemont Horizon, Bruce and the E Street Band play the one and only tour performance of "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)," its last appearance for almost seven years.
 
 [Watch on Youtube: Bruce Springsteen - MONA SHE'S THE ONE 1981 (audio)](https://www.youtube.com/watch?v=zHxCBO7yzCI)
 
@@ -36,7 +36,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1985-0909.jpg)
 
-**1988:** The Human Rights Now! Tour arrives at Camp Nou in Barcelona, where Branford Marsalis guest-stars on “[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/).”
+**1988:** The Human Rights Now! Tour arrives at Camp Nou in Barcelona, where Branford Marsalis guest-stars on "[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)."
 
 [Watch on Youtube: Human Rights now! Europe1988 1](https://www.youtube.com/watch?v=VvG4cv96YiI)
 
@@ -54,7 +54,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ntJl0t6p)
 
-**2003:** One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruce pays tribute to Warren Zevon (who died three days prior) by opening with his only performance to date of “[My Ride’s Here](https://estreetshuffle.com/index.php/2022/03/24/cover-me-my-rides-here/).”
+**2003:** One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruce pays tribute to Warren Zevon (who died three days prior) by opening with his only performance to date of "[My Ride's Here](https://estreetshuffle.com/index.php/2022/03/24/cover-me-my-rides-here/)."
 
 [Watch on Youtube: Bruce Springsteen - My Ride's Here SkyDome 9/10/03](https://www.youtube.com/watch?v=SMKLoE5uUu0)
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Soundcheck Bruce Springsteen en Chile!](https://www.youtube.com/watch?v=LA-yNDJDNOM)
 
-**2020:** Bruce releases the first single, video, and title track to his upcoming album with the E Street Band, “[Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/).”
+**2020:** Bruce releases the first single, video, and title track to his upcoming album with the E Street Band, "[Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)."
 
 [Watch on Youtube: Bruce Springsteen - Letter To You (Official Video)](https://www.youtube.com/watch?v=AQyLEz0qy-g)
 

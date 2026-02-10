@@ -1,33 +1,33 @@
 This is the story of an original hillbilly song from the 1930s that found its way to the Jersey shore sixty years later.
 
-Most of us know “Everybody’s Trying to Be My Baby” as the final track from *Beatles for Sale* and *Beatles ’65,* with George Harrison on lead vocals…
+Most of us know "Everybody's Trying to Be My Baby" as the final track from *Beatles for Sale* and *Beatles '65,* with George Harrison on lead vocals...
 
 [Watch on Youtube: Everybody's Trying To Be My Baby (Remastered 2009)](https://www.youtube.com/watch?v=wn7FiAdHcmw)
 
 [Watch on Youtube: 64. Everybody's Trying To Be My Baby.](https://www.youtube.com/watch?v=u7vc6_qW0UA)
 
-…and if you know your rock history, you know that The Beatles version of “Everybody’s Trying to Be My Baby” was a cover of an original song credited to Carl Perkins, of whom Harrison was a great fan.
+...and if you know your rock history, you know that The Beatles version of "Everybody's Trying to Be My Baby" was a cover of an original song credited to Carl Perkins, of whom Harrison was a great fan.
 
 [Watch on Youtube: Carl Perkins - Everybody's Trying to Be My Baby](https://www.youtube.com/watch?v=d1sY356CRgM)
 
-But “Everybody’s Trying to Be My Baby” goes back much further than that. In 1936, American country singer-songwriter Rex Griffin recorded his own original song by the same name, and it doesn’t require a very close listen to realize the similarities go far beyond the title.
+But "Everybody's Trying to Be My Baby" goes back much further than that. In 1936, American country singer-songwriter Rex Griffin recorded his own original song by the same name, and it doesn't require a very close listen to realize the similarities go far beyond the title.
 
 [Watch on Youtube: Rex Griffin - Everybody's Trying To Be My Baby](https://www.youtube.com/watch?v=bHOK0YSjBU0)
 
-Did Perkins unjustly claim writing credit for “Everybody’s Trying to Be My Baby?”
+Did Perkins unjustly claim writing credit for "Everybody's Trying to Be My Baby?"
 
-An argument can be made that Perkins simply adapted the song; most of Perkins’ verses are new and his theme is much lighter. (Griffin’s original lyrics are almost country blues.)
+An argument can be made that Perkins simply adapted the song; most of Perkins' verses are new and his theme is much lighter. (Griffin's original lyrics are almost country blues.)
 
-Personally, I don’t buy that argument. Griffin and his estate never received any royalties for Perkins’ cover or The Beatles’ cover of a cover, nor is he generally credited for the melody that inspired such classics as “Rock Around the Clock” and “Move It On Over.” And that strikes me as artistic injustice.
+Personally, I don't buy that argument. Griffin and his estate never received any royalties for Perkins' cover or The Beatles' cover of a cover, nor is he generally credited for the melody that inspired such classics as "Rock Around the Clock" and "Move It On Over." And that strikes me as artistic injustice.
 
-Griffin’s original remains an obscurity, but Perkins’ adaptation continues to surface from time to time–in Steve Earle’s set lists for example, where “Everybody’s Trying to Be My Baby” made a few appearances in 1998.
+Griffin's original remains an obscurity, but Perkins' adaptation continues to surface from time to time–in Steve Earle's set lists for example, where "Everybody's Trying to Be My Baby" made a few appearances in 1998.
 
-Bruce Springsteen was a guest at one of those appearances, and when he joined Earle on stage the first song they performed together was “Everybody’s Trying to Be My Baby,” with Bruce on backing vocals for much of the song but taking the lead on the final verse.
+Bruce Springsteen was a guest at one of those appearances, and when he joined Earle on stage the first song they performed together was "Everybody's Trying to Be My Baby," with Bruce on backing vocals for much of the song but taking the lead on the final verse.
 
 [Watch on Youtube: Everybodys Trying To Be My Baby-Bruce Springsteen & Steve Earle (6-02-1998 TradeWinds, Seabright,NJ)](https://www.youtube.com/watch?v=_Vx3vw4MUv4)
 
-That was a one-off for Bruce; he hasn’t played “Everybody’s Trying to Be My Baby” since. But if Bruce ever goes back out on the road with the Sessions Band again, Griffin’s original would make a great set list addition.
+That was a one-off for Bruce; he hasn't played "Everybody's Trying to Be My Baby" since. But if Bruce ever goes back out on the road with the Sessions Band again, Griffin's original would make a great set list addition.
 
-**Everybody’s Trying to Be My Baby**  
-**First performed:** February 6, 1998 (Sea Bright, NJ)  
+**Everybody's Trying to Be My Baby**
+**First performed:** February 6, 1998 (Sea Bright, NJ)
 **Last performed:** February 6, 1998 (Sea Bright, NJ)

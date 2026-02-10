@@ -8,7 +8,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-27b.png)
 
-**1986:** Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite Pop/Rock Album (for *Born in the U.S.A.*), and Favorite Pop/Rock Male Video Artist. He’s not in attendance though, so his awards are accepted on his behalf by…
+**1986:** Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite Pop/Rock Album (for *Born in the U.S.A.*), and Favorite Pop/Rock Male Video Artist. He's not in attendance though, so his awards are accepted on his behalf by...
 
 [Watch on Youtube: Bruce Springsteen Wins Pop/Rock Male Video - AMA 1986](https://www.youtube.com/watch?v=BbB4dkQ5xFc)
 
@@ -18,7 +18,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/1986-01-27.png)
 
-**1994:** Bruce debuts “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” at the *Commitment to Life* AIDS benefit in Los Angeles.
+**1994:** Bruce debuts "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" at the *Commitment to Life* AIDS benefit in Los Angeles.
 
 [Watch on Youtube: Bruce Springsteen - Los Angeles - 1994-01-27 news coverage](https://www.youtube.com/watch?v=lhL-btWA-o4)
 
@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Across the Border - Tokyo, January 27, 1997](https://www.youtube.com/watch?v=wIjVa0j4N68)
 
-**2009**: *Working on a Dream,* Bruce’s sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.
+**2009**: *Working on a Dream,* Bruce's sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.
 
 [Watch on Youtube: Working On A Dream](https://www.youtube.com/playlist?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
 
@@ -42,7 +42,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/2009-01-27b.png)
 
-**2016:** The River Tour (2016 Edition) moves on to Madison Square Garden, where “[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)” makes its tour premiere.
+**2016:** The River Tour (2016 Edition) moves on to Madison Square Garden, where "[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)" makes its tour premiere.
 
 [Watch on Youtube: Bruce Springsteen "Meet Me in the City" MSG NYC 1/27/16](https://www.youtube.com/watch?v=2vkOSjgsP0s)
 
@@ -52,7 +52,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/01/The_Journal_Times_Fri__Jan_29__2016_.jpg)
 
-**2017:** Night 3 in Perth features the first and only performance of “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” in Australia to date.
+**2017:** Night 3 in Perth features the first and only performance of "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" in Australia to date.
 
 [Watch on Youtube: Bruce Springsteen Perth Australia 2017. Drive All Night.](https://www.youtube.com/watch?v=tMo4WuOlqV8)
 

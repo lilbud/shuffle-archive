@@ -10,7 +10,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1974-0427a.jpg)
 
-**1976:** Bruce and the band are fifty miles into their drive from Chattanooga (where they played last night) to Nashville (where they play tomorrow) before they realize they’d left Max behind. Upon arriving in Nashville, Bruce plays tourist and checks out local record stores and clothing shops.
+**1976:** Bruce and the band are fifty miles into their drive from Chattanooga (where they played last night) to Nashville (where they play tomorrow) before they realize they'd left Max behind. Upon arriving in Nashville, Bruce plays tourist and checks out local record stores and clothing shops.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/04/1976-04-27-scaled.jpg)
 
@@ -20,7 +20,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/1983-0427.jpg)
 
-**1988:** At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres “[Across the Borderline](https://estreetshuffle.com/index.php/2022/03/26/matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/)” and records “[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)” and “Born to Run” for inclusion on *Chimes of Freedom* and *Video Anthology*.
+**1988:** At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres "[Across the Borderline](https://estreetshuffle.com/index.php/2022/03/26/matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/)" and records "[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)" and "Born to Run" for inclusion on *Chimes of Freedom* and *Video Anthology*.
 
 [Watch on Youtube: Bruce Springsteen - Tougher Than the Rest (Official Video)](https://www.youtube.com/watch?v=_91hNV6vuBY)
 
@@ -28,11 +28,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/r8cmoMkh)
 
-**1996:** At the second of two shows at Royal Albert Hall, Bruce opens with “[Pony Boy](https://estreetshuffle.com/index.php/2019/03/01/roll-of-the-dice-cover-me-pony-boy/)” for the first and only time, before segueing seamlessly (if awkwardly) into “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/).” Played twice before in New Jersey four years prior, “Pony Boy” hasn’t been heard from since.
+**1996:** At the second of two shows at Royal Albert Hall, Bruce opens with "[Pony Boy](https://estreetshuffle.com/index.php/2019/03/01/roll-of-the-dice-cover-me-pony-boy/)" for the first and only time, before segueing seamlessly (if awkwardly) into "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)." Played twice before in New Jersey four years prior, "Pony Boy" hasn't been heard from since.
 
 [Watch Video Highlight](https://videopress.com/embed/Ty8xxuZl)
 
-**2008:** At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of “[Souls of the Departed](https://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)” (the show opener) and “[Wild Billy’s Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/),”
+**2008:** At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of "[Souls of the Departed](https://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)" (the show opener) and "[Wild Billy's Circus Story](https://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/),"
 
 [Watch on Youtube: Souls of The Departed - Bruce Sprinsgteen](https://www.youtube.com/watch?v=nHlzZofJQwQ)
 
@@ -42,13 +42,13 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-27.jpg)
 
-**2009:** Bruce and Patti sing “[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)” at a Tom Hanks tribute at New York City’s Lincoln Center.
+**2009:** Bruce and Patti sing "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" at a Tom Hanks tribute at New York City's Lincoln Center.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/2009-04-27.jpg)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/2009-0427.jpg)
 
-**2012:** At night two in Los Angeles, Bruce surprises early arrivals by walking out on stage pre-show with a group of relatives and playing an acoustic “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/).” Bruce fakes out Kevin Buell with a fake guitar mishap before “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/),” only to honor him for reaching the 1,000 show milestone when he came out on stage. Making their tour debuts tonight: “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” and “[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/).” For more highlights from this show, see my [Where the Band Was report](https://estreetshuffle.com/index.php/2018/04/27/where-the-band-was-los-angeles-april-27-2012/) from this date.
+**2012:** At night two in Los Angeles, Bruce surprises early arrivals by walking out on stage pre-show with a group of relatives and playing an acoustic "[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)." Bruce fakes out Kevin Buell with a fake guitar mishap before "[Waitin' on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)," only to honor him for reaching the 1,000 show milestone when he came out on stage. Making their tour debuts tonight: "[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)" and "[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)." For more highlights from this show, see my [Where the Band Was report](https://estreetshuffle.com/index.php/2018/04/27/where-the-band-was-los-angeles-april-27-2012/) from this date.
 
 [Watch on Youtube: Bruce Springsteen - For You (Acoustic - Live Los Angeles April 27 2012)](https://www.youtube.com/watch?v=I46gjoZQtws)
 

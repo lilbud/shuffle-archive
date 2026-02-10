@@ -1,8 +1,8 @@
-**1970**: When Boz Scaggs gets sick and cancels his headlining gig at The Matrix in San Francisco, Steel Mill is promoted from opener to headliner. The band plays for more than an hour to a small crowd that includes journalist Philip Elwood, who was expecting to see and review Boz Scaggs. Needing to turn in something, he reviews Steel Mill instead and writes that he has “never been so overwhelmed by a totally unknown talent.” You can hear the groovy, very 70’s set here:
+**1970**: When Boz Scaggs gets sick and cancels his headlining gig at The Matrix in San Francisco, Steel Mill is promoted from opener to headliner. The band plays for more than an hour to a small crowd that includes journalist Philip Elwood, who was expecting to see and review Boz Scaggs. Needing to turn in something, he reviews Steel Mill instead and writes that he has "never been so overwhelmed by a totally unknown talent." You can hear the groovy, very 70's set here:
 
 [Watch on Youtube: Steel Mill 'Live at The Matrix' January 13, 1970 Full Show Soundboard Audio 1](https://www.youtube.com/watch?v=URkN5wPemOA)
 
-**1973:** Bruce and the band continue their Boston residency with two shows at Paul’s Mall.
+**1973:** Bruce and the band continue their Boston residency with two shows at Paul's Mall.
 
 **1985:** The Born in the U.S.A. Tour makes a stop at the Carolina Coliseum in Columbia, South Carolina for one night only.
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen Inducts Creedence Clearwater Revival](https://www.youtube.com/watch?v=dgpMGNVf9lw)
 
-**2012**: Bruce films the video for “[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)” in Asbury Park. Willie Nile and John Eddie join him for the shoot.
+**2012**: Bruce films the video for "[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)" in Asbury Park. Willie Nile and John Eddie join him for the shoot.
 
 [Watch on Youtube: Bruce Springsteen - We Take Care of Our Own (Official Video)](https://www.youtube.com/watch?v=-x8zBzxCwsM)
 
@@ -36,4 +36,4 @@ After the interview, Bruce and the E Street Band (+Tom Morello, -Steve Van Zandt
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/01/2019-01-13a.jpg)
 
-**2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. Today’s session focuses heavily on covers from *Only the Strong Survive*, with multiple run-throughs of “Do I Love You (Indeed I Do)” (which will not be played during the tour), “[Don’t Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)” (which will be dropped after two weeks), and “Nightshift,” which will remain a setlist tentpole throughout.
+**2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. Today's session focuses heavily on covers from *Only the Strong Survive*, with multiple run-throughs of "Do I Love You (Indeed I Do)" (which will not be played during the tour), "[Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)" (which will be dropped after two weeks), and "Nightshift," which will remain a setlist tentpole throughout.

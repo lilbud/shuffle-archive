@@ -1,10 +1,10 @@
 ***New for 2025:** Audio for 1985*
 
-**1973:** Bruce and the E Street Band play their third night of a week-long residency at Oliver’s in Boston.
+**1973:** Bruce and the E Street Band play their third night of a week-long residency at Oliver's in Boston.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1973-08-22.png)
 
-**1975:** Bruce and the boys play their second of three nights at Alex Cooley’s Electric Ballroom in Atlanta.
+**1975:** Bruce and the boys play their second of three nights at Alex Cooley's Electric Ballroom in Atlanta.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/08/1975-0822.jpg)
 
@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Madison Square Garden (8/22/1978)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1D4drCKmEeRRz7nBqEGW0pV)
 
-**1984:** Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park for “Travelin’ Band” and “[I’m Bad, I’m Nationwide](https://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/).”
+**1984:** Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park for "Travelin' Band" and "[I'm Bad, I'm Nationwide](https://estreetshuffle.com/index.php/2020/02/17/cover-me-im-bad-im-nationwide/)."
 
 [Watch on Youtube: Bruce Springsteen - Travelin' Band (1984-08-22)](https://www.youtube.com/watch?v=OvXIhNv4tKE)
 
@@ -28,7 +28,7 @@
 
 
 
-**1985:** At Night Four at Giants Stadium on the Born in the U.S.A. Tour, Little Steven makes a guest appearance during the encores. This show is available as part of Bruce’s official archive series–get it [here](https://www.nugs.net/live-download-of-bruce-springsteen-giants-stadium-east-rutherford-nj-08-22-1985-mp3-flac-or-online-music-streaming/26772.html).
+**1985:** At Night Four at Giants Stadium on the Born in the U.S.A. Tour, Little Steven makes a guest appearance during the encores. This show is available as part of Bruce's official archive series–get it [here](https://www.nugs.net/live-download-of-bruce-springsteen-giants-stadium-east-rutherford-nj-08-22-1985-mp3-flac-or-online-music-streaming/26772.html).
 
 [Watch on Youtube: Seeds (Live at Giants Stadium, E. Rutherford, NJ - 8/22/1985)](https://www.youtube.com/watch?v=s-K4f0YDhsg)
 
@@ -46,7 +46,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-22.png)
 
-**1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm’s All-Stars for “[Up on Cripple Creek](https://estreetshuffle.com/index.php/2018/01/29/meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/)” and “[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”
+**1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm's All-Stars for "[Up on Cripple Creek](https://estreetshuffle.com/index.php/2018/01/29/meeting-across-the-river-bruce-springsteen-and-levon-helms-all-stars-up-on-cripple-creek/)" and "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."
 
 [Watch Video Highlight](https://videopress.com/embed/gxirqWhO)
 
@@ -56,7 +56,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/bFZgm7vd)
 
-**1999:** Bruce and the E Street Band play their second of five Reunion shows at Boston’s Fleet Center.
+**1999:** Bruce and the E Street Band play their second of five Reunion shows at Boston's Fleet Center.
 
 [Watch on Youtube: Adam Raised A Cain Boston 22-8-99](https://www.youtube.com/watch?v=bMDI9tdyfbc)
 

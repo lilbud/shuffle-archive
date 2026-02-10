@@ -4,9 +4,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/0GMcGpH8)
 
-**1977:** Bruce and the E Street Band work on “Adam Raised a Cain” at a recording session at The Record Plant in New York City.
+**1977:** Bruce and the E Street Band work on "Adam Raised a Cain" at a recording session at The Record Plant in New York City.
 
-**1978:** Bruce and the band play their first of two nights at the Winterland Ballroom in San Francisco on the Darkness Tour, and it will go down in history as one of their best. Broadcast live on KSAN-FM and captured as a soundboard recording, this show will be prolifically bootlegged for decades to come. It will finally be officially released more than four decades later as part of Bruce’s archive series–get it [here](https://live.brucespringsteen.net/live-music/0,23615/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-15-1978-Winterland-Arena-San-Francisco-CA.html).
+**1978:** Bruce and the band play their first of two nights at the Winterland Ballroom in San Francisco on the Darkness Tour, and it will go down in history as one of their best. Broadcast live on KSAN-FM and captured as a soundboard recording, this show will be prolifically bootlegged for decades to come. It will finally be officially released more than four decades later as part of Bruce's archive series–get it [here](https://live.brucespringsteen.net/live-music/0,23615/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-15-1978-Winterland-Arena-San-Francisco-CA.html).
 
 [Watch on Youtube: Streets of Fire (Live at Winterland Arena, San Francisco, CA - 12/15/1978)](https://www.youtube.com/watch?v=buib4a2xlDs)
 
@@ -34,7 +34,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/12/1995-1215.jpg)
 
-**2001:** Bruce makes a guest appearance with Tim McLoone’s Holiday Express at the Continental Airlines Arena in East Rutherford.
+**2001:** Bruce makes a guest appearance with Tim McLoone's Holiday Express at the Continental Airlines Arena in East Rutherford.
 
 [Watch on Youtube: Merry Christmas Baby - Bruce Springsteen (live at the Meadowlands Arena, East Rutherford 2001)](https://www.youtube.com/watch?v=idLXa1qQmNc)
 
@@ -52,7 +52,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2023/12/The_Daily_Telegraph_Mon__Dec_17__2007_.jpg)
 
-**2012:** Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for “[Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/).”
+**2012:** Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for "[Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/)."
 
 [Watch on Youtube: Lady Gaga, Bruce Springsteen and the Black Keys rehearse with the Rolling Stones](https://www.youtube.com/watch?v=1MDytQVZb34)
 

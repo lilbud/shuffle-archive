@@ -16,8 +16,6 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3?_=7)
 
-<https://estreetshuffle.com/wp-content/uploads/2022/02/1977-02-12.mp3>
-
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1990-02-12.png)
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/02/1977-02-12a.png)
@@ -30,7 +28,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/02/Birmingham_Post_Herald_Fri__Feb_13__1981_.jpg)
 
-**1990**: Bruce, Sting, Bruce Hornsby, and others attend and perform at a benefit for the Rainforest Foundation in Beverly Hills. Among the numbers Bruce performs: his only known cover of “Big Yellow Taxi.”
+**1990**: Bruce, Sting, Bruce Hornsby, and others attend and perform at a benefit for the Rainforest Foundation in Beverly Hills. Among the numbers Bruce performs: his only known cover of "Big Yellow Taxi."
 
 After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and Joe Walsh hit the China Club in Hollywood and jam on stage.
 
@@ -38,15 +36,15 @@ After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and
 
 [Watch on Youtube: Bruce Springsteen in Frankfurt - February 12, 1996](https://www.youtube.com/watch?v=qVfDA38YmwE)
 
-**1997:** Bruce’s marathon solo acoustic tour continues with a fifth and final show at the Capital Theater in Sydney, Australia.
+**1997:** Bruce's marathon solo acoustic tour continues with a fifth and final show at the Capital Theater in Sydney, Australia.
 
 [Watch Video Highlight](https://videopress.com/embed/pbK3YKjI)
 
-**1999:** Bruce records audio and video for “[Give My Love to Rose](https://estreetshuffle.com/index.php/2020/10/29/cover-me-give-my-love-to-rose/)” for a Johnny Cash tribute special. It will be broadcast in April.
+**1999:** Bruce records audio and video for "[Give My Love to Rose](https://estreetshuffle.com/index.php/2020/10/29/cover-me-give-my-love-to-rose/)" for a Johnny Cash tribute special. It will be broadcast in April.
 
 [Watch on Youtube: Give my love to rose - bruce springsteen](https://www.youtube.com/watch?v=rF2ikBJbV5U)
 
-**2012:** Bruce and the E Street Band open the Grammy Awards with the live debut of “[We Take Care of Our Own.](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)” At the end of the show, Bruce joins an epic jam with Paul McCartney, Dave Grohl, and Joe Walsh on “[The End.](https://estreetshuffle.com/index.php/2024/07/06/matr-paul-mccartney-and-bruce-springsteen-the-end/)” Watch both performances and behind-the-scenes footage below.
+**2012:** Bruce and the E Street Band open the Grammy Awards with the live debut of "[We Take Care of Our Own.](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)" At the end of the show, Bruce joins an epic jam with Paul McCartney, Dave Grohl, and Joe Walsh on "[The End.](https://estreetshuffle.com/index.php/2024/07/06/matr-paul-mccartney-and-bruce-springsteen-the-end/)" Watch both performances and behind-the-scenes footage below.
 
 [Watch on Youtube: Bruce Springsteen, Paul McCartney behind the scenes at 2012 Grammys](https://www.youtube.com/watch?v=LVaV9d7U4YE)
 
@@ -54,7 +52,7 @@ After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and
 
 [Watch Video Highlight](https://videopress.com/embed/0ABz94N6)
 
-**2014:** Night Two in Adelaide is a scorcher… literally. It was a hot day, and it prompts Bruce to open with a cover of “[Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/).” This show also features the first and only (to date) performance of “[Hunter of Invisible Game](https://estreetshuffle.com/index.php/2022/01/18/roll-of-the-dice-hunter-of-invisible-game/).”
+**2014:** Night Two in Adelaide is a scorcher... literally. It was a hot day, and it prompts Bruce to open with a cover of "[Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)." This show also features the first and only (to date) performance of "[Hunter of Invisible Game](https://estreetshuffle.com/index.php/2022/01/18/roll-of-the-dice-hunter-of-invisible-game/)."
 
 [Watch on Youtube: Bruce Springsteen - " (Love Is Like A) Heat Wave" (Adelaide 02/12/14)](https://www.youtube.com/watch?v=KBwXxxRBnJ0)
 
@@ -64,7 +62,7 @@ After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and
 
 [Watch on Youtube: Bruce Springsteen - Backstreets (with Sad Eyes) - Adelaide 2 12 February 2014](https://www.youtube.com/watch?v=6_x8_lldjF0)
 
-**2016:** At the Wells Fargo Center in Philadelphia, Bruce gives Philly their customary special perks, adding tour premieres of “[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)” and “Jungleland” to the post-album set. For more highlights and memories, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/02/12/where-the-band-was-philadelphia-february-12-2016/).
+**2016:** At the Wells Fargo Center in Philadelphia, Bruce gives Philly their customary special perks, adding tour premieres of "[My Love Will Not Let You Down](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)" and "Jungleland" to the post-album set. For more highlights and memories, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/02/12/where-the-band-was-philadelphia-february-12-2016/).
 
 [Watch on Youtube: Bruce Springsteen - 2016 - Philadelphia - Jungleland - HQ Audio](https://www.youtube.com/watch?v=SnUHCsqDi6I)
 
