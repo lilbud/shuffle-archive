@@ -16,11 +16,12 @@ from bs4 import Comment
 from minify_html import minify
 from se import formatting
 from se.se_epub import SeEpub
-
+import datetime
 from cleanup import initial_cleanup, link_fixes
 from database import insert_post, load_db
 
 posts = Path(r".\archive\posts")
+json_posts = Path(r".\posts_json")
 
 tags = []
 
@@ -37,19 +38,54 @@ soup = bs4(template.read_text(), "html.parser")
 
 
 if __name__ == "__main__":
-    for folder in posts.iterdir():
-        print(folder.name)
-        text = Path(folder, "post.md").read_text(encoding="utf-8")
+    with load_db() as conn, conn.cursor() as cur:
+        for file in json_posts.iterdir():
+            post = json.loads(file.read_text(encoding="utf-8"))
 
-        # fix fancy quotes
-        text = re.sub("“|”", '"', text)
-        text = re.sub("‘|’", '\'', text)
-        text = re.sub("…", '...', text)
+            post_id = post['id']
 
-        text = re.sub("\n<https:.*>\n", '', text)
+            date = datetime.datetime.strptime(
+                post["modified_gmt"],
+                "%Y-%m-%dT%H:%M:%S",
+            )
 
-        with Path(folder, "post.md").open("w", encoding="utf-8") as f:
-            f.write(text)
+            save_path = Path(f"./archive/posts/{date.date()}_{post['slug']}")
+
+            print(save_path)
+            save_path.mkdir(exist_ok=True)
+
+            content = initial_cleanup(post["content"]['rendered'])
+            content = html_to_markdown.convert(content)
+
+            # if not Path(save_path, "meta.json").exists():
+            #     # save the updated dict to the post folder
+            #     with Path(save_path, "meta.json").open("w", encoding="utf-8") as f:
+            #         json.dump(post, f)
+
+            #     print("created json")
+
+            # # write post HTML from database to post folder
+            # if not Path(save_path, "post.html").exists():
+            #     with Path(save_path, "post.html").open("w", encoding="utf-8") as f:
+            #         f.write(str(template))
+
+            #     print("created html")
+
+            # convert post to markdown and save
+            if not Path(save_path, "post.md").exists():
+                with Path(save_path, "post.md").open("w", encoding="utf-8") as f:
+                    f.write(content)
+
+                print("created md")
+
+
+
+        # if not Path(f"./archive/posts/{date}_{post['slug']}").exists():
+        #     print(f"./archive/posts/{date}_{post['slug']}")
+        #     insert_post(post, cur, conn)
+
+        # Path(f"./archive/posts/{date}_{post['slug']}").mkdir(exist_ok=True)
+
 
 
 

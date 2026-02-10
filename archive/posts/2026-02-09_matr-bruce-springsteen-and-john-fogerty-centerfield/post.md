@@ -1,0 +1,45 @@
+---
+meta-author: Ken Rosen
+meta-description: Bruce performed the only song enshrined in the Baseball Hall of Fame nightly with its original artist during the Vote for Change Tour.
+
+meta-viewport: width=device-width, initial-scale=1.0
+title: Centerfield
+---
+
+There are 338 members of the Rock and Roll Hall of Fame.
+
+But only one artist has been honored by the Hall of Fame.
+
+*Baseball*
+
+That honor belongs to lifelong baseball fan John Fogerty and his 1985 hit single, “Centerfield.”
+
+[https://www.youtube.com/embed/Xq3hEMUeBGQ?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/Xq3hEMUeBGQ?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+
+“Centerfield” didn’t make the Top 40 when it was released (it peaked at #44), but it quickly became a standard in just about every American ballpark, where crowds clap, sing, and dance along between innings.
+
+As beloved as “Centerfield” has become, it was still something of a surprise to see it featured as a nightly set list staple when Fogerty joined Bruce Springsteen and the E Street Band on their Vote for Change Tour in October 2004.
+
+That tour had a decidedly political message, with tight and carefully constructed sets designed to spur activism from an audience that was perhaps politically aligned with John and Bruce but not necessarily inclined to get out and vote.
+
+“Fortunate Son,” was a lock of course, as was John’s latest single, “Deja Vu All Over Again.” But “Centerfield” was a curveball–although perhaps it shouldn’t have been, since Bruce is known to be quite the lifelong baseball fan himself.
+
+The chance to perform “Centerfield” with the song’s original artist was probably too tempting to pass up, and the song became Fogerty’s first number upon taking the stage each night.
+
+[https://www.youtube.com/embed/ExdLcwIZdsk?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/ExdLcwIZdsk?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+
+Six years later, Fogerty was surprised to learn his song had been inducted into the Baseball Hall of Fame–surprised mostly because the Hall of Fame had never honored a song or musician before.
+
+When asked for his reaction to the news in an interview at the time, Fogerty deadpanned:
+
+“It came out of left field.”
+
+October 1, 2004 (Philadelphia, PA)
+ October 13, 2004 (East Rutherford, NJ)
+
+**Centerfield
+First performed:**  
+
+**Last performed:**
+
+© June 22, 2021

@@ -1,0 +1,135 @@
+---
+meta-author: Ken Rosen
+meta-description: "Happy birthday to Steven Van Zandt, born on this day in 1950! Plus: one acoustic tour kicks off while another one ends, Clarence plays his last public show with Bruce, and Bruce is honored by President Obama. Big, big day in Springsteen history!
+"
+meta-viewport: width=device-width, initial-scale=1.0
+title: "Kingdom of Days: November 22"
+---
+
+*New entry for 2024***New for 2025:**
+
+Future singer/guitarist/songwriter/producer/arranger/actor/DJ/best-selling author, member of the E Street Band, co-founder of the Asbury Jukes, and leader of the Disciples of Soul–Steven Van Zandt is born today in Winthrop, Massachusetts.
+
+**1950:**
+
+
+
+![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/svz-226x300.jpg?resize=758%2C1005)
+
+Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
+
+**1968:**
+
+
+
+![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1968-11-22.gif?resize=758%2C1170)
+
+Still transitioning from Child to Steel Mill, Bruce and the band open for Iron Butterfly at Randolph-Macon College.
+
+**1969:**
+
+
+
+![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1969-11-21-196x300.jpg?resize=758%2C1160)
+
+Bruce and the E Street Band headline at West Chester College.
+
+**1974:**
+
+On hiatus without a leader, the E Street Band backs Marshall Crenshaw and Joey Ramone for a long, by-request set broadcast live on WKRK in New York City.
+
+**1992:** <https://estreetshuffle.com/wp-content/uploads/2024/11/03-Dont-Let-Me-Down.mp3><https://estreetshuffle.com/wp-content/uploads/2024/11/06-Go-Your-Own-Way.mp3>
+
+Bruce kicks off what will prove to be a marathon-length world tour, performing solo and acoustic in small theaters and intimate venues. The tour begins at the Count Basie Theater in Red Bank, where “” makes its only appearance of the opening leg.
+
+**1995:** [Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
+
+[https://www.youtube.com/embed/2xYzEjSci5Q?feature=oembed](https://www.youtube.com/embed/2xYzEjSci5Q?feature=oembed)
+
+![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-22-300x75.png?resize=758%2C190)
+
+The anticipation for Bruce’s upcoming show in Tampa is building, stoked by the local news. Tonight, they air a special look at Bruce’s local fandom.
+
+**2002:**
+
+[https://www.youtube.com/embed/Muj_8nm8kyc?feature=oembed](https://www.youtube.com/embed/Muj_8nm8kyc?feature=oembed)
+
+The Devils and Dust solo acoustic tour comes to a close at the Sovereign Bank Arena in Trenton, but Bruce still has surprises up his sleeve: “Zero and Blind Terry” make their return to Bruce’s setlist, 31 years after their last appearance. “” and “” also make their tour premiere at the last show, and in the encores, Bruce brings his extended family on stage to join him for one last seasonal tour premiere: “” This show is available for purchase as part of Bruce’s official archive series–get it .
+
+**2005:** [Fire](http://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)[Santa Claus is Comin’ to Town.](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[here](http://live.brucespringsteen.net/live-music/0,21532/Bruce-Springsteen-mp3-flac-download-11-22-2005-Sovereign-Bank-Arena-Trenton-NJ.html)
+
+[https://www.youtube.com/embed/dKzarMVvALI?feature=oembed](https://www.youtube.com/embed/dKzarMVvALI?feature=oembed)
+
+[https://www.youtube.com/embed/x4e5K2fBMR0?feature=oembed](https://www.youtube.com/embed/x4e5K2fBMR0?feature=oembed)
+
+[https://www.youtube.com/embed/-ipv8Oaje30?feature=oembed](https://www.youtube.com/embed/-ipv8Oaje30?feature=oembed)
+
+[https://www.youtube.com/embed/GP5jde4veiU?feature=oembed](https://www.youtube.com/embed/GP5jde4veiU?feature=oembed)
+
+[https://www.youtube.com/embed/4l-vcEbedBQ?feature=oembed](https://www.youtube.com/embed/4l-vcEbedBQ?feature=oembed)
+
+[https://www.youtube.com/embed/_6-ItUwDYmw?feature=oembed](https://www.youtube.com/embed/_6-ItUwDYmw?feature=oembed)
+
+[https://www.youtube.com/embed/Y8wrl7Aqwhk?feature=oembed](https://www.youtube.com/embed/Y8wrl7Aqwhk?feature=oembed)
+
+[https://www.youtube.com/embed/WkAei555KP8?feature=oembed](https://www.youtube.com/embed/WkAei555KP8?feature=oembed)
+
+[https://www.youtube.com/embed/SatYbLm--N4?feature=oembed](https://www.youtube.com/embed/SatYbLm--N4?feature=oembed)
+
+Four years later to the day, Bruce is wrapping up another tour, as the Working on a Dream Tour comes to a close in Buffalo. This show closes a much bigger chapter in Bruce’s life, though–it marks the last time Clarence Clemons will grace the E Street stage for a public concert. Almost as if he knows it, Bruce plans a very special show, playing start to finish for the first and only time ever. Two tracks from that album are tour premieres–“” and “,” the latter of which features lovely viola support from Joyce Hammann. The special moments keep coming: “Restless Nights” is played for the very first time ever (by request from Steve), “” is played by request (another tour debut), and since the holidays are approaching, Bruce plays “” and “Santa Claus is Comin’ to Town.” The encores open with a final tour premiere–an acoustic, sentimental “,” very obviously a heartfelt message from Bruce to his fans. Willie Nile joins the band for “,” and a final rousing rendition of “Rockin’ All Over the World” closes this chapter in E Street history. The show is available as an official archive series download (get it ) and is essential for every Springsteen fan. For more highlights from this show, see my .
+
+**2009:**   [Greetings from Asbury Park](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)[The Angel](http://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)[Hang Up My Rock and Roll Shoes](http://estreetshuffle.com/index.php/2018/05/13/cover-me-hang-up-my-rock-and-roll-shoes/)*both*[Merry Christmas Baby](http://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)[I’ll Work For Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)[Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)[here](http://live.brucespringsteen.net/live-music/0,15506/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-22-2009-HSBC-Arena-Buffalo-NY.html)[report](http://estreetshuffle.com/index.php/2018/11/22/where-the-band-was-buffalo-november-22-2009/)*Where the Band Was*
+
+[https://videopress.com/embed/MRRnp34T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MRRnp34T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+
+[https://videopress.com/embed/keQmvh77?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/keQmvh77?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+
+[https://videopress.com/embed/3WSR4CKk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/3WSR4CKk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+
+[https://videopress.com/embed/vy8EpCQb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vy8EpCQb?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+
+![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Buffalo_News_Mon__Nov_23__2009_.jpg?resize=758%2C608&amp;ssl=1)
+
+President Barack Obama presents Bruce with the Presidential Medal of Freedom, the nation’s highest civilian honor.
+
+**2016:**
+
+[https://www.youtube.com/embed/Zag_-9Rr1vk?feature=oembed](https://www.youtube.com/embed/Zag_-9Rr1vk?feature=oembed)
+
+Before the ceremony, Bruce joins the assembled honorees in the Mannequin Challenge.
+
+I'm in. 
+
+[pic.twitter.com/oU344pnYsH](https://t.co/oU344pnYsH)
+
+— The Ellen Show (@TheEllenShow) 
+
+[November 22, 2016](https://twitter.com/TheEllenShow/status/801127734952853504?ref_src=twsrc%5Etfw)
+
+
+
+![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2016-11-22a-117x300.png?resize=758%2C1944)
+
+
+
+![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2016-11-22b-153x300.png?resize=758%2C1486)
+
+continues its theatrical run at the Walter Kerr Theater in New York City.
+
+**2017:** *Springsteen on Broadway*
+
+Bruce gathers the E Street Band at his home studio in Colts Neck for the last day of a five-day recording session that will yield 
+
+**2019:** *.*[Letter to You](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)
+
+Bruce gives to reporter Chris Jordan for the .
+
+**2022:** [an interview](https://www.app.com/story/entertainment/music/2022/11/23/bruce-springsteen-soul-album-voice-concert-tickets/69668627007/)*Asbury Park Press*
+
+Bruce and the E Street Band close out World Tour ’24 with a festive show (their longest of the year) in Vancouver, British Columbia.
+
+**2024:**
+
+[https://www.youtube.com/embed/NsZ5gYhDr8A?start=6&amp;feature=oembed](https://www.youtube.com/embed/NsZ5gYhDr8A?start=6&amp;feature=oembed)
+
+[https://www.youtube.com/embed/EorOcv1we4Q?feature=oembed](https://www.youtube.com/embed/EorOcv1we4Q?feature=oembed)

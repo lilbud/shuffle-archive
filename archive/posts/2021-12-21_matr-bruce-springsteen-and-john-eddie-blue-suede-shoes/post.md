@@ -1,0 +1,51 @@
+---
+meta-author: Ken Rosen
+meta-description: "One time only (and *almost* another): Bruce joins John Eddie on Carl Perkins’ breakthrough rockabilly hit.
+"
+meta-viewport: width=device-width, initial-scale=1.0
+title: "MatR: Bruce Springsteen and John Eddie: Blue Suede Shoes"
+---
+
+For an artist with an appreciation of (and even at times a fixation on) rockabilly records, it’s somewhat surprising that one of the earliest and most well-known rockabilly hits isn’t among the countless songs Bruce has properly covered in concert.
+
+Although most people today would probably associate it with Elvis Presley, it was Carl Perkins who wrote and first recorded “Blue Suede Shoes,” and it was Perkins who had the bigger hit with it.
+
+Released on the legendary Sun Records label in the last days of 1955, “Blue Suede Shoes” became a massive hit for Perkins, blocked from the top spot on the Billboard Hot 100 by (ironically) Elvis Presley’s “.” Even so, Perkins’ recording of “Blue Suede Shoes” topped many regional pop, R&B, and country charts.
+
+[Heartbreak Hotel](https://estreetshuffle.com/index.php/2021/04/11/matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/)
+
+[https://www.youtube.com/embed/DRNyvO4QouY?feature=oembed](https://www.youtube.com/embed/DRNyvO4QouY?feature=oembed)
+
+Elvis recorded and released his own version the following year, and while it didn’t fare as well on the charts as Perkins’ version (it peaked at #20), over time Presley’s arrangement (without the stop-time intro) became the more well-known version.
+
+[https://www.youtube.com/embed/Bm5HKlQ6nGM?feature=oembed](https://www.youtube.com/embed/Bm5HKlQ6nGM?feature=oembed)
+
+Bruce may not have covered “Blue Suede Shoes” in one of his “official” concerts, but he did play it once–at a drop-in appearance with John Eddie at the Brighton Bar in Long Branch, New Jersey, in the summer of 1983. And as with most modern covers of “Blue Suede Shoes,” Bruce went with the Elvis intro.
+
+[https://videopress.com/embed/7X6UZAZU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7X6UZAZU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+
+Although this club performance is the only time Bruce is known to have covered “Blue Suede Shoes” in concert, I’d be remiss if I didn’t also acknowledge the one other time he did–and not by his plan.
+
+*almost*
+
+Eleven years ago today (at time of publication, at least), Bruce played , and Springsteen fan and Elvis impersonator Nick Ferraro (forever after a.k.a. Philly Elvis) was in the pit.
+
+[his penultimate show at the storied Philadelphia Spectrum](http://estreetshuffle.com/index.php/2019/10/19/kingdom-of-days-october-19-2/)
+
+Bruce played “” for Nick during the sign request part of the set, and he invited Nick on stage as well. What followed was one of the few times a fan was able to completely steal the show.
+
+[All Shook Up](http://estreetshuffle.com/index.php/2019/08/03/matr-bruce-springsteen-and-the-philly-elvis-all-shook-up/)
+
+Toward the end of “All Shook Up,” Nick deftly (and gutsily) segues the band into “Blue Suede Shoes,” and although he only gets a verse out before Bruce makes it clear he’s taking his show back, it’s a great moment worthy of watching and re-watching.
+
+[https://www.youtube.com/embed/XyJgPQRw4JA?feature=oembed](https://www.youtube.com/embed/XyJgPQRw4JA?feature=oembed)
+
+August 19, 1983 (Long Branch, NJ)
+ August 19, 1983 (Long Branch, NJ)
+
+**Blue Suede Shoes
+First performed:**  
+
+**Last performed:**
+
+ 

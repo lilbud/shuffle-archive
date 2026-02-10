@@ -85,8 +85,8 @@ def get_categories(cur: psycopg.Cursor) -> None:
 
         res = client.get(url)
 
-        with Path(save_path, "categories.json").open("w") as f:
-            json.dump(res.json(), f)
+        # with Path(save_path, "categories.json").open("w") as f:
+        #     json.dump(res.json(), f)
 
         for cat in res.json():
             cur.execute(
@@ -275,18 +275,18 @@ def get_comments():
             time.sleep(1)
 
 
-# if __name__ == "__main__":
-    # with load_db() as conn, conn.cursor() as cur:
-# print("Grabbing newest posts.")
-# get_newest_posts(cur, conn)
+if __name__ == "__main__":
+    with load_db() as conn, conn.cursor() as cur:
+        # print("Grabbing newest posts.")
+        # get_newest_posts(cur, conn)
 
-# get_categories(cur)
+        get_categories(cur)
 
-# print("Grabbing recently updated posts.")
-# get_latest_posts(cur, conn)
+        # print("Grabbing recently updated posts.")
+        # get_latest_posts(cur, conn)
 
-# archive_posts(cur)
+        # archive_posts(cur)
 
-# get_media(cur, conn)
+        # get_media(cur, conn)
 
-# get_comments()
+        # get_comments()

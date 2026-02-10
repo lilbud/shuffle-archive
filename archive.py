@@ -27,7 +27,6 @@ def archive_posts(cur: psycopg.Cursor) -> None:
         date = post["published"].date()
         template = bs4(Path("./template.html").read_text(), "html.parser")
 
-        # if not Path(f"./archive/posts/{date}_{post['slug']}").exists():
         print(f"./archive/posts/{date}_{post['slug']}")
         post_id = post["post_id"]
 

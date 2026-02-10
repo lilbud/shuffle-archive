@@ -1,0 +1,31 @@
+---
+meta-author: Ken Rosen
+meta-description: Daniele Tenca turned in a gloriously gritty cover of “Johnny 99” at a live performance in 2018. It’s now my all-time favorite arrangement of the song.
+
+meta-viewport: width=device-width, initial-scale=1.0
+title: "Cover Me, Daniele Tenca: Johnny 99"
+---
+
+Daniele Tenca hails from Italy, but he shouldn’t be a stranger to Springsteen fans–he’s made multiple Light of Day appearances, played The Stone Pony in Asbury Park, and recorded a few outstanding Springsteen covers.
+
+In fact, Tenca recorded an absolutely smoking cover of “” back in 2010, and I was all set to blog about it later this month.
+
+[Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)
+
+But a few days ago, this stop-the-presses gem from 2018 showed up on YouTube, and now that “Factory” cover is going to have to wait a while–because I can’t stop listening to Tenca’s absolutely fantastic cover of “.” It’s easily my all-time favorite arrangement of the song, and that includes Bruce’s own.
+
+[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)
+
+[https://www.youtube.com/embed/Bl_6G2Pbl0s?feature=oembed](https://www.youtube.com/embed/Bl_6G2Pbl0s?feature=oembed)
+
+Tenca actually recorded a live performance of “Johnny 99” back in 2011–you can find on his album It’s not nearly as gloriously gritty as the performance above, but it’s still well worth checking out.
+
+*Live for the Working Class.*
+
+[https://www.youtube.com/embed/MDQflYOs1g4?feature=oembed](https://www.youtube.com/embed/MDQflYOs1g4?feature=oembed)
+
+When this pandemic ends and I can make it back to Italy again, I’m gonna have to align my trip with one of Tenca’s shows. Until then, I’m just going to keep listening to his albums–.
+
+[they’re great](https://www.youtube.com/channel/UCPME3JN_bZBgSMpyjl4VhaA)
+
+ 

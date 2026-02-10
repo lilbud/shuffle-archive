@@ -1,0 +1,41 @@
+---
+meta-author: Ken Rosen
+meta-description: "One time only: Bruce Springsteen joins local band Solar Circus for an impromptu performance of the band’s 1992 song, “Stems and Seeds.”
+"
+meta-viewport: width=device-width, initial-scale=1.0
+title: Stems and Seeds
+---
+
+The band is Solar Circus, a North Jersey-based Grateful Dead-influenced band (at one point, Dead songs comprised about half their sets) that broke up in 1997 but can’t quite manage to stay broken. (The members were still getting together for live shows as recently as 2020.)
+
+The song is “Stems and Seeds,” the opening track from the band’s 1992 album and featured song in 
+
+*Step Right Up**Tie-died: Rock ‘n Roll’s Most Deadicated Fans.*
+
+[https://www.youtube.com/embed/dWxYkrA-594?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/dWxYkrA-594?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+
+The date was August 10, 1995–just one day after Grateful Dead founder Jerry Garcia passed away from a heart attack at the young age of 53.
+
+Solar Circus played a gig that night at the Metro Lounge in Long Branch, New Jersey, and with raw emotions sweeping both the band and the crowd, the show essentially became a tribute to Garcia and the Dead.
+
+Taking in the show from the bar was a famous local musician.
+
+“We were lucky enough to find Bruce sitting in the back of the bar,” recalled Solar Circus vocalist and lead guitarist Mark Diomede, so he asked Bruce to join them. “He got this faraway look in his eye for a second, then he agreed to do a couple songs.”
+
+In true Springsteen fashion, a couple of songs turned into five; in true Dead fashion, those five songs kept Bruce on stage for more than an hour. They played three covers together (“Mustang Sally,” “All Along the Watchtower,” and a 30-minute version of “Not Fade Away”), and they played two Solar Circus originals, including “Stems and Seeds.”
+
+Bruce doesn’t sing in the recording below (since this was an impromptu performance, we can assume that he wasn’t familiar enough with the band’s original songs), but we can hear his prominent guitar throughout, especially when he takes a solo about five minutes in.
+
+[https://videopress.com/embed/wvkjqrYF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wvkjqrYF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+
+That was the first and only time Bruce performed with Solar Circus.
+
+August 10, 1995 (Long Branch, NJ)
+ August 10, 1995 (Long Branch, NJ)
+
+**Stems and Seeds
+First performed:**  
+
+**Last performed:**
+
+© March 22, 2021

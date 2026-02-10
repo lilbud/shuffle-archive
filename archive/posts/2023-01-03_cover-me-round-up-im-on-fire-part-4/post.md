@@ -1,0 +1,53 @@
+---
+meta-author: Ken Rosen
+meta-description: Five more fresh takes on Bruce’s steamy hit single.
+
+meta-viewport: width=device-width, initial-scale=1.0
+title: "Cover Me Round-Up: I’m on Fire (Part 4)"
+---
+
+It’ s time for our first “” round-up of 2022, and we’ve got some great ones to enjoy today. Each of today’s artists gifts us with a different spin on Bruce’s oft-covered classic.
+
+[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
+
+Let’s start off with singer-songwriter Stefanie Joyce’s country arrangement. “This song is so fun because it’s been covered by so many artists in so many drastically different ways,” Stefanie wrote on her YouTube page. “I’m partial to the Whitey Morgan version. We tried to do something a bit country, a bit bluegrass, and a whole lotta dark.”
+
+ 
+
+Stefanie enlisted Danya Olsen on fiddle and Nick Halsted on percussion and backing vocals for an intimate trio arrangement that serves the song admirably. If you’re interested in hearing Stefanie’s own music, check out her site .
+
+[here](https://stefaniejoycemusic.com/#:~:text=Steeped%20in%20the%20tradition%20of,redemption%2C%20and%20everything%20in%20between.)
+
+Now let’s take a trip in time. Our next cover artists reimagine “I’m on Fire” in styles that were popular long before or well after Bruce’s 1985 single was climbing the charts.
+
+First up is a rockabilly/swing band from Athens, Greece. After a moody first verse, the band cuts loose with a 1950s-style rockabilly arrangement that’ll get you on the dance floor. It might lose the tension in Bruce’s original version but it certainly retains the heat.
+
+[Vanila Swing,](https://vanilaswing.com/)
+
+[https://www.youtube.com/embed/iRFG-K4ahLA?feature=oembed](https://www.youtube.com/embed/iRFG-K4ahLA?feature=oembed)
+
+Moving forward a few decades, Philly-based Sharon Little and Tim Sonnefeld show us what Bruce’s song might have sounded like if he’d released it in the mid-nineties instead of the mid-eighties. Sonnefeld’s backing track is moody, broody, and intense–and Little’s vocals will blow you away, particularly when the song bursts open about halfway through.
+
+[https://www.youtube.com/embed/t3aoZZpAoAw?feature=oembed](https://www.youtube.com/embed/t3aoZZpAoAw?feature=oembed)
+
+If Sharon’s name and voice sound familiar, you might have seen her at Light of Day in 2017 or opening for Robert Plant, Alison Krauss and T Bone Burnett before that. Her songs have also been featured in several television show episodes, and you can check out all her original music .
+
+[here](https://sharonlittle.com/)
+
+And as long as we’re in a moody mood, let’s check out French musician Halem’s stunning bluesy cover of “I’m on Fire” from his upcoming EP. This one is best listened to with the lights out!
+
+[https://www.youtube.com/embed/hPNnB7wVtkI?feature=oembed](https://www.youtube.com/embed/hPNnB7wVtkI?feature=oembed)
+
+Halem’s EP is due in April; for more updates or to explore his own music, check out his YouTube page .
+
+[here](https://www.youtube.com/channel/UCxHCWSyx6BLvQ2AdA-UyoVQ)
+
+Finally (for now), let’s make a return visit to Pennsylvania, a little further west this time–to Johnstown, where we check on The Evergreens, a married couple whose videos alternate between informative, entertaining travel vlogging and terrific musical covers.
+
+“I’m on Fire” is their most recent release, and while it may be the most familiar-sounding of today’s round-up, it’s a truly great performance that really captures the song’s steamy soul.
+
+[https://www.youtube.com/embed/7ZxORhHKrVM?feature=oembed](https://www.youtube.com/embed/7ZxORhHKrVM?feature=oembed)
+
+That’s it for today, but new covers of “I’m on Fire” seem to find me faster than I can write about them, so rest assured: we’ll be back again before too long with another installment.
+
+ 

@@ -1,0 +1,47 @@
+---
+meta-author: Ken Rosen
+meta-description: Jesse Malin’s debut performance with Bruce turned a legion of Springsteen fans into Malin fans, and “Wendy” was the song that did it. 
+
+meta-viewport: width=device-width, initial-scale=1.0
+title: Wendy
+---
+
+What is it about Wendy?
+
+Bruce Springsteen introduced her in 1975, and I was so smitten that I’ve been a fan for life. Then Jesse Malin re-introduced her to me more than a quarter-century later, and I fell in love all over again.
+
+At the tail end of 2002, former D Generation lead singer Jesse Malin released his debut solo album, With first-time producer Ryan Adams, Jesse recorded the album in a mere six days, but you’d never know it from the final product.
+
+*The Fine Art of Self Destruction.*
+
+easily ranks among the best albums released that year (a year that also brought us ). As Bruce himself put it, “Jesse’s got one of those rare albums out these days that’s really an album–it’s got all good songs on it.”
+
+*The Fine Art of Self Destruction**The Rising*
+
+Bruce was right: there’s not a single song on Jesse’s debut album that’s anything less than great, but if I had to vote for a standout track, it would have to be “Wendy.”
+
+[https://www.youtube.com/embed/eTt7unUzRm0?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/eTt7unUzRm0?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+
+A perfect blend of punk and power pop, “Wendy” immediately became one of my all-time favorite rockers (by anyone) when I first heard Jesse perform it on a bootleg from Bruce’s 2003 holiday shows. How could you fall in love with a girl with “country lips and Bacall style,” who “likes Tom Waits, the poet’s hat, sixties Kinks, and Kerouac?”
+
+*not*
+
+I’ve been a Jesse Malin fan ever since.
+
+Oh, and that holiday show performance–that’s a must watch. It’s got just as much energy as the studio track (not surprising since the studio version was essentially recorded live), but with bonus Bruce backing vocals. Can’t beat that.
+
+[https://www.youtube.com/embed/izaexqdC29c?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/izaexqdC29c?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+
+Wendy’s become a reliable crowd-pleaser since her debut, so if you’re fortunate enough to catch Jesse in concert post-pandemic, you’ll get a chance to meet her yourself.
+
+December 5, 2003 (Asbury Park, NJ)
+ December 8 ,2003 (Asbury Park, NJ)
+
+**Wendy
+First performed:**  
+
+**Last performed:**
+
+© September 5, 2020
+
+ 

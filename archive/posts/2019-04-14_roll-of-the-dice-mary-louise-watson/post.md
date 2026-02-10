@@ -1,0 +1,44 @@
+---
+meta-author: Ken Rosen
+meta-description: What can we say about this early, bluesy Steel Mill original other than that it showcases a young Bruce Springsteen developing his stage presence and patter? Um… let’s just go with that.
+
+meta-viewport: width=device-width, initial-scale=1.0
+title: "Roll of the Dice: Mary Louise Watson"
+---
+
+When I started this blog, I promised to make my way through Bruce’s entire catalog–released and unreleased–and give each song due consideration and analysis.
+
+But I’m sorry: I simply cannot make it through a single listen of “Mary Louise Watson” — a bluesy unreleased Springsteen original from his Steel Mill days — without recalling this classic (and probably NSFW, so be forewarned) scene from 
+
+*Weird Science:*
+
+[https://www.youtube.com/embed/g9GBuciv20A?start=76&amp;feature=oembed](https://www.youtube.com/embed/g9GBuciv20A?start=76&amp;feature=oembed)
+
+I mean, come on. Listen to Bruce’s early 1971 performance below, and especially when you get to the spoken-word mid-song break, tell me you aren’t picturing Anthony Michael Hall with Bruce’s voice.
+
+[https://www.youtube.com/embed/7X_SqN0fmTQ?feature=oembed](https://www.youtube.com/embed/7X_SqN0fmTQ?feature=oembed)
+
+Often when I listen to one of Bruce’s 1971 recordings, I have to remind myself that he was only 21 years old at the time. Other times–like this one–it’s painfully obvious.
+
+So I’m gonna forgo the lyrical analysis this time. I’m pretty sure the song speaks for itself.
+
+To his credit, by the end of that same year, Bruce had dramatically reworked the song into more of a straightforward rocker, and he’d pared back and streamlined the lyrics, removing all references to “Heavy” Louise and comparing her instead to a black widow spider (this version is sometimes referred to by that title, in fact).
+
+The sound quality isn’t great, but here’s the only other known instance of “Mary Louise Watson/Black Widow Spider” from mid-December 1971, this time performed by The Bruce Springsteen Band.
+
+[https://www.youtube.com/embed/SwkzkLI5Cek?feature=oembed](https://www.youtube.com/embed/SwkzkLI5Cek?feature=oembed)
+
+While the earlier version might play to ears today as a novelty song, from a historical perspective it offers us insight into a very young Bruce still developing his stage presence and patter.
+
+January 18, 1971 (South Amboy, NJ)
+ December 17, 1971 (New Brunswick, NJ)
+
+**Mary Louise Watson
+Never recorded/released**  
+
+**First performed:**  
+**Last performed:**
+
+Looking for your favorite Bruce song? Check our . New entries every week!
+
+[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
