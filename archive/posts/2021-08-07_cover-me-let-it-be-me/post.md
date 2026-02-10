@@ -44,6 +44,6 @@ Just a few short weeks later in Atlanta, Bruce took another crack at "Let It Be 
 
 Each of those three performances featured different arrangements, which suggest that Bruce never quite hit on an approach he was satisfied with. That might explain why "Let It Be Me" never made it to the official concert stage, but at least we have these glimpses of what might have been.
 
-**Let It Be Me
-First sound checked:** March 4, 1988 (Chapel Hill, NC)
+**Let It Be Me**
+**First sound checked:** March 4, 1988 (Chapel Hill, NC)
 **Last sound checked:** May 8, 1988 (Tacoma, WA)

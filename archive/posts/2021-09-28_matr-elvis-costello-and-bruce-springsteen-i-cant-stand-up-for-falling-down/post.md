@@ -25,5 +25,5 @@ At the outset, it seemed like Elvis and Bruce were going to honor the original a
 Bruce and Elvis channeled their best Sam and Dave vocals (although it sure seemed to me like Bruce did the Dave part, not the Sam part he called dibs on), and the results were magic. That sure sounded like a Stax performance to me.
 
 **I Can't Stand Up For Falling Down
-First performed:** September 25, 2009 (New York City, NY)
+**First performed:** September 25, 2009 (New York City, NY)
 **Last performed:** September 25, 2009 (New York City, NY)

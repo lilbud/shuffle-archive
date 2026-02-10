@@ -51,8 +51,8 @@ Musically, "Vibes Man" can't hold a candle to "New York City Serenade." The latt
 
 But lyrically, it reflects Bruce's rapidly developing songwriting skill and provides keen insight into his not-too-distant future classic.
 
-**Vibes Man
-Recorded:** February 1973 (demo)
+**Vibes Man**
+**Recorded:** February 1973 (demo)
 **Never released**
 **Never performed**
 

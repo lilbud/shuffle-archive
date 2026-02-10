@@ -4,19 +4,29 @@
 #### Last Updated: March 02, 2020
 ![hunghead.jpg](https://estreetshuffle.com/wp-content/uploads/2020/03/hunghead.jpg)
 
-In the right arrangement and in another time, Sting’s 1996 song about a young man who accidentally kills a man while practicing with his brother’s rifle would have been right at home on Bruce Springsteen’s *Nebraska* album.
+In the right arrangement and in another time, Sting’s 1996 song about a young man who accidentally kills a man while practicing with his brother’s rifle would have been right at home on Bruce Springsteen’s *Nebraska* album.
+
 [Youtube: I Hung My Head](https://www.youtube.com/watch?v=WnwmOfmZbb0)
-![](https://www.youtube.com/watch?v=WnwmOfmZbb0)
-So when Bruce agreed to perform at a benefit concert and Sting tribute in 2011, “I Hung My Head” was a natural choice for Bruce to cover. But the arrangement Bruce chose was neither Nebraska acoustic or compound-time original.
-Instead, Bruce worked up a rocking arrangement (complete with a couple of blistering guitar solos) that brought the house down.
+![](https://www.youtube.com/watch?v=WnwmOfmZbb0)
+
+So when Bruce agreed to perform at a benefit concert and Sting tribute in 2011, “I Hung My Head” was a natural choice for Bruce to cover. But the arrangement Bruce chose was neither Nebraska acoustic or compound-time original.
+
+Instead, Bruce worked up a rocking arrangement (complete with a couple of blistering guitar solos) that brought the house down.
+
 [Youtube: I hung my head - bruce springsteen ( pro  shot)](https://www.youtube.com/watch?v=OoXSAYnFOCY)
-![](https://www.youtube.com/watch?v=OoXSAYnFOCY)
-Bruce turned in a fantastic performance that night, too great for it to remain a one-off.
-Three years later, when Sting was one of the Kennedy Center honorees, Bruce repaid his friend’s favor (Sting had saluted Bruce with [his cover of “The Rising”](http://estreetshuffle.com/index.php/2018/10/26/cover-me-sting-the-rising/) just two years earlier) with a reprise of his 2011 performance.
+![](https://www.youtube.com/watch?v=OoXSAYnFOCY)
+
+Bruce turned in a fantastic performance that night, too great for it to remain a one-off.
+**I Hung My Head**
+Three years later, when Sting was one of the Kennedy Center honorees, Bruce repaid his friend’s favor (Sting had saluted Bruce with [his cover of “The Rising”](http://estreetshuffle.com/index.php/2018/10/26/cover-me-sting-the-rising/) just two years earlier) with a reprise of his 2011 performance.
+
 [Youtube: Bruce Springsteen - I Hung My Head (Sting Tribute) - 2014 Kennedy Center Honors](https://www.youtube.com/watch?v=Fh7VLaCAmPQ)
-![](https://www.youtube.com/watch?v=Fh7VLaCAmPQ)
-And if Bruce’s second performance doesn’t quite measure up to his original one, the choir that joins him for the final chorus at least makes for a powerful ending.
-“I Hung My Head” is one of Bruce’s finer modern-day covers, one that deserves an outing more often.
+![](https://www.youtube.com/watch?v=Fh7VLaCAmPQ)
+
+And if Bruce’s second performance doesn’t quite measure up to his original one, the choir that joins him for the final chorus at least makes for a powerful ending.
+
+“I Hung My Head” is one of Bruce’s finer modern-day covers, one that deserves an outing more often.
+
 **I Hung My Head
-First performed:** October 1, 2011 (New York City, NY)
+**First performed:** October 1, 2011 (New York City, NY)
 **Last performed:** December 7, 2014 (Washington, DC)

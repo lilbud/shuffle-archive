@@ -77,7 +77,7 @@ Bruce even performed it at a mini-reunion of the Sessions Band in 2015. (In actu
 "O Mary Don't You Weep" continued to be reinterpreted, re-arranged, recorded and released long after the Seeger Sessions Tour ended. Bruce was just one link in a long chain of artists who continue to keep an important American folk song alive and vibrant for generations to come.
 
 **O Mary Don't You Weep
-Recorded:** March 19, 2005
+**Recorded:** March 19, 2005
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)
 **First performed:** April 20, 2006 (Asbury Park, NJ)
 **Last performed:** May 16, 2015 (New York City, NY)

@@ -28,6 +28,6 @@ On October 17, 2005, at the Wachovia Center in Philadelphia, Bruce nonchalantly 
 
 [Watch Video Highlight](https://videopress.com/embed/Ds6Exsh4)
 
-**People Get Ready
-First performed:** January 16, 1991 (New York City, NY)
+**People Get Ready**
+**First performed:** January 16, 1991 (New York City, NY)
 **Last performed:** October 17, 2005 (Philadelphia, PA)

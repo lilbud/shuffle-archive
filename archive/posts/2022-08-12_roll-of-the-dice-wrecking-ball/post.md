@@ -121,8 +121,8 @@ Squeeze every last drop out of the time you've been given, and find every joy be
 
 The way my dad did, in the last and best lesson he ever taught me.
 
-**Wrecking Ball
-Recorded:** 2011
+**Wrecking Ball**
+**Recorded:** 2011
 **Released:** [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)(2011)
 **First performed:** September 30, 2009 (East Rutherford, NJ)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)

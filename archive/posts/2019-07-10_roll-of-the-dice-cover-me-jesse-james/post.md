@@ -44,8 +44,8 @@ Liszt's solo quickly became a fan favorite moment, and by the end of the tour in
 
 Bruce clearly enjoys playing "Jesse James" and since he's found an arrangement that's friendly to both his bands, I think we're likely to see it in concert again soon.
 
-**Jesse James
-Recorded:** November 2, 1997
+**Jesse James**
+**Recorded:** November 2, 1997
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)
 **First performed:** April 20, 2006 (Asbury Park, NJ)
 **Last performed:** May 16, 2015 (Asbury Park, NJ)

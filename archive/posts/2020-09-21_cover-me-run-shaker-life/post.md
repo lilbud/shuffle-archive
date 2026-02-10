@@ -17,5 +17,5 @@ The religious theme of "Run, Shaker Life" also gave Bruce an early chance to hon
 "Run, Shaker Life" is the only Havens song Bruce has covered, but almost a quarter-century after Steel Mill's last performance of it, Havens returned the compliment by [covering one of Bruce's finest songs](https://estreetshuffle.com/index.php/2018/08/04/cover-me-richie-havens-streets-of-philadelphia/).
 
 **Run, Shaker Life
-First performed:** November 20, 1969 (Richmond, VA)
+**First performed:** November 20, 1969 (Richmond, VA)
 **Last performed:** January 22, 1971 (Asbury Park, NJ)

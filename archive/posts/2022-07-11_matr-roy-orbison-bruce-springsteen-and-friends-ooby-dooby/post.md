@@ -36,6 +36,6 @@ Like all of the assembled talent, Bruce was happy to linger in the background fo
 
 Bruce had never played "Ooby Dooby" before, and he hasn't played it since. But when your one and only performance is as the sideman for one of rock's all-time legends, once is all you need.
 
-**Ooby Dooby
-First performed:** September 30, 1987 (Los Angeles, CA)
+**Ooby Dooby**
+**First performed:** September 30, 1987 (Los Angeles, CA)
 **Last performed:** September 30, 1987 (Los Angeles, CA)

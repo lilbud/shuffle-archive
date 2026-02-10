@@ -53,7 +53,7 @@ And if the payoff is predictable, at least it comes off more sweet than sly. Cha
 
 Never recorded and rarely performed, "Sister Theresa" is too atypical of Bruce's contemporary writing to ignore but not significant enough to merit memorializing. If notable for anything, it serves as a signpost toward softer, more contemplative songs like "[Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)" and "[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)" that lie ahead a couple of years down the road.
 
-**Sister Theresa
+**Sister Theresa**
 Never recorded**
 **Never released**
 **First performed:** September 20, 1969 (Richmond, VA)

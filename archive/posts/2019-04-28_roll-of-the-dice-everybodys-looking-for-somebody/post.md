@@ -13,7 +13,7 @@ So please give it a shot, and then you tell me. Take a listen below, and leave a
 [Watch Video Highlight](https://videopress.com/embed/cFNkYdxa)
 
 **Everybody's Looking for ???
-Recorded:** September-December 1979
+**Recorded:** September-December 1979
 **Never released**
 **Never performed**
 

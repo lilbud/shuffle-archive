@@ -6,6 +6,6 @@ Bruce dropped by Alejandro Escovedo's gig at the Stone Pony on July 23, 2010 and
 
 [Watch on Youtube: Beast Of Burden by The Rolling Stones](https://www.youtube.com/watch?v=-tRdBsnX4N4)
 
-**Beast of Burden
-First performed:** July 23, 2010 (Asbury Park, NJ)
+**Beast of Burden**
+**First performed:** July 23, 2010 (Asbury Park, NJ)
 **Last performed:** March 14, 2012 (Austin, TX)

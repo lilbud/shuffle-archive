@@ -40,6 +40,6 @@ Here's that one-time-only performance below. The arrangement is faithful; the re
 
 [Watch on Youtube: THE NIGHT THEY DROVE OLD DIXIE DOWN ( the Band cover )](https://www.youtube.com/watch?v=hS5ByhvHqts)
 
-**The Night They Drove Old Dixie Down
-First performed:** September 1, 1971 (Long Branch, NJ)
+**The Night They Drove Old Dixie Down**
+**First performed:** September 1, 1971 (Long Branch, NJ)
 **Last performed:** September 1, 1971 (Long Branch, NJ)

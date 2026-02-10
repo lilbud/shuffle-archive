@@ -8,7 +8,7 @@ Although technically billed as The Disciples of Soul, that's not actually the ba
 
 Bruce has made and continues to make frequent appearances at Little Steven's shows, but unlike "[Until the Good is Gone](https://estreetshuffle.com/index.php/2018/11/17/meeting-across-the-river-little-steven-and-bruce-springsteen-until-the-good-is-gone/)" (one of Bruce's two other vocal contributions to his best friend's debut album and an occasional on-stage team-up), and despite its reliable inclusion in Little Steven's setlists, "Angel Eyes" remains untouched by Bruce in concert.
 
-**Angel Eyes
-Recorded:** November 1981
+**Angel Eyes**
+**Recorded:** November 1981
 **Released:** *Men Without Women* (1982)
 **Never performed**

@@ -146,8 +146,8 @@ As the genesis for *Letter to You*, "Last Man Standing" seems like a pretty good
 
 [Watch on Youtube: Bruce Springsteen - Last Man Standing - St. Paul, MN - 3/5/2023](https://www.youtube.com/watch?v=loLoscZVRzI)
 
-**Last Man Standing
-Recorded:** November 18-22, 2019
+**Last Man Standing**
+**Recorded:** November 18-22, 2019
 **Released:** *Letter to You* (2020)
 **First performed:** October 27, 2020 (Colts Neck, NJ)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)

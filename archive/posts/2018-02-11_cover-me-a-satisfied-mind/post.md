@@ -8,6 +8,6 @@ But here's the original #1 hit version from 1955, by Porter Wagoner:
 
 [Watch on Youtube: A Satisfied Mind , Porter Wagoner](https://www.youtube.com/watch?v=NgdDJU9TOhY)
 
-**Satisfied Mind
-First performed:** March 23, 1988 (Atlanta, GA – soundcheck only)
+**Satisfied Mind**
+**First performed:** March 23, 1988 (Atlanta, GA – soundcheck only)
 **Last performed:** March 23, 1988 (Atlanta, GA – soundcheck only)

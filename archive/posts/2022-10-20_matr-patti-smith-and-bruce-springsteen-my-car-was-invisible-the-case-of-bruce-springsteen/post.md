@@ -13,5 +13,5 @@ As Patti's vocals grew in power (and distortion, unfortunately), Bruce's piano a
 It wouldn't be the last time Bruce and Patti would team up on stage (in fact, Bruce would be back just hours later for a second show that night), but never again would they be quite so loose. For a performer known for his seat-of-his-pants setlists, it's fun to hear a young Bruce Springsteen do his best to keep up with one of the few rock icons who can out-improvise him.
 
 **My Car Was Invisible (The Case of Bruce Springsteen)
-First performed:** November 26, 1976 (New York City, NY)
+**First performed:** November 26, 1976 (New York City, NY)
 **Last performed:** November 26, 1976 (New York City, NY)

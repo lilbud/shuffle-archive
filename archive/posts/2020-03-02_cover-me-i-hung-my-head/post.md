@@ -18,6 +18,6 @@ And if Bruce's second performance doesn't quite measure up to his original one, 
 
 "I Hung My Head" is one of Bruce's finer modern-day covers, one that deserves an outing more often.
 
-**I Hung My Head
-First performed:** October 1, 2011 (New York City, NY)
+**I Hung My Head**
+**First performed:** October 1, 2011 (New York City, NY)
 **Last performed:** December 7, 2014 (Washington, DC)

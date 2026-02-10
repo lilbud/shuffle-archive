@@ -12,8 +12,8 @@ He did not disappoint. Here's Bruce and Alejandro playing their one and only per
 
 [Watch on Youtube: Alejandro Escovedo and Bruce Springsteen](https://www.youtube.com/watch?v=gpxr8gVpnpg)
 
-**Faith
-Recorded:** 2010
+**Faith**
+**Recorded:** 2010
 **Released:** *Street Songs of Love* (2010)
 **First performed:** July 23, 2010 (Asbury Park, NJ)
 **Last performed:** July 23, 2010 (Asbury Park, NJ)

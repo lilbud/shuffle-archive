@@ -107,7 +107,7 @@ My wish for you: that you someday, somehow have the opportunity to see this rema
 
 And that we all find our little rock and roll bar, where we can dance ever after with the ones we love.
 
-**The Wish
-Recorded:** February 22, 1987**Released:** *Tracks* (1998)**First performed:** November 17, 1990 (Los Angeles, CA)**Last performed:** September 4, 2021 (New York City, NY)
+**The Wish**
+**Recorded:** February 22, 1987**Released:** *Tracks* (1998)**First performed:** November 17, 1990 (Los Angeles, CA)**Last performed:** September 4, 2021 (New York City, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

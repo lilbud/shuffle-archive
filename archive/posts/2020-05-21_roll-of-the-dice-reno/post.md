@@ -106,8 +106,8 @@ It's very different from Bruce's nightly performance on tour, and the only live 
 
 [Watch on Youtube: Bruce Springsteen - Reno ("Devils & Dust" Acoustic Performances)](https://www.youtube.com/watch?v=mfJ0_WREIEg)
 
-**Reno
-Recorded:** 1997-2004
+**Reno**
+**Recorded:** 1997-2004
 **Released:** *Devils & Dust* (2005)
 **First performed:** April 22, 2005 (Asbury Park, NJ)
 **Last performed:** November 22, 2005 (Trenton, NJ)

@@ -12,6 +12,6 @@ While the recording is more than a bit distant, it's clear enough for us to make
 
 That original–a one-off collaboration between Carole King and Howard Greenfield–peaked at #6 on the Billboard Hot 100 upon its release in 1962.
 
-**Crying in the Rain
-First performed:** May 6, 1988 (Tacoma, WA – soundcheck only)
+**Crying in the Rain**
+**First performed:** May 6, 1988 (Tacoma, WA – soundcheck only)
 **Last performed:** May 6, 1988 (Tacoma, WA – soundcheck only)

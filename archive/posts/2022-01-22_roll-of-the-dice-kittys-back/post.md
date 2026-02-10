@@ -100,7 +100,7 @@ The song they came to play that night was the song that truly showcases the amaz
 [Watch on Youtube: Bruce Springsteen- Kitty's back- Late night with Conan O'Brien-12/12/2002](https://www.youtube.com/watch?v=ZS93U0TJd-c)
 
 **Kitty's Back
-Recorded:** June 28, 1973 – September 23, 1973
+**Recorded:** June 28, 1973 – September 23, 1973
 **Released:** *The Wild, The Innocent & The E Street Shuffle* (1973)
 **First performed:** July 20, 1973 (New York City, NY)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)

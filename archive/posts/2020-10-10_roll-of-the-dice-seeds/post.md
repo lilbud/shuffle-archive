@@ -109,8 +109,8 @@ That arrangement has stuck ever since. "Seeds" has continued to make appearances
 
 Given the state of the economy, however, and its likely prolonged recovery, I suspect "Seeds" may once again become a set list staple when Bruce tours once again.
 
-**Seeds
-Recorded:** May 25, 1983
+**Seeds**
+**Recorded:** May 25, 1983
 **Never released** (Live version released on *Live 1975-85*)
 **First performed:** July 3, 1985 (London, England)
 **Last performed:** June 5, 2016 (London, England)

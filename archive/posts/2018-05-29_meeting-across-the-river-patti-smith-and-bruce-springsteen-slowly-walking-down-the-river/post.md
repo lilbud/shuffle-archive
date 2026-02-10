@@ -4,6 +4,6 @@ Patti performed two shows that night, and Bruce made was on stage for much of bo
 
 [Watch on Youtube: Patti Smith and Bruce Springsteen, "Slowly Walking Down the River" - 11/26/1976](https://www.youtube.com/watch?v=EKCxYQ-Ssvw)
 
-**Slowly Walking Down the River
-First performed:** November 26, 1976 (New York City, NY)
+**Slowly Walking Down the River**
+**First performed:** November 26, 1976 (New York City, NY)
 **Last performed:** November 26, 1976 (New York City, NY)

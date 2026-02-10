@@ -77,8 +77,8 @@ So why did Bruce change his mind forty years later and spotlight Jake instead of
 
 Regardless, "TV Movie" needs at least one more outing to set things right. Let's hope we get it soon.
 
-**TV Movie
-Recorded:** June 13, 1983
+**TV Movie**
+**Recorded:** June 13, 1983
 **Released:** *Tracks* (1998)
 **First performed:** July 23, 2013 (Cardiff, Wales)
 **Last performed:** July 23, 2013 (Cardiff, Wales)

@@ -28,8 +28,8 @@ The band's performance was perfect, and Nils' solo deserves to be remembered as 
 
 Bruce played "Purple Rain" twice more, once the following night and again a few weeks later in Barcelona, but while all three performances were wonderful, nothing could match the combination of power, surprise, and raw emotion in that debut.
 
-**Purple Rain
-First performed:** April 23, 2016* (Brooklyn, NY)
+**Purple Rain**
+**First performed:** April 23, 2016* (Brooklyn, NY)
 **Last performed:** May 14, 2016 (Barcelona, Spain)
 
 *Brucebase cites one earlier performance of "Purple Rain," a team-up with Prince and Madonna in 1985. However, I've listened to that recording, and I do not believe Bruce was on stage for it. There's some confusion due to Prince seemingly calling out "Bruce!" during "America" that immediately preceded "Purple Rain," but it was actually Prince just shouting "Peace!" (which is how "America" opens). Bruce had left the stage by that time, only joining Prince and Madonna for "[Baby, I'm a Star](https://estreetshuffle.com/index.php/2020/08/07/matr-prince-bruce-springsteen-and-madonna-baby-im-a-star/)."

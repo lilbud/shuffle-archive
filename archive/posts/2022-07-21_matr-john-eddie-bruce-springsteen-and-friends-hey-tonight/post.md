@@ -18,6 +18,6 @@ It's a hard-driving performance with traded vocals (we can clearly hear Bruce at
 
 If we're lucky, maybe a recording from one of those shows will surface one day.
 
-**Hey Tonight
-First performed:** October 21, 1994 (Sayreville, NJ)
+**Hey Tonight**
+**First performed:** October 21, 1994 (Sayreville, NJ)
 **Last performed:** April 25, 2004 (Asbury Park, NJ)

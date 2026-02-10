@@ -85,8 +85,8 @@ The first is an electric piano performance from 2005:
 
 But it holds the distinction of kickstarting a new era in Bruce's career and captures the artist at a point were he's only beginning to reconcile his internal emotional struggle, betting on himself and his partner, and allowing himself to love and be loved. For that, "Roll of the Dice" hold a special place in Bruce's catalog.
 
-**Roll of the Dice
-Recorded:** December 1989
+**Roll of the Dice**
+**Recorded:** December 1989
 **Released:** *Human Touch* (1992)
 **First performed:** May 6, 1992 (New York City, NY)
 **Last performed:** February 16, 2017 (Brisbane, Australia)

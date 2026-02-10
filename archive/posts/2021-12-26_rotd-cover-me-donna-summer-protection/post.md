@@ -72,8 +72,8 @@ As for Bruce's own version, it remains complete but unreleased in his vault. To 
 
 Despite Summer's inclusion of it on her own album, "Protection" was at one point a contender for *Born in the U.S.A.* as well, with Landau in particular lobbying for its inclusion. If the long-rumored *Born in the U.S.A.* anniversary box set ever sees the light of day, there's a good chance we may finally see an official release of Bruce's version of "Protection."
 
-**Protection
-Recorded:** February 23, 1982 (E Street Band version); March 1982 (Donna Summer version)
+**Protection**
+**Recorded:** February 23, 1982 (E Street Band version); March 1982 (Donna Summer version)
 **Released:** *Donna Summer* (1982)
 **Never performed**
 

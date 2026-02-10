@@ -20,6 +20,6 @@ Almost a decade later, Bruce opened another Denver show with "Get Out of Denver"
 
 "Get Out of Denver" makes for a great opener, and with its "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)"-ish riff and chorus, it would make for a great encore, too. Let's hope Bruce brings this one out more often.
 
-**Get Out of Denver
-First performed:** April 13, 2002 (Asbury Park, NJ)
+**Get Out of Denver**
+**First performed:** April 13, 2002 (Asbury Park, NJ)
 **Last performed:** November 19, 2012 (Denver, CO)

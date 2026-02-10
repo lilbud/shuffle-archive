@@ -73,8 +73,8 @@ In the clip below, only days after Danny's passing, you can see and hear the int
 
 [Watch on Youtube: Bruce Springsteen - Gypsy Biker (All) - C'Ville-5/5/09](https://www.youtube.com/watch?v=tAQVj9s-oew)
 
-**Gypsy Biker
-Recorded:** March-May 2007
+**Gypsy Biker**
+**Recorded:** March-May 2007
 **Released:** *Magic* (2007)
 **First performed:** September 27, 2007 (Asbury Park, NJ)
 **Last performed:** May 5, 2009 (Charlottesville, VA)

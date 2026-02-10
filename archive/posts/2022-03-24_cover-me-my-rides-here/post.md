@@ -19,5 +19,5 @@ Bruce's version of "My Ride's Here" is slower than Zevon's, almost elegiac. We c
 It was a beautiful moment, and a spellbinding performance–so much so that it was officially released on *Enjoy Every Sandwich*, a tribute album released the following year.
 
 **My Ride's Here
-First performed:** September 10, 2003 (Toronto, ON)
+**First performed:** September 10, 2003 (Toronto, ON)
 **Last performed:** September 10, 2003 (Toronto, ON)

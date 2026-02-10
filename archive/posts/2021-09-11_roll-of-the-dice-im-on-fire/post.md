@@ -101,7 +101,7 @@ But in a nice bit of circle closure, shortly before his death Johnny Cash record
 [Watch on Youtube: I'm On Fire By Johnny Cash - Music Video](https://www.youtube.com/watch?v=VN9RKaL1wD4)
 
 **I'm on Fire
-Recorded:** May 11, 1982
+**Recorded:** May 11, 1982
 **Released:** *Born in the U.S.A.* (1984)
 **First performed:** June 29, 1984 (Saint Paul, MN)
 **Last performed:** July 2, 2023 (Oslo, Norway)

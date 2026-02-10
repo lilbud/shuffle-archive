@@ -11,5 +11,5 @@ For the second performance in Richmond, Bruce brought two friends on stage to he
 [Watch on Youtube: Hank Ballard - Let's Go, Let's Go, Let's Go](https://www.youtube.com/watch?v=TYfnC4CgN-Y)
 
 **Let's Go, Let's Go, Let's Go
-First performed:** March 4, 2003 (Jacksonville, FL)
+**First performed:** March 4, 2003 (Jacksonville, FL)
 **Last performed:** March 6, 2003 (Richmond, VA)

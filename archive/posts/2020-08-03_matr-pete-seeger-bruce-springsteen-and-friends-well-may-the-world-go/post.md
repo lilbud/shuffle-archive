@@ -16,6 +16,6 @@ Pete spent his life doing his best to ensure that well the world may go, and he'
 
 Pete passed from this earth in early 2014, but his music and his benediction live on.
 
-**Well May the World Go
-First performed:** May 3, 2009 (New York City, NY)
+**Well May the World Go**
+**First performed:** May 3, 2009 (New York City, NY)
 **Last performed:** May 3, 2009 (New York City , NY)

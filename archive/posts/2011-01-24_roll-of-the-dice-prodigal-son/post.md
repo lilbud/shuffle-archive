@@ -105,8 +105,8 @@ Those lines are stunningly artful and powerful: if there's a more poetic way to 
 
 Bruce recorded a demo of "Prodigal Son" (you listened to it above), but it never made it to either an album or the stage. But it remains an important signpost in Bruce's development as an artist, and another source of insight into an under-chronicled period in his life.
 
-**Prodigal Son
-Recorded:** April 1972
+**Prodigal Son**
+**Recorded:** April 1972
 **Never released**
 **Never performed**
 

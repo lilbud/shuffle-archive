@@ -33,5 +33,5 @@ And that's exactly what we can hear him doing in this recording of his one and o
 Yeah, I know that's not the clearest of recordings, but it's the only one we've got. Maybe someday a better version of those special shows will surface, but for the moment, this is our only glimpse at Bruce Springsteen covering one of rock's earliest risque classics.
 
 **It Ain't the Meat (It's the Motion)
-First performed:** May 12, 1977 (Red Bank, NJ)
+**First performed:** May 12, 1977 (Red Bank, NJ)
 **Last performed:** May 12, 1977 (Red Bank, NJ)

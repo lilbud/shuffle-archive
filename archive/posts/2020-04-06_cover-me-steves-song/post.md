@@ -17,5 +17,5 @@ On lead vocals you'll hear Castiles co-founder George Theiss, but on guitar you'
 That one recording from over a half-century ago remains the only time Bruce is known to have played Katz's signature song.
 
 **Steve's Song
-First performed:** September 16, 1967 (Freehold, NJ)
+**First performed:** September 16, 1967 (Freehold, NJ)
 **Last performed:** September 16, 1967 (Freehold, NJ)

@@ -18,6 +18,6 @@ It was this version of the song that Bruce Springsteen and the E Street Band cov
 
 This one would have been great to hear on the Sessions Tour back in 2006. If we're lucky enough to get an encore someday, let's hope for an official concert performance.
 
-**He Was a Friend of Mine
-First performed:** March 4, 1988 (Chapel Hill, NC) (soundcheck only)
+**He Was a Friend of Mine**
+**First performed:** March 4, 1988 (Chapel Hill, NC) (soundcheck only)
 **Last performed:** March 4, 1988 (Chapel Hill, NC) (soundcheck only)

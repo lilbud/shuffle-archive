@@ -33,7 +33,7 @@ He did play it a half-dozen times in 2006, though, and one of those (in Santande
 [Watch on Youtube: Froggie Went A-Courtin'](https://www.youtube.com/watch?v=Q2SEQyn7-FU)
 
 **Froggie Went A-Courtin'
-Recorded:** March 19, 2005
+**Recorded:** March 19, 2005
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)
 **First performed:** May 31, 2006 (Noblesville, IN)
 **Last performed:** November 14, 2006 (Sheffield, England)

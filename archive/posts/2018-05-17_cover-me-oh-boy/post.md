@@ -10,6 +10,6 @@ You're probably familiar with Buddy Holly's version already–so here's the Sonn
 
 [Watch on Youtube: All My Love aka Oh Boy - Sonny West (on intro) 1957 Atlantic (ORIGINAL VERSIONS)](https://www.youtube.com/watch?v=TlcjdSJwI5k)
 
-**Oh Boy
-First performed:** July 29, 1978 (St. Petersburg, FL)
+**Oh Boy**
+**First performed:** July 29, 1978 (St. Petersburg, FL)
 **Last performed:** March 17, 1996 (Dublin, Ireland)

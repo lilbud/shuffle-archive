@@ -23,5 +23,5 @@ The Vote For Change shows were powerful and energizing, but ultimately ineffecti
 It would take another four years before Americans would truly vote for change, and while Bruce and John would team up several more times over the decade that followed, they'd never play "Deja Vu (All Over Again)" again.
 
 **Deja Vu (All Over Again)
-First performed:** October 1, 2004 (Philadelphia, PA)
+**First performed:** October 1, 2004 (Philadelphia, PA)
 **Last performed:** October 13, 2004 (East Rutherford, NJ)

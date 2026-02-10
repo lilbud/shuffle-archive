@@ -4,62 +4,94 @@
 #### Last Updated: January 23, 2021
 ![lightsout.jpg](https://estreetshuffle.com/wp-content/uploads/2021/01/lightsout.jpg)
 
-In November 1990, Bruce Springsteen held his first publicly advertised concert in over two years. It would be another year and a half before he would play his next one.
-With the E Street Band on extended hiatus and his most recent album now three years in the rear view mirror, Bruce’s name was most frequently invoked at the end of “Whatever happened to…?”
-But on the nights of November 16th and 17th in 1990, a pair of benefit shows for The Christic Institute brought the semi-reclusive Springsteen back to the stage to support the famed public interest law firm.
-The Christic Institute was founded in 1980. Technically a law firm, the institute employed litigation along with education and public organizing as a lever for social reform, representing the victims of the Three Mile Island nuclear disaster, the Greensboro Massacre, and more.
-Over time, the Christic Institute began shining a light into the shadowy actions of the federal government. In 1989 a judge dismissed one of their cases involving the Iran-Contra affair as a frivolous lawsuit and levied penalties upon them so high that they were unable to pay. Jackson Browne, Bonnie Raitt, and Bruce Springsteen took to the stage to raise money and attention for the beleaguered crusading organization.
+In November 1990, Bruce Springsteen held his first publicly advertised concert in over two years. It would be another year and a half before he would play his next one.
+
+With the E Street Band on extended hiatus and his most recent album now three years in the rear view mirror, Bruce’s name was most frequently invoked at the end of “Whatever happened to…?”
+
+But on the nights of November 16th and 17th in 1990, a pair of benefit shows for The Christic Institute brought the semi-reclusive Springsteen back to the stage to support the famed public interest law firm.
+
+The Christic Institute was founded in 1980. Technically a law firm, the institute employed litigation along with education and public organizing as a lever for social reform, representing the victims of the Three Mile Island nuclear disaster, the Greensboro Massacre, and more.
+
+Over time, the Christic Institute began shining a light into the shadowy actions of the federal government. In 1989 a judge dismissed one of their cases involving the Iran-Contra affair as a frivolous lawsuit and levied penalties upon them so high that they were unable to pay. Jackson Browne, Bonnie Raitt, and Bruce Springsteen took to the stage to raise money and attention for the beleaguered crusading organization.
+
 [Youtube: Christic Institute Benefit News Coverage](https://www.youtube.com/watch?v=-Jx5pvfxSlE)
-![](https://www.youtube.com/watch?v=-Jx5pvfxSlE)
-Bruce’s set was remarkable for more than its at-the-time rarity. Advertised and delivered as an acoustic solo show, it was Bruce’s first such show since the formation of the E Street Band. (The Bridge School benefit show was acoustic but included Nils and Danny as accompaniment.)
-It was also Bruce’s first chance to play the new music he’d been working on. In all, Bruce would premiere five brand-new songs over the course of the two evenings, and one of those five songs sounded tailor-written for the occasion.
-Bruce dedicated that new song to “the people of the Christic Institute, who watch what’s going on when the lights go out.”
+![](https://www.youtube.com/watch?v=-Jx5pvfxSlE)
+
+Bruce’s set was remarkable for more than its at-the-time rarity. Advertised and delivered as an acoustic solo show, it was Bruce’s first such show since the formation of the E Street Band. (The Bridge School benefit show was acoustic but included Nils and Danny as accompaniment.)
+
+It was also Bruce’s first chance to play the new music he’d been working on. In all, Bruce would premiere five brand-new songs over the course of the two evenings, and one of those five songs sounded tailor-written for the occasion.
+
+Bruce dedicated that new song to “the people of the Christic Institute, who watch what’s going on when the lights go out.”
+
 [Youtube: When The Lights Go Out - (16-11-1990 Shrine Auditorium, Los Angeles, California)](https://www.youtube.com/watch?v=bJ6Dgpht4Eg)
-![](https://www.youtube.com/watch?v=bJ6Dgpht4Eg)
-Without the benefit of context, fans might have chalked up “When the Lights Go Out” as a *Tunnel of Love* outtake for its relationship song veneer. But given the occasion and with the benefit of a careful listen, “When the Lights Go Out” reveals itself as sharp political commentary cloaked in a song about intimate betrayal.
-Not even three weeks after its debut performance, Bruce recorded “When the Lights Go Out” on December 6th at The Record Plant in Los Angeles, in an arrangement almost as lean as the one he played on stage.
+![](https://www.youtube.com/watch?v=bJ6Dgpht4Eg)
+
+Without the benefit of context, fans might have chalked up “When the Lights Go Out” as a *Tunnel of Love* outtake for its relationship song veneer. But given the occasion and with the benefit of a careful listen, “When the Lights Go Out” reveals itself as sharp political commentary cloaked in a song about intimate betrayal.
+
+Not even three weeks after its debut performance, Bruce recorded “When the Lights Go Out” on December 6th at The Record Plant in Los Angeles, in an arrangement almost as lean as the one he played on stage.
+
 [Youtube: When The Lights Go Out (Studio Outtake - 1990)](https://www.youtube.com/watch?v=MmYtkPFqjWE)
-![](https://www.youtube.com/watch?v=MmYtkPFqjWE)
-Accompanied only by Roy Bittan on keys and Jeff Porcaro on drums (both employed sparingly), Bruce propels the song forward with his bass in the vein of “[57 Channels (And Nothin’ On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)” and “[Goin’ Cali](https://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/).” (All three songs were part of a collection that Bruce wrote on the bass; they might have made for an interesting EP had he released them together.)
-The musical effect is ominous and underscores Bruce’s lyrics, which percolate with paranoia. The narrator of “When the Lights Go Out” is the voice of our guilty conscience, that nagging instinct that tugs and tries to tell us something our conscious minds either haven’t realized yet or simply refuse to: we can’t expect fidelity from a partner we’ve been sneaking around on.
+![](https://www.youtube.com/watch?v=MmYtkPFqjWE)
+
+Accompanied only by Roy Bittan on keys and Jeff Porcaro on drums (both employed sparingly), Bruce propels the song forward with his bass in the vein of “[57 Channels (And Nothin’ On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)” and “[Goin’ Cali](https://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/).” (All three songs were part of a collection that Bruce wrote on the bass; they might have made for an interesting EP had he released them together.)
+
+The musical effect is ominous and underscores Bruce’s lyrics, which percolate with paranoia. The narrator of “When the Lights Go Out” is the voice of our guilty conscience, that nagging instinct that tugs and tries to tell us something our conscious minds either haven’t realized yet or simply refuse to: we can’t expect fidelity from a partner we’ve been sneaking around on.
+
 *Now you say you have a best friend, you trust him with your life*
 *You trust him with your money, you trust him with your kids*
 *You’d even trust him with your wife*
 *You better watch what’s goin’ on when the lights are out*
 *When the night is dark, when there ain’t nobody lookin’ around*
-*Yeah when the lights are out, down in this dirty little town*
-The narrator warns us to be wary of our best friend, who in this case represents an allied nation. We profess our support, pledge our solidarity, and stand side-by-side in the light of day. But behind the scenes, hidden away from public scrutiny, our partner nation doesn’t always act with the integrity we expect it to.
-The only way to hold it accountable is to pay attention–not to what happens onstage, but to what happens *backstage.* And getting backstage might require a little stealth.
+*Yeah when the lights are out, down in this dirty little town*
+
+The narrator warns us to be wary of our best friend, who in this case represents an allied nation. We profess our support, pledge our solidarity, and stand side-by-side in the light of day. But behind the scenes, hidden away from public scrutiny, our partner nation doesn’t always act with the integrity we expect it to.
+
+The only way to hold it accountable is to pay attention–not to what happens onstage, but to what happens *backstage.* And getting backstage might require a little stealth.
+
 *Well now the world is dark and funny, better listen up to what I say*
 *You ain’t gonna know what’s going on by what you see in the light of day*
 *You gotta watch what’s goin’ on when the lights are out*
 *When the night is dark, when there ain’t nobody lookin’ around*
-*Yeah when the lights are out in this dirty little town*
-But even that’s not the true warning of “When the Lights Go Out.” In the few weeks between his performance and recording session, Bruce finalized his lyrics with very few changes, and even fewer of substance. The bridge, however, is subtly but substantially altered. Bruce dropped the reference to an off-stage Billy and switched the perspective so that the narrator addresses us instead:
+*Yeah when the lights are out in this dirty little town*
+
+But even that’s not the true warning of “When the Lights Go Out.” In the few weeks between his performance and recording session, Bruce finalized his lyrics with very few changes, and even fewer of substance. The bridge, however, is subtly but substantially altered. Bruce dropped the reference to an off-stage Billy and switched the perspective so that the narrator addresses us instead:
+
 *Now you swear that she trusted you*
-*Within reason I understand*
+**When the Lights Go Out**and*
 *But you kept slippin’ in late at night*
-*And in the mornin’ you had that smell on your hands*
-Hearing the narrator accuse us of betrayal so explicitly and graphically does more than just escalate the song’s stakes. It throws us off-balance as we imagine ourselves guilty of such intimate betrayal, or at least complicit in it.
-It’s the key passage of the song, a restatement of the old adage about the paving of the road to hell, paved not with good intentions in this case so much as rationalized transgressions. To protect ourselves in the dark, we have to venture out into it, on a road that can eventually lead to shadow government.
-When Bruce returns with the song’s final verse, he employs a fascinating device with the opening couplet, abandoning the established verse melody and meter for a pacing, stalking, thinly veiled threat:
+*And in the mornin’ you had that smell on your hands*
+
+Hearing the narrator accuse us of betrayal so explicitly and graphically does more than just escalate the song’s stakes. It throws us off-balance as we imagine ourselves guilty of such intimate betrayal, or at least complicit in it.
+
+It’s the key passage of the song, a restatement of the old adage about the paving of the road to hell, paved not with good intentions in this case so much as rationalized transgressions. To protect ourselves in the dark, we have to venture out into it, on a road that can eventually lead to shadow government.
+
+When Bruce returns with the song’s final verse, he employs a fascinating device with the opening couplet, abandoning the established verse melody and meter for a pacing, stalking, thinly veiled threat:
+
 *Well now the world is turning, Rome is burning*
-*Me, I’m watching… and I’m learning*
-Prey or be preyed on. Betray or suffer betrayal. That’s the lesson our narrator is gradually learning, although his conscious self hasn’t yet come to grips with it. Deep down, though, he knows he’s compromising his integrity away, and it haunts his dreams.
+*Me, I’m watching… and I’m learning*
+
+Prey or be preyed on. Betray or suffer betrayal. That’s the lesson our narrator is gradually learning, although his conscious self hasn’t yet come to grips with it. Deep down, though, he knows he’s compromising his integrity away, and it haunts his dreams.
+
 *They say sure as God’s hand and the tickin’ of the clock*
 *The lord’s light’ll shine under every slimy rock*
 *Well last night I slept the sleep of fear*
 *And I heard God’s voice whispering in my ear*
 *He said you better watch what’s going on when the lights are out*
 *When the night is dark, when there ain’t nobody lookin’ around*
-*Yeah when the lights are out, down in this dirty little town*
-When we surrender to our darker instincts, we best be on our guard, because we’re not alone in the dark. Sooner or later the truth gets out. The lights eventually come back up and we are revealed. Until then, we dwell in a state of constant low-grade fear and distrust, while we pretend all is fine on the surface. This is the price we pay for moral compromise.
-“When the Lights Go Out” is a sinister, prescient song that deserves a better fate than its deep burial on the final disc of *Tracks*. Bruce hasn’t performed it since those Christic shows, even though the song has only grown in relevance.
-We’ve been living through a blackout in recent years, but the lights are coming back on. We’ll see what we find under those slimy rocks.
-*Get the officially released archive recordings of Bruce’s 1990 Christic shows (featuring the only performances ever of “Where the Lights Go Out” [here](https://live.brucespringsteen.net/live-music/0,14250/Bruce-Springsteen-mp3-flac-download-11-16-1990-The-Christic-Shows-at-The-Shrine-Los-Angeles-CA.html).*
+*Yeah when the lights are out, down in this dirty little town*
+
+When we surrender to our darker instincts, we best be on our guard, because we’re not alone in the dark. Sooner or later the truth gets out. The lights eventually come back up and we are revealed. Until then, we dwell in a state of constant low-grade fear and distrust, while we pretend all is fine on the surface. This is the price we pay for moral compromise.
+
+“When the Lights Go Out” is a sinister, prescient song that deserves a better fate than its deep burial on the final disc of *Tracks*. Bruce hasn’t performed it since those Christic shows, even though the song has only grown in relevance.
+
+We’ve been living through a blackout in recent years, but the lights are coming back on. We’ll see what we find under those slimy rocks.
+
+*Get the officially released archive recordings of Bruce’s 1990 Christic shows (featuring the only performances ever of “Where the Lights Go Out” [here](https://live.brucespringsteen.net/live-music/0,14250/Bruce-Springsteen-mp3-flac-download-11-16-1990-The-Christic-Shows-at-The-Shrine-Los-Angeles-CA.html).*
+
 **When the Lights Go Out
-Recorded:** December 6, 1990
+**Recorded:** December 6, 1990
 **Released:** *Tracks* (1998)
 **First performed:** November 16, 1990 (Los Angeles, CA)
-**Last performed:** November 17, 1990 (Los Angeles, CA)
+**Last performed:** November 17, 1990 (Los Angeles, CA)
+
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

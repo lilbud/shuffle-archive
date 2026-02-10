@@ -28,6 +28,6 @@ Bruce and R.E.M. performed "Bad Day" three times together over a four-day period
 
 Did the band pick it because they knew its backstory rhymed with some of Bruce's best songs? Stipe is a long-time Springsteen fan, so I wouldn't put it past him. Whatever the reason, it was an inspired choice, and Bruce contributed impassioned backing vocals and a very nice guitar solo at the end.
 
-**Bad Day
-First performed:** October 2, 2004 (Cleveland, OH)
+**Bad Day**
+**First performed:** October 2, 2004 (Cleveland, OH)
 **Last performed:** October 5, 2004 (St. Paul, MN)

@@ -51,6 +51,6 @@ Springsteen agreed, but a global pandemic forced the festival to punt the gig tw
 
 Time will tell if we ever get a chance to see McCartney and Springsteen share a stage again, but if we don't their 2022 performances of "The End" certainly serve as fitting final team-ups.
 
-**The End
-First performed:** February 12, 2012 (Los Angeles, CA)
+**The End**
+**First performed:** February 12, 2012 (Los Angeles, CA)
 **Last performed:** June 25, 2022 (Pilton, England)

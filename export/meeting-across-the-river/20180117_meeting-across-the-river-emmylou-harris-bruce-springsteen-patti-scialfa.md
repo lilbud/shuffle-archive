@@ -4,10 +4,12 @@
 #### Last Updated: July 29, 2020
 ![emmy.jpg](https://estreetshuffle.com/wp-content/uploads/2018/01/emmy.jpg)
 
-From Emmylou Harris’ Grammy-winning album *Red Dirt Girl* comes the graceful “Tragedy,” with restrained, haunting background vocals by Bruce and Patti.
+From Emmylou Harris’ Grammy-winning album *Red Dirt Girl* comes the graceful “Tragedy,” with restrained, haunting background vocals by Bruce and Patti.
+
 [Youtube: Tragedy](https://www.youtube.com/watch?v=jf7BSf5ezUY)
-![](https://www.youtube.com/watch?v=jf7BSf5ezUY)
+**Tragedy**://www.youtube.com/watch?v=jf7BSf5ezUY)
+
 **Tragedy
-Recorded:** March 20, 2000
+**Recorded:** March 20, 2000
 **Released:** *Red Dirt Girl* (2000)
 **Never performed**

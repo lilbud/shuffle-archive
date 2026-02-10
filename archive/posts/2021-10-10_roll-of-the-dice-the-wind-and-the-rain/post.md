@@ -81,7 +81,7 @@ But what if he'd chosen differently? Four months after that Monmouth performance
 
 Imagine if Bruce had dedicated himself to the guitar with the same single-minded ferocity that would come to characterize his vocal performances. He was probably always deservedly destined for fame, but in some alternate universe, there's probably a Bruce Springsteen who is rightfully considered one of the greatest guitar players of all time.
 
-**The Wind and The Rain
+**The Wind and The Rain**
 Never recorded**
 **Never released**
 **First performed:** April 24, 1970 (West Long Branch, NJ)

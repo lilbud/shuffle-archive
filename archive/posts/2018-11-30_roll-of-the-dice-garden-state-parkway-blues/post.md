@@ -267,8 +267,8 @@ Whew!
 What are we to make of "Garden State Parkway Blues" looking back? It's mottled and disjointed, but lighthearted and ambitious at the same time. It's also a fascinating glimpse into Bruce's contemporary influences and future songwriting. For those (like me) who study the evolution of Bruce's craft with fascination, "Garden State Parkway Blues" is an essential listen.
 
 **Garden State Parkway Blues**
-**Never recorded or released
-First performed:** September 20, 1969 (Richmond, VA)
+**Never recorded or released**
+**First performed:** September 20, 1969 (Richmond, VA)
 **Last performed:** October 17, 1970 (Long Branch, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -14,6 +14,6 @@ So when Bowie passed away in January 2016, just before Bruce embarked on his Riv
 
 It proved to be only a one-off, but the band nailed it–a fitting one-time-only tribute to one of rock's greatest legends by another.
 
-**Rebel Rebel
-First performed:** January 16, 2016 (Pittsburgh, PA)
+**Rebel Rebel**
+**First performed:** January 16, 2016 (Pittsburgh, PA)
 **Last performed:** January 16, 2016 (Pittsburgh, PA)

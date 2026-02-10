@@ -23,5 +23,5 @@ Recognizing that Williams' material didn't really mesh with his set lists on tha
 Fortunately, though, someone captured this one, making a recorded live performance of "I Can't Help It" as much of a rarity for Bruce as a filmed one was for its original author.
 
 **I Can't Help It (If I'm Still in Love With You)
-First performed:** September 20, 1978 (Passaic, NJ) — soundcheck only
+**First performed:** September 20, 1978 (Passaic, NJ) — soundcheck only
 **Last performed:** September 20, 1978 (Passaic, NJ) — soundcheck only

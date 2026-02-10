@@ -90,8 +90,8 @@ After a lone appearance on the tour's European leg, "The Wrestler" disappeared, 
 
 It's too great a song to remain missing forever, though. "The Wrestler" fits with much of Bruce's recent material, especially with *Western Stars*, an album wholly centered on characters looking back on a road they can't get off. It's a theme that seems particularly resonant to Bruce of late, so we can hope for a reprise someday soon.
 
-**The Wrestler
-Recorded:** 2008
+**The Wrestler**
+**Recorded:** 2008
 **Released:** *Working on a Dream* (2009), *The Essential Bruce Springsteen* (2015)
 **First performed:** March 23, 2009 (Asbury Park, NJ)
 **Last performed:** June 4, 2009 (Stockholm, Sweden)

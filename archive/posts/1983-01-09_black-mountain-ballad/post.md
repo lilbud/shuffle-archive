@@ -38,7 +38,7 @@ I have to believe those lines were intended as a temporary placeholder, if for n
 I believe Bruce was searching for a way to contrast the words we utter when newly in love (*John, I love you so*) with the ones we say when that love dies (*We had it once but we ain't got it anymore*), and it's a great lyrical device. But it needed more than a skin graft to do it right, and so we're left with a blemish on an otherwise beautiful and haunting song.
 
 **Black Mountain Ballad**
-Recorded:** Early 1983
+**Recorded:** Early 1983
 **Released:** *L.A. Garage Sessions '83* (2025)**Never performed**
 
 © January 18, 2026

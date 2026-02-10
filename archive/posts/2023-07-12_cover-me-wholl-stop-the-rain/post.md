@@ -72,5 +72,5 @@ Bonus: Despite their many appearances together over the years, Bruce and John ha
 [Watch on Youtube: John Fogerty - "Who'll Stop The Rain" | 1993 Induction](https://www.youtube.com/watch?v=ekw13v8Et7U)
 
 **Who'll Stop the Rain
-First performed:** December 18, 1980 (New York City, NY)
+**First performed:** December 18, 1980 (New York City, NY)
 **Last performed:** February 18, 2017 (Hunter Valley, Australia)

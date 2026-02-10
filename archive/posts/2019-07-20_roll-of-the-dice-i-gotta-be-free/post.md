@@ -21,7 +21,7 @@ Bruce's lyrics are pretty spare–just two verses and a one-line chorus–and co
 
 "I Gotta Be Free" isn't likely to be a Steel Mill's Greatest Hits selection, but it's another remarkably preserved document of a very young Bruce Springsteen's ferocious guitar and emerging song-writing talent.
 
-**I Gotta Be Free
+**I Gotta Be Free**
 Never recorded**
 **Never released**
 **First performed:** November 27, 1970 (Asbury Park, NJ)

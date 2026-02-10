@@ -61,8 +61,8 @@ Regardless of the reason, it's effective–it keeps us at a distance and then dr
 *Fires keep on burning, I'm here with you in the cold*
 *Down in the hole*
 
-**Down in the Hole
-Recorded:** 2002, 2013
+**Down in the Hole**
+**Recorded:** 2002, 2013
 **Released:** *High Hopes* (2014)
 **Never performed**
 

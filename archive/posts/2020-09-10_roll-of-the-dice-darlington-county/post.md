@@ -101,8 +101,8 @@ Something tells me we'll be celebrating the misadventures of Wayne and Wilson fo
 
 [Watch on Youtube: Bruce Springsteen Untitled Harmonies #1](https://www.youtube.com/watch?v=dcjjeHtdsLg)
 
-**Darlington County
-Recorded:** May 13, 1982
+**Darlington County**
+**Recorded:** May 13, 1982
 **Released:** *Born in the U.S.A.* (1984)
 **First performed:** June 8, 1984 (Asbury Park, NJ)
 **Last performed:** August 24, 2023 (Foxborough, MA)

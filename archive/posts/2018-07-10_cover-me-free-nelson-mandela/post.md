@@ -8,6 +8,6 @@ Never charting in the U.S., "Free Nelson Mandela" reached #9 in the UK in its or
 
 [Watch on Youtube: The Specials - Nelson Mandela (Official Music Video)](https://www.youtube.com/watch?v=AgcTvoWjZJU)
 
-**Free Nelson Mandela
-First performed:** January 26, 2014 (Cape Town, South Africa)
+**Free Nelson Mandela**
+**First performed:** January 26, 2014 (Cape Town, South Africa)
 **Last performed:** February 1, 2014 (Johannesburg, South Africa)

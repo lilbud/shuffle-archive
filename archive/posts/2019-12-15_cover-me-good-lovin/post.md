@@ -25,5 +25,5 @@ That May-June 2009 stretch was the only time Bruce and the E Street Band ever pl
 [Watch on Youtube: The Rascals - 2010 honoring Little Steven & Maureen Van Zandt](https://www.youtube.com/watch?v=ctwOewTCskc)
 
 **Good Lovin'
-First performed:** May 11, 2009 (St. Paul, MN)
+**First performed:** May 11, 2009 (St. Paul, MN)
 **Last performed**: April 24, 2010 (New York City, NY

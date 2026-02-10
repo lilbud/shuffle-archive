@@ -14,6 +14,6 @@ You can watch both performances below and judge for yourself which one is better
 
 [Watch on Youtube: WIllie Nile and Bruce Springsteen - Heaven Help the Lonely](https://www.youtube.com/watch?v=jDhzEAHjIYs)
 
-**Heaven Help the Lonely
-First performed:** January 16, 2010 (Asbury Park, NJ)
+**Heaven Help the Lonely**
+**First performed:** January 16, 2010 (Asbury Park, NJ)
 **Last performed:** January 15, 2011 (Asbury Park, NJ)

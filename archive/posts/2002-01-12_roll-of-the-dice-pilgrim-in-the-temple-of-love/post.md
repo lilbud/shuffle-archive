@@ -151,7 +151,7 @@ I imagine that for Bruce Springsteen, that momentary freedom from his public fac
 
 [Watch on Youtube: Pilgrim In The Temple Of Love Bruce Springsteen 12/10/1996 OH](https://www.youtube.com/watch?v=YfNiDh9zndQ)
 
-**Pilgrim in the Temple of Love
+**Pilgrim in the Temple of Love**
 Never recorded**
 **Never released**
 **First performed:** April 16, 1996 (London, England)

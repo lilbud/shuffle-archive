@@ -69,6 +69,6 @@ None of the post-1988 performances have matched the remarkable passion on displa
 
 Still, "Boom Boom" remains a reliable adrenaline booster for any show it appears in, and odds are strong that we'll hear it again at least once on the next E Street Band Tour.
 
-**Boom Boom
-First performed:** April 26, 1974 (Providence, RI)
+**Boom Boom**
+**First performed:** April 26, 1974 (Providence, RI)
 **Last performed:** September 14, 2016 (Foxborough, MA)

@@ -42,8 +42,8 @@ Less than three months later, Bruce took the band into the studio and recorded a
 
 That makes it a great candidate for *Tracks 2,* so let's keep our fingers crossed that we get a chance to hear the finished song someday.
 
-**Under the Gun
-Recorded:** June 14, 1979
+**Under the Gun**
+**Recorded:** June 14, 1979
 **Never released**
 **Never performed**
 

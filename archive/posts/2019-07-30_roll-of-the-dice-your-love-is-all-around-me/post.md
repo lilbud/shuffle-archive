@@ -67,8 +67,8 @@ Let's hope.
 
 [Watch on Youtube: Bruce Springsteen Your Love Is All Around Me Now #2](https://www.youtube.com/watch?v=sX-yxWSPUC0)
 
-**Your Love Is All Around Me
-Recorded:** Early 1982 (demos only)
+**Your Love Is All Around Me**
+**Recorded:** Early 1982 (demos only)
 **Never released**
 **Never performed**
 

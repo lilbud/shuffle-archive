@@ -61,8 +61,8 @@ In the end, "Henry Boy" gave way to better, more enduring songs, but its DNA is 
 
 In 2016, Bruce released his original 1972 demo on his *Chapter and Verse* album, finally freeing Henry after 44 long years from his lonely Broadway street corner.
 
-**Henry Boy
-Recorded:** June 1972
+**Henry Boy**
+**Recorded:** June 1972
 **Released:** *Chapter and Verse* (2016)
 **First performed:** August 10, 1972 (New York City, NY)
 **Last performed:** August 10, 1972 (New York City, NY)

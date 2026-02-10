@@ -82,8 +82,8 @@ It's been more than a decade since we've last seen them perform it together on s
 
 **The 25th Anniversary Edition of *American Babylon* is available now on vinyl, CD, and digital–get it [here](https://www.joegrushecky.com/store). Catch Joe and The Houserockers[on stage this summer](https://www.joegrushecky.com/shows), including a night at The Wonder Bar in Asbury Park on July 9th!**
 
-**Homestead
-Recorded:** November 1993 (Grushecky version), Unknown (Springsteen version)
+**Homestead**
+**Recorded:** November 1993 (Grushecky version), Unknown (Springsteen version)
 **Released:** *American Babylon* (1995) (Grushecky version)
 **First performed:** October 17, 1995 (Asbury Park, NJ)
 **Last performed:** November 3, 2011 (Pittsburgh, PA)

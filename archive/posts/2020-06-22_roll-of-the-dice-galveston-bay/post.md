@@ -94,8 +94,8 @@ Here's that rarely seen performance–to my knowledge, it's the only professiona
 
 [Watch Video Highlight](https://videopress.com/embed/5Cf6O411)
 
-**Galveston Bay
-Recorded:** March-August 1995
+**Galveston Bay**
+**Recorded:** March-August 1995
 **Released:** *The Ghost of Tom Joad* (1995)
 **First performed:** November 21, 1995 (New Brunswick, NJ)
 **Last performed:** September 25, 2009 (New York City, NY)

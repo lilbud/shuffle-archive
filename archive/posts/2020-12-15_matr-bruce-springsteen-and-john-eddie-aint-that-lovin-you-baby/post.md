@@ -21,5 +21,5 @@ And this time, the recording quality is terrific. Here's Bruce on lead vocals wi
 [Watch on Youtube: Bruce Springsteen - AIN'T THAT LOVING YOU BABY 1983 (audio)](https://www.youtube.com/watch?v=S8g9lfpzPc4)
 
 **Ain't That Lovin' You Baby
-First performed:** August 14, 1983 (Asbury Park, NJ)
+**First performed:** August 14, 1983 (Asbury Park, NJ)
 **Last performed:** August 19, 1983 (Long Branch, NJ)

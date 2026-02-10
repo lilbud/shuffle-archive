@@ -50,6 +50,6 @@ Watch Bruce spontaneously decide to keep it going when Joe tries to end it at ar
 
 [Watch on Youtube: Great Balls Of Fire-Bruce Springsteen & John Mellencamp (5-11-2022 Microsoft Theater,Los Angeles,CA)](https://www.youtube.com/watch?v=x5T_Jgxew0o)
 
-**Great Balls of Fire
-First performed:** October 29, 1990 (San Fernando Valley, CA)
+**Great Balls of Fire**
+**First performed:** October 29, 1990 (San Fernando Valley, CA)
 **Last performed:** November 5, 2022 (Los Angeles, CA)

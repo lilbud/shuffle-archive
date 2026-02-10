@@ -100,8 +100,8 @@ So here's a bonus demo instead: earlier than both of the above performances, thi
 
 [Watch on Youtube: Bruce Springsteen - "If I Was the Priest" version 1](https://www.youtube.com/watch?v=w-QDe3ZJ4QE)
 
-**If I Was the Priest
-Recorded:** April-June 1972 (solo), November 2019 (band)
+**If I Was the Priest**
+**Recorded:** April-June 1972 (solo), November 2019 (band)
 **Released:** *Letter to You* (2020)
 **First performed:** February 14, 2023 (Houston, TX) (but likely performed in 1971 as well)
 **Last performed:** February 21, 2023 (Tulsa, OK)

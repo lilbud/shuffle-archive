@@ -93,8 +93,8 @@ We'll be meeting out in the street for a long time to come.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Out In the Street (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=yTQY3K_o6Tc)
 
-**Out in the Street
-Recorded:** March 21, 1980
+**Out in the Street**
+**Recorded:** March 21, 1980
 **Released:** *The River* (1980), *The Essential Bruce Springsteen* (2015)
 **First performed:** October 3, 1980 (Ann Arbor, MI)
 **Last performed:** August 30, 2023 (East Rutherford, NJ)

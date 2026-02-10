@@ -95,8 +95,8 @@ With just Roy on keyboards and Bruce on guitar and harmonica (with a solo that B
 
 "Cross My Heart" is one of the stronger songs on *Human Touch*, as well as its most overlooked, even by its author. Especially in its acoustic arrangement, it deserves more consideration than it receives.
 
-**Cross My Heart
-Recorded:** September 1989 – March 1991
+**Cross My Heart**
+**Recorded:** September 1989 – March 1991
 **Released:** *Human Touch* (1992)
 **First performed:** July 31, 1992 (East Rutherford, NJ)
 **Last performed:** November 10, 1992 (Uniondale, NY)

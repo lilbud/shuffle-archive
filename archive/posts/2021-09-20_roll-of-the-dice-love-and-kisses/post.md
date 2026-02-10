@@ -14,8 +14,8 @@ Bruce continued working on "Love and Kisses," evolving the melody into something
 
 [Watch on Youtube: Bruce Springsteen Love & Kisses](https://www.youtube.com/watch?v=8NODac18pmU)
 
-**Love and Kisses
-Recorded:** Early 1979 (acoustic demos only)
+**Love and Kisses**
+**Recorded:** Early 1979 (acoustic demos only)
 **Never released**
 **Never performed**
 

@@ -18,6 +18,6 @@ Bobby Freeman's Latin-rhythm 1958 original didn't rock quite as hard as Bruce an
 
 Fun fact: Freeman followed up "Do You Want to Dance" with a single called "Betty Lou Got a New Pair of Shoes." By the next summer, movie audiences would be rocking out to Beaver Brown performing that song, too.
 
-**Do You Want to Dance
-First performed:** August 7, 1982 (Red Bank, NJ)
+**Do You Want to Dance**
+**First performed:** August 7, 1982 (Red Bank, NJ)
 **Last performed:** October 3, 1982 (Asbury Park, NJ)

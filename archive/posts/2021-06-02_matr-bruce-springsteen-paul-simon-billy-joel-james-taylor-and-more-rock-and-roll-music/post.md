@@ -30,6 +30,6 @@ Paul Simon, Billy Joel, and James Taylor all took turns on lead vocals, but it w
 
 Bruce did get to perform "Rock and Roll Music" once more with Berry–at the finale of the Rock and Roll Hall of Fame inaugural concert in 1995. There were a lot more musicians on stage than the last time, but this time *everyone* knew who Bruce was.
 
-**Rock and Roll Music
-First performed:** April 28, 1973 (College Park, MD)
+**Rock and Roll Music**
+**First performed:** April 28, 1973 (College Park, MD)
 **Last performed:** September 2, 1995 (Cleveland, OH)

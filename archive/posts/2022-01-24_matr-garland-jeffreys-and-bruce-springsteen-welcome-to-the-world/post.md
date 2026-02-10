@@ -16,6 +16,6 @@ Garland played it each night of the run (except for one show he missed), and dur
 
 Bruce and Garland would go on to perform together fifteen times over the next fifteen years, but never again (to date, at least) would they play "Welcome to the World."
 
-**Welcome to the World
-First performed:** December 3, 2001 (Asbury Park, NJ)
+**Welcome to the World**
+**First performed:** December 3, 2001 (Asbury Park, NJ)
 **Last performed:** December 8, 2001 (Asbury Park, NJ)

@@ -20,6 +20,6 @@ Bruce doesn't sing in the recording below (since this was an impromptu performan
 
 That was the first and only time Bruce performed with Solar Circus. If you'd like to see video from that night, check out my [*Kingdom of Days* post for August 10](https://estreetshuffle.com/index.php/2020/08/10/kingdom-of-days-august-10/).
 
-**Stems and Seeds
-First performed:** August 10, 1995 (Long Branch, NJ)
+**Stems and Seeds**
+**First performed:** August 10, 1995 (Long Branch, NJ)
 **Last performed:** August 10, 1995 (Long Branch, NJ)

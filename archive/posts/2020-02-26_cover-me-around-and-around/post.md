@@ -24,6 +24,6 @@ Those may have been the only two "official" E Street Band performances, but in b
 
 "Around and Around" is a song that benefits from a more intimate venue. After all, the lyrics celebrate the small clubs where rock bands pack the house and play until dawn–what better song for a surprise Bruce Springsteen club appearance?
 
-**Around and Around
-First performed:** July 29, 1978 (St. Petersburg, FL)
+**Around and Around**
+**First performed:** July 29, 1978 (St. Petersburg, FL)
 **Last performed:** December 13, 2002 (Albany, NY)

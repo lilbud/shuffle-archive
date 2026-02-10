@@ -25,7 +25,7 @@ are the genetic ancestor of "[Janey, Don't You Lose Heart](https://estreetshuffl
 Bruce recorded these demos in early 1982, and reportedly the E Street Band took a crack at at in 1983. Maybe someday we'll get to hear what they came up with.
 
 **True Love Is Hard to Come By**
-**Never Released
+**Never Released**
 Never Performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

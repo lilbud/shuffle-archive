@@ -57,7 +57,7 @@ Bruce didn't forget about "You Mean So Much to Me" altogether, though: in Februa
 
 Look for that story coming soon.
 
-**You Mean So Much to Me
+**You Mean So Much to Me**
 Never recorded**
 **Never released**
 **First performed:** July 10, 1971 (Lincroft, NJ)

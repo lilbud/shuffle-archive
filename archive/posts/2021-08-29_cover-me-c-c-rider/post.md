@@ -39,5 +39,5 @@ Other than a couple of private parties and a Hall of Fame jam session, Bruce onl
 Bruce may have been born to rock, but when he wants to, that pair of bookend performances–forty years apart–reminds us that he can always groove.
 
 **C.C. Rider
-First performed:** July 10, 1971 (Lincroft, NJ)
+**First performed:** July 10, 1971 (Lincroft, NJ)
 **Last performed:** April 2, 2011 (Asbury Park, NJ)

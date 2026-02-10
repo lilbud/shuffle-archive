@@ -24,6 +24,6 @@ Three years later, Bruce was back in Dublin to play a solo acoustic show on his 
 
 Bruce and Joe would go on to play together many more times over the years in both Texas and New Jersey (never again in Dublin), but that late winter night in 1996 was the last time they'd play "Settle For Love."
 
-**Settle For Love
-First performed:** May 19, 1993 (Dublin, Ireland)
+**Settle For Love**
+**First performed:** May 19, 1993 (Dublin, Ireland)
 **Last performed:** March 17, 1996 (Dublin, Ireland)

@@ -33,7 +33,7 @@ For an under-the-radar song. "Idiot's Delight" has enjoyed a few different incar
 Will we hear it performed live again someday? Well, this past year would have been a perfectly suited window for it. Even so, while we might be collectively smartening up a bit at the moment, it's not a stretch to imagine we may need a reminder someday soon.
 
 **Idiot's Delight
-Recorded:** Unknown
+**Recorded:** Unknown
 **Released:** *Coming Home* (1997) (Joe's version); Unreleased (Bruce's version)
 **First performed:** March 2, 1998 (Pittsburgh, PA)
 **Last performed:** October 28, 2005 (Boston, MA)

@@ -65,8 +65,8 @@ Since then, "Loose End" has remained elusive, never missing an E Street Band Tou
 
 [Watch on Youtube: Bruce Springsteen - Loose Ends (Philadelphia, October 20, 2009)](https://www.youtube.com/watch?v=riKDqDaY6RM)
 
-**Loose End
-Recorded:** July 18, 1979
+**Loose End**
+**Recorded:** July 18, 1979
 **Released:** *Tracks* (1998), *The River: Single Album* (2015)
 **First performed:** June 3, 1999 (Paris, France)
 **Last performed:** September 9, 2016 (Philadelphia, PA)

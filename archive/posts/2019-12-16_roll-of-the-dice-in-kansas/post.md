@@ -17,7 +17,7 @@ Bruce seems to be teeing up some kind of environmental message, but that's pure 
 
 And while the composition is undated, I would peg it circa 1971-1972, based purely on the paper itself–the rounded corners, three-hole punch, and unperforated pages match closely snapshots of the notebook(s) Bruce wrote in during that time. (If you have any additional background on this composition, I'd love to know it.)
 
-**In Kansas
+**In Kansas**
 Never recorded**
 **Never performed**
 

@@ -155,8 +155,8 @@ But when Maharidge asked Marshall if he'd ever consider returning to the Democra
 
 Joe Marshall Jr. passed away a year later. Youngstown still waits for those jobs.
 
-**Youngstown
-Recorded:** June 16, 1995
+**Youngstown**
+**Recorded:** June 16, 1995
 **Released:** *The Ghost of Tom Joad* (1995)
 **First performed:** November 21, 1995 (New Brunswick, NJ)
 **Last performed:** February 25, 2017 (Auckland, New Zealand)

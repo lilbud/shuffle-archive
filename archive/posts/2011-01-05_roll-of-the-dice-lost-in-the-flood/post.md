@@ -93,7 +93,7 @@ The instrumental prologue establishes a dire, impending tone. The entrance of th
 
 Until I heard it played live in concert, I admit to being left cold by "Lost in the Flood." It's a good object lesson that as strong a lyricist as Bruce is, a good deal of the power of a song comes from the music. "Lost in the Flood" needs to be experienced live to be fully appreciated.
 
-**Lost in the Flood
-Recorded:** June – October 1972**Released:** [*Greetings from Asbury Park, NJ*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/) (1973), *Live in New York City* (2001), *Hammersmith Odeon, London '75* (2005)**First performed:** February 14, 1973 (Richmond, VA)**Last performed:** January 22, 2017 (Perth, Australia)
+**Lost in the Flood**
+**Recorded:** June – October 1972**Released:** [*Greetings from Asbury Park, NJ*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/) (1973), *Live in New York City* (2001), *Hammersmith Odeon, London '75* (2005)**First performed:** February 14, 1973 (Richmond, VA)**Last performed:** January 22, 2017 (Perth, Australia)
 
 © February 20, 2018

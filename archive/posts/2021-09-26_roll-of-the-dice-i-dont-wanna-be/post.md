@@ -13,7 +13,7 @@ We likely wouldn't even know the title of this abandoned song had The Big Man no
 As far as we know, "I Don't Wanna Be" never developed into a full song. It's melody, however, is *very* familiar. After at least a half dozen failed melodic attempts, Bruce grafted an evolved version of "I Don't Wanna Be" onto "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)."
 
 **I Don't Wanna Be
-Recorded:** May 1979 (rehearsal only)
+**Recorded:** May 1979 (rehearsal only)
 **Never released**
 **Never performed**
 

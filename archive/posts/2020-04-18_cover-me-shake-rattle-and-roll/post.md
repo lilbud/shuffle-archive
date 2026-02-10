@@ -35,5 +35,5 @@ Here's that much, much, *much* better cover of "Shake, Rattle and Roll" — the 
 [Watch on Youtube: Bruce Springsteen - Shake, rattle & Roll live in Mönchengladbach 05/07/13](https://www.youtube.com/watch?v=JUpCYsHNGfA)
 
 **Shake, Rattle and Roll
-First performed:** September 2, 1995 (Cleveland, OH)
+**First performed:** September 2, 1995 (Cleveland, OH)
 **Last performed:** July 5, 2013 (Mönchengladbach, Germany)

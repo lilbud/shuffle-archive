@@ -67,7 +67,7 @@ Bruce performed the songs on two more occasions in 1996, both on his solo acoust
 [https://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3?_=2)
 
 **Deportee (Plane Wreck at Los Gatos)
-Recorded:** September 29, 1996
+**Recorded:** September 29, 1996
 **Released:** *'Till We Outnumber 'em* (2000)
 **First performed:** August 28, 1981 (Los Angeles, CA)
 **Last performed:** May 13, 2021 (Colts Neck, NJ)

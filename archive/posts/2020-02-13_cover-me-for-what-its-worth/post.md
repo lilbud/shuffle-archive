@@ -26,5 +26,5 @@ That song–entitled "[Change It](https://estreetshuffle.com/index.php/2019/09/0
 ...making it clear that while "For What It's Worth" may have been a one-time-only performance for Bruce, the song lingered in his mind long after.
 
 **For What It's Worth
-First performed:** May 23, 1970 (Richmond, VA)
+**First performed:** May 23, 1970 (Richmond, VA)
 **Last performed:** May 23, 1970 (Richmond, VA)

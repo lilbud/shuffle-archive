@@ -40,7 +40,7 @@ If you're hoping (like me) to catch this song live, don't hold your breath. Bruc
 Yeah, maybe this one is better kept to vinyl. But if the E Street Band ever plays a show on the beach, this is gonna be my request sign. Y'all will just have to deal.
 
 **Let's Be Friends (Skin to Skin)
-Recorded:** 1999-2002**Released:** *The Rising* (2002)
+**Recorded:** 1999-2002**Released:** *The Rising* (2002)
 **First performed:** September 16, 2003 (Hartford, CT)
 **Last performed:** September 16, 2003 (Hartford, CT)
 

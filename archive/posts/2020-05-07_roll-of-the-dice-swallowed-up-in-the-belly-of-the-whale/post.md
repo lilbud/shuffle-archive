@@ -76,7 +76,7 @@ It's so potent that I almost postponed writing this article when the dice turned
 That's some pretty great art.
 
 **Swallowed Up (In the Belly of the Whale)
-Recorded:** 2011
+**Recorded:** 2011
 **Released:** *Wrecking Ball* (2012)
 **Never performed**
 

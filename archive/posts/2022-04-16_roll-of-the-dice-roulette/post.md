@@ -130,8 +130,8 @@ As for the incident that inspired the song, over the next six months anti-nuclea
 
 Bruce headlined two of those concerts, but despite his continued concern for the cause, the new song that signaled his support didn't make its debut that night. It would still be a few years before Bruce would seem comfortable performing such topical material. That time was coming, though, and it would mark an inflection point in his career.
 
-**Roulette
-Recorded:** April 1979
+**Roulette**
+**Recorded:** April 1979
 **Released:** *One Step Up* (B-side, 1988),*Tracks* (1998), *The River: Outtakes* (2015)
 **First performed:** February 25, 1988 (Worcester, MA)
 **Last performed:** July 5, 2016 (Milan, Italy)

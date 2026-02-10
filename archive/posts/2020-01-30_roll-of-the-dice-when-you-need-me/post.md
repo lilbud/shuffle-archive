@@ -60,8 +60,8 @@ Which is exactly how Bruce seems to have treated it: "When You Need Me" has neve
 
 **Update** #2: I'm humbled today by how sharp my readers are–Magnus Lauglo noticed that in the last verse, the tense shifts to the present: "'cause without you my life just isn't the same." That implies that "When You Need Me" is more than just a sweet love song; it's a song about the bond that persists even after a relationship ends. It deepens the song considerably, and I may have to upgrade my opinion of the song as a result. Thanks, Magnus!
 
-**When You Need Me
-Recorded:** January 10, 1987
+**When You Need Me**
+**Recorded:** January 10, 1987
 **Released:** *Tracks* (1998)
 **Never performed**
 

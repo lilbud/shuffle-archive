@@ -67,8 +67,8 @@ Bruce finishes the song the way he begins it, reinforcing the notion that Baby D
 
 But just like "[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)," "[Jesse](https://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/)," and the other songs Bruce recorded during those original April 1972 demo sessions, "Baby Doll" was never released in any form.
 
-**Baby Doll
-Recorded:** April 1972
+**Baby Doll**
+**Recorded:** April 1972
 **Never released**
 **First performed:** November 4, 1971 (New York City, NY)
 **Last performed:** November 4, 1971 (New York City, NY)

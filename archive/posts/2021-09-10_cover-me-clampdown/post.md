@@ -30,6 +30,6 @@ By their third performance a week later in Sunrise, they'd nailed both arrangeme
 
 Bruce, Tom, and the band continued performing "Clampdown" through the end of the High Hopes Tour. When Morello left the band at that point, The Clash's anthem went too. But with Morello a frequent guest star on E Street tours and "Clampdown" now firmly established in the E Street repertoire, don't count it out for an encore appearance.
 
-**Clampdown
-First performed:** April 2, 2014 (Pittsburgh, PA)
+**Clampdown**
+**First performed:** April 2, 2014 (Pittsburgh, PA)
 **Last performed:** May 17, 2014 (Uncasville, CT)

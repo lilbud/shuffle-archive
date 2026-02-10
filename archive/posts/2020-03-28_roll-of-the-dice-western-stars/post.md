@@ -147,8 +147,8 @@ You can listen to the live recording below, but I honestly think you're better o
 
 [Watch on Youtube: Bruce Springsteen - Western Stars (From The Film Western Stars)](https://www.youtube.com/watch?v=GBRPo6lQRBg)
 
-**Western Stars
-Recorded:** Unknown
+**Western Stars**
+**Recorded:** Unknown
 **Released:** *Western Stars* (2019)
 **First performed:** April 2019 (Colts Neck, NJ)
 **Last performed:** April 2019 (Colts Neck, NJ)

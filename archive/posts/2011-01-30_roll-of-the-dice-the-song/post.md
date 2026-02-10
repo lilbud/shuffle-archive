@@ -53,7 +53,7 @@ It's not one of Bruce's strongest songs, even when considered just among his ear
 
 **The Song**
 **Recorded:** April/May, 1972
-**Never Released
+**Never Released**
 Never Performed**
 
 

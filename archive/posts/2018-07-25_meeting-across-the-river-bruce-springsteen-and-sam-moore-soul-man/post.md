@@ -10,6 +10,6 @@ Bruce and Sam finally got a chance to perform live together on the Reunion Tour 
 
 [Watch on Youtube: Bruce Springsteen & Sam Moore - Soul Man (Sam & Dave) (live 2009) HD 0815007](https://www.youtube.com/watch?v=zK42PMBcESo)
 
-**Soul Man
-First performed:** October 15, 1999 (Phoenix, AZ)
+**Soul Man**
+**First performed:** October 15, 1999 (Phoenix, AZ)
 **Last performed:** April 22, 2017 (Marlboro, NJ)

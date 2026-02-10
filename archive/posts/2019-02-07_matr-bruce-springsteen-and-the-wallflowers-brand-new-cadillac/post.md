@@ -14,6 +14,6 @@ From March 8, 1997, take a listen to Bruce and The Wallflowers tear it up on "Br
 
 [Watch on Youtube: Bruce Springsteen and The Wallflowers - "Brand New Cadillac" - 1997-03-08](https://www.youtube.com/watch?v=USSPnsZMO90)
 
-**Brand New Cadillac
-First performed:** March 8, 1997 (Sea Bright, NJ)
+**Brand New Cadillac**
+**First performed:** March 8, 1997 (Sea Bright, NJ)
 **Last performed:** March 8, 1997 (Seat Bright, NJ)

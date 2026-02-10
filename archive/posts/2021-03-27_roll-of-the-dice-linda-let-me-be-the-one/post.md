@@ -71,8 +71,8 @@ But while Bruce may have kept "Linda" in the vault until 1998, he liberated her 
 
 (I have no idea why he thought they were written twenty years apart though. It was five at most.)
 
-**Linda Let Me Be The One
-Recorded:** May-July, 1975
+**Linda Let Me Be The One**
+**Recorded:** May-July, 1975
 **Released:** *Tracks* (1998)
 **First performed:** April 29, 2014 (Sunrise, FL)
 **Last performed:** April 29, 2014 (Sunrise, FL)

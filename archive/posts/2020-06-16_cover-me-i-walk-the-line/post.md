@@ -18,6 +18,6 @@ As a result, Cash's sweet lyrics are laid bare without distraction, and Soozie T
 
 Bruce must have been pleased with how it came off, because he opened his show with it the next night as well. After that, though, the song went back on the shelf–other than a brief nod to it as an intro to "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)" on the Magic Tour, Bruce hasn't played "I Walk the Line" ever since.
 
-**I Walk The Line
-First performed:** September 13, 2003 (Landover, MD)
+**I Walk The Line**
+**First performed:** September 13, 2003 (Landover, MD)
 **Last performed:** September 14, 2003 (Chapel Hill, NC)

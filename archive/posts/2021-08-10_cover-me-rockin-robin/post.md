@@ -25,5 +25,5 @@ Of course they didn't, and patience was rewarded with the E Street Band's only k
 Okay, so it was a bit too slow to capture the magic of the original, and it lacked the all-important intro, but it was still one of those magic anything-can-happen moments when Bruce goes off-road for fan requests.
 
 **Rockin' Robin
-First performed:** September 20, 2009 (Chicago, IL)
+**First performed:** September 20, 2009 (Chicago, IL)
 **Last performed:** September 20, 2009 (Chicago, IL)

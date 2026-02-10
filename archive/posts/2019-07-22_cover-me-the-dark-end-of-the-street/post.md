@@ -24,6 +24,6 @@ Bruce's soulful performance that day was perfectly suited for both his vocal and
 
 [Watch on Youtube: Bruce Springsteen & ESB Tampere 09 Dark End Of The Street complete video](https://www.youtube.com/watch?v=aUqh2qJrraY)
 
-**The Dark End of the Street
-First performed:** June 2, 2009 (Tampere, Finland)
+**The Dark End of the Street**
+**First performed:** June 2, 2009 (Tampere, Finland)
 **Last performed:** June 2, 2009 (Tampere, Finland)

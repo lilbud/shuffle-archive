@@ -33,5 +33,5 @@ Given how sparse the records of Bruce's soundchecks are, it makes one wonder how
 But for the (relatively) few Billy Lee Riley fans out there, it's nice to at least know that Riley is still remembered by rock's greatest icons to this day.
 
 **Is That All to the Ball (Mr. Hall)
-First performed:** May 23, 1978 (Buffalo, NY — soundcheck only)
+**First performed:** May 23, 1978 (Buffalo, NY — soundcheck only)
 **Last performed:** March 23, 1988 (Atlanta, GA — soundcheck only)

@@ -66,8 +66,8 @@ I will, however, leave you with another artist's smash hit single that reached #
 
 [Watch on Youtube: Rick Springfield - Don't Talk To Strangers (Official Video)](https://www.youtube.com/watch?v=cp42V938eBA)
 
-**Love Is a Dangerous Thing
-Recorded:** September-December 1981 (demo only)
+**Love Is a Dangerous Thing**
+**Recorded:** September-December 1981 (demo only)
 **Never released**
 **Never performed**
 

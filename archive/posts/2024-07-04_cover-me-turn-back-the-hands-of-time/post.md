@@ -24,8 +24,8 @@ But of course here we are almost two years later, still waiting for a proper con
 
 [Watch Video Highlight](https://videopress.com/embed/ab4LsAj4)
 
-**Turn Back the Hands of Time
-Recorded:** 2022
+**Turn Back the Hands of Time**
+**Recorded:** 2022
 **Released:** *Only the Strong Survive* (2022)
 **First performed:** November 15, 2022 (New York City, NY)
 **Last performed:** November 15, 2022 (New York City, NY)

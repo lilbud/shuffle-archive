@@ -198,7 +198,7 @@ Today, "Born in the U.S.A." holds a special place in Bruce's catalog, beloved by
 But ten years, twenty years, thirty years, forty years burning down the road, it remains the most necessary.
 
 **Born in the U.S.A.
-Recorded:** April 27-May 3, 1984
+**Recorded:** April 27-May 3, 1984
 **Released:** *Born in the U.S.A.* (1984)
 **First performed:** June 8, 1984 (Asbury Park, NJ)
 **Last performed:** July 6, 2023 (London, England)

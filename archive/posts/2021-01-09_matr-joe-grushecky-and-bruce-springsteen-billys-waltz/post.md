@@ -11,6 +11,6 @@ As he did for almost every song on the album, Bruce contributed his talents to "
 "Billy's Waltz" is one of the few *American Babylon* songs Joe and Bruce have yet to perform together, but given their long and continuing string of over fifty shared appearances, perhaps it's just a matter of time.
 
 **Billy's Waltz
-Recorded:** March 1995
+**Recorded:** March 1995
 **Released:** *American Babylon* (1995)
 **Never performed**

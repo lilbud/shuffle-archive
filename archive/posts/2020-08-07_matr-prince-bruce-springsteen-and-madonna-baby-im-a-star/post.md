@@ -29,5 +29,5 @@ Unconfirmed rumors abound that Bruce was on stage for more than just that one so
 This is likely a truly one-time-only performance.
 
 **Baby I'm a Star|
-First performed:** February 23, 1985 (Inglewood, CA)
+**First performed:** February 23, 1985 (Inglewood, CA)
 **Last performed:** February 23, 1985 (Inglewood, CA)

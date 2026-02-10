@@ -34,5 +34,5 @@ Given the theme of the tour, what was going on in his life at the time, and all 
 The only wonder is why he's never performed it at a proper concert.
 
 **Don't Let Me Be Misunderstood
-First Performed:** March 23, 1988 (Atlanta, GA) – soundcheck only
+**First Performed:** March 23, 1988 (Atlanta, GA) – soundcheck only
 **Last Performed:** March 23, 1988 (Atlanta, GA) – soundcheck only

@@ -61,8 +61,8 @@ The only thing that's crystal clear is that our narrator has had enough of tryin
 
 Bruce was wise to leave it off of *Darkness* but equally wise to dust it off three decades later for *The Promise*, his 2010 influence-wearing sleeve of an album.
 
-**Outside Looking In
-Recorded:** September 27, 1977
+**Outside Looking In**
+**Recorded:** September 27, 1977
 **Released:** *The Promise* (2010)
 **First performed:** December 7, 2010 (Asbury Park, NJ)
 **Last performed:** December 7, 2010 (Asbury Park, NJ)

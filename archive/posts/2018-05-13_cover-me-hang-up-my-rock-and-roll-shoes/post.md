@@ -12,6 +12,6 @@ And keeping the classics alive, here's the Chuck Willis original from 1958.
 
 [Watch on Youtube: 1958 - Chuck Willis - Hang Up My Rock & Roll Shoes](https://www.youtube.com/watch?v=rcitG7FpMVg)
 
-**Hang Up My Rock and Roll Shoes
-First performed:** September 3, 1978 (Saginaw, MI)
+**Hang Up My Rock and Roll Shoes**
+**First performed:** September 3, 1978 (Saginaw, MI)
 **Last performed:** November 22, 2009 (Buffalo, NY)

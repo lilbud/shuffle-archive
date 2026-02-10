@@ -22,6 +22,6 @@ However, we do have one recording from five years later–it's muddy and distant
 
 [Watch Video Highlight](https://videopress.com/embed/kp310mId)
 
-**Apache
-First performed:** March 13, 1973 (Boston, MA)
+**Apache**
+**First performed:** March 13, 1973 (Boston, MA)
 **Last performed:** November 12, 1978 (Troy, NY) – soundcheck only

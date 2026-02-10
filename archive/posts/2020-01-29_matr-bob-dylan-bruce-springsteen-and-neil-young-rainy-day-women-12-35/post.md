@@ -13,5 +13,5 @@ Dylan broke out "Rainy Day Women" during his third encore, and he invited a coup
 [Watch on Youtube: Bob Dylan - Rainy Day Women #12 & 35 with Bruce Springsteen and Neil Young 1994](https://www.youtube.com/watch?v=s3-uk7pmEFI)
 
 **Rainy Day Women #12 & 35
-First performed:** October 20, 1994 (New York City, NY)
+**First performed:** October 20, 1994 (New York City, NY)
 **Last performed:** October 20, 1994 (New York City, NY)

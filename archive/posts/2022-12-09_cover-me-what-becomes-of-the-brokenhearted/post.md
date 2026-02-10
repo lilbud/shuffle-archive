@@ -26,8 +26,8 @@ It works, because while "What Becomes of the Brokenhearted" is certainly a lamen
 
 On an album that's all about his vocal performances, "What Becomes of the Brokenhearted" features one of Springsteen's strongest.
 
-**What Becomes of the Broken Hearted
-Recorded:** 2021
+**What Becomes of the Broken Hearted**
+**Recorded:** 2021
 **Released:** *Only the Strong Survive* (2022)
 **Never performed**
 

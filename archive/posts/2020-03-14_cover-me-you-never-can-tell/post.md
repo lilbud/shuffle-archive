@@ -44,6 +44,6 @@ This time, though, no one took notice but the Horsens fans.
 
 It just goes to show: when it comes to predicting whether a great performance will go viral... well, you never can tell.
 
-**You Never Can Tell
-First performed:** June 3, 1974 (Cleveland, OH)
+**You Never Can Tell**
+**First performed:** June 3, 1974 (Cleveland, OH)
 **Last performed:** July 20, 2016 (Horsens, Denmark)

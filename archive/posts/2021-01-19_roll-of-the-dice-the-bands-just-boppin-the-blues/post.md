@@ -41,7 +41,7 @@ And a showcase it was. The highlights of the performance are clearly the two ins
 Flash forward exactly a year later, and Bruce would be one month into touring for his upcoming debut album, with the band that would eventually become known as E Street fully in place. But in November 1971, the action was all at the Student Prince, where a pre-fame Bruce Springsteen and his eponymous band spent their weekend nights just boppin' the blues.
 
 **The Band's Just Boppin' the Blues
-First performed:** November 13, 1971 (Asbury Park, NJ)
+**First performed:** November 13, 1971 (Asbury Park, NJ)
 **Last performed:** February 4, 1972 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

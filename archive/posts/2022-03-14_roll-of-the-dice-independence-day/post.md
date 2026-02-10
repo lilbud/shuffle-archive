@@ -138,8 +138,8 @@ My favorite performances, though, are when Bruce plays it alone at the piano. "I
 
 [Watch on Youtube: Bruce Springsteen-Independence Day from "Ties" Documentary](https://www.youtube.com/watch?v=xouTzlWWpa4)
 
-**Independence Day
-Recorded:** Autumn 1977 – April 1980
+**Independence Day**
+**Recorded:** Autumn 1977 – April 1980
 **Released:** *The River* (1980)
 **First performed: J**uly 7, 1978 (Los Angeles, CA)
 **Last performed:** August 23, 2016 (East Rutherford, NJ)

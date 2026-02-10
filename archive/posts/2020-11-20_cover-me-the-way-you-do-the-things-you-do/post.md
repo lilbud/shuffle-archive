@@ -36,6 +36,6 @@ Bruce performed "The Way You Do The Things You Do" just twice more after that Gl
 
 But a song that delights both audiences and artists alike isn't likely to stay missing in action forever. Keep an eye out for a return engagement.
 
-**The Way You Do The Things You Do
-First performed:** March 9, 2012 (New York City, NY)
+**The Way You Do The Things You Do**
+**First performed:** March 9, 2012 (New York City, NY)
 **Last performed:** March 14, 2013 (Brisbane, Australia)

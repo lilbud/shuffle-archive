@@ -38,8 +38,8 @@ As for the lyrics, there are several lines almost impossible to decipher, but th
 
 In other words, the lovers in "Magic Kind of Loving" may not be beauties, but they're all right–and that's alright with them.
 
-**Magic Kind of Loving
-First performed:** February 4, 1972 (Richmond, VA)
+**Magic Kind of Loving**
+**First performed:** February 4, 1972 (Richmond, VA)
 **Last performed:** February 25, 1972 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

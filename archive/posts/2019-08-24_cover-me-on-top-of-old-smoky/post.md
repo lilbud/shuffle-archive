@@ -20,6 +20,6 @@ Bruce's arrangement of "On Top of Old Smoky" is classic E Street, but it sounds 
 
 And that was it for Old Smoky. Neither the mountain nor Bruce's cover have been heard from ever since.
 
-**On Top of Old Smoky
-First performed:** October 25, 1980 (Portland, OR)
+**On Top of Old Smoky**
+**First performed:** October 25, 1980 (Portland, OR)
 **Last performed:** October 25, 1980 (Portland, OR)

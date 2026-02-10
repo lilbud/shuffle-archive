@@ -14,6 +14,6 @@ But Neil went first, and in the middle of his set he invited Bruce to the stage,
 
 You won't find that performance on Bruce's archive release from that night, but that's only because it's already been officially released. You can find it on the [*The Bridge Collection, Volume 2*](https://music.apple.com/us/album/the-bridge-school-collection-vol-2-live/208494388)on select streaming services.
 
-**Helpless
-First performed:** October 13, 1986 (Mountain View, CA)
+**Helpless**
+**First performed:** October 13, 1986 (Mountain View, CA)
 **Last performed:** October 13, 1986 (Mountain View, CA)

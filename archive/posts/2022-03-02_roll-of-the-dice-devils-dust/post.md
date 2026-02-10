@@ -134,7 +134,7 @@ Will we hold ourselves and our leaders accountable to our shared values, or will
 We like to think that faith will be rewarded, but sometimes faith just ain't enough.
 
 **Devils & Dust
-Recorded:** 2004
+**Recorded:** 2004
 **Released:** *Devils & Dust* (2005)
 **First performed:** April 4, 2005 (Red Bank, NJ)
 **Last performed:** January 12, 2017 (Washington, DC)

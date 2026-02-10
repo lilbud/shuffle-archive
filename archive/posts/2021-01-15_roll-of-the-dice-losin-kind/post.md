@@ -65,7 +65,7 @@ It wasn't just the "punchline" Bruce had trouble finding, though–he struggled 
 Bruce finally found his title in [a song he'd written months earlier](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/) for Gary U.S. Bonds*, just one more in a long list of songs sharing a link to "Losin' Kind."
 
 **Losin' Kind
-Recorded:** January 3, 1982
+**Recorded:** January 3, 1982
 **Never released**
 **Never performed**
 

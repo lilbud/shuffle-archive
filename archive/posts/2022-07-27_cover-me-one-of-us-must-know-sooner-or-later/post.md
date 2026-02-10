@@ -21,5 +21,5 @@ Sure enough, Roy Bittan is appropriately front and center in the too-brief two-m
 That 1988 soundcheck is the only known time Bruce has performed Dylan's underperforming 1966 single, and at this point it's likely to remain that way. Still, we never know what debuts and rare covers Bruce might whip out on any given night, so perhaps it's just a matter of time. Sooner or later...
 
 **One of Us Must Know (Sooner or Later)
-First performed:** March 23, 1988 (Atlanta, GA – soundcheck only)
+**First performed:** March 23, 1988 (Atlanta, GA – soundcheck only)
 **Last performed:** March 23, 1988 (Atlanta, GA – soundcheck only)

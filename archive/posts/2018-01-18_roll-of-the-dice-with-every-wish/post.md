@@ -58,8 +58,8 @@ But when he tries to skip over the sad parts, his son makes him go back and read
 
 [Watch Video Highlight](https://videopress.com/embed/G9xPqO8U)
 
-**With Every Wish
-Recorded:** Late 1989**Released:** *Human Touch,* 1992
+**With Every Wish**
+**Recorded:** Late 1989**Released:** *Human Touch,* 1992
 **First Performed:** June 15, 1992 (Stockholm)
 **Last Performed:** July 23, 1992 (East Rutherford, NJ)
 

@@ -42,6 +42,6 @@ All three icons were in peak form that night, their voices and instruments blend
 
 [Watch on Youtube: Bruce Springsteen | Across The Borderline - Denver - 19/11/2012](https://www.youtube.com/watch?v=3WqKKf0jfoE)
 
-**Across the Borderline
-First performed:** April 27, 1988 (Los Angeles, CA)
+**Across the Borderline**
+**First performed:** April 27, 1988 (Los Angeles, CA)
 **Last performed:** November 19, 2012 (Denver, CA)

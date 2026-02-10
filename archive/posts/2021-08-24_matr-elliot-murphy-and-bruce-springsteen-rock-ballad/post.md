@@ -22,6 +22,6 @@ That experience stayed with Murphy. A few years later he wrote another one of th
 
 Bruce accepted, and their recording of "[Everything I Do (Leads Me Back to You)](https://estreetshuffle.com/index.php/2019/01/09/matr-elliott-murphy-and-bruce-springsteen-everything-i-do-leads-me-back-to-you/)" became the only studio recording by the New Dylan class of '74.
 
-**Rock Ballad
-First performed:** June 30, 1992 (Paris, France)
+**Rock Ballad**
+**First performed:** June 30, 1992 (Paris, France)
 **Last performed:** June 30, 1992 (Paris, France)

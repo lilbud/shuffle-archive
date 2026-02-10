@@ -51,8 +51,8 @@ So regardless of whether you hear what I hear in "Do You Hear What I Hear," I wi
 
 And may we all have peace on earth soon.
 
-**Do You Hear What I Hear
-First performed:** December 14, 2016 (New York City, NY)
+**Do You Hear What I Hear**
+**First performed:** December 14, 2016 (New York City, NY)
 **Last performed:** December 14, 2016 (New York City, NY)
 
 (c) December 24, 2020 by Ken Rosen

@@ -23,6 +23,6 @@ It's pretty easy to see why Bruce would be attracted to a song like this. Bruce'
 Unlike "All Just to Get to You," which Bruce has performed with Ely seven times in concert, Bruce has yet to perform "I'm a Thousand Miles From Home." But that's okay: this is a delicately crafted studio track that's perfect in its original form.
 
 **I'm a Thousand Miles From Home
-Recorded:** April 1995
+**Recorded:** April 1995
 **Released:** *Letter to Laredo* (1995)
 **Never performed**

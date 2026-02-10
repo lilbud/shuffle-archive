@@ -51,7 +51,7 @@ Even the video is classic Springsteen–from the common man cameos to the requis
 
 To this day, Bruce has never performed "Do Your Job" in concert, and given the current state of the economy and what will probably prove to be a long and gradual recovery, I don't believe we'll hear it make Bruce's set lists any time soon.
 
-**Do Your Job
-Recorded:** 2008
+**Do Your Job**
+**Recorded:** 2008
 **Released:** *Funny or Die* (2008)
 **Never performed**

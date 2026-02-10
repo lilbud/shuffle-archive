@@ -77,8 +77,8 @@ And in concert, throughout the entire 2009 tour, he took a mid-song break to mak
 
 Unfortunately, like most of the *Working on a Dream* album, the title track has mostly disappeared since the end of the 2009 tour. Bruce brings it out only rarely these days, as if to remind us from time to time that he is still very much working on his dream.
 
-**Working on a Dream
-Recorded:** 2007-2008
+**Working on a Dream**
+**Recorded:** 2007-2008
 **Released:** *Working on a Dream* (2009), *The Essential Bruce Springsteen* (2015)
 **First performed:** November 2, 2008 (Cleveland, OH)
 **Last performed:** June 5, 2022 (East Rutherford, NJ)

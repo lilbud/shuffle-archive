@@ -106,7 +106,7 @@ For my money the song still works best acoustically. I haven't been lucky enough
 [Watch on Youtube: It's Hard to Be a Saint in the City (Live at Paramount Theatre, Asbury Park, NJ - 11/26/1996)](https://www.youtube.com/watch?v=EPiO9KtIVr0)
 
 **It's Hard to Be a Saint in the City
-Recorded:** June-October 1972
+**Recorded:** June-October 1972
 **Released:** *[Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*(1973), *Tracks* (1998) (Demo version)
 **First performed:** May 2, 1972 (New York City, NY)
 **Last performed:** April 3, 2023 (Brooklyn, NY)

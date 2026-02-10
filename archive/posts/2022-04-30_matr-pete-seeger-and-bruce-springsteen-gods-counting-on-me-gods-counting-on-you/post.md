@@ -21,6 +21,6 @@ The track was finally released in September 2012 on a new album by Seeger and Wy
 "God's Counting on Me... God's Counting on You" became Seeger's final single of his long and storied career, and his last collaboration with Bruce Springsteen.
 
 **God's Counting on Me... God's Counting on You
-Recorded:** January 2012
+**Recorded:** January 2012
 **Released:** *A More Perfect Union* (2012)
 **Never performed**

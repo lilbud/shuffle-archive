@@ -31,5 +31,5 @@ We can tell, because the performance was captured on video.
 It's been more than a quarter-century since that Cafe Eckstein performance, and "Jumpin' Jack Flash" has yet to re-surface at a Springsteen concert. Don't count it out for good though... given Bruce's fondness for the Stones and the song's immense popularity, we might hear this one again sometime soon.
 
 **Jumpin' Jack Flash
-First performed:** May 24, 1993 (London, England)
+**First performed:** May 24, 1993 (London, England)
 **Last performed:** July 9, 1995 (Berlin, Germany)

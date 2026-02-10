@@ -51,7 +51,7 @@ Bruce also made some minor lyrical adjustments that night. (It was Bob Dole who 
 
 Despite the roaring approval from the audience, Bruce never again brought out "In Michigan" for his Great Lakes State audiences. Perhaps it was just too easy. But before long he'd take his winning formula and produce a more enduring tribute song about [his own hometown](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/).
 
-**In Michigan
+**In Michigan**
 Never recorded**
 **Never released**
 **First performed:** September 24, 1996 (Kalamazoo, MI)

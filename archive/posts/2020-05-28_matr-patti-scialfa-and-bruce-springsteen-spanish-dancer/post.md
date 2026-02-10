@@ -20,6 +20,6 @@ Here's hoping for another Scialfa album (and some solo shows) sometime soon.
 
 [Watch on Youtube: Emmylou Harris & Rodney Crowell - Spanish Dancer - live Laeiszhalle Hamburg 2013-05-31](https://www.youtube.com/watch?v=ATgQhCUnTmg)
 
-**Spanish Dancer
-First performed:** December 3, 2001 (Asbury Park, NJ)
+**Spanish Dancer**
+**First performed:** December 3, 2001 (Asbury Park, NJ)
 **Last performed:** December 8, 2001 (Asbury Park, NJ)

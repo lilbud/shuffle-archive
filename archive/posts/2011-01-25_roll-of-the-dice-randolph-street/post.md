@@ -108,8 +108,8 @@ Mask up, everybody.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/obit.png)
 
-**Randolph Street
-Recorded:** April 1972
+**Randolph Street**
+**Recorded:** April 1972
 **Never released**
 **Never performed**
 

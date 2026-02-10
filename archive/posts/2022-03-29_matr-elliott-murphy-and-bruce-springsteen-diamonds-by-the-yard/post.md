@@ -14,6 +14,6 @@ Like they did five years earlier, they played one of Elliott's songs–this time
 
 With only two acoustic guitars between them, it wasn't quite as majestic an arrangement as on the album, but it was a delightful surprise and lovely performance nonetheless and remains the only time Bruce has ever performed Elliott's song.
 
-**Diamonds by the Yard
-First performed:** May 26, 1997 (Paris, France)
+**Diamonds by the Yard**
+**First performed:** May 26, 1997 (Paris, France)
 **Last performed:** May 26, 1997 (Paris, France)

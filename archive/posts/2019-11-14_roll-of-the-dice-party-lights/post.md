@@ -73,8 +73,8 @@ Before we leave, there's something else worth pointing out about "Party Lights."
 
 [Watch Video Highlight](https://videopress.com/embed/C66uAIaH)
 
-**Party Lights
-Recorded:** October 8, 1979
+**Party Lights**
+**Recorded:** October 8, 1979
 **Released:** *The Ties That Bind: The River Collection* (2015)
 **Never performed**
 

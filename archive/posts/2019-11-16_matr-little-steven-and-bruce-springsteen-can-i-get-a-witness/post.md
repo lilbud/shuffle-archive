@@ -16,6 +16,6 @@ So when the Disciples of Soul launched into that unmistakable boogie-woogie-meet
 
 That show closing-performance was a genuine one-off (for Bruce, anyway–Steve has played it often). It was a highlight to cap a night full of them, ushering in a prolific two-and-a-half years for one of rock's best touring bands.
 
-**Can I Get a Witness
+**Can I Get a Witness**
 First performed: April 29, 2007** (Asbury Park, NJ)
 **Last performed: May 27, 2017** (Red Bank, NJ)

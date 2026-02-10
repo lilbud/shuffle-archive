@@ -96,8 +96,8 @@ Even so, "There Goes My Miracle" shares a trait with its album-mates: it's prett
 
 As much as I adore the entire album, I'm perfectly content for Bruce to omit these songs from his set lists. "There Goes My Miracle" and its cohorts were perfectly conceived in the studio, and for me at least, that's the way they should be appreciated.
 
-**There Goes My Miracle
-Recorded:** 2010-2019
+**There Goes My Miracle**
+**Recorded:** 2010-2019
 **Released:** *Western Stars* (2019)
 **First performed:** April 2019
 **Last performed:** April 2019

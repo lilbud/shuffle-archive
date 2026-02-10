@@ -24,6 +24,6 @@ Enjoy this rare and surprisingly clear document of one of Bruce's legendary surp
 
 [Watch on Youtube: hound dog](https://www.youtube.com/watch?v=mYNmBYbaq4U)
 
-**Hound Dog
-First performed:** June 24, 1989 (Asbury Park, NJ)
+**Hound Dog**
+**First performed:** June 24, 1989 (Asbury Park, NJ)
 **Last performed:** July 23, 1989 (Asbury Park, NJ)

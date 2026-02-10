@@ -19,5 +19,5 @@ The band that gave rise to the Sessions Band–The Gotham Playboys–actually pl
 Whatever made Bruce play that particular song on that particular day, we should be thankful for it: although it wasn't the first time Bruce played it and it wouldn't be the last, it's the one and only time it was recorded.
 
 **Jambalaya (On the Bayou)
-First performed:** October 11, 1998 (Colts Neck, NJ)
+**First performed:** October 11, 1998 (Colts Neck, NJ)
 **Last performed:** January 23, 2010 (Asbury Park, NJ)

@@ -65,8 +65,8 @@ But other than a one-off in the UK a month later, we haven't heard from "Vigilan
 
 [Watch on Youtube: Vigilante Man - Bruce Springsteen (21-06-1988 Villa Park, Birmingham, England)](https://www.youtube.com/watch?v=YemLdhH1Ev8)
 
-**Vigilante Man
-Recorded:** Late 1987 – Early 1988
+**Vigilante Man**
+**Recorded:** Late 1987 – Early 1988
 **Released:** *Folkways: A Vision Shared: A Tribute To Woody Guthrie And Leadbelly* (1988)
 **First performed:** May 19, 1988 (New York, NY)
 **Last performed:** June 21, 1988 (Birmingham, England)

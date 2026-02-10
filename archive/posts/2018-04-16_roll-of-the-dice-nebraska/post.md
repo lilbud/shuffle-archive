@@ -30,8 +30,8 @@ I listen intently every time, noticing a different catch in his voice, feeling a
 
 And I never, ever sing along.
 
-**Nebraska
-Recorded:** December 1981-January 1982**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)**First performed:** July 1, 1984 (St. Paul, MN)
+**Nebraska**
+**Recorded:** December 1981-January 1982**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)**First performed:** July 1, 1984 (St. Paul, MN)
 **Last performed:** October 27, 2020 (Colts Neck, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

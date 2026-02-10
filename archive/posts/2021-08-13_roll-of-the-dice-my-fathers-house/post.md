@@ -114,7 +114,7 @@ I am my father's house now, and as long as I'm here, he has a home.
 (I'm going to take a short break while I join my family in remembering my father. I'll be back in a week.)
 
 **My Father's House
-Recorded:** May 25, 1982
+**Recorded:** May 25, 1982
 **Released:** *Nebraska* (1982), *Chapter and Verse* (2016)
 **First performed:** July 26, 1984 (Toronto, ON)
 **Last performed:** September 4, 2021 (New York City, NY)

@@ -73,8 +73,8 @@ Bruce figured that out early on, and that's why we connect to his music on such 
 
 [Watch on Youtube: Power of Prayer @brucespringsteen](https://www.youtube.com/watch?v=otO5hkhocZE)
 
-**The Power of Prayer
-Recorded:** November 2019
+**The Power of Prayer**
+**Recorded:** November 2019
 **Released:** *Letter to You* (2020)
 **First performed:** November 6, 2023(New York City, NY)
 **Last performed:** November 6, 2023 (New York City, NY)

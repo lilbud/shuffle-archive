@@ -38,6 +38,6 @@ For their one and only true team-up, they covered one of rock's true classics: T
 
 [Watch Video Highlight](https://videopress.com/embed/J0EJvuS2)
 
-**I Fought the Law
-First performed:** June 20, 1978 (Morrison, CO)
+**I Fought the Law**
+**First performed:** June 20, 1978 (Morrison, CO)
 **Last performed:** February 18, 2017 (Hunter Valley, Australia)

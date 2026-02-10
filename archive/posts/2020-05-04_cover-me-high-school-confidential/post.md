@@ -26,6 +26,6 @@ Finally animated, Bruce opens the show with "High School Confidential."
 
 It was an inspired choice by a rock star who was also a huge film buff. Because the right way to follow a campy opening shtick like that has to be with the title song from one of the campiest films ever.
 
-**High School Confidential
-First performed:** August 14, 1978 (Hampton, VA)
+**High School Confidential**
+**First performed:** August 14, 1978 (Hampton, VA)
 **Last performed:** November 5, 2022 (Los Angeles, CA)

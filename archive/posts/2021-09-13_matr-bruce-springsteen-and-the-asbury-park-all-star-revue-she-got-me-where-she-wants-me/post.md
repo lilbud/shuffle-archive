@@ -24,6 +24,6 @@ As for Southside, he was back in action pretty quickly. Here he is back where he
 
 [Watch on Youtube: She Got Me Where She Wants Me (Stone Pony Rehearsal, 1977 / Mono)](https://www.youtube.com/watch?v=LgDFjxLJ5B0)
 
-**She Got Me Where She Wants Me
-First performed:** May 12, 1977 (Red Bank, NJ)
+**She Got Me Where She Wants Me**
+**First performed:** May 12, 1977 (Red Bank, NJ)
 **Last performed:** May 13, 1977 (Red Bank, NJ)

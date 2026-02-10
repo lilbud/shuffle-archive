@@ -71,7 +71,7 @@ Here's one of Bruce's best recent performances, from the Wrecking Ball Tour in 2
 "I'm Goin' Down" continued to turn up throughout Bruce's 2016 River Tour and 2017 Australian Tour, so here's hoping it'll be back for another go-round soon.
 
 **I'm Goin' Down
-Recorded:**May 13, 1982
+**Recorded:**May 13, 1982
 **Released:** *Born in the U.S.A.* (1984)
 **First performed:** August 17, 1984 (East Rutherford, NJ)
 **Last performed:** February 18, 2017 (Hunter Valley, Australia)

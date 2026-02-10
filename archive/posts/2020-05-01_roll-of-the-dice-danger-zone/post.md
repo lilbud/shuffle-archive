@@ -44,8 +44,8 @@ But the thing I find most fascinating about "Danger Zone" is that it's so unlike
 
 We'll very likely never know how "Danger Zone" might have turned out, and that's too bad. I suspect it would have been a beautiful and unique addition to his catalog.
 
-**Danger Zone
-Recorded:** March-April 1981 (demo)
+**Danger Zone**
+**Recorded:** March-April 1981 (demo)
 **Never released**
 **Never performed**
 

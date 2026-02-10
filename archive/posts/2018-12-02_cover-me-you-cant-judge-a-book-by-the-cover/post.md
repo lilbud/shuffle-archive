@@ -17,6 +17,6 @@ A bit slower than Bo Diddley's typical beat, "You Can't Judge the Book by the Co
 The Castiles sped it up a bit and left off Bo Diddley's ad lib flourishes, and the result is a respectful cover by a very young band with a lot of potential.
 
 **You Can't Judge a Book by the Cover
-Released:** *Chapter & Verse* (2016)
+**Released:** *Chapter & Verse* (2016)
 **First performed:** September 16, 1967
 **Last performed:** September 16, 1967

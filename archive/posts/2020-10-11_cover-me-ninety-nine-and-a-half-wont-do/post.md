@@ -27,5 +27,5 @@ Or two-off, I suppose, to be accurate. That clip above is the one most fans have
 [Watch Video Highlight](https://videopress.com/embed/ApN9htUF)
 
 **Ninety-Nine and a Half (Won't Do)
-First performed:** June 5, 1992 (Los Angeles, CA)
+**First performed:** June 5, 1992 (Los Angeles, CA)
 **Last performed:** July 25, 1992 (East Rutherford, NJ)

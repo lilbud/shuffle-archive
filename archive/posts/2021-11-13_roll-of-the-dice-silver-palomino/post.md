@@ -102,8 +102,8 @@ As for our narrator, he rides in red, the color of blood and life, a nightly vis
 
 [Watch on Youtube: Silver Palomino (solo acoustic) Bruce Springsteen 4/25/2005 Detroit, MI](https://www.youtube.com/watch?v=F20vN0Fs8ZU)
 
-**Silver Palomino
-Recorded:** 1996-97 (core recording), 2004 (strings)
+**Silver Palomino**
+**Recorded:** 1996-97 (core recording), 2004 (strings)
 **Released:** *Devils & Dust* (2005)
 **First performed:** April 21, 2005 (Asbury Park, NJ)
 **Last performed:** October 28, 2005 (Boston, MA)

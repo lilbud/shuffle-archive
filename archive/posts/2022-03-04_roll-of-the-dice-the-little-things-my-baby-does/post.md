@@ -54,7 +54,7 @@ If there's anything of interest here, it's the similarity in content and structu
 Locked in the vault for decades, Bruce finally released "The Little Things (My Baby Does)" on his double-album *The Promise* in 2010, along with the similarly romantic and nostalgic "[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/), "[Gotta Get That Feeling](https://estreetshuffle.com/index.php/2021/02/08/roll-of-the-dice-gotta-get-that-feeling/)" and "Spanish Eyes." All of them remain un- or under-played roadside attractions on a highway not taken.
 
 **The Little Things (My Baby Does)
-Recorded:** August 15, 1977 (core track), July 2010 (vocals)
+**Recorded:** August 15, 1977 (core track), July 2010 (vocals)
 **Released:** *The Promise* (2010)
 **Never performed**
 

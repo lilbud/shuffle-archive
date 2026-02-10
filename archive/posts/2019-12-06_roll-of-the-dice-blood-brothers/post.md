@@ -138,8 +138,8 @@ Perhaps he felt the original lyrics best suited the contemplative acoustic arran
 
 In any arrangement, "Blood Brothers" continues to be an emotional rarity, long and fondly remembered by those present to hear it.
 
-**Blood Brothers
-Recorded:** January 1995
+**Blood Brothers**
+**Recorded:** January 1995
 **Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)
 **First performed:** April 4, 1995 (New York City, NY)
 **Last performed:** January 22, 2017 (Perth, Australia)

@@ -12,7 +12,7 @@ Here's Warren and Bruce's award-winning performance.
 
 [Watch on Youtube: Bruce Springsteen & Warren Zevon - Disorder In The House](https://www.youtube.com/watch?v=iWElAh8iLWs)
 
-**Disorder in the House
-Recorded:** December 18, 2002
+**Disorder in the House**
+**Recorded:** December 18, 2002
 **Released:** *The Wind* (2003)
 **Never performed**

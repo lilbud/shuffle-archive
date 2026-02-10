@@ -18,6 +18,6 @@ The 72-year-old Burgess carried the song commendably, but there's no candle held
 
 Still, this was a one-time-only performance of one of the earliest hard-rocking classics, and we're fortunate to have it captured in such great quality.
 
-**We Wanna Boogie
-First performed:** October 19, 2001 (Red Bank, NJ)
+**We Wanna Boogie**
+**First performed:** October 19, 2001 (Red Bank, NJ)
 **Last performed:** October 19, 2001 (Red Bank, NJ)

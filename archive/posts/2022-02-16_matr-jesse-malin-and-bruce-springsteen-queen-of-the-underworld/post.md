@@ -18,6 +18,6 @@ We listened to one of those two songs, "[Wendy](https://estreetshuffle.com/index
 
 Jesse would go on to perform with Bruce eight more times over the sixteen years that followed, and they collaborated in the studio as well, on "[Broken Radio](https://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/)." But while they would never play it again after those first shows in 2003, it was "Queen of the Underworld" that introduced and made Jesse Malin a welcome member of E Street Nation.
 
-**Queen of the Underworld
-First performed:** December 5, 2003 (Asbury Park, NJ)
+**Queen of the Underworld**
+**First performed:** December 5, 2003 (Asbury Park, NJ)
 **Last performed:** December 8, 2003 (Asbury Park, NJ)

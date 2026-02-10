@@ -92,7 +92,7 @@ On one occasion, Bruce even attempted it acoustically on the piano, with uneven 
 Still, in the right setting, at the right moment, and with the right feeling, "Mary's Place" can be the adrenaline shot that lifts an already stellar show into the stratosphere. While never commonplace in the years since 2004, "Mary's Place" makes return appearances from time to time and will likely continue to do so for as long as fans continue to meet there... and turn it up.
 
 **Mary's Place
-Recorded:** February-March 2002
+**Recorded:** February-March 2002
 **Released:** *The Rising* (2002)
 **First performed:** July 25, 2002 (Asbury Park, NJ)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)

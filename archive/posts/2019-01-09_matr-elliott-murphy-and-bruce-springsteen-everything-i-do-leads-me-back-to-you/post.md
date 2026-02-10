@@ -26,6 +26,6 @@ That Murphy is clever like a fox. Put a verse like that in front of Bruce and od
 "Everything I Do (Leads Me Back to You)" garnered neither widespread attention nor acclaim upon it's release, but it remains a lovely under-the-radar track with two beautiful vocal performances.
 
 **Everything I Do (Leads Me Back to You)
-Recorded:** mid-1995
+**Recorded:** mid-1995
 **Released:** *Selling the Gold* (1995)
 **Never performed live**

@@ -8,6 +8,6 @@ Bonus footage: Bruce and the E Street Band cover "London Calling" in concert at 
 
 [Watch on Youtube: "London Calling" at the Hard Rock Calling Festival](https://www.youtube.com/watch?v=9o_YqNN4cDQ)
 
-**London Calling
-First performed:** February 23, 2003 (New York City, NY)
+**London Calling**
+**First performed:** February 23, 2003 (New York City, NY)
 **Last performed:** October 29, 2009 (New York City, NY)

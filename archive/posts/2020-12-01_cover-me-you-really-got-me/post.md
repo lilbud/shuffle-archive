@@ -26,6 +26,6 @@ So why no repeat performances since?
 
 Well... you really got me.
 
-**You Really Got Me
-First performed:** January 17, 1990 (New York City, NY)
+**You Really Got Me**
+**First performed:** January 17, 1990 (New York City, NY)
 **Last performed:** May 5, 2009 (Charlottesville, VA)

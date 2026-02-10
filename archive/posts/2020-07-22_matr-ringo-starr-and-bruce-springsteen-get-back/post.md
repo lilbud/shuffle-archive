@@ -24,6 +24,6 @@ For those fortunate enough to have been there, it was a special night, and not j
 
 (Interested in checking out some of the other songs they played that night? Check out entries on "[Photograph](https://estreetshuffle.com/index.php/2018/04/29/matr-bruce-springsteen-and-ringo-starr-and-his-all-starr-band-photograph/)" and "[With a Little Help From My Friends](https://estreetshuffle.com/index.php/2018/06/03/matr-ringo-starrs-all-starr-band-bruce-springsteen-and-john-candy-with-a-little-help-from-my-friends/).")
 
-**Get Back
-First performed:** August 11, 1989 (Holmdel, NJ)
+**Get Back**
+**First performed:** August 11, 1989 (Holmdel, NJ)
 **Last performed:** August 11, 1989 (Holmdel, NJ)

@@ -24,6 +24,6 @@ It's been more than a dozen years since Patti's last album; I think we're more t
 
 And since Bruce doesn't seem to be quite ready to tour yet, is it too much to ask for a few solo Scialfa shows?
 
-**Loves Glory
-First performed:** January 31, 1998 (Red Bank, NJ)
+**Loves Glory**
+**First performed:** January 31, 1998 (Red Bank, NJ)
 **Last performed:** January 31, 1998 (Red Bank, NJ)

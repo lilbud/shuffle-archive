@@ -145,8 +145,8 @@ But regardless of whether it takes its '77 form or '78 one, "Prove It All Night"
 
 [Watch on Youtube: Prove It All Night (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=5dHKuImHsI0)
 
-**Prove It All Night
-Recorded:** September 12-16, 1977
+**Prove It All Night**
+**Recorded:** September 12-16, 1977
 **Released:** *Darkness on the Edge of Town* (1977), *The Essential Bruce Springsteen* (2003)
 **First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)

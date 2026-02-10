@@ -18,6 +18,6 @@ Bruce made his surprise appearance mid-set, and the sold-out local crowd (includ
 
 That performance turned out to be the last time Brian and Bruce would perform together on stage (to date, at least), but if we're not lucky enough to get an encore someday, at least that last one was a high-water mark.
 
-**American Slang
-First performed:** December 9, 2011 (Asbury Park, NJ)
+**American Slang**
+**First performed:** December 9, 2011 (Asbury Park, NJ)
 **Last performed:** December 9, 2011 (Asbury Park, NJ)

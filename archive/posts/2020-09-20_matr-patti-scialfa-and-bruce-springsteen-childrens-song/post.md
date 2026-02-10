@@ -21,6 +21,6 @@ Bruce's participation might have drawn more attention (and therefore sales) to t
 If you managed to snap up one of those rare original CDs, congratulations on scoring one of the more elusive original Springsteen recordings and for supporting an important cause–eight dollars of your purchase went toward helping make pregnancy and childbirth safe for women everywhere.
 
 **Children's Song
-Recorded:** 2011
+**Recorded:** 2011
 **Released:** *Every Mother Counts* (2011)
 **Never performed**

@@ -31,8 +31,8 @@ It's hard to believe there might still be unreleased tracks left over from the R
 
 Fingers crossed for a welcome surprise in that long-awaited *Tracks 2*...
 
-**Slow Fade
-Recorded:** February 5, 1980 (rehearsals only)
+**Slow Fade**
+**Recorded:** February 5, 1980 (rehearsals only)
 **Never released**
 **Never performed**
 

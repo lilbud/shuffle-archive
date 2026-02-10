@@ -46,6 +46,6 @@ Bruce and the Tangiers Blues Band played "Down the Road Apiece" one more time to
 
 We might be in a pandemic pause at the moment, but when it finally lifts there are gonna be some *epic* jams on the Jersey Shore, and odds are good that we'll see another Springsteen performance of "Down the Road Apiece."
 
-**Down the Road Apiece
-First performed:** July 10, 1971 (Lincroft, NJ)
+**Down the Road Apiece**
+**First performed:** July 10, 1971 (Lincroft, NJ)
 **Last performed:** April 13, 2019 (New York City, NY)

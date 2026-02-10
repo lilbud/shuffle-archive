@@ -16,7 +16,7 @@ For more background on *White Lines* and Soozie herself, take a listen to this r
 
 
 
-**White Lines
-Recorded:** May 2002
+**White Lines**
+**Recorded:** May 2002
 **Released:** *White Lines* (2003)
 **Never performed**

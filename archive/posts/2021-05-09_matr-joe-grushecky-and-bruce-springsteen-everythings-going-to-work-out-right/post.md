@@ -30,5 +30,5 @@ I only have a minor quibble with "Everything's Going to Work Out Right"–Joe cl
 Maybe it's the teacher in him.
 
 **Everything's Going to Work Out Right
-First performed:** November 3, 2000 (Asbury Park, NJ)
+**First performed:** November 3, 2000 (Asbury Park, NJ)
 **Last performed:** December 2, 2004 (Pittsburgh, PA)

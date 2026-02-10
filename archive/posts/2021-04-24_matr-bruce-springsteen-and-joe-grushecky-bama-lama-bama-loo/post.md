@@ -24,6 +24,6 @@ For a less secure artist, it could have been a train wreck moment, but Bruce can
 
 I bet he wished he had a teleprompter that night, though.
 
-**Bama Lama Bama Loo
-First performed:** September 18, 1982 (Red Bank, NJ)
+**Bama Lama Bama Loo**
+**First performed:** September 18, 1982 (Red Bank, NJ)
 **Last performed:** August 20, 1994 (Long Branch, NJ)

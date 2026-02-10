@@ -32,8 +32,8 @@ When I point out its relative rarity in concert, Joe admits "A Good Life" has ta
 
 "I have a feeling we'll be playing some new songs and some different songs when we get back out there. We're itching to play live again."
 
-**A Good Life
-Recorded:** February 2006
+**A Good Life**
+**Recorded:** February 2006
 **Released:** *A Good Life* (2006)
 **First performed:** December 2, 2006 (Sayreville, NJ)
 **Last performed:** November 4, 2011 (Pittsburgh, PA)

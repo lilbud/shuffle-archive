@@ -26,6 +26,6 @@ The band recovered with their next album, but after a few years in the spotlight
 
 Marah never really went away–they just soldiered on with different line-ups (I was fortunate to catch one of their sets at HoagieNation a few years back.) But those original Kids In Philly sure had a great run–they got to record with their idol and wrote their chapter in the long, storied musical history of Philadelphia.
 
-**Float Away
-Recorded:** February 11, 2002
+**Float Away**
+**Recorded:** February 11, 2002
 **Released:** *Float Away With the Friday Night Gods* (2002)**Never performed**

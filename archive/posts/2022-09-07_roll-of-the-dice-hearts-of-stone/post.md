@@ -96,8 +96,8 @@ Bruce gave "Hearts of Stone" its E Street stage debut the following year on the 
 
 Since then, "Hearts of Stone" has made a few more appearances at benefit performances with Joe Grushecky, but it missed the last E Street Band tour entirely. It's one of the songs I'm hoping to hear again at least once more on the next tour, though, because it's too strong a song to stay unsung.
 
-**Hearts of Stone
-Recorded:** October 14, 1977, 1998
+**Hearts of Stone**
+**Recorded:** October 14, 1977, 1998
 **Released:** *Hearts of Stone* (1978) (Southside Johnny vocal); *Tracks* (1998) (Bruce Springsteen vocal)
 **First performed:** November 26, 1988 (San Francisco, CA)
 **Last performed:** January 17, 2015 (Asbury Park, NJ)

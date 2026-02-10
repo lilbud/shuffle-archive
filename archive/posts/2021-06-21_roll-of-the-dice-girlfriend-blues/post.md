@@ -101,7 +101,7 @@ Sigh. Oh, Bruce...
 
 *(h/t to Eddy at Springsteenlyrics.com for his great work transcribing and documenting this one)*
 
-**Girlfriend Blues
+**Girlfriend Blues**
 Never recorded**
 **Never released**
 **First performed:** July 17, 1970 (Asbury Park, NJ)

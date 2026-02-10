@@ -30,6 +30,6 @@ Bruce and Jimmy's performance of "Oklahoma Hills" was a brighter and stronger on
 
 Other than one other performance in 2006 (where Bruce was one of about 20 guitar players on stage), these are Bruce's only two known performances of "Oklahoma Hills."
 
-**Oklahoma Hills
-First performed:** September 29, 1996 (Cleveland, OH)
+**Oklahoma Hills**
+**First performed:** September 29, 1996 (Cleveland, OH)
 **Last performed:** January 15, 2006 (New York City, NY)

@@ -165,8 +165,8 @@ That version of "Racing in the Street" is likely to stay a curiosity, but the or
 
 [Watch on Youtube: Bruce Springsteen- Racing in the Street Asbury Park 1996](https://www.youtube.com/watch?v=PiCrYEChi9Q)
 
-**Racing in the Street
-Recorded:** August 1977 (both versions)
+**Racing in the Street**
+**Recorded:** August 1977 (both versions)
 **Released:** *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*(1978), *The Promise* (2010, '78 version)
 **First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** June 26, 2023 (Gothenburg, Sweden)

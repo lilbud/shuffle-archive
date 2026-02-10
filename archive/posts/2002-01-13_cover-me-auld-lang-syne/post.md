@@ -14,8 +14,8 @@ Their arrangement is not exactly traditional, though—listen and enjoy.
 
 Happy new year to you, your family, and your community. Thanks for reading!
 
-**Auld Lang Syne
-First performed:** December 31, 1978 (Richfield, OH)
+**Auld Lang Syne**
+**First performed:** December 31, 1978 (Richfield, OH)
 **Last performed:** December 31, 1980 (Uniondale, NY)
 
 (c) December 31, 2018 by Ken Rosen

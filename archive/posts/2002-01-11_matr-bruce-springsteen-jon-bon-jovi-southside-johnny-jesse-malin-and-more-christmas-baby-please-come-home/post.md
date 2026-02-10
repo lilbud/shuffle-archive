@@ -43,7 +43,7 @@ Bruce's penultimate performance was one of his very best, and fortunately it was
 [Watch on Youtube: Christmas (Baby please come home) - Bruce Springsteen](https://www.youtube.com/watch?v=57-oIzaVS9s)
 
 **Christmas (Baby Please Come Home)
-First performed:** December 17, 2000 (Asbury Park, NJ)
+**First performed:** December 17, 2000 (Asbury Park, NJ)
 **Last performed:** December 8, 2003 (Asbury Park, NJ)
 
 (c) December 9, 2021 by Ken Rosen

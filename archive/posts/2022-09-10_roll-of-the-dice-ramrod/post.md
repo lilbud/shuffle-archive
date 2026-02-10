@@ -88,8 +88,8 @@ But no matter what the form, "Ramrod" is an opportunity for Bruce to cut loose, 
 
 [https://estreetshuffle.com/wp-content/uploads/2022/09/1978-12-28-Ramrod.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/09/1978-12-28-Ramrod.mp3?_=3)
 
-**Ramrod
-Recorded:** June 1979 – April 1980
+**Ramrod**
+**Recorded:** June 1979 – April 1980
 **Released:** *The River* (1980)
 **First performed:** December 28, 1978 (Pittsburgh, PA)
 **Last performed:** May 27, 2023 (Amsterdam, The Netherlands)

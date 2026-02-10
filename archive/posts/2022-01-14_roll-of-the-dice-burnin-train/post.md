@@ -70,7 +70,7 @@ May you live long and prosper.
 [Watch on Youtube: ~ Bruce Springsteen - Burnin' Train - Tampa, February 1, 2023 (multicam w/official audio) ~](https://www.youtube.com/watch?v=93LbbdUR3xs)
 
 **Burnin' Train
-Recorded:** ? – 2019
+**Recorded:** ? – 2019
 **Released:** *Letter to You* (2020)
 **First performed:** February 1, 2023 (Tampa, FL)
 **Last performed:** March 7, 2023 (Milwaukee, WI)

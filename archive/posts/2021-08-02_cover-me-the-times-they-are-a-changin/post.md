@@ -27,5 +27,5 @@ From the 1997 Kennedy Center Honors, here's Bruce Springsteen's only performance
 [Watch on Youtube: The Times They Are A-Changin' (Bob Dylan Tribute) - Bruce Springsteen - 1997 Kennedy Center Honors](https://www.youtube.com/watch?v=Wa0fOE-x84k)
 
 **The Times They Are A-Changin'
-First performed:** December 7, 1997 (Washington, DC)
+**First performed:** December 7, 1997 (Washington, DC)
 **Last performed:** December 7, 1997 (Washington, DC)

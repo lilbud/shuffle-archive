@@ -84,8 +84,8 @@ Watch this wonderfully filmed performance from London in 2012, pay attention to 
 
 https://youtu.be/C-dhZR5uTgY
 
-**We Are Alive
-Recorded:** 2011
+**We Are Alive**
+**Recorded:** 2011
 **Released:** *Wrecking Ball* (2012)
 **First performed:** March 9, 2012 (New York City, NY)
 **Last performed:** May 1, 2014 (Tampa, FL)

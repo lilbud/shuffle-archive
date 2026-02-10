@@ -131,8 +131,8 @@ These days, "Living Proof" is considered a rarity. Bruce has only played it a do
 
 [Watch Video Highlight](https://videopress.com/embed/uJ7EeWz5)
 
-**Living Proof
-Recorded:** July-December 1991
+**Living Proof**
+**Recorded:** July-December 1991
 **Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
 **First performed:** May 6, 1992 (New York City, NY)
 **Last performed:** August 30, 2016 (East Rutherford, NJ)

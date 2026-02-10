@@ -20,6 +20,6 @@ That was Bruce's one and only performance of the song, but that's may be for the
 
 Watch more great performances from *Roy Orbison and Friends: A Black & White Night* [here](https://estreetshuffle.com/?s=orbison+black+white+night).
 
-**Blue Bayou
-First performed:** September 30, 1987 (Los Angeles, CA)
+**Blue Bayou**
+**First performed:** September 30, 1987 (Los Angeles, CA)
 **Last performed:** September 30, 1987 (Los Angeles, CA)

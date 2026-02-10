@@ -8,6 +8,6 @@ The latter performance in particular features some lovely guitar work from Bruce
 
 [Watch on Youtube: Take It Easy/Our Lady Of The Well Jackson Browne & Bruce Springsteen Holmdel, NJ](https://www.youtube.com/watch?v=uoZE3iJKs8g)
 
-**Our Lady of the Well
-First performed:** September 22, 2015 (Red Bank, NJ)
+**Our Lady of the Well**
+**First performed:** September 22, 2015 (Red Bank, NJ)
 **Last performed:** September 21, 2017 (Holmdel, NJ)

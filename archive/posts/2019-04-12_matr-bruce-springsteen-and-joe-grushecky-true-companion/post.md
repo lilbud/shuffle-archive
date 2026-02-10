@@ -10,6 +10,6 @@ Curiously, even though it's the title track, "True Companion" is the only song o
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/04-True-Companion.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/04/04-True-Companion.mp3?_=2)
 
-**True Companion
-First played:** December 2, 2004 (Pittsburgh, PA)
+**True Companion**
+**First played:** December 2, 2004 (Pittsburgh, PA)
 **Last played:** December 2, 2004 (Pittsburgh, PA)

@@ -29,5 +29,5 @@ Take a listen below–it's one of my favorite tracks from a Springsteen bar gig.
 [Watch on Youtube: Bruce Springsteen, John Eddie, and Friends - "Bang a Gong (Get It On)" / "Route 66"](https://www.youtube.com/watch?v=9osA0jMFeBk)
 
 **(Get Your Kicks On) Route 66
-First performed:** September 1, 1971 (Long Branch, NJ)
+**First performed:** September 1, 1971 (Long Branch, NJ)
 **Last performed:** November 13, 1994 (Castaic, CA)

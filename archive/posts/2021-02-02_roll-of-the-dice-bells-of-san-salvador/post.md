@@ -58,8 +58,8 @@ At least one verse (or more likely the chorus) seems to be clear and distinct, t
 
 Whether Bruce ever finished the song and recorded it has yet to be revealed, but for hardcore Springsteen fans who enjoy tracing the development of Bruce's songwriting, these early demos of "Bells of San Salvador" provide a fascinating glimpse in to the days immediately following the River Tour.
 
-**Bells of San Salvador
-Recorded:** September – December 1981 (demos/rehearsals only)
+**Bells of San Salvador**
+**Recorded:** September – December 1981 (demos/rehearsals only)
 **Never released**
 **Never performed**
 

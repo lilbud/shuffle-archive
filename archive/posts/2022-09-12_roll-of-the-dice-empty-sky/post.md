@@ -59,8 +59,8 @@ In the years since, "Empty Sky" has been essentially relegated to the history bo
 
 
 
-**Empty Sky
-Recorded:** March-April, 2002
+**Empty Sky**
+**Recorded:** March-April, 2002
 **Released:** *The Rising* (2002)
 **First performed:** July 19, 2002 (Colts Neck, NJ)
 **Last performed:** July 14, 2012 (London, England)

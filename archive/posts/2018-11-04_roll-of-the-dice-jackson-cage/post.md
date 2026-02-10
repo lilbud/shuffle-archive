@@ -154,8 +154,8 @@ Here's one of those performances, from one of the very last full-album shows in 
 
 Will we see "Jackson Cage" again? If history is any indication, probably. Although it didn't show up in the brief 2004 Vote for Change and 2017 Australian tours, it hasn't skipped out a full E Street Band tour in over fifteen years. We haven't heard the last from our lifers.
 
-**Jackson Cage
-Recorded:** February-March, 1980
+**Jackson Cage**
+**Recorded:** February-March, 1980
 **Released:** *The River* (1980)
 **First performed:** October 3, 1980 (Ann Arbor, MI)
 **Last performed:** July 28, 1980 (Oslo, Norway)

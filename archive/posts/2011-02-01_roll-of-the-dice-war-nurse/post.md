@@ -31,8 +31,8 @@ The final line of the first two verses are curiously specific: Although the risi
 
 We're not likely to ever find out what Bruce was aiming for when he wrote "War Nurse." Even among Bruce's early demos, "War Nurse" is an obscure curiosity, one he's never publicly discussed or performed live.
 
-**War Nurse
-Recorded:** April 1972
+**War Nurse**
+**Recorded:** April 1972
 **Never released**
 **Never performed**
 

@@ -86,8 +86,8 @@ As soon as Bruce begins to play "Nothing Man," he loses the crowd; we can hear t
 
 It's been a long fifteen years since we've heard Bruce play "Nothing Man" in concert, and unless we're fortunate enough to get another solo tour down the road, I suspect we might have heard the last from it. Despite its absence from the stage, however, "Nothing Man" remains one of Bruce's most powerful songs.
 
-**Nothing Man
-Recorded:** Early 2002
+**Nothing Man**
+**Recorded:** Early 2002
 **Released:** *The Rising* (2002)
 **First performed:** September 30, 2002 (St. Paul, MN)
 **Last performed:** October 28, 2005 (Boston, MA)

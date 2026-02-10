@@ -105,8 +105,8 @@ For a song about an ex-lover carrying a torch he refuses to put down, I can't th
 
 [Watch on Youtube: Bruce Springsteen*Get your flowers On! *Back in Your Arms* Brisbane 14/02/17](https://www.youtube.com/watch?v=oQlkiVC3xis)
 
-**Back in Your Arms
-Recorded:** January 12, 1995
+**Back in Your Arms**
+**Recorded:** January 12, 1995
 **Released:** *Tracks* (1998)
 **First performed:** August 4, 1999 (East Rutherford, NJ)
 **Last performed:** February 14, 2017 (Brisbane, Australia)

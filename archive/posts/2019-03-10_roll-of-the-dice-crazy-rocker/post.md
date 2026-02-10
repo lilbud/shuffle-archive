@@ -24,8 +24,8 @@ Yeah, I know that's probably not gonna happen.
 
 But I can dream.
 
-**Crazy Rocker
-Recorded:** August 1977
+**Crazy Rocker**
+**Recorded:** August 1977
 **Never released**
 **Never performed**
 

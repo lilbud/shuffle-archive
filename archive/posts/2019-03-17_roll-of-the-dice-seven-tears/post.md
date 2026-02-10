@@ -33,8 +33,8 @@ By showing his sorrow on the outside, he prompts the people he encounters to ask
 
 "Seven Tears" is a masterful example of economy in songwriting, a complete tale with an emotional wallop in ninety seconds. It deserves and official release; let's hope Bruce includes it on that rumored *Born in the U.S.A.* box set.
 
-**Seven Tears
-Recorded:** February 15, 1983
+**Seven Tears**
+**Recorded:** February 15, 1983
 **Never released**
 **Never performed**
 

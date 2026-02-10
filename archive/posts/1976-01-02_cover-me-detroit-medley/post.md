@@ -90,8 +90,8 @@ And counting.
 
 [Watch on Youtube: Bruce Springsteen - Sydney, February 9, 2017 - Detroit Medley](https://www.youtube.com/watch?v=sut4A5aYFl8)
 
-**Detroit Medley
-Released:** *No Nukes* (1979), *Hammersmith Odeon London '75* (2005)
+**Detroit Medley**
+**Released:** *No Nukes* (1979), *Hammersmith Odeon London '75* (2005)
 **First performed:** September 23, 1975 (Ann Arbor, MI)
 **Last performed:** November 19, 2024 (Edmonton, AB)
 

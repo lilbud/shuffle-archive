@@ -48,6 +48,6 @@ Before he offered his solo performance, Bruce gave the original songwriter some 
 
 If Dorman hadn't long since passed, it might have been a sweet moment for the one-hit singer-songwriter who watched one artist after another reach an audience he was never able to reach on his own.
 
-**Mountain of Love
-First performed:** February 5, 1975 (Bryn Mawr, PA)
+**Mountain of Love**
+**First performed:** February 5, 1975 (Bryn Mawr, PA)
 **Last performed:** May 13, 2013 (Solna, Sweden)

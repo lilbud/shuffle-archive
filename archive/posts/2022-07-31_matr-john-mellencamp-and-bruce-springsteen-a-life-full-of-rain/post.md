@@ -28,7 +28,7 @@ It wasn't the first time Mellencamp praised Bruce's melodic talents. While most 
 
 It's not the kind of track one would expect from either John or Bruce (let alone together), but it's one that sticks with you long after the first listen.
 
-**A Life Full of Rain
-Recorded:** April 10, 2021
+**A Life Full of Rain**
+**Recorded:** April 10, 2021
 **Released:** *Strictly a One-Eyed Jack* (2022)
 **Never performed**

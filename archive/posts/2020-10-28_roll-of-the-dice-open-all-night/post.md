@@ -108,8 +108,8 @@ This incredible version of "Open All Night" from their final Dublin stand may be
 
 Bruce brought "Open All Night" (in its new arrangement) back for nineteen outings with the E Street Band in the years since, but no E Street performance has ever equaled the best Sessions ones.
 
-**Open All Night
-Recorded:** January 3, 1982
+**Open All Night**
+**Recorded:** January 3, 1982
 **Released:** *Nebraska* (1982)
 **First performed:** October 3, 1982 (Asbury Park, NJ)
 **Last performed:** February 8, 2014 (Perth, Australia)

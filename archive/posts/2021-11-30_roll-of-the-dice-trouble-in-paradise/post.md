@@ -98,8 +98,8 @@ Because once we start to distance, the masks come on, trust frays, and doubt cre
 
 And when we start doubting what we're sure of, God have mercy.
 
-**Trouble in Paradise
-Recorded:** December 1, 1989
+**Trouble in Paradise**
+**Recorded:** December 1, 1989
 **Released:** *Tracks* (1998)
 **Never performed**
 

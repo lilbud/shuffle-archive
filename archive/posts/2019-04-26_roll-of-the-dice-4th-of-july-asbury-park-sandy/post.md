@@ -156,7 +156,7 @@ And we'll love you forever.
 [Watch on Youtube: 4th Of July, Asbury Park (Sandy) (Live Video Version featuring Danny Federici)](https://www.youtube.com/watch?v=kB1d0eey5ho)
 
 **4th of July, Asbury Park (Sandy)
-Recorded:** August 9 – September 23, 1973
+**Recorded:** August 9 – September 23, 1973
 **Released:** *The Wild, The Innocent & The E Street Shuffle* (1973), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
 **First performed:** April 23, 1973 (Hartford, CT)
 **Last performed:** November 16, 2019 (Asbury Park, NJ)

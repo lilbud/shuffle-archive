@@ -34,7 +34,7 @@ Within a matter of weeks, Bruce would leave his own band and head west to start 
 
 But that's a story for another day.
 
-**Living in Rock and Roll
+**Living in Rock and Roll**
 Never recorded**
 **Never released**
 **First performed:** October 30, 1971 (Richmond, VA)

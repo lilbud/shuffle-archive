@@ -119,8 +119,8 @@ Given his outspokenness about the Trump administration, we can imagine how sorel
 
 What an album that might have been.
 
-**Rainmaker
-Recorded:** 2003-2020
+**Rainmaker**
+**Recorded:** 2003-2020
 **Released:** *Letter to You* (2020)
 **Never performed**
 

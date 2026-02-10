@@ -27,5 +27,5 @@ Or so it seemed, at least, until Bruce made a surprise appearance at the Austin 
 [Watch on Youtube: Blowing Down the Road - Alejandro Escovedo, Joe Ely and Bruce Springsteen](https://www.youtube.com/watch?v=huhY__xehm4)
 
 **Blowin' Down This Road
-First performed:** May 19, 1993 (Dublin, Ireland)
+**First performed:** May 19, 1993 (Dublin, Ireland)
 **Last performed:** March 14, 2012 (Austin, TX)

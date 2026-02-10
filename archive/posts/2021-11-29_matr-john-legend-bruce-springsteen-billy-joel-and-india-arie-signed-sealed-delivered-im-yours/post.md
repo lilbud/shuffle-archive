@@ -19,5 +19,5 @@ And if audio from that performance is rare, video is scarcer still. But check th
 [Watch on Youtube: Barack Obama Signed, Sealed & Delivered at NYC Change Rocks](https://www.youtube.com/watch?v=Gz20pPR3yXU)
 
 **Signed, Sealed, Delivered I'm Yours
-First performed:** October 16, 2008 (New York City, NY)
+**First performed:** October 16, 2008 (New York City, NY)
 **Last performed:** October 16, 2008 (New York City, NY)

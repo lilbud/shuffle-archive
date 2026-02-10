@@ -22,6 +22,6 @@ It's not bad. It's even fun, and the audience certainly seemed appreciative.
 
 But (in my opinion, at least) the passion of Townsend's original is lost in Bruce's version, and that's too bad–it might have made for a breathtaking cover in the right arrangement.
 
-**For Your Love
+**For Your Love**
 First performed (soundcheck only):** May 23, 1988 (New York City, NY)
 **Last performed (soundcheck only):** May 23, 1988 (New York City, NY)

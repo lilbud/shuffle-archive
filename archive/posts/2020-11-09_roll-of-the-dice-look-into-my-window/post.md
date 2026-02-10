@@ -36,7 +36,7 @@ As for the music, "Look Into My Window" is clearly Kinks-inspired. Two weeks pri
 
 Although Bruce would quickly grow by leaps and bounds in both his lyrical skill and originality, he'd continue to wear his musical influences on his sleeve. We're not aware of any other known performances of "Look Into My Window" (although again, documents from this period are rare), so we might consider this song just a stop along the early journey of a budding songwriter.
 
-**Look Into My Window
+**Look Into My Window**
 Never recorded**
 **Never released**
 **First performed:** September 30, 1967 (Freehold, NJ)

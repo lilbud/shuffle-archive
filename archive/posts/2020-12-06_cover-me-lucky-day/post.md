@@ -16,6 +16,6 @@ In those pre-prompter days, Bruce didn't have lyrics on demand, so much of what 
 
 Bruce has never played "Lucky Day" in concert, and as far as we know he never even soundchecked it again. But years later, he would form a friendship with one of the artists on the track that would lead to several on-stage and on-disc collaborations.
 
-**Lucky Day
-First performed:** March 23, 1988 (Atlanta, GA – soundcheck only)
+**Lucky Day**
+**First performed:** March 23, 1988 (Atlanta, GA – soundcheck only)
 **Last performed:** March 23, 1988 (Atlanta, GA – soundcheck only)

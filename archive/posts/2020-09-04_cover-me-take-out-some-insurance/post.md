@@ -14,6 +14,6 @@ With barely a single verse of vocals, we can quibble over whether this truly cou
 
 Like many BSB-era set list selections, this was a one-time-only (that we know of, at least) performance. Seek out these recordings if you can.
 
-**Take Out Some Insurance
-First performed:** February 4, 1972 (Richmond, VA)
+**Take Out Some Insurance**
+**First performed:** February 4, 1972 (Richmond, VA)
 **Last performed:** February 4, 1972 (Richmond, VA)

@@ -142,7 +142,7 @@ Never but once, that is: at the second of a pair of postscript shows to his High
 
 [Watch on Youtube: Bruce Springsteen - 2014-05-23 Pittsburgh - Outlaw Pete (solo acoustic)](https://www.youtube.com/watch?v=qGXuPFhviRw)
 
-**Outlaw Pete
-Recorded:** 2007-2008**Released:** *Working on a Dream (2009)***First performed:** March 23, 2009 (Asbury Park, NJ)**Last performed:** May 23, 2014 (Pittsburgh, PA)
+**Outlaw Pete**
+**Recorded:** 2007-2008**Released:** *Working on a Dream (2009)***First performed:** March 23, 2009 (Asbury Park, NJ)**Last performed:** May 23, 2014 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

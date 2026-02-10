@@ -16,6 +16,6 @@ Bruce took two brief runs through the song on that late summer day, the first in
 
 "Guess Things Happen That Way" never made it into Bruce's set list that night or any other. It joins a handful of lost classics only known to us thanks to the efforts of surreptitious bootleggers.
 
-**Guess Things Happen That Way
-First performed:** September 20, 1978 (Passaic, NJ) — soundcheck only
+**Guess Things Happen That Way**
+**First performed:** September 20, 1978 (Passaic, NJ) — soundcheck only
 **Last performed:** September 20, 1978 (Passaic, NJ) — soundcheck only

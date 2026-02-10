@@ -49,7 +49,7 @@ Besides some metrical similarities that may well be coincidental, that last vers
 
 It's a fan's frustration to have so many artifacts of this key progenitor of two iconic songs and yet not a single recording. We can only hope that somewhere in the depths of Bruce's vault lies a demo that might someday be released into the wild.
 
-**Glory Road
+**Glory Road**
 Never recorded**
 **Never performed**
 

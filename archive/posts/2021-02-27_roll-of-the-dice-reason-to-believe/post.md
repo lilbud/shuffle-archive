@@ -134,8 +134,8 @@ So we best believe that Bruce's Greenbaum-esque arrangement for "Reason to Belie
 
 Bruce's 1982 recording of "Reason to Believe" was a question, but when he performs it today, it's an answer.
 
-**Reason to Believe
-Recorded:** January 3, 1982
+**Reason to Believe**
+**Recorded:** January 3, 1982
 **Released:** *Nebraska* (1982)
 **First performed:** July 1, 1984 (St. Paul, MN)
 **Last performed:** July 11, 2016 (Paris, France)

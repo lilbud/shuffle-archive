@@ -129,8 +129,8 @@ We are each The Prisoner, vulnerable and asking ourself: Dare we be Merlin?
 
 The Captain and his Sergeants are doing their best to dissuade us from even considering it.
 
-**Visitation at Fort Horn
-Recorded:** June 27, 1972
+**Visitation at Fort Horn**
+**Recorded:** June 27, 1972
 **Never released**
 **First performed:** February 1972
 **Last performed:** February 1972

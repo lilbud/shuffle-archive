@@ -109,8 +109,8 @@ Looking back on that day years later, Bruce marveled:
 
 *So on that day, Pete and myself and generations of young and old Americans – all colors, religious beliefs – I realized that sometimes things that come from the outside, they make their way in, to become a part of the beating heart of the nation. And on that day, when we sung that song, Americans – young and old, black and white, of all religious and political beliefs – were united, for a brief moment, by Woody's poetry.*
 
-**This Land Is Your Land
-Recorded:** December 28, 1980 (live)**Released:** *Live 1975-85* (1986)**First performed:** December 28, 1980 (Uniondale, NY)
+**This Land Is Your Land**
+**Recorded:** December 28, 1980 (live)**Released:** *Live 1975-85* (1986)**First performed:** December 28, 1980 (Uniondale, NY)
 **Last performed:** June 3, 2013 (Milan, Italy)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every month!

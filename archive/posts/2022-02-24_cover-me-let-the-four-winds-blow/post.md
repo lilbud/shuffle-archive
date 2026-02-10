@@ -28,6 +28,6 @@ By the time the band segues into "I'm Ready," the band is operating at full forc
 
 It's one of the finest moments of that transitional incarnation of the E Street Band, and while Bruce would cover Fats Domino again someday, it would never be quite like this.
 
-**Let the Four Winds Blow
-First performed:** January 6, 1973 (Cambridge, MA)
+**Let the Four Winds Blow**
+**First performed:** January 6, 1973 (Cambridge, MA)
 **Last performed:** August 28, 1997 (Hollywood, CA)

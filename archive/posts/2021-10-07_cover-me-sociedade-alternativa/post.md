@@ -18,6 +18,6 @@ Enjoy this professionally shot, Clearmountain-mixed, and Zimny-edited performanc
 
 Bruce may not have played there for 25 years, but by the end of that opening song that Rio crowd was part of E Street Nation.
 
-**Sociedade Alternativa
-First performed:** September 18, 2013 (São Paulo, Brazil)
+**Sociedade Alternativa**
+**First performed:** September 18, 2013 (São Paulo, Brazil)
 **Last performed:** September 21, 2013 (Rio De Janeiro, Brazil)

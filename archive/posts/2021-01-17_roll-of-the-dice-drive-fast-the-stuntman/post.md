@@ -105,7 +105,7 @@ Watch for the moment when our nine-year-old hero climbs his tree. The lighting i
 [Watch on Youtube: Drive Fast (The Stuntman) - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=ag-U2K5tWKY)
 
 **Drive Fast (The Stuntman)
-Recorded:** 2010-2018
+**Recorded:** 2010-2018
 **Released:** *Western Stars* (2019)
 **First performed:** April 2019 (Colts Neck, NJ)
 **Last performed:** April 2019 (Colts Neck, NJ)

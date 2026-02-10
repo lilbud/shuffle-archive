@@ -34,8 +34,8 @@ Bruce had a great time performing it on stage too. He featured "John Henry" prom
 
 But even if Bruce never performs "John Henry" again, we'll certainly be hearing versions from other artists. It's too much of an American story to ever go out of style.
 
-**John Henry
-Recorded:** March 19, 2005
+**John Henry**
+**Recorded:** March 19, 2005
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)
 **First performed:** April 20, 2006 (Asbury Park, NJ)
 **Last performed:** November, 21, 2006 (Belfast, Northern Ireland)

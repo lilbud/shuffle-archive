@@ -9,5 +9,5 @@ And the original, for comparison:
 [Watch on Youtube: I Still Look Good (For Sixty)](https://www.youtube.com/watch?v=hMLxxgUCpeo)
 
 **I Still Look Good (For Sixty)
-First performed:** May 22, 2014 (Pittsburgh, PA)
+**First performed:** May 22, 2014 (Pittsburgh, PA)
 **Last performed:** January 17, 2015 (Asbury Park, NJ)

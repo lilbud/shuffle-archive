@@ -58,8 +58,8 @@ Bruce has never seemed fully comfortable with "Two For the Road," and it's a dif
 
 I'd consider the odds to be pretty long against us hearing it again. Then again, I'd have said that every time he's played it, so who knows...
 
-**Two For the Road
-Recorded:** February 1987
+**Two For the Road**
+**Recorded:** February 1987
 **Released:** *Tunnel of Love* (B-side, 1987), *Tracks* (1998)
 **First performed:** August 1, 2005 (Cincinnati, OH)
 **Last performed:** May 22, 2014 (Pittsburgh, PA)

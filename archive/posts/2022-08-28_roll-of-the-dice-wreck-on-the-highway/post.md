@@ -86,8 +86,8 @@ Isn't that what Bruce's shows are all about, too?
 
 [Watch on Youtube: Bruce Springsteen Wreck On The Highway country version](https://www.youtube.com/watch?v=3RsuAJUAtlA)
 
-**Wreck on the Highway
-Recorded:** January – April, 1980
+**Wreck on the Highway**
+**Recorded:** January – April, 1980
 **Released:** *The River* (1980)
 **First performed:** October 3, 1980 (Ann Arbor, MI)
 **Last performed:** July 28, 2016 (Oslo, Norway)

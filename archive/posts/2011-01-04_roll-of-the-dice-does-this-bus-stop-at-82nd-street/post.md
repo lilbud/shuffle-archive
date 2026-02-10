@@ -102,7 +102,7 @@ So until we catch that bus again, here's one more performance to enjoy–the las
 [Watch on Youtube: Does This Bus Stop at 82nd Street - Bruce Springsteen - Perth Arena - 22-01-2017](https://www.youtube.com/watch?v=isGuAxRlZ-w)
 
 **Does This Bus Stop at 82nd Street?
-Recorded:** June 27-July 12, 1972
+**Recorded:** June 27-July 12, 1972
 **Released:** [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1972), *Tracks* (demo, 1998)
 **First performed:** August 10, 1972 (New York City, NY)
 **Last performed:** November 9, 2024 (Ottawa, Ontario)

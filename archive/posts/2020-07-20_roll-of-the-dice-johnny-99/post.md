@@ -180,8 +180,8 @@ Bruce shows no sign of reverting back to his original arrangement of "Johnny 99.
 
 But in the back of my mind, I'll be thinking about poor Ralph, locked away and forgotten.
 
-**Johnny 99
-Recorded:** January 3, 1982
+**Johnny 99**
+**Recorded:** January 3, 1982
 **Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)
 **First performed:** June 29, 1984 (St. Paul, MN)
 **Last performed:** August 30, 2023 (East Rutherford, NJ)

@@ -46,8 +46,8 @@ Bruce never finished either song (that we know of), although he would develop a 
 
 In the end, both "Stockton Boys" and "Stockton Girls" are curiosities, signposts on the road to *The River*.
 
-**Stockton Girls
-Recorded:** Autumn 1979 (home demo only)
+**Stockton Girls**
+**Recorded:** Autumn 1979 (home demo only)
 **Never released**
 **Never performed**
 

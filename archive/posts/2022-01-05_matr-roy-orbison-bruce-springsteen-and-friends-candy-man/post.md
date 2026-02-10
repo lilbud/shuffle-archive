@@ -18,6 +18,6 @@ Oh, and Bruce Springsteen of course. Bruce stays in the background on rhythm gui
 
 [Watch on Youtube: Roy Orbison - Candy Man (Black & White Night 30)](https://www.youtube.com/watch?v=0FTKYtQXbro)
 
-**Candy Man
-First performed:** September 30, 1987 (Los Angeles, CA)
+**Candy Man**
+**First performed:** September 30, 1987 (Los Angeles, CA)
 **Last performed:** September 30, 1987 (Los Angeles, CA)

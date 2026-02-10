@@ -55,7 +55,7 @@ But like much of the material from the too-short-lived BSB, "I Got to Have You B
 ***Note:** Some Springsteen resource sites refer to "I Got to Have You, Baby" as a cover of the Jimmy Jones and The Pretenders song, "I've Got to Have You, Baby." It's not. Other than sharing a title, the two songs have nothing in common. This is clearly a Springsteen original.*
 
 **I've Got Have You, Baby
-First performed:** September 1, 1971 (Long Branch, NJ)
+**First performed:** September 1, 1971 (Long Branch, NJ)
 **Last performed:** March 14, 1972 (Highlands, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

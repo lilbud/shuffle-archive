@@ -15,5 +15,5 @@ Among the highlights that evening: Patti's version of "We're Gonna Have a Real G
 To this day, that holiday evening remains the only time Bruce has ever played this Underground classic.
 
 **We're Gonna Have a Real Good Time Together
-First performed:** November 26, 1976 (New York City, NY)
+**First performed:** November 26, 1976 (New York City, NY)
 **Last performed:** November 26, 1976 (New York City, NY)

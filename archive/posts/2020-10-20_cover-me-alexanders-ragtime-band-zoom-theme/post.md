@@ -27,5 +27,5 @@ See what I mean? The only thing re-written about it is the song's title refrain,
 Other than that, though... well, let's just agree to treat this as a cover rather than an original. It seems the kindest thing to do.
 
 **Alexander's Ragtime Band (Zoom Theme)
-First performed:** May 14, 1971 (Asbury Park, NJ)
+**First performed:** May 14, 1971 (Asbury Park, NJ)
 **Last performed:** May 15, 1971 (Union, NJ)

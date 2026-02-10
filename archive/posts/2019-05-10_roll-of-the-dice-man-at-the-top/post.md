@@ -57,8 +57,8 @@ Performed in the same arrangement he used for the Born in the U.S.A. Tour, Bruce
 
 [Watch on Youtube: Bruce Springsteen - Man At The Top (Live from Kilkenny 2013) - Dubbed audio](https://www.youtube.com/watch?v=-evrNIjJLoc)
 
-**Man at the Top
-Recorded:** January 12, 1984
+**Man at the Top**
+**Recorded:** January 12, 1984
 **Released:** *Tracks* (1988)
 **First performed:** July 12, 1984 (East Troy, WI)
 **Last performed:** July 28, 2013 (Kilkenny, Ireland)

@@ -114,8 +114,8 @@ It's an unsettling ending, one that sticks with us much longer than the resoluti
 
 We'll take a listen to that one in a few days.
 
-**Richfield Whistle
-Recorded:** April 24, 1983
+**Richfield Whistle**
+**Recorded:** April 24, 1983
 **Never released**
 **Never performed**
 

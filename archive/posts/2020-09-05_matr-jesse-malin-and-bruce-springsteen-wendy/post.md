@@ -20,6 +20,6 @@ Oh, and that holiday show performance–that's a must watch. It's got just as mu
 
 Wendy's become a reliable crowd-pleaser since her debut, so if you're fortunate enough to catch Jesse in concert post-pandemic, you'll get a chance to meet her yourself.
 
-**Wendy
-First performed:** December 5, 2003 (Asbury Park, NJ)
+**Wendy**
+**First performed:** December 5, 2003 (Asbury Park, NJ)
 **Last performed:** December 8 ,2003 (Asbury Park, NJ)

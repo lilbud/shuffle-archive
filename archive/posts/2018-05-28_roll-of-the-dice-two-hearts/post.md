@@ -89,8 +89,8 @@ One more–this one solo, but remarkable for how heartfelt it is, and for how yo
 
 [Watch on Youtube: Bruce Springsteen - Two Hearts](https://www.youtube.com/watch?v=CsGLF8hHtT0)
 
-**Two Hearts
-Recorded:** 1980
+**Two Hearts**
+**Recorded:** 1980
 **Released:** *The River (1980), Live in New York City (2001)*
 **First performed:** October 6, 1980 (Richfield, OH)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)

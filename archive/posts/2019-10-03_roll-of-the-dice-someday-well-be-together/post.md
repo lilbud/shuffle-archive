@@ -39,7 +39,7 @@ It's just too bad Bruce didn't put more effort into the lyrics. I certainly don'
 Bruce has never performed it in concert, and I wouldn't lay odds of him doing so anytime soon. But "Someday (We'll Be Together") is still a perfectly serviceable if unremarkable deep cut and curiosity on *The Promise*.
 
 **Someday (We'll Be Together)
-Recorded:** September 26-30, 1977 (backing track), 2010 (vocals and modern elements)
+**Recorded:** September 26-30, 1977 (backing track), 2010 (vocals and modern elements)
 **Released:** *The Promise* (2010)
 **Never performed**
 

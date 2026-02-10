@@ -22,6 +22,6 @@ Among the songs they played that night was "Allentown," with Bruce and Billy tra
 
 "Allentown" was just one of the Billy Joel songs that Billy and Bruce performed that night–see "[The River of Dreams](https://estreetshuffle.com/index.php/2020/10/27/matr-billy-joel-and-bruce-springsteen-the-river-of-dreams/)," "[Movin' Out (Anthony's Song)](https://estreetshuffle.com/index.php/2020/04/27/matr-billy-joel-and-bruce-springsteen-movin-out-anthonys-song/)" and "[A Matter of Trust](https://estreetshuffle.com/index.php/2020/03/17/matr-billy-joel-and-bruce-springsteen-a-matter-of-trust/)" for more amazing one-time-only performances.
 
-**Allentown
-First performed:** October 16, 2008 (New York City, NY)
+**Allentown**
+**First performed:** October 16, 2008 (New York City, NY)
 **Last performed:** October 16, 2008 (New York City, NY)

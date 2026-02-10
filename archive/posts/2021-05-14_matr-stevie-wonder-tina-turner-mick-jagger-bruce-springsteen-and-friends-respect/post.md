@@ -16,6 +16,6 @@ I can't even tell which version they're performing–it sounds like a mash-up of
 
 Oh, and of course: Tina Turner, one of this year's newly announced Rock and Roll Hall of Fame inductees finally getting some long-deserved R-E-S-P-E-C-T.
 
-**Respect
-First performed:** January 18, 1989 (New York City, NY)
+**Respect**
+**First performed:** January 18, 1989 (New York City, NY)
 **Last performed:** April 25, 2004 (Asbury Park, NJ)

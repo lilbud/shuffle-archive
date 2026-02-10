@@ -16,6 +16,6 @@ That didn't stop it from being an important, influential song, however:
 
 On July 6, 1957, a fifteen-year-old Liverpool musician chose "Twenty Flight Rock" as his first song for his audition for a local band called The Quarrymen–and he played it so well that the young Paul McCartney was asked to join The Quarrymen by its leader, one John Lennon.
 
-**Twenty Flight Rock
-First performed:** July 23, 1982 (Asbury Park, NJ)
+**Twenty Flight Rock**
+**First performed:** July 23, 1982 (Asbury Park, NJ)
 **Last performed:** July 23, 1982 (Asbury Park, NJ)

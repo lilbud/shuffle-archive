@@ -14,6 +14,6 @@ Well, sort of. He's never "officially" performed it in concert, but if you were 
 
 How in the world The Boss resisted a rock and roll classic that seems tailor-made for him all these years is a question I can't answer. But at least we have this "unofficial" performance.
 
-**Big Boss Man
+**Big Boss Man**
 First performed (soundcheck only)**: May 6, 1988 (Tacoma, WA)
 **Last performed (soundcheck only)**: May 6, 1988 (Tacoma, WA)

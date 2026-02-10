@@ -15,5 +15,5 @@ Throughout the summer and into the fall of 1982, one of the best-kept open secre
 To this day, it remains the only time Bruce is known to have performed Carroll's overlooked shoulda-been-a-hit.
 
 **Rock Baby, Rock It
-First performed:** October 3, 1982 (Asbury Park, NJ)
+**First performed:** October 3, 1982 (Asbury Park, NJ)
 **Last performed:** October 3, 1982 (Asbury Park, NJ)

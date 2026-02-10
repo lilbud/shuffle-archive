@@ -76,8 +76,8 @@ The first is Bruce's opening number from a Labor Day concert in Philadelphia in 
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Factory (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=plaOhNjJeBg)
 
-**Factory
-Recorded:** October-November, 1977
+**Factory**
+**Recorded:** October-November, 1977
 **Released:** *Darkness on the Edge of Town* (1978)
 **First performed:** July 21, 1978 (Nashville, TN)
 **Last performed:** September 5, 2016 (Virginia Beach, VA)

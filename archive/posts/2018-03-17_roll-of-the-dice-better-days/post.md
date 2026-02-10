@@ -54,8 +54,8 @@ In concert, "Better Days" was a staple of the 1992 and 1993 tours, but it's only
 
 [Watch Video Highlight](https://videopress.com/embed/OBaFOsgK)
 
-**Better Days
-Recorded:** 1991-1992
+**Better Days**
+**Recorded:** 1991-1992
 **Released:** *Lucky Town* (1992), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
 **First performed:** May 6, 1992 (New York City, NY)
 **Last performed:** February 14, 2017 (Brisbane, Australia)

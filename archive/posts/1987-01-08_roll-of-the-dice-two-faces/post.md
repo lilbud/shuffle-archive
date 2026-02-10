@@ -103,8 +103,8 @@ We haven't heard from "Two Faces" since that 2005 tour. But it's only been as lo
 
 After all, Bruce warned us about his other face: *he'll never say goodbye.*
 
-**Two Faces
-Recorded:** January-April 1987
+**Two Faces**
+**Recorded:** January-April 1987
 **Released:** *Tunnel of Love* (1987)
 **First performed:** October 31, 1987 (Sea Bright, NJ)
 **Last performed:** October 9, 2005 (Uniondale, NY)

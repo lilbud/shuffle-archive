@@ -31,5 +31,5 @@ This time their performance was a true duet in a country swing arrangement, one 
 That duet was the last time "It's All Over Now" has appeared on a Springsteen set list to date, but since it has a habit of popping up in the strangest of places and circumstances, it'll almost certainly surface again someday. Let's just hope someone captures it when it does.
 
 **It's All Over Now
-First performed:** November 6, 1983 (Asbury Park, NJ)
+**First performed:** November 6, 1983 (Asbury Park, NJ)
 **Last performed:** August 24, 2008 (Kansas City, MO)

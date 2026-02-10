@@ -27,5 +27,5 @@ That was the first and only time Bruce has ever played "He's a Rebel" in concert
 We'll look at one of them in just a few days.
 
 **He's a Rebel
-First performed:** March 14, 2011 (New York City, NY)
+**First performed:** March 14, 2011 (New York City, NY)
 **Last performed:** March 14, 2011 (New York City, NY)

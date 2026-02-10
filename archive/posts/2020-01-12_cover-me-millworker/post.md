@@ -16,6 +16,6 @@ That was a one-time-only performance–but just a couple months later, Bruce wou
 
 "Millworker" was a fitting prologue for the year.
 
-**Millworker
-First performed:** February 6, 2006 (Los Angeles, CA)
+**Millworker**
+**First performed:** February 6, 2006 (Los Angeles, CA)
 **Last performed:** February 6, 2006 (Los Angeles, CA)

@@ -38,8 +38,8 @@ And when Bruce wound the tour down, "Old Dan Tucker" was one of the songs captur
 
 Curiously, though, while several Seeger Sessions songs have re-appeared in the years since, "Old Dan Tucker" isn't among them. It remains an artifact of Bruce's 2006 tour and hasn't been heard from since.
 
-**Old Dan Tucker
-Recorded:** March 19, 2005
+**Old Dan Tucker**
+**Recorded:** March 19, 2005
 **Released:** [*We Shall Overcome: The Seeger Sessions* (2006)](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)
 **First performed:** April 20, 2006 (Asbury Park, NJ)
 **Last performed:** November 21, 2006 (Belfast, Northern Ireland)

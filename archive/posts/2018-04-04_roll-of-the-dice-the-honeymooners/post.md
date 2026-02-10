@@ -44,8 +44,8 @@ The groom in "The Honeymooners" is wise enough to recognize the moment, to live 
 
 The Honeymooners shares one other trait with "County Fair:" the crickets in "County Fair" draw us into the magic of a summer night in a way that the music itself couldn't. In "The Honeymooners," listen just past the 1:50 mark, as a barking dog and passing car take us on that front porch as the music trails off. Is it intentional, or is it background noise? (Bruce recorded "The Honeymooners" at home, after all, so either is possible.) I don't know, but it's accidental it's also serendipitous, and it's a perfect way to end a perfect song about a day of perfect moments.
 
-**The Honeymooners
-Recorded:** February 22, 1987**Released:** *Tracks* (1998)
+**The Honeymooners**
+**Recorded:** February 22, 1987**Released:** *Tracks* (1998)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

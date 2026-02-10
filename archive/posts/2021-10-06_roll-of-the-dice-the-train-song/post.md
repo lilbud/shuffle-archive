@@ -65,8 +65,8 @@ The problem's in the execution.
 
 [Watch on Youtube: Steel Mill - The Train Song (Live At The Matrix 1970)](https://www.youtube.com/watch?v=BM7k_WmzfIM)
 
-**The Train Song
-Recorded:** February 22, 1970
+**The Train Song**
+**Recorded:** February 22, 1970
 **Never released**
 **First performed:** January 13, 1970 (San Francisco, CA)
 **Last performed:** January 13, 1970 (San Francisco, CA)

@@ -70,8 +70,8 @@ If only he'd realized that when recording the album.
 
 [Watch on Youtube: Bruce Springsteen - Soul Driver (rehearsal)](https://www.youtube.com/watch?v=ziVw8itIXVU)
 
-**Soul Driver
-Recorded:** January 1990
+**Soul Driver**
+**Recorded:** January 1990
 **Released:** *Human Touch* (1992)
 **First performed:** November 17, 1990 (Los Angeles, CA)
 **Last performed:** August 10, 2005 (Portland, OR)

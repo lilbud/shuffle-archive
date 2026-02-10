@@ -16,6 +16,6 @@ What's most impressive to me about that performance is the Indian-influenced arr
 
 Wherever it came from, this is a pretty daring choice and solid execution from a group of high school kids. Bruce was still only seventeen at the time; fame and greatness still lay ahead.
 
-**Eleanor Rigby
-First performed:** September 16, 1967 (Freehold, NJ)
+**Eleanor Rigby**
+**First performed:** September 16, 1967 (Freehold, NJ)
 **Last performed:** December 27, 1967 (Freehold, NJ)

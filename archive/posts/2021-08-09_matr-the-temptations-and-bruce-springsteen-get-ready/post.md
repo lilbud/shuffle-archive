@@ -30,6 +30,6 @@ Bruce Springsteen was on hand that night, and while he didn't contribute vocals 
 
 And yes, I realize that was an awfully long walk for an very small Springsteen contribution, but what can I say? I'm a completist.
 
-**Get Ready
-First performed:** January 18, 1989 (New York City, NY)
+**Get Ready**
+**First performed:** January 18, 1989 (New York City, NY)
 **Last performed:** January 18, 1989 (New York City, NY)

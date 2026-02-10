@@ -56,8 +56,8 @@ Here's that performance–its first in 46 years–performed by the original Bruc
 
 [Watch on Youtube: Ballad of Jesse James](https://www.youtube.com/watch?v=IJ-MMNnX_AE)
 
-**The Ballad of Jesse James
-Recorded:** March 14, 1972
+**The Ballad of Jesse James**
+**Recorded:** March 14, 1972
 **Released:** *Chapter and Verse* (2016)
 **First performed:** September 1, 1971 (Long Branch, NJ)
 **Last performed:** April 21, 2017 (Asbury Park, NJ)

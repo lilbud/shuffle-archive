@@ -163,8 +163,8 @@ Bruce's vocals are more gruff in the filmed version as well. Some might like tha
 
 [Watch on Youtube: Bruce Springsteen - Moonlight Motel (Film Version - Official Audio)](https://www.youtube.com/watch?v=k3N6IxnkW1k)
 
-**Moonlight Motel
-Recorded:** Unknown
+**Moonlight Motel**
+**Recorded:** Unknown
 **Released:** *Western Stars* (2019)
 **First performed:** April 2019
 **Last performed:** April 2019

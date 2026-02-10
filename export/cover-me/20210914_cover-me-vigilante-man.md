@@ -4,58 +4,82 @@
 #### Last Updated: January 03, 2024
 ![folkways.jpg](https://estreetshuffle.com/wp-content/uploads/2021/09/folkways.jpg)
 
-In late 1987, Bruce signed on to a Woody Guthrie tribute project called *Folkways: A Vision Shared*, produced by the late Harold Leventhal, who managed Guthrie along with Pete Seeger, Joan Baez, Judy Collins, and many other great folk artists.
-Bruce contributed not one but two songs to the project: We looked at the first one (“[I Ain’t Got No Home](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)“) a few years ago. Today we take a listen to the second–a reworking of Woody’s “Vigilante Man.”
+In late 1987, Bruce signed on to a Woody Guthrie tribute project called *Folkways: A Vision Shared*, produced by the late Harold Leventhal, who managed Guthrie along with Pete Seeger, Joan Baez, Judy Collins, and many other great folk artists.
+
+Bruce contributed not one but two songs to the project: We looked at the first one (“[I Ain’t Got No Home](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)“) a few years ago. Today we take a listen to the second–a reworking of Woody’s “Vigilante Man.”
+
 [Youtube: Vigilante Man - Woody Guthrie](https://www.youtube.com/watch?v=EcKbeSPE-uA)
-![](https://www.youtube.com/watch?v=EcKbeSPE-uA)
-As Guthrie originally conceived it, “Vigilante Man” was set in the same period as *The Grapes of Wrath.* The titular vigilantes were self-appointed “defenders” against the migrant workers fleeing the dust bowl for the promised land of California.
-It’s a fearful song bordering on paranoia. The song’s narrator keeps constant watch against an unseen threat, and any less than-friendly reception might become more sinister in the dead of night, like the man who slew Preacher Casey in Steinbeck’s novel.
+![](https://www.youtube.com/watch?v=EcKbeSPE-uA)
+
+As Guthrie originally conceived it, “Vigilante Man” was set in the same period as *The Grapes of Wrath.* The titular vigilantes were self-appointed “defenders” against the migrant workers fleeing the dust bowl for the promised land of California.
+
+It’s a fearful song bordering on paranoia. The song’s narrator keeps constant watch against an unseen threat, and any less than-friendly reception might become more sinister in the dead of night, like the man who slew Preacher Casey in Steinbeck’s novel.
+
 *Have you seen that vigilante man?*
 *Have you seen that vigilante man?*
 *Have you seen that vigilante man?*
-*I’ve been hearin’ his name all over the land*
+*I’ve been hearin’ his name all over the land*
+
 *Well what is a vigilante man?*
 *Tell me, what is a vigilante man?*
 *Has he got a gun and a club in his hand?*
-*Is that a vigilante man?*
+*Is that a vigilante man?*
+
 *Rainy night down in the engine house*
 *Sleepin’ just as still as a mouse*
 *Man come along and he chased us out in the rain*
-*Was that a vigilante man?*
+*Was that a vigilante man?*
+
 *Stormy days, we pass the time away*
 *Sleeping in some good warm place*
 *Man come along and we give him a little race*
-*Was that a vigilante man?*
+*Was that a vigilante man?*
+
 *Preacher Casey was just a working man*
 *And he said, “Unite, all you working men”*
 *Killed him in the river, some strange man*
-*Was that a vigilante man?*
+*Was that a vigilante man?*
+
 *Oh why does a vigilante man*
 *Why does a vigilante man*
 *Carry that sawed-off shotgun in his hand?*
-*Would he shoot his brother and sister down?*
+*Would he shoot his brother and sister down?*
+
 *I rambled ’round from town to town*
 *I rambled ’round from town to town*
 *And they herded us around like a wild herd of cattle*
-*Was that the vigilante men?*
+*Was that the vigilante men?*
+
 *Have you seen that vigilante man?*
 *Have you seen that vigilante man?*
-*I’ve heard his name all over the land*
-Years before Bruce recorded *The Ghost of Tom Joad*, he was taken enough with Guthrie’s sequel (side-quel?) to record it with the E Street Band sometime between completing his *Tunnel of Love* album and embarking on the tour.
-[https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3?_=1)
-<https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3>
-Bruce’s version leverages Guthrie’s lyrics, but he drops the verses that date the song to the Dust Bowl era. That simple omission makes the song resonate with contemporary urgency–it could have been written about the plight of the homeless and the dangers they face on the city streets.
-Musically, though, Bruce completely reinvents the song as a taut, suspenseful rocker. Listen with your eyes closed and you’ll see the narrator hiding and darting in the shadows, you’ll bear witness to violent scenes choreographed to Bruce’s guitar solo.
-It’s a terrific E Street Band recording, and the last one before Bruce put the band on hiatus. Yet it’s one of Bruce’s most under-the-radar tracks, with many fans unaware of its existence even though it merited an official music video, too.
+*I’ve heard his name all over the land*
+**Vigilante Man**
+Years before Bruce recorded *The Ghost of Tom Joad*, he was taken enough with Guthrie’s sequel (side-quel?) to record it with the E Street Band sometime between completing his *Tunnel of Love* album and embarking on the tour.
+
+[https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3?_=1)
+
+<https://estreetshuffle.com/wp-content/uploads/2021/09/13-Vigilante-Man-Bruce-Springsteen-online-audio-converter.com_.mp3>
+
+Bruce’s version leverages Guthrie’s lyrics, but he drops the verses that date the song to the Dust Bowl era. That simple omission makes the song resonate with contemporary urgency–it could have been written about the plight of the homeless and the dangers they face on the city streets.
+
+Musically, though, Bruce completely reinvents the song as a taut, suspenseful rocker. Listen with your eyes closed and you’ll see the narrator hiding and darting in the shadows, you’ll bear witness to violent scenes choreographed to Bruce’s guitar solo.
+
+It’s a terrific E Street Band recording, and the last one before Bruce put the band on hiatus. Yet it’s one of Bruce’s most under-the-radar tracks, with many fans unaware of its existence even though it merited an official music video, too.
+
 [Youtube: Bruce Springsteen - Vigilante Man](https://www.youtube.com/watch?v=eKXILNMXxs0)
-![](https://www.youtube.com/watch?v=eKXILNMXxs0)
-That video was filmed at a soundcheck at Madison Square Garden on May 19, 1988. Bruce officially debuted the song later that night, and he played it during the next two shows as well.
-But other than a one-off in the UK a month later, we haven’t heard from “Vigilante Man” since. Here’s Bruce’s last performance of Guthrie’s reinvented classic–an expanded, five-and-a-half-minute performance from Bruce’s Tunnel of Love show in Birmingham.
+![](https://www.youtube.com/watch?v=eKXILNMXxs0)
+
+That video was filmed at a soundcheck at Madison Square Garden on May 19, 1988. Bruce officially debuted the song later that night, and he played it during the next two shows as well.
+
+But other than a one-off in the UK a month later, we haven’t heard from “Vigilante Man” since. Here’s Bruce’s last performance of Guthrie’s reinvented classic–an expanded, five-and-a-half-minute performance from Bruce’s Tunnel of Love show in Birmingham.
+
 [Youtube: Vigilante Man - Bruce Springsteen (21-06-1988 Villa Park, Birmingham, England)](https://www.youtube.com/watch?v=YemLdhH1Ev8)
-![](https://www.youtube.com/watch?v=YemLdhH1Ev8)
+![](https://www.youtube.com/watch?v=YemLdhH1Ev8)
+
 **Vigilante Man
-Recorded:** Late 1987 – Early 1988
+**Recorded:** Late 1987 – Early 1988
 **Released:** *Folkways: A Vision Shared: A Tribute To Woody Guthrie And Leadbelly* (1988)
 **First performed:** May 19, 1988 (New York, NY)
-**Last performed:** June 21, 1988 (Birmingham, England)
+**Last performed:** June 21, 1988 (Birmingham, England)
+
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

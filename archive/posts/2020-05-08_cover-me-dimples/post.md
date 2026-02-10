@@ -12,6 +12,6 @@ Was Bruce in a John Lee Hooker mood in the spring of 1988, or was he just feelin
 
 Just four days later, though, Bruce would debut cover of "Boom Boom" in Bloomington, Minnesota, and "Dimples" would never be heard from again.
 
-**Dimples
-First performed:** May 6, 1988 (Tacoma, WA) – soundcheck only
+**Dimples**
+**First performed:** May 6, 1988 (Tacoma, WA) – soundcheck only
 **Last performed:** May 6, 1988 (Tacoma, WA) – soundcheck only

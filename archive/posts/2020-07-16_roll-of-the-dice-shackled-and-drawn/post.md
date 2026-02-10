@@ -138,8 +138,8 @@ Here's that one-off performance, the last "Shackled and Drawn" to date.
 
 [Watch on Youtube: Bruce Springsteen - Ullevi Gothenburg 25-06-16 - Shackled And Drawn (HD from 4K)](https://www.youtube.com/watch?v=-0cJ5iOn9_M)
 
-**Shackled and Drawn
-Recorded:** 2011
+**Shackled and Drawn**
+**Recorded:** 2011
 **Released:** *Wrecking Ball* (2012)
 **First performed:** March 9, 2012 (New York City, NY)
 Last performed: June 25, 2016 (Gothenburg, Sweden)

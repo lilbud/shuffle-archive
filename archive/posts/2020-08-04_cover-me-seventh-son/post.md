@@ -16,6 +16,6 @@ But he was also tickled, and never one to back away from a challenge, Bruce game
 
 (I was fortunate enough to be at that show, in the presence of the best American crowd I've ever seen. For more highlights, see my [Where the Band Was report](https://estreetshuffle.com/index.php/2018/05/02/where-the-band-was-greensboro-may-2-2009/) from that night.)
 
-**Seventh Son
-First performed:** May 2, 2009 (Greensboro, NC)
+**Seventh Son**
+**First performed:** May 2, 2009 (Greensboro, NC)
 **Last performed:** May 2, 2009 (Greensboro, NC)

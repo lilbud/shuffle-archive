@@ -61,7 +61,7 @@ Despite playing it for almost half of the entire High Hopes Tour, Bruce hasn't t
 But "Heaven's Wall" is a fascinating song that explores dominant themes in Bruce's modern music–it hopefully won't remain dormant for long.
 
 **Heaven's Wall
-Recorded:** 2007-2013
+**Recorded:** 2007-2013
 **Released:** *High Hopes* (2014)
 **First performed:** January 14, 2014 (New York City, NY)
 **Last performed:** April 26, 2014 (Atlanta, GA)

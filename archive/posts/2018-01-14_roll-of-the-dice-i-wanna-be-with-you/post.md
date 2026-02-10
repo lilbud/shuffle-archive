@@ -43,8 +43,8 @@ It was a perfect opener for a Reunion tour: Bruce played the opening guitar riff
 
 After the Reunion tour, the song pretty much disappeared, appearing only 5 times in the 21st century, despite frequent fan request. For most ardent fans of this little-known classic, the chase continues.
 
-**I Wanna Be With You
-Recorded:** May 31, 1979
+**I Wanna Be With You**
+**Recorded:** May 31, 1979
 **Released**: *Tracks* (1998); *18 Tracks* (1999)
 **First Performed**: April 20, 1999 (Milan)
 **Last Performed**: May 14, 2016 (Barcelona)

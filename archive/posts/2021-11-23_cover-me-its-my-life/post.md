@@ -39,5 +39,5 @@ After a final outing on October 1, 1978 that capped 88 performances of the song,
 [Watch on Youtube: It's My Life - Bruce Springsteen circa 1975](https://www.youtube.com/watch?v=uU99NVwlKRo)
 
 **It's My Life
-First performed:** December 12, 1975 (Greenvale, NY)
+**First performed:** December 12, 1975 (Greenvale, NY)
 **Last performed:** October 1, 1978 (Atlanta, GA)

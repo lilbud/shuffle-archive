@@ -41,7 +41,7 @@ Bruce almost certainly would have developed the song further–we don't know if 
 
 Still, given what we have here, even if Bruce had finished and recorded the song, it's doubtful we'd consider it an early gem. As far as relationship songs go, it's not exactly [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) material.
 
-**Oh No No No
+**Oh No No No**
 Never recorded
 Never performed**
 

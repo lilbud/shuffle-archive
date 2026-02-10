@@ -57,7 +57,7 @@ What do you know... it looks like Bruce had his eighties look in mind long befor
 [Watch Video Highlight](https://videopress.com/embed/aurpq2vn)
 
 **Jumbeliah****Never recorded
-First performed:** May 14, 1971 (Asbury Park, NJ)
+**First performed:** May 14, 1971 (Asbury Park, NJ)
 **Last performed:** September 1, 1971 (Long Branch, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -107,8 +107,8 @@ But if I had a wish to ask Bruce for on what I hope is an inevitable (but delaye
 
 Please play "Letter to You," Bruce. Just play it solo acoustic.
 
-**Letter to You
-Recorded:** November 18-22, 2019
+**Letter to You**
+**Recorded:** November 18-22, 2019
 **Released:** *Letter to You* (2020)
 **First performed:** December 21, 2020 (Colts Neck, NJ)
 **Last performed:** May 14, 2025 (Manchester, England)

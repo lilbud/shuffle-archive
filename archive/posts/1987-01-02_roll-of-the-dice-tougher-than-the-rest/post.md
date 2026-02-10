@@ -82,11 +82,9 @@ Love never stops being a dance. And as Bruce would write [two decades further do
 
 I know this is usually the part of the essay where I share outstanding live performances of our spotlight song, but honestly–nothing's ever going to beat that official 1988 video.
 
-Still, there are some rare and unusual performances that are worth checking out, starting with Bruce's very first performance of "Tougher Than the Rest," which happened months before the Tunnel of Love Express Tour at a rare E Street Band appearance (well, almost, anyway–neither Nils nor Clarence were present) at McLoone's Rum Runner at the Jersey Shore). It's not a great recording, but it's a historically significant one.
+Still, there are some rare and unusual performances that are worth checking out, starting with Bruce's very first performance of "Tougher Than the Rest," which happened months before the Tunnel of Love Express Tour at a rare E Street Band appearance (well, almost, anyway–neither Nils nor Clarence were present) at McLoone's Rum Runner at the Jersey Shore. It's not a great recording, but it's a historically significant one.
 
 [Watch Video Highlight](https://videopress.com/embed/bSuRxEka)
-
-
 
 Next up: a rare solo acoustic guitar performance from the Ghost of Tom Joad Tour, with gorgeous accompaniment from Soozie Tyrell's violin and Patti's vocals. I love this one.
 
@@ -102,8 +100,8 @@ Flashing forward to the 21st century now, Bruce and Patti perform "Tougher Than 
 
 Clearly, "Tougher Than the Rest" holds deep meaning and power for Bruce and Patti, and for that we can be grateful–because it means we'll likely hear them play it for many years to come.
 
-**Tougher Than the Rest
-Recorded:** January – April 1987
+**Tougher Than the Rest**
+**Recorded:** January – April 1987
 **Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)
 **First performed:** October 31, 1987 (Sea Bright, NJ)
 **Last performed:** September 15, 2024 (Asbury Park, NJ)

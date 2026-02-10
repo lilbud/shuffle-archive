@@ -19,5 +19,5 @@ If you listened closely to both versions, you probably noticed that Emmylou inve
 Bruce would only play "Satan's Jeweled Crown" once more after returning home, at a benefit show that served as an epilogue to the 1993 tour. You can purchase that pristine performance as part of Bruce's official live archive series [here](https://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html).
 
 **Satan's Jeweled Crown
-First performed:** May 14, 1993 (Berlin, Germany)
+**First performed:** May 14, 1993 (Berlin, Germany)
 **Last performed:** June 24, 1993 (East Rutherford, New Jersey)

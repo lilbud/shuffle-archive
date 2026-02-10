@@ -121,8 +121,8 @@ Here's Bruce's last performance of "Shut Out the Light" to date, a somber pump o
 
 [Watch on Youtube: Bruce Springsteen - SHUT OUT THE LIGHT 2005 (audio)](https://www.youtube.com/watch?v=jq-DS8-CUiI)
 
-**Shut Out the Light
-Recorded:** January 19, 1983
+**Shut Out the Light**
+**Recorded:** January 19, 1983
 **Released:** *Tracks* (1998) "Born in the U.S.A." (B-side, 1984); *L.A. Garage Sessions '83* (2025)
 **First performed:** October 22, 1984 (Oakland, CA)
 **Last performed:** August 7, 2005 (Milwaukee, WI)

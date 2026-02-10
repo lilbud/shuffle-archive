@@ -104,7 +104,7 @@ The final lines of "Love Cycle" fulfill the promise of Bruce's title: although B
 
 Explore more entries from Bruce's 1968 notebook [here](https://estreetshuffle.com/?s=1968+notebook).
 
-**Love Cycle
+**Love Cycle**
 Never recorded**
 **Never released**
 **Never performed**

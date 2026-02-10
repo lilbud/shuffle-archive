@@ -107,8 +107,8 @@ This alternate version of "The Fuse" has never seen an official release, even on
 
 Perhaps Bruce thought better of it once he heard it in the film, because "The Fuse" as originally recorded is perfect.
 
-**The Fuse
-Recorded:** February-March 2002
+**The Fuse**
+**Recorded:** February-March 2002
 **Released:** *The Rising* (2002)
 **First performed:** July 25, 2002 (Asbury Park, NJ)
 **Last performed:** October 1, 2003 (New York City, NY)

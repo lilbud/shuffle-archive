@@ -30,8 +30,8 @@ It showed up in literature like *Tom Sawyer*, in science fiction novels and movi
 
 It's hard to say why "Buffalo Gals" became such an American classic, but with performances like this, it's easy to see why it lives on.
 
-**Buffalo Gals
-Recorded:** 2005-2006
+**Buffalo Gals**
+**Recorded:** 2005-2006
 **Released:** *We Shall Overcome: The Seeger Sessions*
 **First performed:** April 20, 2006 (Asbury Park, NJ)
 **Last performed:** June 29, 2006 (Saratoga Springs, NY)

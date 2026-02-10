@@ -100,8 +100,8 @@ Yep, that's the melody of "Restless Nights," which Bruce would start working on 
 
 So even if "Protection" is destined to remain locked away in the vaults, its DNA lives on in at least one (if not two) River-era classics.
 
-**Protection
-Recorded:** January-May 1979 (demo only)
+**Protection**
+**Recorded:** January-May 1979 (demo only)
 **Never released**
 **Never performed**
 

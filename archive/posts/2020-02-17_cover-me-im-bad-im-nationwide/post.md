@@ -43,5 +43,5 @@ He was wrong, of course, but we can forgive him, right? How many of us would rem
 Indeed.
 
 **I'm Bad, I'm Nationwide
-First performed:** March 25, 1984 (Asbury Park, NJ)
+**First performed:** March 25, 1984 (Asbury Park, NJ)
 **Last performed:** April 21, 2009 (Boston, MA)

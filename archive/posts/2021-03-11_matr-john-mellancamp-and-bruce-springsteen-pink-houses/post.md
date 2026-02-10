@@ -16,6 +16,6 @@ Not until 2019, at least. At the 1980s-themed benefit concert for The Rainforest
 
 John returned the favor shortly after, which left them tied at one each. With luck, we'll get to see Bruce and John explore each other's catalogs more deeply in the future.
 
-**Pink Houses
-First performed:** December 9, 2019 (New York City, NY)
+**Pink Houses**
+**First performed:** December 9, 2019 (New York City, NY)
 **Last performed:** December 9, 2019 (New York City, NY)

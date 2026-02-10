@@ -48,7 +48,7 @@ The fact that I still can't tell if "Lady of Boston" is an incomplete song, an i
 
 In the end both Dr. Zoom and the Sonic Boom and "Lady of Boston" are historical footnotes, transitional steps on Bruce's journey toward his own musical sound.
 
-**Lady of Boston
+**Lady of Boston**
 Never recorded**
 **Never released**
 **First performed:** May 15, 1971 (Union, NJ)

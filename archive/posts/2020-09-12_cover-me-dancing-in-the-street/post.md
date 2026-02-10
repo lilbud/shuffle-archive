@@ -28,6 +28,6 @@ When Steel Mill folded in January 1971, "Dancing in the Street" vanished from Br
 
 Well, *almost* completely. Bruce has often teased a few lines of "Dancing in the Street" mid-song, and if you go back and listen closely around the 10:30 mark in the above clip, you'll hear some familiar guitar chords that Bruce would one day resurrect for his version of "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" –a classic Motown cover done right.
 
-**Dancing in the Street
-First performed:** December 31, 1969 (Big Sur, CA)
+**Dancing in the Street**
+**First performed:** December 31, 1969 (Big Sur, CA)
 **Last performed:** January 22, 1971 (Asbury Park, NJ)

@@ -178,8 +178,8 @@ To date, Bruce has performed "Backstreets" an even 500 times. Let's hope we get 
 
 [Watch on Youtube: Bruce Springsteen - Backstreets (Live 2005 solo piano)](https://www.youtube.com/watch?v=NLmxhx4Zo0o)
 
-**Backstreets
-Recorded:** July 18, 1975
+**Backstreets**
+**Recorded:** July 18, 1975
 **Released:** *Born to Run* (1975)
 **First performed:** August 8, 1975 (Akron, OH)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)

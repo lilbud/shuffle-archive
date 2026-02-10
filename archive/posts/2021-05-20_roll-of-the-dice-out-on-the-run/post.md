@@ -22,8 +22,8 @@ Even Bruce's abandoned experiments often point the way to something better.
 
 [Watch Video Highlight](https://videopress.com/embed/TnSI3PrI)
 
-**Out on the Run
-Recorded:** March 30, 1979 (rehearsals only)
+**Out on the Run**
+**Recorded:** March 30, 1979 (rehearsals only)
 **Never released**
 **Never performed**
 

@@ -6,6 +6,6 @@ Bruce gave a lovely performance, but it's hard to top the original.
 
 [Watch on Youtube: Sting - Fields Of Gold](https://www.youtube.com/watch?v=KLVq0IAzh1A)
 
-**Fields of Gold
-First performed:** October 1, 2011 (New York City, NY)
+**Fields of Gold**
+**First performed:** October 1, 2011 (New York City, NY)
 **Last performed:** October 1, 2011 (New York City, NY)

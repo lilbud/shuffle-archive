@@ -32,6 +32,6 @@ Given the scarcity of documented soundchecks in that era, the five months in bet
 
 I can't help but wonder why Bruce never gave it a proper concert outing, but knowing his admiration for Burke and fondness for the song, I've got my fingers crossed that we'll see "Cry to Me" on that rumored *Volume 2* in 2023.
 
-**Cry to Me
-First performed:** May 14, 1971 (Asbury Park, NJ)
+**Cry to Me**
+**First performed:** May 14, 1971 (Asbury Park, NJ)
 **Last performed:** December 12, 1975 (Greenvale, NY) – soundcheck only

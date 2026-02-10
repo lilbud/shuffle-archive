@@ -182,8 +182,8 @@ With luck, Bruce and the E Street Band will be back out on the road next year, a
 
 [Watch on Youtube: Bruce Springsteen performing "Dancing in the Dark" live at the BOK Center in Tulsa, OK Feb. 21, 2023](https://www.youtube.com/watch?v=g_9_r4r4nFI)
 
-**Dancing in the Dark
-Recorded:** February 14 – March 8, 1984
+**Dancing in the Dark**
+**Recorded:** February 14 – March 8, 1984
 **Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
 **First performed:** May 26, 1984 (Asbury Park, NJ)
 **Last performed:** November 6, 2023 (New York City, NY)

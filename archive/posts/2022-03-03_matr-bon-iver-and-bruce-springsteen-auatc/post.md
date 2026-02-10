@@ -20,7 +20,7 @@ Bruce, of course, has been known to speak out against the excesses and abuses of
 
 Presumably that's by intent, in keeping with the song's theme. But for hardcore Springsteen fans like us, eager to hear our guy's contributions stand out, we'll have to look (and listen) elsewhere.
 
-**AUATC
-Recorded:** 2020
+**AUATC**
+**Recorded:** 2020
 **Released:** *AUATC* (single) (August 5, 2020)
 **Never performed**

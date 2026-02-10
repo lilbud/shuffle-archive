@@ -36,6 +36,6 @@ That performance was clearly planned and rehearsed, and it turned out great. So 
 
 (**Bonus trivia:** the performance you just heard–from May 9, 1974–is the first known show where Bruce's band was referred to as the E Street Band. It was the earlier of two shows that night, which means Jon Landau missed Bruce's one-time-only performance. Landau only attended the late show that night, and while there's no audio from that show, it's clear that Bruce must have put on quite a performance–because Landau would write a review of it leading with the words "I saw rock and roll future and its name is Bruce Springsteen.")
 
-**I Sold My Heart to the Junkman
-First performed:** May 9, 1974 (Cambridge, MA)
+**I Sold My Heart to the Junkman**
+**First performed:** May 9, 1974 (Cambridge, MA)
 **Last performed:** May 9, 1974 (Cambridge, MA)

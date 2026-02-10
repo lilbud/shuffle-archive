@@ -115,8 +115,8 @@ After four decades of living in the mansion, Bruce's song has become a rarity, w
 
 And as for the original Mansion on the Hill, it still stands in its original location at 10th and Spruce, listed on the National Register of Historic Places since 1973. It's a museum today, open to the public should you ever find yourself driving through Ogallala.
 
-**Mansion on the Hill
-Recorded:** December 1981-January 1982
+**Mansion on the Hill**
+**Recorded:** December 1981-January 1982
 **Released:** *Nebraska* (1982)
 **First performed:** June 29, 1984 (St. Paul, MN)
 **Last performed:** February 7, 2016 (Hollywood, FL)

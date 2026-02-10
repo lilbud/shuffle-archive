@@ -24,8 +24,8 @@ Thankfully, that last performance (At Sea. Hear. Now. in September 2018) not onl
 
 [Watch on Youtube: Misery Loves Company - Social Distortion with Bruce Springsteen - Sea Hear Now](https://www.youtube.com/watch?v=loIfsQ8RmAc)
 
-**Misery Loves Company
-Recorded:** December 29, 1998
+**Misery Loves Company**
+**Recorded:** December 29, 1998
 **Released:** *Cheating at Solitaire* (1999)
 **First performed**: May 17, 2008 (Asbury Park, NJ)
 **Last performed:** September 30, 2018 (Asbury Park, NJ)

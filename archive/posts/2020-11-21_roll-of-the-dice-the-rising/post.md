@@ -165,8 +165,8 @@ In craft, content, performance, and artistry, it stands incontrovertibly as one 
 
 [Watch on Youtube: Bruce Springsteen - The Rising (official video)](https://www.youtube.com/watch?v=6i-fiRgbpr4)
 
-**The Rising
-Recorded:** February-March 2002
+**The Rising**
+**Recorded:** February-March 2002
 **Released:** *The Rising* (2002), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
 **First performed:** July 25, 2002 (Asbury Park, NJ)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)

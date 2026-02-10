@@ -29,7 +29,7 @@ By the end of the much-too-short Seeger Session Tour, however, both Bruce and th
 "Jacob's Ladder" was featured nightly on the Seeger Sessions Tour, but while the E Street Band occasionally dips into the Seeger Sessions catalog, "Jacob's Ladder" has yet to return. Here's hoping for at least one more tour with the Sessions Band so we can hear it again.
 
 **Jacob's Ladder
-Recorded:** January 21, 2006
+**Recorded:** January 21, 2006
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)
 **First performed:** April 20, 2006 (Asbury Park, NJ)
 **Last performed:** November 21, 2006 (Belfast, Northern Ireland)

@@ -63,8 +63,8 @@ Assuming we take the above as gospel, it's easy to see why Bruce didn't include 
 
 We'll pick up that thread another time.
 
-**I Want to Be Wild
-Recorded:** November 11, 1977 (demo only)
+**I Want to Be Wild**
+**Recorded:** November 11, 1977 (demo only)
 **Never released**
 **Never performed**
 

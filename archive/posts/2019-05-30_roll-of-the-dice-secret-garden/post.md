@@ -110,8 +110,8 @@ I'll leave you with one more, and it's a special one: a dedication from Bruce to
 
 Now I'm going to Tony Roma's.
 
-**Secret Garden
-Recorded:** January 1995
+**Secret Garden**
+**Recorded:** January 1995
 **Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)
 **First performed:** April 5, 1995 (New York City, NY)
 **Last performed:** February 14, 2017 (Brisbane, Australia)

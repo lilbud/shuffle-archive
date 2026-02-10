@@ -42,6 +42,6 @@ That was the last time to date Bruce performed "We Gotta Get Out of This Place" 
 
 [Watch on Youtube: We Gotta Get Out Of This Place (SXSW 3/15/12)](https://www.youtube.com/watch?v=ZE6evYHrL58)
 
-**We Gotta Get Out of This Place
-First performed:** October 1965 (Marlboro, NJ)
+**We Gotta Get Out of This Place**
+**First performed:** October 1965 (Marlboro, NJ)
 **Last performed:** July 23, 2013 (Cardiff, Wales)

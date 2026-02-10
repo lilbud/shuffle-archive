@@ -10,8 +10,8 @@ Their arrangement of "Christmas Day" was faithful, fun, and rocking, but what's 
 
 Bruce hasn't played "Christmas Day" since those too-short-lived holiday show days, but let's keep hope alive for the rebirth of a holiday tradition soon.
 
-**Christmas Day
-First performed:** December 4, 2001 (Asbury Park, NJ)
+**Christmas Day**
+**First performed:** December 4, 2001 (Asbury Park, NJ)
 **Last performed:** December 8, 2003 (Asbury Park, NJ)
 
 (c) December 25, 2019 by Ken Rosen

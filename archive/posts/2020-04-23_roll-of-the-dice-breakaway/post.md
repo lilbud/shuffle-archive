@@ -85,8 +85,8 @@ If there's a message to be found at all in "Breakaway," it's that no matter how 
 
 And if you turn to the wrong cure, you may find it more final than the disease.
 
-**Breakaway
-Recorded:** June 1, 1977 (core track)
+**Breakaway**
+**Recorded:** June 1, 1977 (core track)
 **Released:** *The Promise* (2010)
 **Never performed**
 

@@ -30,6 +30,6 @@ On May 13, 2021, Bruce was awarded the annual Woody Guthrie Prize by the Woody G
 
 **In a way, "Tom Joad" inspired two of Bruce's officially released tracks, because Guthrie set his song to the melody of "John Henry," which Bruce released a version of in 2006.*
 
-**Tom Joad
-First performed:** September 25, 1996 (Akron, OH)
+**Tom Joad**
+**First performed:** September 25, 1996 (Akron, OH)
 **Last performed:** May 13, 2021 (Colts Neck, NJ)

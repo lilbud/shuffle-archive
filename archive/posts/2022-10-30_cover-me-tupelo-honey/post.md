@@ -20,6 +20,6 @@ It probably would have been too delicate and tender to include in arena shows (l
 
 We're still waiting for a proper concert cover and likely will continue to, but these two 1988 soundcheck recordings give us a tantalizing taste of what a Springsteen cover might have sounded like.
 
-**Tupelo Honey
-First performed:** March 4, 1988 (Chapel Hill, NC) (soundcheck only)
+**Tupelo Honey**
+**First performed:** March 4, 1988 (Chapel Hill, NC) (soundcheck only)
 **Last performed:** March 23, 1988 (Atlanta, GA) (soundcheck only)

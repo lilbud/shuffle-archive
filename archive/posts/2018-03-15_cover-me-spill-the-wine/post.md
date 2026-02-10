@@ -6,6 +6,6 @@ It was a pretty faithful cover–judge for yourself by comparing with the origin
 
 [Watch on Youtube: Eric Burdon and War - Spill the Wine (1970 )](https://www.youtube.com/watch?v=W77Kwh6f0TE)
 
-**Spill the Wine
-First performed:** February 23, 2014 (Hunter Valley, Australia)
+**Spill the Wine**
+**First performed:** February 23, 2014 (Hunter Valley, Australia)
 **Last performed:** February 23, 2014 (Hunter Valley, Australia)

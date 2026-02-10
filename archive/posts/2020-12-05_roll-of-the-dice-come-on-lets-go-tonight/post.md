@@ -68,7 +68,7 @@ Still, "Factory" remains the better-known song, and it would probably only confu
 "Come On (Let's Go Tonight)" is likely to remain a deep cut obscurity, deserving of more consideration than it receives.
 
 **Come On (Let's Go Tonight)
-Recorded:** Late 1977
+**Recorded:** Late 1977
 **Released:** *The Promise* (2010)
 **First performed:** December 7, 2010 (Asbury Park, NJ)
 **Last performed:** December 7, 2010 (Asbury Park, NJ)

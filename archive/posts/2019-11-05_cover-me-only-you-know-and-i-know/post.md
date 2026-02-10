@@ -8,6 +8,6 @@ Here's their only known and captured performance (featuring an extended guitar j
 
 [Watch Video Highlight](https://videopress.com/embed/sHBamxhn)
 
-**Only You Know and I Know
-First performed:** December 1971 (Asbury Park, NJ)
+**Only You Know and I Know**
+**First performed:** December 1971 (Asbury Park, NJ)
 **Last performed:** December 1971 (Asbury Park, NJ)

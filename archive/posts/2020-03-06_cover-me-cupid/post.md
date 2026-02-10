@@ -14,6 +14,6 @@ Like I wrote at the top, I'm not a fan of the arrangement. To me, it sounds like
 
 But their arrangement of "Cupid" is an early indication of greater successes to come. Bruce's commitment to keeping classic rock and roll not just alive but fresh and vibrant would soon become a hallmark of his live performances.
 
-**Cupid
-First performed:** September 19, 1974 (Bryn Mawr, PA)
+**Cupid**
+**First performed:** September 19, 1974 (Bryn Mawr, PA)
 **Last performed:** October 29, 1974 (Boston, MA)

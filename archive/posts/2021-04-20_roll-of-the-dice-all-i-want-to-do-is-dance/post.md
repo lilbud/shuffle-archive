@@ -48,7 +48,7 @@ Before long, Bruce would turn his attention to more serious subjects, but in 197
 
 If Bruce ever surprises us with an archive series document of one of these early shows, we're in for a treat.
 
-**All I Want to Do Is Dance
+**All I Want to Do Is Dance**
 Never recorded**
 **Never released**
 **First performed:** February 4, 1972 (Richmond, VA)

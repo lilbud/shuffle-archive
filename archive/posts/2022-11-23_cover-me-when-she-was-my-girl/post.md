@@ -26,8 +26,8 @@ Like almost every track on *Only the Strong Survive,* Bruce hews extremely close
 
 The result is a light-hearted trifle of a track, nowhere near as wrought as Bruce's anguished performance on "[I Forgot to Be Your Lover.](https://estreetshuffle.com/index.php/2022/11/12/cover-me-i-forgot-to-be-your-lover/)" I wouldn't expect to see it on fan signs or set lists, but if you need a pick-me-up on a dark winter morning, "When She Was My Girl"–in any incarnation–is bound to do the trick.
 
-**When She Was My Girl
-Recorded:** 2021
+**When She Was My Girl**
+**Recorded:** 2021
 **Released:** *Only the Strong Survive* (2022)
 **Never performed**
 

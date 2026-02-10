@@ -70,7 +70,7 @@ Bruce ends his song on an unresolved note, unsure of whether the nation will eve
 
 Exactly fifty years later, though, protests rage across America, and we find ourselves teetering on the edge of a similar precipice. Bruce is still meeting the moment in song, this time with a quarantine-induced [radio show](https://player.siriusxm.com/enhanced-edp/page-name%3Dedp_show_enhanced&showGuid%3De8cd2710-758f-ebc0-27b5-662df7cd62dc;queryParamsHandling=merge). He's seen and lived a lot more in the five intervening decades, but his anger, eloquence and persistence endure.
 
-**Where Was Jesus in Ohio
+**Where Was Jesus in Ohio**
 Never recorded**
 **Never released**
 **First performed:** June 19, 1970 (Richmond, VA)

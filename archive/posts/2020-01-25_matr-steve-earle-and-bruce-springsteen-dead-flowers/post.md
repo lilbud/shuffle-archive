@@ -12,6 +12,6 @@ Here's that one-time-only performance, from February 6, 1998 at Tradewinds in Se
 
 It's too bad Bruce didn't take more of a foreground role on this one; "Dead Flowers" cries out for a true Springsteen cover sometime down the road.
 
-**Dead Flowers
-First performed:** February 6, 1998 (Sea Bright, NJ)
+**Dead Flowers**
+**First performed:** February 6, 1998 (Sea Bright, NJ)
 **Last performed:** February 6, 1998 (Sea Bright, NJ)

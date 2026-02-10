@@ -30,6 +30,6 @@ The TBB took the song way back to its bluesy roots that night in 2018, with Dann
 
 We might miss those rocking E Street sets, but it's great to see Bruce exercise those blues muscles once in a while, too. It's been a couple years now since the last time he's done that, but you never know... maybe we'll get a delightful surprise sometime soon.
 
-**I Just Want to Make Love to You
-First performed:** June 18, 2018 (Asbury Park, NJ)
+**I Just Want to Make Love to You**
+**First performed:** June 18, 2018 (Asbury Park, NJ)
 **Last performed:** June 18, 2018 (Asbury Park, NJ)

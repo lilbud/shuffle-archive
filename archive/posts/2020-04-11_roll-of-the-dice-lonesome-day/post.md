@@ -103,8 +103,8 @@ So no, I don't think Bruce wrote "Lonesome Day" about or even after 9/11, but it
 
 Whether you've ever been betrayed by someone you loved or betrayed by the world for taking your love from you, "Lonesome Day" offers both catharsis and caution for those times when we need both simultaneously.
 
-**Lonesome Day
-Recorded:** February-March 2002
+**Lonesome Day**
+**Recorded:** February-March 2002
 **Released:** *The Rising* (2002), *The Essential Bruce Springsteen* (2003)
 **First performed:** July 25, 2002 (Asbury Park, NJ)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)

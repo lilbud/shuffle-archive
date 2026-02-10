@@ -21,7 +21,7 @@ Whatever "The Informer" turned out to be, this was clearly an early draft. Bruce
 
 For now, "The Informer" remains an enigma. But someday, maybe, that vault will open...
 
-**The Informer
+**The Informer**
 Never recorded or released**
 **Never performed**
 

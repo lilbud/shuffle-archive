@@ -126,8 +126,8 @@ Here's an alternate mix of "The Promised Land," minus Bruce's guitar solo. More 
 
 [Watch on Youtube: Bruce Springsteen The Promised Land London 2013](https://www.youtube.com/watch?v=KxY7CiPQa_g)
 
-**The Promised Land
-Recorded:** December 1977**Released:** *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)* (1978), *The Essential Bruce Springsteen* (2003)
+**The Promised Land**
+**Recorded:** December 1977**Released:** *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)* (1978), *The Essential Bruce Springsteen* (2003)
 **First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 

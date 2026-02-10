@@ -173,8 +173,8 @@ I consider that to be the definitive arrangement, but does Bruce? Time will tell
 
 [Watch on Youtube: Bruce Springsteen- Point Blank (Acoustic)](https://www.youtube.com/watch?v=lUXbgUkM8_g)
 
-**Point Blank
-Recorded:** Late 1979 – Early 1980
+**Point Blank**
+**Recorded:** Late 1979 – Early 1980
 **Released:** *The River* (1980)
 **First performed:** July 7, 1978 (West Hollywood, CA)
 **Last performed:** July 28, 2016 (Oslo, Norway)

@@ -168,8 +168,8 @@ Now all of that would have been odd enough, but in the actual released video, Br
 
 Bruce released that version as an official single that year, too. What made him decide to record and release such an odd amalgam of a fifteen-year-old song? Who knows, and maybe that's the point: when you're feeling bored and restless, sometimes you just need to follow your heart.
 
-**Hungry Heart
-Recorded:** June 14-21, 1979
+**Hungry Heart**
+**Recorded:** June 14-21, 1979
 **Released:** *The River* (1980), *Greatest Hits* (1995), *The Ties That Bind: The River Collection* (2015)
 **First performed:** October 18, 1980 (St. Louis, MO)
 **Last performed:** April 7, 2023 (Baltimore, MD)

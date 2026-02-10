@@ -10,6 +10,6 @@ Might he have made it big(ger) if he'd moved somewhere with a more vibrant music
 
 Oh, and the Springsteen connection? Bruce plays guitar on the track. Don't let that distract you, though–"East Carson Street" is one of Joe's best 21st century songs no matter who's playing on it.
 
-**East Carson Street
-Released:** *East Carson Street* (2009)
+**East Carson Street**
+**Released:** *East Carson Street* (2009)
 **Never performed**

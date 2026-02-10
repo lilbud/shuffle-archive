@@ -21,5 +21,5 @@ Here's the one and only time Bruce has covered "Little Bit O' Soul," from that e
 [Watch on Youtube: Springsteen - Little Bit O Soul - The Spectrum October 13, 2009](https://www.youtube.com/watch?v=GClsxQk4q-Y)
 
 **Little Bit O' Soul
-First performed:** October 13, 2009 (Philadelphia, PA)
+**First performed:** October 13, 2009 (Philadelphia, PA)
 **Last performed:** October 13, 2009 (Philadelphia, PA)

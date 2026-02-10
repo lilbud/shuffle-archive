@@ -29,5 +29,5 @@ In its last appearance (to date) on a Springsteen set list, Bruce brought "Good 
 It's been more than eight years since we last heard from one of rock's earliest hits, but its milestone importance suggests we haven't heard the last of it.
 
 **Good Rockin' Tonight
-First performed:** August 19, 1978 (Philadelphia, PA)
+**First performed:** August 19, 1978 (Philadelphia, PA)
 **Last performed:** September 2, 2012 (Philadelphia, PA)

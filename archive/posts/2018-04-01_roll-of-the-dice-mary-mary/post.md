@@ -28,8 +28,8 @@ Like the narrator, we're destined to never know where Mary's gone to, but we'll 
 
 "Mary Mary" trails off, but it does not end.
 
-**Mary Mary
-Recorded:** 2007**Released:** *American Beauty* (2014)
+**Mary Mary**
+**Recorded:** 2007**Released:** *American Beauty* (2014)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

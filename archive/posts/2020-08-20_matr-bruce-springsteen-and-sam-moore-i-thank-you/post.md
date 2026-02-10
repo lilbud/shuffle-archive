@@ -30,6 +30,6 @@ In the wonderful clip below, keep your eye on Bruce during the close-ups–the m
 
 Sam appeared each night of the stand, and each appearance was a showstopper. It wouldn't be the last time Bruce and Sam would perform together–they'd even record together before long–but in terms of sheer fun and spontaneity, it may endure as the best.
 
-**I Thank You
-First performed:** December 5, 2003 (Asbury Park, NJ)
+**I Thank You**
+**First performed:** December 5, 2003 (Asbury Park, NJ)
 **Last performed:** May 4, 2008 (Newark, NJ)

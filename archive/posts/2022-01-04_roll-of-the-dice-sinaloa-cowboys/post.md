@@ -90,8 +90,8 @@ Bruce wrote and released "Sinaloa Cowboys" not long after the Sinaloa Cartel fir
 
 The Sinaloa Cartel remains the most dominant drug cartel in Mexico to this day.
 
-**Sinaloa Cowboys
-Recorded:** March-August, 1995
+**Sinaloa Cowboys**
+**Recorded:** March-August, 1995
 **Released:** *The Ghost of Tom Joad* (1995)
 **First performed:** October 28, 1995 (Mountain View, CA)
 **Last performed:** October 20, 2005 (Worcester, MA)

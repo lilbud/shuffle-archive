@@ -38,7 +38,7 @@ And yes, I realize that's a lot of spun thread for a not-even-one-minute cover t
 
 Such is the lot of the obsessive blogger.
 
-**Red River Rock
-Recorded:** Autumn 1981 (demo only)
+**Red River Rock**
+**Recorded:** Autumn 1981 (demo only)
 **Never released**
 **Never performed**

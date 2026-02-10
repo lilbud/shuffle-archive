@@ -63,5 +63,5 @@ When Bruce and Bobby had their chance boardwalk meeting that day in 1975, neithe
 But they knew which path they each had to walk, and they trusted it would work out fine .
 
 **It's Gonna Work Out Fine
-First performed:** August 16, 1975 (New York City, NY)
+**First performed:** August 16, 1975 (New York City, NY)
 **Last performed:** April 14, 1990 (Santa Monica, CA)

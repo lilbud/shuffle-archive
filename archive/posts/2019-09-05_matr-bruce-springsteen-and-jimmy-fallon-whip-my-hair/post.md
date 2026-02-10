@@ -26,6 +26,6 @@ Bruce and "Neil" would also reprise their performance two years (and ten fashion
 
 Even so, I wouldn't bet on Bruce picking a sign for "Whip My Hair" anytime soon. That was almost certainly a one-time-only experience.
 
-**Whip My Hair
-Recorded:** November 16, 2010**Released:** *Blow Your Pants Off* (2012)**First performed:** November 16, 2010 (New York City, NY)
+**Whip My Hair**
+**Recorded:** November 16, 2010**Released:** *Blow Your Pants Off* (2012)**First performed:** November 16, 2010 (New York City, NY)
 **Last performed:** November 16, 2010 (New York City, NY)

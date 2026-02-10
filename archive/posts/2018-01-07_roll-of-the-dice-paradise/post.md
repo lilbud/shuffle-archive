@@ -83,8 +83,8 @@ In the same promotional interview, Bruce says that was trying to say that "hey, 
 
 Have a different or personal take on "Paradise?" Share your thoughts below!
 
-**Paradise
-Recorded:** February-March, 2002
+**Paradise**
+**Recorded:** February-March, 2002
 **Released:** *The Rising* (2002)
 **First performed:** July 30, 2002 (Asbury Park, NJ)
 **Last performed:** August 13, 2005 (Vancouver, BC)

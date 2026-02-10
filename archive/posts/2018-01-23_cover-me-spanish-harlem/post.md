@@ -8,5 +8,5 @@ The original is beautiful as well–one of many Ben E. King songs Bruce would co
 
 [Watch on Youtube: Spanish Harlem](https://www.youtube.com/watch?v=GxigkOzGq9Q)
 
-**Spanish Harlem
-First performed:** October 18, 1974 (Passaic, NJ)**Last performed:** November 1, 1974 (Philadelphia, PA)
+**Spanish Harlem**
+**First performed:** October 18, 1974 (Passaic, NJ)**Last performed:** November 1, 1974 (Philadelphia, PA)

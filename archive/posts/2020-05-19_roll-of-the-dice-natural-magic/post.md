@@ -34,7 +34,7 @@ And yet, despite wearing its influences on its sleeve, "Natural Magic" is sweet 
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/naturalmagic_lyrics.jpg)
 
-**Natural Magic
+**Natural Magic**
 Never recorded**
 **Never released**
 **First performed:** July 10, 1971 (Lincroft, NJ)

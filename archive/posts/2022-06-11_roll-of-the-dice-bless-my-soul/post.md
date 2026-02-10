@@ -20,8 +20,8 @@ Of particular delight is the middle section (skip to the five-minute mark if you
 
 If you enjoyed this track, stay tuned for more Bruce Springsteen Band performances through the summer. (And if not, don't worry: modern programming resumes on Monday.)
 
-**Bless My Soul
-First performed:** November 13, 1971 (Asbury Park, NJ)
+**Bless My Soul**
+**First performed:** November 13, 1971 (Asbury Park, NJ)
 **Last performed:** February 26, 1972 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

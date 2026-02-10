@@ -14,6 +14,6 @@ But while "Take Me Out to the Ball Game" was in constant rotation on Akron AM ra
 
 Bruce Springsteen, however, is known to be a fan: Mr. Springstone is the proud recipient of a hand-written, signed postcard from Mr. Springsteen that reads: "The record is great! I love it! Keep on rockin'!"
 
-**Meet the Flintstones
-Recorded:** 1982
+**Meet the Flintstones**
+**Recorded:** 1982
 **Released:** *Live at Bedrock* (1982)

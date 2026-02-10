@@ -77,8 +77,8 @@ May it always be just around the corner.
 
 [Watch on Youtube: Joe Grushecky and The Houserockers - Light Of Day (feat. Bruce Springsteen) [Live]](https://www.youtube.com/watch?v=sk523KCgNFM)
 
-**Light of Day
-Recorded:** September 22, 1992 (live performance)
+**Light of Day**
+**Recorded:** September 22, 1992 (live performance)
 **Released:** *In Concert: MTV xxPlugged* (1993)**First performed:** April 12, 1987 (Asbury Park, NJ)
 **Last performed:** January 18, 2020 (Asbury Park, NJ)
 

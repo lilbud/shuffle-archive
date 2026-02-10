@@ -75,8 +75,8 @@ Thank goodness for that tour's fan request segment, however. One time only, in (
 
 If we're only ever going to get one performance, at least it was a great one, featuring a gorgeous Curt Ramm trumpet solo. It's probably too deep a cut to surface again, but if you're laying odds keep an eye out for the Barcelona shows in a few months–you never know what surprises might lie in store.
 
-**Spanish Eyes
-Recorded:** June 30, 1977; 2010
+**Spanish Eyes**
+**Recorded:** June 30, 1977; 2010
 **Released:** *The Promise* (2010)
 **First performed:** June 17, 2012 (Madrid, Spain)
 **Last performed:** June 17, 2012 (Madrid, Spain)

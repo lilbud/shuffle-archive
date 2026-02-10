@@ -83,8 +83,8 @@ Following that solo debut, Bruce played it twice more with the E Street Band, on
 
 With only three performances ever, "Iceman" remains a rarity–too misunderstood to be fully appreciated and too stately-sounding to sustain the momentum of an E Street Band concert. It's likely to remain one of Bruce's most under-the-radar and underappreciated tracks.
 
-**Iceman
-Recorded:** October 27, 1977
+**Iceman**
+**Recorded:** October 27, 1977
 **Released:** *Tracks* (1998)
 **First performed:** May 17, 2005 (Philadelphia, PA)
 **Last performed:** July 13, 2016 (Paris, France)

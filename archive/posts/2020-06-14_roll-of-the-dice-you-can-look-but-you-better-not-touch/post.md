@@ -106,7 +106,7 @@ But my favorite arrangement was the most unexpected one of all: on the Seeger Se
 You can bet "You Can Look" will be around for a long time to come.
 
 **You Can Look (But You Better Not Touch)
-Recorded:** August 24-25 1979 (rockabilly version), February 17-23, 1980 (album version)
+**Recorded:** August 24-25 1979 (rockabilly version), February 17-23, 1980 (album version)
 **Released:** *The River* (1980, album version), *The River: Single Album* (2015, rockabilly version)
 **First performed:** October 7, 1980 (Richfield, OH)
 **Last performed:** February 18, 2017 (Hunter Valley, Australia)

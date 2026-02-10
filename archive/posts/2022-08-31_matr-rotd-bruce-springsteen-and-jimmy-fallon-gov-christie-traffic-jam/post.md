@@ -53,5 +53,5 @@ Christie left office in 2018 with an 81% disapproval rating, the lowest in New J
 But at least for Christie, there were no hard feelings. On his first day as a private citizen again, he spent it seeing *Springsteen on Broadway.*
 
 **Gov. Christie Traffic Jam
-First performed:** January 14, 2014
+**First performed:** January 14, 2014
 **Last performed:** January 14, 2014

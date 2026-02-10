@@ -31,5 +31,5 @@ The next time Bruce covered "Money" was more than five years later–this time a
 The rest of us will have to be content with these rare club recordings from the eighties.
 
 **Money (That's What I Want)
-First performed:** February 20, 1982 (Red Bank, NJ)
+**First performed:** February 20, 1982 (Red Bank, NJ)
 **Last performed:** January 22, 2016 (Wellington, FL)

@@ -26,6 +26,6 @@ He *has* soundchecked it, though–once (that we know of) during the Tunnel of L
 
 Thematically, the song wouldn't have fit with the tour's romantic set list, so it's easy to understand why this wonderful soundcheck performance never made it to an official stage. Fortunately for us, this "unofficial" performance was captured, so we can imagine what might have been.
 
-**I Shall Be Released
-First performed:** March 4, 1988 (Chapel Hill, NC) (soundcheck only)
+**I Shall Be Released**
+**First performed:** March 4, 1988 (Chapel Hill, NC) (soundcheck only)
 **Last performed:** March 4, 1988 (Chapel Hill, NC) (soundcheck only)

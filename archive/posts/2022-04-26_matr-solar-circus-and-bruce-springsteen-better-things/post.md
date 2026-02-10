@@ -30,6 +30,6 @@ If you're looking for more definitive evidence of Bruce's on-stage contribution,
 
 Bruce never played with Solar Circus again, but at least for that one August night, he joined local musicians and fans in paying tribute to an American music icon taken too soon.
 
-**Better Things
-First performed:** August 10, 1995 (Long Branch, NJ)
+**Better Things**
+**First performed:** August 10, 1995 (Long Branch, NJ)
 **Last performed:** August 10, 1995 (Long Branch, NJ)

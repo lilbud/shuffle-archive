@@ -47,7 +47,7 @@ There are a few Bruce Springsteen Band performances of "When You Dance" circulat
 [https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2018/08/1977_05_13_Early_T08-When-You-Dance-online-audio-converter.com_.mp3?_=3)
 
 **When You Dance****Never Recorded
-First performed:** October 23, 1971 (Richmond, VA)
+**First performed:** October 23, 1971 (Richmond, VA)
 **Last performed:** [May 13](https://estreetshuffle.com/index.php/2018/05/13/kingdom-of-days-may-13/), 1977 (Red Bank, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

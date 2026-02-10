@@ -28,6 +28,6 @@ To this day, that remains the only time Bruce is known to have covered "Willie a
 
 (My thanks to podcaster extraordinaire Andrew Hickey for the history lesson–for a lengthy but fascinating deep-dive into the origin of the hand jive, I highly recommend [Episode 71](https://www.500songs.com/e/reupload-episode-71-willie-and-the-hand-jive-by-johnny-otis/) (and all the other ones, too) of his terrific podcast, *A History of Rock Music in 500 Songs.*)
 
-**Willie and the Hand Jive
-First performed:** August 2, 1989 (Long Branch, NJ)
+**Willie and the Hand Jive**
+**First performed:** August 2, 1989 (Long Branch, NJ)
 **Last performed:** August 2, 1989 (Long Branch, NJ)

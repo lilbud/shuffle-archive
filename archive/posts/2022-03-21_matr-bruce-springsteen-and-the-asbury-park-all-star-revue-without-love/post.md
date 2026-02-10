@@ -22,6 +22,6 @@ Here's the first one, from May 12, 1977, the first of Bruce's only three perform
 
 [Watch on Youtube: Little Steven / Bruce Springsteen: without Love ( Aretha Franklin cover )](https://www.youtube.com/watch?v=uzIqxNCR6Us)
 
-**Without Love
-First performed:** May 12, 1977 (Red Bank, NJ)
+**Without Love**
+**First performed:** May 12, 1977 (Red Bank, NJ)
 **Last performed:** May 13, 1977 (Red Bank, NJ)

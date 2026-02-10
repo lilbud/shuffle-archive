@@ -38,8 +38,8 @@ Bonus: Here's an alternate take–a bit faster with an alternate ending.
 
 [Watch on Youtube: Bruce Springsteen - 30 Days Out (alternate take)](https://www.youtube.com/watch?v=Zw_F0hY6tW4)
 
-**30 Days Out
-Recorded:** March-April 1990**Released:** *Leap of Faith* promo (1992) (select countries only)
+**30 Days Out**
+**Recorded:** March-April 1990**Released:** *Leap of Faith* promo (1992) (select countries only)
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

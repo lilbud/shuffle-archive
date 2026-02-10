@@ -22,6 +22,6 @@ Make sure to watch this epic-length performance, too–both capture outstanding 
 
 [Watch on Youtube: Bruce Springsteen - All Along The Watchtower](https://www.youtube.com/watch?v=lwNWmYRwY74)
 
-**All Along the Watchtower
-First performed:** January 20, 1988 (New York City, NY)
+**All Along the Watchtower**
+**First performed:** January 20, 1988 (New York City, NY)
 **Last performed:** December 2, 2004 (Pittsburgh, PA)

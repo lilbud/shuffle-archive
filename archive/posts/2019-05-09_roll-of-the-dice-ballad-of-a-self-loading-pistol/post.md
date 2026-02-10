@@ -63,7 +63,7 @@ There's so much to appreciate about "Ballad of the Self-Loading Pistol":
 *Today I killed a man*
 
 **Ballad of a Self-Loading Pistol
-Recorded:** January 29-30, 1973
+**Recorded:** January 29-30, 1973
 **Never released**
 **Never performed**
 

@@ -6,6 +6,6 @@ Bruce and the band gave a pretty faithful interpretation–even copying the "Dra
 
 [Watch on Youtube: The animals- San Francisco nights ( lyrics)](https://www.youtube.com/watch?v=8hv0M5etXFA)
 
-**San Franciscan Nights
-First performed:** September 30, 1967 (Freehold, NJ)
+**San Franciscan Nights**
+**First performed:** September 30, 1967 (Freehold, NJ)
 **Last performed:** September 30, 1967 (Freehold, NJ)

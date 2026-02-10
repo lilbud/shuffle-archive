@@ -59,7 +59,7 @@ For my money, it's impossible to tell, so the answer must be: it's all of the ab
 Someone bring a sign for this one to the next tour, please.
 
 **Hold On (To What You Got)
-Recorded:** Early 1982
+**Recorded:** Early 1982
 **Released:** *On the Line* (1982)
 **Never performed live**
 

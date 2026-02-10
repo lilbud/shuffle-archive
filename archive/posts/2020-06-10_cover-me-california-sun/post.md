@@ -18,6 +18,6 @@ Here's that one-time-only performance, clearly influenced more by The Rivieras' 
 
 [Watch on Youtube: Bruce Springsteen "California Sun" LA Sports Arena 4-26-12](https://www.youtube.com/watch?v=DIukXYvEQPc)
 
-**California Sun
-First performed:** November 9, 2007 (New York City, NY)
+**California Sun**
+**First performed:** November 9, 2007 (New York City, NY)
 **Last performed:** April 26, 2012 (Los Angeles, CA)

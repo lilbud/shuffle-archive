@@ -81,7 +81,7 @@ It's been absent ever since, most likely because it's an outlier in Bruce's cata
 It's still a fun song, though, and one that acknowledges an elemental truth: you can seek enlightenment all day long, but at the end of that day that inner monkey will still be there waiting for its turn at the wheel.
 
 **Part Man, Part Monkey
-Recorded:** January 1990
+**Recorded:** January 1990
 **Released:** *Tracks* (1998), *18 Tracks* (1999)
 **First performed:** February 25, 1988 (Worcester, MA)
 **Last performed:** August 19, 2008 (Hershey, PA)

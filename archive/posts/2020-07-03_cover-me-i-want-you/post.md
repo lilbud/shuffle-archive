@@ -16,6 +16,6 @@ Those few fans old enough now and hip enough then to have caught the E Street Ba
 
 Sadly, when Suki Lahav said goodbye to the E Street Band, so did "I Want You." Bruce hasn't touched the song since.
 
-**I Want You
-First performed:** November 11, 1973 (Ewing, NJ)
+**I Want You**
+**First performed:** November 11, 1973 (Ewing, NJ)
 **Last performed:** March 9, 1975 (Washington, DC)

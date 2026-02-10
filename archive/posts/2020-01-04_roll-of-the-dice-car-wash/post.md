@@ -58,8 +58,8 @@ But one lone performance is all we've been given, so we're fortunate that it was
 
 Let's hope for it on the next E Street Band tour!
 
-**Car Wash
-Recorded:** May 31, 1983
+**Car Wash**
+**Recorded:** May 31, 1983
 **Released:** *Tracks* (1998)
 **First performed:** June 13, 1999 (Leipzig, Germany)
 **Last performed:** June 13, 1999 (Leipzig, Germany)

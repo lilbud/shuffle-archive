@@ -16,6 +16,6 @@ Still, listening to that one minute of audio, one can't help but be stunned by S
 
 Even though he'd left those days a good eight years in the past, this one-time only recording is a great reminder that guitar heroes never die–they just save it up for the occasional sound check.
 
-**Whole Lotta Love
-First performed:** September 20, 1978 (Passaic, NJ) – soundcheck only
+**Whole Lotta Love**
+**First performed:** September 20, 1978 (Passaic, NJ) – soundcheck only
 **Last performed:** September 20, 1978 (Passaic, NJ) – soundcheck only

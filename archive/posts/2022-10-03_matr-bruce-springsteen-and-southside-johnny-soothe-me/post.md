@@ -24,6 +24,6 @@ The surviving recording from that night is unfortunately muddy, but it's clear e
 
 It didn't though, and that 1977 team-up with Southside remains Bruce's only performance of "Sooth Me" to date.
 
-**Soothe Me
-First performed:** October 13, 1977 (Asbury Park, NJ)
+**Soothe Me**
+**First performed:** October 13, 1977 (Asbury Park, NJ)
 **Last performed:** October 13, 1977 (Asbury Park, NJ)

@@ -64,7 +64,7 @@ Historical significance aside, the coolest thing about that video is just how gr
 Anyone who feared Bruce's rock and roll days were behind him wasn't at John Fogerty's birthday party that night.
 
 **I'm Your Detail Man
-First performed:** May 28, 1995 (Beverly Hills, CA)
+**First performed:** May 28, 1995 (Beverly Hills, CA)
 **Last performed:** May 28, 1995 (Beverly Hills, CA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

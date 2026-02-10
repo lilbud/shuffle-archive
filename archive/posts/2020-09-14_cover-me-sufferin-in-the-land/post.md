@@ -15,5 +15,5 @@ Okay, granted that's neither the E Street Band's strongest performance nor Bruce
 Still, that escapee recording allows us to hear what an E Street Band cover might sound like if we're ever fortunate enough to hear them try it.
 
 **Sufferin' in the Land
-First performed:** March 18, 2009 (Asbury Park, NJ)
+**First performed:** March 18, 2009 (Asbury Park, NJ)
 **Last performed:** March 18, 2009 (Asbury Park, NJ)

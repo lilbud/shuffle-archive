@@ -15,5 +15,5 @@ That was the first time Billy and Bruce had ever played the song together, but y
 Unfortunately, it was also the last time, at least to date–but if the two iconic songwriters ever share a stage again, who knows?
 
 **Movin' Out (Anthony's Song)
-First performed:** October 16, 2008 (New York City, NY)
+**First performed:** October 16, 2008 (New York City, NY)
 **Last performed:** October 16, 2008 (New York City, NY)

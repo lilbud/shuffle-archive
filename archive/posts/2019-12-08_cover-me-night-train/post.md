@@ -14,6 +14,6 @@ To kill time while the crew did their work, Bruce led the band through "Night Tr
 
 It's never been heard from since.
 
-**Night Train
-First performed:** September 30, 1978 (Atlanta, GA)
+**Night Train**
+**First performed:** September 30, 1978 (Atlanta, GA)
 **Last performed:** September 30, 1978 (Atlanta, GA)

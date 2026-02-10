@@ -57,6 +57,6 @@ Bruce's last verse shreds on its own power, but Gary absolutely nails his vocals
 "Love's on the Line" is a true hidden gem, one of Bruce's best River-era compositions and one of Bonds' finest performances. It flies under the radar, but it's a song and an album that should be in any fan's collection.
 
 **Love's on the Line
-Recorded:** January – February 1982
+**Recorded:** January – February 1982
 **Released:** *On the Line* (1982)
 **Never performed**

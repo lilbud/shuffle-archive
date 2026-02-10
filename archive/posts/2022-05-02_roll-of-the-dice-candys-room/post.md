@@ -144,7 +144,7 @@ And to reach Candy's room, you have to walk that long, dark hall.
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Candy's Room (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=w2Q7bb0szOE)
 
 **Candy's Room
-Recorded:** October 27, 1977 – March 5, 1978
+**Recorded:** October 27, 1977 – March 5, 1978
 **Released:** *Darkness on the Edge of Town* (1978)
 **First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** August 26, 2023 (Foxborough, MA)

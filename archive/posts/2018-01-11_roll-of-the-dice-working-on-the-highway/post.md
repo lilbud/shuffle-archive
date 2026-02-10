@@ -53,7 +53,7 @@ Pretty amazing how the slower melody lets the meaning of the lyrics leap out at 
 
 You're welcome.
 
-**Working on the Highway
+**Working on the Highway**
 Recorded** ("Child Bride" version): Dec 1981/Jan 1982
 **Recorded** (final version): May 1982
 **Released**: *Born in the U.S.A.* (1984)

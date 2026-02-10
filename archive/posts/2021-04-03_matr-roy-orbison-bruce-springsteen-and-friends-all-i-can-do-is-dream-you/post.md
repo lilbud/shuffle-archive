@@ -21,7 +21,7 @@ Unfortunately, Bruce wasn't center stage for this song, though–to spot him, yo
 [Watch on Youtube: Roy Orbison - (All I Can Do Is) Dream You (Black & White Night 30 - Alternate Version)](https://www.youtube.com/watch?v=4uBj5TwUsq0)
 
 **(All I Can Do Is) Dream You
-First performed:** September 30, 1987 (Los Angeles, CA)
+**First performed:** September 30, 1987 (Los Angeles, CA)
 **Last performed:** September 30, 1987 (Los Angeles, CA)
 
 For more great performances from this legendary show, see more *Black and White Night* entries [here](https://estreetshuffle.com/?s=orbison+black+and+white+night).

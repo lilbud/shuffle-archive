@@ -45,7 +45,7 @@ This one is perfect as is.
 
 [Watch on Youtube: Darlene Love Night Closing In 2015](https://www.youtube.com/watch?v=N-5FXMhnKMg)
 
-**Night Closing In
-Recorded:** 2014-2015
+**Night Closing In**
+**Recorded:** 2014-2015
 **Released:** *Introducing Darlene Love* (2015)
 **Never performed live by Bruce**

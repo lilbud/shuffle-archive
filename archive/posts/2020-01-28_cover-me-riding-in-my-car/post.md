@@ -21,5 +21,5 @@ Believe it or not, Bruce's cover of "Riding in My Car" has been officially relea
 For fans of Woody and Bruce, that's great news, because we're highly unlikely to hear Bruce cover it in concert again.
 
 **Riding in My Car (Car Song)
-Recorded:** September 29, 1996 (live)**Released:** *'Til We Outnumber Them* (2000)**First performed:** September 29, 1996 (Cleveland, OH)
+**Recorded:** September 29, 1996 (live)**Released:** *'Til We Outnumber Them* (2000)**First performed:** September 29, 1996 (Cleveland, OH)
 **Last performed:** September 29, 1996 (Cleveland, OH)

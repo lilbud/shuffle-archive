@@ -8,7 +8,7 @@ Bruce supplies very recognizable backing vocals on this haunting track.
 
 [Watch on Youtube: Prison Grove](https://www.youtube.com/watch?v=_HpFDgPWO5w)
 
-**Prison Grove
-Recorded:** December 2002
+**Prison Grove**
+**Recorded:** December 2002
 **Released:** *The Wind* (2003)
 **Never performed**

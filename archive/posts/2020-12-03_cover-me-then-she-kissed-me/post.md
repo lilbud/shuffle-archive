@@ -37,5 +37,5 @@ Bruce performed "Then She Kissed Me" once more (by request this time) the follow
 It's clearly a song for which Bruce has a great deal of affection, though, so all it might take is a well-positioned sign on the next tour for "Then She Kissed Me" to make a return visit.
 
 **Then (S)he Kissed Me
-First performed:** July 13, 1974 (New York City, NY)
+**First performed:** July 13, 1974 (New York City, NY)
 **Last performed:** September 13, 2009 (Sunrise, FL)

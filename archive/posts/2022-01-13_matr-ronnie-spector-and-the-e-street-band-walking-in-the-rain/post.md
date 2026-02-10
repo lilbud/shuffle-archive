@@ -35,6 +35,6 @@ They weren't alone. Ronnie Spector passed away this evening (as I write this) af
 **Ronnie Spector**
 **August 10, 1943 – January 12, 2022**
 
-**Walking in the Rain
-First performed:** November 4, 1976 (New York City, NY)
+**Walking in the Rain**
+**First performed:** November 4, 1976 (New York City, NY)
 **Last performed:** May 13, 1977 (Red Bank, NJ)

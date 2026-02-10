@@ -34,6 +34,6 @@ And as for me, I had to admit... very, *very* grudgingly... it was kinda fun.
 
 Shhhhh.... don't tell anyone.
 
-**Achy Breaky Heart
-First performed:** March 23, 1993 (Red Bank, NJ)
+**Achy Breaky Heart**
+**First performed:** March 23, 1993 (Red Bank, NJ)
 **Last performed:** March 23, 1993 (Red Bank, NJ)

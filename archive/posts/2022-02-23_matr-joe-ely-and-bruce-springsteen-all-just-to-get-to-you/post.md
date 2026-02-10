@@ -20,8 +20,8 @@ In that performance below–televised at the time–Bruce and Joe trade lead voc
 
 It's been fifteen years since Bruce and Joe last played "All Just to Get to You," but don't count it out it for good. When Bruce's next tour heads down toward Texas, there's a good chance we'll see these two share the stage again.
 
-**All Just to Get to You
-Recorded:** April 1995
+**All Just to Get to You**
+**Recorded:** April 1995
 **Released:** *Letter to Laredo* (1995)
 **First performed:** September 14, 1995 (West Hollywood, CA)
 **Last performed:** April 14, 2008 (Houston, TX)

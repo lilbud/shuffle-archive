@@ -83,7 +83,7 @@ Fortunately, Tom made more than a few guest appearances on the Wrecking Ball Tou
 
 Despite a momentary lyrical lapse and some audio difficulties during Nils' solo, it's a powerful performance and a reminder that "This Depression" deserves more frequent outings in the future.
 
-**This Depression
+**This Depression**
 Recorded**: Unknown
 **Released**: *Wrecking Ball* (2012)
 **First performed**: July 23, 2012 (Bergen, Norway)
