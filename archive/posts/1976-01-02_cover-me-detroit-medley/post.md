@@ -1,3 +1,10 @@
+---
+title: 'Detroit Medley'
+author: 'Ken Rosen'
+date: 2025-11-15
+excerpt: "Bruce Springsteen's 'Detroit Medley' is a glorious mash-up, homage, and rock and roll history lesson. It's also a ton of fun. Let's trace the lineage of this encore favorite and watch some classic performances inside."
+---
+
 One of Bruce Springsteen's most popular cover songs is a actually a mash-up of two different cover medleys, each of which covers two *other* classic rock-and-roll and R&B songs. It's also a musical history lesson dating back to the early days of the blues era.
 
 Got that?
