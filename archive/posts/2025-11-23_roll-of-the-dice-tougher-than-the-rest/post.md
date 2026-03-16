@@ -133,7 +133,7 @@ January – April 1987
  October 31, 1987 (Sea Bright, NJ)
 September 15, 2024 (Asbury Park, NJ)
 
-**Tougher Than the Rest
+**Tougher Than the Rest**
 Recorded:**  
 
 **Released:** *Tunnel of Love* *The Essential Bruce Springsteen*   

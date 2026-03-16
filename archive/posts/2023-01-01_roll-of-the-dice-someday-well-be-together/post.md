@@ -63,7 +63,7 @@ Bruce has never performed it in concert, and I wouldn’t lay odds of him doing 
 September 26-30, 1977 (backing track), 2010 (vocals and modern elements)
  (2010)
 
-**Someday (We’ll Be Together)
+**Someday (We’ll Be Together)**
 Recorded:**  
 
 **Released:** *The Promise*   

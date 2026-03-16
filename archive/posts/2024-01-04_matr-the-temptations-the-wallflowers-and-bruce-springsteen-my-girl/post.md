@@ -47,9 +47,7 @@ Maybe it just works better at home?
 June 3, 1979 (West Hollywood, CA)
  December 22, 2002 (Asbury Park, NJ)
 
-**My Girl
+**My Girl**
 First performed:**   
 
 **Last performed:**
-
- 

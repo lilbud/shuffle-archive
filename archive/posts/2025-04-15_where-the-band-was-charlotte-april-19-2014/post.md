@@ -63,5 +63,3 @@ Bruce sent us home with “” (the cover of the evening), and I was stunned by 
 As the High Hopes tour continued its victory lap, the setlists would delve ever deeper into Bruce’s catalog, but nothing would equal the magic of this show.
 
 Easily one of my top shows.
-
- 

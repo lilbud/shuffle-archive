@@ -17,5 +17,3 @@ Backed by a full choir, Sting did Bruce proud and then some. Just watch–even m
 What a surreal and emotional moment that must have been for Bruce–watch his face and you can almost read his thoughts.
 
 [https://www.youtube.com/embed/tmWYg4W9CaY?feature=oembed](https://www.youtube.com/embed/tmWYg4W9CaY?feature=oembed)
-
- 

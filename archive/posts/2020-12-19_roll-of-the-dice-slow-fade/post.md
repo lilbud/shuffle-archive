@@ -49,7 +49,7 @@ February 5, 1980 (rehearsals only)
 
 
 
-**Slow Fade
+**Slow Fade**
 Recorded:**  
 
 **Never released**  

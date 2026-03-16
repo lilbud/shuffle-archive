@@ -74,10 +74,10 @@ While the central anchor of “Follow that dream wherever it may lead” may be 
 
 Springsteen also adds an entirely new verse:
 
-*Now every man has the right to live
+**Now every man has the right to live**
 The right to a chance to give what he has to give*  
 
-*The right to fight for the things he believes
+**The right to fight for the things he believes**
 For things that come to him in dreams*  
 
 
@@ -112,7 +112,7 @@ January 30, 1983
  April 19, 1981 (Paris, France)
  February 16, 2017 (Brisbane, Australia)
 
-**Follow That Dream
+**Follow That Dream**
 Recorded:**  
 
 **Released:***L.A. Garage Sessions ’83*   

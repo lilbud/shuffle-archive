@@ -130,4 +130,4 @@ Bruce bids farewell to the Summer of 2020 with “Summer’s End,” the twelfth
 
 Bruce’s scheduled show at Mohegan Sun Arena in Uncasville is postponed for a second time, this time to seven months later.
 
-**2023:** 
+**2023:**

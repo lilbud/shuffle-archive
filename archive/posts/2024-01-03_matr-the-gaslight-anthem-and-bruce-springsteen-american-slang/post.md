@@ -35,7 +35,7 @@ That performance turned out to be the last time Brian and Bruce would perform to
 December 9, 2011 (Asbury Park, NJ)
  December 9, 2011 (Asbury Park, NJ)
 
-**American Slang
+**American Slang**
 First performed:**  
 
 **Last performed:**

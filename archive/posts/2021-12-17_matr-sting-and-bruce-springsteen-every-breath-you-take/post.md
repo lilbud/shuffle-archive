@@ -40,5 +40,3 @@ September 17, 1988 (Montreal, Canada)
 **Every Breath You Take**  
 **First performed:**  
 **Last performed:**
-
- 

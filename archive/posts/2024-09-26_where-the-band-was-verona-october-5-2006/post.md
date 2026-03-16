@@ -99,5 +99,3 @@ Looking back, what I remember most about this show are the more than the perform
 It remains my all-time favorite show, even if my memories of it are inconsistently vivid. If you ever have a chance to see a show there– show, by any artist–take it.
 
 *any*
-
- 

@@ -27,7 +27,7 @@ Other than a one-off performance with Rickie Lee Jones and Boz Scaggs in 1979 (f
 November 16, 1974 (Washington, DC)
  June 3, 1979 (West Hollywood, CA)
 
-**Wear My Ring Around Your Neck
+**Wear My Ring Around Your Neck**
 First performed:**  
 
 **Last performed:**

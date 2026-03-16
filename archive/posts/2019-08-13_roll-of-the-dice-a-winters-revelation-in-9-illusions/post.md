@@ -79,7 +79,7 @@ We can clearly see what Bruce was aiming for, and it would have been a neat tric
 
 But of course we know he would be before long.
 
-**A Winter's Revelation (In 9 Illusions)
+**A Winter's Revelation (In 9 Illusions)**
 Never recorded**
 **Never performed**
 

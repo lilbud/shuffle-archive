@@ -84,7 +84,7 @@ March-April, 2002
  July 19, 2002 (Colts Neck, NJ)
  July 14, 2012 (London, England)
 
-**Empty Sky
+**Empty Sky**
 Recorded:**  
 
 **Released:** *The Rising*  

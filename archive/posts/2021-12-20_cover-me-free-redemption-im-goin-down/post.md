@@ -34,5 +34,3 @@ lead vocal, harmonica, guitar guitar, backing vocals bass, backing vocalsdrums, 
 **Ivan Sacchi,**  
 **Michele Leoni,**  
 **Gianluca Garavaso,**
-
- 

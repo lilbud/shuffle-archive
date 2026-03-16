@@ -49,7 +49,7 @@ Bruce may not have performed it since, but you can bet it hasn’t gone unsung. 
 October 1, 2006 (Bologna, Italy)
  January 28, 2014 (Cape Town, South Africa)
 
-**This Little Light of Mine
+**This Little Light of Mine**
 First performed:**  
 
 **Last performed:**

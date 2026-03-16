@@ -51,7 +51,7 @@ March 2013
  March 14, 2012 (Brisbane, Australia)
  April 26, 2014 (Atlanta, GA)
 
-**Just Like Fire Would
+**Just Like Fire Would**
 Recorded:**  
 
 **Released:** *High Hopes*   

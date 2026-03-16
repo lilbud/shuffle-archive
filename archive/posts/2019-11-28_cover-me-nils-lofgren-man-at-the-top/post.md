@@ -21,5 +21,3 @@ Nils finally recorded “Man at the Top” in the studio for the 2003 tribute al
 *Light of Day: A Tribute to Bruce Springsteen.*
 
 [https://www.youtube.com/embed/pEvCg4Bxd0w?feature=oembed](https://www.youtube.com/embed/pEvCg4Bxd0w?feature=oembed)
-
- 

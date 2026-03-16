@@ -33,7 +33,7 @@ While the earlier version might play to ears today as a novelty song, from a his
 January 18, 1971 (South Amboy, NJ)
  December 17, 1971 (New Brunswick, NJ)
 
-**Mary Louise Watson
+**Mary Louise Watson**
 Never recorded/released**  
 
 **First performed:**  

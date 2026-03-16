@@ -169,5 +169,3 @@ Bruce performs with John Mellencamp, Jackson Browne, Mavis Staples, Dion DiMucci
 [https://www.youtube.com/embed/ZqlpT73CuJw?feature=oembed](https://www.youtube.com/embed/ZqlpT73CuJw?feature=oembed)
 
 [https://www.youtube.com/embed/UjN4thitPO0?feature=oembed](https://www.youtube.com/embed/UjN4thitPO0?feature=oembed)
-
- 

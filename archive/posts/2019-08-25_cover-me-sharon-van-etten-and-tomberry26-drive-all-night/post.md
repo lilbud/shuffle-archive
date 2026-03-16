@@ -23,11 +23,3 @@ Luckily, in my search for that video, I stumbled across a complete audio version
 I have no idea who TomBerry26 is, but he has my thanks. His version enhanced version is beautiful in its own right.
 
 [https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/160561667&amp;color=%23ff5500&amp;auto_play=false&amp;hide_related=false&amp;show_comments=true&amp;show_user=true&amp;show_reposts=false&amp;show_teaser=true&amp;visual=true](https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/160561667&amp;color=%23ff5500&amp;auto_play=false&amp;hide_related=false&amp;show_comments=true&amp;show_user=true&amp;show_reposts=false&amp;show_teaser=true&amp;visual=true)
-
- 
-
- 
-
- 
-
- 

@@ -112,7 +112,7 @@ Unfortunately, like most of the album, the title track has mostly disappeared si
  November 2, 2008 (Cleveland, OH)
  June 5, 2022 (East Rutherford, NJ)
 
-**Working on a Dream
+**Working on a Dream**
 Recorded:**  
 
 **Released:***Working on a Dream* *The Essential Bruce Springsteen*  

@@ -37,9 +37,7 @@ Bruce played one other song with The Shots that night–Bruce’s one and only a
 April 24, 1970 (West Long Branch, NJ)
  July 16, 1994 (Asbury Park, NJ)
 
-**Funky Broadway
+**Funky Broadway**
 First performed:**  
 
 **Last performed:**
-
- 

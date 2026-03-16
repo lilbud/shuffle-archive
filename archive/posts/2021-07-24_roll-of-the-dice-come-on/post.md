@@ -74,5 +74,3 @@ May 23, 1970 (Richmond, VA)
 Looking for your favorite Bruce song? Check our . New entries every week!
 
 [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
-
- 

@@ -39,7 +39,7 @@ Bruce accepted, and their recording of “Everything I Do (Leads Me Back to You)
 June 30, 1992 (Paris, France)
  June 30, 1992 (Paris, France)
 
-**Rock Ballad
+**Rock Ballad**
 First performed:**  
 
 **Last performed:**

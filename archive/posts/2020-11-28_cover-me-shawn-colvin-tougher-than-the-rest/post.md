@@ -19,5 +19,3 @@ It’s a gorgeous performance that captures the soul of the song. As she said in
 *It’s mistaken, perhaps, for a song that’s got a lot of bravado in it, and I don’t see it that way. I see it as world-weariness that he’s conveying, and sort of a quiet confidence, born of struggle and experience and heartbreak.*
 
 [https://www.youtube.com/embed/PceRAJ_K27I?feature=oembed](https://www.youtube.com/embed/PceRAJ_K27I?feature=oembed)
-
- 

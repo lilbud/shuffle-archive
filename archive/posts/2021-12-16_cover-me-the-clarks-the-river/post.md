@@ -23,5 +23,3 @@ It works–better than one might imagine was possible. Take a listen.
 You can find “The River” on the tribute album, or on The Clark’s 2004 release,
 
 *Light of Day* *Strikes and Gutters 2: Doublewide.*
-
- 

@@ -47,5 +47,3 @@ That’s all for now, but I’ll be back tomorrow with a couple more special tre
 Anyway, thanks for sticking with me while I moonlight a bit. I’ll be back home and blogging away again in a couple of days–look for a new this weekend.
 
 *Roll of the Dice*
-
- 

@@ -148,7 +148,7 @@ I guess he’s worked “All I’m Thinkin’ About” out of his system.
 April 30, 2005 (Glendale, AZ)
 November 19, 2005 (Hollywood, FL)
 
-**All I’m Thinkin’ About
+**All I’m Thinkin’ About**
 Recorded:**   
 
 **Released:** *Devils & Dust*  

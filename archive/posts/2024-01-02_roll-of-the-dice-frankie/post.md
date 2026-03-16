@@ -167,7 +167,7 @@ May 14,1982
  March 26, 1976 (Atlanta, GA)
  July 20, 2016 (Horsens, Denmark)
 
-**Frankie
+**Frankie**
 Recorded:**  
 
 **Released:***Tracks*  

@@ -21,7 +21,7 @@ And just because we all need to be reminded from time to time that rock stars us
 January 31, 1998 (Red Bank, NJ)
  January 31, 1998 (Red Bank, NJ)
 
-**You Give Love a Bad Name
+**You Give Love a Bad Name**
 First performed:**  
 
 **Last performed:**

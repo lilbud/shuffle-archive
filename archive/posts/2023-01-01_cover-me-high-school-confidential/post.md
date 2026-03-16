@@ -39,9 +39,7 @@ It was an inspired choice by a rock star who was also a huge film buff. Because 
 August 14, 1978 (Hampton, VA)
  November 5, 2022 (Los Angeles, CA)
 
-**High School Confidential
+**High School Confidential**
 First performed:**  
 
 **Last performed:**
-
- 

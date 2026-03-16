@@ -69,5 +69,3 @@ Backed by Bobby Bandiera and his band, Bruce plays a benefit for his kids’ sch
 continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Bono.
 
 **2018:** *Springsteen on Broadway*
-
- 

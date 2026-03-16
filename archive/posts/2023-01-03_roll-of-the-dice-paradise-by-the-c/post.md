@@ -74,7 +74,7 @@ Bruce doesn’t need to (and almost certainly won’t) bring this one back in co
  May 23, 1978 (Buffalo, NY)
  August 2, 1988 (Madrid, Spain)
 
-**Paradise by the “C”
+**Paradise by the “C”**
 Never recorded**  
 
 **Released:** *The River: Outtakes*  

@@ -45,9 +45,7 @@ That’s a lesson they’ve both proven time and again.
 March 1, 2014 (Auckland, New Zealand)
  March 2, 2014 (Auckland, New Zealand)
 
-**Royals
+**Royals**
 First performed:**  
 
 **Last performed:**
-
- 

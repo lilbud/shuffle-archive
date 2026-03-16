@@ -63,5 +63,3 @@ Bruce and Tom Morello perform at the MusiCares Person of the Year tribute to Bob
 Bruce performs “” at his mother’s funeral service at St. Rose of Lima in Freehold.
 
 **2024:** [The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)
-
- 

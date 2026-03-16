@@ -99,7 +99,7 @@ March 19, 2005
  April 20, 2006 (Asbury Park, NJ)
  May 16, 2015 (New York City, NY)
 
-**O Mary Don’t You Weep
+**O Mary Don’t You Weep**
 Recorded:**  
 
 **Released:** [We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)  

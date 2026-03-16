@@ -159,5 +159,3 @@ Bruce guest stars with Danny Clinch’s Tangiers Blues Band at the annual Kriste
 [https://www.youtube.com/embed/gC72nJOeExc?feature=oembed](https://www.youtube.com/embed/gC72nJOeExc?feature=oembed)
 
 [https://www.youtube.com/embed/HfbSY7a8sks?feature=oembed](https://www.youtube.com/embed/HfbSY7a8sks?feature=oembed)
-
- 

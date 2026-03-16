@@ -31,5 +31,3 @@ Almost.
 My most vivid memory from that show is the big group of lesbians in the pit with us, rocking out and having a blast. How do I know they were lesbians? Because they were all wearing t-shirts emblazoned “Lesbians (heart) Bruce!” Every time he noticed them, Bruce cracked up, and by the encore, he was playing directly to them, giving a shout-out in “” to “…the lesbians and the Jews!” If the main set was intense, the encore was a big party.[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)
 
 In short, a fun show, and serviceable if predictable opener for a three-night PacNW stand. Nights Two and Three would bring their share of surprises and then some.
-
- 

@@ -47,7 +47,7 @@ January 21, 2006
  April 20, 2006 (Asbury Park, NJ)
  November 21, 2006 (Belfast, Northern Ireland)
 
-**Jacob’s Ladder
+**Jacob’s Ladder**
 Recorded:**  
 
 **Released:** *We Shall Overcome: The Seeger Sessions*   

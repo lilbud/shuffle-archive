@@ -122,7 +122,7 @@ January – April 1987
  March 26, 1988 (Lexington, KY)
  November 19, 2005 (Hollywood, FL)
 
-**Ain’t Got You
+**Ain’t Got You**
 Recorded:**  
 
 **Released:** *Tunnel of Love*   

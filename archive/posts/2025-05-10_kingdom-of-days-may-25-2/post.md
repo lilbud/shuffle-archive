@@ -112,4 +112,4 @@ Bruce and the E Street Band play their first of two nights at Johan Cruijff Aren
 
 Shortly before showtime, Bruce is forced to postpone his concert in Marseille due to vocal problems. As of this writing, the show has yet to occur.
 
-**2024:** 
+**2024:**

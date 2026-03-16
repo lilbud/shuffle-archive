@@ -16,6 +16,6 @@ Why'd he do that? Beats me, but the Bruce Springsteen Band still manages to comm
 
 Even then, they were that good.
 
-**Darkness, Darkness
+**Darkness, Darkness**
 **First performed:** July 10, 1971 (Lincroft, NJ)
 **Last performed:** February 4, 1972 (Richmond, VA)

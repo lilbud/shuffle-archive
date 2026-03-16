@@ -159,7 +159,7 @@ November 2019
  November 18, 2020 (Colts Neck, NJ)
  February 3, 2023 (Atlanta, GA)
 
-**House of a Thousand Guitars
+**House of a Thousand Guitars**
 Recorded:**   
 
 **Released:** *Letter to You*   

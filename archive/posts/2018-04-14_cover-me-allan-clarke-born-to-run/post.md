@@ -19,5 +19,3 @@ By the time EMI released Clarke’s version, Bruce’s had already been released
 We know which one won.
 
 [https://www.youtube.com/embed/K9pQjDaxAKE?feature=oembed](https://www.youtube.com/embed/K9pQjDaxAKE?feature=oembed)
-
- 

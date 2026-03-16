@@ -19,5 +19,3 @@ if the video above doesn’t work in your country, try this one instead:
 **Updated:**
 
 [https://www.youtube.com/embed/KK6nLBrhMbM?feature=oembed](https://www.youtube.com/embed/KK6nLBrhMbM?feature=oembed)
-
- 

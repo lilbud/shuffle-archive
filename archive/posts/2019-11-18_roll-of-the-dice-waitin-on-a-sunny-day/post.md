@@ -145,7 +145,7 @@ Early 2002
  July 25,2002 (Asbury Park, NJ)
  November 16, 2019 (Asbury Park, NJ)
 
-**Waitin’ on a Sunny Day
+**Waitin’ on a Sunny Day**
 Recorded:**  
 
 **Released:***The Rising*  

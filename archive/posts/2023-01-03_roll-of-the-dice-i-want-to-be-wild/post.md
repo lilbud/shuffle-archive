@@ -89,7 +89,7 @@ November 11, 1977 (demo only)
 
 
 
-**I Want to Be Wild
+**I Want to Be Wild**
 Recorded:**   
 
 **Never released**  

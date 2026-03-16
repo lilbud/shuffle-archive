@@ -47,10 +47,8 @@ It’s not the kind of track one would expect from either John or Bruce (let alo
 April 10, 2021
  (2022)
 
-**A Life Full of Rain
+**A Life Full of Rain**
 Recorded:**  
 
 **Released:***Strictly a One-Eyed Jack*  
 **Never performed**
-
- 

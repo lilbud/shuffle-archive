@@ -28,5 +28,3 @@ January 18, 1989 (New York City, NY)
 **Start Me Up**  
 **First performed:**  
 **Last performed:**
-
- 

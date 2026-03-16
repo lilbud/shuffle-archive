@@ -96,5 +96,3 @@ June 28, 1973
 Looking for your favorite Bruce song? Check our full index . New entries every week!
 
 [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
-
- 

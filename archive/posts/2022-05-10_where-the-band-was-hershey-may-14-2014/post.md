@@ -49,5 +49,3 @@ to a couple of classic River outtakes (“” and ““)…
 [https://www.youtube.com/embed/xZuMWcKdRT0?feature=oembed](https://www.youtube.com/embed/xZuMWcKdRT0?feature=oembed)
 
 Pennsylvania is still one of my favorite states to see a Springsteen show… but I’ll stick with Philly and Pittsburgh and give Hershey a pass from now on.
-
- 

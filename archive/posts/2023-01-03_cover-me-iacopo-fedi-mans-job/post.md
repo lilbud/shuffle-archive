@@ -45,5 +45,3 @@ Fedi’s astounding performance landed him in eleventh place for the evening, wh
 I’ll be featuring several more of my favorite performances over the coming weeks, along with my overall impressions of the event. But for now, my thanks and admiration to creator/organizer Alberto Lanfranchi and his wonderful, warm team for putting on an amazing event during a challenging time, and for allowing me to be a part of it.
 
 And thank you, Iacopo, for re-inventing Bruce’s song and deepening my appreciation of it. Your live performance that night will likely remain my single favorite performance of “Man’s Job” by anyone, Bruce included.
-
- 

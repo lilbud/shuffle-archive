@@ -23,5 +23,3 @@ Sara never gained much attention in the U.S., so if you want to track down the o
 Bonus: there are a few live performance clips floating around, but this 2010 rehearsal footage with her band is even edgier than her album track.
 
 [https://www.youtube.com/embed/G5qZVAHGy38?feature=oembed](https://www.youtube.com/embed/G5qZVAHGy38?feature=oembed)
-
- 

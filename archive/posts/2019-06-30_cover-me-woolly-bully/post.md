@@ -19,7 +19,7 @@ Bonus footage: check out this high-quality video from the original artists.
 September 19, 1982 (Asbury Park, NJ)
  May 8, 2009 (University Park, PA)
 
-**Wooly Bully
+**Wooly Bully**
 First performed:**  
 
 **Last performed:**

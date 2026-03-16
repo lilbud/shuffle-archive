@@ -189,5 +189,3 @@ resumes its theatrical run at the Walter Kerr Theater after a two-week break. Br
 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/05/bruce-springsteen-252x300.jpg?resize=758%2C902)
-
- 

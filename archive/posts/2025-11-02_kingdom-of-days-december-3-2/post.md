@@ -117,5 +117,3 @@ The television show airs an episode that explores the value of a vintage 1984 Bo
 Bruce drops by the set of in Brooklyn.
 
 **2024:** *Deliver Me From Nowhere*
-
- 

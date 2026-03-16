@@ -53,5 +53,3 @@ This new arrangement of “Dancing in the Dark” , and Bruce sensed it. Looking
 Bruce returned to the setlist for the remainder of the encores, and that was just fine by us. That double-shot of “Dancing” and “Ramrod” was a promise of looser shows to come and a signal that even though the new albums was a largely somber affair, Bruce’s shows would inevitably return to spontaneous celebrations of community.
 
 So I needed to do just one more…
-
- 

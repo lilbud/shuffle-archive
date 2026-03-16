@@ -62,11 +62,10 @@ Bruce performed the songs on two more occasions in 1996, both on his solo acoust
 ---
 
 
-*****Recent research suggests that perhaps not all of the doomed flight's passengers were Mexican. Listen to the interview below for a fascinating postscript to the true story of the plane wreck at Los Gatos.
-
+**Recent research suggests that perhaps not all of the doomed flight's passengers were Mexican. Listen to the interview below for a fascinating postscript to the true story of the plane wreck at Los Gatos.**
 [https://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3?_=2)
 
-**Deportee (Plane Wreck at Los Gatos)
+**Deportee (Plane Wreck at Los Gatos)**
 **Recorded:** September 29, 1996
 **Released:** *'Till We Outnumber 'em* (2000)
 **First performed:** August 28, 1981 (Los Angeles, CA)

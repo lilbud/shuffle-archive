@@ -113,7 +113,7 @@ December 1989-January 1990
  May 6, 1992 (New York City, NY)
  July 13, 1992 (Werchter, Belgium)
 
-**Man’s Job
+**Man’s Job**
 Recorded:**  
 
 **Released:** *Human Touch*  

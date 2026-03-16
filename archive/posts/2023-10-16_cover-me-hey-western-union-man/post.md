@@ -45,7 +45,7 @@ Bruce’s cover hews pretty closely to Butler’s original, preserving the arran
 Although he gave no specifics, I’m betting we’ll hear Butler’s “Never Give You Up” on Bruce’s rumored follow-up cover album–hopefully someday soon.
 
 **Hey, Western Union Man**   
-**Recorded: 2021
+**Recorded: 2021**
 Released: (2022)
 Never performed**  
 *Only the Strong Survive*   

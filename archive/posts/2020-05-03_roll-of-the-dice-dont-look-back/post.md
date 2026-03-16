@@ -91,7 +91,7 @@ I'll leave you with a terrific video of that performance of "Don't Look Back" â€
 
 [Watch Video Highlight](https://videopress.com/embed/L5e9SzQt)
 
-**Don't Look Back
+**Don't Look Back**
 **Recorded:** July 2, 1977 â€“ March 2, 1978
 **Released:** *Tracks* (1998)
 **First performed:** March 10, 1977 (Toledo, OH)

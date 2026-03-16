@@ -16,7 +16,7 @@ Lyrically, it fits right in with Bruce's early work, rife with alliteration...
 ...and colorful imagery limning seamy street life.
 
 *So perfumed sweet and so obscene*
-*Like the fancy dancers of our dirty green
+**Like the fancy dancers of our dirty green**
 Oh they know hello and goodbye but not what goes in between*
 *Yeah, and its such a scene on Saturday night*
 

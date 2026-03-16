@@ -86,7 +86,7 @@ But wait–there might yet be hope for our lovers' reconciliation! All our narra
 *Won't you do me a little favor first?*
 *I said, won't you do me a favor?"*
 
-*I said, "what do you want from me?"
+**I said, "what do you want from me?"**
 She told me that if I get into town...*
 
 Oh no. Don't do it, Bruce. Don't go there.

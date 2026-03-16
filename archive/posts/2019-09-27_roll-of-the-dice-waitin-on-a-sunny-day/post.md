@@ -116,7 +116,7 @@ There may come a day when the name and music of Bruce Springsteen are all but fo
 
 [Watch on Youtube: Bruce Springsteen - Waitin' On A Sunny Day - The Song (From VH1 Storytellers)](https://www.youtube.com/watch?v=6we0bK-XZaU)
 
-**Waitin' on a Sunny Day
+**Waitin' on a Sunny Day**
 **Recorded:** Early 2002
 **Released:** *The Rising* (2002)
 **First performed:** July 25,2002 (Asbury Park, NJ)

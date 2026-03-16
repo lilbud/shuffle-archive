@@ -207,7 +207,7 @@ September 11, 1972
  December 7, 1972 (New York City, NY)
  September 15, 2024 (Asbury Park, NJ)
 
-**Blinded by the Light
+**Blinded by the Light**
 Recorded:**  
 
 **Released:** *Greetings From Asbury Park, N.J.* *The Essential Bruce Springsteen*  

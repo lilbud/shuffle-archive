@@ -25,7 +25,7 @@ Enjoy this gorgeous one-time-only assemblage of talent performing “Leah” at 
 September 30, 1987 (Los Angeles, CA)
  September 30, 1987 (Los Angeles, CA)
 
-**Leah
+**Leah**
 First performed:**  
 
 **Last performed:**

@@ -57,9 +57,7 @@ Check out Chapter Five of Steve’s to see where the story goes from there.
 January 21, 1972 (Neptune, NJ)
  September 9, 1972 (Highlands, NJ)
 
-**Confessin’ the Blues
+**Confessin’ the Blues**
 First performed:**   
 
 **Last performed:**
-
- 

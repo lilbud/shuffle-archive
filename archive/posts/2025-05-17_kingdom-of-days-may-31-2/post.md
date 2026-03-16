@@ -112,4 +112,4 @@ Bruce’s Italian shows are always special, and this show in Padua is no excepti
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2018:** *Springsteen on Broadway* 
+**2018:** *Springsteen on Broadway*

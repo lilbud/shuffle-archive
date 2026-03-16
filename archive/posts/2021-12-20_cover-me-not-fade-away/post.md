@@ -63,9 +63,7 @@ Here’s Bruce’s last (for now, at least) performance of “Not Fade Away.”
 October 23, 1971 (Richmond, VA)
  July 6, 2019 (Asbury Park, NJ)
 
-**Not Fade Away
+**Not Fade Away**
 First performed:**  
 
 **Last performed:**
-
- 

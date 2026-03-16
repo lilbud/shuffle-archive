@@ -12,6 +12,6 @@ Here's that performance (with Bruce playing a supporting role on this one), from
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/03/edmunds.jpg)
 
-**Let's Talk About Us
+**Let's Talk About Us**
 **First performed:** September 18, 1982 (Red Bank, NJ)
 **Last performed:** September 18, 1982 (Red Bank, NJ)

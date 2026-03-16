@@ -37,7 +37,7 @@ Among the songs they played that night was “Allentown,” with Bruce and Billy
 October 16, 2008 (New York City, NY)
  October 16, 2008 (New York City, NY)
 
-**Allentown
+**Allentown**
 First performed:**  
 
 **Last performed:**

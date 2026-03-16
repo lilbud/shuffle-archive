@@ -23,7 +23,7 @@ The “hunka hunka’s” are dead giveaways that Bruce has Elvis’ version in 
 April 12, 1995 (New York City, NY)
  April 17, 2014 (Nashville, TN)
 
-**Burning Love
+**Burning Love**
 First performed:**  
 
 **Last performed:**

@@ -92,7 +92,7 @@ July 18, 1979
  June 3, 1999 (Paris, France)
  September 9, 2016 (Philadelphia, PA)
 
-**Loose End
+**Loose End**
 Recorded:**  
 
 **Released:** *Tracks* *The River: Single Album*  
@@ -103,4 +103,4 @@ Looking for your favorite Bruce song? Check our full index . New entries every w
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
 
-*I know the song is officially entitled “Loose Ends.” I’m convinced it’s a typo Bruce has never bothered to correct.
+**I know the song is officially entitled “Loose Ends.” I’m convinced it’s a typo Bruce has never bothered to correct.**

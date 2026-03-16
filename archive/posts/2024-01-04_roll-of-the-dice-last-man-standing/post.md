@@ -181,7 +181,7 @@ November 18-22, 2019
  October 27, 2020 (Colts Neck, NJ)
  September 3, 2023 (East Rutherford, NJ)
 
-**Last Man Standing
+**Last Man Standing**
 Recorded:**  
 
 **Released:***Letter to You*   

@@ -112,7 +112,7 @@ Especially at that moment, Bruce probably very much needed to believe that.
 April 4, 1987
  (single B-side, 1987), (1998)
 
-**Lucky Man
+**Lucky Man**
 Recorded:**  
 
 **Released:***Brilliant Disguise* *Tracks*  

@@ -80,7 +80,7 @@ Happy Thanksgiving.
 
 [Watch on Youtube: September 11, 2021](https://www.youtube.com/watch?v=xJum7B1KnkA)
 
-**I'll See You in My Dreams
+**I'll See You in My Dreams**
 **Recorded:** November 2019
 **Released:** *Letter to You* (2020)
 **First performed:** November 18, 2020 (Colts Neck, NJ)

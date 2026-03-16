@@ -17,5 +17,3 @@ Bruce has often stated that the song takes on a different meaning if you sing it
 Keifer and Shawna Thompson certainly capture that spirit here.
 
 [https://www.youtube.com/embed/y24Cs5lTgLw?feature=oembed](https://www.youtube.com/embed/y24Cs5lTgLw?feature=oembed)
-
- 

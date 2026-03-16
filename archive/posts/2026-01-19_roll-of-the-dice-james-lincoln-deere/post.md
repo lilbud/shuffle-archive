@@ -147,7 +147,7 @@ Bruce’s tales of good men turned bad work better when subtler, and by the time
 
 
 
-**James Lincoln Deere
+**James Lincoln Deere**
 Recorded**  
 
 **Never released**  

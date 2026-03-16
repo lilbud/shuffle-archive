@@ -121,7 +121,7 @@ After all: It’s all happened before. It’ll happen again.
  March 2, 2012 (New York City, NY)
  September 7, 2016 (Philadelphia, PA)
 
-**Jack of All Trades
+**Jack of All Trades**
 Recorded:**  
 
 **Released:** *Wrecking Ball*   

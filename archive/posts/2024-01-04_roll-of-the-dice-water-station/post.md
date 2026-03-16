@@ -209,7 +209,7 @@ It was the first public performance of the group who would someday be dubbed The
 September 9, 1972 (Highlands, NJ)
  September 9, 1972 (Highlands, NJ)
 
-**Water Station
+**Water Station**
 Never recorded**  
 
 **Never released**  

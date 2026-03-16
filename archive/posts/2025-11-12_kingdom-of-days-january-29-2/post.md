@@ -117,5 +117,3 @@ The River Tour (2016 Edition) moves on to the Verizon Center in Washington, DC.
 [https://www.youtube.com/embed/upi3Q9jUN1U?feature=oembed](https://www.youtube.com/embed/upi3Q9jUN1U?feature=oembed)
 
 [https://www.youtube.com/embed/GknaqyXKstQ?feature=oembed](https://www.youtube.com/embed/GknaqyXKstQ?feature=oembed)
-
- 

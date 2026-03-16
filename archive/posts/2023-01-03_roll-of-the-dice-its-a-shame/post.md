@@ -70,7 +70,7 @@ Neither “Jon’s Jam” or “It’s a Shame” have ever had a live outing, b
 June 14, 1977 (with 2010 horn and vocal overdubs)
 (2010)
 
-**It’s a Shame
+**It’s a Shame**
 Recorded:**  
 
 **Released:** *The Promise*   

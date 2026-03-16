@@ -56,7 +56,7 @@ Unknown
  August 2007 (exact date unknown)
  August 2007 (exact date unknown)
 
-**Play It As It Lays
+**Play It As It Lays**
 Recorded:**   
 
 **Released:***Play It As It Lays*   

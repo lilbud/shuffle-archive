@@ -8,6 +8,23 @@ import ftfy
 import html_to_markdown
 from bs4 import BeautifulSoup as bs4
 
+def markdown_fixes(post: str) -> str:
+    """Fixes for markdown."""
+
+    # post = [line for line in post.splitlines()]
+
+    # for line in post.splitlines():
+    #     if len(line) > 0 and not re.search("^\s+$", line):
+    #         if line.startswith("**") and not line.endswith("**"):
+    #             line = f"{line}**"
+
+    post = re.sub(r"^\*+([^*]+?)\s*$", r"**\1**", post, flags=re.MULTILINE)
+    # print(re.search(r"^\*+[^*]+$", post, re.MULTILINE))
+
+    return post
+
+file = Path(r"archive\posts\1983-01-06_sugarland\post.md").read_text(encoding="utf-8")
+print(markdown_fixes(file))
 
 def format_date(date: str) -> datetime.datetime:
     """Convert date string to datetime object."""

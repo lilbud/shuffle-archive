@@ -102,7 +102,7 @@ Despite a momentary lyrical lapse and some audio difficulties during Nils’ sol
 : July 23, 2012 (Bergen, Norway)
 : July 24, 2013 (Leeds, England)
 
-**This Depression
+**This Depression**
 Recorded**  
 
 **Released***Wrecking Ball*   

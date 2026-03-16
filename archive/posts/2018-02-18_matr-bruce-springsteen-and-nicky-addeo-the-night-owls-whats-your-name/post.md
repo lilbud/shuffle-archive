@@ -10,6 +10,6 @@ Nicky Addeo isn't a household name, but in 1963 he released a song called "Glori
 
 [Watch on Youtube: What's Your Name?/Don and Juan](https://www.youtube.com/watch?v=vrZf3vRHmkw)
 
-**What's Your Name
+**What's Your Name**
 **First performed:** October 1965 (Monmouth County, NJ)
 **Last performed:** April 2, 2011 (Asbury Park, NJ)

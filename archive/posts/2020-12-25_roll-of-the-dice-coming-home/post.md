@@ -88,7 +88,7 @@ March 14, 1972
  October 23, 1971 (Richmond, VA)
  February 25, 1972 (Richmond, VA)
 
-**Coming Home
+**Coming Home**
 Recorded:**  
 
 **Never released**  

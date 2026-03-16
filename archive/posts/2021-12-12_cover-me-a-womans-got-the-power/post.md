@@ -25,4 +25,4 @@ October 22, 2011 (Asbury Park, NJ)
 
 **A Woman’s Got the Power** **First performed:**  
 
-**Last performed:** 
+**Last performed:**

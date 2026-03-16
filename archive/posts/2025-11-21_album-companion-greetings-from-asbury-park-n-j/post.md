@@ -79,5 +79,3 @@ And I do mean . Throughout this book, you’ll see many, many embedded QR codes.
 By the end of this volume, I hope and trust you’ll have a full appreciation for the body of work that introduced Bruce Springsteen to record store habitués. And if you do, I hope you stick with me: there are many, many more volumes to come.
 
 © January 5 2023/October 30 2025 by Ken Rosen
-
- 

@@ -43,5 +43,3 @@ Their version of “Dancing in the Dark” features stomping boots, rattling key
 [https://www.youtube.com/embed/TblP0wFyzrk?feature=oembed](https://www.youtube.com/embed/TblP0wFyzrk?feature=oembed)
 
 That’s it for this installment, but there will definitely be more–there are too many great Springsteen covers out there that deserve more attention!
-
- 

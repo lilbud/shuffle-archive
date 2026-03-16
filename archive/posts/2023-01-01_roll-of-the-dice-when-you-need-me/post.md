@@ -93,7 +93,7 @@ Astute reader Yoli Clavero noted that while Bruce hasn’t performed “When You
 January 10, 1987
  (1998)
 
-**When You Need Me
+**When You Need Me**
 Recorded:**  
 
 **Released:** *Tracks*  

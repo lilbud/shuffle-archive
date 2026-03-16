@@ -17,5 +17,3 @@ For the record though, while the single may have been released in early 1994, th
 *Philadelphia*
 
 [https://www.youtube.com/embed/YAmHl-4m3E8?feature=oembed](https://www.youtube.com/embed/YAmHl-4m3E8?feature=oembed)
-
- 

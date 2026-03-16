@@ -45,9 +45,7 @@ The rest of us will have to be content with these rare club recordings from the 
 February 20, 1982 (Red Bank, NJ)
  January 22, 2016 (Wellington, FL)
 
-**Money (That’s What I Want)
+**Money (That’s What I Want)**
 First performed:**  
 
 **Last performed:**
-
- 

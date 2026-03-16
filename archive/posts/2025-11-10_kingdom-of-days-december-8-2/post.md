@@ -144,4 +144,4 @@ At a closed rehearsal at SIR Stage 37 in New York City, Bruce rehearses with Joh
 
 Months before, Bruce’s scheduled show in San Francisco is postponed four days to December 12th. It will end up being postponed again.
 
-**2023:** 
+**2023:**

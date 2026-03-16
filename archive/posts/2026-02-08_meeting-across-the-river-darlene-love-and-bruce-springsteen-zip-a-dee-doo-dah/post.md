@@ -19,7 +19,7 @@ Bruce showed up to play lead guitar for Darlene (and that’s Curtis King on bac
 March 14, 2011 (New York City, NY)
  March 14, 2011 (New York City, NY)
 
-**Zip-a-Dee-Doo-Dah
+**Zip-a-Dee-Doo-Dah**
 First performed:**  
 
 **Last performed:**

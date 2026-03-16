@@ -91,7 +91,7 @@ April – July 1972
  February 4, 1972 (Richmond, VA)
  February 25, 1972 (Richmond, VA)
 
-**Cowboys of the Sea
+**Cowboys of the Sea**
 Recorded:**  
 
 **Never released**  

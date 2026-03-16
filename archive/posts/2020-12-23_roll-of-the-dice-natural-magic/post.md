@@ -53,7 +53,7 @@ And yet, despite wearing its influences on its sleeve, “Natural Magic” is sw
 July 10, 1971 (Lincroft, NJ)
  July 29, 1971 (South Amboy, NJ)
 
-**Natural Magic
+**Natural Magic**
 Never recorded**  
 
 **Never released**  

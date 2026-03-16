@@ -115,7 +115,7 @@ December 1989
  May 6, 1992 (New York City, NY)
  February 16, 2017 (Brisbane, Australia)
 
-**Roll of the Dice
+**Roll of the Dice**
 Recorded:**  
 
 **Released:** *Human Touch*  

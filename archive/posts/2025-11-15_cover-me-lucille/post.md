@@ -30,8 +30,7 @@ So it’s no surprise to learn that Bruce covers it frequently during cover sets
 
 *every*
 
-*One could argue that Bruce actually did play “Lucille” more frequently with the E Street Band during the early years, as the song periodically turned up in encore medleys. But those performances ranged from snippets at least to abbreviated at best; full E Street performances of “Lucille” have been exceedingly rare. Here’s the first time Bruce and the band played the song as part of a medley (with ““), in the summer of 1975.
-
+**One could argue that Bruce actually did play “Lucille” more frequently with the E Street Band during the early years, as the song periodically turned up in encore medleys. But those performances ranged from snippets at least to abbreviated at best; full E Street performances of “Lucille” have been exceedingly rare. Here’s the first time Bruce and the band played the song as part of a medley (with ““), in the summer of 1975.**
 [Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)<http://estreetshuffle.com/wp-content/uploads/2018/11/Bruce-Springsteen-16-Carol-Lucille-online-audio-converter.com_.mp3>
 
 August 2, 1978 (Charlotte, NC)

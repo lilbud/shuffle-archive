@@ -28,7 +28,7 @@ Let's pick up the story.
 
 *Driving in to Darlington County, me and Wayne on the Fourth of July*
 *Driving in to Darlington County, looking for some work on the county line*
-*We drove down from New York City
+**We drove down from New York City**
 Where the girls are pretty but they just wanna know your name*
 *Driving in to Darlington City, got a union connection with an uncle of Wayne's*
 *We drove eight hundred miles without seeing a cop*

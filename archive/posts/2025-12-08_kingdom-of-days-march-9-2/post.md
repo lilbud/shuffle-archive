@@ -125,5 +125,3 @@ Bruce reminisces about his legendary Apollo Theater show on its tenth anniversar
 Columbus fans are dejected when Bruce is forced to postpone his show at Nationwide Arena to September due to illness. But hey, it’s only a six month wait, right? Nope–the show will be postponed once more and finally take place more than a year after it’s originally scheduled date.
 
 **2023:**
-
- 

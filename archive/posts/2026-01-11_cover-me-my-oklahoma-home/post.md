@@ -55,7 +55,7 @@ November 2, 1997
  April 20, 2006 (Asbury Park, NJ)
  May 16, 2015 (New York City, NY)
 
-**My Oklahoma Home
+**My Oklahoma Home**
 Recorded:**  
 
 **Released:** *We Shall Overcome: The Seeger Sessions*  

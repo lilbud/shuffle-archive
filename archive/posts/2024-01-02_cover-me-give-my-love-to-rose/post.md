@@ -41,7 +41,7 @@ Long out of print, “Give My Love to Rose” remains one of the rarer officiall
 February 12, 1999
  (2002)
 
-**Give My Love to Rose
+**Give My Love to Rose**
 Recorded:**   
 
 **Released:***Kindred Spirits*   

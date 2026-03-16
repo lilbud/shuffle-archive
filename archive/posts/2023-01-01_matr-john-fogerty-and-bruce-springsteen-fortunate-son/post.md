@@ -41,9 +41,7 @@ But while almost every post-Reunion era Springsteen performance of “Fortunate 
 August 9, 1987 (Asbury Park, NJ)
  November 11, 2014 (Washington, DC)
 
-**Fortunate Son
+**Fortunate Son**
 First performed:**  
 
 **Last performed:**
-
- 

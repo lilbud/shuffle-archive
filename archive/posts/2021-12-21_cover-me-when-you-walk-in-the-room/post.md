@@ -49,9 +49,7 @@ That last performance (to date) was arguably the best, with the song’s lush ar
 August 13, 1975 (New York City, NY)
  July 28, 2013 (Kilkenny, Ireland)
 
-**When You Walk in the Room
+**When You Walk in the Room**
 First performed:**  
 
 **Last performed:**
-
- 

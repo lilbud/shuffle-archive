@@ -170,7 +170,7 @@ December 1977 (1978), (2003)
  May 23, 1978 (Buffalo, NY)
  September 3, 2023 (East Rutherford, NJ)
 
-**The Promised Land
+**The Promised Land**
 Recorded:**   
  **Released:**   
 [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*The Essential Bruce Springsteen*   

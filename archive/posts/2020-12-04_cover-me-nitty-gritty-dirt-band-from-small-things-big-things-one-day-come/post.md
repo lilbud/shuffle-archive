@@ -17,5 +17,3 @@ Their version breathes a bit more than Bruce’s original but retains its rebell
 [https://www.youtube.com/embed/N-TbGLN8-lw?feature=oembed](https://www.youtube.com/embed/N-TbGLN8-lw?feature=oembed)
 
 [https://www.youtube.com/embed/7OPqJObhkjQ?feature=oembed](https://www.youtube.com/embed/7OPqJObhkjQ?feature=oembed)
-
- 

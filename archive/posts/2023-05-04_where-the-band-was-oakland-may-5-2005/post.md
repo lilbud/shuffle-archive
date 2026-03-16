@@ -43,5 +43,3 @@ Why? Because sitting directly in front of me and one seat to the right was the l
 So of all the shows I’ve attended, this is the one I remember least vividly–the downside of proximity to your heroes.
 
 Luckily, I was able to attend three more shows that tour, and those shows I remember perfectly–they were full of riches. But that’s a story for another time.
-
- 

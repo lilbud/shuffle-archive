@@ -23,7 +23,7 @@ Lucinda’s original studio version remains one of her greatest songs, a rebelli
 November 10, 1996 (London, England)
  November 10, 1996 (London, England)
 
-**Joy
+**Joy**
 First performed:**  
 
 **Last performed:**

@@ -211,7 +211,7 @@ September 23, 1973
  October 13, 1973 (Washington, DC)
  January 22, 2017 (Perth, Australia)
 
-**Incident on 57th Street
+**Incident on 57th Street**
 Recorded:**   
 
 **Released:** *The Wild, The Innocent & The E Street Shuffle*  

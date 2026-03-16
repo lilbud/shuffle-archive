@@ -155,7 +155,7 @@ Unknown
  April 2019 (exact date unknown) (Colts Neck, NJ)
  April 2019 (exact date unknown) (Colts Neck, NJ)
 
-**Chasin’ Wild Horses
+**Chasin’ Wild Horses**
 Recorded:**  
 
 **Released:***Western Stars*   
@@ -165,5 +165,3 @@ Recorded:**
 Looking for your favorite Bruce song? Check our . New entries every week!
 
 [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
-
- 

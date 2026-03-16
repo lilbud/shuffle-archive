@@ -64,11 +64,10 @@ It wasn't just the "punchline" Bruce had trouble finding, though–he struggled 
 
 Bruce finally found his title in [a song he'd written months earlier](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/) for Gary U.S. Bonds*, just one more in a long list of songs sharing a link to "Losin' Kind."
 
-**Losin' Kind
+**Losin' Kind**
 **Recorded:** January 3, 1982
 **Never released**
 **Never performed**
 
-*It's possible Bruce borrowed the phrase for both "Losin' Kind" and "[Club Soul City](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/)" from the Johnny Cash bootleg "The Losing Kind," which shares a similar dark humor. But I'm not a Cash scholar, so I'll leave that to others to determine.
-
+**It's possible Bruce borrowed the phrase for both "Losin' Kind" and "[Club Soul City](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/)" from the Johnny Cash bootleg "The Losing Kind," which shares a similar dark humor. But I'm not a Cash scholar, so I'll leave that to others to determine.**
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

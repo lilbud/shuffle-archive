@@ -34,7 +34,7 @@ Bruce’s lyrics have progressed significantly, although the chorus sounds just 
 
 
 
-*Born baby in the U.S.A.
+**Born baby in the U.S.A.**
 I believe in the American Way*  
 
 
@@ -243,7 +243,7 @@ April 27-May 3, 1984
  June 8, 1984 (Asbury Park, NJ)
  July 6, 2023 (London, England)
 
-**Born in the U.S.A.
+**Born in the U.S.A.**
 Recorded:**  
 
 **Released:** *Born in the U.S.A.*   

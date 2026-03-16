@@ -114,7 +114,7 @@ September 1991 – January 1992
  June 8, 1991 (Beverly Hills, CA)
  November 5, 2018 (New York City, NY)
 
-**If I Should Fall Behind
+**If I Should Fall Behind**
 Recorded:**  
 
 **Released:***Lucky Town**Live in New York City**The Essential Bruce Springsteen**Live in Dublin*  

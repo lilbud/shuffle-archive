@@ -51,9 +51,7 @@ Here’s hoping we all get to make a return visit soon.
 August 20, 1994 (Long Branch, NJ)
  September 7, 2003 (Boston, MA)
 
-**Diddy Wah Diddy
+**Diddy Wah Diddy**
 First performed:**  
 
 **Last performed:**
-
- 

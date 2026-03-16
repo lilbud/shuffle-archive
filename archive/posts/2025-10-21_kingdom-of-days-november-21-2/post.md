@@ -165,5 +165,3 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 Bruce assembles the E Street Band for the fourth day of a five-day recording session that will yield .
 
 **2019:** [](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*Letter to You*
-
- 

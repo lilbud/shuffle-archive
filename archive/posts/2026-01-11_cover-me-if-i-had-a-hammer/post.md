@@ -47,7 +47,7 @@ Nevertheless, “If I Had a Hammer (The Hammer Song)” is a fine entry in the S
 January 21, 2006
  (2018)
 
-**If I Had a Hammer (The Hammer Song)
+**If I Had a Hammer (The Hammer Song)**
 Recorded:**  
 
 **Released:***Roots and Branches*  

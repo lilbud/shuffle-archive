@@ -13,5 +13,3 @@ Jackson Browne and Shawn Colvin toured together a couple of years back. Both fan
 They chose “American Skin (41 Shots),” as timely then as it is now. Here’s a great performance of it from Golden Gate Park in October 2016.
 
 [https://www.youtube.com/embed/2FEfa_N-mno?feature=oembed](https://www.youtube.com/embed/2FEfa_N-mno?feature=oembed)
-
- 

@@ -69,7 +69,7 @@ It just needed to be released.
 Early 1983
  (2025)
 
-**Don’t Back Down
+**Don’t Back Down**
 Recorded:**  
 
 **Released:** *L.A. Garage Sessions ’83*  

@@ -87,5 +87,3 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 Bruce rehearses backgrounds with Soozie Tyrell and The E Street Choir at The Vogel in Red Bank, New Jersey, in preparation for their upcoming world tour. First hand reports from fans (including this blogger) listening at the stage door confirming rare piano run-throughs of songs like “” and “.”
 
 **2023:** [Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
-
- 

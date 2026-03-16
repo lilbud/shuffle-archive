@@ -41,11 +41,9 @@ October-November 1993
  August 20, 1994 (Long Branch, NJ)
  July 18, 2015 (Asbury Park, NJ)
 
-**Chain Smokin’
+**Chain Smokin’**
 Recorded:**  
 
 **Released:** *American Babylon*   
 **First performed:**  
 **Last performed:**
-
- 

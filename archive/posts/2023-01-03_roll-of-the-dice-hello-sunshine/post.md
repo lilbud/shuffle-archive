@@ -130,7 +130,7 @@ Like much of , “Hello Sunshine” is so carefully and masterfully crafted that
  April 2019 (Colts Neck, NJ)
  April 2019 (Colts Neck, NJ)
 
-**Hello Sunshine
+**Hello Sunshine**
 Recorded:**  
 
 **Released:** *Western Stars*   

@@ -51,5 +51,3 @@ With 46 years between Clarke’s cover and Bruce’s own version, “If I Were t
 (You can hear Clarke’s cover of “Born to Run” .)
 
 [here](https://estreetshuffle.com/index.php/2018/04/30/cover-me-allan-clarke-born-to-run/)
-
- 

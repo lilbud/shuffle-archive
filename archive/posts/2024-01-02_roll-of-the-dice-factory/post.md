@@ -109,7 +109,7 @@ October-November, 1977
  July 21, 1978 (Nashville, TN)
  September 5, 2016 (Virginia Beach, VA)
 
-**Factory
+**Factory**
 Recorded:**  
 
 **Released:***Darkness on the Edge of Town*   

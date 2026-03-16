@@ -91,5 +91,3 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 Bruce celebrates Clive Davis’ 90th birthday by recording a video salute and a performance of “.”
 
 **2022:** [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
-
- 

@@ -31,5 +31,3 @@ Just in time for Christmas, Bruce releases the video from his intimate concert a
 With Christmas Eve approaching, holds a rare matinee performance at the Walter Kerr Theater in New York City.
 
 **2017:***Springsteen on Broadway*
-
- 

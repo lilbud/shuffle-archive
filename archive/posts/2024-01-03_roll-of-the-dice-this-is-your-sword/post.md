@@ -86,7 +86,7 @@ But context is king, and if we’re lucky enough to get at least one more Sessio
  January 29, 2014 (Cape Town, South Africa)
  May 13, 2014 (Albany, NY)
 
-**This Is Your Sword
+**This Is Your Sword**
 Recorded:**  
 
 **Released:***High Hopes*   

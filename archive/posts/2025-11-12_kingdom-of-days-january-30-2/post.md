@@ -67,5 +67,3 @@ Bruce chats with Clive Davis at Clive’s virtual pre-Grammy party.
 Bruce and the E Street Band rehearse for their upcoming tour opener at Amalie Arena in Tampa.
 
 **2023:**
-
- 

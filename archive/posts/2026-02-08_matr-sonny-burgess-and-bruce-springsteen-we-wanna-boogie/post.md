@@ -29,7 +29,7 @@ Still, this was a one-time-only performance of one of the earliest hard-rocking 
 October 19, 2001 (Red Bank, NJ)
  October 19, 2001 (Red Bank, NJ)
 
-**We Wanna Boogie
+**We Wanna Boogie**
 First performed:**  
 
 **Last performed:**

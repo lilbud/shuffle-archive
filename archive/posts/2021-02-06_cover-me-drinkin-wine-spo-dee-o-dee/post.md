@@ -16,10 +16,10 @@ Theard's songs tended toward the blue end of the spectrum. In 1936, for example,
 
 And in 1947, Theard co-wrote "Hard Ridin' Mama" for Wynonie Harris with such memorable lines as:
 
-*She don't use no saddle and she don't need no guiding lines
+**She don't use no saddle and she don't need no guiding lines**
 She's a rough riding mama and she treats my pony fine*
 
-*Can't find nobody nowhere in this land
+**Can't find nobody nowhere in this land**
 Who can ride my pony just like my baby can*
 
 [Watch on Youtube: Wynonie Harris - Hard Ridin' Mama](https://www.youtube.com/watch?v=L63Thx25dMQ)
@@ -89,6 +89,6 @@ To date, that Hunter Valley opener remains Bruce's one and only performance of "
 
 And yes, I could have taken us here on a much more direct route. But we would have missed a fine tour of early, bawdy rock and rockabilly, and if I'm going to have "Spo-Dee-O-Dee" stuck in my head all day, I want company.
 
-**Drinkin' Wine, Spo-Dee-O-Dee
+**Drinkin' Wine, Spo-Dee-O-Dee**
 **First performed:** February 22, 2014 (Hunter Valley, Australia)
 **Last performed:** February 22, 2014 (Hunter Valley, Australia)

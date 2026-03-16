@@ -59,9 +59,7 @@ Here’s that loose, fun performance–“Hang On Sloopy” starts at about the 
 January 14, 1984 (New Brunswick, NJ)
  August 23, 2009 (Mansfield, MA)
 
-**Hang On Sloopy
+**Hang On Sloopy**
 First performed:**  
 
 **Last performed:**
-
- 

@@ -10,7 +10,7 @@ Then again, it's hard to top Marley's original–it remains one of the most univ
 
 [Watch on Youtube: Bob Marley - One Love](https://www.youtube.com/watch?v=vdB-8eLEW8g)
 
-**One Love/People Get Ready
+**One Love/People Get Ready**
 **First performed:** July 30, 1987 (Neptune, NJ)
 **Last performed:** July 30, 1987 (Neptune, NJ)
 

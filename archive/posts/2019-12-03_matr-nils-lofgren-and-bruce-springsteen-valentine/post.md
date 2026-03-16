@@ -27,5 +27,3 @@ Here’s the album version of the song–audio only, but it includes a terrific 
 **Bonus:**
 
 [https://www.youtube.com/embed/jqszFmAwS_E?feature=oembed](https://www.youtube.com/embed/jqszFmAwS_E?feature=oembed)
-
- 

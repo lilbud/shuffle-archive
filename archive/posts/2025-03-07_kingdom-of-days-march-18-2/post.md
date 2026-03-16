@@ -140,4 +140,4 @@ Bruce and the E Street Band bring their World Tour to Penn State University, whe
 
 Bruce and the E Street Band rehearse at the Footprint Center in Phoenix.
 
-**2024:** 
+**2024:**

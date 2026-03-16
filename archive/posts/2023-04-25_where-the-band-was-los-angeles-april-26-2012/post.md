@@ -53,5 +53,3 @@ The show itself was worth the initial scare: the setlist was great, from the “
 Because we were late getting into the pit (at least we’d made it in!), we were in the back–but as it turned out, that meant we were dead-center during Bruce’s crowd-surf, my first time for that, and a strange experience to feel your hero passing overhead.
 
 Night two would bring another pre-show surprise, but this time it would be at Bruce’s instigation, not ours.
-
- 

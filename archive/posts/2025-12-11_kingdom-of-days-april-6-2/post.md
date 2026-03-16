@@ -89,5 +89,3 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 Bruce celebrates Clive Davis’ 90th birthday by recording a video salute and a performance of “Blinded by the Light.”
 
 **2022:**
-
- 

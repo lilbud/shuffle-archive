@@ -125,7 +125,7 @@ And when we start doubting what we’re sure of, God have mercy.
 December 1, 1989
  (1998)
 
-**Trouble in Paradise
+**Trouble in Paradise**
 Recorded:**  
 
 **Released:** *Tracks*  

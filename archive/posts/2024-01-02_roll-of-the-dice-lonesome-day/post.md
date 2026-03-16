@@ -140,7 +140,7 @@ February-March 2002
  July 25, 2002 (Asbury Park, NJ)
  September 3, 2023 (East Rutherford, NJ)
 
-**Lonesome Day
+**Lonesome Day**
 Recorded:**  
 
 **Released:** *The Rising* *The Essential Bruce Springsteen*   

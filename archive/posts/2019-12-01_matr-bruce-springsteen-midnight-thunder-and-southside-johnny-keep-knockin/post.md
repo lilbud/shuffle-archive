@@ -37,7 +37,7 @@ Five years later, Bruce took one final (to date) run at “Keep A-Knockin'” �
 July 10, 1983 (Asbury Park, NJ)
  November 26, 1988 (San Francisco, CA)
 
-**Keep A-Knockin’
+**Keep A-Knockin’**
 First performed:**  
 
 **Last performed:**

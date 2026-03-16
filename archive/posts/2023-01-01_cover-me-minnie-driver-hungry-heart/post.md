@@ -17,5 +17,3 @@ The arrangement is lovely: all slow, soft piano and drum brush. I can’t honest
 Take a listen below.
 
 [https://www.youtube.com/embed/5X67svLMJn8?feature=oembed](https://www.youtube.com/embed/5X67svLMJn8?feature=oembed)
-
- 

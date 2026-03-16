@@ -17,5 +17,3 @@ In the meantime, we have several of Fender’s Springsteen covers to listen to, 
 [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
 [https://www.youtube.com/embed/mwpMYm92Mos?feature=oembed](https://www.youtube.com/embed/mwpMYm92Mos?feature=oembed)
-
- 

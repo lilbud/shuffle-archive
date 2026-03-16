@@ -29,7 +29,7 @@ Considering it inspired a song in his catalog, it’s surprising that Bruce has 
 July 17, 1982 (Red Bank, NJ)
  April 22, 2017 (Red Bank, NJ)
 
-**Bye Bye Johnny
+**Bye Bye Johnny**
 First performed:**  
 
 **Last performed:**

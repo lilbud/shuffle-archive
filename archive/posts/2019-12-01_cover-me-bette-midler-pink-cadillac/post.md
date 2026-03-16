@@ -31,5 +31,3 @@ To this day Bette’s studio cover has never been released (she replaced the alb
 Enjoy the Springsteen cover that never was:
 
 [https://www.youtube.com/embed/9typ8Q5YLFc?feature=oembed](https://www.youtube.com/embed/9typ8Q5YLFc?feature=oembed)
-
- 

@@ -120,7 +120,7 @@ January-April 1987
  May 10, 1988 (Bloomington, MN)
  November 17, 2005 (East Rutherford, NJ)
 
-**Cautious Man
+**Cautious Man**
 Recorded:**  
 
 **Released:***Tunnel of Love*   

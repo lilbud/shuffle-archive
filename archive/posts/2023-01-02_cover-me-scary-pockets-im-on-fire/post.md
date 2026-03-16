@@ -41,5 +41,3 @@ That wasn’t the only time they acoustically tackled one of Bruce’s songs, th
 Want more cool covers? Check out their YouTube channels ( and ) but be warned: you may find yourself tumbling down two serious rabbit holes.
 
 [Scary Pockets](https://www.youtube.com/channel/UC-2JUs_G21BrJ0efehwGkUw)[Stories](https://www.youtube.com/c/storiesacoustic/featured)
-
- 

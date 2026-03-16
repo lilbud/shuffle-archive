@@ -8,10 +8,8 @@ title: "Roll of the Dice: Radio Nowhere"
 
 It’s the essential, existential question at the heart of rock and roll.
 
-*****
-
-
-
+**
+**
 *Is there anybody alive out there?*
 
 If rock is about anything, it’s about 
@@ -155,7 +153,7 @@ March 2007
  September 24, 2007 (Asbury Park, NJ)
  February 21, 2017 (Christchurch, New Zealand)
 
-**Radio Nowhere
+**Radio Nowhere**
 Recorded:**  
 
 **Released:***Magic**The Essential Bruce Springsteen*  

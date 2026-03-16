@@ -37,7 +37,7 @@ All I know is we got a one-time (well, two-time) pairing on a gorgeous song, and
 December 7, 2001 (Asbury Park, NJ)
  December 8, 2001 (Asbury Park, NJ)
 
-**The End of the Innocence
+**The End of the Innocence**
 First performed:**  
 
 **Last performed:**

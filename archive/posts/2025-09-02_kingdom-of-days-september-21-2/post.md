@@ -174,4 +174,4 @@ Bruce makes a surprise guest appearance at the Laid Back Festival in Holmdel, Ne
 
 Already postponed once six months prior, Bruce pushes his show in Columbus another seven months into the future due to his peptic ulcer disease.
 
-**2023:** 
+**2023:**

@@ -17,5 +17,3 @@ But “Blinded” isn’t the only Springsteen original covered by Mann and his 
 Love them or hate them, they definitely put their own spin on Bruce’s material.
 
 [https://www.youtube.com/embed/2sJygu903kU?feature=oembed](https://www.youtube.com/embed/2sJygu903kU?feature=oembed)
-
- 

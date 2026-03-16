@@ -37,7 +37,7 @@ Other than a one-off cover at a private holiday party the following year (for wh
 December 3, 2001 (Asbury Park, NJ)
  December 22, 2002 (Asbury Park, NJ)
 
-**Jingle Bell Rock
+**Jingle Bell Rock**
 First performed:**  
 
 **Last performed:**

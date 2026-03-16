@@ -33,5 +33,3 @@ Some of the best tracks from that project turned out to be outtakes, released on
 *Downbound Train*[Two Hearts”](http://estreetshuffle.com/index.php/2020/03/27/cover-me-billy-mann-two-hearts/)
 
 Anyone out there have any info on this band? If so, please drop a comment–I’d love to learn more.
-
- 

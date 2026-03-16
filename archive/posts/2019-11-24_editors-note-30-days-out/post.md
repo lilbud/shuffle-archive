@@ -39,5 +39,3 @@ Nope. Other than launching a new series tomorrow (concert reviews of shows I att
 Thanks again for reading, and for all of the retweets, likes, and especially the comments (those are my favorite!). Your feedback is always welcome and appreciated.
 
 Ken@estreetshuffle.com
-
- 

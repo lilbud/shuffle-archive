@@ -147,5 +147,3 @@ After days of teasing and speculation, Bruce officially announces his next album
 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-04-25.jpg?resize=680%2C680&amp;ssl=1)
-
- 

@@ -17,7 +17,7 @@ Here’s one of the band’s final performances, from the summer of 1970.
 September 20, 1969 (Richmond, VA)
  August 14, 1970 (Richmond, VA)
 
-**KT-88
+**KT-88**
 First performed:**   
 
 **Last performed:**

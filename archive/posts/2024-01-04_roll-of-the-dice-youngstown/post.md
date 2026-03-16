@@ -211,7 +211,7 @@ June 16, 1995
  November 21, 1995 (New Brunswick, NJ)
  February 25, 2017 (Auckland, New Zealand)
 
-**Youngstown
+**Youngstown**
 Recorded:**  
 
 **Released:***The Ghost of Tom Joad*   

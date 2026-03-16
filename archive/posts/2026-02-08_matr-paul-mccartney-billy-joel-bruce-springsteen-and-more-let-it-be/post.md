@@ -25,7 +25,7 @@ Although Bruce has played with Paul McCartney several times since, that was thei
 March 15 ,1999 (New York City, NY)
  March 15, 1999 (New York City, NY)
 
-**Let It Be
+**Let It Be**
 First performed:**  
 
 **Last performed:**

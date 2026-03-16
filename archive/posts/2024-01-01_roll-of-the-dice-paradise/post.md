@@ -108,7 +108,7 @@ February-March, 2002
  July 30, 2002 (Asbury Park, NJ)
  August 13, 2005 (Vancouver, BC)
 
-**Paradise
+**Paradise**
 Recorded:**  
 
 **Released:** *The Rising*   

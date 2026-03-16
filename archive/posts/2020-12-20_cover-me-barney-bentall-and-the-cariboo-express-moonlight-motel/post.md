@@ -25,5 +25,3 @@ No wonder the audience is rapt from the start. Take a listen:
 https://www.youtube.com/watch?v=hGq2ZS-F0hk
 
 There might be a road trip up I-5 to Vancouver in my future when the Express comes around again…
-
- 

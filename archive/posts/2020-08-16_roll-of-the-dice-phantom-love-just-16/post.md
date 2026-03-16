@@ -45,7 +45,7 @@ That’s all we get. As far as we know, “Phantom Love (Just 16)” never evolv
 
 We’ll chalk this one up to a songwriter’s experiment, one of what must be countless hidden away in the pages of Bruce’s decades of notebooks.
 
-**Phantom Love (Just 16)
+**Phantom Love (Just 16)**
 Never recorded**  
 
 **Never released**  

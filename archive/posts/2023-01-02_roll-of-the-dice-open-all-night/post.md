@@ -143,7 +143,7 @@ January 3, 1982
  October 3, 1982 (Asbury Park, NJ)
  February 8, 2014 (Perth, Australia)
 
-**Open All Night
+**Open All Night**
 Recorded:**  
 
 **Released:** *Nebraska*   

@@ -37,9 +37,7 @@ It would take another four years before Americans would truly vote for change, a
 October 1, 2004 (Philadelphia, PA)
  October 13, 2004 (East Rutherford, NJ)
 
-**Deja Vu (All Over Again)
+**Deja Vu (All Over Again)**
 First performed:**  
 
 **Last performed:**
-
- 

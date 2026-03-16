@@ -125,7 +125,7 @@ June 28 – July 24, 1973
  June 13, 1973 (Binghamton, NY)
  May 13, 2014 (Albany, NY)
 
-**Seaside Bar Song
+**Seaside Bar Song**
 Recorded:**  
 
 **Released:***Tracks* *18 Tracks*   

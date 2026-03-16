@@ -22,7 +22,7 @@ Oh, and the Springsteen connection? Bruce plays guitar on the track. Don’t let
 
 (2009)
 
-**East Carson Street
+**East Carson Street**
 Released:**  
 *East Carson Street*  
 **Never performed**

@@ -37,7 +37,3 @@ This one is different.
 *definitely*
 
 As for great… you tell me. What do you think?
-
- 
-
- 

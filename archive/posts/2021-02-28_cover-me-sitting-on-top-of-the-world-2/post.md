@@ -38,4 +38,4 @@ But it was only a matter of weeks between those smoky Back Door performances and
 **First performed:** February 4, 1972 (Richmond, VA)*
 **Last performed:** February 4, 1972 (Richmond, VA)
 
-*While the above recording definitely originated at Bruce's February 1972 stand at The Back Door, there's good reason to believe it may be from a night other than the one officially cited. That's because when the recordings first surfaced, not all of Bruce's gigs at The Back Door had been documented. Regardless, though, we're listening to 49-year-old recordings.
+**While the above recording definitely originated at Bruce's February 1972 stand at The Back Door, there's good reason to believe it may be from a night other than the one officially cited. That's because when the recordings first surfaced, not all of Bruce's gigs at The Back Door had been documented. Regardless, though, we're listening to 49-year-old recordings.**

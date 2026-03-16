@@ -29,7 +29,7 @@ We don’t know, and we probably won’t know, unless Bruce chooses to tell.
 But the lyrics we’re lucky enough to read hint at something in the vein of Springsteen’s crime stories:
 
 *They were all your friends, and you let them down*   
-*You were wired to every phone booth and every shadow here in Whitetown
+**You were wired to every phone booth and every shadow here in Whitetown**
 You made a wrong move, got in some trouble
 And the cops held it over your head*  
 
@@ -37,7 +37,7 @@ Whatever “The Informer” turned out to be, this was clearly an early draft. B
 
 For now, “The Informer” remains an enigma. But someday, maybe, that vault will open…
 
-**The Informer
+**The Informer**
 Never recorded or released**  
 
 **Never performed**

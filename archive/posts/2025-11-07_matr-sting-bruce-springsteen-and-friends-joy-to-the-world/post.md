@@ -29,7 +29,7 @@ Happy Holidays, however you celebrate them, and may the holiday season bring you
 December 14, 2016 (New York City, NY)
  December 14, 2016 (New York City, NY)
 
-**Joy to the World
+**Joy to the World**
 First performed:**  
 
 **Last performed:**

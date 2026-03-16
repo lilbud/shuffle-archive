@@ -29,7 +29,7 @@ Although first written it while Nash was a member of The Hollies, it was Crosby,
 October 13, 1986 (Mountain View, CA)
  December 13, 2021 (New York City, NY)
 
-**Teach Your Children
+**Teach Your Children**
 First performed:**  
 
 **Last performed:**

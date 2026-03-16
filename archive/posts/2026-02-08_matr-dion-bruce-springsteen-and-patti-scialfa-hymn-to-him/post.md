@@ -37,7 +37,7 @@ And while it doesn’t seem like a live performance is on the horizon any time s
 Unknown
 (2020)
 
-**Hymn to Him
+**Hymn to Him**
 Recorded:**  
 
 **Released:** *Blues With Friends*   

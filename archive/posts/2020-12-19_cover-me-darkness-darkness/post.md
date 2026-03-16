@@ -27,7 +27,7 @@ Even then, they were that good.
 July 10, 1971 (Lincroft, NJ)
  February 4, 1972 (Richmond, VA)
 
-**Darkness, Darkness
+**Darkness, Darkness**
 First performed:**  
 
 **Last performed:**

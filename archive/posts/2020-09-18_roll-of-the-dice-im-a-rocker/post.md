@@ -126,7 +126,7 @@ See what I mean? He's still doing the exact same shtick at the age of...
 
 Sixty-six.
 
-**I'm a Rocker
+**I'm a Rocker**
 **Recorded:** April 10, 1980
 **Released:** *The River* (1980)
 **First performed:** October 18, 1980 (St. Louis, MO)

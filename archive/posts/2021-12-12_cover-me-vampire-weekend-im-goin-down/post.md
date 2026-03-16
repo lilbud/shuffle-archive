@@ -17,5 +17,3 @@ Fortunately, “” was on the setlist, so we now have a wonderfully shot and re
 [https://www.youtube.com/embed/CZUMEIHLwGs?feature=oembed](https://www.youtube.com/embed/CZUMEIHLwGs?feature=oembed)
 
 The band continued to perform “I’m Goin’ Down” through the rest of the summer and early fall, but it doesn’t appear to have made their setlist since.
-
- 

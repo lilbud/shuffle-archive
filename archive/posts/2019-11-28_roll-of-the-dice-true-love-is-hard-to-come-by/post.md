@@ -22,7 +22,7 @@ He tried different styles, from reggae…
 
 Yep, those lines:
 
-*Til the sun is torn from the sky
+**Til the sun is torn from the sky**
 Til every river, baby, it runs dry.*  
 
 
@@ -38,7 +38,7 @@ are the genetic ancestor of “.” The last lines of that song are:
 Bruce recorded these demos in early 1982, and reportedly the E Street Band took a crack at at in 1983. Maybe someday we’ll get to hear what they came up with.
 
 **True Love Is Hard to Come By**   
-**Never Released
+**Never Released**
 Never Performed**  
 
 

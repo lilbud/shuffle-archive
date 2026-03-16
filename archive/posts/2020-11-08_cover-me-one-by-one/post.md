@@ -27,9 +27,7 @@ But we at least have a pretty good idea why they chose to cover it at all: Bruce
 September 30, 1967 (Freehold, NJ)
  September 30, 1967 (Freehold, NJ)
 
-**One By One
+**One By One**
 First performed:**  
 
 **Last performed:**
-
- 

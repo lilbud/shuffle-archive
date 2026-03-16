@@ -98,7 +98,7 @@ June 24 – December 29, 1977
  May 23, 1978 (Buffalo, NY)
  September 11, 2016 (Pittsburgh, PA)
 
-**Streets of Fire
+**Streets of Fire**
 Recorded:**   
 
 **Released:** *Darkness on the Edge of Town*  

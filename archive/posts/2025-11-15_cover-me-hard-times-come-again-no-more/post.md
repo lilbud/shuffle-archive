@@ -31,7 +31,7 @@ Bruce and the E Street Band performed Foster’s song throughout the entire tour
 March 23, 2009 (Asbury Park, NJ)
  November 20, 2009 (Baltimore, MD)
 
-**Hard Times Come Again No More
+**Hard Times Come Again No More**
 First performed:**  
 
 **Last performed:**

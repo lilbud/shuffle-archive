@@ -6,7 +6,7 @@ Here's one of the band's final performances, from the summer of 1970.
 
 [https://estreetshuffle.com/wp-content/uploads/2018/03/03-KT-88.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2018/03/03-KT-88.mp3?_=1)
 
-**KT-88
+**KT-88**
 **First performed:** September 20, 1969 (Richmond, VA)
 **Last performed:** August 14, 1970 (Richmond, VA)
 

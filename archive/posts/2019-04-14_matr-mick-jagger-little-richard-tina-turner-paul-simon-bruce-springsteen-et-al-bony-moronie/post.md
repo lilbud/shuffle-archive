@@ -19,7 +19,7 @@ It’s a more frenetic performance than the Larry Williams performance; see belo
 January 18, 1989 (New York City, NY)
  July 2, 1989 (Long Branch, NJ)
 
-**Bony Maronie
+**Bony Maronie**
 First performed:**  
 
 **Last performed:**

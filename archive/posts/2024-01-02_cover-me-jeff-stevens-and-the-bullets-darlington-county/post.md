@@ -37,5 +37,3 @@ That success led the way to their 1987 debut album, which featured their Springs
 The album didn’t break through. Neither did their follow-up self-titled album. None of their singles cracked the Top 40 on any chart, and the band finally broke up in 1990. Stevens went on to a successful career as a songwriter and producer.
 
 The story of Jeff Stevens and the Bullets is a short one, but it earned Bruce an eighth charting single (as songwriter, at least) from his landmark album.
-
- 

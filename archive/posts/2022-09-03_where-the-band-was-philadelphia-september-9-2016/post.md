@@ -59,5 +59,3 @@ I saw six of the ten shows on this final leg of the tour, and yet I still manage
 And if the show didn’t set another longest-ever record, that was just fine, too: that night in Philly was one of the most humid I can remember at a show, and by the end of the night I was drenched and exhausted–it was Friday night, and I’d already seen three four-hour-ish shows that week without taking a single day off of work.
 
 And I still had one more show to go that weekend–one that would be my last E Street show to date.
-
- 

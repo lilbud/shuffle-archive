@@ -1,0 +1,23 @@
+It’s quaint now, but at the time of its release, Billy Joel’s “Only the Good Die Young” generated so much controversy for its perceived anti-Catholic lyrics (Billy called the song “pro-lust”) that radio stations across the country banned it from airplay.
+
+As a result, the third single from Billy’s landmark 1977 album *The Stranger* rocketed up the charts, peaking at #24 and cementing itself as a forever-after fan favorite.
+
+[https://www.youtube.com/embed/Crif5E67ar0?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/Crif5E67ar0?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+
+But despite all of the appearances Bruce and Billy have made together over the years, they’ve played “Only the Good Die Young” only once–during Billy’s set at the Rock and Roll Hall of Fame’s 25th Anniversary concerts in the autumn of 2009, backed by the E Street Band.
+
+Unfortunately, while the show was professionally filmed and officially released, “Only the Good Die Young” was one of the songs that didn’t make the official cut. Luckily for us, however, fans captured Billy and Bruce’s performance on video and audio, so we can still enjoy it a decade down the road.
+
+The legendary rockers’ performance is a bit rocky–Bruce accidentally transposes the melody (but manages to pull it off), and the ending is a bit of a train wreck (Bruce and Billy don’t seem to agree on who’s leading the band)–but it’s a ton of fun nonetheless.
+
+[https://www.youtube.com/embed/iX_y3_bt-8U?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/iX_y3_bt-8U?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+
+**Bonus:** The clip above missed the introduction and opening line (and second ending), so here’s an intact audio version for your listening pleasure.
+
+[https://videopress.com/embed/QWUOhrvS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QWUOhrvS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+
+**Only the Good Die Young**
+First performed:** October 29, 2009 (New York City, NY)  
+**Last performed:** October 29, 2009 (New York City, NY)
+
+© February 10, 2020

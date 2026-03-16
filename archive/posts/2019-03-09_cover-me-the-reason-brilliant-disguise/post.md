@@ -11,5 +11,3 @@ From their 2008 EP by the same name, here’s a lovely acoustic cover of “” 
 [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)
 
 [https://www.youtube.com/embed/jq0LkOd-TFU?feature=oembed](https://www.youtube.com/embed/jq0LkOd-TFU?feature=oembed)
-
- 

@@ -27,10 +27,8 @@ As he did for almost every song on the album, Bruce contributed his talents to �
 March 1995
 (1995)
 
-**Billy’s Waltz
+**Billy’s Waltz**
 Recorded:**  
 
 **Released:** *American Babylon*   
 **Never performed**
-
- 

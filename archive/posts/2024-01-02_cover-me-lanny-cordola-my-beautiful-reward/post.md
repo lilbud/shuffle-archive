@@ -19,5 +19,3 @@ His 2001 spin on “” is original in sound but true in spirit to the original;
 [My Beautiful Reward](https://estreetshuffle.com/index.php/2023/02/19/roll-of-the-dice-my-beautiful-reward/)
 
 This is very well done.
-
- 

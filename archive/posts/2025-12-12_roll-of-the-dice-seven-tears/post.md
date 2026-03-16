@@ -60,7 +60,7 @@ It deserves its official release on
 February 15, 1983
 (2025), (2025)
 
-**Seven Tears
+**Seven Tears**
 Recorded:**  
 
 *L.A. Garage Sessions ’83* **Released:** *Lost and Found*  

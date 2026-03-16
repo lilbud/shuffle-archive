@@ -110,7 +110,7 @@ That particular super power was still years away.
 October 17, 1970 (West Long Branch, NJ)
  January 22, 1971 (Asbury Park, NJ)
 
-**Change It
+**Change It**
 Never recorded**  
 
 **Never released**  

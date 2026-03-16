@@ -171,5 +171,3 @@ Bruce and Patti crash the sound check for Quincy Mumford and The Reason Why at t
 Bruce’s scheduled show in Inglewood is postponed to the following April due to his peptic ulcer disease.
 
 **2023:**
-
- 

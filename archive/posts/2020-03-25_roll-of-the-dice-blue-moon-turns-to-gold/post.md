@@ -56,7 +56,7 @@ So, um, yeah–not exactly Bruce’s deepest (or even coherent) lyrics.
 
 I can understand why this one hasn’t seen the light of day. But it makes you wonder, doesn’t it: what else is hidden on the flip sides of those notebook pages?
 
-**Blue Moon Turns to Gold
+**Blue Moon Turns to Gold**
 Never recorded**  
 
 **Never released**  

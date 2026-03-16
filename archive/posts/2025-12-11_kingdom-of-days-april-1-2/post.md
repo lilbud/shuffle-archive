@@ -87,5 +87,3 @@ Bruce tour debuts “Jungleland” at Madison Square Garden when the reprise of 
 [https://www.youtube.com/embed/9mqNMGFafbI?feature=oembed](https://www.youtube.com/embed/9mqNMGFafbI?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01c.jpg?resize=469%2C500&amp;ssl=1)
-
- 

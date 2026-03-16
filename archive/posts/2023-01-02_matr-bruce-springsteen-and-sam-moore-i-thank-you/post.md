@@ -49,9 +49,7 @@ Sam appeared each night of the stand, and each appearance was a showstopper. It 
 December 5, 2003 (Asbury Park, NJ)
  May 4, 2008 (Newark, NJ)
 
-**I Thank You
+**I Thank You**
 First performed:**  
 
 **Last performed:**
-
- 

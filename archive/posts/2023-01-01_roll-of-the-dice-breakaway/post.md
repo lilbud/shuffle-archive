@@ -114,7 +114,7 @@ And if you turn to the wrong cure, you may find it more final than the disease.
 June 1, 1977 (core track)
  (2010)
 
-**Breakaway
+**Breakaway**
 Recorded:**  
 
 **Released:** *The Promise*  

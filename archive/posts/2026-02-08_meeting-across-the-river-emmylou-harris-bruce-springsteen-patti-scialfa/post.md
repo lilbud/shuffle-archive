@@ -21,7 +21,7 @@ So it’s surprising that this turn-of-the-century track so deep into their care
 March 20, 2000
  (2000)
 
-**Tragedy
+**Tragedy**
 Recorded:**  
 
 **Released:***Red Dirt Girl*  

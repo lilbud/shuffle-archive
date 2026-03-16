@@ -346,7 +346,7 @@ September 20, 1969 (Richmond, VA)
  October 17, 1970 (Long Branch, NJ)
 
 **Garden State Parkway Blues**  
-**Never recorded or released
+**Never recorded or released**
 First performed:**  
 
 **Last performed:**

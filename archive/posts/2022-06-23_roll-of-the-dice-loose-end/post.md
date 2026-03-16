@@ -73,4 +73,4 @@ Since then, "Loose End" has remained elusive, never missing an E Street Band Tou
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-*I know the song is officially entitled "Loose Ends." I'm convinced it's a typo Bruce has never bothered to correct.
+**I know the song is officially entitled "Loose Ends." I'm convinced it's a typo Bruce has never bothered to correct.**

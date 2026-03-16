@@ -144,7 +144,7 @@ January 1983
  May 13, 1981 (Manchester, England)
  April 3, 1985 (Melbourne, Australia)
 
-**Johnny Bye-Bye
+**Johnny Bye-Bye**
 Recorded:**  
 
 **Released:** *I’m on Fire**Tracks*  

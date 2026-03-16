@@ -57,7 +57,7 @@ Unknown
  March 2, 1998 (Pittsburgh, PA)
  October 28, 2005 (Boston, MA)
 
-**Idiot’s Delight
+**Idiot’s Delight**
 Recorded:**  
 
 **Released:** *Coming Home*   

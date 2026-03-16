@@ -31,7 +31,7 @@ But again: it’s simply remarkable that this tape exists at all. Listen and mar
 September 30, 1967 (Freehold, NJ)
  September 30, 1967 (Freehold, NJ)
 
-**Mr. Jones
+**Mr. Jones**
 Never recorded or released**  
 
 **First performed:**  

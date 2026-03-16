@@ -25,5 +25,3 @@ Setlist-wise, this wasn’t a remarkable show: it was the first show of the tour
 I had a nice prime position in the pit for this show, and it proved to be a nice kick-off for my three-show California run. And if this show was lacking in surprises, the next two would certainly make up for it.
 
 [https://www.youtube.com/embed/UbIwQ68uMIg?feature=oembed](https://www.youtube.com/embed/UbIwQ68uMIg?feature=oembed)
-
- 

@@ -23,5 +23,3 @@ His high-water mark, though, is undoubtedly his band’s joyously rollicking cov
 Beer’s version of “No Surrender” leans heavily on Gareth Turner’s melodeon, infusing Bruce’s song with a zydeco spirit that’s impossible to resist.
 
 Introduced as a one-off cover, “No Surrender” immediately became a fan favorite and has remained a consistent encore number ever since.
-
- 

@@ -39,11 +39,9 @@ April 1995
 September 14, 1995 (West Hollywood, CA)
  April 14, 2008 (Houston, TX)
 
-**All Just to Get to You
+**All Just to Get to You**
 Recorded:**  
 
 **Released:** *Letter to Laredo*   
 **First performed:**   
 **Last performed:**
-
- 

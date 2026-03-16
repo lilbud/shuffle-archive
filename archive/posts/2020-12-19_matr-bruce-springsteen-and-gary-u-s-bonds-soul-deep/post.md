@@ -47,7 +47,7 @@ I know what I think.
 April 29, 2003 (Red Bank, NJ)
  April 29, 2003 (Red Bank, NJ)
 
-**Soul Deep
+**Soul Deep**
 First performed:**  
 
 **Last performed:**

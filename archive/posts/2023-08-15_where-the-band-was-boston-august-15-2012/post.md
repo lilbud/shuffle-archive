@@ -163,5 +163,3 @@ All told, there were 18 songs in this show that were different from the first ni
 I’m glad I did both Fenway shows–even a standard Bruce set is worth catching. But 8/15/12 was the show that cemented it for me: never pass up the last show in a multi-night stand.
 
 Time to relive it once again.
-
- 

@@ -67,7 +67,7 @@ The song loses some of its power when performed as a duet, however, and even tho
 October 5, 2006 (Verona, Italy)
  October 5, 2006 (Verona, Italy)
 
-**Valerie
+**Valerie**
 First performed:**  
 
 **Last performed:**

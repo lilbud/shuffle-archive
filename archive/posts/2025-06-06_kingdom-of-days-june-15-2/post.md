@@ -145,5 +145,3 @@ Bruce makes his first appearance at the new Wembley Stadium, where he plays the 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
-
- 

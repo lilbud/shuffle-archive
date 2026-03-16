@@ -165,7 +165,7 @@ January 1995
  April 4, 1995 (New York City, NY)
  January 22, 2017 (Perth, Australia)
 
-**Blood Brothers
+**Blood Brothers**
 Recorded:**  
 
 **Released:***Greatest Hits* *Blood Brothers*  

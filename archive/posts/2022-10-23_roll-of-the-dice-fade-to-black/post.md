@@ -96,7 +96,7 @@ Late 1981 (demo only)
 
 
 
-**Fade to Black
+**Fade to Black**
 Recorded:**  
 
 **Never released**  

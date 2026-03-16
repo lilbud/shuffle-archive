@@ -125,7 +125,7 @@ May 5-6, 1982
  May 10, 2005 (St. Paul, MN)
  November 4, 2010 (Pittsburgh, PA)
 
-**A Good Man Is Hard to Find (Pittsburgh)
+**A Good Man Is Hard to Find (Pittsburgh)**
 Recorded:**  
 
 **Released:***Tracks*  

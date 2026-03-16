@@ -30,6 +30,6 @@ If you can't pick out Bruce's backing vocals in the clip above, don't worry. I w
 
 After all, I'd been practicing since eighth grade.
 
-**Don't Stop Believin'
+**Don't Stop Believin'**
 **First performed:** May 13, 2010 (New York City, NY)
 **Last performed:** December 9, 2019 (New York City, NY)

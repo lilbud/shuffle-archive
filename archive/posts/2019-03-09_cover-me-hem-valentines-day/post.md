@@ -21,5 +21,3 @@ The band made an interesting artistic choice, opting to drop the song’s coda (
 And darn it if it doesn’t work just as well–maybe even better.
 
 This is a very well done cover.
-
- 

@@ -15,5 +15,3 @@ I never for a moment thought it would take a circumstance like this, but like th
 Rest in peace, Justin.
 
 [https://www.youtube.com/embed/-mjlETFom2g?feature=oembed](https://www.youtube.com/embed/-mjlETFom2g?feature=oembed)
-
- 

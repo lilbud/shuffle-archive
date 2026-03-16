@@ -54,5 +54,3 @@ February 6, 2015 (Los Angeles, CA)
 **Knockin’ on Heaven’s Door**   
 **First performed:**   
 **Last performed:**
-
- 

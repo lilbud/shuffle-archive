@@ -186,7 +186,7 @@ September 12-16, 1977
  May 23, 1978 (Buffalo, NY)
  September 3, 2023 (East Rutherford, NJ)
 
-**Prove It All Night
+**Prove It All Night**
 Recorded:**  
 
 **Released:** *Darkness on the Edge of Town**The Essential Bruce Springsteen*   

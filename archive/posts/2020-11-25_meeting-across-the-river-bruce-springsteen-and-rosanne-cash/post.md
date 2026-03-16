@@ -37,11 +37,9 @@ Rosanne and Bruce performed “Sea of Heartbreak” together just once, at Rosan
  April 15, 2010 (Durham, NC)
  April 15, 2010 (Durham, NC)
 
-**Sea of Heartbreak
+**Sea of Heartbreak**
 Recorded:**  
 
 **Released:** *The List*  
 **First performed:**  
 **Last performed:**
-
- 

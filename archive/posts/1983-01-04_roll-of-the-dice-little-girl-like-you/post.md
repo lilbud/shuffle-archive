@@ -29,27 +29,27 @@ Check out the lyrics:
 *Settle down and find a little love that's true*
 *Settle down with a girl like you*
 
-*Seen a lot of girls, h**ad a lot of fun*
-*Ran around a lot, n**ow my runnin's done*
-*Honey, all I want, w**anna be runnin' to*
+*Seen a lot of girls, had a lot of fun*
+*Ran around a lot, now my runnin's done*
+*Honey, all I want, wanna be runnin' to*
 *Is the arms of a girl like you*
 
-*You start living life l**ike you just don't care*
-*You done everything, yo**u been everywhere*
-*But what I done ain't nothin' t**o what I wanna do*
+*You start living life like you just don't care*
+*You done everything, you been everywhere*
+*But what I done ain't nothin' to what I wanna do*
 *When I find a little girl like you*
 
-*We'll get married i**n a church down a winding path*
-*Tell a lot of jokes, h**ave a lot of laughs*
+*We'll get married in a church down a winding path*
+*Tell a lot of jokes, have a lot of laughs*
 *Do whatever it is that we wannna do*
 *Long as I do it with a girl like you*
 
-*Hey little stranger, w**alkin' down the street*
+*Hey little stranger, walkin' down the street*
 *You're the only one can* *make my life complete*
-*I got a plan but i**t's made for two*
+*I got a plan but it's made for two*
 *So I need a little girl like you*
 *Yeah hey, I need a little girl like you*
-*Oh honey I need a little girl like you
+*Oh honey I need a little girl like you*
 Oh baby I need a little girl like you*
 
 

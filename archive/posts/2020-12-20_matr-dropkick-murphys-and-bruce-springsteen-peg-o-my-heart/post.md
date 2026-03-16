@@ -35,11 +35,9 @@ This is a live team-up we need to see again someday soon.
  March 18, 2011 (Boston, MA)
  March 18, 2011 (Boston, MA)
 
-**Peg o’ My Heart
+**Peg o’ My Heart**
 Recorded:**  
 
 **Released:***Going Out in Style*   
 **First performed:**  
 **Last performed:**
-
- 

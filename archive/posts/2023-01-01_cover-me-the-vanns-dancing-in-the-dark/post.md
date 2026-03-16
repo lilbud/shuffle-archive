@@ -15,5 +15,3 @@ The Vanns took it a step further–all the way to the garage. Their studio versi
 [https://www.youtube.com/embed/_ozLS_cRoLY?feature=oembed](https://www.youtube.com/embed/_ozLS_cRoLY?feature=oembed)
 
 In a sea of “Dancing in the Dark” covers, this is one of the best. And if you’re lucky enough to catch them on tour in their native Australia this summer, you’ll very likely hear them play it live.
-
- 

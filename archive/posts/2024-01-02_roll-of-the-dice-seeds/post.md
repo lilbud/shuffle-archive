@@ -156,7 +156,7 @@ May 25, 1983
  July 3, 1985 (London, England)
  June 5, 2016 (London, England)
 
-**Seeds
+**Seeds**
 Recorded:**  
 
 **Never released***Live 1975-85*  

@@ -59,5 +59,3 @@ Max, Garry, and Patti drop by the set of to share their thoughts about what it�
 Patti Scialfa is sick with the flu, so Bruce continues playing the “B” setlist at at the Walter Kerr Theater in New York City.
 
 **2017:** *Springsteen on Broadway*
-
- 

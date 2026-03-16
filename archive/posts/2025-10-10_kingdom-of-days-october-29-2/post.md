@@ -145,5 +145,3 @@ Bruce inducts Patti Scialfa into the New Jersey Hall of Fame and joins a roster 
 [https://www.youtube.com/embed/TzCZFj0FPAY?feature=oembed](https://www.youtube.com/embed/TzCZFj0FPAY?feature=oembed)
 
 [https://www.youtube.com/embed/oHCmVOZ2Bm4?feature=oembed](https://www.youtube.com/embed/oHCmVOZ2Bm4?feature=oembed)
-
- 

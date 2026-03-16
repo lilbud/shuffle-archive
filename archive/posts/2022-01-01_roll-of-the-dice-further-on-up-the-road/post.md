@@ -90,7 +90,7 @@ With his more sentimental "I'll See You in My Dreams" rewrite now firmly establi
 
 But you never know... the road is long.
 
-**Further On (Up the Road)
+**Further On (Up the Road)**
 **Recorded:** Early 2002
 **Released:** *The Rising* (2002)
 **First performed:** June 4, 2000 (Atlanta, GA)

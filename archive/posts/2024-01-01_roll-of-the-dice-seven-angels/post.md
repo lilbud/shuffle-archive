@@ -32,7 +32,7 @@ That’s it–that’s the song right there: Seven different internal monologues
 
 What’s awesome is that the song has continuity throughout–only two angels resurface at the end of the song, but they’re the right ones–the most urgent ones:
 
-*Sixth angel says to believe you when you say you’ll never leave me crying
+**Sixth angel says to believe you when you say you’ll never leave me crying**
 Seventh angel says you’re lying*  
 
 

@@ -35,9 +35,7 @@ Springsteen never did get around to performing it on stage, then or ever. But th
 January 28, 1988 (Fort Monmouth, NJ) (soundcheck only)
  January 28, 1988 (Fort Monmouth, NJ) (soundcheck only)
 
-**Something About You
+**Something About You**
 First performed:**  
 
 **Last performed:**
-
- 

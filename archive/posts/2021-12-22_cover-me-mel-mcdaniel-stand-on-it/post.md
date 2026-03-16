@@ -37,5 +37,3 @@ The song’s popularity earned McDaniel an array of television performances, inc
 [https://www.youtube.com/embed/-36wxEmJYMs?feature=oembed](https://www.youtube.com/embed/-36wxEmJYMs?feature=oembed)
 
 “Stand On It” remained a fan favorite for the rest of McDaniel’s career, which unfortunately ended abruptly, tragically, and prematurely in 1996 when he fell into the pit while performing and nearly died. McDaniel played “Stand On It” as a reliable encore right up until the end.
-
- 

@@ -39,7 +39,3 @@ https://www.youtube.com/watch?v=Byz3NX5NVMU&t=167s
 In short–it wasn’t anywhere close to the top of the list of best shows I’ve seen. I don’t even think it cracked the top half. But I’d had a taste of life in the pit, and I liked it.
 
 I needed another taste, but it would be a few more months before I’d get it.
-
- 
-
- 

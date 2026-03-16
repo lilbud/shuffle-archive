@@ -40,5 +40,3 @@ September 20, 1978 (Passaic, NJ) – soundcheck only
 **Wedding Bells**  
 **First performed:**   
 **Last performed:**
-
- 

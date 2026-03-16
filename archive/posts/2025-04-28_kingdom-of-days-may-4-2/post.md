@@ -146,4 +146,4 @@ What an amazing honour and a beautiful experience to get a visit from The Boss!!
 
 Bruce and the E Street Band rehears for their European tour at Principality Stadium in Cardiff.
 
-**2024:** 
+**2024:**

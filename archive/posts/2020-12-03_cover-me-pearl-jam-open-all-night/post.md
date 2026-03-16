@@ -17,5 +17,3 @@ Bruce only plays “Open All Night” in two modes–acoustic or swing–so it�
 In the meantime, if you’re going to one or both of these sure-to-be-epic shows, enjoy the experience–and thank you.
 
 [https://www.youtube.com/embed/n-iZsEh7cxM?feature=oembed](https://www.youtube.com/embed/n-iZsEh7cxM?feature=oembed)
-
- 

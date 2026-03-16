@@ -29,5 +29,3 @@ At his tour opener (and at many of the shows thereafter), Barry’s set included
 [https://www.youtube.com/embed/R81FXrQ6aiQ?feature=oembed](https://www.youtube.com/embed/R81FXrQ6aiQ?feature=oembed)
 
 I suspect Barry chose the song to show off that famous falsetto of his, and based on the crowd’s reaction it was an inspired choice.
-
- 

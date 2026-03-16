@@ -31,7 +31,7 @@ In the recording above, you can hear the moment when the crowd realizes that Bru
 November 1, 2003 (Asbury Park, NJ)
  November 1, 2003 (Asbury Park, NJ)
 
-**Hail Hail Rock ‘n’ Roll
+**Hail Hail Rock ‘n’ Roll**
 First performed:**  
 
 **Last performed:**

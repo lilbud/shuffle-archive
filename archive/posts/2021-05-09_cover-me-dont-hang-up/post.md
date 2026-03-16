@@ -37,9 +37,7 @@ Bruce’s comments would sharpen over time, but on this early day in 2017, Bruce
 February 2, 2017 (Melbourne, Australia)
  February 2, 2017 (Melbourne, Australia)
 
-**Don’t Hang Up
+**Don’t Hang Up**
 First performed:**  
 
 **Last performed:**
-
- 

@@ -41,7 +41,7 @@ Although several fans recorded snippets of the song, it doesn’t seem like anyo
 June 2, 2009 (Tampere, Finland)
  June 2, 2009 (Tampere, Finland)
 
-**The Dark End of the Street
+**The Dark End of the Street**
 First performed:**  
 
 **Last performed:**

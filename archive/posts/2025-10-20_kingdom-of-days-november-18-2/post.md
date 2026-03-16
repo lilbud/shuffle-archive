@@ -142,4 +142,4 @@ Stand Up for Heroes goes virtual due to the great pandemic, with Bruce performin
 
 Bruce’s scheduled show in Ottawa is postponed by almost a year due to his peptic ulcer disease.
 
-**2023:** 
+**2023:**

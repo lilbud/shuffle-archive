@@ -13,5 +13,3 @@ There are enough covers of “” to fuel a blog of its own, but this is one of 
 From their 2010 concert at the Gorge Amphitheater in George, WA.
 
 [https://www.youtube.com/embed/RMMD891A7V4?feature=oembed](https://www.youtube.com/embed/RMMD891A7V4?feature=oembed)
-
- 

@@ -8,8 +8,7 @@
 
 *Regular programming resumes on Christmas Eve. Have a great holiday season until then, and thanks for reading!****
 
-***Ben E. King was listening to Sam Cooke's "Stand By Me Father," recorded by The Soul Stirrers in 1959, when inspiration struck.
-
+**Ben E. King was listening to Sam Cooke's "Stand By Me Father," recorded by The Soul Stirrers in 1959, when inspiration struck.**
 [Watch on Youtube: "Stand By Me Father" - The Soul Stirrers | ABKCO](https://www.youtube.com/watch?v=weYZt3FAqi4)
 
 Inspired by Cooke's spiritual, King came up with a first verse for a secular song and the main part of the chorus, and he sang it one day for famed songwriters Jerry Leiber and Mike Stoller. Together, they finished the song that we know today as "Stand By Me."

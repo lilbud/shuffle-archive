@@ -28,7 +28,7 @@ As far as I know, those lyrics have never appeared anywhere else in his catalog,
 
 He hasn't performed it since, but I bet he's glad he hasn't had to.
 
-**I'm Gonna Rock (The Pee Pee Song)
+**I'm Gonna Rock (The Pee Pee Song)**
 Never recorded**
 **Never released**
 **First performed:** December 8, 1992 (Philadelphia, PA)

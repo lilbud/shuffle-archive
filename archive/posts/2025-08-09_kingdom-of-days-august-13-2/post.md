@@ -91,5 +91,3 @@ Bruce and the E Street Band rehearse for the final American leg of the Wrecking 
 **2012:**
 
 [https://www.youtube.com/embed/WqcEh_6ls8M?feature=oembed](https://www.youtube.com/embed/WqcEh_6ls8M?feature=oembed)
-
- 

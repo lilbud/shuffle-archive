@@ -192,7 +192,7 @@ October 27, 1983
  June 29, 1984 (St. Paul, MN)
  September 3, 2023 (East Rutherford, NJ)
 
-**No Surrender
+**No Surrender**
 Recorded:**  
 
 **Released:** *Born in the U.S.A.*   

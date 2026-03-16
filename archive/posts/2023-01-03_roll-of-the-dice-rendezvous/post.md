@@ -121,7 +121,7 @@ September 29, 1977
  August 1, 1976 (Red Bank, NJ)
  November 16, 2019 (Asbury Park, NJ)
 
-**Rendezvous
+**Rendezvous**
 Recorded:**  
 
 **Released:** *The Promise*   

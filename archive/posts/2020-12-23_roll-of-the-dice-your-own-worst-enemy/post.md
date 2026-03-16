@@ -151,7 +151,7 @@ March-May 2007
  October 10, 2007 (East Rutherford, NJ)
  November 4, 2011 (Pittsburgh, PA)
 
-**Your Own Worst Enemy
+**Your Own Worst Enemy**
 Recorded:**  
 
 **Released:** *Magic*   

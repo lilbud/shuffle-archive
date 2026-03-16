@@ -73,7 +73,7 @@ Late 1989 1992
  June 15, 1992 (Stockholm)
 July 23, 1992 (East Rutherford, NJ)
 
-**With Every Wish
+**With Every Wish**
 Recorded:**   
  **Released:**  
 *Human Touch,*   

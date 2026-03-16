@@ -165,7 +165,7 @@ April -June 1995
  November 21, 1995 (New Brunswick, NJ)
  May 13, 2021 (Colts Neck, NJ)
 
-**Across the Border
+**Across the Border**
 Recorded:**  
 
 **Released:** *The Ghost of Tom Joad*   

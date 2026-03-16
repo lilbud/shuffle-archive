@@ -15,5 +15,3 @@ But capturing Bruce’s original vibe through his arrangement, home studio and i
 *Nebraska*
 
 [https://www.youtube.com/embed/pnsmb4SjZVs?feature=oembed](https://www.youtube.com/embed/pnsmb4SjZVs?feature=oembed)
-
- 

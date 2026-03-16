@@ -21,7 +21,7 @@ Here’s that one-time only performance, from February 6, 1998. Bruce is on guit
 February 6, 1998 (Sea Bright, NJ)
  February 6, 1998 (Sea Bright, NJ)
 
-**I Ain’t Ever Satisfied
+**I Ain’t Ever Satisfied**
 First performed:**  
 
 **Last performed:**

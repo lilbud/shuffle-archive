@@ -31,7 +31,7 @@ Unknown (live excerpt from 9/30/88)
  September 30, 1988 (New Delhi, India)
  September 30, 1988 (New Delhi, India)
 
-**Up to You
+**Up to You**
 Recorded:**  
 
 **Released:***Eye Catcher*   

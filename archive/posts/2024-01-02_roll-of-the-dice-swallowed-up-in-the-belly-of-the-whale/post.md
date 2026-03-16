@@ -98,7 +98,7 @@ That’s some pretty great art.
 2011
  (2012)
 
-**Swallowed Up (In the Belly of the Whale)
+**Swallowed Up (In the Belly of the Whale)**
 Recorded:**  
 
 **Released:***Wrecking Ball*  

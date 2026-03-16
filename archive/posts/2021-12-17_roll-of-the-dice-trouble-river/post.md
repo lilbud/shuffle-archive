@@ -69,7 +69,7 @@ April 6, 1990
  August 1, 1999 (East Rutherford, NJ)
  August 1, 1999 (East Rutherford, NJ)
 
-**Trouble River
+**Trouble River**
 Recorded:**  
 
 **Released:***18 Tracks*  

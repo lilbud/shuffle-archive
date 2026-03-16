@@ -33,11 +33,7 @@ That’s too bad–because it’s a fantastic performance. Here it is, thankfull
 October 5, 2006
  October 5, 2006
 
-**Samson and Delilah
+**Samson and Delilah**
 First performed:**  
 
 **Last performed:**
-
- 
-
- 

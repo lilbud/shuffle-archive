@@ -92,4 +92,4 @@ Bruce and Peter Wolf drop by Mr. Music in Boston and spend about 40 minutes in t
 
 Bruce and the E Street Band rehearse for their upcoming tour at Cure Insurance Arena in Trenton.
 
-**2023:** 
+**2023:**

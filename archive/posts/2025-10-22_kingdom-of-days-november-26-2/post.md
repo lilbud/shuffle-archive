@@ -123,5 +123,3 @@ continues its theatrical run at the Walter Kerr Theater on Broadway. After tonig
 Bruce drops by the set of filming today in Bayonne, New Jersey.
 
 **2024:** *Deliver Me From Nowhere,*
-
- 

@@ -66,7 +66,7 @@ And may we all have peace on earth soon.
 December 14, 2016 (New York City, NY)
  December 14, 2016 (New York City, NY)
 
-**Do You Hear What I Hear
+**Do You Hear What I Hear**
 First performed:**  
 
 **Last performed:**

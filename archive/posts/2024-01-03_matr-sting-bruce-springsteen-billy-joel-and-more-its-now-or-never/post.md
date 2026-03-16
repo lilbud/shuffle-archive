@@ -29,9 +29,7 @@ To this day, those two lines and shared choruses represent the only time Bruce h
 April 12, 1995 (New York City, NY)
  April 12, 1995 (New York City, NY)
 
-**It’s Now or Never
+**It’s Now or Never**
 First performed:**  
 
 **Last performed:**
-
- 

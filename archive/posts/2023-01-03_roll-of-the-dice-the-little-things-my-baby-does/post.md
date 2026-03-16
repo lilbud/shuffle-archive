@@ -82,7 +82,7 @@ Locked in the vault for decades, Bruce finally released “The Little Things (My
 August 15, 1977 (core track), July 2010 (vocals)
 (2010)
 
-**The Little Things (My Baby Does)
+**The Little Things (My Baby Does)**
 Recorded:**  
 
 **Released:** *The Promise*   

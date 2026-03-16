@@ -89,7 +89,7 @@ January – April 1987
  February 25, 1988 (Worcester, MA)
  April 29, 2013 (Oslo, Norway)
 
-**All That Heaven Will Allow
+**All That Heaven Will Allow**
 Recorded:**  
 
 **Released:** *Tunnel of Love*   

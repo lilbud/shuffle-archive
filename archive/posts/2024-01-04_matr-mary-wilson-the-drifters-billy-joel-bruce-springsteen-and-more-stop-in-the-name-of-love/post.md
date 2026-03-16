@@ -33,9 +33,7 @@ And yes: that’s Patti you see providing backing vocals surrounded by Jagger, D
 January 20, 1988 (New York City, NY)
  January 20, 1988 (New York City, NY)
 
-**Stop! In the Name of Love
+**Stop! In the Name of Love**
 First performed:**  
 
 **Last performed:**
-
- 

@@ -15,5 +15,3 @@ That year, Coldplay’s Chris Martin was among the performers, and a highlight o
 It’s a bit rough around the edges, but if you ever wondered what this arena anthem would sound like acoustically, here’s your chance to find out.
 
 [https://www.youtube.com/embed/JMypwUsp7Y0?feature=oembed](https://www.youtube.com/embed/JMypwUsp7Y0?feature=oembed)
-
- 

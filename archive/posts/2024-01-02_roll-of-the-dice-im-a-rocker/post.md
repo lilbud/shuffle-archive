@@ -169,7 +169,7 @@ April 10, 1980
  October 18, 1980 (St. Louis, MO)
  September 11, 2016 (Pittsburgh, PA)
 
-**I’m a Rocker
+**I’m a Rocker**
 Recorded:**  
 
 **Released:** *The River*   

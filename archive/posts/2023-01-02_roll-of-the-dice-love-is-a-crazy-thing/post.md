@@ -79,7 +79,7 @@ So maybe we can cut him a little slack for writing an entire song about a girl w
 February 4, 1972 (Richmond, VA)
  February 4, 1972 (Richmond, VA)
 
-**Love Is a Crazy Thing
+**Love Is a Crazy Thing**
 Never recorded**  
 
 **Never released**  

@@ -86,7 +86,7 @@ January 19, 1983
 
 
 
-**One Love
+**One Love**
 Recorded:**  
 
 **Released:** *L.A. Garage Sessions ’83*  

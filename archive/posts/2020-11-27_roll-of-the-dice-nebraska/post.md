@@ -47,7 +47,7 @@ And I never, ever sing along.
 December 1981-January 1982 (1982), (2003) July 1, 1984 (St. Paul, MN)
 October 27, 2020 (Colts Neck, NJ)
 
-**Nebraska
+**Nebraska**
 Recorded:**   
  **Released:**   
 *Nebraska**The Essential Bruce Springsteen*  **First performed:**  

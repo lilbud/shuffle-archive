@@ -104,7 +104,7 @@ November 2019
 November 6, 2023(New York City, NY)
  November 6, 2023 (New York City, NY)
 
-**The Power of Prayer
+**The Power of Prayer**
 Recorded:**  
 
 **Released:***Letter to You*   
@@ -114,5 +114,3 @@ Recorded:**
 Looking for your favorite Bruce song? Check our full index . New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
-
- 

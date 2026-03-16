@@ -73,9 +73,7 @@ Today, “Turn! Turn! Turn!” is regarded as both a folk and jangle rock classi
 April 25, 2006 (Asbury Park, NJ)
  April 23, 2008 (Orlando, FL)
 
-**Turn! Turn! Turn! (To Everything There Is a Season)”
+**Turn! Turn! Turn! (To Everything There Is a Season)”**
 First performed:**   
 
 **Last performed:**
-
- 

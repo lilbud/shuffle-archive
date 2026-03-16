@@ -54,7 +54,7 @@ It sure would be a nice surprise for , though.
 October 26, 1978 (Holmdel, NJ) (soundcheck only)
  October 26, 1978 (Holmdel, NJ) (soundcheck only)
 
-**I’m Gonna Treat You Right (Wild Kisses)
+**I’m Gonna Treat You Right (Wild Kisses)**
 Never recorded**  
 
 **First performed:**  

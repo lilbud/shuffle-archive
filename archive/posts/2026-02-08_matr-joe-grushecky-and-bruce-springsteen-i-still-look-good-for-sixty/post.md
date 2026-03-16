@@ -35,7 +35,7 @@ Both Joe and Bruce are now past sixty, and perhaps that’s why they’ve stoppe
 May 22, 2014 (Pittsburgh, PA)
  January 17, 2015 (Asbury Park, NJ)
 
-**I Still Look Good (For Sixty)
+**I Still Look Good (For Sixty)**
 First performed:**  
 
 **Last performed:**

@@ -103,7 +103,7 @@ January 1990
  February 25, 1988 (Worcester, MA)
  August 19, 2008 (Hershey, PA)
 
-**Part Man, Part Monkey
+**Part Man, Part Monkey**
 Recorded:**   
 
 **Released:** *Tracks* *18 Tracks*  

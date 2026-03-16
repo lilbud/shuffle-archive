@@ -47,7 +47,7 @@ April 1972
 
 
 
-**War Nurse
+**War Nurse**
 Recorded:**  
 
 **Never released**  

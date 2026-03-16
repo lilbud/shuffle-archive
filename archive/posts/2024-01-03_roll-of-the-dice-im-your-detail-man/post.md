@@ -94,7 +94,7 @@ Anyone who feared Bruce’s rock and roll days were behind him wasn’t at John 
 May 28, 1995 (Beverly Hills, CA)
  May 28, 1995 (Beverly Hills, CA)
 
-**I’m Your Detail Man
+**I’m Your Detail Man**
 First performed:**  
 
 **Last performed:**

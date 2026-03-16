@@ -53,7 +53,7 @@ Anyone wanna hook me up? 🙂
 December 17, 1971 (New Brunswick, NJ)
  February 17, 1972 (Freehold, NJ)
 
-**She’s a Woman
+**She’s a Woman**
 Never recorded**  
 
 **Never released**  

@@ -16,6 +16,6 @@ Bruce's version is more pensive than Williams' original, and although the taper 
 
 [Watch Video Highlight](https://videopress.com/embed/QHqTXyFd)
 
-**(I Heard That) Lonesome Whistle
+**(I Heard That) Lonesome Whistle**
 **First performed:** August 29, 1978 (Pittsburgh, PA)
 **Last performed:** August 29, 1978 (Pittsburgh, PA)

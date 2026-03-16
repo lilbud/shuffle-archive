@@ -39,7 +39,7 @@ So yeah, from a Springsteen perspective, this is one for the completists. But ar
 April 2, 2011 (Asbury Park, NJ)
  April 2, 2011 (Asbury Park, NJ)
 
-**Crying in the Chapel
+**Crying in the Chapel**
 First performed:**  
 
 **Last performed:**

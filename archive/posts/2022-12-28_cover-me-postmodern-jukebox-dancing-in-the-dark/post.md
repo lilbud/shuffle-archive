@@ -17,5 +17,3 @@ For instance: this retro take on . It may or may not be your cup of tea, but you
 [Bruce’s biggest hit](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
 [https://www.youtube.com/embed/X-Ziw_TwXrM?feature=oembed](https://www.youtube.com/embed/X-Ziw_TwXrM?feature=oembed)
-
- 

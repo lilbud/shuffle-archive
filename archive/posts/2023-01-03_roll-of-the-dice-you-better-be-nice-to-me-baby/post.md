@@ -110,7 +110,7 @@ If you enjoyed this little road trip in the wayback machine, you’ll be happy t
 September 1, 1971 (Long Branch, NJ)
  September 1, 1971 (Long Branch, NJ)
 
-**You Better Be Nice to Me, Baby
+**You Better Be Nice to Me, Baby**
 First performed:**  
 
 **Last performed:**

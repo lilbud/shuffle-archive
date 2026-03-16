@@ -73,7 +73,7 @@ Bring on summer!
 July 23, 1971 (New York City, NY)
  July 29, 1971 (South Amboy, NJ)
 
-**I’m in Love Again
+**I’m in Love Again**
 Never recorded
 Never released
 First performed:**   

@@ -62,10 +62,10 @@ Summer 1995
 October 18, 2001 (Red Bank, NJ)
 October 19, 2001 (Red Bank, NJ)
 
-**Tiger Rose
+**Tiger Rose**
 Recorded:**  
 
-**Never released
+**Never released**
 First performed:**   
 
 **Last performed**

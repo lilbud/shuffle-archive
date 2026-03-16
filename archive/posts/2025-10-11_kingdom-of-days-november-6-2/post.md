@@ -165,5 +165,3 @@ On a tragic U.S. Election Day, Bruce opens his show in Toronto with defiant perf
 **2024:** [Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)
 
 [https://www.youtube.com/embed/AGOle36ZEaI?feature=oembed](https://www.youtube.com/embed/AGOle36ZEaI?feature=oembed)
-
- 

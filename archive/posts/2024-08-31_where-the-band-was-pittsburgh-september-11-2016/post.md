@@ -100,5 +100,3 @@ Walking into the arena that night, I thought this would be my second-to-last sho
 But walking out of the arena after that show, I knew I was done for this tour. I couldn’t imagine the Gillette Stadium show topping this show in setlist, intensity, or community, and I liked the symmetry of ending the tour where I began it. So I did something I’ve never done before: I passed on a Springsteen show I already had a ticket, at peace with the notion that it might be my last E Street Band show ever. (We never know what the future holds.)
 
 Pittsburgh 9/11 remained my last E Street Band show for more than six yeas and one of my favorite concert experiences ever.
-
- 

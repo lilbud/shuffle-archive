@@ -139,7 +139,7 @@ It’s very different from Bruce’s nightly performance on tour, and the only l
  April 22, 2005 (Asbury Park, NJ)
  November 22, 2005 (Trenton, NJ)
 
-**Reno
+**Reno**
 Recorded:**  
 
 **Released:***Devils & Dust*   

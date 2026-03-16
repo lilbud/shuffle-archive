@@ -108,7 +108,7 @@ January-April 1987
  March 23, 1993 (Red Bank, NJ)
  October 20, 2005 (Worcester, MA)
 
-**When You’re Alone
+**When You’re Alone**
 Recorded:**  
 
 **Released:** *Tunnel of Love*   

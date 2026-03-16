@@ -56,7 +56,7 @@ Here’s a clip of Bruce strumming a little bit of “When The Saints Go Marchin
 April 20, 2006 (Asbury Park, NJ)
  May 3, 2014 (New Orleans, LA)
 
-**When the Saints Go Marching In
+**When the Saints Go Marching In**
 First performed:**  
 
 **Last performed:**

@@ -55,7 +55,7 @@ And that time, Americans would vote for change.
 December 5, 2003 (Asbury Park, NJ)
 : December 19, 2004 (Asbury Park, NJ)
 
-**(What’s So Funny ‘Bout) Peace, Love and Understanding
+**(What’s So Funny ‘Bout) Peace, Love and Understanding**
 First performed:**  
 
 **Last performed**

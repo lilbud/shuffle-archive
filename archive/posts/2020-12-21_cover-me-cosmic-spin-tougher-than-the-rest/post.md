@@ -21,7 +21,3 @@ EBTG’s version used to be my favorite of the “” covers, but I think it’s
 [Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
 
 [https://www.youtube.com/embed/rSvM4Asm4qs?feature=oembed](https://www.youtube.com/embed/rSvM4Asm4qs?feature=oembed)
-
- 
-
- 

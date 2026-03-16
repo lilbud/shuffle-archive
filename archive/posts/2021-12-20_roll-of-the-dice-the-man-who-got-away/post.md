@@ -103,7 +103,7 @@ Although it took more than 35 years for us to get an official release of “The 
 June 13-July 5, 1979
  (2015)
 
-**The Man Who Got Away
+**The Man Who Got Away**
 Recorded:**  
 
 **Released:** *The Ties That Bind: The River Collection*  

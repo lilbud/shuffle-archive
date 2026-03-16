@@ -29,4 +29,4 @@ June 15, 1981 (San Francisco, CA)
 
 **School Is Out** **First performed:**  
 
-**Last performed:** 
+**Last performed:**

@@ -155,7 +155,7 @@ February 16-April 26, 1980
  October 3, 1980 (Ann Arbor, MI)
  November 16, 2019 (Asbury Park, NJ)
 
-**Cadillac Ranch
+**Cadillac Ranch**
 Recorded:**  
 
 **Released:***The River*  

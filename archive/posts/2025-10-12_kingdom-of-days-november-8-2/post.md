@@ -160,4 +160,4 @@ At the fifteenth annual edition of Stand Up for Heroes at Alice Tulle Hall in Ne
 
 Bruce’s scheduled show in Calgary is postponed by more than a year due to his peptic ulcer disease.
 
-**2023:** 
+**2023:**

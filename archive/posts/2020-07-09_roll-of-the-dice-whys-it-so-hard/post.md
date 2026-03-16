@@ -64,7 +64,7 @@ If “Why’s It So Hard” is notable for any other reason, it’s because it�
 January 21, 1972 (Neptune, NJ)
  January 21, 1972 (Neptune, NJ)
 
-**Why’s It So Hard?
+**Why’s It So Hard?**
 Never Recorded**  
 
 **Never Released**  

@@ -32,5 +32,3 @@ September 30, 1987 (Los Angeles, CA)
 **Blue Angel**  
 **First performed:**  
 **Last performed:**
-
- 

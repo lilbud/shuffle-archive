@@ -76,7 +76,7 @@ Until and unless Bruce decides to talk about this lost early song (an unlikely p
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/allmangunslyrics.png)
 
-**We'll All Man the Guns
+**We'll All Man the Guns**
 Never recorded**
 **Never released**
 **First performed:** August 14, 1970 (Richmond, VA)

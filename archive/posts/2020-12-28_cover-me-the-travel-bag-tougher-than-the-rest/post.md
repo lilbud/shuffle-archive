@@ -21,7 +21,3 @@ So since I can’t seem to shake my obsession with this absolutely gorgeous-in-e
 Have a great weekend.
 
 [https://www.youtube.com/embed/t44heTOvbBE?feature=oembed](https://www.youtube.com/embed/t44heTOvbBE?feature=oembed)
-
- 
-
- 

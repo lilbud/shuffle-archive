@@ -25,4 +25,4 @@ January 17, 1990 (New York City, NY)
 
 **I Can’t Help Myself (Sugar Pie Honey Bunch)** **First performed:**   
 
-**Last performed:** 
+**Last performed:**

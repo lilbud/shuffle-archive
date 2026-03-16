@@ -99,5 +99,3 @@ From that vantage point we were treated to a double-shot from Bruce’s first al
 The standard encores of “” and “” closed a terrific show, leaving me two days to wonder what my final tour show in Vancouver would bring. I hoped for at least a few songs I hadn’t yet heard on this stand. I never dreamed I’d get .
 
 [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Dream Baby Dream](http://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)*ten*
-
- 

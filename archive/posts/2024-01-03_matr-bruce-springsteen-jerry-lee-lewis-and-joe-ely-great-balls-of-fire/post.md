@@ -79,9 +79,7 @@ At the Rock and Roll Hall of Fame induction ceremony in 2022, attendees (includi
 October 29, 1990 (San Fernando Valley, CA)
  November 5, 2022 (Los Angeles, CA)
 
-**Great Balls of Fire
+**Great Balls of Fire**
 First performed:**   
 
 **Last performed:**
-
- 

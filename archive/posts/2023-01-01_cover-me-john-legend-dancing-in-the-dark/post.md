@@ -19,7 +19,3 @@ Check it out:
 Bonus: here’s another performance–solo this time–from London in 2013:
 
 [https://www.youtube.com/embed/y_zftf3bVUM?feature=oembed](https://www.youtube.com/embed/y_zftf3bVUM?feature=oembed)
-
- 
-
- 

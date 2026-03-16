@@ -211,7 +211,7 @@ September 11, 1972 – October 26, 1972
  January 31, 1973 (New York City, NY)
  November 22, 2024 (Vancouver, BC)
 
-**Spirit in the Night
+**Spirit in the Night**
 Recorded:**  
 
 **Released:** *Greetings from Asbury Park, N.J.**The Essential Bruce Springsteen*   

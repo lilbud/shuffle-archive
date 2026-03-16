@@ -49,7 +49,3 @@ The Slants retired from performing just before the pandemic. They still record, 
 Check out more of The Slants’ music .
 
 [here](https://www.youtube.com/channel/UC50nSOg6HWNeYKysoXyJiCg)
-
- 
-
- 

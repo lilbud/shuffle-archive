@@ -1,5 +1,5 @@
 *Good morning, good morning!*
-*The church mouse is snoring
+**The church mouse is snoring**
 News is out all over town: Frankie fell in love!*
 
 And with those words, we're off to the races in a song that Bruce recorded in 2008 (during the *Working on a Dream* sessions) but sounds like it would be right at home on *The River*: "Frankie Fell in Love."
@@ -33,7 +33,7 @@ Is Frankie either Bruce or Steve? Probably, but only the two of them can say whi
 *You drunken choir boys, shake it up!*
 *Our Juliet says her Romeo's been found–Frankie fell in love*
 
-*World peace is gonna break out
+**World peace is gonna break out**
 From here on in we're eating take out*
 *She ain't gonna be cooking for the likes of us*
 *Somebody call mama and just tell her: Frankie fell in love*

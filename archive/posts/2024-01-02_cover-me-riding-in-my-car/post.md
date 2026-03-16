@@ -39,11 +39,9 @@ For fans of Woody and Bruce, that’s great news, because we’re highly unlikel
 September 29, 1996 (live) (2000) September 29, 1996 (Cleveland, OH)
  September 29, 1996 (Cleveland, OH)
 
-**Riding in My Car (Car Song)
+**Riding in My Car (Car Song)**
 Recorded:**   
  **Released:**   
 *‘Til We Outnumber Them* **First performed:**  
 
 **Last performed:**
-
- 

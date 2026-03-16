@@ -37,9 +37,7 @@ Bruce would only play “Satan’s Jeweled Crown” once more after returning ho
 May 14, 1993 (Berlin, Germany)
  June 24, 1993 (East Rutherford, New Jersey)
 
-**Satan’s Jeweled Crown
+**Satan’s Jeweled Crown**
 First performed:**  
 
 **Last performed:**
-
- 

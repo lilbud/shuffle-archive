@@ -37,5 +37,3 @@ It holds too much meaning for me to judge it objectively, so I can’t say. I ju
 Ironically, it turns out Berman is a fellow Pacific Northwesterner. I may have had to go all the way to Rome to discover him, but I’ll be at the Sunset Tavern in Seattle to see him when he swings by in January.
 
 I hope he plays “Dancing in the Dark.”
-
- 

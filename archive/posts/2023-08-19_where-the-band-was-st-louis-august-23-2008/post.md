@@ -153,7 +153,3 @@ Here’s another soundcheck highlight–I’m glad I didn’t hear this one at t
 **Bonus:**
 
 https://youtu.be/geYTbeoe2Lc
-
- 
-
- 

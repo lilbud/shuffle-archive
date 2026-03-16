@@ -1,4 +1,4 @@
-*Everything dies, baby, that's a fact.
+**Everything dies, baby, that's a fact.**
 But maybe everything that dies someday comes back.*
 
 That's one of the finest couplets Bruce has ever written.

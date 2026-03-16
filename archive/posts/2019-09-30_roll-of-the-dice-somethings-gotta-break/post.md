@@ -63,7 +63,7 @@ A note about that line in bold: I realize that the Springsteenlyrics transcripti
 
 Any takers?
 
-**Something's Gotta Break
+**Something's Gotta Break**
 Never recorded**
 **Never released**
 **First performed:** May 23, 1970 (Richmond, VA)

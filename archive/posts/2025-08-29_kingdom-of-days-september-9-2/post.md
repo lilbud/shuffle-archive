@@ -107,7 +107,3 @@ Bruce postpones his scheduled show in Baltimore to more than a full year later d
 View this post on Instagram
 
 [A post shared by Bruce Springsteen (@springsteen)](https://www.instagram.com/p/Cw3scktLQ4t/?utm_source=ig_embed&utm_campaign=loading)
-
-
-
- 

@@ -26,6 +26,6 @@ Unsurprisingly, the media coverage focused on Bruce's participation–he was, af
 
 Bruce left Paris a few days later, leaving Juli behind to finish her movie. He arrived home just in time for the box set release frenzy, although he made no promotional appearances to support it. His one public appearance during that entire period was that little-known, little-seen cameo appearance in Paris.
 
-**Barefootin'
+**Barefootin'**
 **First performed:** November 5, 1986 (Paris, France)
 **Last performed:** November 5, 1986 (Paris, France)

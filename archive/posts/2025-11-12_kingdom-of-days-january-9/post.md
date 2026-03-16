@@ -56,4 +56,4 @@ Bruce convenes rehearsals for the E Street Band’s upcoming world tour at The V
 
 Bruce visits the set of filming today at the old Meadowlands Arena.
 
-**2025:** *Deliver Me From Nowhere,* 
+**2025:** *Deliver Me From Nowhere,*

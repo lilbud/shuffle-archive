@@ -165,7 +165,7 @@ And really, who can blame them? It’s guaranteed fun at the very least, and a r
  October 29, 1972 (Long Branch, NJ)
  September 7, 2016 (Philadelphia, PA)
 
-**Thundercrack
+**Thundercrack**
 Recorded:**  
 
 **Released:** *Tracks*  

@@ -134,7 +134,7 @@ January 25, 1982 (core recording), 1998 (horns)
  June 3, 1999 (Paris, France)
  November 1, 2012 (University Park, PA)
 
-**Lion’s Den
+**Lion’s Den**
 Recorded:**  
 
 **Released:***Tracks**18 Tracks*   

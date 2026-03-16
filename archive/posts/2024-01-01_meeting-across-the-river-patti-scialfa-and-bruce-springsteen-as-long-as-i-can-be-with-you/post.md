@@ -29,7 +29,7 @@ I’m still hoping for a Patti solo tour someday so I can hear this song live–
 December 17, 2000 (Asbury Park, NJ)
  October 13, 2004 (East Rutherford, NJ)
 
-**As Long as I (Can Be With You)
+**As Long as I (Can Be With You)**
 First performed:**  
 
 **Last performed:**

@@ -119,5 +119,3 @@ The Wrecking Ball Tour makes a brief stop in Spain for a show at San Sebastian, 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
-
- 

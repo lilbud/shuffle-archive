@@ -27,7 +27,7 @@ Bruce and Garland certainly lifted the show, and you can clearly sense their mut
 December 5, 2003 (Asbury Park, NJ)
  December 8, 2003 (Asbury Park, NJ)
 
-**R.O.C.K.
+**R.O.C.K.**
 First performed:**  
 
 **Last performed:**

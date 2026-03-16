@@ -67,10 +67,10 @@ Our story begins at the very same place as the opening track of on the front por
 
 Bruce employs the same cinematic technique here that he used in “Thunder Road,” and there’s no doubt in my mind that it’s intentional. Entranced by the magic that is the Summer Evening, lured by visions of romance, our hero puts on his jacket and is out the door. Does the screen door slam behind him?
 
-*And the girls in their summer clothes
+**And the girls in their summer clothes**
 in the cool of the evening light*  
 
-*The girls in their summer clothes
+**The girls in their summer clothes**
 pass me by*  
 
 
@@ -177,7 +177,7 @@ March-May 2007
 September 24, 2007 (Asbury Park, NJ)
 February 7, 2014 (Perth, Australia)
 
-**Girls in Their Summer Clothes
+**Girls in Their Summer Clothes**
 Recorded:**   
 
 **Released:** *Magic* *Girls in Their Summer Clothes*   

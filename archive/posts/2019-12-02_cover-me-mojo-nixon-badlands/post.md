@@ -19,5 +19,3 @@ Turns out that while rehearsing for his album in the studio, his rehearsal sessi
 *Sock Ray Blue*[Badlands](http://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)
 
 [https://www.youtube.com/embed/u8GwyNweIog?feature=oembed](https://www.youtube.com/embed/u8GwyNweIog?feature=oembed)
-
- 

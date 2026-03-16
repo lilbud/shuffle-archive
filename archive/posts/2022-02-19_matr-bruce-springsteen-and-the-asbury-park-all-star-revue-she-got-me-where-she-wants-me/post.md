@@ -41,9 +41,7 @@ Here’s another chance to hear Steve sing “She Got Me Where She Wants Me,” 
 May 12, 1977 (Red Bank, NJ)
  May 13, 1977 (Red Bank, NJ)
 
-**She Got Me Where She Wants Me
+**She Got Me Where She Wants Me**
 First performed:**  
 
 **Last performed:**
-
- 

@@ -19,5 +19,3 @@ But Canadian singer-songwriter Northcote (a.k.a. Matthew Goud) gave “Radio Now
 Goud’s voice is often compared with Bruce’s, and “Radio Nowhere” fits him like a glove. His acoustic arrangement works perfectly, his lone guitar highlighting the isolation that resides at the heart of Bruce’s song but that is subsumed by the original’s uptempo rock arrangement.
 
 Goud’s vocals are no less fiery and passionate than Bruce’s electric original, however. Even in this stripped down cover, “Radio Nowhere” rocks.
-
- 

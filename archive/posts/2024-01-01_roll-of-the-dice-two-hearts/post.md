@@ -126,7 +126,7 @@ One more–this one solo, but remarkable for how heartfelt it is, and for how yo
  October 6, 1980 (Richfield, OH)
  September 3, 2023 (East Rutherford, NJ)
 
-**Two Hearts
+**Two Hearts**
 Recorded:**   
 
 **Released:** *The River (1980), Live in New York City (2001)*  

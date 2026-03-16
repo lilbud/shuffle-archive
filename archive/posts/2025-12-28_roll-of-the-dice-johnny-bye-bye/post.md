@@ -159,7 +159,7 @@ January 1983 (Tracks version), March 9, 1983 ( version)
  May 13, 1981 (Manchester, England)
  April 3, 1985 (Melbourne, Australia)
 
-**Johnny Bye-Bye
+**Johnny Bye-Bye**
 Recorded:**  
 *L.A. Garage Sessions ’83*  
 **Released:** *I’m on Fire**Tracks**L.A. Garage Sessions ’83*   

@@ -173,7 +173,7 @@ January 3, 1982
  July 1, 1984 (St. Paul, MN)
  July 11, 2016 (Paris, France)
 
-**Reason to Believe
+**Reason to Believe**
 Recorded:**  
 
 **Released:***Nebraska*   

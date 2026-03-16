@@ -103,7 +103,7 @@ October 27, 1977
 
 **Preacher’s Daughter** **Recorded:**   
 
-**Never Released
+**Never Released**
 Never**  
 **Performed**
 

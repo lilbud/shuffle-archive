@@ -129,7 +129,7 @@ Early 2002
  September 30, 2002 (St. Paul, MN)
  October 28, 2005 (Boston, MA)
 
-**Nothing Man
+**Nothing Man**
 Recorded:**  
 
 **Released:** *The Rising*   

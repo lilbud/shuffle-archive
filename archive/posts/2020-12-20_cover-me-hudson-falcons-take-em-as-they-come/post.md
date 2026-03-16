@@ -19,5 +19,3 @@ This isn’t the only time the Falcons have covered Bruce (check out of ““)�
 [their thrash cover](https://www.youtube.com/watch?v=SMXKBzUN6Tc)[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)
 
 It’s a great rendition of a vastly underappreciated song.
-
- 

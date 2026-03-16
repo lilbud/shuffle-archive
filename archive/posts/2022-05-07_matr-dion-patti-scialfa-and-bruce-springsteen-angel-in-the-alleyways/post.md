@@ -28,7 +28,7 @@ In the album’s liner notes, Dion wrote: “I gave Patti a simple, raw demo of 
 
 (2021)
 
-**Angel in the Alleyways
+**Angel in the Alleyways**
 Released:**  
 *Stomping Ground*  
 **Never performed**

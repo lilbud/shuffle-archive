@@ -27,5 +27,3 @@ Bruce and Al may be besties, but that doesn’t mean they aren’t also rivals. 
 *Human Touch* *Lucky Town*<https://estreetshuffle.com/wp-content/uploads/2022/05/206-Glory-Days1.mp3>
 
 It’s been years since Bruce and Al have been seen in public together, but a friendship like theirs was built to stand the test of time. Both artists are still remarkably prolific and relevant, and both are still active stage performers. It’s only a matter of time before we’re treated to their next collaboration.
-
- 

@@ -46,7 +46,7 @@ Had Bruce not subtitled his poem, we might have dismissed the entire work as ove
 
 It's pretty darn clever writing for an 18-year-old who claims to have been a poor student.
 
-**Upon This Day (Eurydice)
+**Upon This Day (Eurydice)**
 Never recorded**
 **Never released**
 **Never performed** (although possible in solo performances in 1968)

@@ -26,7 +26,7 @@ And lyrically, a late verse sounds similar to “Wings for Wheels,” which was 
 
 
 
-*Oh baby, I can’t lay the stars at your feet,
+**Oh baby, I can’t lay the stars at your feet,**
 Oh but I think we could take it all , just you and me
 Oh come on and see there’s a lot of room for you baby in this front seat.*  
 
@@ -34,7 +34,7 @@ Oh come on and see there’s a lot of room for you baby in this front seat.*
 
 
 
-*Maybe I can’t lay the stars at your feet,
+**Maybe I can’t lay the stars at your feet,**
 But I got this old car and she’s pretty tough to beat*  
 
 *There’s plenty of room in my front seat*  
@@ -60,7 +60,7 @@ They sound more like the lovers in “” or “” than in “Thunder Road.” 
 
 The chorus pairs a soaring melody with gorgeous but grounded imagery:
 
-*Tonight we’re lovers in the cold, running past the graveyards in the snow
+**Tonight we’re lovers in the cold, running past the graveyards in the snow**
 Walking in the street with nowhere to go.*  
 
 
@@ -72,7 +72,7 @@ August-September 1974
 
 
 
-**Walking in the Street
+**Walking in the Street**
 Recorded:**  
 
 **Never released**  

@@ -27,7 +27,7 @@ The original song, of course, was one of The Beatles’ rare singles with Ringo 
 September 30, 1967 (Freehold, NJ)
  August 11, 1989 (Holmdel, NJ)
 
-**With a Little Help From My Friends
+**With a Little Help From My Friends**
 First performed:**  
 
 **Last performed:**

@@ -27,7 +27,7 @@ For more background on and Soozie herself, take a listen to this rare radio inte
 May 2002
 (2003)
 
-**White Lines
+**White Lines**
 Recorded:**  
 
 **Released:** *White Lines*   

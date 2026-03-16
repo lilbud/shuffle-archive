@@ -139,7 +139,7 @@ Still, “Fire” remains a fan favorite for those able to look past its content
  May 23, 1978 (Buffalo, NY)
  September 4, 2021 (New York City, NY)
 
-**Fire
+**Fire**
 Recorded:**  
 
 **Released:***The Promise*   

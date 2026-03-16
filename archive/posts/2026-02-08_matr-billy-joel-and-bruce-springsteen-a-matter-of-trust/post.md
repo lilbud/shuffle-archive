@@ -23,7 +23,7 @@ Still, despite four stage-sharing occasions since, that 2008 performance remains
 October 16, 2008 (New York City, NY)
  October 16, 2008 (New York City, NY)
 
-**A Matter of Trust
+**A Matter of Trust**
 First performed:**  
 
 **Last performed:**

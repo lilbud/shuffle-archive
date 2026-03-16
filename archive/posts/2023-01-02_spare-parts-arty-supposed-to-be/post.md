@@ -28,7 +28,7 @@ Still, Arty insisted on (and succeeded at) getting Bruce’s blessing to use his
 
 2017
 
-**Supposed to Be
+**Supposed to Be**
 Released:**   
 
 **Never performed**

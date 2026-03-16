@@ -90,7 +90,7 @@ Bruce has yet to perform “City of Night” in concert (although he soundchecke
 October 14, 1977
  (2010)
 
-**City of Night
+**City of Night**
 Recorded:**  
 
 **Released:***The Promise*   

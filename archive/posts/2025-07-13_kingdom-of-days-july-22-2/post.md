@@ -109,5 +109,3 @@ Director Baillie Walsh and producer Ridley Scott release , a documentary about t
 [https://www.youtube.com/embed/HVQUeCi9V0s?feature=oembed](https://www.youtube.com/embed/HVQUeCi9V0s?feature=oembed)
 
 [https://www.youtube.com/embed/7j3cXGr1Ono?feature=oembed](https://www.youtube.com/embed/7j3cXGr1Ono?feature=oembed)
-
- 

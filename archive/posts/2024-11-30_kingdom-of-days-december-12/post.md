@@ -142,4 +142,4 @@ Still in the midst of the pandemic, Bruce and most of the E Street Band (minus G
 
 Bruce’s scheduled show in San Francisco (already postponed once this year) is moved again to the following March due to his peptic ulcer disease.
 
-**2023:** 
+**2023:**

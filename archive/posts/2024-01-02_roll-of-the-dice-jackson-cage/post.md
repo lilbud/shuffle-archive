@@ -191,7 +191,7 @@ February-March, 1980
  October 3, 1980 (Ann Arbor, MI)
  July 28, 1980 (Oslo, Norway)
 
-**Jackson Cage
+**Jackson Cage**
 Recorded:**   
 
 **Released:***The River*  

@@ -111,5 +111,3 @@ Bruce phones in to E Street Radio and talks about the upcoming return of .
 On their last night before resuming their European tour, Bruce and Stevie catch Peter Gabriel on stage in Cologne.
 
 **2023:**
-
- 

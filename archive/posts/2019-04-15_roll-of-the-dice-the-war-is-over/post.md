@@ -70,7 +70,7 @@ September 20, 1969 (Richmond, VA)
  August 14, 1970 (Richmond, VA)
 
 **The War Is Over**  
-**Never recorded
+**Never recorded**
 Never released**  
 
 **First performed:**  

@@ -39,9 +39,7 @@ Ronnie and Bruce would perform “Be My Baby” together four more times the fol
 November 4, 1976 (New York City, NY)
  January 18, 1989 (New York City, NY)
 
-**Be My Baby
+**Be My Baby**
 First performed:**  
 
 **Last performed:**
-
- 

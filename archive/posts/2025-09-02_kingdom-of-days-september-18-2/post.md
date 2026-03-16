@@ -107,5 +107,3 @@ airs a profile of Bruce as part of the promotional push for his upcoming autobio
 [https://www.youtube.com/embed/PHXN2FFEuJU?feature=oembed](https://www.youtube.com/embed/PHXN2FFEuJU?feature=oembed)
 
 [https://www.youtube.com/embed/TR1L8NYavYM?feature=oembed](https://www.youtube.com/embed/TR1L8NYavYM?feature=oembed)
-
- 

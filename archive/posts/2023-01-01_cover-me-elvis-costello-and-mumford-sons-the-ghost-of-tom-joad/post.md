@@ -17,5 +17,3 @@ The musicians chose Bruce’s “,” with a bit of Woody Guthrie’s “Do Re M
 [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
 
 Mumford takes lead vocals on Bruce’s song; Elvis takes point on Guthrie’s. And when they resume “Tom Joad” and the harmonies kick in, it’s magic.
-
- 

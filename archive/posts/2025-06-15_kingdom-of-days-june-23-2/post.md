@@ -99,5 +99,3 @@ Bruce tour premieres “” as an encore during his Magic Tour stop in Antwerp.
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
-
- 

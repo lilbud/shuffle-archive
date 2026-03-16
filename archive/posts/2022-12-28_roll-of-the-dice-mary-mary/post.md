@@ -40,7 +40,7 @@ Like the narrator, we’re destined to never know where Mary’s gone to, but we
 
 2007 (2014)
 
-**Mary Mary
+**Mary Mary**
 Recorded:**   
  **Released:**   
 *American Beauty*  

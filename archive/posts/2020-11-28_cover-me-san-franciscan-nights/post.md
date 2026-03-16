@@ -17,7 +17,7 @@ Bruce and the band gave a pretty faithful interpretation–even copying the “D
 September 30, 1967 (Freehold, NJ)
  September 30, 1967 (Freehold, NJ)
 
-**San Franciscan Nights
+**San Franciscan Nights**
 First performed:**  
 
 **Last performed:**

@@ -65,5 +65,3 @@ Bruce drops by the Transparent Clinch Gallery in Asbury Park, where he poses for
 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/01/2022-01-21.jpg?resize=758%2C569&amp;ssl=1)
-
- 

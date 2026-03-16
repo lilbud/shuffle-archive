@@ -36,6 +36,6 @@ You can vote [here](https://vote.rockhall.com/) and vote often–once a day thro
 
 Let's do this.
 
-**River Deep-Mountain High
+**River Deep-Mountain High**
 **First performed:** January 18, 1989 (New York City, NY)
 **Last performed:** January 18, 1989 (New York City, NY)

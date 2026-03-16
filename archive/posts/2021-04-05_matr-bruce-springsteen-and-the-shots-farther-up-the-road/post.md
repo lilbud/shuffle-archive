@@ -37,7 +37,7 @@ Still, this remains the only time to date that Bruce has covered this early Texa
 September 4, 1977 (Asbury Park, NJ)
  September 4, 1977 (Asbury Park, NJ)
 
-**Farther Up the Road
+**Farther Up the Road**
 First performed:**  
 
 **Last performed:**

@@ -30,6 +30,6 @@ Bruce joined John for four songs that night, one of which was a cover of the Jim
 
 [Watch Video Highlight](https://videopress.com/embed/2fWEho97)
 
-**Bright Lights, Big City
+**Bright Lights, Big City**
 **First performed:** September 1, 1971 (Long Branch, NJ)
 **Last performed:** June 1, 1984 (Asbury Park, NJ)

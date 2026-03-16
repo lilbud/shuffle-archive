@@ -21,5 +21,3 @@ But it’s a great song, and Mojo Nixon and Skid Roper did a terrific cover of i
 Check it out:
 
 [https://www.youtube.com/embed/3gFZQTaaAB8?feature=oembed](https://www.youtube.com/embed/3gFZQTaaAB8?feature=oembed)
-
- 

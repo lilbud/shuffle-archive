@@ -129,7 +129,7 @@ We’ll take a listen to that one in a few days.
 April 24, 1983
 (2025)
 
-**Richfield Whistle
+**Richfield Whistle**
 Recorded:**  
 
 **Released:** *L.A. Garage Sessions ’83*   

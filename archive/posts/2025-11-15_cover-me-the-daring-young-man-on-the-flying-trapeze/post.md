@@ -29,7 +29,7 @@ Bruce went on to perform “The Daring Young Man on the Flying Trapeze” once m
 April 26, 2006 (Asbury Park, NJ)
  November 12, 2006 (London, England)
 
-**The Daring Young Man on the Flying Trapeze
+**The Daring Young Man on the Flying Trapeze**
 First performed:**  
 
 **Last performed:**

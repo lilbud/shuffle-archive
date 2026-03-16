@@ -32,5 +32,3 @@ August 1, 1976 (Red Bank, NJ)
 **She’s Sure the Girl I Love (orig. He’s Sure the Boy I Love)**  
 **First performed:**  
 **Last performed:**
-
- 

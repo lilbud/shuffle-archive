@@ -24,7 +24,7 @@ Reports first surfaced of Bruce’s separation from Julianne Phillips, his first
 
 Today, we know their relationship was on the rocks long before. While Bruce has never explicitly addressed when he and Patti first hooked up, he’s dropped several breadcrumbs over the years. In his 2016 autobiography, Bruce wrote:
 
-*It was a September night, the moon a slim fingernail in the western sky over the silhouetted
+**It was a September night, the moon a slim fingernail in the western sky over the silhouetted**
 wood that bordered the backyard…. After seventeen years of sporadically bumping into each other, then two of working side by side, somewhat flirtatiously, there came a moment when I looked at Patti and saw something different, something new, something I’d missed and hadn’t experienced before…. So, it started.*  
 
 
@@ -152,7 +152,7 @@ June-July, 1987
  February 25, 1988 (Worcester, MA)
  June 25, 2016 (Gothenburg, Sweden)
 
-**Tunnel of Love
+**Tunnel of Love**
 Recorded:**  
 
 **Released:** *Tunnel of Love* *The Essential Bruce Springsteen*  

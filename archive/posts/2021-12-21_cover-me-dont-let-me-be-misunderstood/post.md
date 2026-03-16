@@ -52,9 +52,7 @@ The only wonder is why he’s never performed it at a proper concert.
 March 23, 1988 (Atlanta, GA) – soundcheck only
 March 23, 1988 (Atlanta, GA) – soundcheck only
 
-**Don’t Let Me Be Misunderstood
+**Don’t Let Me Be Misunderstood**
 First Performed:**   
 
 **Last Performed:**
-
- 

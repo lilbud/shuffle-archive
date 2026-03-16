@@ -23,5 +23,3 @@ As for the show itself, it bore some strong resemblances to the Seattle show jus
 “” opened the show, and two-thirds of the way through: the E Street Band premiere (and to this day one of only six ESB performances) of a glorious outtake from , “” One of the best surprises I’ve ever had at a show, and even in this grainy video, you can still feel the power of that performance.[Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)*Born in the U.S.A.*[None But the Brave.](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
 [https://www.youtube.com/embed/HISYE5UmpVg?feature=oembed](https://www.youtube.com/embed/HISYE5UmpVg?feature=oembed)
-
- 

@@ -43,7 +43,7 @@ Sheryl and Bruce traded lead vocals in their intimate acoustic performance, imme
 November 4, 2019 (New York City, NY)
  November 4, 2019 (New York City, NY)
 
-**Redemption Day
+**Redemption Day**
 First performed:**  
 
 **Last performed:**

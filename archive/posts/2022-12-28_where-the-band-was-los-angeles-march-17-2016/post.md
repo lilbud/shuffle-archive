@@ -37,7 +37,3 @@ Both delighted me: Bruce may have played them for their Irish melodies (it was S
 [https://www.youtube.com/embed/62vcj4oDbxs?feature=oembed](https://www.youtube.com/embed/62vcj4oDbxs?feature=oembed)
 
 What would Night Three bring?
-
- 
-
- 

@@ -56,7 +56,7 @@ Bruce has been known to feature one-time-only performances in his Halloween show
 
 October 31, 2024 (Montreal, QC)October 31, 2024 (Montreal, QC)
 
-**Ghostbusters
+**Ghostbusters**
 First performed:**   
  **Last performed:**   
 

@@ -95,7 +95,7 @@ The last line of the song implies that our hero has finally joined the brotherho
 September 14 – October 10, 1983
  (1998)
 
-**Brothers Under the Bridges
+**Brothers Under the Bridges**
 Recorded:**  
 
 **Released:***Tracks*  

@@ -71,7 +71,7 @@ The irony of “You’ve Got It” is that it ain’t got it.
  July 24, 2012 (Bergen, Norway)
  July 24, 2012 (Bergen, Norway)
 
-**You’ve Got It
+**You’ve Got It**
 Recorded:**  
 
 **Released:** *Wrecking Ball*   

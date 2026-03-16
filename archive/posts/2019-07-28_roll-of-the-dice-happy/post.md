@@ -48,7 +48,7 @@ The ethereal melody of "Happy" hints that the darkness may only temporarily be a
 
 *In a world of doubt and fear*
 *I wake at night and reach to find you near*
-*Lost in a dream, you caught me as I fell
+**Lost in a dream, you caught me as I fell**
 Now I want more than just a dream to tell*
 
 *Born in this world, darling, with few days*

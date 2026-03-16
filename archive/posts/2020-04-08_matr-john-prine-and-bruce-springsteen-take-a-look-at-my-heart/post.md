@@ -27,7 +27,7 @@ It’s clever and angry and funny and vulnerable and a great piece of songwritin
 
 (1991)
 
-**Take a Look at My Heart
+**Take a Look at My Heart**
 Released:**  
 *The Missing Years*  
 **Never performed**

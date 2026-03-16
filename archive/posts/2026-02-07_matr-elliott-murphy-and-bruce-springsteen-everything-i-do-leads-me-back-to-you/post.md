@@ -40,7 +40,7 @@ That Murphy is clever like a fox. Put a verse like that in front of Bruce and od
 mid-1995
 (1995)
 
-**Everything I Do (Leads Me Back to You)
+**Everything I Do (Leads Me Back to You)**
 Recorded:**  
 
 **Released:** *Selling the Gold*   

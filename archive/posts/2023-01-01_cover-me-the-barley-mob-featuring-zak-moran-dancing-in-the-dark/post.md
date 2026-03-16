@@ -13,5 +13,3 @@ The Barley Mob are a six-member rock band from Ireland, and if their name strike
 [https://www.youtube.com/embed/DqMzuSz_7Lk?feature=oembed](https://www.youtube.com/embed/DqMzuSz_7Lk?feature=oembed)
 
 Oh, and that’s Zak Moran from The Druids (another great Irish band) on lead vocals above–and if he nailed his guest appearance, that might be because he’s had some previous practice with Bruce’s greatest hit–he’s been covering it since at least 2016.
-
- 

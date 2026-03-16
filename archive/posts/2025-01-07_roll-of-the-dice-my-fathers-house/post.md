@@ -138,7 +138,7 @@ May 25, 1982
  July 26, 1984 (Toronto, ON)
  September 4, 2021 (New York City, NY)
 
-**My Father’s House
+**My Father’s House**
 Recorded:**  
 
 **Released:***Nebraska* *Chapter and Verse*  
@@ -148,5 +148,3 @@ Recorded:**
 Looking for your favorite Bruce song? Check our full index . New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
-
- 

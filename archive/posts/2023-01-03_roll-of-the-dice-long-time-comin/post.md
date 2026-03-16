@@ -194,7 +194,7 @@ May we not fuck it up this time.
  October 16, 1996 (Denver, CO)
  December 5, 2018 (New York City, NY)
 
-**Long Time Comin’
+**Long Time Comin’**
 Recorded:**   
 
 **Released:** *Devils & Dust* *The Essential Bruce Springsteen**Chapter and Verse*  

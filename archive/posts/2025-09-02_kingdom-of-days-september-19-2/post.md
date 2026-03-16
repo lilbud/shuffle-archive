@@ -166,4 +166,4 @@ Bruce attends (and reportedly sings at) the wedding of actress Allison Willams a
 
 Bruce’s scheduled show at MVP Arena in Albany–already postponed once from its original date six months ago–is rescheduled yet again to the following April due to Bruce’s peptic ulcer disease.
 
-**2023:** 
+**2023:**

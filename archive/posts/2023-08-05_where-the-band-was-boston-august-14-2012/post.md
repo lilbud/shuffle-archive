@@ -117,5 +117,3 @@ Bruce wasn’t quite done yet, though–he gave us a final “Twist and Shout”
 I remember walking out of the park with mixed feelings about the night. I was exhausted from travelling across the country on a red-eye the night before, and I seriously considered trading in my Night Two pit ticket for a set in the stands instead, thinking that maybe Night Two wouldn’t turn out to be that exciting either.
 
 Oh, me of little faith.
-
- 

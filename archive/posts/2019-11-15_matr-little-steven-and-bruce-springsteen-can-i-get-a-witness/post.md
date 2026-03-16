@@ -33,9 +33,7 @@ That show closing-performance was a genuine one-off (for Bruce, anyway–Steve h
 (Asbury Park, NJ)
  (Red Bank, NJ)
 
-**Can I Get a Witness
+**Can I Get a Witness**
 First performed: April 29, 2007**  
 
 **Last performed: May 27, 2017**
-
- 

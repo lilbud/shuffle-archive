@@ -63,7 +63,7 @@ Historical significance aside, the coolest thing about that video is just how gr
 
 Anyone who feared Bruce's rock and roll days were behind him wasn't at John Fogerty's birthday party that night.
 
-**I'm Your Detail Man
+**I'm Your Detail Man**
 **First performed:** May 28, 1995 (Beverly Hills, CA)
 **Last performed:** May 28, 1995 (Beverly Hills, CA)
 

@@ -173,7 +173,7 @@ Late 1990s
  February 19, 2003 (Somerville, MA)
  May 22, 2014 (Pittsburgh, PA)
 
-**The Wall
+**The Wall**
 Recorded:**  
 
 **Released:** *High Hopes*  

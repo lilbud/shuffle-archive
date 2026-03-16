@@ -71,7 +71,7 @@ Check out the lyrics:
 *I got a plan but i**t’s made for two*  
 *So I need a little girl like you*  
 *Yeah hey, I need a little girl like you*  
-*Oh honey I need a little girl like you
+**Oh honey I need a little girl like you**
 Oh baby I need a little girl like you*   
 
 It’s not just the repeated “little girl” phrasing that’s problematic. It’s the context of a song about a guy who seems more interested in having someone you rather than you in particular. Or more pointedly, he seems more interested in companionship than in a companion.

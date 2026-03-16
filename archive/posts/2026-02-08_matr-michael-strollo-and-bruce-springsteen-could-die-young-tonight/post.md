@@ -27,7 +27,7 @@ Here’s their poignant, one-time-only performance of “Could Die Young Tonight
 February 25, 2012 (Asbury Park, NJ)
  February 25, 2012 (Asbury Park, NJ)
 
-**Could Die Young Tonight
+**Could Die Young Tonight**
 First performed:**  
 
 **Last performed:**

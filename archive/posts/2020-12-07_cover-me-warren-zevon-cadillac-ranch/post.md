@@ -19,5 +19,3 @@ Case in point: Warren Zevon’s 1982 performance of “” at the Capitol Theate
 But dang it if this isn’t a hoot to watch anyway. Zevon and his band have so much fun with it, and with a song like “Cadillac Ranch,” that’s pretty much the key. Check it out below at the 45:15 mark.
 
 [https://www.youtube.com/embed/B3JmtMCJ0ok?start=2712&amp;feature=oembed](https://www.youtube.com/embed/B3JmtMCJ0ok?start=2712&amp;feature=oembed)
-
- 

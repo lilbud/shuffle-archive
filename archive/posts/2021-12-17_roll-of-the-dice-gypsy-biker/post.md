@@ -96,7 +96,7 @@ March-May 2007
  September 27, 2007 (Asbury Park, NJ)
  May 5, 2009 (Charlottesville, VA)
 
-**Gypsy Biker
+**Gypsy Biker**
 Recorded:**  
 
 **Released:** *Magic*   

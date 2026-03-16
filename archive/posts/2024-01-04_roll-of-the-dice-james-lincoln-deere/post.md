@@ -155,7 +155,7 @@ We’ll listen to that one later this week.
 
 
 
-**James Lincoln Deere
+**James Lincoln Deere**
 Recorded**  
 
 **Never released**  

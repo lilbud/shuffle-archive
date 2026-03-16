@@ -29,5 +29,3 @@ I mentioned that Frost and Springsteen are neighbors, but Gary’s Springsteen c
 
 
 [https://open.spotify.com/embed/album/3G4pE4QvuwPOocYlaRko4N?fbclid=IwAR0aKemNAAEOWQHYc_-nkDvWUs3b-629NNHRNTMg45yf7OVvstrOvE8vkx8&amp;utm_source=oembed](https://open.spotify.com/embed/album/3G4pE4QvuwPOocYlaRko4N?fbclid=IwAR0aKemNAAEOWQHYc_-nkDvWUs3b-629NNHRNTMg45yf7OVvstrOvE8vkx8&amp;utm_source=oembed)
-
- 

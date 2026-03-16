@@ -98,18 +98,15 @@ January 3, 1982
 
 
 
-**Losin’ Kind
+**Losin’ Kind**
 Recorded:**  
 
 **Never released**  
 **Never performed**
 
-*It’s possible Bruce borrowed the phrase for both “Losin’ Kind” and “” from the Johnny Cash bootleg “The Losing Kind,” which shares a similar dark humor. But I’m not a Cash scholar, so I’ll leave that to others to determine.
-
+**It’s possible Bruce borrowed the phrase for both “Losin’ Kind” and “” from the Johnny Cash bootleg “The Losing Kind,” which shares a similar dark humor. But I’m not a Cash scholar, so I’ll leave that to others to determine.**
 [Club Soul City](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/)
 
 Looking for your favorite Bruce song? Check our . New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
-
- 

@@ -60,7 +60,7 @@ Bonus: Here’s an alternate take–a bit faster with an alternate ending.
 
 March-April 1990 promo (1992) (select countries only)
 
-**30 Days Out
+**30 Days Out**
 Recorded:**   
  **Released:**   
 *Leap of Faith*  

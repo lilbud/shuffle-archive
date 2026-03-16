@@ -35,7 +35,7 @@ Bruce would perform with Win and Régine once more, five years down the road, bu
 October 14, 2007 (Ottawa, ON)
  October 14, 2007 (Ottawa, ON)
 
-**Keep the Car Running
+**Keep the Car Running**
 First performed:**  
 
 **Last performed:**

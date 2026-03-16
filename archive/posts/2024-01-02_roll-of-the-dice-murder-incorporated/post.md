@@ -150,7 +150,7 @@ May 3-4, 1982
  February 21, 1995 (New York City, NY)
  February 2, 2017 (Melbourne, Australia)
 
-**Murder Incorporated
+**Murder Incorporated**
 Recorded:**  
 
 **Released:** *Greatest Hits* *The Essential Bruce Springsteen*  

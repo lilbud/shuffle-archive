@@ -39,7 +39,7 @@ We’re still waiting for a proper concert cover and likely will continue to, bu
 March 4, 1988 (Chapel Hill, NC) (soundcheck only)
  March 23, 1988 (Atlanta, GA) (soundcheck only)
 
-**Tupelo Honey
+**Tupelo Honey**
 First performed:**  
 
 **Last performed:**

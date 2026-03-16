@@ -33,7 +33,7 @@ The chorus of “Plaisir d’Amour” translates to…
 
 …with verses like:
 
-*I gave up everything for the ungrateful Sylvia
+**I gave up everything for the ungrateful Sylvia**
 She left me for another lover*  
 
 
@@ -86,7 +86,7 @@ It’s been more than a decade since Bruce last played “Can’t Help Falling i
 April 18, 1981 (Paris, France)
  November 10, 2009 (Cleveland, OH)
 
-**Can’t Help Falling in Love
+**Can’t Help Falling in Love**
 First performed:**  
 
 **Last performed:**

@@ -19,4 +19,4 @@ September 30 ,1987 (Los Angeles, CA)
 
 **The Comedians**   
 **First performed:**   
-**Last performed:** 
+**Last performed:**

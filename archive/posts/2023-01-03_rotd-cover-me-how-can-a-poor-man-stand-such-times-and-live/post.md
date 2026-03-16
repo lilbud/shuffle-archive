@@ -95,7 +95,7 @@ The problem with writing a song so timely and topical, though, is that it quickl
  April 20, 2006 (Asbury Park, NJ)
  May 6, 2014 (Houston, TX)
 
-**How Can a Poor Man Stand Such Times and Live?
+**How Can a Poor Man Stand Such Times and Live?**
 Never recorded**  
 
 **Released (live):***We Shall Overcome: The Seeger Sessions (American Land Edition)*   

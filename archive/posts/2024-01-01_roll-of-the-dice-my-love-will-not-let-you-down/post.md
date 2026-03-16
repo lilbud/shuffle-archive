@@ -47,14 +47,14 @@ The narrator of “My Love Will Not Let You Down” lives during the day. He fee
 
 Both narrators make a plea for connection, but where “Dancing” guy is looking for a temporary physical fix…
 
-*Hey there, baby: I could use just a little help
+**Hey there, baby: I could use just a little help**
 You can’t start a fire without a spark
 This gun’s for hire, even if we’re just dancing in the dark.*  
 
 …”My Love” guy wants the real thing. He knows his love is out there somewhere (the song is sung to a love he searches for but never finds), and he’s determined to find her and prove himself:
 
 *Girl, all I want to say: I keep searching for you darling, searching every where I go*  
-*And when I find you there’s gonna be just one thing that you gotta know:
+**And when I find you there’s gonna be just one thing that you gotta know:**
 My love will not let you down.*  
 
 

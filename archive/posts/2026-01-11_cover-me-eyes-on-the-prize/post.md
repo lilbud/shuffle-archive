@@ -74,7 +74,7 @@ January 21, 2006
  April 20, 2006 (Asbury Park, NJ)
  November 21, 2006 (Belfast, Northern Ireland)
 
-**Eyes on the Prize
+**Eyes on the Prize**
 Recorded:**  
 
 **Released:***We Shall Overcome: The Seeger Sessions*  

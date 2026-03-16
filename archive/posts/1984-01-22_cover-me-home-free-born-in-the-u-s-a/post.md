@@ -1,0 +1,11 @@
+[https://www.youtube.com/embed/D-OkZBtgmS8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/D-OkZBtgmS8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+
+If you’re not familiar with Home Free, they’re an American a capella group that won Season 4 of *The Sing-Off* on NBC back in 2013. That feat led to a recording contract with Columbia Records, where they became label-mates with Bruce.
+
+A few weeks back, they released their latest album on their own label, *Land of the Free,* a patriotic collection of country and rock classics, capped off with Bruce’s 1984 protest hit. And I mean patriotic, not jingoistic. As the band pointed out when they debuted their video:
+
+“Springsteen once said of his song, ‘It did demand of you to hold two contradictory ideas in your mind at one time: that you could both be very critical of your nation and very prideful of your nation simultaneously.’ That’s a lot of what our album is about.”
+
+The band strikes that balance well, and the result is one of the most musically and visually creative adaptations of “Born in the U.S.A.” to date, just as anthemic as Bruce’s original and just as critical, too.
+
+© July 17, 2021

@@ -21,7 +21,7 @@ Did "Baby Don't Go" ultimately lead Bruce to "[Fade Away](https://estreetshuffle
 
 Early ancestor or not, "Baby Don't Go" is at least a fascinating inside look at the songwriting process that would shortly lead Bruce to some of his best River-era songs.
 
-**Baby Don't Go
+**Baby Don't Go**
 **Recorded:** March-April 1979 (demo)
 **Never released**
 **Never performed**

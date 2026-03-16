@@ -46,5 +46,3 @@ July 22, 1995 (Sea Bright, NJ)
 **Pumping Iron**  
 **First performed:**  
 **Last performed:**
-
- 

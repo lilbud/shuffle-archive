@@ -49,9 +49,7 @@ Bruce had never played “Ooby Dooby” before, and he hasn’t played it since.
 September 30, 1987 (Los Angeles, CA)
  September 30, 1987 (Los Angeles, CA)
 
-**Ooby Dooby
+**Ooby Dooby**
 First performed:**  
 
 **Last performed:**
-
- 

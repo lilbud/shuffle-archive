@@ -153,7 +153,7 @@ For me, at least, it was worth the wait.
 February 5, 1972 (Richmond, VA)
  April 1972 (Freehold, NJ)
 
-**Down to the Riverside
+**Down to the Riverside**
 Never recorded**  
 
 **Never released**  

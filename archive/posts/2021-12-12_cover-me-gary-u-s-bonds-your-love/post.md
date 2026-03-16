@@ -97,7 +97,7 @@ So “Your Love” remains on my chase list, and it’s probably destined to sta
  (by Bruce): July 2, 1989 (Long Branch, NJ)
  (by Bruce): July 2, 1989 (Long Branch, NJ)
 
-**Your Love
+**Your Love**
 Recorded:**  
 
 **Released:**  

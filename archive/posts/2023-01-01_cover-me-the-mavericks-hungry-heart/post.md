@@ -27,9 +27,3 @@ It’s not surprising to see the band lavishing love an attention on Bruce’s s
 Let’s hope their wish comes true and Bruce joins them on stage sometime soon. I’d love to see how Bruce would take to an arrangement like this one.
 
 [https://www.youtube.com/embed/x73lHHHlolY?feature=oembed](https://www.youtube.com/embed/x73lHHHlolY?feature=oembed)
-
- 
-
- 
-
- 

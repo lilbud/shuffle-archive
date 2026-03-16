@@ -33,9 +33,7 @@ That was a one-time-only performance–but just a couple months later, Bruce wou
 February 6, 2006 (Los Angeles, CA)
  February 6, 2006 (Los Angeles, CA)
 
-**Millworker
+**Millworker**
 First performed:**  
 
 **Last performed:**
-
- 

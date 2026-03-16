@@ -46,4 +46,4 @@ Too bad Bruce bluffs some of the vocals; this is one cover I’d love to have a 
 (but soundchecked in 1988)
 
 **Gulf Coast Highway**  
-**Never performed live** 
+**Never performed live**

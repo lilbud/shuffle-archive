@@ -31,5 +31,3 @@ Show-wise, the main set River performance was the highlight as usual for this ea
 [https://www.youtube.com/embed/YckePW-ReLw?feature=oembed](https://www.youtube.com/embed/YckePW-ReLw?feature=oembed)
 
 All in all, a great night–but only a taste of what was to come in the three-night L.A. stand and Seattle shows coming up shortly thereafter.
-
- 

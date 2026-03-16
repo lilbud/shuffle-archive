@@ -15,5 +15,3 @@ Here’s indie-EDM band Hot Chip’s take on Bruce’s greatest hit (with a litt
 (Warning: Don’t be surprised if this sneaks up on you around two minute mark–and if you’re not dancing by the three minute mark, you’re probably not playing it loud enough.)
 
 [https://www.youtube.com/embed/PyN_d28-sfw?feature=oembed](https://www.youtube.com/embed/PyN_d28-sfw?feature=oembed)
-
- 

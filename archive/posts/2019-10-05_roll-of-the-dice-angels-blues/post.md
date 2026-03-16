@@ -75,7 +75,7 @@ What accounts for the distance between the handwritten lyrics and the bootleg '7
 
 The rest is pre-history.
 
-**Angel's Blues
+**Angel's Blues**
 Never recorded**
 **First performed:** March 10, 1974 (Houston, TX)
 **Last performed:** March 10, 1974 (Houston, TX)

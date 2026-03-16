@@ -18,7 +18,7 @@ Unfortunately, Father Fred was a priest, not a sound engineer, and it shows in t
 
 But again: it's simply remarkable that this tape exists at all. Listen and marvel.
 
-**Mr. Jones
+**Mr. Jones**
 Never recorded or released**
 **First performed:** September 30, 1967 (Freehold, NJ)
 **Last performed:** September 30, 1967 (Freehold, NJ)

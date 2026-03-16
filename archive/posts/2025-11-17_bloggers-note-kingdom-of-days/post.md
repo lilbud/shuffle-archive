@@ -160,7 +160,7 @@ June 27, 1972
 February 1972
  February 1972
 
-**Visitation at Fort Horn
+**Visitation at Fort Horn**
 Recorded:**  
 
 **Never released**  

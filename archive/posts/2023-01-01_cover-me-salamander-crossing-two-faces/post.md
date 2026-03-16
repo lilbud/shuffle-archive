@@ -13,5 +13,3 @@ I’m a sucker for obscure Bruce covers and unusual arrangements; Salamander Cro
 The band isn’t around anymore, but their career retrospective album (which includes “Two Faces”) is still in print.
 
 [https://www.youtube.com/embed/A0YjFdOuSQ4?feature=oembed](https://www.youtube.com/embed/A0YjFdOuSQ4?feature=oembed)
-
- 

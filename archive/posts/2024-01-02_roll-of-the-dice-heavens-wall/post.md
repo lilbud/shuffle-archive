@@ -89,7 +89,7 @@ But “Heaven’s Wall” is a fascinating song that explores dominant themes in
  January 14, 2014 (New York City, NY)
  April 26, 2014 (Atlanta, GA)
 
-**Heaven’s Wall
+**Heaven’s Wall**
 Recorded:**  
 
 **Released:** *High Hopes*   

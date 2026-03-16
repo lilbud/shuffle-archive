@@ -46,6 +46,6 @@ It was a fitting way for the E Street Band to pay tribute to their fallen friend
 
 And after the song ended? They went straight into "Rosalita (Come Out Tonight)." Life goes on.
 
-**I'll Fly Away
+**I'll Fly Away**
 **First performed:** April 22, 2008 (Tampa, FL)
 **Last performed:** April 22, 2008 (Tampa, FL)

@@ -120,7 +120,7 @@ There are several great professionally shot live performances to choose from, bu
  March 2, 2012 (New York City, NY)
  July 13, 2017 (Copenhagen, Denmark)
 
-**Death to My Hometown
+**Death to My Hometown**
 Recorded:**  
 
 **Released:** *Wrecking Ball*  

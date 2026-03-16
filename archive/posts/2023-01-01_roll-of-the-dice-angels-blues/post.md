@@ -100,7 +100,7 @@ The rest is pre-history.
 March 10, 1974 (Houston, TX)
  March 10, 1974 (Houston, TX)
 
-**Angel’s Blues
+**Angel’s Blues**
 Never recorded**  
 
 **First performed:**  

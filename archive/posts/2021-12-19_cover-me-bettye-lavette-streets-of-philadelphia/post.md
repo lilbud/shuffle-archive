@@ -29,5 +29,3 @@ The live video is the more powerful of the two, but the studio version benefits 
 I honestly don’t know which version I prefer, but both mesmerize me.
 
 These are performances that will stick with you long after you first listen.
-
- 

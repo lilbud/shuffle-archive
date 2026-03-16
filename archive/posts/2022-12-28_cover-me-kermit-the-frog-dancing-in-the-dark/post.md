@@ -11,5 +11,3 @@ In honor of the anniversary of the release of , here’s one of my favorite homa
 [Bruce’s most well-known video](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)*Muppets Tonight*
 
 [https://www.youtube.com/embed/8mNyZVbSv5g?feature=oembed](https://www.youtube.com/embed/8mNyZVbSv5g?feature=oembed)
-
- 

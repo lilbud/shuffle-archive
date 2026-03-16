@@ -109,5 +109,3 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 Bruce’s scheduled show in Inglewood is postponed to the following April due to his peptic ulcer disease.
 
 **2023:**
-
- 

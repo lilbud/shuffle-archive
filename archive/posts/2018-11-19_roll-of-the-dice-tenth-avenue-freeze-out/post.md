@@ -17,7 +17,7 @@ But at its origin, it was a cocky, almost braggadocious strut. It entered the sc
 Those first twenty-five seconds are some serious self-aggrandizement–and Bruce knows it, because he brings himself and us back down to earth with some serious self-bathos:
 
 *Teardrops on the city*
-*Bad Scooter searching for his groove
+**Bad Scooter searching for his groove**
 Seem like the whole world walking pretty*
 *And you can't find the room to move*
 

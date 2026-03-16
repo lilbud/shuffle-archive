@@ -129,7 +129,7 @@ On the 2005 tour, however, Bruce took a crack at it, arranging it for the autoha
  November 30, 1995 (Berkely, CA)
  November 19, 2005 (Hollywood, FL)
 
-**The New Timer
+**The New Timer**
 Recorded: March-August, 1995
 Released:**   
 

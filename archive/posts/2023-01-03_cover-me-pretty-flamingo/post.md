@@ -61,9 +61,7 @@ But what if they did?
 September 13, 1975 (Houston, TX)
  August 30, 2016 (East Rutherford, NJ)
 
-**Pretty Flamingo
+**Pretty Flamingo**
 First performed:**  
 
 **Last performed:**
-
- 

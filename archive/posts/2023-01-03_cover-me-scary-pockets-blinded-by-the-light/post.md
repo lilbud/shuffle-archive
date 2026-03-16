@@ -27,5 +27,3 @@ The group tips their hat to Bruce for the original, but it’s clear they take t
 Scary Pockets is headed out on tour across the U.S. and Canada next month, and with at least three Springsteen songs in their repertoire you might hear a familiar song or two if you catch them in person. Check out their tour schedule .
 
 [here](https://www.scarypocketsfunk.com/)
-
- 

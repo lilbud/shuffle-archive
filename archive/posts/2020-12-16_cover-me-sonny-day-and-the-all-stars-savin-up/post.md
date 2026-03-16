@@ -25,5 +25,3 @@ Day covered the song in the studio with the All Stars, a group of accomplished A
 [https://www.youtube.com/embed/8ofLI1rqrWY?feature=oembed](https://www.youtube.com/embed/8ofLI1rqrWY?feature=oembed)
 
 Yes, it’s about as eighties as you can get, but it’s a fantastic performance that’s so true to the Springsteen sound that I’d nominate Day’s version as the definitive recording of the song.
-
- 

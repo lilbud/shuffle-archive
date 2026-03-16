@@ -35,9 +35,7 @@ Watch more great performances from .
 September 30, 1987 (Los Angeles, CA)
  September 30, 1987 (Los Angeles, CA)
 
-**Blue Bayou
+**Blue Bayou**
 First performed:**  
 
 **Last performed:**
-
- 

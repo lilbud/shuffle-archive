@@ -41,9 +41,7 @@ But thankfully we have that 1967 recording of an aspiring rock star full of spit
 September 16, 1967 (Freehold, NJ)
  November 23, 1971 (Linden, NJ)
 
-**Jeff’s Boogie
+**Jeff’s Boogie**
 First performed:**  
 
 **Last performed:**
-
- 

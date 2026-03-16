@@ -149,7 +149,7 @@ une 27, 1972
  May 2, 1972 (New York City, NY)
  June 24, 2025 (San Sebastián, Spain)
 
-**Growin’ Up
+**Growin’ Up**
 Recorded: J**  
 
 **Released:** *Greetings from Asbury Park, N.J.* *The Essential Bruce Springsteen* *Chapter and Verse*   

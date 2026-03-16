@@ -23,5 +23,3 @@ The song peaked at #49 on the Billboard country chart and has been a concert fav
 *Live in Austin.*
 
 [https://www.youtube.com/embed/EemYYNQDalU?feature=oembed](https://www.youtube.com/embed/EemYYNQDalU?feature=oembed)
-
- 

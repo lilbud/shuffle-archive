@@ -24,7 +24,7 @@ Jersey Artists for Mankind remained active through the remainder of the decade, 
 
 [Watch on Youtube: JERSEY ARTISTS FOR MANKIND - We've got the love](https://www.youtube.com/watch?v=BjHyHfCrBPI)
 
-**We've Got the Power
+**We've Got the Power**
 **Recorded:** December 1985-February 1986
 **Released:** *We've Got the Power* (single, 1986)
 **Never performed live**

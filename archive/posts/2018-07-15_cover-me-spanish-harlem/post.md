@@ -18,6 +18,6 @@ The original is beautiful as well–one of many Ben E. King songs Bruce would co
 
 October 18, 1974 (Passaic, NJ)November 1, 1974 (Philadelphia, PA)
 
-**Spanish Harlem
+**Spanish Harlem**
 First performed:**   
- **Last performed:**   
+ **Last performed:**

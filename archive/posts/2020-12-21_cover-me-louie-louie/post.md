@@ -39,9 +39,7 @@ Luckily, we’ve got the one performance where Bruce absolutely nailed the balan
 September 9, 1978 (South Bend, IN)
  April 19, 2014 (Charlotte, NC)
 
-**Louie Louie
+**Louie Louie**
 First performed:**  
 
 **Last performed:**
-
- 

@@ -43,10 +43,8 @@ That track has seen the light of day! Take a listen to this terrific demo (that 
 July 1994
 (1995)
 
-**Only Lovers Left Alive
+**Only Lovers Left Alive**
 Recorded:**  
 
 **Released:** *American Babylon*   
 **Never performed**
-
- 

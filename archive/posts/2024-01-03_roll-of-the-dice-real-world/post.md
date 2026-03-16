@@ -150,7 +150,7 @@ December 1989 – January 1990
  November 16, 1990 (Los Angeles, CA)
  July 18, 2013 (Cork, Ireland)
 
-**Real World
+**Real World**
 Recorded:**  
 
 **Released:** *Human Touch*  

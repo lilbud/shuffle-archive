@@ -129,5 +129,3 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 **2018:** *Springsteen on Broadway* *Springsteen on Broadway*[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)
 
 [https://www.youtube.com/embed/oPPeJgJAXqk?feature=oembed](https://www.youtube.com/embed/oPPeJgJAXqk?feature=oembed)
-
- 

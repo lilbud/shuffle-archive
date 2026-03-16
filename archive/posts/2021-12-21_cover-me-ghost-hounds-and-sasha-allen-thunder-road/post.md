@@ -39,7 +39,3 @@ Here’s a behind-the-scenes look at the band’s recording session for “Thund
 **Bonus:**
 
 [https://www.youtube.com/embed/16vJ9m8Z2lU?feature=oembed](https://www.youtube.com/embed/16vJ9m8Z2lU?feature=oembed)
-
- 
-
- 

@@ -37,9 +37,7 @@ While Tom and Bruce had made joint appearances before as backing vocalists at al
 March 1, 1990 (Inglewood, CA)
  March 1, 1990 (Inglewood, CA)
 
-**I’m Crying
+**I’m Crying**
 First performed:**  
 
 **Last performed:**
-
- 

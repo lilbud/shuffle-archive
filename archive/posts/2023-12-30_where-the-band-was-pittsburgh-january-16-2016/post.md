@@ -49,5 +49,3 @@ Altogether, this show gave me nine(!) personal premieres–not bad for a retro-t
 For a tour that originally seemed like a brief lark, it would evolve into a career summation that would include some of his longest-ever shows.
 
 But that was further on up the road.
-
- 

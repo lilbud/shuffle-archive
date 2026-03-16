@@ -68,7 +68,7 @@ June 14, 1979
 
 
 
-**Under the Gun
+**Under the Gun**
 Recorded:**  
 
 **Never released**  

@@ -55,9 +55,7 @@ It’s clearly a song for which Bruce has a great deal of affection, though, so 
 July 13, 1974 (New York City, NY)
  September 13, 2009 (Sunrise, FL)
 
-**Then (S)he Kissed Me
+**Then (S)he Kissed Me**
 First performed:**  
 
 **Last performed:**
-
- 

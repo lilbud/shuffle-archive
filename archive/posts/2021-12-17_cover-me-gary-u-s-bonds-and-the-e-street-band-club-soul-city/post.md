@@ -73,5 +73,3 @@ Man, it must have killed Bruce not to provide those call-and-response backing vo
 Despite his many performances with Bonds over the years, Bruce has never played “Club Soul City” live. The closest he came was during a 1992 soundcheck in Milan; you can hear him working out the song below. It’s too bad the song never made it to the setlist during that tour–“Club Soul City” would have been a good fit for the 1992-93 touring band.
 
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F437507529&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
-
- 

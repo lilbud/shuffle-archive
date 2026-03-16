@@ -41,7 +41,7 @@ Bruce’s ease and familiarity with Berry’s song is evident in every performan
 July 26, 1975 (Kutztown, PA)
  July 23, 1989 (Asbury Park, NJ)
 
-**Carol
+**Carol**
 First performed:**  
 
 **Last performed:**

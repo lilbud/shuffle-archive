@@ -63,7 +63,7 @@ We likely haven’t heard the last of “Sweet Soul Music.” With another E Str
 April 19, 1981 (Paris, France)
  July 27, 2013 (Kilkenny, Ireland)
 
-**Sweet Soul Music
+**Sweet Soul Music**
 First played:**  
 
 **Last played:**

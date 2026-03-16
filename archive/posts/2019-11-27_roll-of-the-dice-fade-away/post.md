@@ -82,7 +82,7 @@ March-June 1980
 November 1, 1980 (Los Angeles, CA)
 July 28, 2016 (Oslo, Norway)
 
-**Fade Away
+**Fade Away**
 Recorded:**   
 
 **Released:** *The River*  

@@ -35,7 +35,7 @@ For those fortunate enough to have been there, it was a special night, and not j
 August 11, 1989 (Holmdel, NJ)
  August 11, 1989 (Holmdel, NJ)
 
-**Get Back
+**Get Back**
 First performed:**  
 
 **Last performed:**

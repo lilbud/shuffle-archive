@@ -19,5 +19,3 @@ He’s got one more coming out imminently: an album of covers recorded during lo
 Look for Tim’s album on June 10th, and in the meantime, check out his other single from the album (a cover of Foo Fighters’ “In Your Honor”) .
 
 [here](https://www.facebook.com/timneuhausofficial/)
-
- 

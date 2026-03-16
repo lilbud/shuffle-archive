@@ -47,7 +47,7 @@ Ten years on, “Blue Christmas” performance remains a poignant annual reminde
 December 17, 2000 (Asbury Park, NJ)
  December 7, 2010 (Asbury Park, NJ)
 
-**Blue Christmas
+**Blue Christmas**
 First performed:**  
 
 **Last performed:**

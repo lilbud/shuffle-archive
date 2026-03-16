@@ -152,4 +152,4 @@ Bruce’s scheduled show in San Francisco (already postponed once this year) is 
 
 Bruce drops by the set of filming today at Convention Hall in Asbury Park.
 
-**2024:***Deliver Me From Nowhere,* 
+**2024:***Deliver Me From Nowhere,*

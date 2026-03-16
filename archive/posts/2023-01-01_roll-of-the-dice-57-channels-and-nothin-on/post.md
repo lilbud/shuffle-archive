@@ -157,7 +157,7 @@ Early December 1990
  November 16, 1990 (Los Angeles, CA)
  June 26, 1993 (New York City, NY)
 
-**57 Channels (And Nothin’ On)
+**57 Channels (And Nothin’ On)**
 Recorded:**   
 
 **Released:***Human Touch*   

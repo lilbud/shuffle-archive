@@ -161,7 +161,7 @@ June 27 – October 28, 1972
  February 14, 1972 (New York City, NY)
  September 5, 2016 (Virginia Beach, VA)
 
-**For You
+**For You**
 Recorded:**  
 
 **Released:** [](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.*   

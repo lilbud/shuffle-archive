@@ -33,7 +33,7 @@ def get_latest_posts() -> None:
     with httpx.Client(
         headers=headers,
         cookies=cookies,
-        timeout=60,
+        timeout=180,
     ) as client:
         try:
             res = client.get(url)
@@ -41,6 +41,7 @@ def get_latest_posts() -> None:
             res = None
 
     if res:
+        print("Found posts")
         total_posts = int(res.headers["x-wp-total"])
         total_pages = int(res.headers["x-wp-totalpages"])
 
@@ -68,6 +69,11 @@ def get_latest_posts() -> None:
 
                 with save_path.open("w", encoding="utf-8") as f:
                     json.dump(post, f)
+    else:
+        with Path("./notes/report.txt").open("a") as f:
+            f.write(
+                f"\n{datetime.datetime.now().astimezone(datetime.UTC)} Request failed",
+            )
 
 
 if __name__ == "__main__":

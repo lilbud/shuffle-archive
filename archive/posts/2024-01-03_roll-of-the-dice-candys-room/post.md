@@ -178,7 +178,7 @@ October 27, 1977 – March 5, 1978
  May 23, 1978 (Buffalo, NY)
  August 26, 2023 (Foxborough, MA)
 
-**Candy’s Room
+**Candy’s Room**
 Recorded:**  
 
 **Released:** *Darkness on the Edge of Town*   

@@ -53,11 +53,11 @@ But it was only a matter of weeks between those smoky Back Door performances and
 February 4, 1972 (Richmond, VA)*
  February 4, 1972 (Richmond, VA)
 
-**Sitting on Top of the World
+**Sitting on Top of the World**
 First performed:**  
 
 **Last performed:**
 
 
 
-*While the above recording definitely originated at Bruce’s February 1972 stand at The Back Door, there’s good reason to believe it may be from a night other than the one officially cited. That’s because when the recordings first surfaced, not all of Bruce’s gigs at The Back Door had been documented. Regardless, though, we’re listening to 49-year-old recordings.
+**While the above recording definitely originated at Bruce’s February 1972 stand at The Back Door, there’s good reason to believe it may be from a night other than the one officially cited. That’s because when the recordings first surfaced, not all of Bruce’s gigs at The Back Door had been documented. Regardless, though, we’re listening to 49-year-old recordings.**

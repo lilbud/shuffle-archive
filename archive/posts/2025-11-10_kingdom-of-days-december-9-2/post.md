@@ -131,5 +131,3 @@ Bruce appears on NPR’s to promote his new album,
 Bruce visits the set of filming today at Frank’s Deli in Asbury Park.
 
 **2024:** *Deliver Me From Nowhere,*
-
- 

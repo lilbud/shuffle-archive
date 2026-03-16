@@ -124,7 +124,7 @@ February-March 2002
  July 25, 2002 (Asbury Park, NJ)
  September 3, 2023 (East Rutherford, NJ)
 
-**Mary’s Place
+**Mary’s Place**
 Recorded:**  
 
 **Released:** *The Rising*  

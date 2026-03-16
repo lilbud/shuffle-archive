@@ -25,5 +25,3 @@ As for the show itself: it was one of the shortest of the tour, only 33 songs (t
 [https://www.youtube.com/embed/GpfDOT3ABwE?feature=oembed](https://www.youtube.com/embed/GpfDOT3ABwE?feature=oembed)
 
 If this was my last show for that leg of the tour, I might have been a little disappointed at the relative predictability, but I had one more coming up in my adopted hometown of Seattle two nights later–and that show would prove to be one of the best of that leg.
-
- 

@@ -37,11 +37,9 @@ Wendy’s become a reliable crowd-pleaser since her debut, so if you’re fortun
 December 5, 2003 (Asbury Park, NJ)
  December 8 ,2003 (Asbury Park, NJ)
 
-**Wendy
+**Wendy**
 First performed:**  
 
 **Last performed:**
 
 © September 5, 2020
-
- 

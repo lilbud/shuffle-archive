@@ -59,9 +59,7 @@ Bruce paused that practice on the River Tour, but “Out of Limits” proved a f
 October 31, 1980 (Los Angeles, CA)
  October 31, 1980 (Los Angeles, CA)
 
-**Outer Limits
+**Outer Limits**
 First performed:**  
 
 **Last performed:**
-
- 

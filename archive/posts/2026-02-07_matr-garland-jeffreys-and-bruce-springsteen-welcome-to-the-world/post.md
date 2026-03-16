@@ -31,7 +31,7 @@ Bruce and Garland would go on to perform together fifteen times over the next fi
 December 3, 2001 (Asbury Park, NJ)
  December 8, 2001 (Asbury Park, NJ)
 
-**Welcome to the World
+**Welcome to the World**
 First performed:**   
 
 **Last performed:**

@@ -26,13 +26,13 @@ Theard’s songs tended toward the blue end of the spectrum. In 1936, for exampl
 
 And in 1947, Theard co-wrote “Hard Ridin’ Mama” for Wynonie Harris with such memorable lines as:
 
-*She don’t use no saddle and she don’t need no guiding lines
+**She don’t use no saddle and she don’t need no guiding lines**
 She’s a rough riding mama and she treats my pony fine*  
 
 
 
 
-*Can’t find nobody nowhere in this land
+**Can’t find nobody nowhere in this land**
 Who can ride my pony just like my baby can*  
 
 
@@ -116,9 +116,7 @@ And yes, I could have taken us here on a much more direct route. But we would ha
 February 22, 2014 (Hunter Valley, Australia)
  February 22, 2014 (Hunter Valley, Australia)
 
-**Drinkin’ Wine, Spo-Dee-O-Dee
+**Drinkin’ Wine, Spo-Dee-O-Dee**
 First performed:**  
 
 **Last performed:**
-
- 

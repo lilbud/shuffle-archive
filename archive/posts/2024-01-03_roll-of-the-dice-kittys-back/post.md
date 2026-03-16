@@ -136,7 +136,7 @@ June 28, 1973 – September 23, 1973
  July 20, 1973 (New York City, NY)
  September 3, 2023 (East Rutherford, NJ)
 
-**Kitty’s Back
+**Kitty’s Back**
 Recorded:**  
 
 **Released:***The Wild, The Innocent & The E Street Shuffle*  

@@ -63,7 +63,7 @@ November 27, 1970 (Asbury Park, NJ)
 November 27, 1970 (Asbury Park, NJ)
 
 **We’ve Got to Do It Now**  
-**Never recorded
+**Never recorded**
 Never released
 First performed:**  
 

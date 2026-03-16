@@ -68,7 +68,7 @@ May-June 1972
  February 5, 1972 (Richmond, VA)
  February 17, 1972 (Freehold, NJ)
 
-**Southern Sun
+**Southern Sun**
 Recorded:**  
 
 **Never released**  

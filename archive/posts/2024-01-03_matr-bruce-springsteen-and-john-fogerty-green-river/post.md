@@ -41,9 +41,7 @@ That was actually the eighth time Bruce had played “Green River” in concert,
 January 12, 1993 (Los Angeles, CA)
  May 3, 2014 (New Orleans, LA)
 
-**Green River
+**Green River**
 First performed:**  
 
 **Last performed:**
-
- 

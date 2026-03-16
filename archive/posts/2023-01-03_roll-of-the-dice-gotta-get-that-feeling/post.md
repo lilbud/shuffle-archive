@@ -91,7 +91,7 @@ August 1977 (backing track), 2010 (vocals and horns)
  December 7, 2010 (Asbury Park, NJ)
  July 24, 2013 (Leeds, England)
 
-**Gotta Get That Feeling
+**Gotta Get That Feeling**
 Recorded:**  
 
 **Released:** *The Promise*   

@@ -102,7 +102,7 @@ March – August 1995
  November 21, 1995 (New Brunswick, NJ)
  November 16, 2005 (East Rutherford, NJ)
 
-**My Best Was Never Good Enough
+**My Best Was Never Good Enough**
 Recorded:**  
 
 **Released:** *The Ghost of Tom Joad*  

@@ -57,7 +57,7 @@ March 19, 2005
  April 20, 2006 (Asbury Park, NJ)
  November 21, 2006 (Belfast, Northern Ireland)
 
-**Old Dan Tucker
+**Old Dan Tucker**
 Recorded:**  
 
 **Released:** *We Shall Overcome: The Seeger Sessions*  

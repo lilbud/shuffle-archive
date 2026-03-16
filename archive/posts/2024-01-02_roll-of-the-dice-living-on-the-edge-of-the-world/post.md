@@ -108,8 +108,7 @@ But “Living on the Edge of the World” has only been performed once*–when B
 
 [https://www.youtube.com/embed/fwmwfjZdrKA?feature=oembed](https://www.youtube.com/embed/fwmwfjZdrKA?feature=oembed)
 
-*Technically, Bruce has only performed “Living on the Edge” that one time in 2012… at least that’s the only time he’s played it in full with its own melody.
-
+**Technically, Bruce has only performed “Living on the Edge” that one time in 2012… at least that’s the only time he’s played it in full with its own melody.**
 But here’s a bonus: check out this genuine one-off historical curiosity. It’s a performance of “” from a couple of months into the River Tour, on November 28, 1980–a full year after Bruce recorded the take of “Living on the Edge of the World” that’s included on and 
 
 [Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)*Tracks**The Ties That Bind.*

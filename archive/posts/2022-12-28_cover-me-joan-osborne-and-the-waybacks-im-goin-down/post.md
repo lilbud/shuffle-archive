@@ -25,7 +25,3 @@ Bonus: Here are the clues that led up to the reveal of as 2015’s featured albu
 Clue #1: “We promise to treat you right.”
 Clue #2: “Smiling rookie flips out on two joints.”
 Clue #3: “Myrtle Grant, his ex, wanted nightly bar romance.”
-
-
-
- 

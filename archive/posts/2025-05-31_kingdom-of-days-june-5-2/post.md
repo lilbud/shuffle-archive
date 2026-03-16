@@ -135,5 +135,3 @@ Bruce makes a surprise guest appearance with Coldplay at MetLife Stadium in East
 **2022:** [Working on a Dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
 [https://www.youtube.com/embed/W6w3xLqR_Os?feature=oembed](https://www.youtube.com/embed/W6w3xLqR_Os?feature=oembed)
-
- 

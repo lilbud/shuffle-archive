@@ -17,5 +17,3 @@ Here’s a lovely cover of one of my favorite songs from
 Nothing particularly remarkable or unusual about this one, just a sweet performance by some great musicians. Here’s hoping for a reprise next month!
 
 [https://www.youtube.com/embed/n7rs94Yb23o?feature=oembed](https://www.youtube.com/embed/n7rs94Yb23o?feature=oembed)
-
- 

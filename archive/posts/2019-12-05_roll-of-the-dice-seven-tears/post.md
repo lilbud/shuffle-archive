@@ -59,7 +59,7 @@ February 15, 1983
 
 
 
-**Seven Tears
+**Seven Tears**
 Recorded:**  
 
 **Never released**  

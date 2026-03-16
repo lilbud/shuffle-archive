@@ -90,7 +90,7 @@ There’s a whole sub-genre in Bruce’s catalog of fun pop trifles, and “Hurr
 March 2013
 (2014)
 
-**Hurry Up Sundown
+**Hurry Up Sundown**
 Recorded:**  
 
 **Released:** *American Beauty*   

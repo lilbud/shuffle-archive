@@ -67,7 +67,7 @@ But one night in 1987, Bruce (and most of the E Street Band) joined Cats on a Sm
 January 11, 1979 (Fair Haven, NJ)
  June 7, 2025 (Liverpool, England)
 
-**Kansas City
+**Kansas City**
 First performed:**  
 
 **Last performed:**

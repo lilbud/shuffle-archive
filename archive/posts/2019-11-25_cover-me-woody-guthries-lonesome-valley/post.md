@@ -15,7 +15,7 @@ It’s the only time Bruce has performed this song to date.
 June 26, 1993
  June 26, 1993
 
-**Lonesome Valley
+**Lonesome Valley**
 First performed:**  
 
 **Last performed:**

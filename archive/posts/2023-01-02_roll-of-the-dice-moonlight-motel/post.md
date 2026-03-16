@@ -216,7 +216,7 @@ Unknown
  April 2019
  April 2019
 
-**Moonlight Motel
+**Moonlight Motel**
 Recorded:**  
 
 **Released:** *Western Stars*  

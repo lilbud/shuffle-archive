@@ -166,7 +166,7 @@ We like to think that faith will be rewarded, but sometimes faith just ain’t e
  April 4, 2005 (Red Bank, NJ)
  January 12, 2017 (Washington, DC)
 
-**Devils & Dust
+**Devils & Dust**
 Recorded:**  
 
 **Released:** *Devils & Dust*   

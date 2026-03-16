@@ -22,7 +22,7 @@ That's it–that's the song right there: Seven different internal monologues all
 
 What's awesome is that the song has continuity throughout–only two angels resurface at the end of the song, but they're the right ones–the most urgent ones:
 
-*Sixth angel says to believe you when you say you'll never leave me crying
+**Sixth angel says to believe you when you say you'll never leave me crying**
 Seventh angel says you're lying*
 
 That's indeed what it all boils down to: trust or distrust. Which angel does the narrator end up listening to? We don't know, but that seventh angel gets the last word, unfortunately.

@@ -23,7 +23,7 @@ In my opinion, though, nothing matches that one-time-only performance with Roy, 
 September 30, 1987 (Los Angeles, CA)
  September 30 ,1987 (Los Angeles, CA)
 
-**Go Go Go (Down the Line)
+**Go Go Go (Down the Line)**
 First performed:**  
 
 **Last performed:**

@@ -19,7 +19,7 @@ Bonus: here’s a fantastic clip of Fats himself performing it in the 1956 movie
 April 15, 1979 (Asbury Park, NJ)
  February 2, 1992 (New Orleans, LA)
 
-**Ain’t That a Shame
+**Ain’t That a Shame**
 First performed:**  
 
 **Last performed:**

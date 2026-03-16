@@ -127,5 +127,3 @@ previews continue at the Walter Kerr Theater in New York City.
 continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so in place of their two duets, Bruce plays “Long Time Comin'” and “This Hard Land.”
 
 **2018:** *Springsteen on Broadway*
-
- 

@@ -73,5 +73,3 @@ Bruce’s instrumental cover of “,” is released on the tribute album The gor
 **2007:** [Once Upon a Time in the West](http://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)*We All Love Ennio Morricone.*
 
 [https://www.youtube.com/embed/CBTy5EF7upk?feature=oembed](https://www.youtube.com/embed/CBTy5EF7upk?feature=oembed)
-
- 

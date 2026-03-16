@@ -128,5 +128,3 @@ When Bruce launched into the show-closing cover of “,” I looked around for t
 [https://www.youtube.com/embed/PskRJWZ9Oyc?feature=oembed](https://www.youtube.com/embed/PskRJWZ9Oyc?feature=oembed)
 
 The standard set kept the audience riveted to the very end, and that’s a beautiful thing in its own right.
-
- 

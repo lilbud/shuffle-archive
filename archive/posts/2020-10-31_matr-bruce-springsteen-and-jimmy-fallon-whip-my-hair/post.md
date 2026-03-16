@@ -45,11 +45,9 @@ Even so, I wouldn’t bet on Bruce picking a sign for “Whip My Hair” anytime
 November 16, 2010(2012) November 16, 2010 (New York City, NY)
  November 16, 2010 (New York City, NY)
 
-**Whip My Hair
+**Whip My Hair**
 Recorded:**   
  **Released:**   
 *Blow Your Pants Off*  **First performed:**  
 
 **Last performed:**
-
- 

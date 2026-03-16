@@ -28,5 +28,3 @@ October 23, 1971 (Richmond, VA)
 **It’s All Over Now, Baby Blue**  
 **First performed:**  
 **Last performed:**
-
- 

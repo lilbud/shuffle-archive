@@ -83,5 +83,3 @@ Bruce and the E Street Band bring their World Tour to rain-soaked Ferrara, Italy
 **2023:**
 
 [https://www.youtube.com/embed/videoseries?list=PLZk9R68yNuePvTt8Y3sqxdYXNdd8-o3Kz](https://www.youtube.com/embed/videoseries?list=PLZk9R68yNuePvTt8Y3sqxdYXNdd8-o3Kz)
-
- 

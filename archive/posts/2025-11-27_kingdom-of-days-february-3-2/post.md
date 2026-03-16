@@ -27,5 +27,3 @@ On night two of their first tour in six years, Bruce and the E Street Band tour 
 [https://www.youtube.com/embed/3sG3HKi5b9Q?feature=oembed](https://www.youtube.com/embed/3sG3HKi5b9Q?feature=oembed)
 
 [https://www.youtube.com/embed/CmVCxeyI6jA?feature=oembed](https://www.youtube.com/embed/CmVCxeyI6jA?feature=oembed)
-
- 

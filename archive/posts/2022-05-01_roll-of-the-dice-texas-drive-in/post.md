@@ -33,7 +33,7 @@ It’s just a set up, merely a stage setting, but it gives us a taste of what th
 
 Did Bruce ever finish the song? Presumably, since it was on the lost album sequence. Did he ever record it? Someday, maybe, we’ll know for sure.
 
-**Texas Drive In
+**Texas Drive In**
 Never released**  
 
 **Never performed**

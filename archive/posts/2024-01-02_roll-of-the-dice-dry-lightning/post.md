@@ -112,7 +112,7 @@ April-June 1995
  November 21, 1995 (New Brunswick, NJ)
  May 14, 2005 (Fairfax, VA)
 
-**Dry Lightning
+**Dry Lightning**
 Recorded:**   
 
 **Released:** *The Ghost of Tom Joad*   

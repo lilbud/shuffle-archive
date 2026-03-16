@@ -23,7 +23,7 @@ Want to compare with the original? You’ll have to look further back than The B
 August 24, 2008 (Kansas City, MO)
  August 24, 2008 (Kansas City, MO)
 
-**Boys
+**Boys**
 First performed:**  
 
 **Last performed:**

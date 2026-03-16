@@ -49,5 +49,3 @@ Bruce makes a traditional “surprise” appearance at Light of Day in Asbury Pa
 Bruce and the E Street Band rehearse in Pittsburgh for the start of the River Tour (2016 version). They rehearse two Bowie songs as a tribute, “Suffragette City” and “Changes,” but they will end up playing a different song altogether when the tour opens the following night.
 
 **2016:**
-
- 

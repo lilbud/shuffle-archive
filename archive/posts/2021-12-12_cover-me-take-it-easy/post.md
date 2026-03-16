@@ -17,7 +17,7 @@ Another great one gone too soon: Bruce Springsteen pays tribute to Glenn Frey, o
 March 16, 2004 (New York City, NY)
  September 21, 2017 (Holmdel, NJ)
 
-**Take It Easy
+**Take It Easy**
 First performed:**  
 
 **Last performed:**

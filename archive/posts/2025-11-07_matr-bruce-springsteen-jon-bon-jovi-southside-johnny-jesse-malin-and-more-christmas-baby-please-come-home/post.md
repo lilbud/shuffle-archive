@@ -67,7 +67,7 @@ Bruce’s penultimate performance was one of his very best, and fortunately it w
 December 17, 2000 (Asbury Park, NJ)
  December 8, 2003 (Asbury Park, NJ)
 
-**Christmas (Baby Please Come Home)
+**Christmas (Baby Please Come Home)**
 First performed:**  
 
 **Last performed:**

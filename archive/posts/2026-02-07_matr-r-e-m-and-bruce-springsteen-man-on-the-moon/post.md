@@ -31,7 +31,7 @@ The Vote for Change Tour was ultimately a failed endeavor in that it would take 
 October 1, 2004 (Philadelphia, PA)
  October 11, 2004 (Washington, DC)
 
-**Man on the Moon
+**Man on the Moon**
 First performed:**  
 
 **Last performed:**

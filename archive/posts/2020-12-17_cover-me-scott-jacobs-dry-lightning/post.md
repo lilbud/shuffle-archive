@@ -19,5 +19,3 @@ Today’s entry comes from Canadian folk singer Scott Jacobs, whose lovely acous
 Jacobs finds the right balance.
 
 (But as a fellow Pacific Northwesterner, I can’t help but smile at Jacob’s choice of backdrop for his video: the seawall of his native Vancouver, B.C. on a gloriously and typically gray day. It’s tough to imagine dry lightning anywhere remotely around these parts.)
-
- 

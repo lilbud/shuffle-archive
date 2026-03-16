@@ -35,5 +35,3 @@ Renato’s latest cover is a deep cut from : Bruce’s haunting morality struggl
 Interested in entering this year’s Cover Me contest? Check out the full rules and regulations .
 
 [here](https://www.noiespringsteen.com/contest/#box-gara)
-
- 

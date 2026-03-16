@@ -133,5 +133,3 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/johnmayer-300x278.jpg?resize=758%2C702)
-
- 

@@ -119,7 +119,7 @@ Given Bruce’s distaste for the song, it’s not surprising that he hasn’t pl
 August 1977 – February 1978
  (2010)
 
-**The Way
+**The Way**
 Recorded:**  
 
 **Released:** *The Promise*  

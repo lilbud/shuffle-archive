@@ -73,7 +73,7 @@ Not all of Bruce’s protagonists need be virtuous–if that were so, we’d be 
 October 11, 1970 (Richmond, VA)
  January 18, 1971 (South Amboy, NJ)
 
-**I Can’t Take It No More
+**I Can’t Take It No More**
 Never recorded**  
 
 **Never released**  

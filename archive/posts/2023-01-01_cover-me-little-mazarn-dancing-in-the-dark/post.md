@@ -21,5 +21,3 @@ You can find her version on her new 2019 album, , released mere weeks ago (as I 
 Bonus: here’s a live performance from a few months before the album’s release. It’s not quite as stunning as the album version, but the context perfectly captures the isolation and loneliness in Bruce’s lyrics.
 
 [https://www.youtube.com/embed/I81h30D5mJ0?feature=oembed](https://www.youtube.com/embed/I81h30D5mJ0?feature=oembed)
-
- 

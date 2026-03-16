@@ -140,7 +140,7 @@ I’m in love with “Queen of the Supermarket.”
 2007-2008(2009)
 May 6, 2009 (Stockholm, Sweden)May 7, 2013 (Turku, Finland)
 
-**Queen of the Supermarket
+**Queen of the Supermarket**
 Recorded:**   
  **Released:**   
 *Working on a Dream*   

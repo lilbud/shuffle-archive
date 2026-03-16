@@ -44,9 +44,9 @@ Our story begins at the very same place as the opening track of *Born to Run:* o
 
 Bruce employs the same cinematic technique here that he used in "Thunder Road," and there's no doubt in my mind that it's intentional. Entranced by the magic that is the Summer Evening, lured by visions of romance, our hero puts on his jacket and is out the door. Does the screen door slam behind him?
 
-*And the girls in their summer clothes
+**And the girls in their summer clothes**
 in the cool of the evening light*
-*The girls in their summer clothes
+**The girls in their summer clothes**
 pass me by*
 
 And here in the chorus, we have one of the many wry devices Bruce employs in this song: three lines of soaring melody that lift us up before the fourth line dashes our hopes as it descends back to earth.

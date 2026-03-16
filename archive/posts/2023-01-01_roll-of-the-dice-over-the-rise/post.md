@@ -77,5 +77,3 @@ December 7, 1990
 Looking for your favorite Bruce song? Check our . New entries every week!
 
 [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
-
- 

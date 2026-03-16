@@ -30,7 +30,7 @@ After leaving Bruce's band, Delores would become a fixture of the Jersey Shore m
 
 As for Barbara, she now goes by her married name of Barbara Gunter and is a web designer in New Jersey, but long-time devotees of the Jersey Shore music scene will always remember and recognize her brief but important contribution to the early career of Bruce Springsteen.
 
-**You Don't Leave Me No Choice
+**You Don't Leave Me No Choice**
 Never recorded**
 **Never released**
 **First performed:** July 22, 1971 (South Amboy, NJ)

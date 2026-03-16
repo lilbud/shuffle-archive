@@ -157,5 +157,3 @@ Bruce returns to the stage after more than a week off to continue his theatrical
 continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce treats audiences to the show’s rare alternate set list.
 
 **2018:** *Springsteen on Broadway*
-
- 

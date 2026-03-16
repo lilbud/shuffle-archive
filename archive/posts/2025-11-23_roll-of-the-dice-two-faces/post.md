@@ -142,7 +142,7 @@ January-April 1987
  October 31, 1987 (Sea Bright, NJ)
  October 9, 2005 (Uniondale, NY)
 
-**Two Faces
+**Two Faces**
 Recorded:**  
 
 **Released:** *Tunnel of Love*   

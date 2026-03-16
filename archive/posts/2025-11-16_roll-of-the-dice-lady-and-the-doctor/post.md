@@ -80,7 +80,7 @@ June 7, 1972
 
 
 
-**Lady and the Doctor
+**Lady and the Doctor**
 Recorded:**  
 
 **Never released**  

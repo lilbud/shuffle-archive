@@ -23,5 +23,3 @@ Well, Roger Taylor did at least, and that’s what led him to record a cover of 
 Does it work? You decide.
 
 [https://www.youtube.com/embed/RdNiTbMVmb4?feature=oembed](https://www.youtube.com/embed/RdNiTbMVmb4?feature=oembed)
-
- 

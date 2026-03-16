@@ -45,5 +45,3 @@ In all, there were a whopping songs played this night that I had never heard Bru
 In all, I’d see 46 unique songs across the three nights and strike well over a dozen songs from my chase list.
 
 But I’m getting ahead of myself.
-
- 

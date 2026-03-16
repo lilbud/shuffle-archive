@@ -114,7 +114,7 @@ And counting.
  September 23, 1975 (Ann Arbor, MI)
  November 19, 2024 (Edmonton, AB)
 
-**Detroit Medley
+**Detroit Medley**
 Released:**  
 *No Nukes* *Hammersmith Odeon London ’75*  
 **First performed:**  

@@ -15,5 +15,3 @@ Never released, never performed: Bruce Springsteen’s “,” performed in San 
 [Unsatisfied Heart](https://estreetshuffle.com/index.php/2018/09/12/roll-of-the-dice-unsatisfied-heart/)
 
 https://youtu.be/3NP7AJjt3gk
-
- 

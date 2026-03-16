@@ -23,7 +23,7 @@ Bruce has made and continues to make frequent appearances at Little Steven’s s
 November 1981
  (1982)
 
-**Angel Eyes
+**Angel Eyes**
 Recorded:**  
 
 **Released:***Men Without Women*  

@@ -39,5 +39,3 @@ I discovered that in some cases, I’d put an earlier song’s backstory buried 
 I quickly became mired in confusion and started swapping paragraphs between essays like body parts in Frankenstein’s monster. And the essays started to reflect it. So I started polishing, scrubbing, deleting, rewriting, to the point where in some cases I lost track of what was original and what was new.
 
 The upshot is that this book contains more new writing than I ever intended, something I’m not likely to repeat in this year’s remaining volumes.
-
- 

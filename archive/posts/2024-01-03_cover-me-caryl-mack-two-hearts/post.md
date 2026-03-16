@@ -29,5 +29,3 @@ Although she’d covered it solo during the early lockdown phase of the pandemic
 “Two Hearts” isn’t the only Springsteen song Mack has added to her repertoire. If you’re in the Nashville area this week, on Music Row, where she promises to cover more of Bruce’s music in an event that promises “songs, stories, Springsteen.”
 
 [catch her in concert](https://belmont.churchcenter.com/registrations/events/1301434)
-
- 

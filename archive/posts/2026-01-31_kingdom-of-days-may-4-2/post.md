@@ -126,4 +126,4 @@ Upon returning to Dublin later in the day, Bruce pays a visit to the late Shane 
 
 Bruce and the E Street Band rehears for their European tour at Principality Stadium in Cardiff.
 
-**2024:** 
+**2024:**

@@ -104,7 +104,7 @@ January – February 1983
  November 16, 1984 (Ames, IA)
  November 18, 1984 (Lincoln, NE)
 
-**Sugarland
+**Sugarland**
 Recorded:**  
 
 **Released:***L.A. Garage Sessions ’83*  

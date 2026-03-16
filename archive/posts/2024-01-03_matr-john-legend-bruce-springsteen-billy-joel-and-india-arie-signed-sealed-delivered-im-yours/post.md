@@ -29,9 +29,7 @@ And if audio from that performance is rare, video is scarcer still. But check th
 October 16, 2008 (New York City, NY)
  October 16, 2008 (New York City, NY)
 
-**Signed, Sealed, Delivered I’m Yours
+**Signed, Sealed, Delivered I’m Yours**
 First performed:**  
 
 **Last performed:**
-
- 

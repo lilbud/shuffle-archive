@@ -37,7 +37,7 @@ But we can still relive both his 1988 and 1998 performances thanks to official r
 September 2, 1988 (London, England)
  December 10, 1998 (Paris, France)
 
-**Get Up, Stand Up
+**Get Up, Stand Up**
 First performed:**  
 
 **Last performed:**

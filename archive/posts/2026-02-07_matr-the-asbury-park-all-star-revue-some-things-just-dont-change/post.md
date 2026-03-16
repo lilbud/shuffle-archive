@@ -35,7 +35,7 @@ It only took forty years for Steve to record his own version, finally and glorio
 May 13, 1977 (Red Bank, NJ)
  May 13, 1977 (Red Bank, NJ)
 
-**Some Things Just Don’t Change
+**Some Things Just Don’t Change**
 First performed:**  
 
 **Last performed:**

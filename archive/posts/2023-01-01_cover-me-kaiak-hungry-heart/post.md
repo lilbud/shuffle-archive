@@ -23,5 +23,3 @@ That cover track has been around for a few years, but recently the guys teased u
 There’s no indication whether a full-length version is coming, but we can hope. In the meantime, check out more of Kaiak’s music .
 
 [here](https://www.kaiakmusic.se/)
-
- 

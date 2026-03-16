@@ -49,5 +49,3 @@ Finally (for now), let’s make a return visit to Pennsylvania, a little further
 [https://www.youtube.com/embed/7ZxORhHKrVM?feature=oembed](https://www.youtube.com/embed/7ZxORhHKrVM?feature=oembed)
 
 That’s it for today, but new covers of “I’m on Fire” seem to find me faster than I can write about them, so rest assured: we’ll be back again before too long with another installment.
-
- 

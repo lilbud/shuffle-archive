@@ -45,7 +45,7 @@ So yeah, I still hate the song on the album. But I’ll sneak a listen from time
  (1992) June 17, 1992 (Stockholm, Sweden)
  May 6, 2014 (Woodlands, TX)
 
-**All or Nothin’ at All
+**All or Nothin’ at All**
 Recorded:**   
 
 **Released:** *Human Touch*  

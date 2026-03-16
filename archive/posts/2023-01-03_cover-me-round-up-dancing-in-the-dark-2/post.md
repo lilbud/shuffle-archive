@@ -65,5 +65,3 @@ Starns’ crooning Orbisonian vocals combined with a charming 1950s doo-wop arra
 That’s it for this installment of , but given my lengthy and ever-growing list of covers, there will almost certainly be more.
 
 *Cover-Me Round-up*
-
- 

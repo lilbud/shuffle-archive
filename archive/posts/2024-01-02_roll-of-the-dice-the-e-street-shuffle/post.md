@@ -164,7 +164,7 @@ June-September 1973
  June 6, 1973 (Philadelphia, PA)
  September 1, 2023 (East Rutherford, NJ)
 
-**The E Street Shuffle
+**The E Street Shuffle**
 Recorded:**  
 
 **Released:** *The Wild, The Innocent & The E Street Shuffle*   

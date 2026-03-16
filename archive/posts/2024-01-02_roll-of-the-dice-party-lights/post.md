@@ -96,7 +96,7 @@ Here’s yet another work-in-progress arrangement (this time a rockabilly one) o
 October 8, 1979
  (2015)
 
-**Party Lights
+**Party Lights**
 Recorded:**  
 
 **Released:***The Ties That Bind: The River Collection*   

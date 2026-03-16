@@ -144,7 +144,7 @@ June 17, 1977 (backing track), 2010 (vocals)
 December 7, 2010 (Asbury Park, NJ)
 July 5, 2013 (Monchengladbach, Germany)
 
-**One Way Street
+**One Way Street**
 Recorded:**  
 
 **Released:** *The Promise*   

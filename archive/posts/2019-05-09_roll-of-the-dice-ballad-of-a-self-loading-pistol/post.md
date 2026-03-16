@@ -62,7 +62,7 @@ There's so much to appreciate about "Ballad of the Self-Loading Pistol":
 *And this blood feels good on my hands*
 *Today I killed a man*
 
-**Ballad of a Self-Loading Pistol
+**Ballad of a Self-Loading Pistol**
 **Recorded:** January 29-30, 1973
 **Never released**
 **Never performed**

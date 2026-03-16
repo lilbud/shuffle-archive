@@ -44,10 +44,8 @@ Pond asked Patti a follow-up question to her previous answer…
 
 (1993)
 
-**Talk to Me Like the Rain
+**Talk to Me Like the Rain**
 Recorded:**   
 
 **Released:***Rumble Doll*  
 **Never performed**
-
- 

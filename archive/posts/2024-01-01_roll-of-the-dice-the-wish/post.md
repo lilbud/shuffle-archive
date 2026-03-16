@@ -133,7 +133,7 @@ And that we all find our little rock and roll bar, where we can dance ever after
 
 February 22, 1987 (1998)November 17, 1990 (Los Angeles, CA)September 4, 2021 (New York City, NY)
 
-**The Wish
+**The Wish**
 Recorded:**   
  **Released:**   
 *Tracks* **First performed:**   

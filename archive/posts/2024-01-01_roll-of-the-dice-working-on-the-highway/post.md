@@ -77,7 +77,7 @@ You’re welcome.
  June 29, 1984 (St. Paul, MN)
  November 6, 2023 (New York City, NY)
 
-**Working on the Highway
+**Working on the Highway**
 Recorded**  
 
 **Recorded**  

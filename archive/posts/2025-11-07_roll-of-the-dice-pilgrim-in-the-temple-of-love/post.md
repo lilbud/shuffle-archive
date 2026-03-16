@@ -188,7 +188,7 @@ Here’s a rare live performance of “Pilgrim in the Temple of Love” captured
 April 16, 1996 (London, England)
  February 8, 1997 (Sydney, Australia)
 
-**Pilgrim in the Temple of Love
+**Pilgrim in the Temple of Love**
 Never recorded**  
 
 **Never released**  

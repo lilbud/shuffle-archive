@@ -38,5 +38,3 @@ April 13, 2002 (Asbury Park, NJ)
 **Tell Him**  
 **First performed:**  
 **Last performed:**
-
- 

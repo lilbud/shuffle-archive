@@ -33,9 +33,7 @@ To this day, it remains the only time Bruce has covered “Something” in conce
 December 3, 2001 (Asbury Park, NJ)
  December 3, 2001 (Asbury Park, NJ)
 
-**Something
+**Something**
 First performed:**  
 
 **Last performed:**
-
- 

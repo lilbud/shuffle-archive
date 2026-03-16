@@ -8,8 +8,8 @@ title: "Cover Me: Deportee (Plane Wreck at Los Gatos)"
 
 On January 28, 1948, a DC-3 charter plane with seating for 26 passengers took off from Oakland with 32 people aboard–almost all of whom were Mexican citizens being deported from the United States.
 
-*****
-
+**
+**
 The plane never made it to its refueling stop in Burbank–a fuel leak in the port engine’s fuel pump ignited, and the entire port wing ripped off, taking nine passengers with it. The rest of the passengers and crew died when the plane crashed and exploded near Las Gatos Creek.
 
 Plane crashes were hardly unheard of, but what made this particular crash so infuriatingly memorable was the way the deceased Mexican passengers were identified in the media only as “deportees.” (The crew and guard were identified by name, however.) The unidentified victims were buried in Fresno, in a mass grave marked only as “Mexican Nationals.”
@@ -90,14 +90,13 @@ That was the last time Bruce played “Deportee” to date, until the spring of 
 
 Recent research suggests that perhaps not all of the doomed flight’s passengers were Mexican. Listen to the interview below for a fascinating postscript to the true story of the plane wreck at Los Gatos.
 
-*****<http://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3>
-
+**<http://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3>**
 September 29, 1996
  (2000)
  August 28, 1981 (Los Angeles, CA)
  May 13, 2021 (Colts Neck, NJ)
 
-**Deportee (Plane Wreck at Los Gatos)
+**Deportee (Plane Wreck at Los Gatos)**
 Recorded:**   
 
 **Released:***‘Till We Outnumber ’em*  

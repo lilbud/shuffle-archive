@@ -18,10 +18,6 @@ Never charting in the U.S., “Free Nelson Mandela” reached #9 in the UK in it
 
 [https://www.youtube.com/embed/AgcTvoWjZJU?feature=oembed](https://www.youtube.com/embed/AgcTvoWjZJU?feature=oembed)
 
-January 26, 2014 (Cape Town, South Africa)
- February 1, 2014 (Johannesburg, South Africa)
-
-**Free Nelson Mandela
-First performed:**  
-
-**Last performed:**
+**Free Nelson Mandela**
+**First performed:** January 26, 2014 (Cape Town, South Africa)
+**Last performed:** February 1, 2014 (Johannesburg, South Africa)

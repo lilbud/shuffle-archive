@@ -177,7 +177,7 @@ November 2019
  December 12, 2020 (New York City, NY)
  September 1, 2023 (East Rutherford, NJ)
 
-**Ghosts
+**Ghosts**
 Recorded:**  
 
 **Released:***Letter to You*  

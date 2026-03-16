@@ -120,7 +120,7 @@ February-May 1979 (demos only)
 
 
 
-**Oh Angelyne
+**Oh Angelyne**
 Recorded:**  
 
 **Never released**  

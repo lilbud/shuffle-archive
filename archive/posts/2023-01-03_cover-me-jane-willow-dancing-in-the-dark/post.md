@@ -29,5 +29,3 @@ Bruce’s song of disconnection resonated with Jane long after she released that
 Jane’s single is available for purchase at Bandcamp. If you like it, consider purchasing it .
 
 [here](https://janewillowmusic.bandcamp.com/track/dancing-in-the-dark)
-
- 

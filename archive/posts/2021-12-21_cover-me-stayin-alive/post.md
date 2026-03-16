@@ -49,9 +49,7 @@ Three months later, Gibb would return the favor. Check out his of Bruce’s “�
 February 26, 2014 (Brisbane, Australia)
  May 17, 2014 (Uncasville, CT)
 
-**Stayin’ Alive
+**Stayin’ Alive**
 First performed:**  
 
 **Last performed:**
-
- 

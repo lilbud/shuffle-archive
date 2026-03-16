@@ -122,4 +122,4 @@ Lucky fans (including this blogger) view never-before-seen (and many never-since
 
 Bruce and the E Street Band rehearse in Barcelona for the imminent European leg of their World Tour.
 
-**2023:** 
+**2023:**

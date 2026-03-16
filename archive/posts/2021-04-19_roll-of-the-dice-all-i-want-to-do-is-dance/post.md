@@ -69,7 +69,7 @@ If Bruce ever surprises us with an archive series document of one of these early
 February 4, 1972 (Richmond, VA)
  February 26, 1972 (Richmond, VA)
 
-**All I Want to Do Is Dance
+**All I Want to Do Is Dance**
 Never recorded**  
 
 **Never released**  

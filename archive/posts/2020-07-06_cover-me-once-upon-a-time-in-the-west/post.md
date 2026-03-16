@@ -17,7 +17,7 @@ The result was an absolutely gorgeous and romantic piece of music, officially re
 July-August 2006
 (2007)
 
-**Once Upon a Time in the West
+**Once Upon a Time in the West**
 Recorded:**   
 
 **Released:** *We All Love Ennio Morricone*   

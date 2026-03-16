@@ -45,8 +45,7 @@ Although it’s believed that The Castiles performed the song often over the nex
 
 *Chapter & Verse*
 
-*The officially released version of “Baby I” is edited for brevity. The original version ran about 15 seconds longer, due to a instance of the “tended kiss” verse. If you’d like to hear the unedited version, take a listen below (but you’re really not missing anything if you don’t).
-
+**The officially released version of “Baby I” is edited for brevity. The original version ran about 15 seconds longer, due to a instance of the “tended kiss” verse. If you’d like to hear the unedited version, take a listen below (but you’re really not missing anything if you don’t).**
 *third*
 
 [https://www.youtube.com/embed/I-3piB3bR7A?feature=oembed](https://www.youtube.com/embed/I-3piB3bR7A?feature=oembed)

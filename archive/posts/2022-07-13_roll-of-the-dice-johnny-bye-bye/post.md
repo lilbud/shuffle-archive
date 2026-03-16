@@ -105,7 +105,7 @@ Bruce replied: "I don't know... Everybody makes their maps, and people will look
 
 He paused and added: "And everybody struggles."
 
-**Johnny Bye-Bye
+**Johnny Bye-Bye**
 **Recorded:** January 1983
 **Released:** *I'm on Fire* (1985), *Tracks* (1998)
 **First performed:** May 13, 1981 (Manchester, England)

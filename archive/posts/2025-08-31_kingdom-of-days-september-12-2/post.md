@@ -101,5 +101,3 @@ Bruce issues a video plea for support for the Community Hospital Endowment Fund 
 [https://www.youtube.com/embed/5kFCEGnJJNo?list=PLnbVaK2f4rahkarvl0qDgKW3lpuomUWEd](https://www.youtube.com/embed/5kFCEGnJJNo?list=PLnbVaK2f4rahkarvl0qDgKW3lpuomUWEd)
 
 Bruce was originally scheduled to play the first of two shows in Pittsburgh on this date as well, but peptic ulcer disease forces him to postpone the shows for almost a year.
-
- 

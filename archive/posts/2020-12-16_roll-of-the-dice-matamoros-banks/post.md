@@ -135,7 +135,7 @@ The footage hails from (we believe) one of Bruce’s solo acoustic shows in Bost
  April 21, 2005 (Asbury Park, NJ)
  November 22, 2005 (Trenton, NJ)
 
-**Matamoros Banks
+**Matamoros Banks**
 Recorded:**  
 
 **Released:** *Devils & Dust*   

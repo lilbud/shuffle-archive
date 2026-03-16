@@ -49,5 +49,3 @@ Finally (for now), we travel down under to check out the Nick Trovas Band. They�
 I hope you enjoyed this mini-tour. Personally, I find it fascinating how Bruce’s music resonates around the world in so many different ways, inspiring artists to uncover new elements and infuse new life into Bruce’s classics.
 
 We’ll do this again sometime… but not for a while. There are still a lot of great versions of less frequently covered songs to explore!
-
- 

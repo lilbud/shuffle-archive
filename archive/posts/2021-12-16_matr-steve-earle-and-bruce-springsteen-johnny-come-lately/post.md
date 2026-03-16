@@ -48,7 +48,7 @@ Take a listen to it below–to date, it’s the only known time Bruce has perfor
 February 6, 1998 (Sea Bright, NJ)
  February 6, 1998 (Sea Bright, NJ)
 
-**Johnny Come Lately
+**Johnny Come Lately**
 First performed:**  
 
 **Last performed:**

@@ -47,9 +47,7 @@ Although Bruce didn’t perform “Summertime Blues” with the E Street Band be
 July 28, 1978 (Miami, FL)
  September 1, 2016 (Washington, DC)
 
-**Summertime Blues
+**Summertime Blues**
 First performed:**  
 
 **Last performed:**
-
- 

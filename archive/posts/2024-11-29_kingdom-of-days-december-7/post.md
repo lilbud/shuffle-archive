@@ -169,5 +169,3 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 is in its home stretch of its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
-
- 

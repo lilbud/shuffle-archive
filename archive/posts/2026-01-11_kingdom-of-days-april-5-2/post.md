@@ -121,5 +121,3 @@ For the fourth show in a row, Bruce introduces a tour debut into his mostly stat
 [https://www.youtube.com/embed/N9QzxUWExDc?feature=oembed](https://www.youtube.com/embed/N9QzxUWExDc?feature=oembed)
 
 [https://www.youtube.com/embed/L91LYQt3s_k?feature=oembed](https://www.youtube.com/embed/L91LYQt3s_k?feature=oembed)
-
- 

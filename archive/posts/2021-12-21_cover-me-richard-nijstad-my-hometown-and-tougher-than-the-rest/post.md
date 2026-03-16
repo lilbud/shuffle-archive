@@ -33,5 +33,3 @@ Today, Richard is working on his own music, and he hopes to release two songs th
 For more of Richard’s music, follow him on or .
 
 [Facebook](https://www.facebook.com/richard.nijstad.9)[YouTube](https://www.youtube.com/user/Richardnijstad1971/videos)
-
- 

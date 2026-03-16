@@ -111,5 +111,3 @@ Bruce makes a guest appearance with John Fogerty at John’s show at the PNC Ban
 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/2006-0805-300x214.jpg?resize=758%2C540)
-
- 

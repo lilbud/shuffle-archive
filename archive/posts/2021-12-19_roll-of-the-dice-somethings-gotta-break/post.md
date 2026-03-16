@@ -82,7 +82,7 @@ Any takers?
 May 23, 1970 (Richmond, VA)
  June 13, 1970 (Bricktown, NJ)
 
-**Something’s Gotta Break
+**Something’s Gotta Break**
 Never recorded**  
 
 **Never released**  

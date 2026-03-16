@@ -92,7 +92,7 @@ May 31 – June 2, 1983
 
 
 
-**Drop on Down and Cover Me
+**Drop on Down and Cover Me**
 Recorded:**  
 
 **Never released**  

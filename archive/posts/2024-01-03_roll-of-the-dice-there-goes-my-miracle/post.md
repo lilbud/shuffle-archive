@@ -137,7 +137,7 @@ As much as I adore the entire album, I’m perfectly content for Bruce to omit t
  April 2019
  April 2019
 
-**There Goes My Miracle
+**There Goes My Miracle**
 Recorded:**  
 
 **Released:** *Western Stars*   

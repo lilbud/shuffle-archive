@@ -77,5 +77,3 @@ Bruce and the E Street Band team up with the Max Weinberg 7 on for a special hol
 **2002:** *Late Night with Conan O’Brien*
 
 [https://www.youtube.com/embed/jCfSu99bAqc?feature=oembed](https://www.youtube.com/embed/jCfSu99bAqc?feature=oembed)
-
- 

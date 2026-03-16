@@ -35,7 +35,7 @@ There’s a lot that I love about their performance that night, but I think my f
 October 1, 2004 (Philadelphia, PA)
  April 23, 2008 (New York City, NY)
 
-**People Have the Power
+**People Have the Power**
 First performed:**  
 
 **Last performed:**

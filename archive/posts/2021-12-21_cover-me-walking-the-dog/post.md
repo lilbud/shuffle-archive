@@ -62,5 +62,3 @@ December 11, 1971 (Asbury Park, NJ)
 **Walking the Dog**   
 **First performed:**   
 **Last performed:**
-
- 

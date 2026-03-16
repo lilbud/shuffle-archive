@@ -70,7 +70,7 @@ Never recorded and rarely performed, “Sister Theresa” is too atypical of Bru
 September 20, 1969 (Richmond, VA)
  1970 (exact date uncertain)
 
-**Sister Theresa
+**Sister Theresa**
 Never recorded**  
 
 **Never released**  

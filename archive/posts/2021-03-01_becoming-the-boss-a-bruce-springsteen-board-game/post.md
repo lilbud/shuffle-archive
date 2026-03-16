@@ -109,5 +109,3 @@ Which only leaves one lingering question in my mind: anyone up for a game?
 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/Presentation-FB-JAN2021-Black.png?resize=758%2C536&amp;ssl=1)
-
- 

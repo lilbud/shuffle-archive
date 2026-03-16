@@ -53,7 +53,7 @@ October 14, 1977
 
 
 
-**The Ballad
+**The Ballad**
 Recorded:**   
 
 **Never released**  

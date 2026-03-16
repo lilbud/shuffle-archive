@@ -80,7 +80,7 @@ Despite its frequent inclusion and rare tour absences, Bruce has never altered t
 , 1981 (London, England)
 August 24, 2023 (Foxborough, MA)
 
-**Trapped
+**Trapped**
 Never recorded in-studio
 Released (live):**   
 

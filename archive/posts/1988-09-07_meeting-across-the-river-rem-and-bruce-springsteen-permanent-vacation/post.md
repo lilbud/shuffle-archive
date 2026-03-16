@@ -1,0 +1,13 @@
+Seeing R.E.M. perform “Permanent Vacation” in concert had to be a thrill for the band’s fans–it’s an obscure pre-label rocker that the band hadn’t played for 20 years, before they unearthed it briefly in 2003.
+
+[https://www.youtube.com/embed/VJzXCdXXiA4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/VJzXCdXXiA4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+
+So hearing them play it with Bruce Springsteen on the Vote for Change Tour in 2004? That had to be a pretty amazing moment. Watch it below:
+
+[https://www.youtube.com/embed/ZfxMHXJZdnU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/ZfxMHXJZdnU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+
+**Permanent Vacation**
+First performed:** October 8, 2004 (Orlando, FL)  
+**Last performed:** October 8, 2004 (Orlando, FL)
+
+© April 20, 2018

@@ -13,7 +13,3 @@ Bassist Stanley Clarke and his band definitely took the latter route. From their
 *Find Out!* [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
 [https://www.youtube.com/embed/zgGtViqj-ps?feature=oembed](https://www.youtube.com/embed/zgGtViqj-ps?feature=oembed)
-
- 
-
- 

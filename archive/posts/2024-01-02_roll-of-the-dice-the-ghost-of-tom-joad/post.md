@@ -204,7 +204,7 @@ May 23, 1995 (1st version), August 2006 (2nd version), 2009 (3rd version), March
  October 28, 1995 (Mountain View, CA)
  May 13, 2021 (Colts Neck, NJ)
 
-**The Ghost of Tom Joad
+**The Ghost of Tom Joad**
 Recorded:**  
 
 **Released:** [(](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad* *The Essential Bruce Springsteen* *Sowing the Seeds**The People Speak* *High Hopes* *Chapter and Verse*  

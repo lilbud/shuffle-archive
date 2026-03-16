@@ -52,5 +52,3 @@ January 21, 1987 (New York City, NY)
 **Oh, Pretty Woman**  
 **First performed:**  
 **Last performed:**
-
- 

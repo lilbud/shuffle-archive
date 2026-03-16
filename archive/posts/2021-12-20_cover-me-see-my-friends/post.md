@@ -31,9 +31,7 @@ Still, it was a valiant effort that no doubt stretched the young band to new hei
 September 16, 1967 (Freehold, NJ)
  September 16, 1967 (Freehold, NJ)
 
-**See My Friends
+**See My Friends**
 First performed:**  
 
 **Last performed:**
-
- 

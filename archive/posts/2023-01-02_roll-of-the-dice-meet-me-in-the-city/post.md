@@ -197,7 +197,7 @@ June 14, 1979 (backing track), 2015 (vocals)
  December 19, 2015 (New York City, NY)
  July 28, 2016 (Oslo, Norway)
 
-**Meet Me in the City
+**Meet Me in the City**
 Recorded:**  
 
 **Released:** *The River: Outtakes*  

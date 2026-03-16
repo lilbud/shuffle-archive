@@ -31,7 +31,7 @@ Darlene’s vocals are as rich and powerful as ever, and Bruce looks like he’s
 October 25, 1976 (Philadelphia, PA)
  October 29, 2009 (New York City, NY)
 
-**A Fine Fine Boy (Girl)
+**A Fine Fine Boy (Girl)**
 First performed:**  
 
 **Last performed:**

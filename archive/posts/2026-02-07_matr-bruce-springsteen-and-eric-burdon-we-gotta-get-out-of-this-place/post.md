@@ -55,7 +55,7 @@ Bruce played an abbreviated acoustic version of “We Gotta Get Out of This Plac
 October 1965 (Marlboro, NJ)
  July 23, 2013 (Cardiff, Wales)
 
-**We Gotta Get Out of This Place
+**We Gotta Get Out of This Place**
 First performed:**  
 
 **Last performed:**

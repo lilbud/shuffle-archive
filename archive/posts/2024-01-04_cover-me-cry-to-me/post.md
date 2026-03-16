@@ -49,9 +49,7 @@ I can’t help but wonder why Bruce never gave it a proper concert outing, but k
 May 14, 1971 (Asbury Park, NJ)
  December 12, 1975 (Greenvale, NY) – soundcheck only
 
-**Cry to Me
+**Cry to Me**
 First performed:**  
 
 **Last performed:**
-
- 

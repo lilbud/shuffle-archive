@@ -42,7 +42,7 @@ In 1979, during the recording sessions for what would become , Bruce pulled “I
 
 
 
-*No, I don’t know, I don’t know, I don’t I just can’t understand it
+**No, I don’t know, I don’t know, I don’t I just can’t understand it**
 You’re not pretty at all
 But I come when you whisper
 I run when you call
@@ -73,7 +73,7 @@ May 31, 1979
 : April 20, 1999 (Milan)
 : May 14, 2016 (Barcelona)
 
-**I Wanna Be With You
+**I Wanna Be With You**
 Recorded:**   
 
 **Released***Tracks* *18 Tracks*   

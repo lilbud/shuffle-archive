@@ -51,5 +51,3 @@ Another bonus: Steve joined Jackson for a duet of “I am a Patriot,” which ri
 [https://www.youtube.com/embed/Cu0PuFnEhOY?feature=oembed](https://www.youtube.com/embed/Cu0PuFnEhOY?feature=oembed)
 
 In all, Bruce was on-stage for about a half-hour (not bad for a “bonus” show), and I got to hear him play three songs I’d never heard perform live before, with performers I’d have been happy to see solo. It remains my only surprise Bruce appearance (in concert, anyway) to date.
-
- 

@@ -103,5 +103,3 @@ And in the last hour before Release Day, Apple Music’s Zane Lowe interviews Br
 Bruce and the E Street Band rehearse at Sirius XM Studio in New York City for their appearance on the following day.
 
 **2024:** *The Howard Stern Show*
-
- 

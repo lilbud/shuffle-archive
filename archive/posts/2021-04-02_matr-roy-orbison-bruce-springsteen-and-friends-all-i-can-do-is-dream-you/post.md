@@ -39,7 +39,7 @@ After the show ended that night, Roy brought the band back to the stage to film 
 September 30, 1987 (Los Angeles, CA)
  September 30, 1987 (Los Angeles, CA)
 
-**(All I Can Do Is) Dream You
+**(All I Can Do Is) Dream You**
 First performed:**  
 
 **Last performed:**

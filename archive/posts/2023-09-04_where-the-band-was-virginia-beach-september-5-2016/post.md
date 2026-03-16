@@ -87,5 +87,3 @@ Bruce closed the show with an acoustic “This Hard Land,” capping off a terri
 I caught three hours of sleep, and then set off for the five-hour drive to my office to put in a full work day. From here, it was a into the tour’s home stretch. I had tickets for both Philly shows later that week, but I couldn’t imagine a show–even in Philly–that could top this one.
 
 I really have to work on broadening my imagination.
-
- 

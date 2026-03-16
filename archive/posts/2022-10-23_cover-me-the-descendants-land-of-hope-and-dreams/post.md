@@ -17,5 +17,3 @@ And when it comes to covers, they don’t get more inspirational than Bruce Spri
 [https://www.youtube.com/embed/ofXAxQ8Dsmc?feature=oembed](https://www.youtube.com/embed/ofXAxQ8Dsmc?feature=oembed)
 
 Their version (recorded live) starts simply and acoustically, but just past the halfway point the song opens up, and the band takes off and never looks back. It’s a fine addition to the collection of covers of one of Bruce’s very best songs.
-
- 

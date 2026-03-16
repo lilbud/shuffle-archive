@@ -69,7 +69,7 @@ Here’s that performance Eddie alluded to in that interview, from Eddie and Bru
 March 21, 1976 (Asbury Park, NJ)
  October 26, 2025 (Asbury Park, NJ)
 
-**Raise Your Hand
+**Raise Your Hand**
 First performed:**  
 
 **Last performed:**

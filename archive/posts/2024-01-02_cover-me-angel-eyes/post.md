@@ -45,9 +45,7 @@ Thanks to friend of the blog Bill Anderson for pointing me to a May 2000 intervi
 November 19, 1995 (Los Angeles, CA)
 November 19, 1995 (Los Angeles, CA)
 
-**Angel Eyes
+**Angel Eyes**
 First performed:**   
 
 **Last performed:**
-
- 

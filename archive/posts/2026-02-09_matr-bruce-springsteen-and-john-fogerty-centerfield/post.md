@@ -37,7 +37,7 @@ When asked for his reaction to the news in an interview at the time, Fogerty dea
 October 1, 2004 (Philadelphia, PA)
  October 13, 2004 (East Rutherford, NJ)
 
-**Centerfield
+**Centerfield**
 First performed:**  
 
 **Last performed:**

@@ -77,7 +77,7 @@ The title “Fugitive’s Dream” conditions us to expect a more black-and-whit
 March 24, 1983
  (2025)
 
-**Fugitive’s Dream
+**Fugitive’s Dream**
 Recorded:**  
 
 **Released:** *L.A. Garage Sessions ’83*  

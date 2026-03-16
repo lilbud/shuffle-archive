@@ -67,5 +67,3 @@ Bruce calls into on E Street Radio to mark the show’s tenth anniversary, broad
 That evening, continues its limited return engagement at the St. James Theater in New York City.
 
 *Springsteen on Broadway*
-
- 

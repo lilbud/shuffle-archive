@@ -196,7 +196,7 @@ Autumn 1977 – April 1980
 uly 7, 1978 (Los Angeles, CA)
  August 23, 2016 (East Rutherford, NJ)
 
-**Independence Day
+**Independence Day**
 Recorded:**  
 
 **Released:** *The River*   

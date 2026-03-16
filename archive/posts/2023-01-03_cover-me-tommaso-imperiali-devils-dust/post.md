@@ -27,5 +27,3 @@ Tommaso recorded that performance in May. The final live competition was in late
 [https://videopress.com/embed/eBLCrkyA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/eBLCrkyA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 With consecutive third-place finishes to his credit, Tommaso is clearly an artist to watch. I’m looking forward to seeing if he can capture top honors next year!
-
- 

@@ -37,9 +37,7 @@ That one’s coming soon.
 November 26, 1976 (New York City, NY)
  November 26, 1976 (New York City, NY)
 
-**Free Money
+**Free Money**
 First performed:**  
 
 **Last performed:**
-
- 

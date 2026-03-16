@@ -85,7 +85,7 @@ January 21 and May 18, 2006
  May 10, 2006 (Paris, France)
  November 14, 2006 (Sheffield, England)
 
-**Bring ‘Em Home
+**Bring ‘Em Home**
 Recorded:**  
 
 **Released:***Bring ‘Em Home*   

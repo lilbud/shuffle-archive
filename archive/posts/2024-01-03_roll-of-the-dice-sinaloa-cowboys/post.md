@@ -129,7 +129,7 @@ March-August, 1995
  October 28, 1995 (Mountain View, CA)
  October 20, 2005 (Worcester, MA)
 
-**Sinaloa Cowboys
+**Sinaloa Cowboys**
 Recorded:**  
 
 **Released:** *The Ghost of Tom Joad*   

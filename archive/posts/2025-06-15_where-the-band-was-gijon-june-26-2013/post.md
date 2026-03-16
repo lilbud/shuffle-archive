@@ -75,5 +75,3 @@ The rest of the encore was relatively standard but joyous as always. Bruce had o
 We relived the show on the long drive home, amazed at what we had just seen. For two of my friends, it was their first Springsteen show. For the other two of us–well, we couldn’t do the math in our heads. But all around, we knew we had just seen a very special show.
 
 I still look back on this show and marvel at the fact that I was there. And every time I listen to the show, I’m glad I was.
-
- 

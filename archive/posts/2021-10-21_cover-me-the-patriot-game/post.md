@@ -33,9 +33,7 @@ It was probably too obscure to make the main set, but Bruce’s performance of �
 May 17, 2005 (Upper Darby, PA) – soundcheck only
  May 17, 2005 (Upper Darby, PA) – soundcheck only
 
-**The Patriot Game
+**The Patriot Game**
 First performed:**  
 
 **Last performed:**
-
- 

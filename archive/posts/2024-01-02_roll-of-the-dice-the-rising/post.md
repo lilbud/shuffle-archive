@@ -200,7 +200,7 @@ February-March 2002
  July 25, 2002 (Asbury Park, NJ)
  September 3, 2023 (East Rutherford, NJ)
 
-**The Rising
+**The Rising**
 Recorded:**  
 
 **Released:***The Rising**The Essential Bruce Springsteen**Chapter and Verse*  

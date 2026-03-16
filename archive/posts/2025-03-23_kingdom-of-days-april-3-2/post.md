@@ -133,5 +133,3 @@ Another tour premiere for New York fans: Bruce surprises with “” at Barclays
 [https://www.youtube.com/embed/kau7-97Jfsc?feature=oembed](https://www.youtube.com/embed/kau7-97Jfsc?feature=oembed)
 
 [https://www.youtube.com/embed/SqarsPK_Cvs?feature=oembed](https://www.youtube.com/embed/SqarsPK_Cvs?feature=oembed)
-
- 

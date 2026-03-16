@@ -196,7 +196,7 @@ Unknown
  April 2019 (Colts Neck, NJ)
  April 2019 (Colts Neck, NJ)
 
-**Western Stars
+**Western Stars**
 Recorded:**  
 
 **Released:** *Western Stars*   

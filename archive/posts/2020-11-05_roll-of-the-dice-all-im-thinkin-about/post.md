@@ -125,7 +125,7 @@ It's been fifteen years since Bruce played it last, however; he seems to be thin
 
 I guess he's worked "All I'm Thinkin' About" out of his system.
 
-**All I'm Thinkin' About
+**All I'm Thinkin' About**
 **Recorded:** 1997-2004
 **Released:** *Devils & Dust* (2005)
 **First performed:** April 30, 2005 (Glendale, AZ)

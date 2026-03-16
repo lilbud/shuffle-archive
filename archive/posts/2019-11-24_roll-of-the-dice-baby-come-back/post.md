@@ -17,7 +17,7 @@ Lyrically and musically, however, “Baby Come Back” appears to be a true cast
 February-March 1979 (demo)
 N/A
 
-**Baby Come Back
+**Baby Come Back**
 Recorded:**   
 
 **Released:**   

@@ -57,9 +57,7 @@ Let’s do this.
 January 18, 1989 (New York City, NY)
  January 18, 1989 (New York City, NY)
 
-**River Deep-Mountain High
+**River Deep-Mountain High**
 First performed:**  
 
 **Last performed:**
-
- 

@@ -19,5 +19,3 @@ Make sure you watch all the way through–the final three minutes are a stunning
 Molly is more than just a great cover artist–she’s got three albums of her own original material as well. Check them out and learn more .
 
 [here](https://www.mollyhealey.com/)
-
- 

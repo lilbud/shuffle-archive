@@ -77,7 +77,7 @@ Bruce never recorded his adaptation of , but he did include some margin notes (f
 
 
 
-**Mississippi
+**Mississippi**
 Never recorded**  
 
 **Never released**  

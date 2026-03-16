@@ -119,7 +119,7 @@ March-August 1995
  November 21, 1995 (New Brunswick, NJ)
  September 25, 2009 (New York City, NY)
 
-**Galveston Bay
+**Galveston Bay**
 Recorded:**  
 
 **Released:***The Ghost of Tom Joad*   

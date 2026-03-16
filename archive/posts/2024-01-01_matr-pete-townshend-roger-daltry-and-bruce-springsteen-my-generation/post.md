@@ -21,7 +21,7 @@ Bonus footage: One minute of pro-shot footage from 2009, where Bruce and the E S
 September 30, 1967 (Freehold, NJ)
  May 28, 2015 (New York City, NY)
 
-**My Generation
+**My Generation**
 First performed:**  
 
 **Last performed:**

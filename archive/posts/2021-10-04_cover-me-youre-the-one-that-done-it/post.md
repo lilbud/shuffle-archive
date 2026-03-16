@@ -22,6 +22,6 @@ Take a listen to this delightful one-off cover of an early rockabilly shoulda-be
 
 [Watch Video Highlight](https://videopress.com/embed/farXoZZP)
 
-**You're The One That Done It
+**You're The One That Done It**
 **First performed:** March 23, 1988 (Atlanta, GA – soundcheck only)
 **Last performed:** March 23, 1988 (Atlanta, GA – soundcheck only)

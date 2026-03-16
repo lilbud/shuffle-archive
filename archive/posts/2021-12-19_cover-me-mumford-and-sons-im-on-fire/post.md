@@ -21,5 +21,3 @@ The band absolutely the pacing and the temperature, keeping the song at a slowly
 *nails*
 
 Honestly, I’m not a huge Mumford & Sons fan, but this particular performance of “I’m on Fire” has immediately become one of my favorites among a sea of covers of this particular song.
-
- 

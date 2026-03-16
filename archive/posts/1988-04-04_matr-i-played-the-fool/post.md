@@ -1,0 +1,23 @@
+The Stone Pony first opened its doors in early 1974, and The Blackberry Booze Band was its first house band.
+
+Led by Southside Johnny and Steve Van Zandt, the B.B.B. built a following and refined their sound, eventually becoming the band we now know as Southside Johnny and the Asbury Jukes.
+
+Twenty years later, the legendary Asbury Park club invited their original band back to celebrate their platinum anniversary, and Southside brought along some friends as well: Jon Bon Jovi, Max Weinberg, Patti Scialfa, and Bruce Springsteen were all on hand for the occasion.
+
+The all-star set kicked off with “I Played the Fool,” and although the sound quality is rough, it’s the only recording we have of Bruce performing the song.
+
+[https://www.youtube.com/embed/ytSVHBMmYqg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/ytSVHBMmYqg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+
+“I Played the Fool” was written by Steve Van Zandt, along with most of the songs on Southside’s classic *Hearts of Stone* album. Never released as a single, it’s nevertheless a very strong track on an exceptionally strong album, as well as a horn-fueled crowd-pleaser when performed live.
+
+[https://www.youtube.com/embed/HmAi_1d1MJM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/HmAi_1d1MJM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+
+**Bonus:** Although the 1994 performance above is the only one in which Bruce’s vocals can be heard, he did in fact play “I Played the Fool” one other time, at a benefit show in 1998. For that performance, however, Bruce’s contribution was strictly on guitar, with Steve and Southside sharing the vocals. Still, it’s a great performance and a much clearer listen–hear for yourself below.
+
+[https://www.youtube.com/embed/yXHBxZVvT5E?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/yXHBxZVvT5E?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+
+**I Played the Fool**  
+**First performed:** July 16, 1994 (Asbury Park, NJ)  
+**Last performed:** January 31, 1998 (Red Bank, NJ)
+
+© April 4, 2019

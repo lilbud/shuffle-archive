@@ -93,5 +93,3 @@ Bruce spends the weekend at the Ham Yard Hotel in London. speaking to print and 
 Bruce is interviewed by Chris Jordan of the for his upcoming album and film. The interview will be published in two weeks.
 
 **2020:** *Asbury Park Press*
-
- 

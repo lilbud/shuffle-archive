@@ -58,5 +58,3 @@ April 12, 1995 (New York City, NY)
 **Mystery Train**  
 **First performed:**  
 **Last performed:**
-
- 

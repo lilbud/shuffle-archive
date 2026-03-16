@@ -25,5 +25,3 @@ I know we all have to be thoughtful about how we support our families, communiti
 [here](https://www.gofundme.com/f/antivirus-rock-strikes-corona?utm_source=customer&utm_medium=copy_link-tip&utm_campaign=p_cp+share-sheet)
 
 Thanks for the music and your activism, Sebastiano–stay healthy, and best of luck with your project!
-
- 

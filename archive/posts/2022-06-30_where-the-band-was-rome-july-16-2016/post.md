@@ -73,5 +73,3 @@ After Bruce closed with a lovely acoustic “Thunder Road,” my friend Steve an
 If you told me I’d hear Bruce and the band play that song in the next two months, I’d never have believed you. But those are stories for other days.
 
 *five more times*
-
- 

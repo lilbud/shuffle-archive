@@ -29,5 +29,3 @@ And if we needed any more encouragement before heading out into the night, we go
 *just* [People Have the Power](http://estreetshuffle.com/index.php/2020/01/09/matr-patti-smith-bruce-springsteen-and-michael-stipe-people-have-the-power/)
 
 Before they launched into the song, Bruce asked the Chicks (with a twinkle in his eye), “You girls aren’t starting any trouble tonight, are you?” — referring of course, to their famous on-stage criticism of President Bush at their show in Texas earlier that year, and the backlash it created. There couldn’t have been a more perfect song for them to join in on.
-
- 

@@ -13,5 +13,3 @@ From her album , here’s Maria McKee’s beautiful cover of “.”
 *Live – Acoustic Tour 2006*[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
 
 [https://www.youtube.com/embed/MgwObTsSebY?feature=oembed](https://www.youtube.com/embed/MgwObTsSebY?feature=oembed)
-
- 

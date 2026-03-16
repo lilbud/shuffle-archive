@@ -212,7 +212,7 @@ Late 1979 – Early 1980
  July 7, 1978 (West Hollywood, CA)
  July 28, 2016 (Oslo, Norway)
 
-**Point Blank
+**Point Blank**
 Recorded:**  
 
 **Released:** *The River*   

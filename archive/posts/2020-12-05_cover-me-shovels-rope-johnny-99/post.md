@@ -29,5 +29,3 @@ And that last verse… how I always imagined Johnny 99 in that courtroom in the 
 *that’s*
 
 A powerful, well-done cover.
-
- 

@@ -23,5 +23,3 @@ Not many fans would rank “” very high in Bruce’s catalog, but if Bruce had
 That’s a seriously good arrangement and performance–so much so that it I wish Bruce would give it a go in concert next time around.
 
 If anyone has any other information about this band, I’d love to know.
-
- 

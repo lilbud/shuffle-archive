@@ -196,7 +196,7 @@ During his home demo recording sessions for (probably not long before the band r
 January 29, 1973 (solo), November 2019 (band)
  (2020)
 
-**Janey Needs a Shooter
+**Janey Needs a Shooter**
 Recorded:**  
 
 **Released:***Letter to You*   

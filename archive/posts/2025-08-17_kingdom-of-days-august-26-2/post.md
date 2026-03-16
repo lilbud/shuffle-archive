@@ -123,5 +123,3 @@ Bruce and the E Street Band play their second of two shows at Gillette Stadium i
 [https://www.youtube.com/embed/YFAvCqHqE2M?feature=oembed](https://www.youtube.com/embed/YFAvCqHqE2M?feature=oembed)
 
 [https://www.youtube.com/embed/IWUxRCAsm-U?feature=oembed](https://www.youtube.com/embed/IWUxRCAsm-U?feature=oembed)
-
- 

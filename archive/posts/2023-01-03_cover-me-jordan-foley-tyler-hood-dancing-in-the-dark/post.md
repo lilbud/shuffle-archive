@@ -21,5 +21,3 @@ Foley is a folk-Americana singer-songwriter based in Orlando, and we can clearly
 If you’re in the Orlando area, Jordan and Tyler are (yes, now), so if you’re vaccinated and missing live music, there’s a chance you might even be able to see them perform this terrific cover live.
 
 [on tour now](https://www.jordanfoleymusic.com/tour)
-
- 

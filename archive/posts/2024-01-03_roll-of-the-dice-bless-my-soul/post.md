@@ -33,7 +33,7 @@ If you enjoyed this track, stay tuned for more Bruce Springsteen Band performanc
 November 13, 1971 (Asbury Park, NJ)
  February 26, 1972 (Richmond, VA)
 
-**Bless My Soul
+**Bless My Soul**
 First performed:**  
 
 **Last performed:**

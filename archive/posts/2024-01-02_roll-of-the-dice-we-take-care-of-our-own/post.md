@@ -144,7 +144,7 @@ In a stripped-down arrangement with warm vocals, the full plaintive power of the
  February 10, 2012 (Los Angeles, CA)
  June 22, 2016 (Copenhagen, Denmark)
 
-**We Take Care of Our Own
+**We Take Care of Our Own**
 Recorded:**  
 
 **Released:** *Wrecking Ball*  

@@ -73,7 +73,7 @@ Hearing the song for the first time in concert, did his fans understand the true
 September 19, 1996 (Providence, RI)
  May 10, 1997 (Warsaw, Poland)
 
-**There Will Never Be Any Other for Me But You
+**There Will Never Be Any Other for Me But You**
 Never recorded**  
 
 **Never released**  

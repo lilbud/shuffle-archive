@@ -17,5 +17,3 @@ And then there’s her cover of Bruce’s “.” It’s not the most interestin
 [Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/)
 
 [https://www.youtube.com/embed/suTLLHbZgT4?feature=oembed](https://www.youtube.com/embed/suTLLHbZgT4?feature=oembed)
-
- 

@@ -23,9 +23,7 @@ Bruce concluded with a fond “Lord bless you, George!” before launching into 
 December 3, 2001 (Asbury Park, NJ)
  December 3, 2001 (Asbury Park, NJ)
 
-**My Sweet Lord
+**My Sweet Lord**
 First performed:**  
 
 **Last performed:**
-
- 

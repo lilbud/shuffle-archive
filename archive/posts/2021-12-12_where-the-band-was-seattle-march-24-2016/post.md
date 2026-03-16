@@ -35,5 +35,3 @@ Or maybe seven.
 [https://www.youtube.com/embed/rIq7IEarilU?feature=oembed](https://www.youtube.com/embed/rIq7IEarilU?feature=oembed)
 
 [https://www.youtube.com/embed/TuyXZLdfSCQ?feature=oembed](https://www.youtube.com/embed/TuyXZLdfSCQ?feature=oembed)
-
- 

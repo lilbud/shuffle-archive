@@ -134,7 +134,7 @@ January 12, 1995
  August 4, 1999 (East Rutherford, NJ)
  February 14, 2017 (Brisbane, Australia)
 
-**Back in Your Arms
+**Back in Your Arms**
 Recorded:**  
 
 **Released:** *Tracks*   
@@ -144,5 +144,3 @@ Recorded:**
 Looking for your favorite Bruce song? Check our . New entries every week!
 
 [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
-
- 

@@ -150,4 +150,4 @@ Bruce continues his promotional book tour, stopping at 2nd & Charles in Kennesaw
 
 Bruce’s scheduled show in San Diego is postponed to the following March due to his peptic ulcer disease.
 
-**2023:** 
+**2023:**

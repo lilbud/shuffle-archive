@@ -67,5 +67,3 @@ Bruce sent us off into the night with his by now traditional show closers of “
 [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Dream Baby Dream](http://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)
 
 Bruce’s three-night stand in the Pacific Northwest was everything we could have asked for and more, with 46 unique songs and each show bringing me personal premieres and delights I couldn’t have ever predicted. I’ve had individual shows over the years that I’d rank higher than these, but this is probably my favorite consecutive run.
-
- 

@@ -131,7 +131,7 @@ June 26-27, 1972
  May 2, 1972 (New York City, NY)
  May 22, 2014 (Pittsburgh, PA)
 
-**Mary Queen of Arkansas
+**Mary Queen of Arkansas**
 Recorded:**  
 
 **Released:** *Greetings From Asbury Park, N.J.*  

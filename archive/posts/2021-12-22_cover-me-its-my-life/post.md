@@ -53,9 +53,7 @@ After a final outing on October 1, 1978 that capped 88 performances of the song,
 December 12, 1975 (Greenvale, NY)
  October 1, 1978 (Atlanta, GA)
 
-**It’s My Life
+**It’s My Life**
 First performed:**  
 
 **Last performed:**
-
- 

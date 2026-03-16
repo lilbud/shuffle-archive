@@ -43,7 +43,7 @@ I’d bet on that number getting a lot higher.
 December 31, 1982 (New York City, NY)
  February 25, 2017 (Auckland, New Zealand)
 
-**Shout
+**Shout**
 First performed:**  
 
 **Last performed:**

@@ -23,5 +23,3 @@ One of my favorite tracks is Billy Bragg’s Fats Domino-inspired arrangement of
 “Mansion on the Hill” is a song steeped in nostalgia, and it’s a tough song to play uptempo without losing that. Bragg figured out a way to do it, though, rooting his band arrangement in the sound of popular music from the time Bruce writes about in the song.
 
 It’s a brilliant concept, and Bragg and The Blokes execute it perfectly.
-
- 

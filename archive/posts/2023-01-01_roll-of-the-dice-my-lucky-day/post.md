@@ -109,7 +109,7 @@ early 2008
 March 23, 2009 (Asbury Park, NJ)
 June 25, 2016 (Gothenburg, Sweden)
 
-**My Lucky Day
+**My Lucky Day**
 Recorded:**  
 
 **Released:** *My Lucky Day* *Working on a Dream**The Essential Bruce Springsteen, 2nd Edition*   

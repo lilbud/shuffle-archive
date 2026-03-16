@@ -21,5 +21,3 @@ We should give Rhonda props, though. This was 1978 after all, when Springsteen c
 For that reason alone, it never quite disappears, surfacing from time to time on tribute albums and cover compilations. So if you want to chase down the original studio track, it’s out there… or you can just listen to it below.
 
 [https://www.youtube.com/embed/D-Sjv-sAhT8?feature=oembed](https://www.youtube.com/embed/D-Sjv-sAhT8?feature=oembed)
-
- 

@@ -149,7 +149,7 @@ June 1, 1977
  August 1, 1976 (Red Bank, NJ)
  September 3, 2023 (East Rutherford, NJ)
 
-**Something in the Night
+**Something in the Night**
 Recorded:**  
 
 **Released:** *Darkness on the Edge of Town*   

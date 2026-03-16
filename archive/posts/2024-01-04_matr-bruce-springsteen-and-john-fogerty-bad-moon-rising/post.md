@@ -49,9 +49,7 @@ Bruce has covered more of John Fogerty’s songs than he has practically any oth
 October 31, 1987 (Sea Bright, NJ)
  July 24, 2013 (Leeds, England)
 
-**Bad Moon Rising
+**Bad Moon Rising**
 First performed:**  
 
 **Last performed:**
-
- 

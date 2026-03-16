@@ -37,9 +37,7 @@ To this day, we’ve never heard Bruce perform this immortal classic in concert,
 March 23, 1993 (Red Bank, NJ) (soundcheck only)
  March 23, 1993 (Red Bank, NJ) (soundcheck only)
 
-**Warm and Tender Love
+**Warm and Tender Love**
 First performed:**  
 
 **Last performed:**
-
- 

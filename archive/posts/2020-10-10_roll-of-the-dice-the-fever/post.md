@@ -175,7 +175,7 @@ May 16, 1973
  March 15, 1973 (Boston, MA)
  July 6, 2019 (Asbury Park, NJ)
 
-**The Fever
+**The Fever**
 Recorded:**  
 
 **Released:** *18 Tracks*  

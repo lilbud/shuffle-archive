@@ -76,3 +76,7 @@
 
 # 2026-01-15
 - All posts in `archive/` have gotten a first cleanup pass. See `fixes.md` for an incomplete list of fixes applied. These fixes are largely removing unneeded elements/item attributes. As well as replacing elements like `iframe` with direct video links.
+
+# 2026-03-15
+- Fixed issue in `get_latest.py` where the request was timing out and failing to find posts that were present. With how many posts are updated each day, and more importantly removed, this is important. Timeout has been disabled for the time being.
+- All articles in `posts_json` have been converted to markdown and copied to the `archive/posts` directory. Additionally, fixed lines which were formatted incorrectly. Many files likely have broken formatting due to Ken's archiving practices. These will be fixed over time, eventually.

@@ -81,5 +81,3 @@ Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn
 [https://www.youtube.com/embed/07MFGBvHiEk?feature=oembed](https://www.youtube.com/embed/07MFGBvHiEk?feature=oembed)
 
 [https://www.youtube.com/embed/G_E1Q3un3iY?feature=oembed](https://www.youtube.com/embed/G_E1Q3un3iY?feature=oembed)
-
- 

@@ -23,5 +23,3 @@ Interestingly, though, the setlist archive indicates that John opened the show w
 [Not Fade Away](https://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/)
 
 Regardless of where it was, though, Jon gave a lovely and faithful performance of the song that night, and it’s a worthy addition to the vast catalog of Springsteen covers.
-
- 

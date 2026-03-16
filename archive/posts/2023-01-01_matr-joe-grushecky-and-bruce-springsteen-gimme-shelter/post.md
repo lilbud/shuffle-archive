@@ -39,7 +39,7 @@ And Merry Clayton happens to be one of the singers featured in the outstanding 2
 October 21, 1995 (Pittsburgh, PA)
 October 21, 1995 (Pittsburgh, PA)
 
-**Gimme Shelter
+**Gimme Shelter**
 First performed:**   
 
-**Last performed:** 
+**Last performed:**

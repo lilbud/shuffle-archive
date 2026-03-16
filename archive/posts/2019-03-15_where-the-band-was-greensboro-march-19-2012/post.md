@@ -23,5 +23,3 @@ The band was more comfortable and confident on Night Two of the tour, and the se
 [https://www.youtube.com/embed/omeJXzAHtTQ?feature=oembed](https://www.youtube.com/embed/omeJXzAHtTQ?feature=oembed)
 
 [https://www.youtube.com/embed/iEWmlk5mmEI?feature=oembed](https://www.youtube.com/embed/iEWmlk5mmEI?feature=oembed)
-
- 

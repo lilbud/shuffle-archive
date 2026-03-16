@@ -169,7 +169,7 @@ We certainly need the reminder.
  June 22, 2006 (New York City, NY)
  May 29, 2020 (Boston, MA)
 
-**American Land
+**American Land**
 Recorded:**  
 
 **Released:**[](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*We Shall Overcome: The Seeger Sessions: American Land Edition* [](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*   

@@ -27,7 +27,7 @@ It’s never been heard from since.
 September 30, 1978 (Atlanta, GA)
  September 30, 1978 (Atlanta, GA)
 
-**Night Train
+**Night Train**
 First performed:**  
 
 **Last performed:**

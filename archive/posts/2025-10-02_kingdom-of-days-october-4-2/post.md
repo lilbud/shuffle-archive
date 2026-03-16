@@ -156,4 +156,4 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 
 Bruce takes his daughter Jessica to see Bleachers at Madison Square Garden but doesn’t make a guest appearance on stage.
 
-**2024:** 
+**2024:**

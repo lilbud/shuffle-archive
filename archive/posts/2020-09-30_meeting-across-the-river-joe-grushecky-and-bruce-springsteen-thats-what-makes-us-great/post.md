@@ -13,5 +13,3 @@ Written by Joe around the time Trump took office, “That’s What Makes Us Grea
 Bruce recorded his vocals from his home studios and e-mailed them to Joe. The result: the pointed, defiant resistance anthem below.
 
 [https://www.youtube.com/embed/zZ24d71EfLY?feature=oembed](https://www.youtube.com/embed/zZ24d71EfLY?feature=oembed)
-
- 

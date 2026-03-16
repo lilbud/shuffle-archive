@@ -33,7 +33,7 @@ This year has been short on live performances by anyone, but Bruce and Joe manag
 August 20, 1994 (Long Branch, NJ)
  January 18, 2020 (Asbury Park, NJ)
 
-**Never Be Enough Time
+**Never Be Enough Time**
 First performed:**  
 
 **Last performed:**

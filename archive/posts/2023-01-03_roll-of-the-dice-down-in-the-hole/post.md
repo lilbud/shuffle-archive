@@ -86,7 +86,7 @@ Regardless of the reason, it’s effective–it keeps us at a distance and then 
 2002, 2013
  (2014)
 
-**Down in the Hole
+**Down in the Hole**
 Recorded:**  
 
 **Released:***High Hopes*   

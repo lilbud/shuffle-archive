@@ -44,7 +44,7 @@ August 1977
 
 
 
-**Crazy Rocker
+**Crazy Rocker**
 Recorded:**  
 
 **Never released**  

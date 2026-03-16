@@ -73,5 +73,3 @@ Little Steven and Soozie Tyrell are back in action in Houston, but COVID-19 cont
 As another love letter to his fans, Bruce announces a second American leg of the tour earlier in the day. (Unfortunately, the vast majority of newly announced dates will end up postponed to the following year due to illness.)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Valley_Morning_Star_Wed__Feb_15__2023_.jpg?resize=758%2C935&amp;ssl=1)
-
- 

@@ -141,5 +141,3 @@ Bruce cancels his third consecutive show due to an undisclosed illness. His show
 **2023:**
 
 [https://www.youtube.com/embed/A5ODsZX-16U?feature=oembed](https://www.youtube.com/embed/A5ODsZX-16U?feature=oembed)
-
- 

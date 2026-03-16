@@ -39,5 +39,3 @@ It was a heck of an opener–and the show would only grow in size and power from
 [https://www.youtube.com/embed/HwPKghvYNs8?feature=oembed](https://www.youtube.com/embed/HwPKghvYNs8?feature=oembed)
 
 [https://www.youtube.com/embed/-DUivBvLUWk?feature=oembed](https://www.youtube.com/embed/-DUivBvLUWk?feature=oembed)
-
- 

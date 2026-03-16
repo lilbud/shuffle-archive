@@ -25,7 +25,7 @@ Bruce’s backing vocals, wails, and call-and-response are prominent throughout 
 February 2004
 (2004)
 
-**Can’t Teach an Old Dog New Tricks
+**Can’t Teach an Old Dog New Tricks**
 Recorded:**  
 
 **Released:** *Back in 20*   

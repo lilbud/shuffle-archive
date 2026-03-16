@@ -81,5 +81,3 @@ Bruce and Patti chair the U.S. Equestrian Team Foundation’s fundraising gala. 
 Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. The opening block of the setlist is now firmly in place.
 
 **2023:**
-
- 

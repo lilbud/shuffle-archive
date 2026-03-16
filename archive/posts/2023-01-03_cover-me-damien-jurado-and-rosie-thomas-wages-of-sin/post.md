@@ -25,5 +25,3 @@ Heck, even the cover is a deep cut: it’s a bonus track on a tribute compilatio
 I’ve always thought that “Wages of Sin” felt like a dance between two wary lovers, circling each other across a widening gulf of emotional distance and distrust. Damien and Rosie’s duet dials directly into that sentiment, their interwoven vocals drawing us into their heartache more potently than a single voice can accomplish, even when that voice is Bruce’s.
 
 It’s a beautiful cover of a undeservedly overlooked song.
-
- 

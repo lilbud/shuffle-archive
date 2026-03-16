@@ -121,7 +121,7 @@ October 14, 1977, 1998
  November 26, 1988 (San Francisco, CA)
  January 17, 2015 (Asbury Park, NJ)
 
-**Hearts of Stone
+**Hearts of Stone**
 Recorded:**  
 
 **Released:** *Hearts of Stone* *Tracks*   

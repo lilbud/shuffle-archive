@@ -15,5 +15,3 @@ Well, wonder no longer. because this delightful cover by Liverpool band Town Bik
 [https://www.youtube.com/embed/lEZj_4tlDSA?feature=oembed](https://www.youtube.com/embed/lEZj_4tlDSA?feature=oembed)
 
 Kudos to Town Bike for realizing that “Radio Nowhere” was always a punk rocker at heart.
-
- 

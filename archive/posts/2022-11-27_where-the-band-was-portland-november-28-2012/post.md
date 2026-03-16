@@ -63,5 +63,3 @@ As the show came to a close with “” and a final “,” I recall musing abou
 [Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
 [https://www.youtube.com/embed/sZoClPOdHv8?feature=oembed](https://www.youtube.com/embed/sZoClPOdHv8?feature=oembed)
-
- 

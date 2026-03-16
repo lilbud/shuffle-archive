@@ -80,7 +80,7 @@ January 12, 1984
  July 12, 1984 (East Troy, WI)
  July 28, 2013 (Kilkenny, Ireland)
 
-**Man at the Top
+**Man at the Top**
 Recorded:**  
 
 **Released:***Tracks*  

@@ -19,5 +19,3 @@ One of the many, many bands to take to the Internet during the great pandemic of
 The guys do a terrific job honoring the original arrangement of “Atlantic City” while making it their own. I’ll be keeping an eye out for future covers.
 
 *Nebraska*
-
- 

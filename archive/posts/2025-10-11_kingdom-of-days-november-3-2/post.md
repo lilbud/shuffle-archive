@@ -183,5 +183,3 @@ Bruce kicks off his concert in Toronto with “” the first time that song has 
 [https://www.youtube.com/embed/Ax-wnSj2p_c?feature=oembed](https://www.youtube.com/embed/Ax-wnSj2p_c?feature=oembed)
 
 [https://www.youtube.com/embed/fooO4a8rPQA?feature=oembed](https://www.youtube.com/embed/fooO4a8rPQA?feature=oembed)
-
- 

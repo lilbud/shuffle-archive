@@ -73,7 +73,7 @@ Bruce has never performed “Stray Bullet” in concert, and it’s unclear whet
 February 24, March 9, and April 10, 1980 (it’s unclear from which session this take originates)
 : (2015)
 
-**Stray Bullet
+**Stray Bullet**
 Recorded:**   
 
 **Released***The River: Outtakes*   

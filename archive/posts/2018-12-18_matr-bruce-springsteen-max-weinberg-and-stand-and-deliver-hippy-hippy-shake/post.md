@@ -23,4 +23,4 @@ August 26, 1994 (Westfield, NJ)
 
 **Hippy Hippy Shake**   
 **First performed:**   
-**Last performed:** 
+**Last performed:**

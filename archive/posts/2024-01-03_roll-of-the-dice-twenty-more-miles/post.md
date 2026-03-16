@@ -29,7 +29,7 @@ So apologies for the lack of lyrical analysis today, but even if we could make o
 April 18, 1970 (Toms River, NJ)
 August 14, 1970 (Richmond, VA)
 
-**Twenty More Miles
+**Twenty More Miles**
 Never recorded
 Never released
 First performed:**   

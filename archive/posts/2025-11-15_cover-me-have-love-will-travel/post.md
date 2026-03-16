@@ -35,7 +35,7 @@ After a few weeks, Bruce dropped the garage rock classic from his set list, and 
 April 23, 1988 (Los Angeles, CA)
  June 29, 1988 (Rotterdam, The Netherlands)
 
-**Have Love, Will Travel
+**Have Love, Will Travel**
 First performed:**  
 
 **Last performed:**

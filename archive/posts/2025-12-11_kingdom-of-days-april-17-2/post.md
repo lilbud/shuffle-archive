@@ -104,4 +104,4 @@ The High Hopes Tour stops at Nashville’s Bridgestone Arena and brings with it 
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2018:** *Springsteen on Broadway* 
+**2018:** *Springsteen on Broadway*

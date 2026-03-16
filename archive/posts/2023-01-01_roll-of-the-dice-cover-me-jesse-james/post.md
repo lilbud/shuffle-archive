@@ -63,7 +63,7 @@ November 2, 1997
  April 20, 2006 (Asbury Park, NJ)
  May 16, 2015 (Asbury Park, NJ)
 
-**Jesse James
+**Jesse James**
 Recorded:**  
 
 **Released:***We Shall Overcome: The Seeger Sessions*  

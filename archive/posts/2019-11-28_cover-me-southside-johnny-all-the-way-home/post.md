@@ -17,5 +17,3 @@ From Southside Johnny’s 1991 LP, this is the definitive version of “All the 
 (Listen carefully–you’ll hear Bruce on backing vocals and keyboard.)
 
 [https://www.youtube.com/embed/MaXBYo7hHdg?feature=oembed](https://www.youtube.com/embed/MaXBYo7hHdg?feature=oembed)
-
- 

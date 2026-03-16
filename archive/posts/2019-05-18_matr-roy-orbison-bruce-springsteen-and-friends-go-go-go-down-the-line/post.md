@@ -10,7 +10,7 @@ Bruce was a week past his 38th birthday when this clip was recorded, but that sm
 
 In my opinion, though, nothing matches that one-time-only performance with Roy, Bruce, Elvis Costello, Tom Waits and more. I can only imagine how Bruce felt, because every time I watch this concert, I can't believe it actually happened either.
 
-**Go Go Go (Down the Line)
+**Go Go Go (Down the Line)**
 **First performed:** September 30, 1987 (Los Angeles, CA)
 **Last performed:** September 30 ,1987 (Los Angeles, CA)
 

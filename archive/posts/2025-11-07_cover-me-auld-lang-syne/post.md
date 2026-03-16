@@ -25,7 +25,7 @@ Happy new year to you, your family, and your community. Thanks for reading!
 December 31, 1978 (Richfield, OH)
  December 31, 1980 (Uniondale, NY)
 
-**Auld Lang Syne
+**Auld Lang Syne**
 First performed:**  
 
 **Last performed:**

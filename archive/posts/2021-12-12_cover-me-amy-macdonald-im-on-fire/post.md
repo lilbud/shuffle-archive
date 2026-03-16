@@ -13,5 +13,3 @@ When Scottish singer-songwriter Amy Macdonald released her album of original son
 It’s not surprising that she chose Bruce to cover–Amy has been known to cover Bruce frequently in concert. She always chooses the songs well, and she always does them justice and then some. There are a lot of covers out there of this song; this is one of the better ones.
 
 [https://www.youtube.com/embed/grGxFhyx-RA?feature=oembed](https://www.youtube.com/embed/grGxFhyx-RA?feature=oembed)
-
- 

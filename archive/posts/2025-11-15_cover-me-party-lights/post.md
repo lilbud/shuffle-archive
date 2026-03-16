@@ -41,7 +41,7 @@ Take a listen to Bruce’s own version of “” and hear for yourself.
 December 2, 1975 (Boston, MA)
  December 11, 1975 (South Orange, NJ)
 
-**Party Lights
+**Party Lights**
 First performed:**  
 
 **Last performed:**

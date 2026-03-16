@@ -75,7 +75,7 @@ But it’s not likely to make any fan’s favorite list, and even if Bruce seems
 July 10, 1971 (Lincroft, NJ)
  July 29, 1971 (South Amboy, NJ)
 
-**Last Night in Tulsa
+**Last Night in Tulsa**
 First performed:**  
 
 **Last performed:**

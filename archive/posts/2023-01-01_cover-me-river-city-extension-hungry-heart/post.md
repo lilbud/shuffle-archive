@@ -17,5 +17,3 @@ So how about we just give a hall pass to anyone who wants to try something new w
 Play it over your Sunday morning coffee–that’s what I’m doing right now.
 
 [https://www.youtube.com/embed/PIMUugdAXsY?feature=oembed](https://www.youtube.com/embed/PIMUugdAXsY?feature=oembed)
-
- 

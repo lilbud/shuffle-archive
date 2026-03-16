@@ -17,5 +17,3 @@ Here’s the 1984 version…
 …and as a bonus, here they are still performing it in 2011. Like Bruce, they’re better with age!
 
 [https://www.youtube.com/embed/F7svzn-5vUg?feature=oembed](https://www.youtube.com/embed/F7svzn-5vUg?feature=oembed)
-
- 

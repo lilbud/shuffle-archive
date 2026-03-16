@@ -15,7 +15,7 @@ From Emmylou Harris’ Grammy-winning album comes the graceful “Tragedy,” wi
 March 20, 2000
  (2000)
 
-**Tragedy
+**Tragedy**
 Recorded:**  
 
 **Released:***Red Dirt Girl*  

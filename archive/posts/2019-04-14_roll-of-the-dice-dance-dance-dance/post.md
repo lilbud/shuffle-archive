@@ -33,7 +33,7 @@ N/A
  July 10, 1971 (Lincroft, NJ)
  September 1, 1971 (Long Branch, NJ)
 
-**Dance, Dance, Dance
+**Dance, Dance, Dance**
 Recorded:**  
 
 **First performed:**  

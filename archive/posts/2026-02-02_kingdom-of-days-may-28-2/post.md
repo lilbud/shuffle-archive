@@ -150,4 +150,4 @@ Bruce presents Pete Townshend with the MusiCares Stevie Ray Vaughan Award for hi
 
 Bruce postpones his show in Prague due to vocal problems.
 
-**2024:** 
+**2024:**

@@ -74,7 +74,7 @@ Got a theory about the hidden meaning of “Sure Can Feel the Pain?” I’d lov
 December 3, 1971 (Asbury Park, NJ)
 December 3, 1971 (Asbury Park, NJ)
 
-**Sure Can Feel the Pain
+**Sure Can Feel the Pain**
 Never Recorded
 Never Released
 First performed:**   

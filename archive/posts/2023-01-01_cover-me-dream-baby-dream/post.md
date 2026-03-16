@@ -85,7 +85,7 @@ Here’s the last appearance of “Dream Baby Dream” to date–the show opener
  May 11, 2005 (Rosemont, IL)
  July 20, 2016 (Horsens, Denmark)
 
-**Dream Baby Dream
+**Dream Baby Dream**
 Recorded:**  
 
 **Released:** *High Hopes*  

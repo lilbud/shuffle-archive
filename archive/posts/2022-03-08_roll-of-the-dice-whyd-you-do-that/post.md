@@ -23,7 +23,7 @@ But let's not hold that against him. Written and performed at the tender age of 
 
 "Why'd You Do That" showed up a few times during the summer and fall of 1970, only to disappear shortly before the band broke up in the early days of 1971. Rarely if ever is it mentioned in the historical record, but it's a fun number, a crystal clear recording, and a great snapshot of an artist on the ascent.
 
-**Why'd You Do That?
+**Why'd You Do That?**
 Never recorded
 Never released
 **First performed:** July 17, 1970 (Asbury Park, NJ)

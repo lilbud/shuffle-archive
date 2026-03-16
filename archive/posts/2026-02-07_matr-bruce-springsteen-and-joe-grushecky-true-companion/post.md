@@ -21,7 +21,7 @@ Curiously, even though it’s the title track, “True Companion” is the only 
 December 2, 2004 (Pittsburgh, PA)
  December 2, 2004 (Pittsburgh, PA)
 
-**True Companion
+**True Companion**
 First played:**  
 
 **Last played:**

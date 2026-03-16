@@ -37,7 +37,7 @@ As far as we know, this was a true one-off: “Chains” hasn’t turned up in B
 Unknown (probably mid-1971)
  Unknown (probably mid-1971)
 
-**Chains
+**Chains**
 First performed:**  
 
 **Last performed:**

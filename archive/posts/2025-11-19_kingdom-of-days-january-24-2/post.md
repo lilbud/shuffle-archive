@@ -86,4 +86,4 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Actor 
 
 Bruce and the E Street Band resume rehearsals for their upcoming world tour at Cure Insurance Arena in Trenton. The main set is now almost complete.
 
-**2023:** 
+**2023:**

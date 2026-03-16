@@ -48,7 +48,7 @@ And with that, a part of the story snaps into focus. This is a character who wak
 
 First stop, the set of a Viagra commercial.
 
-*On the set, the makeup girl brings me two raw eggs and a shot of gin
+**On the set, the makeup girl brings me two raw eggs and a shot of gin**
 Then I give it all up for that little blue pill
 That promises to bring it all back to you again.*
 
@@ -56,7 +56,7 @@ The long-suffering makeup girl brings our star his first drink of the day, a com
 
 The chorus comes in:
 
-*Ride me down easy, ride me down easy, friend
+**Ride me down easy, ride me down easy, friend**
 Tonight the western stars are shining bright again.*
 
 This is a patchwork chorus, assembled from the classics. The opening line comes from Billy Joe Shaver's 1973 song "Ride Me Down Easy," a song that envisions God as a jockey, a rider taking a horse for a gentle ride after a long and tiring race.
@@ -71,7 +71,7 @@ Next stop, the canyons above Sunset, where the song begins to feel cinematic. Th
 
 Mellowed by whiskey and flirtation, the narrator falls into a reverie about the one part of his life that he still loves: the days when he goes rodeo riding out in the desert. Yet even here, there's an overwhelming sense of nostalgia.
 
-*East to the desert where the charros, they still ride and rope
+**East to the desert where the charros, they still ride and rope**
 Our American brothers cross the wire and bring the old ways with them.*
 
 This is another way of trying to relive the past, then: different from Viagra but just as tempting.

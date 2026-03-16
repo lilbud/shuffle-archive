@@ -134,7 +134,7 @@ September 1989 – March 1991
  July 31, 1992 (East Rutherford, NJ)
  November 10, 1992 (Uniondale, NY)
 
-**Cross My Heart
+**Cross My Heart**
 Recorded:**  
 
 **Released:** *Human Touch*  

@@ -167,7 +167,7 @@ July-December 1991
  May 6, 1992 (New York City, NY)
  August 30, 2016 (East Rutherford, NJ)
 
-**Living Proof
+**Living Proof**
 Recorded:**  
 
 **Released:***Lucky Town**The Essential Bruce Springsteen* *Chapter and Verse*   

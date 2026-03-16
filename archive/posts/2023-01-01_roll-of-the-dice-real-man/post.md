@@ -109,7 +109,7 @@ January-February 1990
  June 17, 1992 (Stockholm, Sweden)
  July 25, 1992 (East Rutherford, NJ)
 
-**Real Man
+**Real Man**
 Recorded:**  
 
 **Released:** *Human Touch*   
@@ -119,5 +119,3 @@ Recorded:**
 Looking for your favorite Bruce song? Check our . New entries every week!
 
 [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
-
- 

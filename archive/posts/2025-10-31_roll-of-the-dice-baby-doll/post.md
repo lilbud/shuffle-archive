@@ -88,7 +88,7 @@ April 1972
  November 4, 1971 (New York City, NY)
  November 4, 1971 (New York City, NY)
 
-**Baby Doll
+**Baby Doll**
 Recorded:**  
 
 **Never released**  

@@ -33,7 +33,7 @@ I gotta say: Bruce turned in a great performance, but the best “Who Says You C
 December 12, 2012 (New York City, NY)
  December 12, 2012 (New York City, NY)
 
-**Who Says You Can’t Go Home
+**Who Says You Can’t Go Home**
 First performed:**  
 
 **Last performed:**

@@ -132,7 +132,7 @@ Looking back on that day years later, Bruce marveled:
 December 28, 1980 (live)(1986) December 28, 1980 (Uniondale, NY)
  June 3, 2013 (Milan, Italy)
 
-**This Land Is Your Land
+**This Land Is Your Land**
 Recorded:**   
  **Released:**   
 *Live 1975-85*  **First performed:**  

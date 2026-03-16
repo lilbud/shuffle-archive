@@ -145,7 +145,7 @@ Or as Bruce says as the final bars fade, “That’s nice.”
 
 1977 (music), 1980 (vocals) (1980)October 18, 1980 (St. Louis, MO)January 27, 2017 (Perth, Australia)
 
-**Drive All Night
+**Drive All Night**
 Recorded:**   
  **Released:**   
 *The River* **First performed:**   

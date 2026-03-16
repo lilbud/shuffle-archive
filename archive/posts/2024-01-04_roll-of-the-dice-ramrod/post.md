@@ -107,7 +107,7 @@ June 1979 – April 1980
  December 28, 1978 (Pittsburgh, PA)
  May 27, 2023 (Amsterdam, The Netherlands)
 
-**Ramrod
+**Ramrod**
 Recorded:**  
 
 **Released:** *The River*   

@@ -53,7 +53,7 @@ February 2006
  December 2, 2006 (Sayreville, NJ)
  November 4, 2011 (Pittsburgh, PA)
 
-**A Good Life
+**A Good Life**
 Recorded:**  
 
 **Released:***A Good Life*   

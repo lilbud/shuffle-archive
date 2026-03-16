@@ -45,7 +45,7 @@ January 2004
  December 3, 2001 (Asbury Park, NJ)
  October 13, 2004 (East Rutherford, NJ)
 
-**Love (Stand Up)
+**Love (Stand Up)**
 Recorded:**  
 
 **Released:** *23rd Street Lullaby*   

@@ -13,5 +13,3 @@ Here’s one of them: “” covered by the Wainright family, Emmylou Harris, Br
 [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
 [https://www.youtube.com/embed/1yLTMjt4udI?feature=oembed](https://www.youtube.com/embed/1yLTMjt4udI?feature=oembed)
-
- 

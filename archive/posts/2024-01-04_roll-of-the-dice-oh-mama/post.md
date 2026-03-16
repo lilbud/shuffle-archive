@@ -75,7 +75,7 @@ No one’s going to put “Oh Mama” on heavy rotation, but it’s a peak into 
 November 27, 1970 (Asbury Park, NJ)
  January 23, 1971 (Asbury Park, NJ)
 
-**Oh Mama
+**Oh Mama**
 First performed:**  
 
 **Last performed:**

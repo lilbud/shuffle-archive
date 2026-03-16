@@ -43,7 +43,7 @@ Bruce is known to fiddle around with lyrics, melodies and arrangements independe
 
 
 
-**You Gotta Be Kind
+**You Gotta Be Kind**
 Recorded:**  
 
 **Never released**  

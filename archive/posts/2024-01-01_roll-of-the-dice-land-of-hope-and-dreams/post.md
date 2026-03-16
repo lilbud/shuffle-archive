@@ -89,7 +89,7 @@ Following a bitter election and a last-minute insurrection attempt–all during 
 July 1, 2000 (live), unknown (studio)(2002), (2011) March 18, 1999 (Asbury Park, NJ)
  May 24, 2023 (Gothenburg, Sweden)
 
-**Land of Hope and Dreams
+**Land of Hope and Dreams**
 Recorded:**  
  **Released:**   
 *Live in New York City* *Wrecking Ball* **First performed:**   

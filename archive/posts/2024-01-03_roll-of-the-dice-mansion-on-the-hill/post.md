@@ -144,7 +144,7 @@ December 1981-January 1982
  June 29, 1984 (St. Paul, MN)
  February 7, 2016 (Hollywood, FL)
 
-**Mansion on the Hill
+**Mansion on the Hill**
 Recorded:**  
 
 **Released:** *Nebraska*   

@@ -31,7 +31,7 @@ Bruce took full advantage of the band’s horn section in a bright arrangement t
 May 22, 1988 (New York City, NY)
  July 10, 1988 (Sheffield, England)
 
-**Lonely Teardrops
+**Lonely Teardrops**
 First performed:**  
 
 **Last performed:**

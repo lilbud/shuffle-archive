@@ -47,9 +47,7 @@ But it’s hard to resist falling under the spell of the E Street Band having th
 September 21, 2003 (Detroit, MI)
  February 2, 2014 (Adelaide, Australia)
 
-**Heat Wave
+**Heat Wave**
 First performed:**  
 
 **Last performed:**
-
- 

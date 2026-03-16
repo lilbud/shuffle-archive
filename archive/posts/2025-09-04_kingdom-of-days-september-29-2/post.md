@@ -167,5 +167,3 @@ View this post on Instagram
 Bruce’s scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.
 
 **2023:**
-
- 

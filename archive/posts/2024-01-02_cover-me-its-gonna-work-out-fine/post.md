@@ -79,9 +79,7 @@ But they knew which path they each had to walk, and they trusted it would work o
 August 16, 1975 (New York City, NY)
  April 14, 1990 (Santa Monica, CA)
 
-**It’s Gonna Work Out Fine
+**It’s Gonna Work Out Fine**
 First performed:**   
 
 **Last performed:**
-
- 

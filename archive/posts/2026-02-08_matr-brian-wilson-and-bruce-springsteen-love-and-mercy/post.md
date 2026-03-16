@@ -39,7 +39,7 @@ Wilson remembers talking with Bruce after they left the stage that night:
 May 12, 2007 (Red Bank, NJ)
  May 12, 2007 (Red Bank, NJ)
 
-**Love and Mercy
+**Love and Mercy**
 First performed:**  
 
 **Last performed:**

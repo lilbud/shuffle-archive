@@ -35,7 +35,7 @@ Bruce pulls it off with sincerity and aplomb; nevertheless, it’s likely to rem
 April 4, 1998 (Sag Harbor, NY)
  April 4, 1998 (Sag Harbor, NY)
 
-**Oh, What a Beautiful Mornin’
+**Oh, What a Beautiful Mornin’**
 First performed:**  
 
 **Last performed:**

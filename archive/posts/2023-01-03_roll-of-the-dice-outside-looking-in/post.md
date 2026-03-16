@@ -82,7 +82,7 @@ September 27, 1977
  December 7, 2010 (Asbury Park, NJ)
  December 7, 2010 (Asbury Park, NJ)
 
-**Outside Looking In
+**Outside Looking In**
 Recorded:**   
 
 **Released:** *The Promise*  

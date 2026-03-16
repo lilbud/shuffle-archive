@@ -7,7 +7,7 @@ title: "Roll of the Dice: Frankie Fell in Love"
 ---
 
 *Good morning, good morning!*   
-*The church mouse is snoring
+**The church mouse is snoring**
 News is out all over town: Frankie fell in love!*  
 
 
@@ -58,7 +58,7 @@ Is Frankie either Bruce or Steve? Probably, but only the two of them can say whi
 
 
 
-*World peace is gonna break out
+**World peace is gonna break out**
 From here on in we’re eating take out*  
 
 *She ain’t gonna be cooking for the likes of us*  

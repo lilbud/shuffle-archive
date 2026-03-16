@@ -23,9 +23,7 @@ It’s too bad Bruce didn’t take more of a foreground role on this one; “Dea
 February 6, 1998 (Sea Bright, NJ)
  February 6, 1998 (Sea Bright, NJ)
 
-**Dead Flowers
+**Dead Flowers**
 First performed:**  
 
 **Last performed:**
-
- 

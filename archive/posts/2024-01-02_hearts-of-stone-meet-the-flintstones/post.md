@@ -33,7 +33,7 @@ Bruce Springsteen, however, is known to be a fan: Mr. Springstone is the proud r
 1982
  (1982)
 
-**Meet the Flintstones
+**Meet the Flintstones**
 Recorded:**  
 
-**Released:***Live at Bedrock* 
+**Released:***Live at Bedrock*

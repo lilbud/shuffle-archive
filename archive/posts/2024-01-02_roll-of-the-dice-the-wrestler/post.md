@@ -115,7 +115,7 @@ It’s too great a song to remain missing forever, though. “The Wrestler” fi
  March 23, 2009 (Asbury Park, NJ)
  June 4, 2009 (Stockholm, Sweden)
 
-**The Wrestler
+**The Wrestler**
 Recorded:**  
 
 **Released:** *Working on a Dream* *The Essential Bruce Springsteen*   

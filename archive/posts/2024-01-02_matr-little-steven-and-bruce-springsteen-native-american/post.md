@@ -43,7 +43,7 @@ February 1987
  August 21, 1987 (Asbury Park, NJ)
  October 8, 1987 (New York City, NY)
 
-**Native American
+**Native American**
 Recorded:**  
 
 **Released:** *Freedom–No Compromise*  

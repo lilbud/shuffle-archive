@@ -107,7 +107,7 @@ There are several studio outtakes of “Candy’s Boy” floating around out the
 June 1977
  (2010)
 
-**Candy’s Boy
+**Candy’s Boy**
 Recorded:**  
 
 **Released:** *The Promise*  

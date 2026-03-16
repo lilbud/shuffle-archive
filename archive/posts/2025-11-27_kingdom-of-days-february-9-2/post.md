@@ -59,5 +59,3 @@ Night Two in Sydney again features the Australian Urban Orchestra for “New Yor
 [https://www.youtube.com/embed/lfpkS8epHWk?feature=oembed](https://www.youtube.com/embed/lfpkS8epHWk?feature=oembed)
 
 [https://www.youtube.com/embed/sut4A5aYFl8?feature=oembed](https://www.youtube.com/embed/sut4A5aYFl8?feature=oembed)
-
- 

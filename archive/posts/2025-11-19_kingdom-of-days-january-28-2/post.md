@@ -72,4 +72,4 @@ Night Two in Cape Town features fourteen tour premieres, including “.” Bruce
 
 Bruce’s audio book for is nominated for a Grammy Award for Best Spoken Word Album.
 
-**2018:** *Born to Run* 
+**2018:** *Born to Run*

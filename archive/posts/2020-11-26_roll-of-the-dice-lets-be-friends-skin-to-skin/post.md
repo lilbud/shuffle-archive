@@ -61,7 +61,7 @@ Yeah, maybe this one is better kept to vinyl. But if the E Street Band ever play
 September 16, 2003 (Hartford, CT)
 September 16, 2003 (Hartford, CT)
 
-**Let’s Be Friends (Skin to Skin)
+**Let’s Be Friends (Skin to Skin)**
 Recorded:**   
  **Released:**   
 *The Rising*  

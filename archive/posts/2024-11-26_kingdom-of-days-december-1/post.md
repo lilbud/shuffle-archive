@@ -69,5 +69,3 @@ Bruce continues his promotional book tour, stopping in Austin to meet fans at Bo
 enters the final month of its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
-
- 

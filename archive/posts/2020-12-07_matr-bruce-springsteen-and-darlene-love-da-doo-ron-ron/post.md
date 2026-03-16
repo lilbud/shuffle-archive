@@ -38,5 +38,3 @@ September 20, 2009 (Chicago, IL)
 **Da Doo Ron Ron**  
 **First performed:**  
 **Last performed:**
-
- 

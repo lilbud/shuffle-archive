@@ -109,5 +109,3 @@ Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel 
 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/2023-01-12.jpg?resize=758%2C614&amp;ssl=1)
-
- 

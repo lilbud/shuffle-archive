@@ -10,13 +10,13 @@ And lyrically, a late verse sounds *very* similar to "Wings for Wheels," which w
 
 **From "Walking in the Street.."**
 
-*Oh baby, I can't lay the stars at your feet,
+**Oh baby, I can't lay the stars at your feet,**
 Oh but I think we could take it all , just you and me
 Oh come on and see there's a lot of room for you baby in this front seat.*
 
 **...to "Wings for Wheels..."**
 
-*Maybe I can't lay the stars at your feet,
+**Maybe I can't lay the stars at your feet,**
 But I got this old car and she's pretty tough to beat*
 *There's plenty of room in my front seat*
 *If you think you can make it, climb in.*
@@ -35,7 +35,7 @@ They sound more like the lovers in "[Atlantic City](https://estreetshuffle.com/i
 
 The chorus pairs a soaring melody with gorgeous but grounded imagery:
 
-*Tonight we're lovers in the cold, running past the graveyards in the snow
+**Tonight we're lovers in the cold, running past the graveyards in the snow**
 Walking in the street with nowhere to go.*
 
 ...and even though there's a hint of hope in the line "I think we could take it all, just you and me," the song returns and ends on the chorus, and it's clear that Billy and Cherry won't ever be pulling out of there to win.

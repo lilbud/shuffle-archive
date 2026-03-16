@@ -71,5 +71,3 @@ On Night Two in Melbourne, Bruce continues to make subtle political statements b
 [https://www.youtube.com/embed/vw7MkHJoNgU?feature=oembed](https://www.youtube.com/embed/vw7MkHJoNgU?feature=oembed)
 
 [https://www.youtube.com/embed/cbfeXiETnnM?feature=oembed](https://www.youtube.com/embed/cbfeXiETnnM?feature=oembed)
-
- 

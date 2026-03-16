@@ -35,7 +35,7 @@ Today, Sam Moore is 83 years old, still recording music, still performing live, 
 August 10, 1996 (Whitefish, MT)
  March 9, 2012 (New York City, NY)
 
-**Hold On, I’m Comin’
+**Hold On, I’m Comin’**
 First performed:**  
 
 **Last performed:**

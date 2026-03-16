@@ -93,5 +93,3 @@ Bruce opens Leipzig’s Wrecking Ball show with a tour premiere double-header: �
 continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: Jake Clemons.
 
 **2021:***Springsteen on Broadway*
-
- 

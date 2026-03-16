@@ -80,7 +80,7 @@ June 1972
  August 10, 1972 (New York City, NY)
  August 10, 1972 (New York City, NY)
 
-**Henry Boy
+**Henry Boy**
 Recorded:**  
 
 **Released:** *Chapter and Verse*   

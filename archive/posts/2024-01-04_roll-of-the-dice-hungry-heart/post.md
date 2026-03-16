@@ -209,7 +209,7 @@ June 14-21, 1979
  October 18, 1980 (St. Louis, MO)
  April 7, 2023 (Baltimore, MD)
 
-**Hungry Heart
+**Hungry Heart**
 Recorded:**  
 
 **Released:** *The River* *Greatest Hits**The Ties That Bind: The River Collection*  

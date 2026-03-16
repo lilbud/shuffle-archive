@@ -27,5 +27,3 @@ Now, with optimism on the rise and the end of this dark tunnel growing ever clos
 This is a great performance that pays tribute to Bruce’s original album arrangement but feels fresh and new at the same time.
 
 Keep that mask on, roll your sleeve up, get that shot, and come on up for The Rising.
-
- 

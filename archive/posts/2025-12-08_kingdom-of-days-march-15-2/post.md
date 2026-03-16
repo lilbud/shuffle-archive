@@ -136,4 +136,4 @@ Spotify premieres Episode 5 of the new podcast from Bruce and President Barack O
 
 Bruce and the E Street Band rehearse for the next leg of their world tour, resuming within days in Phoenix.
 
-**2024:** 
+**2024:**

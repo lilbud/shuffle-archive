@@ -19,5 +19,3 @@ So while I don’t know anything about this particular street musician to provid
 [Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)
 
 Flynn’s rendition is more tender than Bruce’s original. If Bruce’s version is a powerful declaration of the lengths he’d go to for his girl, Flynn’s version is a quiet but confident pledge of devotion. It’s simply a beautiful performance.
-
- 

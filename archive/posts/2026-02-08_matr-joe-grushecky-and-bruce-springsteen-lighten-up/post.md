@@ -19,7 +19,7 @@ This audio clip is the final encore from the October 20, 1995 show at Nick’s F
 October 20, 1995 (Pittsburgh, PA)
  October 20, 1995 (Pittsburgh, PA)
 
-**Lighten Up
+**Lighten Up**
 First performed:**  
 
 **Last performed:**

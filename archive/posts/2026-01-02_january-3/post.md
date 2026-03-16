@@ -25,5 +25,3 @@ Bruce struggles to find his perfect answering machine greeting (as portrayed by 
 **1993:**
 
 [https://www.youtube.com/embed/Ul5GehUMfJw?start=1107&amp;feature=oembed](https://www.youtube.com/embed/Ul5GehUMfJw?start=1107&amp;feature=oembed)
-
- 

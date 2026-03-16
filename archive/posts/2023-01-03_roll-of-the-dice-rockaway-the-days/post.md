@@ -125,7 +125,7 @@ Bruce gave no explanation for the one-off arrangement, and he never played the s
 January 12, 1984
  (1998)
 
-**Rockaway the Days
+**Rockaway the Days**
 Recorded:**  
 
 **Released:** *Tracks*  

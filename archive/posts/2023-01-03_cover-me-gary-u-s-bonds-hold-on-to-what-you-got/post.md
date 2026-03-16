@@ -89,7 +89,7 @@ Someone bring a sign for this one to the next tour, please.
 Early 1982
  (1982)
 
-**Hold On (To What You Got)
+**Hold On (To What You Got)**
 Recorded:**   
 
 **Released:** *On the Line*  

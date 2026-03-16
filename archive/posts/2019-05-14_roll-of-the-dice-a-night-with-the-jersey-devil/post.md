@@ -49,7 +49,7 @@ Creepy, yes. But basically a first-person Jersey Devil origin story with a Muddy
 But then the song takes a sudden turn: Bruce's voice is sinister now (and his lip-synching much better); his eyes lock onto ours as if he's finally registered our presence. He's done retelling history–now he's making a promise directly to us:
 
 *Get down Mama, get down low*
-*They gonna know me wherever I go
+**They gonna know me wherever I go**
 16 witches cast 16 spells*
 *Make me guitar outta skin and human skull*
 *Sing you a song like the wind in the sandy loam*

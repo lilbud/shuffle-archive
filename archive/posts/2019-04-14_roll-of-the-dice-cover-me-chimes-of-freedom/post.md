@@ -37,7 +37,7 @@ July 3, 1988
  September 1, 1978 (Detroit, MI)
  October 15, 1988 (Buenos Aires, Argentina)
 
-**Chimes of Freedom
+**Chimes of Freedom**
 Recorded:**  
 
 **Released:***Chimes of Freedom*  

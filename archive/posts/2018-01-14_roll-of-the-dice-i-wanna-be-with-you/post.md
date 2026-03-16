@@ -22,7 +22,7 @@ His professed devotion "until they rip out my heart" is imagery violent enough t
 
 In 1979, during the recording sessions for what would become *The River*, Bruce pulled "I Wanna Be With You" out of the vault temporarily, rewriting the last verse slightly but reworking the arrangement mightily. This time, the band sounds just as desperate Bruce's vocals, and by the time they reach the bridge, Bruce's character is so discombobulated that he trips over his own words, tumbling and catapulting into the brilliant final verse where the our lovesick loser realizes just how far gone he is:
 
-*No, I don't know, I don't know, I don't I just can't understand it
+**No, I don't know, I don't know, I don't I just can't understand it**
 You're not pretty at all
 But I come when you whisper
 I run when you call

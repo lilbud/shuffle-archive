@@ -29,7 +29,7 @@ The finished track is one of Bruce's favorites on the album. "I just felt great,
 It's one of my favorites, too. If that rumored *Only the Strong Survive* mini-tour ever comes to pass, maybe we'll even get to hear it live someday.
 
 **I Wish It Would Rain**
-**Recorded: 2021
+**Recorded: 2021**
 Released: *Only the Strong Survive* (2022)
 Never performed**
 

@@ -47,7 +47,7 @@ Since this article was first published, Bruce made a guest appearance with Bleac
 November 2020 (New York City, NY)
  July 26, 2022 (New York City, NY)
 
-**Chinatown
+**Chinatown**
 Recorded:**  
 
 **Released:** *Take the Sadness Out of Saturday Night*   

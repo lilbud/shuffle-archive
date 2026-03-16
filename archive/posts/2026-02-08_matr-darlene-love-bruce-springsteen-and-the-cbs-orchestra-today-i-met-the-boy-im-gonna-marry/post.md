@@ -17,7 +17,7 @@ Only parts of the song were broadcast, but it documented the only time Bruce is 
 March 14, 2011 (New York City, NY)
  March 14, 2011 (New York City, NY)
 
-**Today I Met the Boy I’m Gonna Marry
+**Today I Met the Boy I’m Gonna Marry**
 First performed:**  
 
 **Last performed:**

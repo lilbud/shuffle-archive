@@ -25,5 +25,3 @@ Featuring guest artists Robert J. Hunter on vocals and Eddy Smith on keys, BOOM 
 BOOM a LOON releases new music every Sunday–check out their latest on their .
 
 [YouTube page](https://www.youtube.com/channel/UCHDzLCAF_i6ezDMib3yMdHA)
-
- 

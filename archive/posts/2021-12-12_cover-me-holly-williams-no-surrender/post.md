@@ -13,5 +13,3 @@ There’s no shortage of “” covers out there, but this one by Holly Williams
 This one sticks with you long after you hear it.
 
 [https://www.youtube.com/embed/uZga5ozv4uA?feature=oembed](https://www.youtube.com/embed/uZga5ozv4uA?feature=oembed)
-
- 

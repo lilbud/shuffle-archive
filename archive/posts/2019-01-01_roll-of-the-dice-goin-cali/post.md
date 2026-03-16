@@ -80,7 +80,7 @@ Over the months that followed, Bruce would embrace and explore that theme more f
 
 But those are stories for another day.
 
-**Goin' Cali
+**Goin' Cali**
 **Recorded:** January 29, 1991
 **Released:** *Tracks* (1998)
 **Never performed live**

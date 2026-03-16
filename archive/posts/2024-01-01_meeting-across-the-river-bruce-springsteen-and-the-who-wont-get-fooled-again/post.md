@@ -30,5 +30,3 @@ May 28, 2015 (New York City, NY)
 **Won’t Get Fooled Again**  
 **First performed:**   
 **Last performed:**
-
- 

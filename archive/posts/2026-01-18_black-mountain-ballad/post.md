@@ -51,7 +51,7 @@ I believe Bruce was searching for a way to contrast the words we utter when newl
 
 Early 1983(2025)
 
-**Black Mountain Ballad
+**Black Mountain Ballad**
 Recorded:**   
  **Released:**   
 *L.A. Garage Sessions ’83*  **Never performed**  

@@ -103,5 +103,3 @@ All in all, Oakland ’07 was a solid early-tour outing. I try to always attend 
 So as far as my goal was concerned, it was mission accomplished. And although I didn’t know it at the time, I’d just seen my last show with Danny Federici, so I’m grateful to have had the opportunity.
 
 But I was already looking forward to the next leg: I had tickets for my first Italian E Street Band show only weeks away.
-
- 

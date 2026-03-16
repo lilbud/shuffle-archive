@@ -164,7 +164,7 @@ January 25, 1982
  July 2, 1984 (St. Paul, MN)
  February 4, 2017 (Melbourne, Australia)
 
-**Cover Me
+**Cover Me**
 Recorded:**  
 
 **Released:***Born in the U.S.A.*   

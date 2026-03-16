@@ -82,7 +82,7 @@ Look for that story coming soon.
 July 10, 1971 (Lincroft, NJ)
  May 13, 1977 (Red Bank, NJ)
 
-**You Mean So Much to Me
+**You Mean So Much to Me**
 Never recorded**  
 
 **Never released**  

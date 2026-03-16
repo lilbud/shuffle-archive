@@ -17,5 +17,3 @@ And lest you think that she’s pandering to the locals, T-Swizzle is indeed a B
 [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
 [https://www.youtube.com/embed/fOpbhV-aLew?feature=oembed](https://www.youtube.com/embed/fOpbhV-aLew?feature=oembed)
-
- 

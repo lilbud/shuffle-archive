@@ -124,7 +124,7 @@ February 14, 2023 (Houston, TX) (but likely performed in 1971 as well)
 February 21, 2023 (Tulsa, OK)
 Looking for your favorite Bruce song? Check our . New entries every week!
 
-**If I Was the Priest
+**If I Was the Priest**
 Recorded:**  
 
 **Released:** *Letter to You*   

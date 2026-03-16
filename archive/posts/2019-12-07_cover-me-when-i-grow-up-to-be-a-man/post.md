@@ -29,7 +29,7 @@ We’ll never know what Bruce was thinking that night, though, and perhaps telli
 June 1, 1985 (Slane, Ireland)
  June 1, 1985 (Slane, Ireland)
 
-**When I Grow Up (To Be a Man)
+**When I Grow Up (To Be a Man)**
 First performed:**  
 
 **Last performed:**

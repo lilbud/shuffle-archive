@@ -21,7 +21,7 @@ Bruce hasn’t played “Christmas Day” since those too-short-lived holiday sh
 December 4, 2001 (Asbury Park, NJ)
  December 8, 2003 (Asbury Park, NJ)
 
-**Christmas Day
+**Christmas Day**
 First performed:**  
 
 **Last performed:**

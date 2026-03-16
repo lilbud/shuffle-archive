@@ -112,7 +112,7 @@ In any incarnation, "Growin' Up" remains a fan favorite, forever fresh for its a
 
 Don't forget to pull up.
 
-**Growin' Up
+**Growin' Up**
 Recorded: J**une 27, 1972
 **Released:** *Greetings from Asbury Park, N.J.* (1972), *The Essential Bruce Springsteen* (2015), *Chapter and Verse* (2016)
 **First performed:** May 2, 1972 (New York City, NY)

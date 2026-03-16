@@ -82,7 +82,7 @@ But “I’m Turning Into Elvis” was where it started. One wonders just how ma
 April 5, 1995 (New York City, NY)
  November 19, 1996 (Memphis, TN)
 
-**I’m Turning Into Elvis
+**I’m Turning Into Elvis**
 Never recorded**  
 
 **Never released**  

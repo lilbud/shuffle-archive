@@ -25,9 +25,7 @@ How in the world The Boss resisted a rock and roll classic that seems tailor-mad
 : May 6, 1988 (Tacoma, WA)
 : May 6, 1988 (Tacoma, WA)
 
-**Big Boss Man
+**Big Boss Man**
 First performed (soundcheck only)**  
 
 **Last performed (soundcheck only)**
-
- 

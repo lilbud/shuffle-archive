@@ -110,4 +110,4 @@ With no fanfare, Bruce premieres his own recording of “,” (originally releas
 
 Bruce postpones his scheduled show at San Siro Stadium in Milan due to vocal challenges. As of this writing, the rescheduled show has not yet taken place.
 
-**2024:** 
+**2024:**

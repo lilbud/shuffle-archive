@@ -148,4 +148,4 @@ For their third and final night in Sweden, Bruce and the band play a third compl
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2018:** *Springsteen on Broadway* 
+**2018:** *Springsteen on Broadway*
