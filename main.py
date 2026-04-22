@@ -1,17 +1,9 @@
 import datetime
 import json
-import time
 from pathlib import Path
 
-import ftfy
-import html_to_markdown
 import httpx
-import psycopg
 from user_agent import generate_user_agent
-
-from archive import archive_posts
-from cleanup import initial_cleanup
-from database import insert_post, load_db
 
 cookies = {"wordpress_test_cookie": "WP Cookie check"}
 headers = {
@@ -29,70 +21,13 @@ headers = {
 }
 
 
-def get_tags(cur: psycopg.Cursor) -> None:
-    """Get all tags using WP REST API."""
-    with httpx.Client(
+def get_client() -> httpx.Client:
+    """Return httpx client with headers and cookies."""
+    return httpx.Client(
         headers=headers,
         cookies=cookies,
-        timeout=20,
-    ) as client:
-        res = client.get(
-            "https://estreetshuffle.com/index.php/wp-json/wp/v2/tags?per_page=100",
-        )
-
-        save_path = Path("./tags")
-        total_pages = int(res.headers["x-wp-totalpages"])
-
-        if total_pages > 1:
-            print(f"Found {total_pages} of tags")
-
-            for i in range(1, total_pages + 1):
-                url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/tags?per_page=100&page={i}"
-
-                try:
-                    res = client.get(url)
-
-                    print(f"saving page {i} to {save_path}")
-
-                    with Path(save_path, f"{i}.json").open("w") as f:
-                        json.dump(res.json(), f)
-
-                    for tag in res.json():
-                        cur.execute(
-                            """INSERT INTO tags (tag_id, name, slug) VALUES (%s, %s, %s)""",
-                            (tag["id"], ftfy.fix_text(tag["name"]), tag["slug"]),
-                        )
-                except httpx.HTTPError:
-                    pass
-
-                time.sleep(1)
-
-
-def get_categories(cur: psycopg.Cursor) -> None:
-    """Get all categories using WP REST API."""
-    with httpx.Client(
-        headers=headers,
-        cookies=cookies,
-        timeout=20,
-    ) as client:
-        res = client.get(
-            "https://estreetshuffle.com/index.php/wp-json/wp/v2/categories?per_page=100",
-        )
-
-        save_path = Path("./categories")
-
-        url = "https://estreetshuffle.com/index.php/wp-json/wp/v2/categories?per_page=100&page=1"
-
-        res = client.get(url)
-
-        # with Path(save_path, "categories.json").open("w") as f:
-        #     json.dump(res.json(), f)
-
-        for cat in res.json():
-            cur.execute(
-                """INSERT INTO categories (category_id, name) VALUES (%s, %s) ON CONFLICT (category_id) DO NOTHING""",
-                (cat["id"], cat["name"]),
-            )
+        timeout=60,
+    )
 
 
 def get_posts_by_page(client: httpx.Client, url: str) -> httpx.Response | None:
@@ -103,50 +38,8 @@ def get_posts_by_page(client: httpx.Client, url: str) -> httpx.Response | None:
         return None
 
 
-def get_media(cur: psycopg.Cursor, conn: psycopg.Connection):
-    with httpx.Client(
-        headers=headers,
-        cookies=cookies,
-        timeout=60,
-    ) as client:
-        media = cur.execute(
-            """SELECT media_id FROM media WHERE url IS NULL""",
-        ).fetchall()
-
-        if len(media) > 1:
-            print(f"{len(media)} objects missing URL, grabbing now")
-
-            for row in media:
-                print(row["media_id"])
-
-                res = client.get(
-                    f"https://estreetshuffle.com/index.php/wp-json/wp/v2/media/{row['media_id']}",
-                )
-
-                if res:
-                    data = res.json()
-                    try:
-                        url = data["guid"]["rendered"]
-
-                        cur.execute(
-                            """UPDATE media SET url = %s WHERE media_id = %s""",
-                            (url, row["media_id"]),
-                        )
-                    except KeyError:
-                        continue
-
-                    conn.commit()
-
-                time.sleep(1)
-
-        else:
-            print("no missing media URLs")
-
-
 def save_posts(
     posts: list[dict],
-    cur: psycopg.Cursor,
-    conn: psycopg.Connection,
 ) -> None:
     """Iterate list of post dicts and save each to file."""
     for post in posts:
@@ -161,10 +54,8 @@ def save_posts(
             with save_path.open("w", encoding="utf-8") as f:
                 json.dump(post, f)
 
-        insert_post(post, cur, conn)
 
-
-def get_latest_posts(cur: psycopg.Cursor, conn: psycopg.Connection) -> None:
+def get_latest_posts() -> None:
     """Get posts ordered by modified date.
 
     Rather than creating new posts, the site is instead opting to replace the content of
@@ -176,11 +67,7 @@ def get_latest_posts(cur: psycopg.Cursor, conn: psycopg.Connection) -> None:
     page = 1
     url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}&order=desc&orderby=modified"
 
-    with httpx.Client(
-        headers=headers,
-        cookies=cookies,
-        timeout=60,
-    ) as client:
+    with get_client() as client:
         res = get_posts_by_page(client=client, url=url)
 
         if res:
@@ -191,102 +78,5 @@ def get_latest_posts(cur: psycopg.Cursor, conn: psycopg.Connection) -> None:
                 f"Found {total_pages} pages and {total_posts} posts",
             )
 
-            cur.execute(
-                """INSERT INTO update_log (pages, posts, created_at) values(%s, %s, %s)""",
-                (
-                    total_pages,
-                    total_posts,
-                    datetime.datetime.now().astimezone(datetime.UTC),
-                ),
-            )
-
             posts = res.json()
-            save_posts(posts, cur, conn)
-
-
-def get_newest_posts(cur: psycopg.Cursor, conn: psycopg.Connection) -> None:
-    """Get newest posts from the site.
-
-    Posts are saved in individual files, as well as inserted into database.
-    """
-    with httpx.Client(
-        headers=headers,
-        cookies=cookies,
-        timeout=60,
-    ) as client:
-        page = 1
-        url = f"https://estreetshuffle.com/index.php/wp-json/wp/v2/posts?per_page=25&page={page}"
-        res = get_posts_by_page(client, url)
-
-        if res:
-            total_posts = int(res.headers["x-wp-total"])
-            total_pages = int(res.headers["x-wp-totalpages"])
-
-            print(
-                f"Found {total_pages} pages and {total_posts} posts",
-            )
-
-            # cur.execute(
-            #     """INSERT INTO update_log (pages, posts, created_at) values(%s, %s, %s)""",
-            #     (total_pages, total_posts, datetime.datetime.now()),
-            # )
-
-            posts = res.json()
-            save_posts(posts, cur, conn)
-
-        # if total_pages > 1:
-        #     for i in range(2, total_pages + 1):
-        #         print(f"Page {i}")
-
-        #         res = get_posts_by_page(client, i)
-
-        #         if res:
-        #             posts = res.json()
-
-        #             post_ids = {int(post["id"]) for post in posts}
-
-        #             if not post_ids.issubset(existing_posts):
-        #                 print("found unsaved posts")
-        #                 save_posts(posts, db_posts, cur)
-        #             else:
-        #                 print("posts already saved, exiting")
-        #                 break
-
-
-def get_comments():
-    with httpx.Client(
-        headers=headers,
-        cookies=cookies,
-        timeout=60,
-    ) as client:
-        for i in range(1, 23):
-            print(i)
-            res = client.get(
-                f"https://estreetshuffle.com/index.php/wp-json/wp/v2/comments?per_page=100&page={i}",
-            )
-
-            if res:
-                save_path = Path(f"./comments/{i}.json")
-
-                if not save_path.exists():
-                    with save_path.open("w", encoding="utf-8") as f:
-                        json.dump(res.json(), f)
-
-            time.sleep(1)
-
-
-if __name__ == "__main__":
-    with load_db() as conn, conn.cursor() as cur:
-        # print("Grabbing newest posts.")
-        # get_newest_posts(cur, conn)
-
-        get_categories(cur)
-
-        # print("Grabbing recently updated posts.")
-        # get_latest_posts(cur, conn)
-
-        # archive_posts(cur)
-
-        # get_media(cur, conn)
-
-        # get_comments()
+            save_posts(posts)

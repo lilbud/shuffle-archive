@@ -49,11 +49,6 @@ def get_latest_posts() -> None:
             f"Found {total_pages} pages and {total_posts} posts",
         )
 
-        with Path("./notes/report.txt").open("a") as f:
-            f.write(
-                f"\n{datetime.datetime.now().astimezone(datetime.UTC)} Found {total_pages} pages and {total_posts} posts",
-            )
-
         posts = res.json()
 
         for post in posts:
@@ -69,11 +64,6 @@ def get_latest_posts() -> None:
 
                 with save_path.open("w", encoding="utf-8") as f:
                     json.dump(post, f)
-    else:
-        with Path("./notes/report.txt").open("a") as f:
-            f.write(
-                f"\n{datetime.datetime.now().astimezone(datetime.UTC)} Request failed",
-            )
 
 
 if __name__ == "__main__":
