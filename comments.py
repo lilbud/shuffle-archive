@@ -22,5 +22,8 @@ def get_comments():
                 for comment in res.json():
                     comments.append(comment)  # noqa: PERF402
 
-    with Path("comments_new.json").open("w") as f:
+    with Path("comments_new_1.json").open("w") as f:
         json.dump(comments, f)
+
+
+get_comments()

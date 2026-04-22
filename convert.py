@@ -2,7 +2,6 @@ import re
 from pathlib import Path
 
 post_folder = Path("./archive/posts/")
-json_folder = Path("./posts_json/")
 
 for post in post_folder.iterdir():
     print(post.name)
