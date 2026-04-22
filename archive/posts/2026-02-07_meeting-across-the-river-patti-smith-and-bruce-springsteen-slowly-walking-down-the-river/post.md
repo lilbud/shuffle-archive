@@ -16,7 +16,7 @@ November 26, 1976 (New York City, NY)
  November 26, 1976 (New York City, NY)
 
 **Slowly Walking Down the River**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

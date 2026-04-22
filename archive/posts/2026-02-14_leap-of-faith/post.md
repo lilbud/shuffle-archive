@@ -14,8 +14,8 @@
 
  
 
-**Leap of Faith  
-Recorded:** Late 1991  
+**Leap of Faith**
+**Recorded:** Late 1991  
 **Released:** *Lucky Town* (1992)  
 **First performed:** May 6, 1992 (New York City, NY)  
 **Last performed:** February 14, 2017 (Brisbane, Australia)

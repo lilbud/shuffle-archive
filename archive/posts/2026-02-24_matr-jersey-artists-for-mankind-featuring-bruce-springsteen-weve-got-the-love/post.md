@@ -24,8 +24,8 @@ Jersey Artists for Mankind remained active through the remainder of the decade, 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BjHyHfCrBPI)
 
-**We’ve Got the Power  
-Recorded:** December 1985-February 1986  
+**We’ve Got the Power**
+**Recorded:** December 1985-February 1986  
 **Released:** *We’ve Got the Power* (single, 1986)  
 **Never performed live**
 

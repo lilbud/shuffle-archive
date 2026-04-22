@@ -15,5 +15,3 @@ Yep, that pretty much captures it. Take a listen:
 Bimbo du Jour’s cover of “No Surrender” might have been under the radar at the time, but it *almost* of made the cut for *One Step Up/Two Steps Back: The Songs of Bruce Springsteen*, a 1998 tribute album with some standout covers.
 
 Some of the best tracks from that project turned out to be outtakes, released on an EP called *Downbound Train* that was so under the radar, you needed sonar to spot it. Luckily, I did.
-
- 

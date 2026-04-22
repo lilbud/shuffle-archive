@@ -85,6 +85,6 @@ April 26, 1974 (Providence, RI)
  September 14, 2016 (Foxborough, MA)
 
 **Boom Boom**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -26,6 +26,6 @@ January 14, 2012 (Asbury Park, NJ)
  January 18, 2020 (Asbury Park, NJ)
 
 **One Guitar**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

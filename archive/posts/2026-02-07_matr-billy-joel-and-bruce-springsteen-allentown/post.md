@@ -38,7 +38,7 @@ October 16, 2008 (New York City, NY)
  October 16, 2008 (New York City, NY)
 
 **Allentown**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

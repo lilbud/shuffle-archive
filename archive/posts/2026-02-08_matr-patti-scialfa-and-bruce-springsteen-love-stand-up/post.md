@@ -46,7 +46,7 @@ January 2004
  October 13, 2004 (East Rutherford, NJ)
 
 **Love (Stand Up)**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *23rd Street Lullaby*   
 **First performed:**  

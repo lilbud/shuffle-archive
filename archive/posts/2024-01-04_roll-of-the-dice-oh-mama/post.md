@@ -76,7 +76,7 @@ November 27, 1970 (Asbury Park, NJ)
  January 23, 1971 (Asbury Park, NJ)
 
 **Oh Mama**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

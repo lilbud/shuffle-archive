@@ -38,7 +38,7 @@ July 3, 1988
  October 15, 1988 (Buenos Aires, Argentina)
 
 **Chimes of Freedom**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Chimes of Freedom*  
 **First performed:**  

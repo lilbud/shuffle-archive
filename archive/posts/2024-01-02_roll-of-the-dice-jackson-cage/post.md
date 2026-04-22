@@ -192,7 +192,7 @@ February-March, 1980
  July 28, 1980 (Oslo, Norway)
 
 **Jackson Cage**
-Recorded:**   
+**Recorded:**   
 
 **Released:***The River*  
 **First performed:**  

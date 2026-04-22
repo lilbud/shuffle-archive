@@ -50,6 +50,6 @@ February 26, 2014 (Brisbane, Australia)
  May 17, 2014 (Uncasville, CT)
 
 **Stayin’ Alive**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -32,6 +32,6 @@ October 13, 1986 (Mountain View, CA)
  October 13, 1986 (Mountain View, CA)
 
 **Helpless**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

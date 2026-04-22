@@ -60,6 +60,6 @@ October 31, 1980 (Los Angeles, CA)
  October 31, 1980 (Los Angeles, CA)
 
 **Outer Limits**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

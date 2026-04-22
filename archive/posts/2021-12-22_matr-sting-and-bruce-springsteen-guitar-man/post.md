@@ -34,6 +34,6 @@ April 12, 1995 (New York City, NY)
  April 12, 1995 (New York City, NY)
 
 **Guitar Man**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

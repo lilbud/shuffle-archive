@@ -97,7 +97,7 @@ March-May 2007
  May 5, 2009 (Charlottesville, VA)
 
 **Gypsy Biker**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Magic*   
 **First performed:**  

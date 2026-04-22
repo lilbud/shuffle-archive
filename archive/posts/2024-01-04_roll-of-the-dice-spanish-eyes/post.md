@@ -107,7 +107,7 @@ June 30, 1977; 2010
  June 17, 2012 (Madrid, Spain)
 
 **Spanish Eyes**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Promise*   
 **First performed:**  

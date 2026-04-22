@@ -22,6 +22,6 @@ July 29, 1978 (St. Petersburg, FL)
  March 17, 1996 (Dublin, Ireland)
 
 **Oh Boy**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

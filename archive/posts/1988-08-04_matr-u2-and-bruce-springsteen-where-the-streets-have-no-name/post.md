@@ -21,7 +21,7 @@ Bruce and U2 performed two songs together: “I Still Haven’t Found What I’m
 This time the band’s performance of “Streets” went off without a hint of disruption, and the crowd-pleasing performance proved to be the highlight of an event full of them.
 
 **Where the Streets Have No Name**
-First performed:** December 1, 2014 (New York City, NY)  
+**First performed:** December 1, 2014 (New York City, NY)  
 **Last performed:** December 1, 2014 (New York City, NY)
 
 © October 2, 2020

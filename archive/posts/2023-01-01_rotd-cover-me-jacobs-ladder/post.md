@@ -48,7 +48,7 @@ January 21, 2006
  November 21, 2006 (Belfast, Northern Ireland)
 
 **Jacob’s Ladder**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *We Shall Overcome: The Seeger Sessions*   
 **First performed:**  

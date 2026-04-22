@@ -54,6 +54,6 @@ December 12, 1975 (Greenvale, NY)
  October 1, 1978 (Atlanta, GA)
 
 **It’s My Life**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

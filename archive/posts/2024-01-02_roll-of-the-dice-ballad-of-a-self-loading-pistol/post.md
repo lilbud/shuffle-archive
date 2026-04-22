@@ -91,7 +91,7 @@ January 29-30, 1973
 
 
 **Ballad of a Self-Loading Pistol**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

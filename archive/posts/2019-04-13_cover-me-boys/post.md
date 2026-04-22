@@ -24,6 +24,6 @@ August 24, 2008 (Kansas City, MO)
  August 24, 2008 (Kansas City, MO)
 
 **Boys**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

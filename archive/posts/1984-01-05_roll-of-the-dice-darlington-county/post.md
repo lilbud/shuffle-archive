@@ -104,7 +104,7 @@ Something tells me we’ll be celebrating the misadventures of Wayne and Wilson 
 [https://www.youtube.com/embed/dcjjeHtdsLg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/dcjjeHtdsLg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Darlington County**
-Recorded:** May 13, 1982  
+**Recorded:** May 13, 1982  
 **Released:** *Born in the U.S.A.* (1984)  
 **First performed:** June 8, 1984 (Asbury Park, NJ)  
 **Last performed:** June 24, 2025 (San Sebastian, Spain)

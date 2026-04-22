@@ -201,7 +201,7 @@ February-March 2002
  September 3, 2023 (East Rutherford, NJ)
 
 **The Rising**
-Recorded:**  
+**Recorded:**  
 
 **Released:***The Rising**The Essential Bruce Springsteen**Chapter and Verse*  
 **First performed:**  

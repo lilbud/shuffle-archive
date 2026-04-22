@@ -208,7 +208,7 @@ September 11, 1972
  September 15, 2024 (Asbury Park, NJ)
 
 **Blinded by the Light**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Greetings From Asbury Park, N.J.* *The Essential Bruce Springsteen*  
 **First performed:**  

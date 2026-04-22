@@ -131,7 +131,7 @@ April-June 1972
  May 2, 1972 (New York City, NY)
 
 **Arabian Nights**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **First performed:**  

@@ -87,7 +87,7 @@ January 19, 1983
 
 
 **One Love**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

@@ -51,5 +51,5 @@ Enjoy this rare footage of a very young Nils Lofgren performing Carole King’s 
 ![](https://www.youtube.com/watch?v=rSBeEHUAfok)
 
 **Goin’ Back
-First performed:** October 16, 1975 (West Hollywood, CA)
+**First performed:** October 16, 1975 (West Hollywood, CA)
 **Last performed:** October 19, 1975 (West Hollywood, CA)

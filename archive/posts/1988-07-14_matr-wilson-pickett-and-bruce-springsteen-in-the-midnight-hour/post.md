@@ -57,7 +57,7 @@ Here’s a brief snippet of John and Bruce performing “In the Midnight Hour”
 Happy new year, everyone–we made it!
 
 **In the Midnight Hour**
-First performed:** December 31, 1969 (Big Sur, CA)  
+**First performed:** December 31, 1969 (Big Sur, CA)  
 **Last performed:** January 17, 2020 (Wellington, FL)
 
 © December 31, 2020

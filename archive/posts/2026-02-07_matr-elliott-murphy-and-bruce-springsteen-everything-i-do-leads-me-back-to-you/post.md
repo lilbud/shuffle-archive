@@ -41,7 +41,7 @@ mid-1995
 (1995)
 
 **Everything I Do (Leads Me Back to You)**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Selling the Gold*   
 **Never performed live**

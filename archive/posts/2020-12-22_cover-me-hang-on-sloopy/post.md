@@ -60,6 +60,6 @@ January 14, 1984 (New Brunswick, NJ)
  August 23, 2009 (Mansfield, MA)
 
 **Hang On Sloopy**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

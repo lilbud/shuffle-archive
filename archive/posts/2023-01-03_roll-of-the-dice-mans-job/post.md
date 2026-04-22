@@ -114,7 +114,7 @@ December 1989-January 1990
  July 13, 1992 (Werchter, Belgium)
 
 **Man’s Job**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Human Touch*  
 **First performed:**  

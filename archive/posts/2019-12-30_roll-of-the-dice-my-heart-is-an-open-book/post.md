@@ -68,7 +68,7 @@ March-April 1981 (home demo)
 
 
 **My Heart Is an Open Book**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

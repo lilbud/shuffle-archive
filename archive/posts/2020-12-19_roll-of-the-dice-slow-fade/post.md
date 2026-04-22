@@ -50,7 +50,7 @@ February 5, 1980 (rehearsals only)
 
 
 **Slow Fade**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

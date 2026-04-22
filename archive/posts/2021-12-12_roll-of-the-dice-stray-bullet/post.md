@@ -74,7 +74,7 @@ February 24, March 9, and April 10, 1980 (it’s unclear from which session this
 : (2015)
 
 **Stray Bullet**
-Recorded:**   
+**Recorded:**   
 
 **Released***The River: Outtakes*   
 **Never Performed**

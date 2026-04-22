@@ -47,5 +47,3 @@
 <https://estreetshuffle.com/wp-content/uploads/2025/07/2019-07-10-Bruce-on-E-St-Radio.mp3>
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.
-
- 

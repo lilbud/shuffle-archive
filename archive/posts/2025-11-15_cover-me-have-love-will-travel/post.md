@@ -36,7 +36,7 @@ April 23, 1988 (Los Angeles, CA)
  June 29, 1988 (Rotterdam, The Netherlands)
 
 **Have Love, Will Travel**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

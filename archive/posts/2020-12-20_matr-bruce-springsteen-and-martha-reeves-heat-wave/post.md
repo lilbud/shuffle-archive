@@ -48,6 +48,6 @@ September 21, 2003 (Detroit, MI)
  February 2, 2014 (Adelaide, Australia)
 
 **Heat Wave**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

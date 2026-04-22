@@ -26,6 +26,6 @@ November 20, 2009 (Baltimore, MD)
  September 2, 2012 (Philadelphia, PA)
 
 **Green Onions**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

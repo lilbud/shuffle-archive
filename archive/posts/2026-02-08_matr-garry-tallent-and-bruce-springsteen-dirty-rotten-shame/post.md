@@ -34,7 +34,7 @@ Unknown
  July 6, 2019 (Asbury Park, NJ)
 
 **Dirty Rotten Shame**
-Recorded:**   
+**Recorded:**   
 
 **Released:***More Like Me*   
 **First performed:**  

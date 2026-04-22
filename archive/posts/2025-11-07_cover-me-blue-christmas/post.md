@@ -48,7 +48,7 @@ December 17, 2000 (Asbury Park, NJ)
  December 7, 2010 (Asbury Park, NJ)
 
 **Blue Christmas**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

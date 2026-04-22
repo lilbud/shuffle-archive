@@ -28,7 +28,7 @@ August 1, 1976 (Red Bank, NJ)
  September 2, 2012 (Philadelphia, PA)
 
 **You Can’t Sit Down**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

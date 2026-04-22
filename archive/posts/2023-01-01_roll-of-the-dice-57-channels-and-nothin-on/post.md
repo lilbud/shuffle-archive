@@ -158,7 +158,7 @@ Early December 1990
  June 26, 1993 (New York City, NY)
 
 **57 Channels (And Nothin’ On)**
-Recorded:**   
+**Recorded:**   
 
 **Released:***Human Touch*   
 **First performed:**  

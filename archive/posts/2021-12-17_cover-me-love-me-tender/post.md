@@ -34,6 +34,6 @@ February 29, 1988 (Worcester, MA)
  June 26, 1988 (London, England)
 
 **Love Me Tender**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

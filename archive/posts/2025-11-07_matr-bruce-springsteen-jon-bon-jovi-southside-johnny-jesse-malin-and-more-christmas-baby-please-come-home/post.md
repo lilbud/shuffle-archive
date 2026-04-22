@@ -68,7 +68,7 @@ December 17, 2000 (Asbury Park, NJ)
  December 8, 2003 (Asbury Park, NJ)
 
 **Christmas (Baby Please Come Home)**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

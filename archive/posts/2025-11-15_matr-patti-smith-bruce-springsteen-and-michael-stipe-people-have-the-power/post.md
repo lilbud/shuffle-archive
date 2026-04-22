@@ -36,7 +36,7 @@ October 1, 2004 (Philadelphia, PA)
  April 23, 2008 (New York City, NY)
 
 **People Have the Power**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

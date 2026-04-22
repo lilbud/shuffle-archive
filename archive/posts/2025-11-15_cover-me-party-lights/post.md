@@ -42,7 +42,7 @@ December 2, 1975 (Boston, MA)
  December 11, 1975 (South Orange, NJ)
 
 **Party Lights**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

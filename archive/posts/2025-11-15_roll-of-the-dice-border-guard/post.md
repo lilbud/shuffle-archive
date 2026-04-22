@@ -98,7 +98,7 @@ April 1972
 
 
 **Border Guard**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

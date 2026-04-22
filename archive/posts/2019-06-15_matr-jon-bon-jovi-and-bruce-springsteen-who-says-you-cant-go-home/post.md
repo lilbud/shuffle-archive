@@ -34,6 +34,6 @@ December 12, 2012 (New York City, NY)
  December 12, 2012 (New York City, NY)
 
 **Who Says You Can’t Go Home**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

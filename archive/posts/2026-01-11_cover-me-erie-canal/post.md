@@ -40,7 +40,7 @@ March 19, 2005
  November 21, 2006 (Belfast, Northern Ireland)
 
 **Erie Canal**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *We Shall Overcome: The Seeger Sessions*   
 **First performed:**  

@@ -24,6 +24,6 @@ October 1965 (Monmouth County, NJ)
  April 2, 2011 (Asbury Park, NJ)
 
 **What’s Your Name**
-First performed:**   
+**First performed:**   
 
 **Last performed:**

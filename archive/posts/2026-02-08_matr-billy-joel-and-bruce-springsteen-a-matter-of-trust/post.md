@@ -24,7 +24,7 @@ October 16, 2008 (New York City, NY)
  October 16, 2008 (New York City, NY)
 
 **A Matter of Trust**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

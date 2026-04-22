@@ -32,6 +32,6 @@ November 9, 2007 (New York City, NY)
  April 26, 2012 (Los Angeles, CA)
 
 **California Sun**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

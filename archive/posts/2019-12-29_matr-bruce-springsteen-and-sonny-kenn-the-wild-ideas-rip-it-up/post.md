@@ -28,6 +28,6 @@ July 31, 1982 (Red Bank, NJ)
  August 1, 1982 (Asbury Park, NJ)
 
 **Rip It Up**
-First performed:**   
+**First performed:**   
 
 **Last performed:**

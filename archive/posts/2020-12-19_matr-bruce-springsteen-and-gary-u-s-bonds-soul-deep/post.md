@@ -48,6 +48,6 @@ April 29, 2003 (Red Bank, NJ)
  April 29, 2003 (Red Bank, NJ)
 
 **Soul Deep**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

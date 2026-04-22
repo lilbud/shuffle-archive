@@ -38,6 +38,6 @@ October 1, 2004 (Philadelphia, PA)
  October 13, 2004 (East Rutherford, NJ)
 
 **Deja Vu (All Over Again)**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

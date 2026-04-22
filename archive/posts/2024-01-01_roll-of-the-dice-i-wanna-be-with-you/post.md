@@ -74,7 +74,7 @@ May 31, 1979
 : May 14, 2016 (Barcelona)
 
 **I Wanna Be With You**
-Recorded:**   
+**Recorded:**   
 
 **Released***Tracks* *18 Tracks*   
 **First Performed**  

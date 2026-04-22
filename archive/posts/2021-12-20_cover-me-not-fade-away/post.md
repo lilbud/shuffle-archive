@@ -64,6 +64,6 @@ October 23, 1971 (Richmond, VA)
  July 6, 2019 (Asbury Park, NJ)
 
 **Not Fade Away**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

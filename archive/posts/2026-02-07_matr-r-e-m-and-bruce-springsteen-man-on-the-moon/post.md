@@ -32,7 +32,7 @@ October 1, 2004 (Philadelphia, PA)
  October 11, 2004 (Washington, DC)
 
 **Man on the Moon**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

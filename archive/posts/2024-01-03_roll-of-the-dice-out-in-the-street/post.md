@@ -127,7 +127,7 @@ March 21, 1980
  August 30, 2023 (East Rutherford, NJ)
 
 **Out in the Street**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The River* *The Essential Bruce Springsteen*   
 **First performed:**  

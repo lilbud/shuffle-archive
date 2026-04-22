@@ -117,6 +117,6 @@ February 22, 2014 (Hunter Valley, Australia)
  February 22, 2014 (Hunter Valley, Australia)
 
 **Drinkin’ Wine, Spo-Dee-O-Dee**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

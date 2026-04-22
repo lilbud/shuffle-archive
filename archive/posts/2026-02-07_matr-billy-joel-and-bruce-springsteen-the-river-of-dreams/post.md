@@ -26,7 +26,7 @@ October 16, 2008 (New York City, NY)
  October 16, 2008 (New York City, NY)
 
 **River of Dreams**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

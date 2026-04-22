@@ -28,6 +28,6 @@ December 18, 2000 (Asbury Park, NJ)
  December 18, 2000 (Asbury Park, NJ)
 
 **Hey, Good Lookin’**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

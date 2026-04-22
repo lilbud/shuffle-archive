@@ -38,6 +38,6 @@ March 1, 1990 (Inglewood, CA)
  March 1, 1990 (Inglewood, CA)
 
 **I’m Crying**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

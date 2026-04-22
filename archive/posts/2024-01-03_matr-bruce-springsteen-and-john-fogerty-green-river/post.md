@@ -42,6 +42,6 @@ January 12, 1993 (Los Angeles, CA)
  May 3, 2014 (New Orleans, LA)
 
 **Green River**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

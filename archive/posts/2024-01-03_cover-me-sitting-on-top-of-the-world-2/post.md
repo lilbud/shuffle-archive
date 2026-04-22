@@ -54,7 +54,7 @@ February 4, 1972 (Richmond, VA)*
  February 4, 1972 (Richmond, VA)
 
 **Sitting on Top of the World**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

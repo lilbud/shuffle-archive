@@ -16,6 +16,6 @@ June 26, 1993
  June 26, 1993
 
 **Lonesome Valley**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

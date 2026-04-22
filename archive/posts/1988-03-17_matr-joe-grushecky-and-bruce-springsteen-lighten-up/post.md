@@ -9,7 +9,7 @@ This audio clip is the final encore from the October 20, 1995 show at Nick’s F
 <http://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3>
 
 **Lighten Up**
-First performed:** October 20, 1995 (Pittsburgh, PA)  
+**First performed:** October 20, 1995 (Pittsburgh, PA)  
 **Last performed:** October 20, 1995 (Pittsburgh, PA)
 
 © February 5, 2018

@@ -156,7 +156,7 @@ February 16-April 26, 1980
  November 16, 2019 (Asbury Park, NJ)
 
 **Cadillac Ranch**
-Recorded:**  
+**Recorded:**  
 
 **Released:***The River*  
 **First performed:**  

@@ -28,6 +28,6 @@ September 30, 1967 (Freehold, NJ)
  August 11, 1989 (Holmdel, NJ)
 
 **With a Little Help From My Friends**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -20,6 +20,6 @@ February 23, 2003 (New York City, NY)
  October 29, 2009 (New York City, NY)
 
 **London Calling**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

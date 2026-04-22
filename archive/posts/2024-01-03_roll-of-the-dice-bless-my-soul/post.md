@@ -34,7 +34,7 @@ November 13, 1971 (Asbury Park, NJ)
  February 26, 1972 (Richmond, VA)
 
 **Bless My Soul**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

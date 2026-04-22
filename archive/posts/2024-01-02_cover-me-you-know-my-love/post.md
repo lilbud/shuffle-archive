@@ -38,6 +38,6 @@ January 21-23, 1972 (it’s unknown which of these nights the recording hails fr
  January 21-23, 1972 (it’s unknown which of these nights the recording hails from)
 
 **You Know My Love**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

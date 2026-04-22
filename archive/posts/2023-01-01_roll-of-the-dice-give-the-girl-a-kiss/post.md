@@ -139,7 +139,7 @@ November 10, 1977 (brass recorded in 1998)
  October 23, 2012 (Charlottesville, VA)
 
 **Give the Girl a Kiss**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tracks*   
 **First performed:**  

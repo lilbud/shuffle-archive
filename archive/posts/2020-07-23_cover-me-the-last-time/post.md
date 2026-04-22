@@ -32,6 +32,6 @@ October 1, 1978 (Atlanta, GA)
  October 9, 2009 (East Rutherford, NJ)
 
 **The Last Time**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

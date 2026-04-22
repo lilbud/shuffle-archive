@@ -140,7 +140,7 @@ May 11, 1982
  July 2, 2023 (Oslo, Norway)
 
 **I’m on Fire**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *Born in the U.S.A.*   
 **First performed:**  

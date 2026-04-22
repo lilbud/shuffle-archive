@@ -48,6 +48,6 @@ May 24, 1993 (London, England)
  July 9, 1995 (Berlin, Germany)
 
 **Jumpin’ Jack Flash**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

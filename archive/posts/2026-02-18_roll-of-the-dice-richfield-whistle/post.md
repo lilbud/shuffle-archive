@@ -112,8 +112,8 @@ Jimmy goes to bed, but lays awake in the night thinking, like the protagonist of
 
 It’s an unsettling ending, one that sticks with us much longer than the resolution of “Jim Deer.” Ultimately, neither song would be released for decades, but both would directly influence an officially released gem long before that.
 
-**Richfield Whistle  
-Recorded:** April 24, 1983  
+**Richfield Whistle**
+**Recorded:** April 24, 1983  
 **Released:** *L.A. Garage Sessions ’83* (2025)  
 **Never performed**
 

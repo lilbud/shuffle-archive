@@ -75,5 +75,3 @@ That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis du
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=5iUpbVxRILQ)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
-
- 

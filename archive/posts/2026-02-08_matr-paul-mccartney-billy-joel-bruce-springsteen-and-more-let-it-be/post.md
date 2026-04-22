@@ -26,7 +26,7 @@ March 15 ,1999 (New York City, NY)
  March 15, 1999 (New York City, NY)
 
 **Let It Be**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

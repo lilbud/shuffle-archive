@@ -156,7 +156,7 @@ Unknown
  April 2019 (exact date unknown) (Colts Neck, NJ)
 
 **Chasin’ Wild Horses**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Western Stars*   
 **First performed:**  

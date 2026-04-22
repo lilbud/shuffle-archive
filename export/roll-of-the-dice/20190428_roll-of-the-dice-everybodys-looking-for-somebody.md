@@ -19,7 +19,7 @@ So please give it a shot, and then you tell me. Take a listen below, and leave a
 [https://videopress.com/embed/cFNkYdxa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cFNkYdxa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 **Everybody’s Looking for ???
-Recorded:** September-December 1979
+**Recorded:** September-December 1979
 **Never released**
 **Never performed**
 

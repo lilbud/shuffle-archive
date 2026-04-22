@@ -43,7 +43,7 @@ March 30, 1979 (rehearsals only)
 
 
 **Out on the Run**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

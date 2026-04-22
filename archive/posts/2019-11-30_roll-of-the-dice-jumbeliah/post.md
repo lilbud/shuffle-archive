@@ -74,7 +74,7 @@ May 14, 1971 (Asbury Park, NJ)
 September 1, 1971 (Long Branch, NJ)
 
 **Jumbeliah** **Never recorded
-First performed:**   
+**First performed:**   
 
 
 **Last performed:**

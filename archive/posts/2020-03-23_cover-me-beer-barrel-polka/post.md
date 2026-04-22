@@ -34,6 +34,6 @@ September 27, 2003 (Milwaukee, WI)
  September 27, 2003 (Milwaukee, WI)
 
 **Beer Barrel Polka**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

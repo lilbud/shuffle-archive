@@ -74,7 +74,7 @@ Late 1989 1992
 July 23, 1992 (East Rutherford, NJ)
 
 **With Every Wish**
-Recorded:**   
+**Recorded:**   
  **Released:**  
 *Human Touch,*   
 **First Performed:**  

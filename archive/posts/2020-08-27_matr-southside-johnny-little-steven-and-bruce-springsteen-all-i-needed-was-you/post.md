@@ -34,6 +34,6 @@ December 17, 2000 (Asbury Park, NJ)
  December 18, 2000 (Asbury Park, NJ)
 
 **All I Needed Was You**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

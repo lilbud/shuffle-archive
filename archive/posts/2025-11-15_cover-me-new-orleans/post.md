@@ -32,7 +32,7 @@ May 13, 1976 (New Orleans, LA)
  August 16, 1989 (Long Branch, NJ)
 
 **New Orleans**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

@@ -70,7 +70,7 @@ March 21, 1976 (Asbury Park, NJ)
  October 26, 2025 (Asbury Park, NJ)
 
 **Raise Your Hand**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

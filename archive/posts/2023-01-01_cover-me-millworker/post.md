@@ -34,6 +34,6 @@ February 6, 2006 (Los Angeles, CA)
  February 6, 2006 (Los Angeles, CA)
 
 **Millworker**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

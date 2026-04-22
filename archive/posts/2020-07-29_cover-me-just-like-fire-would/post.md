@@ -52,7 +52,7 @@ March 2013
  April 26, 2014 (Atlanta, GA)
 
 **Just Like Fire Would**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *High Hopes*   
 **First performed:**  

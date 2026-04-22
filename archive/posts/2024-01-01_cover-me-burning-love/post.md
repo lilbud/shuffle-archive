@@ -24,6 +24,6 @@ April 12, 1995 (New York City, NY)
  April 17, 2014 (Nashville, TN)
 
 **Burning Love**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -123,7 +123,7 @@ January – April 1987
  November 19, 2005 (Hollywood, FL)
 
 **Ain’t Got You**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tunnel of Love*   
 **First performed:**  

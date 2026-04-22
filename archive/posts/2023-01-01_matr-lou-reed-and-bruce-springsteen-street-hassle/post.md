@@ -51,7 +51,7 @@ Autumn 1977
  (by Bruce)
 
 **Street****Hassle
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Street Hassle*   
 **Never performed**

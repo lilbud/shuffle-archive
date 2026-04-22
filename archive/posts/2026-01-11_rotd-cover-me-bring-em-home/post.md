@@ -86,7 +86,7 @@ January 21 and May 18, 2006
  November 14, 2006 (Sheffield, England)
 
 **Bring ‘Em Home**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Bring ‘Em Home*   
 **First performed:**  

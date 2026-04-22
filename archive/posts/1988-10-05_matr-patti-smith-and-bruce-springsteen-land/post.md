@@ -21,7 +21,7 @@ At the late show, their first song was Patti’s nine-and-a-half-minute opus, �
 Bruce had a lot of one-time-only performances that night, but none more electrifying than “Land.”
 
 **Land**
-First performed:** November 26, 1976 (New York City, NY)  
+**First performed:** November 26, 1976 (New York City, NY)  
 **Last performed:** November 26, 1976 (New York City, NY)
 
 © December 23, 2020

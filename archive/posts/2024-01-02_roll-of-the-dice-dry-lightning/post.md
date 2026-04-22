@@ -113,7 +113,7 @@ April-June 1995
  May 14, 2005 (Fairfax, VA)
 
 **Dry Lightning**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *The Ghost of Tom Joad*   
 **First performed:**  

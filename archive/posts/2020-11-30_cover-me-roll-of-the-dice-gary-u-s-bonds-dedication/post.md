@@ -103,7 +103,7 @@ June-August 1980 (vocals–possibly using a December 1979 instrumental track)
  (by Bruce): July 2, 1989 (Long Branch, NJ)
 
 **Dedication**
-Recorded:**  
+**Recorded:**  
 
 **Released:**  
 **First performed**  

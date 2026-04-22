@@ -45,5 +45,3 @@ After Bruce closed with a lovely acoustic “Thunder Road,” my friend Steve an
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uh_QQl1Xm_o)
 
 If you told me I’d hear Bruce and the band play that song *five more times* in the next two months, I’d never have believed you. But those are stories for other days.
-
- 

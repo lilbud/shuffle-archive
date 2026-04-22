@@ -54,7 +54,7 @@ April 13, 2002 (Asbury Park, NJ)
  June 11, 2025 (Berlin, Germany)
 
 **Seven Nights to Rock**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

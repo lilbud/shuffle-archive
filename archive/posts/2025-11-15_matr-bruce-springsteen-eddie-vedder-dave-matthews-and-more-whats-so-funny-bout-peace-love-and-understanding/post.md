@@ -56,7 +56,7 @@ December 5, 2003 (Asbury Park, NJ)
 : December 19, 2004 (Asbury Park, NJ)
 
 **(What’s So Funny ‘Bout) Peace, Love and Understanding**
-First performed:**  
+**First performed:**  
 
 **Last performed**
 

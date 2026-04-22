@@ -214,7 +214,7 @@ January 3, 1982
  August 30, 2023 (East Rutherford, NJ)
 
 **Johnny 99**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Nebraska* *The Essential Bruce Springsteen*   
 **First performed:**  

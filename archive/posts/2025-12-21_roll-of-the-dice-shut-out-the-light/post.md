@@ -149,7 +149,7 @@ January 19, 1983
  August 7, 2005 (Milwaukee, WI)
 
 **Shut Out the Light**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tracks* *L.A. Garage Sessions ’83*   
 **First performed:**  

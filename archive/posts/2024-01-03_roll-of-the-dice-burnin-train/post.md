@@ -111,7 +111,7 @@ February 1, 2023 (Tampa, FL)
 March 7, 2023 (Milwaukee, WI)
 
 **Burnin’ Train**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Letter to You*   
 **First performed:**   

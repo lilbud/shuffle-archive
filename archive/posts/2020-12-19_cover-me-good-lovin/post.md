@@ -38,6 +38,6 @@ May 11, 2009 (St. Paul, MN)
 : April 24, 2010 (New York City, NY
 
 **Good Lovin’**
-First performed:**  
+**First performed:**  
 
 **Last performed**

@@ -47,7 +47,7 @@ The song loses some of its power when performed as a duet, however, and even tho
 [https://www.youtube.com/embed/oCTK3Rl0yms?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/oCTK3Rl0yms?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Valerie**
-First performed:** October 5, 2006 (Verona, Italy)  
+**First performed:** October 5, 2006 (Verona, Italy)  
 **Last performed:** October 5, 2006 (Verona, Italy)
 
 © December 13, 2020

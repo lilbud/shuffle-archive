@@ -48,6 +48,6 @@ July 28, 1978 (Miami, FL)
  September 1, 2016 (Washington, DC)
 
 **Summertime Blues**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -184,7 +184,7 @@ April 23, 1973 (Hartford, CT)
 November 16, 2019 (Asbury Park, NJ)
 
 **4th of July, Asbury Park (Sandy)**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *The Wild, The Innocent & The E Street Shuffle**The Essential Bruce Springsteen* *Chapter and Verse*  
 **First performed:**   

@@ -176,7 +176,7 @@ May 16, 1973
  July 6, 2019 (Asbury Park, NJ)
 
 **The Fever**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *18 Tracks*  
 **First performed:**  

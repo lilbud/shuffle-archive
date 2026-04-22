@@ -166,7 +166,7 @@ And really, who can blame them? It’s guaranteed fun at the very least, and a r
  September 7, 2016 (Philadelphia, PA)
 
 **Thundercrack**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tracks*  
 **First performed:**  

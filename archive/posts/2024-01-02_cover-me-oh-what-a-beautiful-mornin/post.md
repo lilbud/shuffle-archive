@@ -36,6 +36,6 @@ April 4, 1998 (Sag Harbor, NY)
  April 4, 1998 (Sag Harbor, NY)
 
 **Oh, What a Beautiful Mornin’**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

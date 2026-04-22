@@ -32,7 +32,7 @@ December 9, 2019 (New York City, NY)
 March 10, 2024 (Newark, NJ)
 
 **Pink Houses**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

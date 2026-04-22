@@ -5,5 +5,3 @@ Bassist Stanley Clarke and his band definitely took the latter route. From their
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zgGtViqj-ps)
 
 © April 21, 2018
-
- 

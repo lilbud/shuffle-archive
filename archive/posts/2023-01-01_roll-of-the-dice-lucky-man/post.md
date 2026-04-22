@@ -113,7 +113,7 @@ April 4, 1987
  (single B-side, 1987), (1998)
 
 **Lucky Man**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Brilliant Disguise* *Tracks*  
 **Never performed**

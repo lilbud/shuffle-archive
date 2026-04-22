@@ -171,7 +171,7 @@ December 1977 (1978), (2003)
  September 3, 2023 (East Rutherford, NJ)
 
 **The Promised Land**
-Recorded:**   
+**Recorded:**   
  **Released:**   
 [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*The Essential Bruce Springsteen*   
 **First performed:**  

@@ -28,7 +28,7 @@ December 5, 2003 (Asbury Park, NJ)
  December 8, 2003 (Asbury Park, NJ)
 
 **R.O.C.K.**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

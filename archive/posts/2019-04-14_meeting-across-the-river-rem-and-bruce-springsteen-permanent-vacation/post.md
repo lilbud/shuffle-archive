@@ -18,6 +18,6 @@ October 8, 2004 (Orlando, FL)
  October 8, 2004 (Orlando, FL)
 
 **Permanent Vacation**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

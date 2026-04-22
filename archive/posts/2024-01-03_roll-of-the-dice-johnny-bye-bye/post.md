@@ -145,7 +145,7 @@ January 1983
  April 3, 1985 (Melbourne, Australia)
 
 **Johnny Bye-Bye**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *I’m on Fire**Tracks*  
 **First performed:**  

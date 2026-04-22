@@ -81,7 +81,7 @@ June 7, 1972
 
 
 **Lady and the Doctor**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

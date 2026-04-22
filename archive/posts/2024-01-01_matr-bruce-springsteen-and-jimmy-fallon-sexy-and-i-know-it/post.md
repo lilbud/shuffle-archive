@@ -22,6 +22,6 @@ March 2, 2012 (New York City, NY)
  March 2, 2012 (New York City, NY)
 
 **Sexy and I Know It**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

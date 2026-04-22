@@ -36,6 +36,6 @@ April 13, 2002 (Asbury Park, NJ)
  November 19, 2012 (Denver, CO)
 
 **Get Out of Denver**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

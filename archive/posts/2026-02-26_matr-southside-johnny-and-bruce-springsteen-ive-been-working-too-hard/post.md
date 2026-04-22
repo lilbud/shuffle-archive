@@ -16,8 +16,8 @@ The latter of those two times was caught on video–and while the quality is rou
 
 [Watch Video Highlight](https://videopress.com/embed/d2Z88t4f?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**I’ve Been Working Too Hard  
-First performed:** July 16, 1994 (Asbury Park, NJ)  
+**I’ve Been Working Too Hard**
+**First performed:** July 16, 1994 (Asbury Park, NJ)  
 **Last performed:** May 27, 2001 (Asbury Park, NJ)
 
 © July 27, 2019

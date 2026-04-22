@@ -30,5 +30,5 @@ Well, let’s just say Bruce and the band were on such an adrenaline rush after 
 ![](https://www.youtube.com/watch?v=wFIkABkwlLY)
 
 **Don’t Change
-First performed:** February 19, 2014 (Sydney, Australia)
+**First performed:** February 19, 2014 (Sydney, Australia)
 **Last performed:** May 13, 2014 (Albany, NY)

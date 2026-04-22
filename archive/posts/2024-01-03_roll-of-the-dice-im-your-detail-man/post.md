@@ -95,7 +95,7 @@ May 28, 1995 (Beverly Hills, CA)
  May 28, 1995 (Beverly Hills, CA)
 
 **I’m Your Detail Man**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

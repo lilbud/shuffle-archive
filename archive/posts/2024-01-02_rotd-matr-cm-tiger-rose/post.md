@@ -63,10 +63,10 @@ October 18, 2001 (Red Bank, NJ)
 October 19, 2001 (Red Bank, NJ)
 
 **Tiger Rose**
-Recorded:**  
+**Recorded:**  
 
 **Never released**
-First performed:**   
+**First performed:**   
 
 **Last performed**
 

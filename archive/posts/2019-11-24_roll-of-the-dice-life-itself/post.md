@@ -67,7 +67,7 @@ We’re still waiting to hear “Life Itself” performed live; Bruce has yet to
  “Life Itself” (single) (2008); (2009)
 
 **Life Itself**
-Recorded:**   
+**Recorded:**   
 
 **Released:***Working on a Dream*  
 **Never Performed**

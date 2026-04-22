@@ -36,6 +36,6 @@ October 21, 2006 (Valencia, Spain)
  October 30, 2006 (Stockholm, Sweden)
 
 **Love of the Common People**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

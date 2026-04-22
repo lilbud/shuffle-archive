@@ -100,7 +100,7 @@ March 19, 2005
  May 16, 2015 (New York City, NY)
 
 **O Mary Don’t You Weep**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *We Shall Overcome: The Seeger Sessions*   
 **First performed:**  

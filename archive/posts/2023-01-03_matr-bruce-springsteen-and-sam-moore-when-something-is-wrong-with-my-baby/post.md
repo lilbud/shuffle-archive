@@ -50,6 +50,6 @@ December 5, 2003 (Asbury Park, NJ)
  December 8, 2003 (Asbury Park, NJ)
 
 **When Something Is Wrong With My Baby**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

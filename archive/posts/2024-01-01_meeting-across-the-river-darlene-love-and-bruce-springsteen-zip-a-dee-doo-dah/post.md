@@ -20,6 +20,6 @@ March 14, 2011 (New York City, NY)
  March 14, 2011 (New York City, NY)
 
 **Zip-a-Dee-Doo-Dah**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

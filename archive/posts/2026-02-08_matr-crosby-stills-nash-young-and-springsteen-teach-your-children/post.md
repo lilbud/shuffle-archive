@@ -30,7 +30,7 @@ October 13, 1986 (Mountain View, CA)
  December 13, 2021 (New York City, NY)
 
 **Teach Your Children**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

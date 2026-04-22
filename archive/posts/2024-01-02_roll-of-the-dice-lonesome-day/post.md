@@ -141,7 +141,7 @@ February-March 2002
  September 3, 2023 (East Rutherford, NJ)
 
 **Lonesome Day**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Rising* *The Essential Bruce Springsteen*   
 **First performed:**  

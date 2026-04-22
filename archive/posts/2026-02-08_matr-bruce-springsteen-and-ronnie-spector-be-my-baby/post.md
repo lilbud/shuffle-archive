@@ -40,7 +40,7 @@ November 4, 1976 (New York City, NY)
  January 18, 1989 (New York City, NY)
 
 **Be My Baby**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

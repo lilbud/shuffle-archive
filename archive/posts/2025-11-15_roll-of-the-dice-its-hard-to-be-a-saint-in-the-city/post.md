@@ -139,7 +139,7 @@ May 2, 1972 (New York City, NY)
 April 3, 2023 (Brooklyn, NY)
 
 **It’s Hard to Be a Saint in the City**
-Recorded:**   
+**Recorded:**   
 
 **Released:** [Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Tracks*   
 **First performed:**   

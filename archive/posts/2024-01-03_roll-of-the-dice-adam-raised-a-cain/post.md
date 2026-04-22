@@ -154,7 +154,7 @@ February 15-17, 1978
  February 9, 2017 (Sydney, Australia)
 
 **Adam Raised a Cain**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Darkness on the Edge of Town*   
 **First performed:**  

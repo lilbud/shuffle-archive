@@ -69,7 +69,7 @@ May-June 1972
  February 17, 1972 (Freehold, NJ)
 
 **Southern Sun**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **First performed:**  

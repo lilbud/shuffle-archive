@@ -23,6 +23,6 @@ September 30, 1967 (Freehold, NJ)
  January 17, 2015 (Asbury Park, NJ)
 
 **The Letter**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -24,6 +24,6 @@ September 18, 1982 (Red Bank, NJ)
  September 18, 1982 (Red Bank, NJ)
 
 **Let’s Talk About Us**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

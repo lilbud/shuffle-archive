@@ -99,7 +99,7 @@ June 24 – December 29, 1977
  September 11, 2016 (Pittsburgh, PA)
 
 **Streets of Fire**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *Darkness on the Edge of Town*  
 **First performed:**  

@@ -28,6 +28,6 @@ September 30, 1978 (Atlanta, GA)
  September 30, 1978 (Atlanta, GA)
 
 **Night Train**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -46,6 +46,6 @@ March 1, 2014 (Auckland, New Zealand)
  March 2, 2014 (Auckland, New Zealand)
 
 **Royals**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

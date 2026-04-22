@@ -22,6 +22,6 @@ November 2, 2002 (Sea Bright, NJ)
  January 14, 2012 (Asbury Park, NJ)
 
 **Wild in the Streets**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

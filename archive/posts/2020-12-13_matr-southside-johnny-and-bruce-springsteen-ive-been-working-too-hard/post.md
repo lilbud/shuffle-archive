@@ -34,6 +34,6 @@ July 16, 1994 (Asbury Park, NJ)
  May 27, 2001 (Asbury Park, NJ)
 
 **I’ve Been Working Too Hard**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

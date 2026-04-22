@@ -34,6 +34,6 @@ September 13, 2003 (Landover, MD)
  September 14, 2003 (Chapel Hill, NC)
 
 **I Walk The Line**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

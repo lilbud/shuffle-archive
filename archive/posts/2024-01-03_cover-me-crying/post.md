@@ -71,6 +71,6 @@ September 30, 1987 (Los Angeles, CA)
  January 18, 1989 (New York City, NY)
 
 **Crying**
-First performed:**   
+**First performed:**   
 
 **Last performed:**

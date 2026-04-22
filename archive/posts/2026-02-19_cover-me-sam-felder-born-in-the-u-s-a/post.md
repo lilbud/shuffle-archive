@@ -7,5 +7,3 @@ So yeah, expectations are high for his debut album, but I suspect “the new Dyl
 In the meantime, we have several of Fender’s Springsteen covers to listen to, and he certainly doesn’t shy away from the iconic ones–here’s a smoking rendition of Bruce’s “Dancing in the Dark.”
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mwpMYm92Mos)
-
- 

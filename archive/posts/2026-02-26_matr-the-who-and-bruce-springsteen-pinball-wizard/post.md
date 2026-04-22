@@ -8,8 +8,8 @@ You can watch it below, but keep a careful eye out: Bruce’s appearances are fe
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rSb63bh1WVU)
 
-**Pinball Wizard  
-First performed:** January 17, 1990 (New York City, NY)  
+**Pinball Wizard**
+**First performed:** January 17, 1990 (New York City, NY)  
 **Last performed:** January 17, 1990 (New York City, NY)
 
 © June 11, 2019

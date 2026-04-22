@@ -166,7 +166,7 @@ January 1995
  January 22, 2017 (Perth, Australia)
 
 **Blood Brothers**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Greatest Hits* *Blood Brothers*  
 **First performed:**  

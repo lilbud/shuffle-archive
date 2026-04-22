@@ -26,7 +26,7 @@ To date, Bruce has never played “Better Things” in concert, but thankfully w
 (2010)
 
 **Better Things**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *See My Friends*   
 **Never performed**

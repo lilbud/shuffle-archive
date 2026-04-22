@@ -122,7 +122,7 @@ After all: It’s all happened before. It’ll happen again.
  September 7, 2016 (Philadelphia, PA)
 
 **Jack of All Trades**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Wrecking Ball*   
 **First performed:**  

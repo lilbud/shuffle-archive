@@ -77,7 +77,7 @@ December 3, 1971 (Asbury Park, NJ)
 **Sure Can Feel the Pain**
 Never Recorded
 Never Released
-First performed:**   
+**First performed:**   
 
 
 

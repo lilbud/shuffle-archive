@@ -42,7 +42,7 @@ December 29, 1998
  September 30, 2018 (Asbury Park, NJ)
 
 **Misery Loves Company**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Cheating at Solitaire*  
 **First performed**  

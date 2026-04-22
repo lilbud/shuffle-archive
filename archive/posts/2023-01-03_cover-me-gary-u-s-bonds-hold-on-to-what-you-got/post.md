@@ -90,7 +90,7 @@ Early 1982
  (1982)
 
 **Hold On (To What You Got)**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *On the Line*  
 **Never performed live**

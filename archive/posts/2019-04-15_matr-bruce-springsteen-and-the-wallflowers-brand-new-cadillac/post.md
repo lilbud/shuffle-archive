@@ -30,6 +30,6 @@ March 8, 1997 (Sea Bright, NJ)
  March 8, 1997 (Seat Bright, NJ)
 
 **Brand New Cadillac**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

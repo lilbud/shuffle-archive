@@ -90,7 +90,7 @@ January – April 1987
  April 29, 2013 (Oslo, Norway)
 
 **All That Heaven Will Allow**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tunnel of Love*   
 **First performed:**  

@@ -8,8 +8,8 @@ It happened at SxSW 2012: Bruce joined his Texas buddies Joe Ely and Alejandro E
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DmLPWWvrT6I)
 
-**Midnight Train  
-First performed:** March 14, 2012 (Austin, TX)  
+**Midnight Train**
+**First performed:** March 14, 2012 (Austin, TX)  
 **Last performed:** March 14, 2012 (Austin, TX)
 
 © March 4, 2018

@@ -50,6 +50,6 @@ October 17, 1970 (West Long Branch, NJ)
  January 22, 1971 (Asbury Park, NJ)
 
 **Train Ride**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

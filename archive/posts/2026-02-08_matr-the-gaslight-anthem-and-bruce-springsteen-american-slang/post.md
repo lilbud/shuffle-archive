@@ -34,7 +34,7 @@ December 9, 2011 (Asbury Park, NJ)
  December 9, 2011 (Asbury Park, NJ)
 
 **American Slang**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

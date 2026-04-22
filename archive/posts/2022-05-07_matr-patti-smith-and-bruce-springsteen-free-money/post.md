@@ -38,6 +38,6 @@ November 26, 1976 (New York City, NY)
  November 26, 1976 (New York City, NY)
 
 **Free Money**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

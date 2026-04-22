@@ -115,7 +115,7 @@ June 1, 1977 (core track)
  (2010)
 
 **Breakaway**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Promise*  
 **Never performed**

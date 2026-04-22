@@ -61,5 +61,3 @@
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=94SjY9SDj6E)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
-
- 

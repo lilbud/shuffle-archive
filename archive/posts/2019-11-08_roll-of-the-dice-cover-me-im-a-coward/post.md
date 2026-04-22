@@ -52,6 +52,6 @@ February 25, 1988 (Worcester, MA)
  August 3, 1988 (Barcelona, Spain)
 
 **I’m a Coward**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

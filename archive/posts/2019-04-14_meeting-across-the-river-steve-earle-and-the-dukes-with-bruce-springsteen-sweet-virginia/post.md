@@ -18,6 +18,6 @@ February 6, 1998 (Sea Bright, NJ)
  February 6, 1998 (Sea Bright, NJ)
 
 **Sweet Virginia**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

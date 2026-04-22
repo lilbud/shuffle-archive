@@ -50,6 +50,6 @@ May 14, 1971 (Asbury Park, NJ)
  December 12, 1975 (Greenvale, NY) – soundcheck only
 
 **Cry to Me**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

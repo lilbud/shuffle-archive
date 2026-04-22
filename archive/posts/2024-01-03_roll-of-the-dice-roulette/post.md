@@ -164,7 +164,7 @@ April 1979
  July 5, 2016 (Milan, Italy)
 
 **Roulette**
-Recorded:**  
+**Recorded:**  
 
 **Released:***One Step Up* *Tracks* *The River: Outtakes*  
 **First performed:**  

@@ -50,6 +50,6 @@ October 31, 1987 (Sea Bright, NJ)
  July 24, 2013 (Leeds, England)
 
 **Bad Moon Rising**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

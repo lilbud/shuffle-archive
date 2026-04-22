@@ -40,8 +40,8 @@ Even though it’s been a full decade since that last “Bad Moon Rising” perf
 
 Bruce has covered more of John Fogerty’s songs than almost any other artist. This is our seventh entry on Fogerty covers, and we’re not done yet.
 
-**Bad Moon Rising  
-First performed:** October 31, 1987 (Sea Bright, NJ)  
+**Bad Moon Rising**
+**First performed:** October 31, 1987 (Sea Bright, NJ)  
 **Last performed:** April 26, 2025 (West Long Branch, NJ)
 
 © January 18, 2023

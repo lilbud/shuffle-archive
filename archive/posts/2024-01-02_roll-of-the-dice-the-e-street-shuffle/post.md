@@ -165,7 +165,7 @@ June-September 1973
  September 1, 2023 (East Rutherford, NJ)
 
 **The E Street Shuffle**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Wild, The Innocent & The E Street Shuffle*   
 **First performed:**  

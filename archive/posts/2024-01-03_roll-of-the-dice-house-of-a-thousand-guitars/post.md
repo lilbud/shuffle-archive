@@ -160,7 +160,7 @@ November 2019
  February 3, 2023 (Atlanta, GA)
 
 **House of a Thousand Guitars**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *Letter to You*   
 **First performed:**  

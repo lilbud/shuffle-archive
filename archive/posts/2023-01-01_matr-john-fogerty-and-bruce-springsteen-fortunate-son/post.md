@@ -42,6 +42,6 @@ August 9, 1987 (Asbury Park, NJ)
  November 11, 2014 (Washington, DC)
 
 **Fortunate Son**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -13,7 +13,7 @@ Upon its release in the spring of 1961, “Running Scared” became Orbison’s 
 Bruce has (wisely) never attempted the song on his own.
 
 **Running Scared**
-First performed:** September 30, 1987 (Los Angeles, CA)  
+**First performed:** September 30, 1987 (Los Angeles, CA)  
 **Last performed:** September 30, 1987 (Los Angeles, CA)
 
 © August 24, 2020

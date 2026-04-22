@@ -32,7 +32,7 @@ November 1, 2003 (Asbury Park, NJ)
  November 1, 2003 (Asbury Park, NJ)
 
 **Hail Hail Rock ‘n’ Roll**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

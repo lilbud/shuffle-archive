@@ -19,5 +19,5 @@ What a great addition “I’m So Lonesome I Could Cry” would have made to tho
 ![](https://www.youtube.com/watch?v=ZC_y56qVXX4)
 
 **I’m So Lonesome I Could Cry
-First performed:** March 14, 1988 (Richfield, OH – soundcheck only)
+**First performed:** March 14, 1988 (Richfield, OH – soundcheck only)
 **Last performed:** May 5, 1988 (Tacoma, WA – soundcheck only)

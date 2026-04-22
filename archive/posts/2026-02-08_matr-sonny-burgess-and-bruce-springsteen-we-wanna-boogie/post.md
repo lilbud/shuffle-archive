@@ -30,7 +30,7 @@ October 19, 2001 (Red Bank, NJ)
  October 19, 2001 (Red Bank, NJ)
 
 **We Wanna Boogie**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

@@ -17,5 +17,5 @@ Here’s the original for good measure–because there’s no such thing as too 
 ![](https://www.youtube.com/watch?v=Gi9a7IdRiBI)
 
 **Do You Remember Rock ‘n’ Roll Radio
-First performed:** January 18, 2014 (Asbury Park, NJ)
+**First performed:** January 18, 2014 (Asbury Park, NJ)
 **Last performed:** January 18, 2014 (Asbury Park, NJ)

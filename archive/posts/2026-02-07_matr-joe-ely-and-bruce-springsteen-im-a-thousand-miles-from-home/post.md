@@ -46,7 +46,7 @@ April 1995
 (1995)
 
 **I’m a Thousand Miles From Home**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Letter to Laredo*   
 **Never performed**

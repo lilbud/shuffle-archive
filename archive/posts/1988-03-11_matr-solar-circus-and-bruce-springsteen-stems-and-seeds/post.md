@@ -21,7 +21,7 @@ Bruce doesn’t sing in the recording below (since this was an impromptu perform
 That was the first and only time Bruce performed with Solar Circus.
 
 **Stems and Seeds**
-First performed:** August 10, 1995 (Long Branch, NJ)  
+**First performed:** August 10, 1995 (Long Branch, NJ)  
 **Last performed:** August 10, 1995 (Long Branch, NJ)
 
 © March 22, 2021

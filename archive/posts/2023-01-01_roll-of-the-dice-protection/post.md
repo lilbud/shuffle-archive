@@ -131,7 +131,7 @@ January-May 1979 (demo only)
 
 
 **Protection**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

@@ -14,8 +14,8 @@ Together, the all-star ensemble performed Dion’s 1959 classic, “A Teenager i
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2pwgswchPDo)
 
-**A Teenager in Love  
-First performed:** September 30, 1976 (West Hollywood, CA)  
+**A Teenager in Love**
+**First performed:** September 30, 1976 (West Hollywood, CA)  
 **Last performed:** December 13, 1987 (New York City, NY)
 
 © August 16, 2020

@@ -27,5 +27,5 @@ Check out that performance below–“Surfin’ U.S.A.” starts around the one-
 ![](https://www.youtube.com/watch?v=cFUsZHWVB1M)
 
 **Surfin’ U.S.A.
-First performed:** July 1, 2015 (Holmdel, NJ)
+**First performed:** July 1, 2015 (Holmdel, NJ)
 **Last performed:** July 1, 2015 (Holmdel, NJ)

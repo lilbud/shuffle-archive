@@ -94,7 +94,7 @@ January 10, 1987
  (1998)
 
 **When You Need Me**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tracks*  
 **Never performed**

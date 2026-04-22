@@ -20,8 +20,8 @@ Here’s hoping for another Scialfa album (and some solo shows) sometime soon.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ATgQhCUnTmg)
 
-**Spanish Dancer  
-First performed:** December 3, 2001 (Asbury Park, NJ)  
+**Spanish Dancer**
+**First performed:** December 3, 2001 (Asbury Park, NJ)  
 **Last performed:** December 8, 2001 (Asbury Park, NJ)
 
 © May 28, 2020

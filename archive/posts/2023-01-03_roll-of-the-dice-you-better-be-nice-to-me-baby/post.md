@@ -111,7 +111,7 @@ September 1, 1971 (Long Branch, NJ)
  September 1, 1971 (Long Branch, NJ)
 
 **You Better Be Nice to Me, Baby**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

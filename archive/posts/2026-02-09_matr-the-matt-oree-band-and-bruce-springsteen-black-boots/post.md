@@ -31,7 +31,7 @@ Bruce end up contributing lead vocals and a screaming guitar solo, and the finis
 Late 2013 (2016)
 
 **Black Boots**
-Recorded:**   
+**Recorded:**   
  **Released:**   
 *Brotherhood*  
 **Never performed**

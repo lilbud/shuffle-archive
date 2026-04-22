@@ -72,7 +72,7 @@ May 30, 1976 (Asbury Park, NJ)
  August 7, 2019 (Asbury Park, NJ)
 
 **Having a Party**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

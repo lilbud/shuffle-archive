@@ -23,5 +23,5 @@ So it’s surprising to learn that Bruce has only covered Dylan’s classic twic
 Bruce performed “Blowin’ in the Wind” once more, just a few months later on the aforementioned Human Rights Now Tour. This time, though, he was a guest artist during Joan Baez’s set, and to my knowledge there’s no circulating recording of their duet.
 
 **Blowin’ in the Wind
-First performed:** June 18, 1988 (Paris, France)
+**First performed:** June 18, 1988 (Paris, France)
 **Last performed:** September 23, 1988 (Oakland, CA)

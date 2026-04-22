@@ -107,7 +107,7 @@ March-August 1995
  May 26, 1997 (Paris, France)
 
 **Balboa Park**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Ghost of Tom Joad*  
 **First performed:**  

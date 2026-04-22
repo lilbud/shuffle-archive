@@ -7,7 +7,7 @@ So hearing them play it with Bruce Springsteen on the Vote for Change Tour in 20
 [https://www.youtube.com/embed/ZfxMHXJZdnU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/ZfxMHXJZdnU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Permanent Vacation**
-First performed:** October 8, 2004 (Orlando, FL)  
+**First performed:** October 8, 2004 (Orlando, FL)  
 **Last performed:** October 8, 2004 (Orlando, FL)
 
 © April 20, 2018

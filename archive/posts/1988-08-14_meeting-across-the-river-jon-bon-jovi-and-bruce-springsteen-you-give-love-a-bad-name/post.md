@@ -9,7 +9,7 @@ And just because we all need to be reminded from time to time that rock stars us
 [https://www.youtube.com/embed/KrZHPOeOxQQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/KrZHPOeOxQQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **You Give Love a Bad Name**
-First performed:** January 31, 1998 (Red Bank, NJ)  
+**First performed:** January 31, 1998 (Red Bank, NJ)  
 **Last performed:** January 31, 1998 (Red Bank, NJ)
 
 © October 9, 2018

@@ -64,6 +64,6 @@ July 10, 1971 (Lincroft, NJ)
  April 13, 2019 (New York City, NY)
 
 **Down the Road Apiece**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

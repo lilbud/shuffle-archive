@@ -40,5 +40,5 @@ Take a listen below–it’s one of my favorite tracks from a Springsteen bar gi
 ![](https://www.youtube.com/watch?v=9osA0jMFeBk)
 
 ** (Get Your Kicks On) Route 66
-First performed:** September 1, 1971 (Long Branch, NJ)
+**First performed:** September 1, 1971 (Long Branch, NJ)
 **Last performed:** November 13, 1994 (Castaic, CA)

@@ -30,6 +30,6 @@ April 12, 1995 (New York City, NY)
  April 12, 1995 (New York City, NY)
 
 **It’s Now or Never**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -24,5 +24,5 @@ On the night after Thanksgiving, Patti played a gig at The Bottom Line in New Yo
 To this day, that holiday evening remains the only time Bruce has ever played this Underground classic.
 
 **We’re Gonna Have a Real Good Time Together
-First performed:** November 26, 1976 (New York City, NY)
+**First performed:** November 26, 1976 (New York City, NY)
 **Last performed:** November 26, 1976 (New York City, NY)

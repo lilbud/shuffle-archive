@@ -51,7 +51,7 @@ November 3, 2000 (Asbury Park, NJ)
  December 2, 2004 (Pittsburgh, PA)
 
 **Everything’s Going to Work Out Right**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

@@ -11,7 +11,7 @@ Lucinda’s original studio version remains one of her greatest songs, a rebelli
 [https://www.youtube.com/embed/eJTHhY-mG94?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/eJTHhY-mG94?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Joy**
-First performed:** November 10, 1996 (London, England)  
+**First performed:** November 10, 1996 (London, England)  
 **Last performed:** November 10, 1996 (London, England)
 
 © June 25, 2019

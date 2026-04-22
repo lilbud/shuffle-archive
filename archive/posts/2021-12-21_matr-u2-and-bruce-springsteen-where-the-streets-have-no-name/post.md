@@ -36,6 +36,6 @@ December 1, 2014 (New York City, NY)
  December 1, 2014 (New York City, NY)
 
 **Where the Streets Have No Name**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

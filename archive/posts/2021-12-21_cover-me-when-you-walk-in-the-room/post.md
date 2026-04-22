@@ -50,6 +50,6 @@ August 13, 1975 (New York City, NY)
  July 28, 2013 (Kilkenny, Ireland)
 
 **When You Walk in the Room**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -27,5 +27,5 @@ With the benefit of 34 years of hindsight, I can’t help but wonder–especiall
 We’ll never know what Bruce was thinking that night, though, and perhaps tellingly, he’s never performed the song since.
 
 **When I Grow Up (To Be a Man)
-First performed:** June 1, 1985 (Slane, Ireland)
+**First performed:** June 1, 1985 (Slane, Ireland)
 **Last performed:** June 1, 1985 (Slane, Ireland)

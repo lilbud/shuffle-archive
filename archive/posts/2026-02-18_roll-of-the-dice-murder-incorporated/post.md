@@ -113,8 +113,8 @@ Bruce would continue to perform “Murder Incorporated” many times with the Ho
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nJPDVsqagF0)
 
-**Murder Incorporated  
-Recorded:** May 3-4, 1982  
+**Murder Incorporated**
+**Recorded:** May 3-4, 1982  
 **Released:** *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
 **First performed:** February 21, 1995 (New York City, NY)  
 **Last performed:** July 3, 2025 (Milan, Italy)

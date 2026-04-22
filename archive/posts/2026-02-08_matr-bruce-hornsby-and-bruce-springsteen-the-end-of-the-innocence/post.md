@@ -38,7 +38,7 @@ December 7, 2001 (Asbury Park, NJ)
  December 8, 2001 (Asbury Park, NJ)
 
 **The End of the Innocence**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

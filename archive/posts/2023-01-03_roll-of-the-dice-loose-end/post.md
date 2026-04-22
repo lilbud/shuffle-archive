@@ -93,7 +93,7 @@ July 18, 1979
  September 9, 2016 (Philadelphia, PA)
 
 **Loose End**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tracks* *The River: Single Album*  
 **First performed:**  

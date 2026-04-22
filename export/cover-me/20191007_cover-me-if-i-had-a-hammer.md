@@ -42,7 +42,7 @@ Unfortunately, Bruce’s vocals are far from their best here. We have to assume 
 Nevertheless, “If I Had a Hammer (The Hammer Song)” is a fine entry in the Seeger Sessions library and would be a natural and welcome addition to the setlist on the next (fingers crossed) Sessions Band tour.
 
 **If I Had a Hammer (The Hammer Song)
-Recorded:** January 21, 2006
+**Recorded:** January 21, 2006
 **Released:** *Roots and Branches* (2018)
 **Never performed**
 

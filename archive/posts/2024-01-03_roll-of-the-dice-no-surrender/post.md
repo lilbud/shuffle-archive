@@ -193,7 +193,7 @@ October 27, 1983
  September 3, 2023 (East Rutherford, NJ)
 
 **No Surrender**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Born in the U.S.A.*   
 **First performed:**  

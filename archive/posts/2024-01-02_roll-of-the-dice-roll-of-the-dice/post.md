@@ -116,7 +116,7 @@ December 1989
  February 16, 2017 (Brisbane, Australia)
 
 **Roll of the Dice**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Human Touch*  
 **First performed:**  

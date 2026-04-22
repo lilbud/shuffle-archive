@@ -92,7 +92,7 @@ April – July 1972
  February 25, 1972 (Richmond, VA)
 
 **Cowboys of the Sea**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **First performed:**  

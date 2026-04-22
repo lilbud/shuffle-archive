@@ -68,7 +68,7 @@ October 5, 2006 (Verona, Italy)
  October 5, 2006 (Verona, Italy)
 
 **Valerie**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

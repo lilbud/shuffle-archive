@@ -216,7 +216,7 @@ August 26, 1979 – April 1980
  July 25, 2021 (Monza, Italy)
 
 **The River**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The River* *Greatest Hits* *The Essential Bruce Springsteen**Chapter and Verse*  
 **First performed:**  

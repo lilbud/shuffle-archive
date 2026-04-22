@@ -222,7 +222,7 @@ July 18, 1975
  September 3, 2023 (East Rutherford, NJ)
 
 **Backstreets**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Born to Run*   
 **First performed:**  

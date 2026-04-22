@@ -120,7 +120,7 @@ March-August 1995
  September 25, 2009 (New York City, NY)
 
 **Galveston Bay**
-Recorded:**  
+**Recorded:**  
 
 **Released:***The Ghost of Tom Joad*   
 **First performed:**  

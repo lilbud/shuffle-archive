@@ -143,7 +143,7 @@ January-April 1987
  October 9, 2005 (Uniondale, NY)
 
 **Two Faces**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tunnel of Love*   
 **First performed:**  

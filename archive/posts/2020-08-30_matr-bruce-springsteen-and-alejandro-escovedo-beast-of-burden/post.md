@@ -20,6 +20,6 @@ July 23, 2010 (Asbury Park, NJ)
  March 14, 2012 (Austin, TX)
 
 **Beast of Burden**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

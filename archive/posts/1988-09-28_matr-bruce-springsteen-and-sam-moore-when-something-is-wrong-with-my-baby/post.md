@@ -29,7 +29,7 @@ Bruce is clearly in awe of his idol throughout their performance, but he summons
 Sam and Bruce only performed “When Something Is Wrong With My Baby” three times (in a four-day period!) back in the 2003 holiday season, but they made those few performances count.
 
 **When Something Is Wrong With My Baby**
-First performed:** December 5, 2003 (Asbury Park, NJ)  
+**First performed:** December 5, 2003 (Asbury Park, NJ)  
 **Last performed:** December 8, 2003 (Asbury Park, NJ)
 
 © May 26, 2021

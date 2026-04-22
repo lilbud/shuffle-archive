@@ -83,7 +83,7 @@ November 1, 1980 (Los Angeles, CA)
 July 28, 2016 (Oslo, Norway)
 
 **Fade Away**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *The River*  
 **First performed:**   

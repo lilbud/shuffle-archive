@@ -58,7 +58,7 @@ Unknown
  October 28, 2005 (Boston, MA)
 
 **Idiot’s Delight**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Coming Home*   
 **First performed:**  

@@ -126,7 +126,7 @@ December 1, 1989
  (1998)
 
 **Trouble in Paradise**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tracks*  
 **Never performed**

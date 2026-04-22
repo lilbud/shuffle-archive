@@ -135,7 +135,7 @@ September 1989 – March 1991
  November 10, 1992 (Uniondale, NY)
 
 **Cross My Heart**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Human Touch*  
 **First performed:**  

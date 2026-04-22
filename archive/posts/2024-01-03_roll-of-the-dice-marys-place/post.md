@@ -125,7 +125,7 @@ February-March 2002
  September 3, 2023 (East Rutherford, NJ)
 
 **Mary’s Place**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Rising*  
 **First performed:**  

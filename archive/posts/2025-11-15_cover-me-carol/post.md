@@ -42,7 +42,7 @@ July 26, 1975 (Kutztown, PA)
  July 23, 1989 (Asbury Park, NJ)
 
 **Carol**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

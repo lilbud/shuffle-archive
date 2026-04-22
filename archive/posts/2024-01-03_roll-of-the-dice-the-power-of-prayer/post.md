@@ -105,7 +105,7 @@ November 6, 2023(New York City, NY)
  November 6, 2023 (New York City, NY)
 
 **The Power of Prayer**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Letter to You*   
 **First performed:**   

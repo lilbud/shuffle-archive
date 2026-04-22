@@ -24,7 +24,7 @@ November 10, 1996 (London, England)
  November 10, 1996 (London, England)
 
 **Joy**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

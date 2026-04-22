@@ -120,7 +120,7 @@ August 1977 – February 1978
  (2010)
 
 **The Way**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Promise*  
 **Never performed**

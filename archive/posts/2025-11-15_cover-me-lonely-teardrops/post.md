@@ -32,7 +32,7 @@ May 22, 1988 (New York City, NY)
  July 10, 1988 (Sheffield, England)
 
 **Lonely Teardrops**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

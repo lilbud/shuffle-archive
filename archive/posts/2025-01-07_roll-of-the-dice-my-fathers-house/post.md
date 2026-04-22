@@ -139,7 +139,7 @@ May 25, 1982
  September 4, 2021 (New York City, NY)
 
 **My Father’s House**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Nebraska* *Chapter and Verse*  
 **First performed:**  

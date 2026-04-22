@@ -68,7 +68,7 @@ January 11, 1979 (Fair Haven, NJ)
  June 7, 2025 (Liverpool, England)
 
 **Kansas City**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

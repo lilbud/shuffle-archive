@@ -31,5 +31,5 @@ Take a listen to this delightful one-off cover of an early rockabilly shoulda-be
 [https://videopress.com/embed/farXoZZP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/farXoZZP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 **You’re The One That Done It
-First performed:** March 23, 1988 (Atlanta, GA – soundcheck only)
+**First performed:** March 23, 1988 (Atlanta, GA – soundcheck only)
 **Last performed:** March 23, 1988 (Atlanta, GA – soundcheck only)

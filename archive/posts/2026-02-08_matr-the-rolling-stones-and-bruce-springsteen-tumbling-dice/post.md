@@ -34,7 +34,7 @@ December 15, 2012 (Newark, NJ)
 May 29, 2014 (Lisbon, Portugal)
 
 **Tumbling Dice**
-First performed:**   
+**First performed:**   
 
 **Last performed:**
 

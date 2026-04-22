@@ -36,7 +36,7 @@ August 11, 1989 (Holmdel, NJ)
  August 11, 1989 (Holmdel, NJ)
 
 **Get Back**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

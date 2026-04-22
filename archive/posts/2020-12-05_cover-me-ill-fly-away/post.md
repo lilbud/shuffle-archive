@@ -60,6 +60,6 @@ April 22, 2008 (Tampa, FL)
  April 22, 2008 (Tampa, FL)
 
 **I’ll Fly Away**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

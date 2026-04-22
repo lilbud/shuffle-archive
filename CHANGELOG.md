@@ -80,3 +80,7 @@
 # 2026-03-15
 - Fixed issue in `get_latest.py` where the request was timing out and failing to find posts that were present. With how many posts are updated each day, and more importantly removed, this is important. Timeout has been disabled for the time being.
 - All articles in `posts_json` have been converted to markdown and copied to the `archive/posts` directory. Additionally, fixed lines which were formatted incorrectly. Many files likely have broken formatting due to Ken's archiving practices. These will be fixed over time, eventually.
+
+# 2026-04-22
+- All posts up through April 22 grabbed as well as converted to markdown
+- All markdown files have received another cleanup pass, this time fixing incorrectly formatted **bold** lines at the end of posts. This is an addition to the other cleanup passes, which were done in January. Many of the markdown files likely still have structural and formatting issues.

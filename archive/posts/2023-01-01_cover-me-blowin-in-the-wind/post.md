@@ -28,6 +28,6 @@ June 18, 1988 (Paris, France)
  September 23, 1988 (Oakland, CA)
 
 **Blowin’ in the Wind**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

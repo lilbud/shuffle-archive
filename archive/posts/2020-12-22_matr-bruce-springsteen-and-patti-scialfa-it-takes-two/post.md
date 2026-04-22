@@ -42,6 +42,6 @@ April 13, 2002 (Asbury Park, NJ)
  October 17, 2009 (Asbury Park, NJ)
 
 **It Takes Two**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

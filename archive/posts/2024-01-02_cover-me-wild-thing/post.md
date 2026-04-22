@@ -44,6 +44,6 @@ April 24, 2009 (Hartford, CT)
  July 18, 2013 (Cork, Ireland)
 
 **Wild Thing**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -46,6 +46,6 @@ August 10, 1995 (Long Branch, NJ)
  August 10, 1995 (Long Branch, NJ)
 
 **Better Things**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

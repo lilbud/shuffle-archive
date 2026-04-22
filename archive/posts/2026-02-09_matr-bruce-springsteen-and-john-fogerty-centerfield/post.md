@@ -38,7 +38,7 @@ October 1, 2004 (Philadelphia, PA)
  October 13, 2004 (East Rutherford, NJ)
 
 **Centerfield**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

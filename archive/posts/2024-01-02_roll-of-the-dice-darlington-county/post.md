@@ -134,7 +134,7 @@ May 13, 1982
  August 24, 2023 (Foxborough, MA)
 
 **Darlington County**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Born in the U.S.A.*   
 **First performed:**  

@@ -26,6 +26,6 @@ November 9, 1980 (Austin, TX)
  November 9, 1980 (Austin, TX)
 
 **Waltz Across Texas**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

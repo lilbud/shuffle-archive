@@ -73,8 +73,8 @@ The early verses are more pointed (instead of gazing at the wedding ring on his 
 
 By now, most of the *Born in the U.S.A.* era outtakes have been released, so perhaps “Your Love Is All Around Me” never made it to the studio. Let’s hope it did, though. It’s a clever song, a nice companion piece to “I’m Goin’ Down,” and it would be great to hear a finished version someday.
 
-**Your Love Is All Around Me  
-Recorded:** Early 1982 (rehearsals)  
+**Your Love Is All Around Me**
+**Recorded:** Early 1982 (rehearsals)  
 **Never released**  
 **Never performed**
 

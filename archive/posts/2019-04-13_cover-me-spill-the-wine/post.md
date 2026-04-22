@@ -18,6 +18,6 @@ February 23, 2014 (Hunter Valley, Australia)
  February 23, 2014 (Hunter Valley, Australia)
 
 **Spill the Wine**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

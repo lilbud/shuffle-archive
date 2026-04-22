@@ -50,7 +50,7 @@ I’ll leave you with Bruce and Joe performing “Talking to the King” at Ligh
 [https://www.youtube.com/embed/JnFv1WiWmeo?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/JnFv1WiWmeo?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Talking to the King**
-First performed:** October 17, 1995 (Asbury Park, NJ)  
+**First performed:** October 17, 1995 (Asbury Park, NJ)  
 **Last performed:** January 18, 2020 (Asbury Park, NJ)
 
 © June 12, 2020

@@ -48,7 +48,7 @@ November 2020 (New York City, NY)
  July 26, 2022 (New York City, NY)
 
 **Chinatown**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Take the Sadness Out of Saturday Night*   
 **First performed:**   

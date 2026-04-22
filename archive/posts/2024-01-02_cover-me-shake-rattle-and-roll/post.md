@@ -52,6 +52,6 @@ September 2, 1995 (Cleveland, OH)
  July 5, 2013 (Mönchengladbach, Germany)
 
 **Shake, Rattle and Roll**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

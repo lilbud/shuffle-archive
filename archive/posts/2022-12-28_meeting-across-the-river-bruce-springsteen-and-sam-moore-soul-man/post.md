@@ -26,6 +26,6 @@ October 15, 1999 (Phoenix, AZ)
  April 22, 2017 (Marlboro, NJ)
 
 **Soul Man**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

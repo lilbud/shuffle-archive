@@ -109,7 +109,7 @@ January-April 1987
  October 20, 2005 (Worcester, MA)
 
 **When You’re Alone**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tunnel of Love*   
 **First performed:**  

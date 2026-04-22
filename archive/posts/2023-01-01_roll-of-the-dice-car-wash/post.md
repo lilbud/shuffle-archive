@@ -82,7 +82,7 @@ May 31, 1983
  June 13, 1999 (Leipzig, Germany)
 
 **Car Wash**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tracks*   
 **First performed:**  

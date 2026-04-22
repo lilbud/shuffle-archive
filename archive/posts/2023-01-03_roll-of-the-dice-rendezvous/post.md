@@ -122,7 +122,7 @@ September 29, 1977
  November 16, 2019 (Asbury Park, NJ)
 
 **Rendezvous**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Promise*   
 **First performed:**  

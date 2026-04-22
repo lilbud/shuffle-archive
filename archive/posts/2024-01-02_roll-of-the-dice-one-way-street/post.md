@@ -145,7 +145,7 @@ December 7, 2010 (Asbury Park, NJ)
 July 5, 2013 (Monchengladbach, Germany)
 
 **One Way Street**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Promise*   
 **First performed:**   

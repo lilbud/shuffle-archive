@@ -97,5 +97,5 @@ Play it, Bruce.
 ![](https://www.youtube.com/watch?v=eCDBfSWyhiY)
 
 **The Star-Spangled Banner
-First performed:** October 1, 2004 (Philadelphia, PA)
+**First performed:** October 1, 2004 (Philadelphia, PA)
 **Last performed:** October 13, 2004 (East Rutherford, NJ)

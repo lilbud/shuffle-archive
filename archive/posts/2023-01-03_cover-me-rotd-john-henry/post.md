@@ -50,7 +50,7 @@ March 19, 2005
  November, 21, 2006 (Belfast, Northern Ireland)
 
 **John Henry**
-Recorded:**  
+**Recorded:**  
 
 **Released:**[](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*We Shall Overcome: The Seeger Sessions*  
 **First performed:**  

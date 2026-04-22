@@ -60,6 +60,6 @@ December 2, 1977 (New York City, NY)
  June 13, 1982 (Asbury Park, NJ)
 
 **Heartbreak Hotel**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -38,7 +38,7 @@ December 3, 2001 (Asbury Park, NJ)
  December 22, 2002 (Asbury Park, NJ)
 
 **Jingle Bell Rock**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

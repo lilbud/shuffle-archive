@@ -69,6 +69,6 @@ October 17, 1995 (Asbury Park, NJ)
  January 18, 2020 (Asbury Park, NJ)
 
 **Talking to the King**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

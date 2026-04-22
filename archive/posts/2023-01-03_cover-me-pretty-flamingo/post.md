@@ -62,6 +62,6 @@ September 13, 1975 (Houston, TX)
  August 30, 2016 (East Rutherford, NJ)
 
 **Pretty Flamingo**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

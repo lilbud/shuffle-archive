@@ -20,6 +20,6 @@ September 19, 1982 (Asbury Park, NJ)
  May 8, 2009 (University Park, PA)
 
 **Wooly Bully**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

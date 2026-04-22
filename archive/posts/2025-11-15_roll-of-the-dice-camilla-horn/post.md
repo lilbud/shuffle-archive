@@ -48,7 +48,7 @@ April – May, 1972
 
 
 **Camilla Horn**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

@@ -87,7 +87,7 @@ April 18, 1981 (Paris, France)
  November 10, 2009 (Cleveland, OH)
 
 **Can’t Help Falling in Love**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

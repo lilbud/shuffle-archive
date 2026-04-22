@@ -101,7 +101,7 @@ But in a nice bit of circle closure, shortly before his death Johnny Cash record
 [https://www.youtube.com/embed/VN9RKaL1wD4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/VN9RKaL1wD4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **I’m on Fire**
-Recorded:** May 11, 1982  
+**Recorded:** May 11, 1982  
 **Released:** *Born in the U.S.A.* (1984)  
 **First performed:** June 29, 1984 (Saint Paul, MN)  
 **Last performed:** June 30, 2025 (Milan, Italy)

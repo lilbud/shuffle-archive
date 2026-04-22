@@ -99,7 +99,7 @@ January 3, 1982
 
 
 **Losin’ Kind**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

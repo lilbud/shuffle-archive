@@ -18,8 +18,8 @@ We listened to one of those two songs, “Wendy,” a couple of years ago. But i
 
 Jesse would go on to perform with Bruce eight more times over the sixteen years that followed, and they collaborated in the studio as well, on “Broken Radio.” But while they would never play it again after those first shows in 2003, it was “Queen of the Underworld” that introduced and made Jesse Malin a welcome member of E Street Nation.
 
-**Queen of the Underworld  
-First performed:** December 5, 2003 (Asbury Park, NJ)  
+**Queen of the Underworld**
+**First performed:** December 5, 2003 (Asbury Park, NJ)  
 **Last performed:** December 8, 2003 (Asbury Park, NJ)
 
 © February 16, 2022

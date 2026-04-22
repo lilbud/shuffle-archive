@@ -63,7 +63,7 @@ March-April 1981 (demo)
 
 
 **Danger Zone**
-Recorded:**   
+**Recorded:**   
 
 **Never released**  
 **Never performed**

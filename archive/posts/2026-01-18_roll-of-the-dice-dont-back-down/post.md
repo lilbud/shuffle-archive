@@ -70,7 +70,7 @@ Early 1983
  (2025)
 
 **Don’t Back Down**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *L.A. Garage Sessions ’83*  
 **Never performed**

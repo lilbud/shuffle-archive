@@ -78,7 +78,7 @@ March 24, 1983
  (2025)
 
 **Fugitive’s Dream**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *L.A. Garage Sessions ’83*  
 **Never performed**

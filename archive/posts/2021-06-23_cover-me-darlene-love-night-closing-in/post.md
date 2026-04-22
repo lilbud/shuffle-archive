@@ -67,7 +67,7 @@ Here’s Darlene’s live performance of “Night Closing In” (with Little Ste
  (2015)
 
 **Night Closing In**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Introducing Darlene Love*  
 **Never performed live by Bruce**

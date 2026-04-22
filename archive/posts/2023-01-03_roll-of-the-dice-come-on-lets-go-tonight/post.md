@@ -97,7 +97,7 @@ Late 1977
  December 7, 2010 (Asbury Park, NJ)
 
 **Come On (Let’s Go Tonight)**
-Recorded:**   
+**Recorded:**   
 
 **Released:***The Promise*   
 **First performed:**  

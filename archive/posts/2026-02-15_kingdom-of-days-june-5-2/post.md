@@ -93,5 +93,3 @@
 **2022:** Bruce makes a surprise guest appearance with Coldplay at MetLife Stadium in East Rutherford, duetting with Chris Martin on “Working on a Dream” and “Dancing in the Dark.”
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W6w3xLqR_Os)
-
- 

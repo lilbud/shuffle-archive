@@ -30,7 +30,7 @@ December 14, 2016 (New York City, NY)
  December 14, 2016 (New York City, NY)
 
 **Joy to the World**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

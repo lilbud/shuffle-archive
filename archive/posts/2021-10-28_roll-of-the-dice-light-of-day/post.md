@@ -110,7 +110,7 @@ September 22, 1992 (live performance)
  January 18, 2020 (Asbury Park, NJ)
 
 **Light of Day**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *In Concert: MTV xxPlugged*   
 **First performed:**  

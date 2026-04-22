@@ -40,6 +40,6 @@ June 5, 1992 (Los Angeles, CA)
  July 25, 1992 (East Rutherford, NJ)
 
 **Ninety-Nine and a Half (Won’t Do)**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

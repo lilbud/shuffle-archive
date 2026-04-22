@@ -125,7 +125,7 @@ February 21, 2023 (Tulsa, OK)
 Looking for your favorite Bruce song? Check our . New entries every week!
 
 **If I Was the Priest**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Letter to You*   
 **First performed:**   

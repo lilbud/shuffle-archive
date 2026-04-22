@@ -40,7 +40,7 @@ September 29, 1996 (live) (2000) September 29, 1996 (Cleveland, OH)
  September 29, 1996 (Cleveland, OH)
 
 **Riding in My Car (Car Song)**
-Recorded:**   
+**Recorded:**   
  **Released:**   
 *‘Til We Outnumber Them* **First performed:**  
 

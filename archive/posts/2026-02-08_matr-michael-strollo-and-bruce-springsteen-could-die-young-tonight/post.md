@@ -28,7 +28,7 @@ February 25, 2012 (Asbury Park, NJ)
  February 25, 2012 (Asbury Park, NJ)
 
 **Could Die Young Tonight**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

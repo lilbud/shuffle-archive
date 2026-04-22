@@ -127,7 +127,7 @@ July 2, 1977 – March 2, 1978
  May 18, 2014 (Uncasville, CT)
 
 **Don’t Look Back**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tracks*  
 **First performed:**  

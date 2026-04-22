@@ -170,7 +170,7 @@ We certainly need the reminder.
  May 29, 2020 (Boston, MA)
 
 **American Land**
-Recorded:**  
+**Recorded:**  
 
 **Released:**[](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*We Shall Overcome: The Seeger Sessions: American Land Edition* [](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*   
 **First performed:**  

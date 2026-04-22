@@ -90,7 +90,7 @@ July 1, 2000 (live), unknown (studio)(2002), (2011) March 18, 1999 (Asbury Park,
  May 24, 2023 (Gothenburg, Sweden)
 
 **Land of Hope and Dreams**
-Recorded:**  
+**Recorded:**  
  **Released:**   
 *Live in New York City* *Wrecking Ball* **First performed:**   
 

@@ -18,7 +18,7 @@ As for their “One Love” cover… well, let’s just say it’s not one of Br
 ![](https://www.youtube.com/watch?v=vdB-8eLEW8g)
 
 **One Love/People Get Ready
-First performed:** July 30, 1987 (Neptune, NJ)
+**First performed:** July 30, 1987 (Neptune, NJ)
 **Last performed:** July 30, 1987 (Neptune, NJ)
 
 [https://videopress.com/embed/EYKIYAgU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/EYKIYAgU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)

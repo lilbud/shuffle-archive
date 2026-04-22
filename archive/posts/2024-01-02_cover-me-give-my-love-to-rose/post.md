@@ -42,7 +42,7 @@ February 12, 1999
  (2002)
 
 **Give My Love to Rose**
-Recorded:**   
+**Recorded:**   
 
 **Released:***Kindred Spirits*   
 **Never performed**

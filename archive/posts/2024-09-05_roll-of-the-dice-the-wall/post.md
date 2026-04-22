@@ -174,7 +174,7 @@ Late 1990s
  May 22, 2014 (Pittsburgh, PA)
 
 **The Wall**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *High Hopes*  
 **First performed:**  

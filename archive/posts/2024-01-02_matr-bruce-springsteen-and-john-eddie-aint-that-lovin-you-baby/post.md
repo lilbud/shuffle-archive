@@ -32,6 +32,6 @@ August 14, 1983 (Asbury Park, NJ)
  August 19, 1983 (Long Branch, NJ)
 
 **Ain’t That Lovin’ You Baby**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

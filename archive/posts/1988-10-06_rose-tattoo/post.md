@@ -29,7 +29,7 @@ As he would do years later during the pandemic, Bruce provided his contribution 
 The new version of “Rose Tattoo” peaked at #25 on the Billboard Hot Rock Songs list, and the EP raised over $300,000, which the band donated to more than sixty victims of the Boston tragedy.
 
 **Rose Tattoo**
-Recorded:** 2013  
+**Recorded:** 2013  
 **Released:** *Rose Tattoo: For Boston Charity* (2013)  
 **First performed:** May 29, 2020 (Boston, MA)  
 **Last performed:** May 29, 2020 (Boston, MA)

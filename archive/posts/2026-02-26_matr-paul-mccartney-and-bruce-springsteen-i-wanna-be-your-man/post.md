@@ -30,7 +30,7 @@ The crowd ate it up, so much so that McCartney invited Bruce to join him again o
 
 [Watch Video Highlight](https://videopress.com/embed/WfZdsAa1?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**I Wanna Be Your Man  
+**I Wanna Be Your Man**
 First performance:** June 16, 2022 (East Rutherford, NJ)  
 **Last performance:** June 25, 2022 (Pilton, England)
 

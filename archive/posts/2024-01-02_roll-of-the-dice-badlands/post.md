@@ -151,7 +151,7 @@ Late 1977
  September 3, 2023 (East Rutherford, NJ)
 
 **Badlands**
-Recorded:**  
+**Recorded:**  
 
 **Released:**[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Greatest Hits* *The Essential Bruce Springsteen* *Chapter and Verse*   
 **First performed:**  

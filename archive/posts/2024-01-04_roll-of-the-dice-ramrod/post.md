@@ -108,7 +108,7 @@ June 1979 – April 1980
  May 27, 2023 (Amsterdam, The Netherlands)
 
 **Ramrod**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The River*   
 **First performed:**  

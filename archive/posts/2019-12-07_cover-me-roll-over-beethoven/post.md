@@ -24,6 +24,6 @@ May 14, 1971 (Asbury Park, NJ)
  April 21, 2017 (Asbury Park, NJ)
 
 **Roll Over Beethoven**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

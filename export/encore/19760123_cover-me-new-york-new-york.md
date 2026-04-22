@@ -49,7 +49,7 @@ Stay tuned for my report from Re-Opening Night coming on Monday, though… prett
 I think.
 
 **New York, New York
-First performed:** May 16, 1988 (New York City, NY)
+**First performed:** May 16, 1988 (New York City, NY)
 **Last performed:** November 19, 1995 (Los Angeles, CA)
 
 (c) June 26, 2021

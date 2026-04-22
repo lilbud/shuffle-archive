@@ -112,7 +112,7 @@ November 1993 (Grushecky version), Unknown (Springsteen version)
  November 3, 2011 (Pittsburgh, PA)
 
 **Homestead**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *American Babylon*   
 **First performed:**  

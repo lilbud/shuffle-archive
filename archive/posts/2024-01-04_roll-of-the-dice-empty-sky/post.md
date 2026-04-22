@@ -85,7 +85,7 @@ March-April, 2002
  July 14, 2012 (London, England)
 
 **Empty Sky**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Rising*  
 **First performed:**  

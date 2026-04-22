@@ -166,7 +166,7 @@ April -June 1995
  May 13, 2021 (Colts Neck, NJ)
 
 **Across the Border**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Ghost of Tom Joad*   
 **First performed:**  

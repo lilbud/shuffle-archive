@@ -38,7 +38,7 @@ Unknown (probably mid-1971)
  Unknown (probably mid-1971)
 
 **Chains**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

@@ -36,7 +36,7 @@ May 22, 2014 (Pittsburgh, PA)
  January 17, 2015 (Asbury Park, NJ)
 
 **I Still Look Good (For Sixty)**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

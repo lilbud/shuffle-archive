@@ -22,6 +22,6 @@ September 16, 1967 (Freehold, NJ)
  September 16, 1967 (Freehold, NJ)
 
 **Catch the Wind**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

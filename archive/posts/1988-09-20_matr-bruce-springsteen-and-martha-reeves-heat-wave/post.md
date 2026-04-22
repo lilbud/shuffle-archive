@@ -35,7 +35,7 @@ But it’s hard to resist falling under the spell of the E Street Band having th
 [https://www.youtube.com/embed/aA8Po2DBtf8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/aA8Po2DBtf8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Heat Wave**
-First performed:** September 21, 2003 (Detroit, MI)  
+**First performed:** September 21, 2003 (Detroit, MI)  
 **Last performed:** February 2, 2014 (Adelaide, Australia)
 
 © February 18, 2020

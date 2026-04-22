@@ -30,6 +30,6 @@ October 11, 1998 (Colts Neck, NJ)
  January 23, 2010 (Asbury Park, NJ)
 
 **Jambalaya (On the Bayou)**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

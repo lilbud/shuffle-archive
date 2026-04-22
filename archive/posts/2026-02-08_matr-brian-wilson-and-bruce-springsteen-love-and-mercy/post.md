@@ -40,7 +40,7 @@ May 12, 2007 (Red Bank, NJ)
  May 12, 2007 (Red Bank, NJ)
 
 **Love and Mercy**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

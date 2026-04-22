@@ -56,7 +56,7 @@ July 18, 1984 (Rosemont, IL)
  July 17, 1988 (Munich, West Germany)
 
 **Do You Love Me**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

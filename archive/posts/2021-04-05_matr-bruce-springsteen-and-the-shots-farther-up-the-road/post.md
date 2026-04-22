@@ -38,6 +38,6 @@ September 4, 1977 (Asbury Park, NJ)
  September 4, 1977 (Asbury Park, NJ)
 
 **Farther Up the Road**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

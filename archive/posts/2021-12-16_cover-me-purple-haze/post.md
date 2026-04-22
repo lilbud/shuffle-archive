@@ -28,6 +28,6 @@ September 16, 1967 (Freehold, NJ)
  September 16, 1967 (Freehold, NJ)
 
 **Purple Haze**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

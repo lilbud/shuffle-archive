@@ -157,7 +157,7 @@ The way my dad did, in the last and best lesson he ever taught me.
  September 3, 2023 (East Rutherford, NJ)
 
 **Wrecking Ball**
-Recorded:**  
+**Recorded:**  
 
 **Released:**[https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*  
 **First performed:**  

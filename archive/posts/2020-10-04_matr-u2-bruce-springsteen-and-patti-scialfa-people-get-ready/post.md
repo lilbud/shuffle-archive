@@ -42,6 +42,6 @@ January 16, 1991 (New York City, NY)
  October 17, 2005 (Philadelphia, PA)
 
 **People Get Ready**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

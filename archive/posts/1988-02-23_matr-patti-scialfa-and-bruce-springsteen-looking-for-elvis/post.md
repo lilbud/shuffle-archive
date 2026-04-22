@@ -38,7 +38,7 @@ And that live performance is very worth watching–it’s even stronger than the
 [https://videopress.com/embed/l9Jujnvp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/l9Jujnvp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 **Play It As It Lays**
-Recorded:** Unknown  
+**Recorded:** Unknown  
 **Released:** *Play It As It Lays* (2007)  
 **First performed:** August 2007 (exact date unknown)  
 **Last performed:** August 2007 (exact date unknown)

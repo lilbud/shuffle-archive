@@ -81,7 +81,7 @@ January 12, 1984
  July 28, 2013 (Kilkenny, Ireland)
 
 **Man at the Top**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Tracks*  
 **First performed:**  

@@ -46,7 +46,7 @@ So yeah, I still hate the song on the album. But I’ll sneak a listen from time
  May 6, 2014 (Woodlands, TX)
 
 **All or Nothin’ at All**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *Human Touch*  
 **First performed:**  

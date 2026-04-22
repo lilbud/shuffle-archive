@@ -23,7 +23,7 @@ Still, before Bruce walked on stage that night, Ringo and his band hadn’t ever
 For those fortunate enough to have been there, it was a special night, and not just for the historic team-up. No one knew it at the time, but that performance would turn out to be Bruce’s final public performance with members of the E Street Band before they went their separate ways that autumn.
 
 **Get Back**
-First performed:** August 11, 1989 (Holmdel, NJ)  
+**First performed:** August 11, 1989 (Holmdel, NJ)  
 **Last performed:** August 11, 1989 (Holmdel, NJ)
 
 © July 22, 2020

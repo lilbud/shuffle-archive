@@ -62,7 +62,7 @@ September 16, 2003 (Hartford, CT)
 September 16, 2003 (Hartford, CT)
 
 **Let’s Be Friends (Skin to Skin)**
-Recorded:**   
+**Recorded:**   
  **Released:**   
 *The Rising*  
 **First performed:**   

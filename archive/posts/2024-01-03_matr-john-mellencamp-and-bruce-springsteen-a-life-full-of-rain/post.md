@@ -48,7 +48,7 @@ April 10, 2021
  (2022)
 
 **A Life Full of Rain**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Strictly a One-Eyed Jack*  
 **Never performed**

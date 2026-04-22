@@ -94,7 +94,7 @@ October 4, 1974 (New York City, NY)
  May 17, 2014 (Uncasville, CT)
 
 **Quarter to Three**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

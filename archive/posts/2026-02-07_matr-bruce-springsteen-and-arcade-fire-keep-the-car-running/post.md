@@ -36,7 +36,7 @@ October 14, 2007 (Ottawa, ON)
  October 14, 2007 (Ottawa, ON)
 
 **Keep the Car Running**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

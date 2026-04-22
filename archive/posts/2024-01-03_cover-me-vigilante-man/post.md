@@ -99,7 +99,7 @@ Late 1987 – Early 1988
  June 21, 1988 (Birmingham, England)
 
 **Vigilante Man**
-Recorded:**   
+**Recorded:**   
 
 **Released:***Folkways: A Vision Shared: A Tribute To Woody Guthrie And Leadbelly*   
 **First performed:**  

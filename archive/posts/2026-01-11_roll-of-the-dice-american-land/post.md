@@ -168,7 +168,7 @@ We certainly need the reminder.
  May 29, 2020 (Boston, MA)
 
 **American Land**
-Recorded:**  
+**Recorded:**  
 
 **Released:***We Shall Overcome: The Seeger Sessions: American Land Edition* *Wrecking Ball*   
 **First performed:**  

@@ -42,6 +42,6 @@ May 19, 1977 (Asbury Park, NJ)
  July 13, 2013 (Werchter, Belgium)
 
 **Jailhouse Rock**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

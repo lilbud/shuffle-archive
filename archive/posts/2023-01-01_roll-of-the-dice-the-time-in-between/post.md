@@ -19,7 +19,7 @@ Late 1979
 
 
 **The Time in Between**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

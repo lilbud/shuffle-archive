@@ -76,7 +76,7 @@ So color me surprised. And delighted: Bruce turned “Whitetown” into a wonder
  (2015)
 
 **Whitetown**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Ties That Bind: The River Collection*  
 **Never Performed**

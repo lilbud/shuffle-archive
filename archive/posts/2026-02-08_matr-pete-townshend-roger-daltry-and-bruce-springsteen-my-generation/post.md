@@ -22,7 +22,7 @@ September 30, 1967 (Freehold, NJ)
  May 28, 2015 (New York City, NY)
 
 **My Generation**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

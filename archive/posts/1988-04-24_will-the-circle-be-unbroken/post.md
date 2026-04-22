@@ -39,7 +39,7 @@ Featuring Springsteen, Staples, Darlene Love, John Mellencamp, Jackson Browne, a
 It was one link in a chain of tradition the continues on, ever unbroken.
 
 **Will the Circle Be Unbroken**
-First performed:** June 12, 2007 (Red Bank, NJ)  
+**First performed:** June 12, 2007 (Red Bank, NJ)  
 **Last performed:** April 24, 2024 (West Long Branch, NJ)
 
 © February 10, 2026

@@ -67,7 +67,7 @@ December 14, 2016 (New York City, NY)
  December 14, 2016 (New York City, NY)
 
 **Do You Hear What I Hear**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

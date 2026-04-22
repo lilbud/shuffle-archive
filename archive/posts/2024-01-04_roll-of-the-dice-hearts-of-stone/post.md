@@ -122,7 +122,7 @@ October 14, 1977, 1998
  January 17, 2015 (Asbury Park, NJ)
 
 **Hearts of Stone**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Hearts of Stone* *Tracks*   
 **First performed:**  

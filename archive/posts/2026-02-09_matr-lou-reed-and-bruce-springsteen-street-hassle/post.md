@@ -48,7 +48,7 @@ Autumn 1977
 (1978)
 
 **Street****Hassle
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Street Hassle*   
 **Never performed**

@@ -30,7 +30,7 @@ October 28, 1995 (Mountain View, CA)
  October 5, 2004 (St. Paul, MN)
 
 **Rockin’ in the Free World**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

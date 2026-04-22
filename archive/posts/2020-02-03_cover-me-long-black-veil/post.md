@@ -34,6 +34,6 @@ April 26, 2006 (Asbury Park, NJ)
  October 10, 2006 (Rome, Italy)
 
 **Long Black Veil**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -111,7 +111,7 @@ March 9, 2012 (New York City, NY)
 May 1, 2014 (Tampa, FL)
 
 **We Are Alive**
-Recorded:**   
+**Recorded:**   
 
 **Released:***Wrecking Ball*   
 **First performed:**   

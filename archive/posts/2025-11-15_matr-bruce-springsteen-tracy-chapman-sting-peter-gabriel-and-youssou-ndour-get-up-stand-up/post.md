@@ -38,7 +38,7 @@ September 2, 1988 (London, England)
  December 10, 1998 (Paris, France)
 
 **Get Up, Stand Up**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

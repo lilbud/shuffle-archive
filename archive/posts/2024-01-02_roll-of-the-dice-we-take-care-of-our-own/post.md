@@ -145,7 +145,7 @@ In a stripped-down arrangement with warm vocals, the full plaintive power of the
  June 22, 2016 (Copenhagen, Denmark)
 
 **We Take Care of Our Own**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Wrecking Ball*  
 **First performed:**  

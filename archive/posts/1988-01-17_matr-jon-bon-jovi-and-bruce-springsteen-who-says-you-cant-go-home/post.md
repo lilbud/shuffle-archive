@@ -17,7 +17,7 @@ As it turns out, “Who Says You Can’t Go Home” was made for a duet. In fact
 I gotta say: Bruce turned in a great performance, but the best “Who Says You Can’t Go Home” duet award has to go to Jon and Jennifer.
 
 **Who Says You Can’t Go Home**
-First performed:** December 12, 2012 (New York City, NY)  
+**First performed:** December 12, 2012 (New York City, NY)  
 **Last performed:** December 12, 2012 (New York City, NY)
 
 © June 22, 2019

@@ -40,6 +40,6 @@ February 23, 1985 (Inglewood, CA)
  February 23, 1985 (Inglewood, CA)
 
 **Baby I’m a Star|**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

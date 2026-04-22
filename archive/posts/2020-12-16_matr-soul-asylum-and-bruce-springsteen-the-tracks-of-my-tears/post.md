@@ -36,6 +36,6 @@ March 6, 1995 (New York City, NY)
  March 6, 1995 (New York City, NY)
 
 **The Tracks of My Tears**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -15,5 +15,5 @@ On the evening of December6 2001, Bruce kicked off his holiday concert by joinin
 And while it’s been almost 17 years since he’s last performed it, today seems like a good day for a little reminder that while things sometimes take a little while to clarify, I’ve got a feeling everything’s gonna be alright.
 
 **I’ve Got a Feeling (Everything’s Gonna Be Alright)
-First performed:** December 6, 2001 (Asbury Park, NJ)
+**First performed:** December 6, 2001 (Asbury Park, NJ)
 **Last performed:** December 8, 2003 (Asbury Park, NJ)

@@ -347,7 +347,7 @@ September 20, 1969 (Richmond, VA)
 
 **Garden State Parkway Blues**  
 **Never recorded or released**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

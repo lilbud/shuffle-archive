@@ -167,7 +167,7 @@ We like to think that faith will be rewarded, but sometimes faith just ain’t e
  January 12, 2017 (Washington, DC)
 
 **Devils & Dust**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Devils & Dust*   
 **First performed:**  

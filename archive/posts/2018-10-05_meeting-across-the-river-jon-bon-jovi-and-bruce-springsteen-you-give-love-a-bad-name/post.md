@@ -22,6 +22,6 @@ January 31, 1998 (Red Bank, NJ)
  January 31, 1998 (Red Bank, NJ)
 
 **You Give Love a Bad Name**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

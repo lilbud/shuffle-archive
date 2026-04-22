@@ -81,7 +81,7 @@ June 1972
  August 10, 1972 (New York City, NY)
 
 **Henry Boy**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Chapter and Verse*   
 **First performed:**  

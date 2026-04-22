@@ -54,7 +54,7 @@ October 14, 1977
 
 
 **The Ballad**
-Recorded:**   
+**Recorded:**   
 
 **Never released**  
 **Never performed**

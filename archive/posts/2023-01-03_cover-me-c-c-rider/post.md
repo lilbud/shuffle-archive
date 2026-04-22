@@ -54,6 +54,6 @@ July 10, 1971 (Lincroft, NJ)
  April 2, 2011 (Asbury Park, NJ)
 
 **C.C. Rider**
-First performed:**   
+**First performed:**   
 
 **Last performed:**

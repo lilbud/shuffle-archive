@@ -32,6 +32,6 @@ October 25, 1976 (Philadelphia, PA)
  October 29, 2009 (New York City, NY)
 
 **A Fine Fine Boy (Girl)**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

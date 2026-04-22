@@ -26,6 +26,6 @@ June 24, 1989 (Asbury Park, NJ)
  November 2, 2012 (New York City, NY)
 
 **Under the Boardwalk**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

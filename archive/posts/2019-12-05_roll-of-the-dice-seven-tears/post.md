@@ -60,7 +60,7 @@ February 15, 1983
 
 
 **Seven Tears**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

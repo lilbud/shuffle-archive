@@ -34,6 +34,6 @@ August 20, 1994 (Long Branch, NJ)
  January 18, 2020 (Asbury Park, NJ)
 
 **Never Be Enough Time**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

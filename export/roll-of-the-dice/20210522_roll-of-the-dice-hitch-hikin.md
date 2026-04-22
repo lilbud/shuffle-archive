@@ -72,7 +72,7 @@ The differences are subtle but significant, like the extended introduction that 
 ![](https://www.youtube.com/watch?v=fdN4NXt414o)
 
 **Hitch Hikin’
-Recorded:** 2010-2018
+**Recorded:** 2010-2018
 **Released:** *Western Stars* (2019)
 **First performed:** April 2019 (Colts Neck, NJ)
 **Last performed:** April 2019 (Colts Neck, NJ)

@@ -121,7 +121,7 @@ January-April 1987
  November 17, 2005 (East Rutherford, NJ)
 
 **Cautious Man**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Tunnel of Love*   
 **First performed:**  

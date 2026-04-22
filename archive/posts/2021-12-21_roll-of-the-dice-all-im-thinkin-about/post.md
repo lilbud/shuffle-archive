@@ -149,7 +149,7 @@ April 30, 2005 (Glendale, AZ)
 November 19, 2005 (Hollywood, FL)
 
 **All I’m Thinkin’ About**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *Devils & Dust*  
 **First performed:**   

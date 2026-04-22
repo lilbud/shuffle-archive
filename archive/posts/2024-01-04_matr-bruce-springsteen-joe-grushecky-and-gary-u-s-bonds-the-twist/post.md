@@ -84,7 +84,7 @@ November 2, 2002 (Sea Bright, NJ)
  November 2, 2002 (Sea Bright, NJ)
 
 **The Twist**
-First performed:**   
+**First performed:**   
 
 **Last performed:**
 

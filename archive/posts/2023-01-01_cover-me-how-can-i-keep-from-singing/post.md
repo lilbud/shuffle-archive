@@ -42,7 +42,7 @@ January 21, 2006
  May 9, 2006 (London, England)
 
 **How Can I Keep From Singing?**
-Recorded:**  
+**Recorded:**  
 
 **Released:***We Shall Overcome: The Seeger Sessions (American Land Edition)*  
 **First performed:**  

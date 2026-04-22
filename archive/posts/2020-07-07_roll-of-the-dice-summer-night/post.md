@@ -19,7 +19,7 @@ March-April 1982 (demo only)
 
 
 **Summer Night**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

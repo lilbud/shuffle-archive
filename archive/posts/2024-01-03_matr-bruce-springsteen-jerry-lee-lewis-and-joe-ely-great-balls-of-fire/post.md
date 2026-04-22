@@ -80,6 +80,6 @@ October 29, 1990 (San Fernando Valley, CA)
  November 5, 2022 (Los Angeles, CA)
 
 **Great Balls of Fire**
-First performed:**   
+**First performed:**   
 
 **Last performed:**

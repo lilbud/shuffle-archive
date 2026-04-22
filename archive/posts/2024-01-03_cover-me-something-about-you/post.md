@@ -36,6 +36,6 @@ January 28, 1988 (Fort Monmouth, NJ) (soundcheck only)
  January 28, 1988 (Fort Monmouth, NJ) (soundcheck only)
 
 **Something About You**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

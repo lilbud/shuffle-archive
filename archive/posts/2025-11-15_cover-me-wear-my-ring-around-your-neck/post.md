@@ -28,7 +28,7 @@ November 16, 1974 (Washington, DC)
  June 3, 1979 (West Hollywood, CA)
 
 **Wear My Ring Around Your Neck**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

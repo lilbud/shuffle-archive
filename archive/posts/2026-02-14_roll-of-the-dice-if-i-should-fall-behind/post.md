@@ -89,8 +89,8 @@ Five years after the performance above, and five months after I originally publi
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=q12EVyGqKjw)
 
-**If I Should Fall Behind  
-Recorded:** September 1991 – January 1992  
+**If I Should Fall Behind**
+**Recorded:** September 1991 – January 1992  
 **Released:** *Lucky Town* (1992), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007).  
 **First performed:** June 8, 1991 (Beverly Hills, CA)  
 **Last performed:** October 23, 2024 (New York City, NY)

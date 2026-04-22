@@ -23,7 +23,7 @@ Among the songs they played that night was “Allentown,” with Bruce and Billy
 “Allentown” was just one of the Billy Joel songs that Billy and Bruce performed that night–see “The River of Dreams,” “Movin’ Out (Anthony’s Song)” and “A Matter of Trust” for more amazing one-time-only performances.
 
 **Allentown**
-First performed:** October 16, 2008 (New York City, NY)  
+**First performed:** October 16, 2008 (New York City, NY)  
 **Last performed:** October 16, 2008 (New York City, NY)
 
 © March 16, 2021

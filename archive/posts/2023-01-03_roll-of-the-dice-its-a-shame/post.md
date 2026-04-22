@@ -71,7 +71,7 @@ June 14, 1977 (with 2010 horn and vocal overdubs)
 (2010)
 
 **It’s a Shame**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Promise*   
 **Never performed**

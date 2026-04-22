@@ -174,7 +174,7 @@ January 3, 1982
  July 11, 2016 (Paris, France)
 
 **Reason to Believe**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Nebraska*   
 **First performed:**  

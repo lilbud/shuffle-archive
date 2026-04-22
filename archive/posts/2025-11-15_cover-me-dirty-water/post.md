@@ -46,7 +46,7 @@ April 8, 1984 (Asbury Park, NJ)
  March 20, 2023 (Boston, MA)
 
 **Dirty Water**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

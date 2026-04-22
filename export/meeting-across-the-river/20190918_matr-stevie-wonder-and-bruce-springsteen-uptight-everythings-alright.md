@@ -26,5 +26,5 @@ But hey–this is rarely seen footage of an amazing array of talent performing a
 That’s gotta be worth a visit, right?
 
 **Uptight (Everything’s Alright)
-First performed:** January 18, 1989 (New York City, NY)
+**First performed:** January 18, 1989 (New York City, NY)
 **Last performed:** January 18, 1989 (New York City, NY)

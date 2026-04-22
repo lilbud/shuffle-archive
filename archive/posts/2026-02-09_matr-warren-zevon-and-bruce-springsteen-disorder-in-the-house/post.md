@@ -24,7 +24,7 @@ December 18, 2002
 (2003)
 
 **Disorder in the House**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Wind*   
 **Never performed**

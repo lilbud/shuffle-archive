@@ -182,7 +182,7 @@ November 18-22, 2019
  September 3, 2023 (East Rutherford, NJ)
 
 **Last Man Standing**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Letter to You*   
 **First performed:**  

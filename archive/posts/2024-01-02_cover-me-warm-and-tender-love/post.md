@@ -38,6 +38,6 @@ March 23, 1993 (Red Bank, NJ) (soundcheck only)
  March 23, 1993 (Red Bank, NJ) (soundcheck only)
 
 **Warm and Tender Love**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

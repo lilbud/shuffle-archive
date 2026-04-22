@@ -23,5 +23,5 @@ It’s more than a bit loose and messy, but that’s part of the charm. Take a l
 ![](https://www.youtube.com/watch?v=4Nbuk-j3VLw)
 
 **Hey, Good Lookin’
-First performed:** December 18, 2000 (Asbury Park, NJ)
+**First performed:** December 18, 2000 (Asbury Park, NJ)
 **Last performed:** December 18, 2000 (Asbury Park, NJ)

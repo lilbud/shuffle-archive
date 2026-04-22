@@ -56,6 +56,6 @@ March 23, 1993 (Red Bank, NJ)
  March 23, 1993 (Red Bank, NJ)
 
 **Achy Breaky Heart**
-First performed:**   
+**First performed:**   
 
 **Last performed:**

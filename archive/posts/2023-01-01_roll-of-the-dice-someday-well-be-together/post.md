@@ -64,7 +64,7 @@ September 26-30, 1977 (backing track), 2010 (vocals and modern elements)
  (2010)
 
 **Someday (We’ll Be Together)**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Promise*   
 **Never performed**

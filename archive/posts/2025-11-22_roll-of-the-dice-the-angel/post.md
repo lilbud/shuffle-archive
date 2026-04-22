@@ -124,7 +124,7 @@ June 27 – October 26, 1972
  November 22, 2009 (Buffalo, NY)
 
 **The Angel**
-Recorded:**  
+**Recorded:**  
 
 **Released:**[](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.*   
 **First performed:**  

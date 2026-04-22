@@ -38,6 +38,6 @@ February 2, 2017 (Melbourne, Australia)
  February 2, 2017 (Melbourne, Australia)
 
 **Don’t Hang Up**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

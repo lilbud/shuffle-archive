@@ -34,6 +34,6 @@ May 17, 2005 (Upper Darby, PA) – soundcheck only
  May 17, 2005 (Upper Darby, PA) – soundcheck only
 
 **The Patriot Game**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

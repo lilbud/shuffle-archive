@@ -20,6 +20,6 @@ January 18, 2014 (Asbury Park, NJ)
  January 18, 2014 (Asbury Park, NJ)
 
 **Do You Remember Rock ‘n’ Roll Radio**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

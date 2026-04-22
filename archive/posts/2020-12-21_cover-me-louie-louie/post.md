@@ -40,6 +40,6 @@ September 9, 1978 (South Bend, IN)
  April 19, 2014 (Charlotte, NC)
 
 **Louie Louie**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

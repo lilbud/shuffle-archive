@@ -101,7 +101,7 @@ June 22 – July 11, 1973
 
 
 **Evacuation of the West**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

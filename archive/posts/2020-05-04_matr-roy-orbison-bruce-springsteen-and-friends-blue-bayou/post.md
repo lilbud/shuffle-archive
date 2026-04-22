@@ -36,6 +36,6 @@ September 30, 1987 (Los Angeles, CA)
  September 30, 1987 (Los Angeles, CA)
 
 **Blue Bayou**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -50,6 +50,6 @@ December 5, 2003 (Asbury Park, NJ)
  May 4, 2008 (Newark, NJ)
 
 **I Thank You**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

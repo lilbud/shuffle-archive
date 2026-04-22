@@ -110,7 +110,7 @@ Until I heard it played live in concert, I admit to being left cold by “Lost i
 June – October 1972 (1973), (2001), (2005)February 14, 1973 (Richmond, VA)January 22, 2017 (Perth, Australia)
 
 **Lost in the Flood**
-Recorded:**   
+**Recorded:**   
  **Released:**   
 [](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, NJ* *Live in New York City**Hammersmith Odeon, London ’75* **First performed:**   
  **Last performed:**   

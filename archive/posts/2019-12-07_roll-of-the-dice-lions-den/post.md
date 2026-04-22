@@ -135,7 +135,7 @@ January 25, 1982 (core recording), 1998 (horns)
  November 1, 2012 (University Park, PA)
 
 **Lion’s Den**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Tracks**18 Tracks*   
 **First performed:**  

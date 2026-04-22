@@ -75,5 +75,3 @@ Also on this date in 2003: the BBC premieres a three-part series narrated by Joh
 <https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-10-Bruce-on-E-St-Radio.m4a>
 
 **2023:** On their last night before resuming their European tour, Bruce and Stevie catch Peter Gabriel on stage in Cologne.
-
- 

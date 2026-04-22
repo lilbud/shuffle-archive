@@ -78,7 +78,7 @@ February 1987
  May 22, 2014 (Pittsburgh, PA)
 
 **Two For the Road**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tunnel of Love**Tracks*   
 **First performed:**  

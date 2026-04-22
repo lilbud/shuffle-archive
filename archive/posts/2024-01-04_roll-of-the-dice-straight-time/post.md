@@ -117,7 +117,7 @@ April-June 1995
  June 22, 2005 (Copenhagen, Denmark)
 
 **Straight Time**
-Recorded:**  
+**Recorded:**  
 
 **Released:***The Ghost of Tom Joad*   
 **First performed:**  

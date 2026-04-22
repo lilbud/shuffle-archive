@@ -94,7 +94,7 @@ Early 1982 (demos only)
 
 
 **Your Love Is All Around Me**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

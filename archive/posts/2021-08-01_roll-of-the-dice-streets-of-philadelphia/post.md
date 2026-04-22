@@ -157,7 +157,7 @@ August 1993
  September 9, 2016 (Philadelphia, PA)
 
 **Streets of Philadelphia**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Philadelphia* *Greatest Hits* *The Essential Bruce Springsteen*  
 **First performed:**  

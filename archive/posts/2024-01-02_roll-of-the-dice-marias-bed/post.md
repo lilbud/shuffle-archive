@@ -143,7 +143,7 @@ Chalk up its continuing absence from the E Street stage as just anther of the my
 March 10, 2005 (Asbury Park, NJ) July 20, 2013 (Belfast, Northern Ireland)
 
 **Maria’s Bed**
-Recorded:**   
+**Recorded:**   
  **Released:**   
 *Devils & Dust*   
 **First performed:**  **Last performed:**  

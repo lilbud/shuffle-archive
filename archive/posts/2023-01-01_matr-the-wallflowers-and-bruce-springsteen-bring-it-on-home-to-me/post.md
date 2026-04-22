@@ -26,6 +26,6 @@ March 8, 1997 (Sea Bright, NJ)
  March 8, 1997 (Sea Bright, NJ)
 
 **Bring it On Home to Me**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

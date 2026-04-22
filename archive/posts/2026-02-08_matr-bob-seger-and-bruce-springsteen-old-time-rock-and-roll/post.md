@@ -34,7 +34,7 @@ July 23, 1989 (Asbury Park, NJ)
  December 1, 2011 (New York City, NY)
 
 **Old Time Rock and Roll**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

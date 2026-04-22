@@ -159,7 +159,7 @@ What an album that might have been.
  (2020)
 
 **Rainmaker**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Letter to You*  
 **Never performed**

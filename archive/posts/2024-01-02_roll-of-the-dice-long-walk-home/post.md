@@ -173,7 +173,7 @@ March-April 2007
  November 18, 2020 (Colts Neck, NJ)
 
 **Long Walk Home**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Magic*  
 **First performed:**  

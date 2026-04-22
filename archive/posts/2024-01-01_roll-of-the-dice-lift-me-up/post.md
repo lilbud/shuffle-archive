@@ -77,7 +77,7 @@ July 31, 2005 (Columbus, OH)
 July 31, 2005 (Columbus, OH)
 
 **Lift Me Up**
-Recorded:**   
+**Recorded:**   
 
 **Released:***Limbo (Music from the Motion Picture)* *The Essential Bruce Springsteen*   
 **First performed:**   

@@ -38,7 +38,7 @@ December 5, 2003 (Asbury Park, NJ)
  December 8 ,2003 (Asbury Park, NJ)
 
 **Wendy**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

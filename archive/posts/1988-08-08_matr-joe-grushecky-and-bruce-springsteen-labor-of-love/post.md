@@ -21,7 +21,7 @@ Unfortunately, despite their many and frequent on-stage team-ups year after year
 But catch Joe and his band anywhere they play, and odds are pretty high you’ll get a smoking version of it in person.
 
 **Labor of Love**
-First performed:** July 22, 1995 (Sea Bright, NJ)  
+**First performed:** July 22, 1995 (Sea Bright, NJ)  
 **Last performed:** March 2, 1998 (Pittsburgh, PA)
 
 © May 8, 2022

@@ -58,7 +58,7 @@ March 1979 (rehearsal)
 
 
 **Find It Where You Can**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

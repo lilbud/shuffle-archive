@@ -80,6 +80,6 @@ August 16, 1975 (New York City, NY)
  April 14, 1990 (Santa Monica, CA)
 
 **It’s Gonna Work Out Fine**
-First performed:**   
+**First performed:**   
 
 **Last performed:**

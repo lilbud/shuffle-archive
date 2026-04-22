@@ -46,7 +46,7 @@ October 13, 2004 (East Rutherford, NJ)
  October 13, 2004 (East Rutherford, NJ)
 
 **Better Man**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

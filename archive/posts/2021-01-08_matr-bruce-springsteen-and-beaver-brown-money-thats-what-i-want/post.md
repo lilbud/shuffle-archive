@@ -46,6 +46,6 @@ February 20, 1982 (Red Bank, NJ)
  January 22, 2016 (Wellington, FL)
 
 **Money (That’s What I Want)**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

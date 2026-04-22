@@ -36,7 +36,7 @@ July 25, 1982 (Asbury Park, NJ)
  September 21, 2009 (Des Moines, IA)
 
 **The Wanderer**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

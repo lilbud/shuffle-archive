@@ -217,7 +217,7 @@ Unknown
  April 2019
 
 **Moonlight Motel**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Western Stars*  
 **First performed:**  

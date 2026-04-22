@@ -150,7 +150,7 @@ June 1, 1977
  September 3, 2023 (East Rutherford, NJ)
 
 **Something in the Night**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Darkness on the Edge of Town*   
 **First performed:**  

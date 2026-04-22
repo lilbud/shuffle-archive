@@ -108,7 +108,7 @@ June 1977
  (2010)
 
 **Candy’s Boy**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Promise*  
 **Never performed**

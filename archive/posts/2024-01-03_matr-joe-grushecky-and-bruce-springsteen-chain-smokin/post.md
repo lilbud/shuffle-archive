@@ -42,7 +42,7 @@ October-November 1993
  July 18, 2015 (Asbury Park, NJ)
 
 **Chain Smokin’**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *American Babylon*   
 **First performed:**  

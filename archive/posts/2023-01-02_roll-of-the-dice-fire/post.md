@@ -140,7 +140,7 @@ Still, “Fire” remains a fan favorite for those able to look past its content
  September 4, 2021 (New York City, NY)
 
 **Fire**
-Recorded:**  
+**Recorded:**  
 
 **Released:***The Promise*   
 **First performed:**  

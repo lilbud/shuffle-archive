@@ -42,6 +42,6 @@ May 12, 1977 (Red Bank, NJ)
  May 13, 1977 (Red Bank, NJ)
 
 **She Got Me Where She Wants Me**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

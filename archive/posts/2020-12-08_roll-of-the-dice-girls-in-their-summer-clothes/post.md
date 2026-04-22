@@ -178,7 +178,7 @@ September 24, 2007 (Asbury Park, NJ)
 February 7, 2014 (Perth, Australia)
 
 **Girls in Their Summer Clothes**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *Magic* *Girls in Their Summer Clothes*   
 **First performed:**   

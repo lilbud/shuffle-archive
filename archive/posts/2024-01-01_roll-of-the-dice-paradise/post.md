@@ -109,7 +109,7 @@ February-March, 2002
  August 13, 2005 (Vancouver, BC)
 
 **Paradise**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Rising*   
 **First performed:**  

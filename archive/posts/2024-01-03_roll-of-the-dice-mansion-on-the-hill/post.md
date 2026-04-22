@@ -145,7 +145,7 @@ December 1981-January 1982
  February 7, 2016 (Hollywood, FL)
 
 **Mansion on the Hill**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Nebraska*   
 **First performed:**  

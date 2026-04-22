@@ -154,7 +154,7 @@ March 2007
  February 21, 2017 (Christchurch, New Zealand)
 
 **Radio Nowhere**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Magic**The Essential Bruce Springsteen*  
 **First performed:**  

@@ -56,6 +56,6 @@ July 13, 1974 (New York City, NY)
  September 13, 2009 (Sunrise, FL)
 
 **Then (S)he Kissed Me**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

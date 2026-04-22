@@ -40,6 +40,6 @@ April 2, 2011 (Asbury Park, NJ)
  April 2, 2011 (Asbury Park, NJ)
 
 **Crying in the Chapel**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -234,7 +234,7 @@ February 14 – March 8, 1984
  November 6, 2023 (New York City, NY)
 
 **Dancing in the Dark**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Born in the U.S.A.* *Greatest Hits* *The Essential Bruce Springsteen*  
 **First performed:**  

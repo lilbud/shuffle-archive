@@ -153,7 +153,7 @@ June-July, 1987
  June 25, 2016 (Gothenburg, Sweden)
 
 **Tunnel of Love**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tunnel of Love* *The Essential Bruce Springsteen*  
 **First performed:**  

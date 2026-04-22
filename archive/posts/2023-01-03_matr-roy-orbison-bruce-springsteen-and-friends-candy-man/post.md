@@ -34,6 +34,6 @@ September 30, 1987 (Los Angeles, CA)
  September 30, 1987 (Los Angeles, CA)
 
 **Candy Man**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

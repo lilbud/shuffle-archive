@@ -197,7 +197,7 @@ uly 7, 1978 (Los Angeles, CA)
  August 23, 2016 (East Rutherford, NJ)
 
 **Independence Day**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The River*   
 **First performed: J**  

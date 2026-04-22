@@ -41,7 +41,7 @@ This time, though, he had the original artists join him on stage in a loose, fun
 [https://www.youtube.com/embed/IiV0IRpXhBA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/IiV0IRpXhBA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Double Shot (Of My Baby’s Love)**
-First performed:** August 25, 1978 (New Haven, CT)  
+**First performed:** August 25, 1978 (New Haven, CT)  
 **Last performed:** September 16, 2009 (Greenville, SC)
 
 © April 14, 2022

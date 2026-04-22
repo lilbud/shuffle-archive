@@ -203,7 +203,7 @@ May 31, 1983 – original, November 2003 – Jerry Lee Lewis cover
  December 13, 2021 (New York City, NY)
 
 **Pink Cadillac**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Dancing in the Dark* *, Tracks**18 Tracks**Last Man Standing*   
 **First performed:**  

@@ -135,7 +135,7 @@ January 12, 1995
  February 14, 2017 (Brisbane, Australia)
 
 **Back in Your Arms**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Tracks*   
 **First performed:**  

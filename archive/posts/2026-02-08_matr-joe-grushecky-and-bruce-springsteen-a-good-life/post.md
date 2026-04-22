@@ -54,7 +54,7 @@ February 2006
  November 4, 2011 (Pittsburgh, PA)
 
 **A Good Life**
-Recorded:**  
+**Recorded:**  
 
 **Released:***A Good Life*   
 **First performed:**  

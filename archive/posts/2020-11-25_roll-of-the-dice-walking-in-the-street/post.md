@@ -73,7 +73,7 @@ August-September 1974
 
 
 **Walking in the Street**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

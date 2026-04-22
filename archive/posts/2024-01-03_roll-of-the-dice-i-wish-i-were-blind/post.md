@@ -105,7 +105,7 @@ September 1989 – March 1991
  February 23, 2014 (Hunter Valley, Australia)
 
 **I Wish I Were Blind**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Human Touch*   
 **First performed:**  

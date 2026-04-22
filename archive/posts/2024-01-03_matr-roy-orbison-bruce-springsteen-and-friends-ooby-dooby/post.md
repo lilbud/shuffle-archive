@@ -50,6 +50,6 @@ September 30, 1987 (Los Angeles, CA)
  September 30, 1987 (Los Angeles, CA)
 
 **Ooby Dooby**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

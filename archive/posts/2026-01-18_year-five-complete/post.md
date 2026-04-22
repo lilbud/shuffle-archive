@@ -113,7 +113,7 @@ January 30, 1983
  February 16, 2017 (Brisbane, Australia)
 
 **Follow That Dream**
-Recorded:**  
+**Recorded:**  
 
 **Released:***L.A. Garage Sessions ’83*   
 **First performed:**  

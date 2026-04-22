@@ -12,8 +12,8 @@ Dylan broke out “Rainy Day Women” during his third encore, and he invited a 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s3-uk7pmEFI)
 
-**Rainy Day Women #12 & 35  
-First performed:** October 20, 1994 (New York City, NY)  
+**Rainy Day Women #12 & 35**
+**First performed:** October 20, 1994 (New York City, NY)  
 **Last performed:** October 20, 1994 (New York City, NY)
 
 © January 29, 2020

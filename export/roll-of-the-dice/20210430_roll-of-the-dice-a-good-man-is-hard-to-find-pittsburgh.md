@@ -105,7 +105,7 @@ Both performances were serviceable, but neither captured the poignancy of the st
 It isn’t hard to find a great performance of “Good Man”; we just have to look to the studio rather than the stage.
 
 **A Good Man Is Hard to Find (Pittsburgh)
-Recorded:** May 5-6, 1982
+**Recorded:** May 5-6, 1982
 **Released:** *Tracks* (1998)
 **First performed:** May 10, 2005 (St. Paul, MN)
 **Last performed:** November 4, 2010 (Pittsburgh, PA)

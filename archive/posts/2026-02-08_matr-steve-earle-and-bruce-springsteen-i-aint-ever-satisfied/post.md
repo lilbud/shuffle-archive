@@ -22,7 +22,7 @@ February 6, 1998 (Sea Bright, NJ)
  February 6, 1998 (Sea Bright, NJ)
 
 **I Ain’t Ever Satisfied**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

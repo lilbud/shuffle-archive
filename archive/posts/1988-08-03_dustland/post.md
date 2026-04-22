@@ -29,7 +29,7 @@ He didn’t just lend his voice; he lent his mythology. And in doing so, he turn
 [https://www.youtube.com/embed/QgIXt_mi9qA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/QgIXt_mi9qA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Dustland**
-Recorded:** Late 2020  
+**Recorded:** Late 2020  
 **Released:** “Dustland” (single, 2021)  
 **First performed:** October 1, 2022 (New York City, NY)  
 **Last performed:** October 1, 2022 (New York City, NY)

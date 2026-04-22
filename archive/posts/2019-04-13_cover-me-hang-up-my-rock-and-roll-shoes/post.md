@@ -24,6 +24,6 @@ September 3, 1978 (Saginaw, MI)
  November 22, 2009 (Buffalo, NY)
 
 **Hang Up My Rock and Roll Shoes**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

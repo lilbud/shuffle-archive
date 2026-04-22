@@ -28,6 +28,6 @@ July 10, 1971 (Lincroft, NJ)
  February 4, 1972 (Richmond, VA)
 
 **Darkness, Darkness**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

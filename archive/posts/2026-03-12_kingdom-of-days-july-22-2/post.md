@@ -59,5 +59,3 @@
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HVQUeCi9V0s)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7j3cXGr1Ono)
-
- 

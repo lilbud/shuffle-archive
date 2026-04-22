@@ -54,7 +54,7 @@ April 18, 1970 (Toms River, NJ)
  June 13, 1970 (Bricktown, NJ)
 
 **Black Sun Rising**
-Recorded:**   
+**Recorded:**   
 
 **Released:**  
 **First Performed:**   

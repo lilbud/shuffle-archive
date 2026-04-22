@@ -151,7 +151,7 @@ December 1989 – January 1990
  July 18, 2013 (Cork, Ireland)
 
 **Real World**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Human Touch*  
 **First performed:**  

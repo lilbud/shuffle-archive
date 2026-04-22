@@ -195,7 +195,7 @@ May we not fuck it up this time.
  December 5, 2018 (New York City, NY)
 
 **Long Time Comin’**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *Devils & Dust* *The Essential Bruce Springsteen**Chapter and Verse*  
 **First performed:**  

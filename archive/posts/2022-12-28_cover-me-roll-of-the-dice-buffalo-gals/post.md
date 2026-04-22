@@ -50,7 +50,7 @@ It’s hard to say why “Buffalo Gals” became such an American classic, but w
  June 29, 2006 (Saratoga Springs, NY)
 
 **Buffalo Gals**
-Recorded:**  
+**Recorded:**  
 
 **Released:***We Shall Overcome: The Seeger Sessions*  
 **First performed:**  

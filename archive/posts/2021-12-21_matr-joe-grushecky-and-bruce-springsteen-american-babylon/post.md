@@ -36,6 +36,6 @@ July 22, 1995 (Sea Bright, NJ)
  March 2, 1998 (Pittsburgh, PA)
 
 **American Babylon**
-First Performed:**  
+**First Performed:**  
 
 **Last Performed:**

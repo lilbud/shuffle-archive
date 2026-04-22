@@ -44,7 +44,7 @@ February 1987
  October 8, 1987 (New York City, NY)
 
 **Native American**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Freedom–No Compromise*  
 **First performed:**  

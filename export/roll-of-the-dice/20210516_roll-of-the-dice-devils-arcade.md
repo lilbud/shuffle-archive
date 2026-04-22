@@ -117,7 +117,7 @@ Watch this complete performance of “Devil’s Arcade” from early in the tour
 ![](https://www.youtube.com/watch?v=dMN3RYMeHnE)
 
 **Devil’s Arcade
-Recorded:** March-April 2007
+**Recorded:** March-April 2007
 **Released:** *Magic* (2007)
 **First performed:** September 24, 2007 (Asbury Park, NJ)
 **Last performed:** June 16, 2008 (Dusseldorf, Germany)

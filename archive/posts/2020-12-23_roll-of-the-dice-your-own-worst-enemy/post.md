@@ -152,7 +152,7 @@ March-May 2007
  November 4, 2011 (Pittsburgh, PA)
 
 **Your Own Worst Enemy**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Magic*   
 **First performed:**  

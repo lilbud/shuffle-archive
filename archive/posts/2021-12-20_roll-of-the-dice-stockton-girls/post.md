@@ -67,7 +67,7 @@ Autumn 1979 (home demo only)
 
 
 **Stockton Girls**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

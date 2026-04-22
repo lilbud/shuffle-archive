@@ -56,7 +56,7 @@ October 1965 (Marlboro, NJ)
  July 23, 2013 (Cardiff, Wales)
 
 **We Gotta Get Out of This Place**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

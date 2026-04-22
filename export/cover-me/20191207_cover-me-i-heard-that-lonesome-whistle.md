@@ -25,5 +25,5 @@ Bruce’s version is more pensive than Williams’ original, and although the ta
 [https://videopress.com/embed/QHqTXyFd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QHqTXyFd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ** (I Heard That) Lonesome Whistle
-First performed:** August 29, 1978 (Pittsburgh, PA)
+**First performed:** August 29, 1978 (Pittsburgh, PA)
 **Last performed:** August 29, 1978 (Pittsburgh, PA)

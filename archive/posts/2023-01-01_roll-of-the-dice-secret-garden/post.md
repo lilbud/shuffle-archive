@@ -142,7 +142,7 @@ January 1995
  February 14, 2017 (Brisbane, Australia)
 
 **Secret Garden**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Greatest Hits**Blood Brothers*  
 **First performed:**  

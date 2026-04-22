@@ -34,7 +34,7 @@ September 30, 1987 (Los Angeles, CA)
  September 30, 1987 (Los Angeles, CA)
 
 **Dream Baby (How Long Must I Dream)**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

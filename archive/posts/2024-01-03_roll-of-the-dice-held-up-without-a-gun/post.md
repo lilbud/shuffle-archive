@@ -75,7 +75,7 @@ February 23 – April 1, 1980
  October 25, 2012 (Hartford, CT)
 
 **Held Up Without a Gun**
-Recorded:**  
+**Recorded:**  
 
 **Released:***The River: Outtakes*  
 **First performed:**  

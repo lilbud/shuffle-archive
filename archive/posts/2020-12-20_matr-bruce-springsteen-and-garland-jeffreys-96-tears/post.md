@@ -46,6 +46,6 @@ November 2, 2002 (Sea Bright, NJ)
  May 28, 2012 (Landgraaf, The Netherlands)
 
 **96 Tears**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

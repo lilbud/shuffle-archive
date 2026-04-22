@@ -34,7 +34,7 @@ N/A
  September 1, 1971 (Long Branch, NJ)
 
 **Dance, Dance, Dance**
-Recorded:**  
+**Recorded:**  
 
 **First performed:**  
 **Last performed:**

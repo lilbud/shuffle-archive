@@ -57,7 +57,7 @@ Fun, yes, but that one and only live performance of “You’ve Got It” didn�
 The irony of “You’ve Got It” is that it ain’t got it.
 
 **You’ve Got It
-Recorded:** 2011
+**Recorded:** 2011
 **Released:** *Wrecking Ball* (2012)
 **First performed:** July 24, 2012 (Bergen, Norway)
 **Last performed:** July 24, 2012 (Bergen, Norway)

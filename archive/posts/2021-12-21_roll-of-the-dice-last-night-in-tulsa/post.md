@@ -76,7 +76,7 @@ July 10, 1971 (Lincroft, NJ)
  July 29, 1971 (South Amboy, NJ)
 
 **Last Night in Tulsa**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

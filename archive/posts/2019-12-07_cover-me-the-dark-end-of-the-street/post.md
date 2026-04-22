@@ -42,6 +42,6 @@ June 2, 2009 (Tampere, Finland)
  June 2, 2009 (Tampere, Finland)
 
 **The Dark End of the Street**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

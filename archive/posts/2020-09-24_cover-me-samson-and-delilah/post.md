@@ -34,6 +34,6 @@ October 5, 2006
  October 5, 2006
 
 **Samson and Delilah**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

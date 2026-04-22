@@ -159,7 +159,7 @@ November 18-22, 2019
  September 3, 2022 (East Rutherford, NJ)
 
 **Letter to You**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Letter to You*   
 **First performed:**  

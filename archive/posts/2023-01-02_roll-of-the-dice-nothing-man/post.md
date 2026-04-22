@@ -130,7 +130,7 @@ Early 2002
  October 28, 2005 (Boston, MA)
 
 **Nothing Man**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Rising*   
 **First performed:**  

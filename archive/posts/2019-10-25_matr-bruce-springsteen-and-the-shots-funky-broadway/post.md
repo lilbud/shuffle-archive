@@ -38,6 +38,6 @@ April 24, 1970 (West Long Branch, NJ)
  July 16, 1994 (Asbury Park, NJ)
 
 **Funky Broadway**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -32,7 +32,7 @@ December 3, 2001 (Asbury Park, NJ)
  December 8, 2001 (Asbury Park, NJ)
 
 **Welcome to the World**
-First performed:**   
+**First performed:**   
 
 **Last performed:**
 

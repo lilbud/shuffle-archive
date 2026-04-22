@@ -49,6 +49,6 @@ February 6, 1998 (Sea Bright, NJ)
  February 6, 1998 (Sea Bright, NJ)
 
 **Johnny Come Lately**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

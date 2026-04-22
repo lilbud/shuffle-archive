@@ -149,7 +149,7 @@ November 18-22, 2019
  May 14, 2025 (Manchester, England)
 
 **Letter to You**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Letter to You*   
 **First performed:**  

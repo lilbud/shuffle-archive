@@ -32,6 +32,6 @@ December 9, 2019 (New York City, NY)
  December 9, 2019 (New York City, NY)
 
 **Pink Houses**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

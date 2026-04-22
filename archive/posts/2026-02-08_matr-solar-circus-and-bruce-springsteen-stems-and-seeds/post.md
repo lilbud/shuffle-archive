@@ -34,7 +34,7 @@ August 10, 1995 (Long Branch, NJ)
  August 10, 1995 (Long Branch, NJ)
 
 **Stems and Seeds**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

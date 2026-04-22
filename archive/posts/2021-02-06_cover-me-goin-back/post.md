@@ -58,6 +58,6 @@ October 16, 1975 (West Hollywood, CA)
  October 19, 1975 (West Hollywood, CA)
 
 **Goin’ Back**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

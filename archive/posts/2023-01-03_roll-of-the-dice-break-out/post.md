@@ -134,7 +134,7 @@ September-November 1977
 
 
 **Break Out**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

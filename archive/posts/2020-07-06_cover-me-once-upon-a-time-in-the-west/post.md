@@ -18,7 +18,7 @@ July-August 2006
 (2007)
 
 **Once Upon a Time in the West**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *We All Love Ennio Morricone*   
 **Never performed**

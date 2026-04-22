@@ -37,7 +37,7 @@ October 14, 1977
 
 
 **BoDo Rocker**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

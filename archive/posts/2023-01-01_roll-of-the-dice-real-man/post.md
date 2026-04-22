@@ -110,7 +110,7 @@ January-February 1990
  July 25, 1992 (East Rutherford, NJ)
 
 **Real Man**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Human Touch*   
 **First performed:**  

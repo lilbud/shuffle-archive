@@ -39,7 +39,7 @@ And honestly, I kind of get it: even though Bruce has a mean falsetto, it’s to
 But it would have been cool to hear it anyway, don’t you think?
 
 **Barbara Ann**
-First performed:** January 20, 1988 (New York City, NY)  
+**First performed:** January 20, 1988 (New York City, NY)  
 **Last performed:** July 1, 2015 (Holmdel, NJ)
 
 © February 25, 2026

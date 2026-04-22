@@ -178,7 +178,7 @@ November 2019
  September 1, 2023 (East Rutherford, NJ)
 
 **Ghosts**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Letter to You*  
 **First performed:**  

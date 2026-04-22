@@ -16,8 +16,8 @@ The legendary rockers’ performance is a bit rocky–Bruce accidentally transpo
 
 [Watch Video Highlight](https://videopress.com/embed/QWUOhrvS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Only the Good Die Young  
-First performed:** October 29, 2009 (New York City, NY)  
+**Only the Good Die Young**
+**First performed:** October 29, 2009 (New York City, NY)  
 **Last performed:** October 29, 2009 (New York City, NY)
 
 © February 10, 2020

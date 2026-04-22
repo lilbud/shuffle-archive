@@ -30,6 +30,6 @@ October 16, 2008 (New York City, NY)
  October 16, 2008 (New York City, NY)
 
 **Signed, Sealed, Delivered I’m Yours**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

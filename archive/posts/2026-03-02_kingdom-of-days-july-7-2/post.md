@@ -59,5 +59,3 @@
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_1--qvbsmAY)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: Jake Clemons.
-
- 

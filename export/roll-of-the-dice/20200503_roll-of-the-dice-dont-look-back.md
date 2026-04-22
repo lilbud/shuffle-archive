@@ -100,7 +100,7 @@ I’ll leave you with a terrific video of that performance of “Don’t Look Ba
 [https://videopress.com/embed/L5e9SzQt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/L5e9SzQt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 **Don’t Look Back
-Recorded:** July 2, 1977 – March 2, 1978
+**Recorded:** July 2, 1977 – March 2, 1978
 **Released:** *Tracks* (1998)
 **First performed:** March 10, 1977 (Toledo, OH)
 **Last performed:** May 18, 2014 (Uncasville, CT)

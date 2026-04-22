@@ -22,7 +22,7 @@ December 4, 2001 (Asbury Park, NJ)
  December 8, 2003 (Asbury Park, NJ)
 
 **Christmas Day**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

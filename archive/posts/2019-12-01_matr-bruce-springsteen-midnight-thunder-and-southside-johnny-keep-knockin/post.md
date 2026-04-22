@@ -38,6 +38,6 @@ July 10, 1983 (Asbury Park, NJ)
  November 26, 1988 (San Francisco, CA)
 
 **Keep A-Knockin’**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

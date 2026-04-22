@@ -126,7 +126,7 @@ May 5-6, 1982
  November 4, 2010 (Pittsburgh, PA)
 
 **A Good Man Is Hard to Find (Pittsburgh)**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Tracks*  
 **First performed:**  

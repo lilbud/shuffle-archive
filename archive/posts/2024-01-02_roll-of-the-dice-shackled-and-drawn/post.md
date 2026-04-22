@@ -176,7 +176,7 @@ Here’s that one-off performance, the last “Shackled and Drawn” to date.
 Last performed: June 25, 2016 (Gothenburg, Sweden)
 
 **Shackled and Drawn**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Wrecking Ball*   
 **First performed:**  

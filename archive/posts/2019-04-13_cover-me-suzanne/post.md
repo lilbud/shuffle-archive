@@ -20,6 +20,6 @@ September 16, 1967 (Freehold, NJ)
  September 16, 1967 (Freehold, NJ)
 
 **Suzanne**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

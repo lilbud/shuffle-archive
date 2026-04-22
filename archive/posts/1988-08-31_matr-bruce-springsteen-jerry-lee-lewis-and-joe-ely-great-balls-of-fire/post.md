@@ -55,7 +55,7 @@ Watch Bruce spontaneously decide to keep it going when Joe tries to end it at ar
 [https://www.youtube.com/embed/IgNDpFCzDvA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/IgNDpFCzDvA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Great Balls of Fire**
-First performed:** October 29, 1990 (San Fernando Valley, CA)  
+**First performed:** October 29, 1990 (San Fernando Valley, CA)  
 **Last performed:** November 5, 2022 (Los Angeles, CA)
 
 © August 10, 2022

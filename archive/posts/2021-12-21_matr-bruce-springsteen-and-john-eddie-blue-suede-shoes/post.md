@@ -44,6 +44,6 @@ August 19, 1983 (Long Branch, NJ)
  August 19, 1983 (Long Branch, NJ)
 
 **Blue Suede Shoes**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

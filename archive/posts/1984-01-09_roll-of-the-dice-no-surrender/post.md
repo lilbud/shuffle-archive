@@ -144,7 +144,7 @@ But apart from an odd arrangement on the Reunion Tour (which thankfully never su
 [https://www.youtube.com/embed/MrDkVJ1iSjg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/MrDkVJ1iSjg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **No Surrender**
-Recorded:** October 27, 1983  
+**Recorded:** October 27, 1983  
 **Released:** *Born in the U.S.A.* (1984)  
 **First performed:** June 29, 1984 (St. Paul, MN)  
 **Last performed:** June 30, 2025 (Milan, Italy)

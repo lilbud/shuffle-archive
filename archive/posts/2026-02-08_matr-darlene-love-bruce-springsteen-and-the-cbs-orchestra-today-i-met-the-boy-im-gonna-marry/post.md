@@ -18,7 +18,7 @@ March 14, 2011 (New York City, NY)
  March 14, 2011 (New York City, NY)
 
 **Today I Met the Boy I’m Gonna Marry**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

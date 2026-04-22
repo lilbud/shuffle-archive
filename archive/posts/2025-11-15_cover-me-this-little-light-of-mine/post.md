@@ -50,7 +50,7 @@ October 1, 2006 (Bologna, Italy)
  January 28, 2014 (Cape Town, South Africa)
 
 **This Little Light of Mine**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

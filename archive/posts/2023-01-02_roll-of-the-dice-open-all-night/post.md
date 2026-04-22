@@ -144,7 +144,7 @@ January 3, 1982
  February 8, 2014 (Perth, Australia)
 
 **Open All Night**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Nebraska*   
 **First performed:**  

@@ -34,6 +34,6 @@ July 1, 2015 (Holmdel, NJ)
  July 1, 2015 (Holmdel, NJ)
 
 **Surfin’ U.S.A.**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

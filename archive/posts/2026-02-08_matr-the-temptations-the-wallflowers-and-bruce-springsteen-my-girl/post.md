@@ -48,7 +48,7 @@ June 3, 1979 (West Hollywood, CA)
  December 22, 2002 (Asbury Park, NJ)
 
 **My Girl**
-First performed:**   
+**First performed:**   
 
 **Last performed:**
 

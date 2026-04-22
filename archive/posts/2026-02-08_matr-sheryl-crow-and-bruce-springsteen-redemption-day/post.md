@@ -44,7 +44,7 @@ November 4, 2019 (New York City, NY)
  November 4, 2019 (New York City, NY)
 
 **Redemption Day**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

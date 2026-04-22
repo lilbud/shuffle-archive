@@ -14,8 +14,8 @@ Then they took it higher. Take a listen below–it’s a one-time-only moment.
 
 [Watch Video Highlight](https://videopress.com/embed/fiwfljqg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**God Don’t Make Lonely Girls  
-First performed:** March 8, 1997 (Sea Bright, NJ)  
+**God Don’t Make Lonely Girls**
+**First performed:** March 8, 1997 (Sea Bright, NJ)  
 **Last performed:** March 8, 1997 (Sea Bright, NJ)
 
 © May 29, 2019

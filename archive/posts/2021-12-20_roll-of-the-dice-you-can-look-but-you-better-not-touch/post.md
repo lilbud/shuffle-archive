@@ -135,7 +135,7 @@ August 24-25 1979 (rockabilly version), February 17-23, 1980 (album version)
  February 18, 2017 (Hunter Valley, Australia)
 
 **You Can Look (But You Better Not Touch)**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The River* *The River: Single Album*   
 **First performed:**  

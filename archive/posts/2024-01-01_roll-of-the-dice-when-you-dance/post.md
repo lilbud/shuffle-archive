@@ -68,7 +68,7 @@ October 23, 1971 (Richmond, VA)
 , 1977 (Red Bank, NJ)
 
 **When You Dance** **Never Recorded
-First performed:**   
+**First performed:**   
 
 
 **Last performed:** [May 13](http://estreetshuffle.com/index.php/2018/05/13/kingdom-of-days-may-13/)

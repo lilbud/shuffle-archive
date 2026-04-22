@@ -42,7 +42,7 @@ If you managed to snap up one of those rare original CDs, congratulations on sco
  (2011)
 
 **Children’s Song**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Every Mother Counts*  
 **Never performed**

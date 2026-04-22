@@ -29,7 +29,7 @@ In 2014, at Bruce’s third appearance at the New Orleans Jazz Festival, the sta
 That was actually the eighth time Bruce had played “Green River” in concert, but it was the first time on a proper concert stage. It might have taken him four decades to get there, but that first E Street Band/Fogerty team-up on “Green River” was worth the wait.
 
 **Green River**
-First performed:** January 12, 1993 (Los Angeles, CA)  
+**First performed:** January 12, 1993 (Los Angeles, CA)  
 **Last performed:** May 3, 2014 (New Orleans, LA)
 
 © October 27, 2021

@@ -35,5 +35,5 @@ From the 1997 Kennedy Center Honors, here’s Bruce Springsteen’s only perform
 ![](https://www.youtube.com/watch?v=Wa0fOE-x84k)
 
 **The Times They Are A-Changin’
-First performed:** December 7, 1997 (Washington, DC)
+**First performed:** December 7, 1997 (Washington, DC)
 **Last performed:** December 7, 1997 (Washington, DC)

@@ -104,7 +104,7 @@ January 1990
  August 19, 2008 (Hershey, PA)
 
 **Part Man, Part Monkey**
-Recorded:**   
+**Recorded:**   
 
 **Released:** *Tracks* *18 Tracks*  
 **First performed:**  

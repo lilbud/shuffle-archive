@@ -212,7 +212,7 @@ June 16, 1995
  February 25, 2017 (Auckland, New Zealand)
 
 **Youngstown**
-Recorded:**  
+**Recorded:**  
 
 **Released:***The Ghost of Tom Joad*   
 **First performed:**  

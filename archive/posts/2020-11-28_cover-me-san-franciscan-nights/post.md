@@ -18,6 +18,6 @@ September 30, 1967 (Freehold, NJ)
  September 30, 1967 (Freehold, NJ)
 
 **San Franciscan Nights**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

@@ -161,7 +161,7 @@ February 1972
  February 1972
 
 **Visitation at Fort Horn**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **First performed:**   

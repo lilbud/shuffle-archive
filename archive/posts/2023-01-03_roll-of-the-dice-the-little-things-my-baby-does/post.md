@@ -83,7 +83,7 @@ August 15, 1977 (core track), July 2010 (vocals)
 (2010)
 
 **The Little Things (My Baby Does)**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The Promise*   
 **Never performed**

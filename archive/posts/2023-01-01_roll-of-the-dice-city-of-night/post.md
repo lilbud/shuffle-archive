@@ -91,7 +91,7 @@ October 14, 1977
  (2010)
 
 **City of Night**
-Recorded:**  
+**Recorded:**  
 
 **Released:***The Promise*   
 **Never performed**

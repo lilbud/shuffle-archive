@@ -42,6 +42,6 @@ September 16, 1967 (Freehold, NJ)
  November 23, 1971 (Linden, NJ)
 
 **Jeff’s Boogie**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

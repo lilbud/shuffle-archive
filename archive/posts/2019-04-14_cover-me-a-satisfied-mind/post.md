@@ -20,6 +20,6 @@ March 23, 1988 (Atlanta, GA – soundcheck only)
  March 23, 1988 (Atlanta, GA – soundcheck only)
 
 **Satisfied Mind**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

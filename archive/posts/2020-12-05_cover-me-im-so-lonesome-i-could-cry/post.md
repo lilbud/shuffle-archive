@@ -24,6 +24,6 @@ March 14, 1988 (Richfield, OH – soundcheck only)
  May 5, 1988 (Tacoma, WA – soundcheck only)
 
 **I’m So Lonesome I Could Cry**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

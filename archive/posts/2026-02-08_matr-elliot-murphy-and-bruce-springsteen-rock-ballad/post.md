@@ -40,7 +40,7 @@ June 30, 1992 (Paris, France)
  June 30, 1992 (Paris, France)
 
 **Rock Ballad**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

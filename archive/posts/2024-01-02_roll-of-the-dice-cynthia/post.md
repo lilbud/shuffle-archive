@@ -146,7 +146,7 @@ June 15, 1983
  July 23, 2013 (Cardiff, Wales)
 
 **Cynthia**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Tracks*  
 **First performed:**  

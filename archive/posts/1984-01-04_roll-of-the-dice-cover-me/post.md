@@ -126,7 +126,7 @@ I’m thinking this is a streak worth extending.
 [https://videopress.com/embed/e3V4yBk8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/e3V4yBk8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 **Cover Me**
-Recorded:** January 25, 1982  
+**Recorded:** January 25, 1982  
 **Released:** *Born in the U.S.A.* (1984)  
 **First performed:** July 2, 1984 (St. Paul, MN)  
 **Last performed:** June 27, 2024 (Nijmegen, The Netherlands)

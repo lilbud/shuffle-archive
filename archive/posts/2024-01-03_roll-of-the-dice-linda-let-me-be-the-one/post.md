@@ -107,7 +107,7 @@ May-July, 1975
  April 29, 2014 (Sunrise, FL)
 
 **Linda Let Me Be The One**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Tracks*  
 **First performed:**  

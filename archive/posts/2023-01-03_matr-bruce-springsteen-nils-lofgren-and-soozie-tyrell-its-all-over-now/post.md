@@ -48,6 +48,6 @@ November 6, 1983 (Asbury Park, NJ)
  August 24, 2008 (Kansas City, MO)
 
 **It’s All Over Now**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

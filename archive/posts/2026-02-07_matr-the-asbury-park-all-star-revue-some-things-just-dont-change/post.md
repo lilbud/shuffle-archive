@@ -36,7 +36,7 @@ May 13, 1977 (Red Bank, NJ)
  May 13, 1977 (Red Bank, NJ)
 
 **Some Things Just Don’t Change**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

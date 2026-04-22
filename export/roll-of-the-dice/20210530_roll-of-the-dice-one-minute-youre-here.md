@@ -94,7 +94,7 @@ It’s also a reminder that against the vast reach of the universe and the march
 We may be gone in a minute, but this minute we’re here.
 
 **One Minute You’re Here
-Recorded:** Unknown (as early as September 2004 for the backing track, and likely 2019 for the vocals)
+**Recorded:** Unknown (as early as September 2004 for the backing track, and likely 2019 for the vocals)
 **Released:** *Letter to You (2020)* 
 **Never performed**
 

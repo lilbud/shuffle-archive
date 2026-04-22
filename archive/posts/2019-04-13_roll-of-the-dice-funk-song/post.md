@@ -30,7 +30,7 @@ N/A
  August 8, 1975 (Akron, OH)
 
 **Funk Song**
-Recorded:**   
+**Recorded:**   
 
 **Released:**   
 **First performed:**  

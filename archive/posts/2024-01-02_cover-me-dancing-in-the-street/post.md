@@ -42,6 +42,6 @@ December 31, 1969 (Big Sur, CA)
  January 22, 1971 (Asbury Park, NJ)
 
 **Dancing in the Street**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

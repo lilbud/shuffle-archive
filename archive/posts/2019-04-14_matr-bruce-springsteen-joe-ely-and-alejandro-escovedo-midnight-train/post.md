@@ -18,6 +18,6 @@ March 14, 2012 (Austin, TX)
  March 14, 2012 (Austin, TX)
 
 **Midnight Train**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

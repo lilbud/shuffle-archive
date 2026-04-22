@@ -96,7 +96,7 @@ September 14 – October 10, 1983
  (1998)
 
 **Brothers Under the Bridges**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Tracks*  
 **Never performed**

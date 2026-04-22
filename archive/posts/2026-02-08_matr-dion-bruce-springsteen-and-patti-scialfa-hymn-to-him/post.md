@@ -38,7 +38,7 @@ Unknown
 (2020)
 
 **Hymn to Him**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Blues With Friends*   
 **Never performed**

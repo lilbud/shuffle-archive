@@ -30,6 +30,6 @@ May 2, 2009 (Greensboro, NC)
  May 2, 2009 (Greensboro, NC)
 
 **Seventh Son**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

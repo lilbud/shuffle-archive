@@ -110,7 +110,7 @@ October-November, 1977
  September 5, 2016 (Virginia Beach, VA)
 
 **Factory**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Darkness on the Edge of Town*   
 **First performed:**  

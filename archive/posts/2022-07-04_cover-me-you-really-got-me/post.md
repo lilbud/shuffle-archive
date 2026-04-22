@@ -40,6 +40,6 @@ January 17, 1990 (New York City, NY)
  May 5, 2009 (Charlottesville, VA)
 
 **You Really Got Me**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

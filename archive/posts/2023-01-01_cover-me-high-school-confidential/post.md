@@ -40,6 +40,6 @@ August 14, 1978 (Hampton, VA)
  November 5, 2022 (Los Angeles, CA)
 
 **High School Confidential**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

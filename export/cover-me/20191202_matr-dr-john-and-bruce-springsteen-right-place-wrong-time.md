@@ -23,5 +23,5 @@ With a line-up of guests ranging from The Blind Boys of Alabama and The Neville 
 That wasn’t the first time Bruce shared a stage with Dr. John, but it would turn out to be the last. The New Orleans legend passed away five years later.
 
 **Right Place, Wrong Time
-First performed:** May 3, 2014 (New Orleans, LA)
+**First performed:** May 3, 2014 (New Orleans, LA)
 **Last performed:** May 3, 2014 (New Orleans, LA)

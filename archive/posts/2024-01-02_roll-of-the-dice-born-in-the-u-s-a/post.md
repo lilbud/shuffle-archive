@@ -244,7 +244,7 @@ April 27-May 3, 1984
  July 6, 2023 (London, England)
 
 **Born in the U.S.A.**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Born in the U.S.A.*   
 **First performed:**  

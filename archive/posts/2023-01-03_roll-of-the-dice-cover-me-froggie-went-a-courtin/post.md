@@ -48,7 +48,7 @@ March 19, 2005
  November 14, 2006 (Sheffield, England)
 
 **Froggie Went A-Courtin’**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *We Shall Overcome: The Seeger Sessions*  
 **First performed:**  

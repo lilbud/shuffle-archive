@@ -103,8 +103,8 @@ Something tells me we’ll be celebrating the misadventures of Wayne and Wilson 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dcjjeHtdsLg)
 
-**Darlington County  
-Recorded:** May 13, 1982  
+**Darlington County**
+**Recorded:** May 13, 1982  
 **Released:** *Born in the U.S.A.* (1984)  
 **First performed:** June 8, 1984 (Asbury Park, NJ)  
 **Last performed:** June 24, 2025 (San Sebastian, Spain)

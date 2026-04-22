@@ -38,6 +38,6 @@ July 29, 1978 (St. Petersburg, FL)
  December 13, 2002 (Albany, NY)
 
 **Around and Around**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

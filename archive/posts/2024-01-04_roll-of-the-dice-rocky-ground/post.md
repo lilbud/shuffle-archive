@@ -135,7 +135,7 @@ Even so, “Rocky Ground” vanished after the Wrecking Ball Tour (save for a si
  January 29, 2014 (Cape Town, South Africa)
 
 **Rocky Ground**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Wrecking Ball*  
 **First performed:**  

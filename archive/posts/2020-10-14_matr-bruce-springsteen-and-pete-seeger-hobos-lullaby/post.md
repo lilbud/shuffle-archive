@@ -42,7 +42,7 @@ September 29, 1996 (Cleveland, OH)
 September 29, 1996 (Cleveland, OH)
 
 **Hobo’s Lullaby**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *Give US Your Poor*  
 **First performed:**   

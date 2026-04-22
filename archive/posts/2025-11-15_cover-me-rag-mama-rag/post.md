@@ -30,7 +30,7 @@ May 30, 2006 (Columbus, OH)
  October 8, 2006 (Caserta, Italy)
 
 **Rag Mama Rag**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

@@ -46,7 +46,7 @@ November 16, 2010(2012) November 16, 2010 (New York City, NY)
  November 16, 2010 (New York City, NY)
 
 **Whip My Hair**
-Recorded:**   
+**Recorded:**   
  **Released:**   
 *Blow Your Pants Off*  **First performed:**  
 

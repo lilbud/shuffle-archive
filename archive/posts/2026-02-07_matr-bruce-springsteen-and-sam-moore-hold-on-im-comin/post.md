@@ -36,7 +36,7 @@ August 10, 1996 (Whitefish, MT)
  March 9, 2012 (New York City, NY)
 
 **Hold On, I’m Comin’**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

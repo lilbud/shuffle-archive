@@ -140,7 +140,7 @@ It’s very different from Bruce’s nightly performance on tour, and the only l
  November 22, 2005 (Trenton, NJ)
 
 **Reno**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Devils & Dust*   
 **First performed:**  

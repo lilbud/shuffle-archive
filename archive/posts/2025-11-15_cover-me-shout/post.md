@@ -44,7 +44,7 @@ December 31, 1982 (New York City, NY)
  February 25, 2017 (Auckland, New Zealand)
 
 **Shout**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

@@ -38,6 +38,6 @@ May 14, 1993 (Berlin, Germany)
  June 24, 1993 (East Rutherford, New Jersey)
 
 **Satan’s Jeweled Crown**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

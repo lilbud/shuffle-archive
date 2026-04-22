@@ -168,7 +168,7 @@ May 14,1982
  July 20, 2016 (Horsens, Denmark)
 
 **Frankie**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Tracks*  
 **First performed:**  

@@ -44,7 +44,7 @@ On an album that’s all about his vocal performances, “What Becomes of the Br
  (2022)
 
 **What Becomes of the Broken Hearted**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Only the Strong Survive*   
 **Never performed**

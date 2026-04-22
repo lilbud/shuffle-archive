@@ -50,7 +50,7 @@ January 21, 2006
  (2018)
 
 **If I Had a Hammer (The Hammer Song)**
-Recorded:**  
+**Recorded:**  
 
 **Released:***Roots and Branches*  
 **Never performed**

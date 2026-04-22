@@ -57,7 +57,7 @@ April 20, 2006 (Asbury Park, NJ)
  May 3, 2014 (New Orleans, LA)
 
 **When the Saints Go Marching In**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

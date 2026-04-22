@@ -20,7 +20,7 @@ October 20, 1995 (Pittsburgh, PA)
  October 20, 1995 (Pittsburgh, PA)
 
 **Lighten Up**
-First performed:**  
+**First performed:**  
 
 **Last performed:**
 

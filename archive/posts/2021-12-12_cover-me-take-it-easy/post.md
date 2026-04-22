@@ -18,6 +18,6 @@ March 16, 2004 (New York City, NY)
  September 21, 2017 (Holmdel, NJ)
 
 **Take It Easy**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

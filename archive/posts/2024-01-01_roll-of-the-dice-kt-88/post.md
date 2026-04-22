@@ -18,7 +18,7 @@ September 20, 1969 (Richmond, VA)
  August 14, 1970 (Richmond, VA)
 
 **KT-88**
-First performed:**   
+**First performed:**   
 
 **Last performed:**
 

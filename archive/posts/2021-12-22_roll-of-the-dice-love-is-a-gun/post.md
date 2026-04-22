@@ -39,7 +39,7 @@ January-June 1979 (demos only)
 
 
 **Love is a Gun**
-Recorded:**  
+**Recorded:**  
 
 **Never released**  
 **Never performed**

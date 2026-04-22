@@ -213,7 +213,7 @@ Late 1979 – Early 1980
  July 28, 2016 (Oslo, Norway)
 
 **Point Blank**
-Recorded:**  
+**Recorded:**  
 
 **Released:** *The River*   
 **First performed:**  

@@ -24,6 +24,6 @@ September 22, 2015 (Red Bank, NJ)
  September 21, 2017 (Holmdel, NJ)
 
 **Our Lady of the Well**
-First performed:**  
+**First performed:**  
 
 **Last performed:**

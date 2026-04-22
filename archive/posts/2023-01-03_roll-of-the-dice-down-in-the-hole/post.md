@@ -87,7 +87,7 @@ Regardless of the reason, it’s effective–it keeps us at a distance and then 
  (2014)
 
 **Down in the Hole**
-Recorded:**  
+**Recorded:**  
 
 **Released:***High Hopes*   
 **Never performed**
