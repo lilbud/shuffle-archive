@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Ominous, brooding, and referential, “The Big Muddy” sticks out like a sore thumb on Bruce’s Lucky Town album–but it’s one of the album’s best songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Big Muddy"
----
 
 If you ask me for my top ten Springsteen on songs on any given day, you won’t find “The Big Muddy” on that list.
 

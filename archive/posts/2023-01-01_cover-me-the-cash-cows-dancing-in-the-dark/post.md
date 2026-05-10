@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: There are a lot of “Dancing in the Dark” covers out there, but none quite like this one.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Cash Cows: Dancing in the Dark"
----
 
 To call The Cash Cows a cover band would be a disservice.
 

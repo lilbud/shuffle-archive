@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the peak of Little Steven’s political period, Steve and Bruce collaborated on the well-intentioned (if lyrically awkward) “Native American.” Watch them give it their best on-stage shot inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Little Steven and Bruce Springsteen, Native American"
----
 
 In 1987, Little Steven released his third solo album, Heavier in both content and production, the album continued the political journey he began in 
 

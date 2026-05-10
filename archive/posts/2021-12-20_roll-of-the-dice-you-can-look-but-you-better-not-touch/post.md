@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In any arrangement and any style, “You Can Look” is guaranteed to bring the fun to any show it appears in. Let’s trace its long and winding evolution inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: You Can Look (But You Better Not Touch)"
----
 
 For a song with so little substance, “You Can Look (But You Better Not Touch)” sure takes on a lot of forms.
 

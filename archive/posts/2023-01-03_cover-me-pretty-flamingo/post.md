@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In one of his very best covers, Bruce lingers in that very first moment of infatuation. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Pretty Flamingo"
----
 
 *If he just could… If she just would…*
 

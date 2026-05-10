@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Dion’s second cover of a Lucky Town track is both faithful to the original and distinctly Dion. It’s lovely and well worth a listen.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Dion DiMucci: Book of Dreams"
----
 
 Bruce’s connection with Dion DiMucci goes way back to 1975 (even further if you count a second-degree association between Dion and Steve Van Zandt when Steve and The Dovells backed Dion in a 1972 show in Miami), and Bruce has called Dion “the link between Sinatra and rock and roll.”
 

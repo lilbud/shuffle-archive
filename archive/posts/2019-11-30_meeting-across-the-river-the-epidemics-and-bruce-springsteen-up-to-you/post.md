@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At his only appearance to date in India, Bruce joined The Epidemics on stage and contributed his harmonica stylings to their song “Up to You.” It ended up being integrated into the released studio track.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: The Epidemics and Bruce Springsteen: Up to You"
----
 
 In 1988, Bruce Springsteen and the E Street Band toured the world with a travelling troupe of musicians on behalf of Amnesty International.
 

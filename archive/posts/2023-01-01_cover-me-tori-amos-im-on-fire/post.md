@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s a crossover! Listen in on my visit to “Drive All Night,” a Tori Amos podcast, in a special Tori-on-Bruce episode.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Tori Amos: I’m on Fire"
----
 
 What do Bruce Springsteen and Tori Amos have in common?
 

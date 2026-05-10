@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce Springsteen has covered Motown’s first big hit several times over the years, but only two club performances from the eighties were caught on tape. Take a listen to both inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Beaver Brown, Money (That’s What I Want)"
----
 
 Barrett Strong’s original 1959 recording of “Money (That’s What I Want)” ushered in the age of Motown as a cultural force. Peaking at #2 on the Billboard R&B chart and #23 on the Hot 100, “Money” was Motown’s first of many hit singles.
 

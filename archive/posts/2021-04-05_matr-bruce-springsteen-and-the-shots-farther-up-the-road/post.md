@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce teams up with Stone Pony house band The Shots for a cover of Bobby “Blue” Bland’s seminal Texas shuffle standard.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and The Shots: Farther Up the Road"
----
+
 
 I think we’re gonna have to take this one on faith.
 

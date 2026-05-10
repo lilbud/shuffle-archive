@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From her Uncovered album, Shawn Colvin delivers a tender performance of “Tougher Than the Rest.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Shawn Colvin: Tougher Than the Rest"
----
 
 In 2015, Shawn Colvin released an her album, and it opens with a very much covered song: Bruce Springsteen’s “.”
 

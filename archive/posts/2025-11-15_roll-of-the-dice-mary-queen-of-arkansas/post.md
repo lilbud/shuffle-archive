@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Widely considered to be Bruce’s worst song, “Mary Queen of Arkansas” shows flashes of brilliance and unappreciated layers of depth.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Mary Queen of Arkansas
----
 
 In the early days of 1972, Vanessa Redgrave’s latest film garnered a slew of Academy Award and Golden Globe nominations. The film, was a historically questionable tale of sexual misadventure and political intrigue, and while it didn’t take home any awards that year, it did inspire what is widely (and IMO unfairly) considered to be Bruce Springsteen’s worst-ever song.
 

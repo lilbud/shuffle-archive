@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The first second night of the 2016 tour featured St. Patrick Day surprises and an extended ESB family reunion.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Los Angeles, March 17, 2016"
----
 
 [https://videopress.com/embed/vlByZSBh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/vlByZSBh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

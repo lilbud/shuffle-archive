@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce joins Nils, Clarence, and the rest of Ringo’s All Starr Band for an encore performance of a Beatles classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Ringo Starr’s All Starr Band and Bruce Springsteen: With a Little Help from My Friends"
----
 
 Back in April, I shared Bruce’s 1989 guest appearance with Ringo Starr’s All Star Band at the Garden State Arts Center, where Bruce joined the band for “.”
 

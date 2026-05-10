@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Yes, it was *that* good. On a night when no one expected it, Bruce played his best 21st century show with a scorching performance and a die-hard’s dream setlist.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: St. Louis, August 23, 2008"
----
 
 Let’s address the controversy right off the bat:
 

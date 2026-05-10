@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Guest blogger Sandi Pederson was front and center when Bruce filmed his video for “Dancing in the Dark.” Read her first-hand report and relive it with her!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: St. Paul, June 28 – July 2, 1984 (Sandi’s story)"
----
 
 Editor's Note
 

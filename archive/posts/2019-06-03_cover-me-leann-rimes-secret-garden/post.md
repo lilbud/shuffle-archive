@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: LeAnn Rimes has long and often cited “Secret Garden” as one of her favorite songs. In a 2018 in-studio performance, she showed us why, illuminating Bruce’s often-misunderstood song with tender sorrow.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Leann Rimes: Secret Garden"
----
 
 “This song breaks my heart every time I hear it. It’s so beautifully written. I relate to the lyrics. Don’t we all have a secret garden?” — LeAnn Rimes, September 25, 2014*The Press-Enterprise,*
 

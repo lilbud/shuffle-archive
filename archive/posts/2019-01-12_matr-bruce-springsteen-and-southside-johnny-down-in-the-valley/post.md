@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce covers Solomon Burke’s country soul classic with Southside Johnny and The Asbury Jukes in 1977.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Southside Johnny, Down in the Valley"
----
+
 
 “Down in the Valley” was a romantic country soul hit for Solomon Burke in 1962, even though it was originally released as a B-side (to “I’m Hanging My Heart Up for You”). “Valley” outperformed its A-side, peaking at #71 on the Billboard Pop chart.
 

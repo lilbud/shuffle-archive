@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce plays his first-ever stadium concert in his home state, brings back “Crush on You” and “Drift Away” after 28 years, makes an unintentionally comical Asbury Park surprise appearance and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 18"
----
+
 
 *Audio for 1978; review for 2008; new entry for 2024***New for 2025:**
 

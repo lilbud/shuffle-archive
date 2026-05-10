@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s up for debate whether Darlene Love’s vocals are anywhere to be found on the original recording, but she certainly was front and center with the E Street Band at the Rock and Roll Hall of Fame concert in 2009.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Darlene Love, Da Doo Ron Ron"
----
 
 “Da Doo Ron Ron” was a top ten hit not once, but twice–first for The Crystals, who took it to #3 in 1963…
 

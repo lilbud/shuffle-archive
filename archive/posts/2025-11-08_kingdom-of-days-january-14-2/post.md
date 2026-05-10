@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this day: the release of High Hopes, the one and only performance of “Gov. Christie’s Traffic Jam,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 14
----
+
 
 Bruce and the E Street Band conclude their seven-day, twice-a-day gig at Paul’s Mall in Boston.
 

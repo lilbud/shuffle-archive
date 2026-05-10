@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday “Professor” Roy Bittan! Also on this date: Bruce films his first movie role, opens the Meadowlands, and plays “Jersey Girl” for the first time. Plus: CBS profiles Clarence, and Mike Appel takes legal action to stop Bruce from recording.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 2"
----
+
 
 *New entry for 1977 and 2024; video for 2023***New for 2025:**
 

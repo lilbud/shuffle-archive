@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A fascinating work-in-progress that eventually led to “Janey, Don’t You Lose Heart.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: True Love Is Hard to Come By"
----
 
 Judging from the three work-in-progress demo recordings of “True Love Is Hard to Come By” that have escaped into the wild, we might conclude that Bruce was never quite able to figure out what we wanted to do with this song.
 

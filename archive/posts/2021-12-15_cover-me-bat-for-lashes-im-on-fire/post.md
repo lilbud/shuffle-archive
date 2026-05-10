@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bat for Lashes turns in a mic drop cover of Bruce’s “I’m on Fire.” It’s even more yearning and steamy than the original, but more spiritual as welll. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Bat for Lashes: I’m on Fire"
----
 
 Here’s a cover that should stop you in your tracks.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When Bruce stepped on a South African stage for the first time, he opened with this faithful cover of The Special AKA’s protest song, “Free Nelson Mandela.” Watch that pro-shot performance inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Free Nelson Mandela"
----
 
 When Bruce took the stage in South Africa for the first time ever, we knew we were in for something special right from the beginning.
 

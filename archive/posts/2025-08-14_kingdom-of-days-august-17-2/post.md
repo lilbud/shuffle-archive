@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce plays “I’m Goin’ Down” for the first time, wraps up his legendary 1975 stand at the Bottom Line, and more. Plus: a half-hour of 1992 Detroit soundcheck and performance footage!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 17"
----
+
 
 *Audio for 1975***New for 2025:**
 

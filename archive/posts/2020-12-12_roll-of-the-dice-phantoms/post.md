@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Often dismissed as a work-in-progress “Zero and Blind Terry,” “Phantoms” is actually a completely different song (with the same music). It represents the closing of a chapter in Bruce’s songwriting.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Phantoms"
----
 
 You know I always loved a lonely town
 Those empty streets, no one around

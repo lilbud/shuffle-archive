@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce covered Buddy Holly’s hit “Oh Boy!” three times on the Darkness tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Oh Boy"
----
 
 “Oh Boy!” was originally written and recorded by Sonny West, but it was Buddy Holly and the Crickets’ version that broke through to become a hit (peaking at number 10 in the US) and an enduring classic.
 

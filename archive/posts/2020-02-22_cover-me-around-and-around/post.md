@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Many, many times–but almost always in small clubs: Bruce rocks the house with a cover of Chuck Berry’s classic B-side, “Around and Around.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Around and Around"
----
+
 
 “Around and Around” was the B-side for one of the greatest, most recognized songs in rock and roll history, Chuck Berry’s 1958 smash hit “.”
 

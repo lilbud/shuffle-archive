@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: A performance by the Castiles that would be officially released almost 50 years later, Bruce uploads a new, under-the-radar cover, and the one and only performance to date of “Let’s Be Friends (Skin to Skin).” Lots more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 16"
----
+
 
 *New entry for 1977, 1983, and 2002***New for 2025:**
 

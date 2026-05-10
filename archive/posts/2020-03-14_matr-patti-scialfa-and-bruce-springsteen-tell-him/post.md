@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 1984, a redheaded woman walked into a bar and changed the course of Bruce Springsteen’s life. This is the song she sang, and their only circulating performance of it together. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Patti Scialfa and Bruce Springsteen: Tell Him"
----
 
 It’s 1984, and a red-headed woman walks into a bar.
 

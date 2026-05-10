@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Two years gone to the day, but his music lives on. Enjoy one of the earliest covers of a Bruce Springsteen song (and a darn…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, David Bowie: It’s Hard to Be a Saint in the City"
----
 
 Two years gone to the day, but his music lives on. Enjoy one of the earliest covers of a Bruce Springsteen song (and a darn good one): David Bowie’s cover of “”
 

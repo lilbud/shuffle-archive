@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Live from Croke Park, on the Unforgettable Fire Tour: U2 covers “My Hometown” for a hometown crowd.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, U2: My Hometown"
----
+
 
 On June 29 1985, U2 played a homecoming show at Croke Park in Dublin. Bono kicked off the encores with a dedication to his father: a cover of “.”
 

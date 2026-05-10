@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce kicks off the California leg of the Wrecking Ball tour with an intense performance in San Jose.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: San Jose, April 24, 2012"
----
 
 [https://www.youtube.com/embed/G-aE4KzzC5k?feature=oembed](https://www.youtube.com/embed/G-aE4KzzC5k?feature=oembed)
 

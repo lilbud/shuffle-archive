@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A fantastic 1974 interview, the only performance of “You’ll Be Comin’ Down,” and a guest-appearance by Eddie Vedder in Seattle lead the highlights from this eventful date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 24
----
 
 Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce’s recently released debut album. Keep an eye on him, the reviewer advises.
 

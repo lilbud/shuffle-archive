@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “4th of July, Asbury Park (Sandy)” reveals Bruce Springsteen at a crossroads, caught between his attraction to and rejection of his adopted hometown. Backstory, insights, and great performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: 4th of July, Asbury Park (Sandy)"
----
 
  
 

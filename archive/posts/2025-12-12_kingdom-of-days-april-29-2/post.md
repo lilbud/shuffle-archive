@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce makes his legendary late-night Graceland expedition. Plus: great video of Bruce’s return visit to JazzFest and rare performances and premieres over the years.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 29
----
+
 
 Michael Barakan (a.k.a. Shane Fontayne, 1992-93 touring band guitarist) is born.
 

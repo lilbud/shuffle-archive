@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “You Can’t Sit Down” is a Philly favorite, made famous by local boys The Dovells. But its origins trace back farther.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: You Can’t Sit Down
----
 
 Whenever Bruce visits Philly, odds are pretty good that he’ll break out “You Can’t Sit Down” in the encores.
 

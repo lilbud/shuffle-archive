@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this day in history: Bruce Springsteen films the video for “The Wrestler,” duets with Joe Ely in Austin, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 25
----
+
 
 Bruce continues his five-night stand at The Quiet Knight in Chicago, opening for The Persuasions. Earlier in the day, The New York Daily News reviews his first album.
 

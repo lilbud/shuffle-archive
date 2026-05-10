@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Nicknamed “Castaway” by bootleggers, “The Ballad” features a gorgeous Darkness-era E Street Band performance. If only we could get a reliable translation of those lyrics…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Ballad"
----
 
 “The Ballad” has always intrigued me.
 

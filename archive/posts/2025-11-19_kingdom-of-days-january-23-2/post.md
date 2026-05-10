@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday to Danny Federici, born on this date in 1950. Also on this date: Steel Mill plays their last gig, an original River Tour show is captured on video, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 23
----
+
 
 Founding E Street Band member “Phantom” Dan Federici is born in Flemington, New Jersey.
 

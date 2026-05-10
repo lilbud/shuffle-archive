@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “The Line” is Bruce at his most cinematic and empathetic, a masterpiece of taut storytelling written years before immigration reform dominated the national discourse.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Line"
----
 
 In 1995, immigration reform was not a big part of the national discourse in the USA. However, it was very much a part of the ongoing conversation between Bruce and his fans–it was, in fact, one of the central themes of his new album, 
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: There are two versions of “None But the Brave,” differing only by one line. But that line and its contemporary context matter.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: None But the Brave"
----
 
 Bear with me, please–I’m going to take some license .
 

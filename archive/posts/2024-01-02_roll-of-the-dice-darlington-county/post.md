@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The continuing mis-adventures of Wilson and Wayne, chicken delivery men and fugitive ne’er-do-wells.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Darlington County"
----
 
 Roger Scott to Bruce Springsteen: “… was full of these sharply contrasting songs, these wild celebrations alongside these hopeless people.”*The River*
 

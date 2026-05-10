@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Free Redemption is a new band out of Italy, and to call them a tribute band would be a vast disservice. Their mission is to reinterpret Bruce’s music, and they hit it out of the park with “I’m Goin’ Down.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Free Redemption: I’m Goin’ Down"
----
 
 No doubt about it: my favorite part of writing this blog is when readers send me their own covers of Bruce’s original songs.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It may not feature Bruce’s best lyrics, but “The War Is Over” is still a creatively constructed protest song that resonates fifty years down the road in unexpected ways.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The War is Over"
----
 
 The dice are mean today.
 

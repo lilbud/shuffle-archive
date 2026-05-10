@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Ah, the elusive, romantic epic “Frankie.” She’s the one that got away multiple times. It took years, but Bruce and the E Street Band finally did right by her in the studio and on stage. Watch and listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Frankie"
----
 
 Poor “Frankie.”
 

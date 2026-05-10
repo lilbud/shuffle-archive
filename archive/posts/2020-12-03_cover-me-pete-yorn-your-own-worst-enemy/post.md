@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the best yet least-performed tracks on Magic gets some love from Pete Yorn, although I’m not sure he fully groks it.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Pete Yorn: Your Own Worst Enemy"
----
 
 Ten points to Pete Yorn for choosing one of the best tracks (but least played) from Bruce’s album: “”
 

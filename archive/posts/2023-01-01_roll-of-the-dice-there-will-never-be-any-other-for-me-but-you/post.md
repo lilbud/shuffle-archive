@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce played it more than 30 times on the Ghost of Tom Joad Tour, but “There Will Never Be Any Other For Me But You” remains one of his most under-the-radar love songs. Take a listen to this 1990s period piece inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: There Will Never Be Any Other For Me But You"
----
 
 If you’ve ever wondered what the touring life of an acoustic solo artist is like, you might get a pretty good idea from a suite of under-the-radar songs that Bruce Springsteen wrote and performed while on the road during the Ghost of Tom Joad tour.
 

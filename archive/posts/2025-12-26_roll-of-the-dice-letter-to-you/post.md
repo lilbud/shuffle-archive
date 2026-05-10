@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Love the song, hate the track: “Letter to You” is my new “Real World.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Letter to You
----
+
 
 I had to completely re-write this essay.
 

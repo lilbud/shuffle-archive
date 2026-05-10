@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Manfred Mann’s Earth Band covered Bruce three times–each time drawing from Bruce’s first album. Here’s their final one, from 1980.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Manfred Mann’s Earth Band: For You"
----
 
 Manfred Mann’s cover of “” is one of the most famous Springsteen covers out there–it gets lots of airplay to this day.
 

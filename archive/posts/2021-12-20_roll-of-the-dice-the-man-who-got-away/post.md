@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “The Man Who Got Away” is a terrific piece of sleight-of-hand songwriting that should never have been allowed to get away.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Man Who Got Away"
----
 
 How good is the River sessions outtake, “The Man Who Got Away?”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The late, great Solomon Burke adapted Bruce’s sweet “Ain’t Got You” into a bombastic country roots romp. The result is a *very* different song. You need to hear this one.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Solomon Burke: Ain’t Got You"
----
 
 Turnabout is fair play, I suppose.
 

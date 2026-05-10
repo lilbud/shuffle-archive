@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen to a 1974 interview, a legendary ’78 concert, and watch a 1994 holiday show appearance–all from this date.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 20"
----
 
 *Audio for 1978; new entry for 2005***New for 2024:**
 

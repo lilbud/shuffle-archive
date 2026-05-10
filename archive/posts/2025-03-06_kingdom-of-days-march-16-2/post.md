@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the live debut of “High Hopes,” a guest appearance with Jackson Browne, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 16"
----
+
 
 *Video for 2023***New for 2025:**
 

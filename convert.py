@@ -1,22 +1,43 @@
+import datetime
+import json
 import re
 from pathlib import Path
 
-post_folder = Path("./archive/posts/")
+import html_to_markdown
 
-for post in post_folder.iterdir():
-    print(post.name)
-    if post.is_dir():
-        post_path = Path(post, "post.md")
+from cleanup import initial_cleanup
 
-        post_text = post_path.read_text(encoding="utf-8")
 
-        bold_fixed = re.sub(
-            r"^\*{2}([^*]+?)\s*$",
-            r"**\1**",
-            post_text,
-            flags=re.MULTILINE,
-        )
-        trimmed = re.sub(r"\s+$", r"", bold_fixed)
+def save_to_archive(post: dict) -> None:
+    """Save post to archive folder as MD and JSON."""
+    date = datetime.datetime.strptime(
+        post["modified_gmt"],
+        "%Y-%m-%dT%H:%M:%S",
+    )
 
-        with Path(post, "post.md").open("w", encoding="utf-8") as f:
-            f.write(trimmed)
+    content = initial_cleanup(post["content"]["rendered"])
+    content = html_to_markdown.convert(content)
+
+    save_path = Path(f"./archive/posts/{date.date()}_{post['slug']}")
+
+    print(save_path)
+    save_path.mkdir(exist_ok=True)
+
+    if not Path(save_path, "meta.json").exists():
+        with Path(save_path, "meta.json").open("w", encoding="utf-8") as f:
+            json.dump(post, f)
+
+        print("created json")
+
+    # convert post to markdown and save
+    if not Path(save_path, "post.md").exists():
+        with Path(save_path, "post.md").open("w", encoding="utf-8") as f:
+            f.write(content)
+
+        print("created md")
+
+
+for file in Path("./posts_json/").glob("*.json"):
+    with file.open("r", encoding="utf-8") as f:
+        post = json.load(f)
+        save_to_archive(post)

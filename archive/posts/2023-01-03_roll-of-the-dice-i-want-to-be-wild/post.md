@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 1977, Bruce had a killer backing track in search of some lyrics. The search continues.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I Want to Be Wild"
----
 
 This one is (as they say) for the collectors.
 

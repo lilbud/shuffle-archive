@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s time for another dip into the “1968 Notebook” — this time for a song so early in development that it doesn’t even have a name.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Turn Around"
----
 
 It’s time for another dip into the “” — this time for a song so work-in-progress that not only is it unfinished and unrecorded, it doesn’t even have a name. ( adopted the first words of the first line as the working title, so we’ll do the same.)
 

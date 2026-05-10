@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: For the first time, Bruce and Jon Bon Jovi join forces for one of Bon Jovi’s own songs–a signature one at that.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Wanted Dead or Alive
----
+
 
 On January 31, 1998, Jersey met Jersey.
 

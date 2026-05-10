@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Spotlight on Patti Scialfa today, and her wonderful Rumble Doll single, “As Long as I Can Be With You.” Check out the rare performance (with Bruce on backup) inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Patti Scialfa and Bruce Springsteen, As Long As I (Can Be With You)"
----
 
 Spotlight on Patti Scialfa today (but Bruce is standing right behind her).
 

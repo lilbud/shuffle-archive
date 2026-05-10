@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From their latest album, check out The Mavericks’ country-ska take on Bruce’s “Hungry Heart.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Mavericks: Hungry Heart"
----
 
 The Mavericks are certainly no stranger to Bruce’s catalog– is one of the finer Springsteen covers out there.
 

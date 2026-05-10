@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen to the tale of Betty Jean, Bobby’s younger sister. She never made it out of town, but she had her share of adventures just the same.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Betty Jean"
----
 
 No, that’s not a typo in the title: this is the story of Jean.
 

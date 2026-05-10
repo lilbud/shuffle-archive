@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Acoustic or electric, Bruce has fun with this Arthur Alexander/Elvis Presley classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Burning Love"
----
 
 It’s always a fun moment when “Burning Love” shows up in the setlist. Arthur Alexander’s 1972 brassy, swinging classic (made famous when Elvis Presley covered it shortly after) is perfectly suited for the super-sized E Street Band of recent years.
 

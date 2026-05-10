@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Introducing guest-blogger Katy Crane in her first of hopefully many appearances. Today she offers a counter-take to my interpretation of “Western Stars.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Two Faces: Western Stars"
----
 
 Editor's Note
 

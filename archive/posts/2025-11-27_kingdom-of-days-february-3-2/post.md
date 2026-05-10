@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Springsteen on Broadway wraps up its winter run, and Max’s Kansas City makes the opening act the closers, too.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 3
----
+
 
 Bruce and the band both open and close for Biff Rose on Night Four (of six) at Max’s Kansas City. The band had proved unexpectedly popular over the preceding three nights, prompting the venue to take the unusual step of adding a second set for the opening band the headliner.
 

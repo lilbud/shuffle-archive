@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: We’ve seen Patti back Bruce countless times, and Bruce back Patti for at least a few. But rarely do we hear them share a lead vocal, like they did in their wonderful 2004 cover of “It Takes Two.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Patti Scialfa: It Takes Two"
----
 
 For all of the countless hours they’ve shared a stage together, it’s surprisingly difficult to come across a true duet between Bruce Springsteen and Patti Scialfa.
 

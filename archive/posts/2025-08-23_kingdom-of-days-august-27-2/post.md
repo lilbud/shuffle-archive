@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce and the E Street Band wrap up their Boston Reunion stand with the long-awaited return of encore favorite, “Raise Your Hand.” More highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 27"
----
 
 *New entry for 1979***New for 2025:**
 

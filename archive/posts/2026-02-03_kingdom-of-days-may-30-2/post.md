@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy Birthday, Tom Morello! Also on this date: Bruce joins Southside Johnny’s legendary radio broadcast, headlines Pinkpop, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 30
----
+
 
 : Honorary E Streeter Tom Morello is born in New York City.
 

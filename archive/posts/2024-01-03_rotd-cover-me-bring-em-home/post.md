@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce took inspiration from Pete Seeger’s 1966 anti-war protest song and a Civil War classic and forged a heartfelt song of his own.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "RotD/Cover Me: Bring ‘Em Home"
----
 
 They say that great folk songs are never finished, and that’s certainly the case with Pete Seeger’s “Bring Them Home.”
 

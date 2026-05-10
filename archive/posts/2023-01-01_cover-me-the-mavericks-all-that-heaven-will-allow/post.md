@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Rockabilly punk-turned-country band The Mavericks covered Bruce’s “All That Heaven Will Allow” as the fifth single from their 1994 album. Take a listen and watch a great live performance inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Mavericks: All That Heaven Will Allow"
----
 
 Since we’re celebrating the anniversary of the kick-off of the Tunnel of Love Express Tour this week, it seems fitting to spotlight a cover of one of the centerpieces of that tour.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Darlene Love’s debut album featured this Springsteen-authored, Van Zandt-produced, Spectorian gem.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Darlene Love: Just Another Lonely Mile"
----
 
 “For Van Zandt reached out to many of the best songwriters in the world, including Springsteen… *Introducing Darlene Love,* “I said to them, ‘I want big,’” Van Zandt says. “I want horns and strings. Her voice wants that. And I told them we weren’t waiting, so I gave them a month or two.” *— Steve Van Zandt to Andy Greene, Rolling Stone, August 21, 2015*
 

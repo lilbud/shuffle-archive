@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Two bands, one venue, and one great tribute: watch Bruce Springsteen cover Bob Seger’s first great hit. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Ramblin’ Gamblin’ Man"
----
+
 
 Bob Seger is to Detroit what Bruce Springsteen is to New Jersey, so if you’re catching one of Bruce’s shows in the Motor City area, make sure your set list bingo card has a Seger cover on it–and “Ramblin’ Gamblin’ Man” would be a great place to start.
 

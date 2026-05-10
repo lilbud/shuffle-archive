@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce invites original recording artist Martha Reeves to join the E Street Band for one of her greatest hits, Motown classic “Heat Wave.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Martha Reeves: Heat Wave"
----
+
 
 “Heat Wave” was a massive hit for Martha and the Vandellas. Topping the Billboard R&B Chart for four straight weeks in 1963 (and peaking at #4 on the Hot 100), “Heat Wave” became one of Martha and the Vandellas’ greatest hits and an enduring Motown classic.
 

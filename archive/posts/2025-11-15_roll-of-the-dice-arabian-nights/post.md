@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the last songs to be cut from Bruce’s debut album, “Arabian Nights” is a glimpse at the surreal inner world of an introverted musician.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Arabian Nights
----
 
 Until it was bumped from by “” and “,” “Arabian Nights” was a lock for inclusion on Bruce’s debut album.
 

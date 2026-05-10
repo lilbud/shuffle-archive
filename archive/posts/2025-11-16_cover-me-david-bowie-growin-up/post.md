@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: David Bowie recorded a tremendous cover of Bruce’s “Growin’ Up” back in 1973, but it languished in the vaults for 17 years before it saw the light of day. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: The David Bowie Covers
----
 
 In the summer of 1973, mere months after Bruce first recorded it himself, David Bowie recorded a cover of “” for his forthcoming album
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Jon Bon Jovi on “Who Says You Can’t Go Home,” a song that sounds like Bruce could have written it himself.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Who Says You Can’t Go Home
----
+
 
 I’m not a big Bon Jovi fan, but I do love their song, “Who Says You Can’t Go Home,” from their 2005 album. That’s probably because it sounds just like a Bruce Springsteen song.
 

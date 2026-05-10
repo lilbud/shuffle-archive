@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Alexander Schmidt just dropped a new album of original material, but he still found time to record and share an absolutely gorgeous cover of “Tougher Than the Rest.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Alexander Schmidt: Tougher Than the Rest"
----
 
 I don’t usually feature a cover artist a second time so soon after the first, but:
 

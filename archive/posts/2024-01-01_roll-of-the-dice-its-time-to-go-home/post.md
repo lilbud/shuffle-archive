@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This dark and lonely song was never recorded and performed only once–but it was captured on tape, and you can hear it inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: It’s Time to Go Home"
----
 
 Serving up a true lost gem today: “It’s Time to Go Home” is a complete, polished original Bruce Springsteen song, but one that was never recorded and only performed once (that we know of).
 

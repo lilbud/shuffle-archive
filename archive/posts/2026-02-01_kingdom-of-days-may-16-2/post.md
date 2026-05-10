@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: a mini-Seeger Sessions reunion, an Edwin Starr guest appearance, the release of “We’ve Got the Love,” and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 16
----
+
 
 Bruce cancels a scheduled performance at Minnesota State University and instead records “The Fever” at 914 Sound Studios in Blauvelt, New York. It will remain in the vault for 26 years until Bruce finally releases it on .
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce was in storyteller mode at a rare tour stop in Seattle, treating us to a very different setlist than the night before in Portland.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Seattle, August 11, 2005"
----
 
 Coming off an outstanding show , I was excited to see what a hometown show might bring. It had been three years since I’d seen a show in the Seattle area, and I was used to travelling and meeting new people in the interim. So it was kind of a novelty to go to a show joined by a bunch of friends and co-workers–I even convinced my wife to join me for this one, which is a pretty rare thing.
 

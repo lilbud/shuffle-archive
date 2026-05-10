@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Danny Federici rises to the occasion and leads the E Street Band in a rousing rendition of “Beer Barrel Polka.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Beer Barrel Polka"
----
+
 
 They’re a rock band, a bar band, and at least for a minute they were a polka band.
 

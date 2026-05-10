@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Relationship song or 9/11 catharsis? Either way, “Lonesome Day” helps us process the pain of betrayal and hold our self-destructive urges in check. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Lonesome Day"
----
 
 Okay, I’m just gonna put this out there, even though I know most of y’all will vehemently disagree with me:
 

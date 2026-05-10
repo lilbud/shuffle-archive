@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s the opening track that gets all the attention, but Bruce’s contribution to the closing track of Joe Ely’s 1995 album is just as worthy.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Ely and Bruce Springsteen: I’m a Thousand Miles From Home"
----
 
 wasn’t Bruce’s only collaboration with a singer-songwriter named Joe in 1995.
 

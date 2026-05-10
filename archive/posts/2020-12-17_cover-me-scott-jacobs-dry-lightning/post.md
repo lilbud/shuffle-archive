@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Canadian folk singer Marc Jacobs finds the soul of Bruce’s “Dry Lightning” and turns in a beautiful cover on a gray Vancouver day.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Scott Jacobs: Dry Lightning"
----
 
 I seem to be in a groove lately with little-known artists covering Springsteen deep cuts, so let’s keep it going:
 

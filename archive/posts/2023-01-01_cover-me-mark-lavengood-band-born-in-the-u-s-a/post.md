@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Direct from the Mark Lavengood Band’s most recent tour, check out their great rendition of Bruce’s “Born in the U.S.A.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Mark Lavengood Band: Born in the U.S.A."
----
 
 Mark Lavengood is no stranger to covering Bruce Springsteen–his bluegrass cover of “” from three years ago is well worth seeking out.
 

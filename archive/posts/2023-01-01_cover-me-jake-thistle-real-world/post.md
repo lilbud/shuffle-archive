@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: He may only be fifteen, but New Jersey musician Jake Thistle just recorded a mic drop cover of Bruce’s “Real World” in its original arrangement. You need to watch this one.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Jake Thistle: Real World"
----
 
 Every week brings a new wave of Springsteen covers, and I try to watch them all.
 

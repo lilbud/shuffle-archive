@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Great duets highlight this day in Bruce history: “Thunder Road” with Melissa Etheridge, and “Highway to Hell” and “Darkness on the Edge of Town” with Eddie Vedder.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 15
----
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-15a.png?resize=758%2C725&amp;ssl=1)
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Ronnie Spector does an admirable cover of “Brilliant Disguise” — right up until the coda. You might not be able to unhear that part.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Ronnie Spector: Brilliant Disguise"
----
 
 Here’s a Springsteen cover that’s flown largely under the radar… perhaps deservedly so.
 

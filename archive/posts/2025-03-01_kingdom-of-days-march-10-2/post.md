@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce debuts “The Fever” and “Don’t Look Back,” records “The Klansman,” and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 10"
----
 
 *New entry for 1972 ,1978, 2018, and 2024; audio for 1974***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Guest-blogger TJ Jones was on-hand for Bruce’s secret rehearsal show in 1992 (Bruce’s his first with his new band), and he tells his story today.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Los Angeles, June 5, 1992 (TJ’s story)"
----
 
 Editor's Note
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Although Bruce has never officially covered “I’m Alive” in concert, he did tinker with The Hollies’ #1 UK hit during a 1978 soundcheck. Check it out inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: I’m Alive"
----
+
 
 Bruce never covered The Hollies’ “I’m Alive,” but if you’re willing to stretch the definition a bit, you can hear the E Street Band take a run at it during a soundcheck in Passaic more than forty years ago.
 

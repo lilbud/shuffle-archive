@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Rosie goes missing, Queen of the Supermarket turns up, Philly Elvis makes his debut, and more. Plus: highlights from the star-studded Alliance of Neighbors benefit concert.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 19"
----
+
 
 *Audio for 2004, 2006, and 2018***New for 2025:**
 

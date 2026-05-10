@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "C’mon, admit it: who among us hasn’t wondered what it would sound like if The Ramones and The Go-Gos teamed up to cover “Radio Nowhere?” 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Town Bike: Radio Nowhere"
----
+
 
 C’mon, admit it: who among us hasn’t wondered what it would sound like if The Ramones and The Go-Gos teamed up to cover “?”
 

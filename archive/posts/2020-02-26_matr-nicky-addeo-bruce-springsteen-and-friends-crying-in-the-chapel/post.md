@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce backs a special Wonder Bar house band of local legends on a cover of Darrell Glenn’s classic “Crying in the Chapel.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Nicky Addeo, Bruce Springsteen and Friends: Crying in the Chapel"
----
+
 
 *with corrections from Rose Montana (thanks, Rose!)***Updated 2/25/20**
 

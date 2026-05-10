@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Dutch band Krezip started the new year on a note of optimism with their terrific performance of “The Rising.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Krezip: The Rising"
----
 
 Bruce may have written it for a completely different context, but for my money there’s no song more suitable to serve as the anthem for 2021 than “.”
 

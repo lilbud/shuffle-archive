@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Everyone has to have a least favorite show, and this was mine. It had it’s moments, though.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Hershey, May 14, 2014"
----
 
 There’s a reason it’s called a “concert.” There’s a big difference between an artist performing for themselves and an artist interacting with–in *concert* with–an audience. A great crowd can rocket an ordinary setlist into the stratosphere; a dull crowd can suck the life out of the most unpredictable show.
 

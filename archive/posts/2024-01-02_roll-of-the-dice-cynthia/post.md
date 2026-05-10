@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce re-wrote Roy Orbison’s classic “Oh, Pretty Woman,” giving the title character a name and a more realistic ending. Insights and rare performances inside. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Cynthia"
----
 
 Bruce Springsteen likes Roy Orbison, and that esteem goes waaay back. Let’s watch Bruce describe the first time he ever saw Roy Orbison perform:
 

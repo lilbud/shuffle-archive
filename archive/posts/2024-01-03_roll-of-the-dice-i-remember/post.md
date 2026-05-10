@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Even fifty years ago, Bruce Springsteen was stopping audiences in their tracks with this fifteen-minute, preachifying, testifying, rueful improv piece.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I Remember"
----
 
 Oh, how I love this song.
 

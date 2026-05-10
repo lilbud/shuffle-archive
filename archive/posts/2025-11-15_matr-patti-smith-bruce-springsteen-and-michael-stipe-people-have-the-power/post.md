@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen and Michael Stipe reprise their Vote for Change “People Have the Power” encore with the iconic protest song’s original recording artist.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: People Have the Power
----
+
 
 Today it’s one of our most iconic protest songs, but Patti Smith’s “People Have the Power” didn’t start out that way.
 

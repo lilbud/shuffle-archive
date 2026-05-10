@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "When Ronnie met Bruce: the iconic 60s singer would collaborate with Bruce and the E Street Band several times, both on stage and on vinyl. This performance is from the very fist time she graced an E Street Band stage.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and Ronnie Spector, Baby I Love You"
----
+
 
 “Baby, I Love You” was Ronnie Spector’s second big hit (after ““). Recorded in the autumn of 1963 (with Darlene Love, Sonny Bono, and a 17-year-old Cher on backing vocals) and released in November, the song went to #24 on the American pop charts and #11 in the UK.
 

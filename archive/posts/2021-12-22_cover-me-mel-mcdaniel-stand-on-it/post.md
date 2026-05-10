@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce scored a Top 40 country single in 1986 when Mel McDaniel covered his obscure B-side.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Mel McDaniel: Stand On It"
----
 
 In 1986, Bruce Springsteen was still surfing a wave of super-stardom on the heels of the massive success that was 
 

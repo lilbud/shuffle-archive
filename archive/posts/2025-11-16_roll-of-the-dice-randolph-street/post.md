@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Part therapy and part love letter, “Randolph Street” is a breathtakingly intimate remembrance of his grandparents.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Randolph Street
----
 
 *The “radio man” is coming. That’s how my grandfather is known… I am simply the young protégé grandson of the “radio man.”*
 

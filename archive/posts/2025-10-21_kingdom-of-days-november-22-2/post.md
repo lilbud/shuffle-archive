@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday to Steven Van Zandt, born on this day in 1950! Plus: one acoustic tour kicks off while another one ends, Clarence plays his last public show with Bruce, and Bruce is honored by President Obama. Big, big day in Springsteen history!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 22"
----
+
 
 *New entry for 2024***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The Born in the U.S.A. Tour gets underway, and the Reunion Tour comes to a close. Plus: catch guest spots with Brian Wilson and La Bamba, and listen to the E Street Band tinker with “New York City Serenade” during a Darkness soundcheck.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 1"
----
+
 
 *New entry for 1973 and 1977***New for 2025:**
 

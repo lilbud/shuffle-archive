@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Brothers Under the Bridges” is a Born in the U.S.A. outtake bristling with youth and yearning–but it foreshadows Bruce’s twelve-years-later sequel.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Brothers Under the Bridges (’83)"
----
 
 Bruce wrote, recorded, and released (eventually) two songs that share virtually the same title, and almost every scholarly Springsteen resource I’ve seen states that there’s no relationship between the two.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Steel Mill plays the prom, Bruce appears on the Tonight Show, a ’92 rehearsal show radio broadcast, the world premiere of “Queen of the Supermarket,” and the release of Live in Dublin–these and more highlights from this date inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 5"
----
 
 *New entry for 1973; audio for 1992***New for 2025:**
 

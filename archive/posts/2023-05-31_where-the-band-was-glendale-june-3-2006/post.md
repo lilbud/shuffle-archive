@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: My first Seeger Sessions show was the most joyous show I’ve ever attended–by Bruce or anyone. The crowd was sparse and the pit was roomy, but Nils helped us put it to good use with an all-night dance party.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Glendale, June 3, 2006"
----
 
 What a surreal experience my first Seeger Sessions show was:
 

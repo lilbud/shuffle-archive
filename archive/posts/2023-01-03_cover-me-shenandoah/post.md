@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Performed only once and buried deep within its album, Bruce’s version of “Shenandoah” is faithful and true to the song’s spirt.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Shenandoah"
----
 
 “Shenandoah” is one of the purest folk songs on in the sense that it’s almost impossible to definitively trace its origin and evolution. It’s generally believed to have originated as a sea shanty, but in true folk fashion it’s likely that it was altered and adapted by sailors and seamen over the years to the point where the song’s geography makes no sense.
 

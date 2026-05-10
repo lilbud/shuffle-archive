@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce co-wrote “Trapped Again” with Southside Johnny and Steve Van Zandt, but he’s only performed it live once. Check it out inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Southside Johnny and Bruce Springsteen, Trapped Again"
----
 
 Bruce has gifted several songs to Southside Johnny over the years, but he also contributed in small ways on songs that Southside wrote himself.
 

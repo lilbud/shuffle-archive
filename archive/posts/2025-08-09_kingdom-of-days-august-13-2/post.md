@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s legendary 1975 stand at The Bottom Line begins on this date; 30 years later, Bruce wraps his summer solo acoustic tour. Check out both shows plus more highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 13"
----
 
 *Audio for 2005***New for 2025:**
 

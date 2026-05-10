@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy wedding anniversary, Bruce and Patti! Also on this date: Bruce plays a Born in the U.S.A. warm-up gig at The Stone Pony–listen to the first public airing of much of the album. Plus: the stadium breaker!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 8"
----
+
 
 *New entry for 1977***New for 2025:**
 

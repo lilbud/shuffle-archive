@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Three years ago today: Bruce Springsteen and the E Street Band launch an eight-month tour that starts with a full-album performance of the The River and would end with a career-spanning marathon retrospective.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Pittsburgh, January 16, 2016"
----
+
 
 I love going to opening and closing nights of Springsteen tours.
 

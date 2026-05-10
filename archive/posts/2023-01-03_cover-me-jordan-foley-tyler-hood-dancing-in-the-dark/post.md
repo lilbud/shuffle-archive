@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Jordan Foley and Tyler Hood reinterpret Bruce Springsteen’s greatest hit in a remarkable new light.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Jordan Foley &amp; Tyler Hood: Dancing in the Dark"
----
 
 Jordan Foley and Tyler Hood’s new cover of “” rockets immediately to the top tier of my favorite versions of this very, very, oft-covered song.
 

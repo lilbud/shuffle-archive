@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One night only: Bruce sits in with The Patti Smith Group on guitar for Patti’s improvisational “You Can Dig It.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Patti Smith and Bruce Springsteen, You Can Dig It"
----
+
 
 Let’s take another trip back to the remarkable night of Friday, November 26, 1976 at the Bottom Line club in New York City.
 

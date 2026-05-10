@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce has played Neil Young’s signature anthem “Rockin’ in the Free World” twice–each with Neil himself. Listen to both performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Rockin’ in the Free World
----
 
 Neil Young’s “Rockin’ in the Free World” became an instant classic upon its debut in 1989, stopping just shy of the top spot on Billboard’s Mainstream Rock chart and securing a berth (#216) on Rolling Stone’s 500 Greatest Songs of All Time list.
 

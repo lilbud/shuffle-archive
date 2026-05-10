@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Part cover, part adaptation, part tribute, part reminder: Bruce’s “Freedom Cadence” connects the dots from “Born in the U.S.A.’s” Vietnam vet to today’s Iraq war veterans.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice/Cover Me: Freedom Cadence"
----
+
 
 “Some Say Freedom is Free” is a soldier’s marching cadence originally credited to Private First Class Roger L. Southard. With each generation, the cadence is passed down, its lyrics altered and (tragically) updated with each successive war.
 

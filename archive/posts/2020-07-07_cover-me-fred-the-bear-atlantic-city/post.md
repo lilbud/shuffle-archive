@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Minnesota-based Fred the Bear recently livestreamed a wonderful acoustic cover of Bruce’s “Atlantic City” on guitar, mandolin, and upright bass.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Fred the Bear: Atlantic City"
----
 
 Fred the Bear is an alt-rock/country band out of Minnesota, but they’ve got a lot of New Jersey in them, too–their sets have featured several Springsteen covers (check out their YouTube page ).
 

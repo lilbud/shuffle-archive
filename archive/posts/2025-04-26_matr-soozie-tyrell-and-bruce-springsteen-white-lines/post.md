@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce lent a guitar-playing hand to the title track of Soozie’s debut album in 2003. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Soozie Tyrell and Bruce Springsteen: White Lines"
----
 
 You’d hope an artist with a career as full as Soozie Tyrell’s would have more than a single solo album to her credit, but if we only get one, at least it’s a great one.
 

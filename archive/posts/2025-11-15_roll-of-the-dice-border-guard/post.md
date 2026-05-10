@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce earliest song about the California border may hold deeper meaning than a casual listen might reveal.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Border Guard
----
 
 “[Shortly after Christmas in 1971], My father asked me to accompany him on a trip to Mexico and said he was planning to stop in Long Beach, where the Queen Mary was docked. This was the ocean liner he’d shipped out on for World War II and he wanted to see her one more time… In the spirit of healing old wounds I said yes and off we went.
 

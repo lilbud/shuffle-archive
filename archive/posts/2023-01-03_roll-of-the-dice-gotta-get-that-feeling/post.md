@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s modern vocals fall just a tad short of his glorious vintage backing track, but he more than made up for it when he performed “Gotta Get That Feeling” in concert.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Gotta Get That Feeling"
----
 
 Sometimes Bruce strikes gold when he grafts modern elements onto decades-old backing tracks, but sometimes he falls just a tad short, and “Gotta Get That Feeling” is one of those times.
 

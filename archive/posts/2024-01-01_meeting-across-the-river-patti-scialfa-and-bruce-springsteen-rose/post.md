@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Spotlight on Patti today, as Bruce backs her on one of her earliest songs. Great archive footage from 1980 on this one!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Patti Scialfa and Bruce Springsteen, “Rose”"
----
 
 Spotlight on Patti Scialfa today:
 

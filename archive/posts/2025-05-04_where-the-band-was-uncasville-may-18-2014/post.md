@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce wraps up the High Hopes Tour with a barn burner, exhausting himself in the process. He barely made it through the show, but oh, what a show.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Uncasville, May 18, 2014"
----
 
 Instead of writing a fresh take on this closing show of the High Hopes Tour, I’m going to reprint my contemporaneous Facebook review from the morning after the show.
 

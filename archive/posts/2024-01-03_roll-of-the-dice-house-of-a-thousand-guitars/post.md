@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The literal and emotional centerpiece of Letter to You, “House of a Thousand Guitars” is one of Bruce’s most intimate and summational songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: House of a Thousand Guitars"
----
 
 [“House of a Thousand Guitars”] attempts to define the world that I attempted to create with my audience and my listeners from the beginning. It’s a world of value, of code, of honor, fun and joy. And that’s a world I create when I walk onstage at night and my audience walks through the door. We live in that world for two or three hours, and then we leave and take that world with us and hope that it sustains us for as long as it can. The House of a Thousand Guitars is the house we built, and within this house these things matter. *— Bruce Springsteen to Joe Breen, The Irish Times, October 17, 2020*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Patti Smith makes her one and only guest appearance on an E Street stage, the debuts of “Born in the U.S.A.” (the single) and “Brilliant Disguise” (the video), and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 30"
----
 
 *No updates***New for 2025:**
 

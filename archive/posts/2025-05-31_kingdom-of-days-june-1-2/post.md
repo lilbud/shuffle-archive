@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce begins recording the Darkness album, convenes his new band for their first rehearsal, plays his first show as a married man, and wraps up World Tour 1993. These highlights and more inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 1"
----
+
 
 *Audio for 1977 and 1993; new entry for 1979, 1983, and 2024***New for 2025:**
 

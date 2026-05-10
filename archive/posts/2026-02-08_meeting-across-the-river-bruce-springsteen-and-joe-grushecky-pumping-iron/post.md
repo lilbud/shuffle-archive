@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: As much an anthem for Pittsburgh as anything Bruce ever wrote for New Jersey, “Pumping Iron” is a surefire setlist bet any time Joe Grushecky and Bruce play together.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Pumping Iron
----
 
 In 1980, Joe Grushecky’s band, the Iron City Houserockers, were recording their second album, .
 

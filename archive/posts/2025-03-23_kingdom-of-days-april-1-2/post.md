@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: watch Bruce’s full Tunnel of Love show in Uniondale, hear his last performance of “Good Eye,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 1"
----
+
 
 *New entry for 1980; review for 2009; video for 2023***New for 2025:**
 

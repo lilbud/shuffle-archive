@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Band-friendly and Ironically faithful to the historically inaccurate original, Bruce’s 1997 arrangement of “Jesse James” is likely to come out at both Seeger and E Street shows. Backstory and great performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice/Cover Me: Jesse James"
----
 
 Of all of Bruce’s adaptations on his album, “Jesse James” is perhaps the most faithful. Which is more than a bit ironic, but we’ll get to that later.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Happy birthday, Born in the U.S.A.! Celebrate by watching some historic footage from the Newcastle ’85 performance (and the hilarious British music critics’ reviewing it); then listen to the world premieres of “American Skin (41 Shots)” and “Further On (Up the Road).”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 4"
----
 
 *Audio for 2000 and 2005; new entry for 2017***New for 2025:**
 

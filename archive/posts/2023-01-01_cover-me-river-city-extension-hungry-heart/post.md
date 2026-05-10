@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Start your morning off with a cool groove: watch River City Extension put their unique spin on Bruce’s “Hungry Heart.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, River City Extension: Hungry Heart"
----
+
 
 I’m not sure that Bruce’s “” lyrics are well-served by this cool arrangement by River City Extension… but then again, I’m not sure that Bruce’s own arrangement works particularly well either.
 

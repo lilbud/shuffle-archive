@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: On Night One (of six!) in Philadelphia on the Working on a Dream tour, Bruce granted my all-time most-wished-for chase song. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Philadelphia, April 28, 2009"
----
 
 Ah, Philly. As I like to put it: a good place to be .
 

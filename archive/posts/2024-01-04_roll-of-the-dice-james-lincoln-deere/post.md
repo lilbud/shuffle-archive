@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This early post-Nebraska outtake sows the seeds for an entire crop of cautionary tales. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: James Lincoln Deere"
----
 
 With so much stylistic variation from album to album, it’s easy to miss the throughlines in Bruce Springsteen’s songwriting.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce recorded “Waiting on the End of the World” twice, with both the “other” band and the E Street Band–yet he didn’t release either version. I have a theory as to why,
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Waiting on the End of the World"
----
 
 Friend of the blog John J. Kelly requested I jump the queue with this one. It’s a good pick, and a challenging one.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The E Street Band refuses to be stumped when a fan requests The Troggs’ bar band classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Wild Thing"
----
 
 Chip Taylor (brother to Jon Voight and uncle to Angelina Jolie) wrote “Wild Thing” in the span of a few minutes, and it shows.
 

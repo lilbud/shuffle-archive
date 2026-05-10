@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Jack Antonoff delivered a beautifully poignant cover of Bruce’s poppy hit single in a 2017 radio appearance on The Bruce Brunch.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Bleachers: Hungry Heart"
----
 
 If you caught Bleachers on last weekend and thought he was paying tribute to a certain New Jersey icon, there’s a reason for that.
 

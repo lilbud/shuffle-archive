@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Katie Cross brightens up Bruce’s world-weary love song, and it’s just as wonderfully romantic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Katee Cross: Tougher Than the Rest"
----
 
 Katee Cross is a country singer-songwriter from Scotland with four well-received albums to her credit. She’s also a great cover artist, able to find and feed the heart of a song while bringing something fresh and new to it.
 

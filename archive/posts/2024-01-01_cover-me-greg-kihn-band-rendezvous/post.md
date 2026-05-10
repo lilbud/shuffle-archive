@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When “Rendezvous” didn’t make the cut for the Darkness album, Bruce went to Greg Kihn to make sure it found a good home.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Greg Kihn Band: Rendezvous"
----
 
 Greg Kihn did more than cover “Rendezvous” — he gave it a home.
 

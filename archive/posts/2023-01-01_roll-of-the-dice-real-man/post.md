@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "In which we ask the question: is there any redeeming virtue in this widely scorned deep cut?
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Real Man"
----
+
 
 It’s that moment we all wish for at a Bruce Springsteen show:
 

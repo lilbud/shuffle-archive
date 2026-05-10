@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s the debut of “Brothers Under the Bridge,” the release of “The Wrestler,” and the last “Crush on You” for 28 years as Bruce’s tours start to wind down for the year.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 16"
----
 
 *No updates***New for 2025:**
 

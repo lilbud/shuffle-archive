@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “The New Timer” is a master class in taut storytelling and a companion piece to “Nebraska.” It deserves more recognition than it receives.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The New Timer"
----
 
 “The New Timer” is a sleeper that will keep you up all night, just like its protagonist. Narratively one of the strongest songs on , it often goes overlooked and undiscussed by both fans and artist alike.
 
@@ -131,7 +125,7 @@ On the 2005 tour, however, Bruce took a crack at it, arranging it for the autoha
 
 **The New Timer**
 Recorded: March-August, 1995
-Released:**   
+**Released:**   
 
 *The Ghost of Tom Joad*   
 **First performed:**  

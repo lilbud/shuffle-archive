@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the live debut of “Be True,” Bruce’s first show in New Brunswick (the province, not the town), and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 26"
----
+
 
 *New entry for 1977 and 1979***New for 2025:**
 

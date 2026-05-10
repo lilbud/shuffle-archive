@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “What Love Can Do” is a reminder that while love can’t solve society’s ills, it can give us the strength to face them. It’s more timely now than when Bruce wrote it.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: What Love Can Do"
----
 
 “What Love Can Do” was the first song written for and the fourth single released from that album. Yet it labors in obscurity, buried deep within an underappreciated album and performed live exactly once.
 

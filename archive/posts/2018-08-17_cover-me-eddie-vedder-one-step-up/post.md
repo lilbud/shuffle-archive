@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A pre-Pearl Jam Eddie Vedder covers one of Bruce’s loveliest songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Eddie Vedder: One Step Up"
----
 
 Before Pearl Jam there was Bad Radio. They never released an album, but Bad Radio still has a claim to fame: their frontman was Eddie Vedder.
 

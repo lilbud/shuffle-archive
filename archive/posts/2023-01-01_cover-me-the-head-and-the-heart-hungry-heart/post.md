@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At a special tribute radio show on the occasion of Bruce’s 70th birthday, Springsteen fans The Head and The Heart closed the show with their lovely cover of “Hungry Heart.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Head and The Heart: Hungry Heart"
----
 
 Who knew The Head and The Heart are Springsteen fans?
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce covers Bob Dylan’s “Just Like a Woman” at a 1988 soundcheck.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Just Like a Woman"
----
+
 
 Bruce Springsteen has never performed Bob Dylan’s “Just Like a Woman,” but he did cover it once during a soundcheck, way back on March 23, 1988 in Atlanta. The sound quality isn’t great, but it’s an enjoyable listen at least once:
 

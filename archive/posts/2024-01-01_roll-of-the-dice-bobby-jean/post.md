@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Bobby Jean” makes for a fascinating comparison with “Backstreets” — two songs about broken friendships, one that heals and one that doesn’t.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Bobby Jean"
----
 
 If you’ve followed this blog for any length of time, you might have picked up on my penchant for viewing one of Bruce’s songs through the lens of another.
 

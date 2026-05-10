@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the rarer officially released Springsteen recordings, Bruce recorded “Give My Love to Rose” for a Johnny Cash tribute album and TV special.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Give My Love to Rose"
----
 
 In 2002, a collection of legendary artists influenced by Johnny Cash contributed covers for , a tribute album to The Man in Black.
 

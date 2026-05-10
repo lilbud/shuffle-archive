@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Two nights only: Little Steven takes the lead and Bruce Springsteen plays the sideman when Southside Jonny takes ill.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Steven Van Zandt, Bruce Springsteen and the Asbury Park All-Star Revue: She Got Me Where She Wants Me"
----
+
 
 If you were in Red Bank on the evenings of May 12th and 13th, 1977, you had a chance to witness in person a one-time only alignment of stars: the Asbury Jukes and the E Street Band playing a show together, with Steve Van Zandt out in front for most of the show, Bruce mostly in a supporting role, and Southside Johnny missing in action altogether.
 

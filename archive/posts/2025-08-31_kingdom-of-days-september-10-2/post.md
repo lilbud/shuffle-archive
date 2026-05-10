@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce pays tribute to the late, great Warren Zevon in Toronto, Clarence appears on Late Night with David Letterman, and Gene Siskel reveals what he and Bruce have in common when it comes to movies. More highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 10"
----
 
 *New entry for 1979; audio for 2003***New for 2025:**
 

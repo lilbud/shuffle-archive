@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce made a surprise appearance at Neil Young’s 1989 concert on Long Island, closing the show with a duet of “Down By the River” in a beautiful, stripped-down performance.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Down By the River
----
 
 When Neil Young played an outdoor show in Long Island’s Jones Beach State Park, he closed the show with “Down by the River” and invited a friend to join him for it.
 

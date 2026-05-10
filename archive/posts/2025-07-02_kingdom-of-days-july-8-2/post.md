@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One day after the legendary Roxy show, Bruce films some of his most famous live videos in Phoenix. Plus: live performances destined for the Live 1975-85 box set, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 8"
----
+
 
 *New entry for 1975 and 1977; audio for 1981 and 2008; video for 2023***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: There are more covers of “I’m on Fire” than I can count, but this version by Twin Shadow is one of my favorites.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Twin Shadow: I’m on Fire"
----
 
 It occurred to me to day that I’m about a month into this blog and have yet to spotlight a cover of “.”
 

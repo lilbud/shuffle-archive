@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Listen in on a 1988 soundcheck, where Bruce and the E Street Band played their only known cover of Jimmy Reed’s “Big Boss Man.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Big Boss Man"
----
+
 
 Talk about a pedigree: Jimmy Reed’s “Big Boss Man” may only have been a modest hit when it was first released in 1960 (it only reached #78 on the Billboard Hot 100, although it made it to #13 on the R&B chart)…
 

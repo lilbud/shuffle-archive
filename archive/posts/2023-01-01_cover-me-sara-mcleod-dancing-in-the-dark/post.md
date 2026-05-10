@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Daring, edgy, and absolutely fantastic: watch Sara McLeod nail the spirit of Bruce’s greatest hit in an amazing cover performance.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Sara McLeod: Dancing in the Dark"
----
+
 
 Wow, do I love this version of .
 

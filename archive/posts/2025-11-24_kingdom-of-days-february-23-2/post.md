@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Can a day in Bruce history get any more packed? Hear the backstory from Ernest “Boom” Carter’s first show; listen to Bruce, Madonna, and Prince play together in 1985; watch a classic Grammy Awards performance with Elvis Costello and Dave Grohl, and much more!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 23
----
 
 The Beatles make their third appearance on the Ed Sullivan show, and fourteen-year-old Bruce Springsteen is watching.
 

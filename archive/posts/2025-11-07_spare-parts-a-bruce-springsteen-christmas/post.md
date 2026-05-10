@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Happy Holidays from E Street Shuffle! Enjoy this guided tour through Bruce’s best Christmas-themed performances.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: A Very Springsteen Christmas
----
 
 You’d think the guy with one of the best-selling Christmas singles of all time would have released at least one Christmas album by now. And yet, here we are: fifty holiday seasons into his recording career, and we’re still waiting for a Bruce Springsteen Christmas album.
 

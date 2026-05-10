@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: If there’s any song in Bruce’s catalog more misunderstood than “Born in the U.S.A.,” it’s this Darkness-era outtake.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Iceman"
----
 
 Ask anyone to name Bruce Springsteen’s most misunderstood song, and they’ll likely answer, “”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Recorded during Bruce’s Nebraska period, “Wheels Make the World Go Round” was a promising rocker candidate at the wrong time. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Wheels Make the World Go Round"
----
 
 From late 1981 through early 1982, Bruce recorded a series of acoustic demos at his home in Colts Neck. Several of those compositions became the album we know as others evolved into electric arrangements and would be featured on 
 

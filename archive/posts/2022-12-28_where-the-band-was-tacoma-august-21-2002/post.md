@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The early shows of the Rising Tour were largely unsurprising… until the encores in Tacoma, where Bruce debuted his reinvented greatest hit. It’s been with us ever since.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Tacoma, August 21, 2002"
----
 
 So this was the one: the first show where I thought at the end of it, “I need to see just one more…”
 

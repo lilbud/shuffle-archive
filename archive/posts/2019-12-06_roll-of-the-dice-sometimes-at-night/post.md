@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A lost Springsteen lyrics sheet surfaces in Belgium, shedding light onto a performed but never recorded Bruce Springsteen Band song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Sometimes at Night"
----
 
 Longtime readers know that while I love Bruce’s music from pretty much any era, I’m particularly fond of The Bruce Springsteen Band era of 1971-1972.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “State Trooper” is unrivaled as Bruce Springsteen’s most harrowing and terrifying song, but it can’t match the song that inspired it. Backstory and rare performances inside. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: State Trooper"
----
 
 “I don’t know if it’s even really a song or not… it’s kinda weird.'” *–Bruce Springsteen, 1982*
 

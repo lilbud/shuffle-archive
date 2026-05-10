@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce shoots the video for “Brilliant Disguise,” Nils drops by David Letterman’s show, Jake makes an early E Street Band appearance back in 2009, and Ben Stiller resurrects his Bruce impression on SNL. More highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 8"
----
 
 *New entry for 1979; video for 2004***New for 2025:**
 

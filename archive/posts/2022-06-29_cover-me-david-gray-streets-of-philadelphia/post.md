@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Singer-songwriter David Gray stopped by the BBC Radio 2 studios and turned in a quiet cover of Bruce’s “Streets of Philadelphia.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, David Gray: Streets of Philadelphia"
----
 
 Singer-songwriter David Gray stopped by the BBC Radio 2 studio recently to celebrate the 20th anniversary of his album.
 

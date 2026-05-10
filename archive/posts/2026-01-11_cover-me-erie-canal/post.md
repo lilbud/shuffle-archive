@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Erie Canal” is a nostalgic callback to a slower-paced world. Bruce’s version captures the wistfulness, pride, and celebration of two workers (one human and one equine) at the sunset of their careers.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Erie Canal
----
 
 “Erie Canal” isn’t the folk song you probably think it is. Or at least, it’s not as old as you think it is.
 

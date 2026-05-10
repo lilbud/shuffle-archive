@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Listen to Bruce rejoin his former band to take lead vocals on Walter Brown’s blues standard, “Confessin’ the Blues.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Confessin’ the Blues"
----
+
 
 The Bruce Springsteen Band had a year-long run from the summer of ’71 to the summer of ’72, but for a while, it didn’t look like they were going to make it past the six-month mark.
 

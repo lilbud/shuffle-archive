@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It seemed like a good idea at the time. I mean, I’d written essays on almost all of the songs on L.A. Garage Sessions ’83…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Preface
----
 
 It seemed like a good idea at the time.
 

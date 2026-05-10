@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen closely to Little Steven’s love song “Angel Eyes,” and you’ll hear the unmistakable (but uncredited) backing vocals of Bruce Springsteen.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Angel Eyes
----
 
 They’ve never performed it live together, and he’s not credited on the album.
 

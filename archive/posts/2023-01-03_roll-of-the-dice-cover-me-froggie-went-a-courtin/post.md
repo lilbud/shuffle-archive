@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the oldest songs from The Seeger Sessions is also the most fun. Let’s take a listen to this centuries-old folk song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice/Cover Me: Froggie Went A-Courtin’"
----
 
 True fact: Bruce’s first solo on comes ninety seconds before the end of the album, when he finally allows himself a moment in the instrumental spotlight with his harmonica.
 

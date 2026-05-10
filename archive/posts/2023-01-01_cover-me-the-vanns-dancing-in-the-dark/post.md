@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "There are lots of “Dancing in the Dark” covers out there, but this is one of the best. Gritty, earthy, and most of all: hungry.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Vanns: Dancing in the Dark"
----
+
 
 When Bruce resurrected “” on the Rising Tour, he stripped away the eighties synth and gave it a true rock arrangement for the first time.
 

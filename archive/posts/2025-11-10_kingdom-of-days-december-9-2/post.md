@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce surprises with a call-in to E Street Radio and a guest appearance with Gaslight Anthem, plus an emotional show the day after John Lennon’s death. Much more inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 9"
----
+
 
 *New entry for 1977 and 2024***New for 2025:**
 

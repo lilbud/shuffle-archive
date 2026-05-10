@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce joined The Who on their classic “Won’t Get Fooled Again” twice–once in 1990 and again a quarter century later. Watch both of those performances here.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and The Who, Won’t Get Fooled Again"
----
 
 On May 28, 2015, the MusiCares Foundation honored Pete Townshend at their annual MAP Fund concert, and Townshend’s award was presented by Bruce.
 

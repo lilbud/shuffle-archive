@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When Bruce finally got the chance to perform with one of his idols, the both brought their full power to bear on this 1966 soul classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Sam Moore: When Something Is Wrong With My Baby"
----
 
 Bruce nailed it when he explained Sam and Dave’s appeal on Elvis Costello’s late, lamented series:
 

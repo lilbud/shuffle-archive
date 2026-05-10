@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Fifty years after they played together, Bruce Springsteen found himself the last surviving member of his very first band.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Last Man Standing"
----
 
 Bart Haynes was the first to fall.
 

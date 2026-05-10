@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "A big, big day for Bruce: He sees his first ever rock concert, kicks off his biggest ever tour, films his most popular video, and debuts Nils and Patti as members of the E Street Band. Whew! There’s a lot more inside, too.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 29"
----
+
 
 *New entry for 1972, 1975, 1983, and 2024; audio for 1985***New for 2025:**
 

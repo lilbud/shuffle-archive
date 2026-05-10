@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "A one-time-only performance: Bruce and Sting perform the Police classic “Can’t Stand Losing You” on the eve of Sting’s 60th birthday, October 1, 2011.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Sting, “Can’t Stand Losing You”"
----
+
 
 A one-time-only performance: Bruce and Sting perform the Police classic “Can’t Stand Losing You” on the eve of Sting’s 60th birthday, October 1, 2011.
 

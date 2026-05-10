@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce meets Bruce when Messrs. Hornsby and Springsteen team up on a gorgeous, twice-only cover of Don Henley’s “The End of the Innocence.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Hornsby and Bruce Springsteen, The End of the Innocence"
----
 
 Most people associate “The End of the Innocence” with Don Henley, who scored one of the biggest hits of 1989 (peaking at #8 on the Billboard Hot 100) with it when he released it as the lead single and title track from his third solo album.
 

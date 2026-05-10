@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Rare River Tour (the original one) video, an all-star one-night-only tribute to the Upstage, and the first public warm-up for the Devils &amp; Dust Tour lead the highlights from this day in Bruce history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 21
----
 
 The Bruce Springsteen Band headlines at Red Bank Catholic High School in Red Bank, New Jersey.
 

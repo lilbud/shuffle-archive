@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Mere weeks after the original’s release, The Castiles cover “The Letter” by the Box Tops.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: The Letter"
----
 
 From way back in the age of The Castiles, here’s Bruce’s only ever performance* of “The Letter,” originally made famous by The Box Tops and one of Rolling Stones’ 500 Greatest Songs of All Time.
 

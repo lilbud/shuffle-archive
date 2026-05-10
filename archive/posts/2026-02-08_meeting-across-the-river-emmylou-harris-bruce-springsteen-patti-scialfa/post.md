@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From Emmylou Harris’ Grammy-winning album Red Dirt Girl comes the graceful “Tragedy,” with restrained, haunting background vocals by Bruce and Patti. We’ve featured Emmylou on the…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Tragedy
----
 
 From Emmylou Harris’ Grammy-winning album comes the graceful “Tragedy,” with restrained, haunting background vocals by Bruce and Patti.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce Springsteen’s “Detroit Medley” is a glorious mash-up, homage, and rock and roll history lesson. It’s also a ton of fun. Let’s trace the lineage of this encore favorite and watch some classic performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Detroit Medley
----
 
 One of Bruce Springsteen’s most popular cover songs is a actually a mash-up of two different cover medleys, each of which covers two classic rock-and-roll and R&B songs. It’s also a musical history lesson dating back to the early days of the blues era.
 
@@ -115,7 +109,7 @@ And counting.
  November 19, 2024 (Edmonton, AB)
 
 **Detroit Medley**
-Released:**  
+**Released:**  
 *No Nukes* *Hammersmith Odeon London ’75*  
 **First performed:**  
 **Last performed:**

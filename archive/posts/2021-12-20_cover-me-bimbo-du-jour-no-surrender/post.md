@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Another outtake from the terrific One Step Up/Two Steps Back 1998 tribute project, Bimbo du Jour unleashes the inner punk in Bruce’s “No Surrender.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Bimbo du Jour: No Surrender"
----
 
 Deep down, we always knew that “” was secretly punk, didn’t we?
 

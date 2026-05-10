@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Singer-songwriter Caryl Mack finds the soul of “Two Hearts” in her gorgeous acoustic cover.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Caryl Mack: Two Hearts"
----
 
 “” didn’t really do anything for me in its original arrangement.
 

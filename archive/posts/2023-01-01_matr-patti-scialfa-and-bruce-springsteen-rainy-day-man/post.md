@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Smoky and sultry, “Rainy Day Man” is one of Patti Scialfa’s best tracks, brimming with breezy confidence and boasting a fantastically funky backing track.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Patti Scialfa and Bruce Springsteen: Rainy Day Man"
----
 
 Why, why, did Patti Scialfa not release “Rainy Day Man” as the lead single (or any single) off her magnificent 2007 album 
 

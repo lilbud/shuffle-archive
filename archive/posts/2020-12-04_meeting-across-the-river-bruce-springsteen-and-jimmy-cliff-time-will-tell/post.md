@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce and Jimmy Cliff team up on the lead-off track from Jimmy’s 1969 self-titled album at Bruce’s World Tour 1993 show in Verona.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and Jimmy Cliff, Time Will Tell"
----
 
 Bruce is no stranger to Jimmy Cliff’s catalog: his cover of “” has been a fan favorite for decades, and “” was a setlist staple during World Tour 1993.
 

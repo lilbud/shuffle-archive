@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Several great shows on this date in Springsteen history, but the chief highlight is a loose, funny 1978 radio interview Bruce gave on his day off. Check it out inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 4"
----
 
 *New entry for 1979; video for 2012***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen joins The Rolling Stones, Tina Turner, Little Richard, and a host of Hall of Fame all-stars for a cover of The Stones’ iconic “Start Me Up.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: The Rolling Stones and Bruce Springsteen: Start Me Up"
----
+
 
 Back in 1989, the Rock and Roll Hall of Fame was still in its infancy, and its annual induction ceremony was held not at New York City’s Madison Square Garden but at the much more intimate Waldorf-Astoria Hotel.
 

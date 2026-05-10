@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: Bruce launches the U.S. leg of the Reunion Tour, kicks off a ten-night Rising stand at Giants Stadium, and releases his Magic Tour Highlights EP. Video, audio (including a 1978 radio interview) and more inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 15"
----
+
 
 *New entry for 1975 and 2024***New for 2025:**
 

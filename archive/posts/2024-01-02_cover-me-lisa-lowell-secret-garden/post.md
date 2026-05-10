@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Way back in 2011, Sessions Band vocalist Lisa Lowell stopped by E Street Radio and gave us a great cover of Bruce’s “Secret Garden.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Lisa Lowell: Secret Garden"
----
 
 You’re familiar with Lisa Lowell’s voice, even if you don’t know her name.
 

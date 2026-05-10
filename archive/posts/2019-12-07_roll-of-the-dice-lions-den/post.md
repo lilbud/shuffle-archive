@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Dum dum dee-dum dum dee-dee dum dum!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Lion’s Den"
----
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/twitter-300x228.jpg?resize=758%2C576)
 

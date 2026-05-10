@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An all-but-forgotten German film actress inspired one of Bruce’s earliest character studies.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Camilla Horn
----
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/clip_103307049.jpg?resize=596%2C644&amp;ssl=1)
 

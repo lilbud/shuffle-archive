@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce has written songs about some colorful characters, but none so much as the true ones in “Sell It and They Will Come,” an ode to The Stimulator, Flowbee, America’s Personal Trainer, and the Psychic Friends Network.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Sell It and They Will Come"
----
 
 Because the album that represents The Ghost of Tom Joad recording sessions is so serious and earnest, we tend to characterize that entire period as such.
 

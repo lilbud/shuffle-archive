@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: You’ve heard snippets in River-era bootlegs, but if you haven’t heard the one and only recording of Bruce’s full cover of “No Money Down” from way back in 1974, you need to listen to this definitive version inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: No Money Down"
----
 
 With its instantly recognizable (if not original) stop-time riff and sly, comical, almost spoken-word lyrics, “No Money Down,” Chuck Berry’s 1957 hit single (it peaked at #8 on Billboard’s R&B chart) was all but calling out for Bruce to cover it in concert.
 

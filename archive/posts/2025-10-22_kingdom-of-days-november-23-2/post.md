@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce’s video for “Born in the U.S.A.” premiered on MTV on this date–check out the coverage, plus: guest appearances by Bono, Dave Stewart, and Dion, Bruce’s first-ever show in the Netherlands, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 23"
----
+
 
 *Review for 1975***New for 2025:**
 

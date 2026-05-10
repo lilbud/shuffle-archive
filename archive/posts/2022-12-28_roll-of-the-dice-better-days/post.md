@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Better Days” is one of the happiest songs in Bruce’s catalog. It also features some of his best writing.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Better Days"
----
 
 It’s possible that I’m biased.
 

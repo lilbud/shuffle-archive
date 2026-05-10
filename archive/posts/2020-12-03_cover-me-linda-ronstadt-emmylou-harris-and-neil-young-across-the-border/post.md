@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Three great voices blend lovingly in this gorgeous arrangement of “Across the Border.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Linda Ronstadt, Emmylou Harris, and Neil Young: Across the Border"
----
 
 Recently, I shared a of “” by Emmylou Harris and Willie Nelson, and almost immediately, a few friends and readers pointed me to another Emmylou duet/Bruce cover. And even though Emmylou has covered Bruce enough times to make for a mini-blog by itself, this particular track deserves more listens.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the center of Bruce’s Letter to You album lies the summational song of Bruce’s songwriting career.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Power of Prayer"
----
 
 “We all have our own ways of praying. I restricted mine to 3 minutes and a 45 rpm record. The power of pure pop, the beautiful simplicity of melody, a complete character study in a matter of minutes. Life in 180 seconds or less. If you get it right, it has the power of prayer.” *–Bruce Springsteen, Letter to You (2020)*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Part Two of guest-blogger Dan French’s amazing E Street Adventure from the original European River Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Munich, April 16, 1981 (Dan’s Story)"
----
 
 Editor's Note
 

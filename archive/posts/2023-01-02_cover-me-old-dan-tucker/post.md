@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Recorded during the freewheeling second Seeger Session, “Old Dan Tucker” led of Bruce’s 2006 album and became a nightly favorite on tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Old Dan Tucker"
----
 
 The “Seeger Sessions” that yielded Bruce Springsteen’s 2006 album were actually three separate recording sessions that spanned a decade.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Seattle and Philadelphia get set list rarities, and Bruce opens for Steve Wonder. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 29"
----
+
 
 *Video for 2023***New for 2025:**
 

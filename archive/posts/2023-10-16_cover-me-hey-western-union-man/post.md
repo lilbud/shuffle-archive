@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Springsteen was unfamiliar with Jerry Butler until Jon Landau brought “Hey, Western Union Man” to his attention. He ended up covering several of Butler’s songs. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Hey, Western Union Man"
----
 
 Bruce Springsteen’s is generally considered an album of the singer’s youthful favorites, but two of its songs–including the title track–are by an artist that had flown relatively under his radar.
 

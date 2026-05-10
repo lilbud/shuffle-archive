@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce teams up with Dave Edmunds at Big Man’s West on Jerry Lee Lewis’ “Let’s Talk About Us.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Dave Edmunds and Bruce Springsteen, Let’s Talk About Us"
----
+
 
 “Let’s Talk About Us” isn’t one of Jerry Lee Lewis’ most well-known songs (released as a single in 1959, it never charted), but it’s certainly one of his most direct.
 

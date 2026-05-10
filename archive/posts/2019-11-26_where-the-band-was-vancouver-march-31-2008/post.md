@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The surprise ESB debut of “None But the Brave” is the highlight of this final Pacific NW show of the Magic Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Vancouver, March 31, 2008"
----
 
 Until I started reliving my concert memories, I didn’t realize just how many of my local shows happened in March. That’s largely because Bruce’s tours tend to follow set patterns, but why he’d choose early spring for a west coast tour is beyond me. But while the Seattle show two days earlier fell on a cold, gloomy, and even snowy day, two days later in Vancouver, it was sunny and warm.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The long, storied friendship between a pair of Grammy-winning American icons.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Spare Parts: “Weird Al” Yankovic and Bruce Springsteen"
----
 
 “Weird Al” Yankovic has parodied just about every iconic artist and anthem over the last four decades, but he’s never taken a swing at Bruce Springsteen.
 

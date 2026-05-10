@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce based two of his most uplifting songs on Curtis Mayfield’s “People Get Ready,” but the only time he ever performed the original in an arena was with U2 in 2005. Watch that loose, fun performance inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: U2, Bruce Springsteen and Patti Scialfa, People Get Ready"
----
 
 It’s the unofficial anthem of the U.S. Civil Rights Movement.
 

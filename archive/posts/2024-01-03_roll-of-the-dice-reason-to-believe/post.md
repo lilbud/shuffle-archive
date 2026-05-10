@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s existential, soul-searching, Rorschach Test of a song ranks among is either one of his most haunting or uplifting–it just depends on the arrangement.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Reason to Believe"
----
 
 “We love you, Bruce!” —*a voice from the crowd on November 16, 1990*
 

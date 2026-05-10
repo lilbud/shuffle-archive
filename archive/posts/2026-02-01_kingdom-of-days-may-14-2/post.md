@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Dr. Zoom and the Sonic Boom make their debut under that name on this date in history. Plus: Max misses his first show in 35 years, Bruce and Julianne hold their wedding reception, Bruce’s first ever performance of “Satan’s Jewel Crown,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 14
----
+
 
 Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under that name, at Asbury Park’s Sunshine In.
 

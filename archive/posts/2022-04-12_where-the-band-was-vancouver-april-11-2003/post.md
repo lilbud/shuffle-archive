@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: My first out-of-town show, and my first time in the pit. Too bad Bruce was sick.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Vancouver, April 11, 2003"
----
 
 This show was a first for me in two significant ways:
 

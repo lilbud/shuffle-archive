@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A fascinating 2012 interview and great Australian performances from 2014 and 2017 highlight this day in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 16
----
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Philadelphia_Inquirer_Sun__Feb_16__1975_.jpg?resize=758%2C948&amp;ssl=1)
 

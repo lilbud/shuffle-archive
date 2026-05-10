@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From the wonderful 2003 Light of Day tribute album comes this wonderfully fresh perfectly suited arrangement of “Mansion on the Hill.” 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Billy Bragg: Mansion on the Hill"
----
 
 It’s been a while since we’ve featured a cover from the wonderful 2003 Springsteen tribute compilation, 
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Deep into his cover of “Tenth Avenue Freeze-Out,” Silent Bear sense a new context for Bruce’s classic song and took it in a daring new direction.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Silent Bear: Tenth Avenue Freeze-Out"
----
 
 Even Bruce Springsteen couldn’t tell you what a “” is.
 

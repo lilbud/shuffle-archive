@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Sam Cooke created it, but Southside Johnny claimed it for the Jersey Shore. Watch his irresistible 1978 team-up with Bruce and just try not to smile.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Having a Party
----
 
 Long before it became synonymous with the Jersey Shore, Sam Cooke’s “Having a Party” was burning up the charts nationally.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce is interviewed by Tom Hanks, Jon Bon Jovi makes a guest appearance, and the E Street Band backs Chuck Berry. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 28
----
+
 
 Bruce opens for Jerry Lee Lewis and Chuck Berry at the University of Maryland. After his set, Bruce and the E Street Band (plus Southside Johnny) serve as the backing band at no charge for Lewis and Berry, remaining on stage the entire night. The band has no rehearsal time with Berry, who keeps the band on their toes the entire night. Watch Bruce tell the story below. (Thanks to Dave Homorody for the photo!)
 

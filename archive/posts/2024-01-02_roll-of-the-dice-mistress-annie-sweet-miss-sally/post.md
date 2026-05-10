@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Don’t bother me with that “Laurel or Yanni” thing. I’m still trying to figure out if it’s Sally or Annie.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Mistress Annie/Sweet Miss Sally"
----
 
 Before Laurel and Yanni, there was Sally and Annie.
 

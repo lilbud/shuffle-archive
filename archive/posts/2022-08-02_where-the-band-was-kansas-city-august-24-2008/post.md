@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A night of surprises closes out the Magic Tour in Kansas City.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Kansas City, August 24, 2008"
----
 
 If you want surprises, go to a tour closer and you’ll get plenty.
 

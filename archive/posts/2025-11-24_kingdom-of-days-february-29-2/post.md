@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Happy Leap Day! Check out highlights from leap years past, including Bruce’s first-ever performance of “Love Me Tender.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 29
----
 
 Bruce and the E Street Band wrap up their three-night opening stand for the Tunnel of Love Express Tour at the Centrum in Worcester, Massachusetts, where Bruce plays “” for the very first time.
 

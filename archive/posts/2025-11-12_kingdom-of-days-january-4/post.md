@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce attends the Hollywood premiere of “Philadelphia,” resumes the Born in the U.S.A. Tour, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 4
----
 
 Bruce and his unnamed band kick off a four-night/eight-show stand at The Main Point in Bryn Mawr, Pennsylvania, where “” receives its debut performance.
 

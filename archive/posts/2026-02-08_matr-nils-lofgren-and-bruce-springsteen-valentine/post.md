@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The E Street Band may have been on hiatus, but relationships endured. From 1991, here’s Nils and Bruce together again on Nils’ sweet love song, “Valentine.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Valentine
----
 
 During the E Street Diaspora of the 1990s, the band members focused on their solo careers. Nils in particular was prolific during this period, releasing six albums over a period of only seven years, starting with in 1991 (Nils’ first album in five years).
 

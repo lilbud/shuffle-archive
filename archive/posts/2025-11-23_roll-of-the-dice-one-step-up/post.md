@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “One Step Up” is one of Bruce’s finest moments as singer, songwriter, and actor. It’s a brutally honest, self-aware inner dialogue of a man about to stray, and it gave rise to one of the most emotional performances I’ve ever seen live.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: One Step Up
----
 
 Let’s get this out of the way first: “One Step Up” is, without a doubt, one of the finest songs Bruce has ever written, and one of the most emotionally honest songs by about the internal struggle that leads us astray from a relationship.
 

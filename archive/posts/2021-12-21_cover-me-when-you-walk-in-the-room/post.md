@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce debuted his cover of “When You Walk in the Room” at his legendary stand at the Bottom Line; he reprised it more than thirty years later.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: When You Walk in the Room"
----
 
 When Bruce Springsteen played his historic stand at The Bottom Line in the summer of ’75, he debuted a new cover for the occasion.
 

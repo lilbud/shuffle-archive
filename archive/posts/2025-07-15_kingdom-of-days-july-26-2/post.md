@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce plays “My Father’s House” for the first time and rehearses in front of a lucky crowd of contest winners. Lots of video inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 26"
----
+
 
 *Review for 2005; audio for 2009***New for 2025:**
 

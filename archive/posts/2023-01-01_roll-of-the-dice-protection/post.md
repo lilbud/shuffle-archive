@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: No, not *that* “Protection” – this one is a light River-era outtake that likely influenced two later official releases.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Protection"
----
 
 No, not “Protection.” We’ll discuss the song Bruce donated to Donna Summer at a later date and dice roll.
 

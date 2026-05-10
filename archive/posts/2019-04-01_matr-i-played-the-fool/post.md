@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "From the Stone Pony’s 20th anniversary concert: Bruce joins old friend Southside Johnny for a mini-set that kicks off with “I Played the Fool.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Southside Johnny and Bruce Springsteen, I Played the Fool"
----
+
 
 The Stone Pony first opened its doors in early 1974, and The Blackberry Booze Band was its first house band.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: What’s the big highlight on a day like this? Hall of Fame performances with U2 and Darlene Love? Guest appearances with Robert Gordon and Conor Oberst? A pristinely recorded 1972 rehearsal? You decide–there’s too many to chose from.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 14
----
 
 The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factory in Highlands, New Jersey. Tinker West records the sessions, and his tapes will prove to be the highest quality recording of The Bruce Springsteen Band and a fascinating document of that period. Standout tracks include “When You Dance,” “Look Toward the Land,” “Funk Song,” and an absolutely stunning must-hear cover of “It’s All Over Now, Baby Blue.” Take a listen:
 

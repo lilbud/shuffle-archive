@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Let’s continue our spotlight series on covers of lesser-known Springsteen songs by turning our attention to Human Touch as we celebrate its 30th anniversary this…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Lowlands: Soul Driver"
----
 
 Let’s continue our spotlight series on covers of lesser-known Springsteen songs by turning our attention to as we celebrate its 30th anniversary this week.
 

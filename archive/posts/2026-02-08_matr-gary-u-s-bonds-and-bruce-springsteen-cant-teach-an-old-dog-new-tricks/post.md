@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Twenty-plus years after their last collaboration, Bruce joins Gary U.S. Bonds in the studio once more for “Can’t Teach an Old Dog New Tricks.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Can’t Teach an Old Dog New Tricks
----
 
 Twenty years after Bruce last collaborated on vinyl with Gary U.S. Bonds (well, 22 years, but who’s counting?), Bruce lent his talents to Gary once more on Bonds’ 2004 album, (Get it?)
 

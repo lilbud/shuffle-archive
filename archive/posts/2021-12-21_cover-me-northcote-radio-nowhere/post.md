@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 2016, Northcote tucked an acoustic but rocking cover of “Radio Nowhere” on a B-side and unlocked the loneliness and isolation at the core of the song. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Northcote: Radio Nowhere"
----
 
 (Thanks to friend of the blog Doug Watson for pointing me to this one.)
 

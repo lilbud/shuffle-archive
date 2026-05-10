@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From his 1999 album, The Closest, Australian country artist Brent Parlane shares a beautiful acoustic arrangement of Bruce’s “Walk Like a Man.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Brent Parlane: Walk Like a Man"
----
 
 “” is one of Bruce Springsteen’s loveliest songs, but the studio track that appears on is one of his most dated.
 

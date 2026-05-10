@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen and the E Street Band cover the last great pre-British Invasion rock classic.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: California Sun"
----
+
 
 “California Sun” cracked the Billboard Hot 100 twice, but neither time was by a west coast band.
 

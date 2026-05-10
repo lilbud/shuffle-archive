@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Lucinda Williams on stage during a night off on the Seeger Sessions Tour for an epic, hard-rocking version of Lucinda’s “Joy.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Joy
----
+
 
 In November 2006, the Seeger Sessions Tour was in full swing. But on a night off in London, Bruce reminded us that he hadn’t forgotten how to rock.
 

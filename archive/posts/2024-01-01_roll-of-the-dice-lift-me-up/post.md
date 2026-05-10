@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Lift Me Up” is a delicate, ethereal coda to Limbo, John Sayles’ brilliant film. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Lift Me Up"
----
 
 First off: If you haven’t seen John Sayles’ brilliant film , go find it and watch it.
 

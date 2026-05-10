@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Is “The Promised Land” a song of defiance or surrender? That depends on the ear of the behearer. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Promised Land"
----
 
 So I think by now I’ve pretty well established that I can be a little bit, um, detail-obsessed when it comes to Bruce’s music.
 

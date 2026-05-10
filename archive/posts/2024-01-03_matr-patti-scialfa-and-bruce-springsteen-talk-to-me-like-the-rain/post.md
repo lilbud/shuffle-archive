@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce lent his instrumental support to one of the standout tracks on Patti’s debut album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Patti Scialfa and Bruce Springsteen: Talk to Me Like the Rain"
----
 
 Bruce and Patti made my job easy today. They discussed “Talk to Me Like the Rain,” Patti’s gorgeous 1993 track from her debut album, at length on Bruce’s radio show last summer.
 

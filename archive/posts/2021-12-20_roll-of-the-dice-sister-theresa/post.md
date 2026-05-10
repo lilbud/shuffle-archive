@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Steel Mill was known for its ferocious guitar jams, but “Sister Theresa” is a fascinating exception: a Springsteen original written for acoustic guitar and recorder(!) 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Sister Theresa"
----
+
 
 Before E Street, before The Bruce Springsteen Band, there was Steel Mill.
 

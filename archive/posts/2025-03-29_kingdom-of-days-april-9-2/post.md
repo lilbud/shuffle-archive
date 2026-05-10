@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The Reunion Tour finally kicks off, Bruce works out a new song called “Devils &amp; Dust” at a 2003 soundcheck, and the E Street Band plays a surprise concert at Colgate University. More highlights and great video inside. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 9"
----
+
 
 *New entry for 1979 and 1980; audio for 1999; video for 2023***New for 2025:**
 

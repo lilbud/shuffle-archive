@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Sherry Darling” is synonymous with summer–one of Bruce’s loosest, most carefree (and believe it or not, romantic) songs, yet it dates back to the serious Darkness sessions.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Sherry Darling"
----
 
 Ninety-nine percent of the time, Bruce picks the right take of a song to officially release. With “Sherry Darling,” however, I humbly submit he got it wrong.
 

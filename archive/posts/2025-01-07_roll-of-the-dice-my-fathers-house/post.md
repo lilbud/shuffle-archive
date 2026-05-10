@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In memory of Donald Stephen Rosen (December 23, 1942 – August 12, 2021)
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: My Father’s House"
----
 
 My dad died today.
 

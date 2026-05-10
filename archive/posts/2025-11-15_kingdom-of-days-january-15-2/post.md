@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: Watch a full Light of Day performance, plus the premiere of the video for “Tunnel of Love.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 15
----
+
 
 The Born in the U.S.A. Tour pulls into Charlotte for the first of two nights at the Charlotte Coliseum.
 

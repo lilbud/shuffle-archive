@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s cover of the Elvis Presley classic has stayed under the radar despite several official releases.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Viva Las Vegas"
----
 
 “Viva Las Vegas” is one of a small collection of covers that Bruce actually recorded in the studio, and it came about in an unusual way.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From the Bruce Springsteen Band era comes a braggadocious, light-on-its feet number that’s as close to jazz as you’ll ever hear Bruce get.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: You Better Be Nice to Me, Baby"
----
 
 Special treat today, folks! We’re taking another trip back to the Bruce Springsteen Band era, and this one’s a personal favorite.
 

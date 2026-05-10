@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Two For the Road” is short, sweet, and offers a few intriguing callback, but ultimately it falls short in both style and substance.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Two for the Road"
----
 
 “Two For the Road” is short (not even two minutes long) and sweet, and that’s about the highest praise I can muster for it.
 

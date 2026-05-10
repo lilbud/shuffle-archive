@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce releases his Devils &amp; Dust album, debuts “Hello Sunshine,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 26
----
+
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 

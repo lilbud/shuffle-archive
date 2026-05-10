@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One night only: Bruce joins Roy Orbison and his all-star backing band on a new song that Roy wouldn’t release until after his death.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Roy Orbison, Bruce Springsteen and Friends: (All I Can Do Is) Dream You"
----
+
 
 Here’s a switch: a Roy Orbison song that Bruce actually covered Orbison released it.
 

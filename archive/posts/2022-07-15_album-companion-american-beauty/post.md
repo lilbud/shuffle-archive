@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Let’s take a moment to revisit Bruce’s only EP with all new material.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Album Companion: American Beauty"
----
 
 I’ll be taking this week mostly off while I’m re-uniting with my co-workers for the first time in almost two years at a work event in New York, but you’ll hear from me here and there with a few pieces that don’t fit this blog’s usual themes.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “We Are the World” was released on this date in 1985. More highlights from this date in Springsteen history inside, including Bruce’s first-ever shows in Houston and Atlantic City.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 7"
----
 
 *Review for 1975; audio for 2003; video for 2023***New for 2025:**
 

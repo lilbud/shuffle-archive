@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Swedish duo Kaiak gives us a groovy acoustic coffee-house rendition of Bruce’s “Hungry Heart.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Kaiak: Hungry Heart"
----
 
 Kaiak is a folk/indie/pop team-up of Swedish musicians Emil Gullhamn and Marcos Ubeda.
 

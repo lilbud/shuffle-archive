@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Get Up, Stand Up” was the perfect song to end each show on the Human Rights Now! Tour and kick off the tour’s 10th anniversary celebration. Watch both performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Get Up, Stand Up
----
 
 It was the perfect song to end with each night.
 

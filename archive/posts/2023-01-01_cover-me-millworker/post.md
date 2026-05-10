@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the 2006 MusiCares Person of the Year event, Bruce honored James Taylor with a wonderful performance of James’ “Millworker.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Millworker"
----
 
 We were first introduced to James Taylor’s “Millworker” through Robin Lamont, who sang it in the Stephen Schwartz 1978 musical for which Taylor wrote the song.
 

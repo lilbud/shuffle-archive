@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A farewell to an aging stadium became a life-affirming title track.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Wrecking Ball"
----
 
 The wrecking ball first took a swing at my dad about fifteen years ago, maybe twenty. Time blurs.
 

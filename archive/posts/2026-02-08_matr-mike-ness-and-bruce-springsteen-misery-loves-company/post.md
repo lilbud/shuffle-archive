@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Mike Ness has played with Bruce on stage on several occasions, but they only collaborated in the studio once. Listen to their “Misery Loves Company” inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Misery Loves Company
----
 
 Bruce Springsteen may have been a Mike Ness fan before Ness was a Springsteen fan.
 

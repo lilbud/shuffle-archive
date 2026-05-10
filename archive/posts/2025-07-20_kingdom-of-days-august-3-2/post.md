@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce opens for another artist for the very last time, debuts a work-in-progress “The Promise,” wraps the Tunnel of Love Tour, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 3"
----
+
 
 *New entry for 1977***New for 2025:**
 

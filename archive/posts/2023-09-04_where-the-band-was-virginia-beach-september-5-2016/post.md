@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A hurricane-induced rainout leads to a scorching show before a small but mighty audience in Virginia Beach.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Virginia Beach, September 5, 2016"
----
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/vb-249x300.jpg?resize=758%2C914)
 

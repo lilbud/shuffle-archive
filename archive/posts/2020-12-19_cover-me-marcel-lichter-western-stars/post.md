@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Here’s a lovely instrumental cover of the title track from Bruce’s latest album, perfect accompaniment for a quiet weekend morning.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Marcel Lichter: Western Stars"
----
 
 Bruce Springsteen’s album gets a lot of deserved attention for its lush arrangements, and the film version only ups the ante with a full-on orchestra.
 

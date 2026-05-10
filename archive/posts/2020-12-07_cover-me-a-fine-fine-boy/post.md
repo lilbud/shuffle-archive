@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Thirty-three years after he first covered it in concert, Bruce joins Darlene Love on stage for one of her greatest hits. Listen to both performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: A Fine Fine Boy"
----
 
 When “A Fine Fine Boy” was released in 1963, it became Darlene Love’s ninth single to crack the Hot 100, but only the third under her own name. It never notched any higher than #53, but that was high enough to catch Bruce’s attention.
 

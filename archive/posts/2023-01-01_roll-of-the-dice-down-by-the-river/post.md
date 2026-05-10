@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Still missing in action after all these years, “Down by the River” is a straight up rocker featuring the E Street Band in all its glory that would have been right at home on The River.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Sax Song"
----
 
 Believe it or not, even after the 1998 and 2010 box sets, there are unreleased songs from Bruce Springsteen’s sessions.
 

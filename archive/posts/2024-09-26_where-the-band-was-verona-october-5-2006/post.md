@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: My all-time favorite show–under a full moon, in an ancient arena, Bruce breathed new life into a collection of American folk songs and shared them with a raucous but respectful Italian crowd.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Verona, October 5, 2006"
----
 
 Sitting on those ancient stone steps under a full moon on a gorgeous October night, I had to marvel: how in the world did I end up here?
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This Stax/Volt homage (featuring Sam Moore himself) is an unjustly overlooked gem from Bruce’s early 1990s era.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Man’s Job"
----
 
 In his autobiography and Broadway show, Bruce Springsteen spent considerable time describing the profound influence of Elvis Presley on a young, impressionable future rock icon. And of course, the story of Bruce and Stevie’s attempted Graceland break-in has long since become legend.
 

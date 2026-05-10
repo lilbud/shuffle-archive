@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Twin sisters Louise and Ellie Macnamara paid tribute to one of their great musical influences on the day his latest album was released.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Heathers: Dancing in the Dark"
----
 
 Twin sisters Ellie and Louise Macnamara are lifelong Bruce Springsteen fans, and it shows.
 

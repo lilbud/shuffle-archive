@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: by request, Bruce and the E Street Band (and a raucous crowd sing-a-long) barrel their way through The Ramones’ “I Wanna Be Sedated.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: I Wanna Be Sedated"
----
+
 
 We’ll get to the Springsteen connection in a minute; for the moment, you’ll need to excuse me while I rock out to the greatest punk band ever. Turn up the volume and join me, won’t you?
 

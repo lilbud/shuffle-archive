@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Scottish band Camera Obscura makes a subtle change to Bruce’s enduring, romantic “Tougher Than the Rest,” to powerful effect.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Camera Obscura: Tougher Than the Rest"
----
 
 A fascinating thing happens when a heterosexual woman sings “.”
 

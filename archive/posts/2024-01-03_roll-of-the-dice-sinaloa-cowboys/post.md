@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Inspired by actual headlines and a personal story, Bruce crafted the quiet, tragic tale of the Rosales Brothers.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Sinaloa Cowboys"
----
 
 “The cookers themselves–recruited from the fields–sometimes are not aware of the dangers. Hydriodic acid… eats through not only skin but concrete. If inhaled, its fumes cause chemical pneumonia, which can bring a quick, painful death.
 

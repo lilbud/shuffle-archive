@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Someday (We’ll Be Together)” is the Darkness outtake that really isn’t an outtake at all–the official track bears little resemblance to its 1977 inspiration. Listen to both inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Someday (We’ll Be Together)"
----
 
 When is a outtake not a outtake?
 

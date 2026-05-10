@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce makes a guest appearance with Brian Wilson, the BBC premieres a Bruce documentary (watch it inside!), Steve Van Zandt saves the day when Southside Johnny gets sick, and more–lots of great video and audio today!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 12"
----
 
 *Audio for 1977 and 2003; new entry for 1982 and 2024; article for 1997***New for 2025:**
 

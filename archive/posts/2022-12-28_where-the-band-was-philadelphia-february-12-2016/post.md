@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: My second show of the River Tour (2016 version) was a scorcher inside even if it was freezing outside–a talkative Bruce and a couple of great setlist wild cards make this the strongest and longest show of the tour to date.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Philadelphia, February 12, 2016"
----
 
 Once my toes defrosted, it was a great night.
 

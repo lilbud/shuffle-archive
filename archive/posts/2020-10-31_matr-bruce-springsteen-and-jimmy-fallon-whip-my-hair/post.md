@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce and Jimmy Fallon (as Neil Young) perform the unlikeliest of covers in one of Bruce’s most viral moments. Watch the performance and backstory inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Jimmy Fallon, Whip My Hair"
----
 
 Bruce Springsteen has performed a lot of unlikely covers across his long and illustrious career, but I’m not sure that anyone would have ever predicted this one, let alone on television and as an official CD release.
 

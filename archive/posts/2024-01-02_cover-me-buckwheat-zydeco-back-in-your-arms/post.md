@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the last songs Buckwheat Zydeco recorded in the studio was a reggae reinvention of Bruce’s torch song, “Back in Your Arms.” And it works.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Buckwheat Zydeco: Back in Your Arms"
----
 
 The late, great Buckwheat Zydeco covered one of Bruce’s more obscure tracks on his final studio album, 
 

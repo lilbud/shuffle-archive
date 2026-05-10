@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The first “Shut Out the Light,” the last “The Long Goodbye,” and Bruce’s first appearance with Gary U.S. Bonds–all this and more on this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 22"
----
 
 *Audio for 2006; new entry for 2024***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This early ancestor of “Candy’s Room” (and “Drive All Night”) is just as strong as its descendant, featuring a long, sublime solo by Danny Federici. Let’s break it down inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Candy’s Boy"
----
 
 “Does it matter, does it really matter? I’ll never tell.” *[Laughs]**–Bruce Springsteen answering the question “Was Candy a hooker, or what?”, Rolling Stone, November 25, 2010*
 

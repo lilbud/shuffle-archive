@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: As timely today as it was in the summer of ’82, Bruce’s slyly comedic “Out of Work” was a Top Forty hit for Gary U.S. Bonds.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "RotD/MatR: Gary U.S. Bonds, Bruce Springsteen and the E Street Band: Out of Work"
----
 
 In 1981, Bruce and Steve Van Zandt produced , a comeback album for one of their musical heroes, Gary U.S. Bonds. It worked: Bonds indeed came back to the charts, leading off with Bruce’s original song “” which peaked at #11 on the Billboard Hot 100.
 

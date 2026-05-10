@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The first single from Western Stars is also its emotional heart, a song of deep contentment, satisfaction, and reconciliation late in a long life.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Hello Sunshine"
----
 
 Around a minute and 45 seconds into “Hello Sunshine,” we’re treated to something I don’t think we’ve ever heard before: thirty seconds of Bruce Springsteen an entire verse.
 

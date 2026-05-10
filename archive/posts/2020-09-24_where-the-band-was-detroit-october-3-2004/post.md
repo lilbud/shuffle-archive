@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Dixie Chicks make a surprise appearance in Detroit, joining Bruce, REM, and company on the Vote for Change stage.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Detroit, October 3, 2004"
----
 
 The nice thing about the 2004 “swing states” is that most of them were pretty close to each other. The drive from Cleveland to Detroit took less than three hours, so it was a pretty low-stress travel day considering I was doing back-to-back shows.
 

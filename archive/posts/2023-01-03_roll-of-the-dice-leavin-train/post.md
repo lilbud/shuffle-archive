@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This retread of “Brilliant Disguise” (with a bit of “I’m Goin’ Down”) adds nothing original to Bruce’s catalog. Cool backing track, though.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Leavin’ Train"
----
 
 For any other artist, “Leavin’ Train” might earn a more favorable review.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy New Year! On this date: Bruce wraps up the Darkness Tour, releases the single for “Fire,” and plays an impromptu Stone Pony set.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 1
----
+
 
 Bruce, Steve, Roy, and David Sancious drop by The Stone Pony, where they join Southside Johnny and The Asbury Jukes on stage for several numbers.
 

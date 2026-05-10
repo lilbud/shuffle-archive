@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and Billy Joel team up on Billy’s 1993 hit at a 2008 benefit show for Barack Obama.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Billy Joel and Bruce Springsteen: The River of Dreams"
----
+
 
 Of all the songs in Billy Joel’s catalog begging for a Billy/Bruce team-up, “The River of Dreams” is a no-brainer.
 

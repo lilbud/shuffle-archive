@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When Bruce walked into a recording studio for only the second time, he recorded one of his earliest crowd-pleasers with his band, Steel Mill. Listen to that studio recording along with a great live performance inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Goin’ Back to Georgia"
----
 
 In later years, we’d call it an homage; in earlier years, we’d call it imitation. One thing we know regardless of chronology: Bruce Springsteen has always worn his influences on his sleeve.
 

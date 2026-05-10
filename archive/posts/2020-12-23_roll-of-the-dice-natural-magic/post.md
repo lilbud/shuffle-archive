@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Sweet and slight, “Natural Magic” signaled a turn toward more soulful, romantic songs in Bruce’s set lists.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Natural Magic"
----
 
 Ah, the summer of 1971: a golden era for fans of the soul side of Bruce Springsteen.
 

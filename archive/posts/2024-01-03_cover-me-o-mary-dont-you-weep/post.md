@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce joined a long line of artists in keeping an important African-American spiritual protest song alive and vibrant for generations to come.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: O Mary Don’t You Weep"
----
 
 Of all the traditional songs that Bruce Springsteen arranged and recorded for , none have proved more musically versatile than “O Mary Don’t You Weep.”
 

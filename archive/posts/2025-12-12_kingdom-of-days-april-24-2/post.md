@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Highlights today include a Steel Mill recording from 1970, a radio broadcast from 1973, the one-and-only performance of “Dollhouse,” and much more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 24
----
 
 Steel Mill plays a show at Monmouth College in West Long Branch, New Jersey. Listen to the amazing thirty-minute epic “Garden State Parkway Blues” below.
 

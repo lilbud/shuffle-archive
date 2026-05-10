@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins short-lived Stone Pony house band The Shots for a cover of Wilson Pickett’s hit, “Funky Broadway.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and The Shots: Funky Broadway"
----
+
 
 Here’s one of the more obscure covers Bruce has performed.
 

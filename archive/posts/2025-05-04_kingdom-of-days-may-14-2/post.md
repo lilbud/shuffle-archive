@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Dr. Zoom and the Sonic Boom make their debut under that name on this date in history. Plus: Max misses his first show in 35 years, Bruce and Julianne hold their wedding reception, Bruce’s first ever performance of “Satan’s Jewel Crown,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 14"
----
+
 
 *New entry for 1973, 1979, and 1982; audio for 1993; video for 2016***New for 2025:**
 

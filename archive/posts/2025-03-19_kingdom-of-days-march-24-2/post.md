@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A fantastic 1974 interview, the only performance of “You’ll Be Comin’ Down,” and a guest-appearance by Eddie Vedder in Seattle lead the highlights from this eventful date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 24"
----
 
 *New entry for 1980***New for 2025:**
 

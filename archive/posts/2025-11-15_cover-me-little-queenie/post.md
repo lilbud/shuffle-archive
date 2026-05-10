@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Are you loose? Bruce certainly was, the first time the E Street Band covered Chuck Berry’s 1959 classic, “Little Queenie.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Little Queenie
----
 
 There Bruce was: biding time at the bar of the Hotel Pffffffffister, when he was supposed to be on stage playing.
 

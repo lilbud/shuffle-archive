@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Mining similar earth as some of his earlier classics without offering anything new, “Over the Rise” still manages to position itself as one of Bruce’s more revealing songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Over the Rise"
----
 
 For such an obscure track, “Over the Rise” has fascinating callbacks to several of Bruce’s best songs.
 

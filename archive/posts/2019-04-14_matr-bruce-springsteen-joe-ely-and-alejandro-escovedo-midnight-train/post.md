@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "From SxSW 2012: Bruce joins his Texas buddies Joe Ely and Alejandro Escovedo for The Flatlanders’ “Midnight Train.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen, Joe Ely, and Alejandro Escovedo: Midnight Train"
----
+
 
 From SxSW 2012: Bruce joins his Texas buddies Joe Ely and Alejandro Escovedo for The Flatlanders’ “Midnight Train.”
 

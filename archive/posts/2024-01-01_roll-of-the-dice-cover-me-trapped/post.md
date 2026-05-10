@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A chance find in an airport duty-free store led to a new Bruce arrangement of an obscure Jimmy Cliff song–and an instant fan favorite.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Trapped"
----
 
 There’s a sub-genre of Springsteen staples that are simultaneously covers and not-quite-covers, and “Trapped” is one of the best-known and most-loved ones.
 

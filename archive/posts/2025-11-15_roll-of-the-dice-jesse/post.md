@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Jesse” is a lost demo from the pre-Columbia years, but its DNA would turn up later in “Sandy” and “New York City Serenade.” It’s well worth a listen and deserves an official release.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Jesse
----
 
 Most of Bruce’s outtakes are partially-formed works-in-progress, lyrical and musical ancestors to released songs we know and love. (Bruce certainly likes to cross-pollinate his lyrics.)
 

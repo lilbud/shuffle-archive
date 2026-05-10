@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This remarkable folk arrangement of “My Lucky Day” reveals the beauty and tenderness of the song more than Bruce’s original arrangement ever did.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Robin and Linda Williams: My Lucky Day"
----
 
 “” is way up there among my favorite 21st-century Springsteen songs. Since it debuted as the second single from a full decade ago, it’s been a perennial on my setlist wish list.
 

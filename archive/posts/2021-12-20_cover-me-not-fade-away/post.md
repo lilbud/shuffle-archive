@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce covered “Not Fade Away” as far back as 1971 and as recently as last summer. It’s always at the ready for an impromptu team-up–watch some of best ones inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Not Fade Away"
----
 
 Of course Bruce has covered “Not Fade Away.” Who hasn’t?
 

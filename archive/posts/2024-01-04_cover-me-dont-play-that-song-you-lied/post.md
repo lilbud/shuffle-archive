@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description:  Who’d have thought a 60-year-old “Stand By Me” clone would become a fan-favorite centerpiece on tour?
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Don’t Play That Song (You Lied)"
----
 
 Who would have thought a 1962 “” clone would end up a centerpiece of Bruce Springsteen’s world tour six decades later?
 

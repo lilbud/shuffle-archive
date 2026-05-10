@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "This date in Springsteen history is full of notable events: from the famous MTV “Plugged” show to the infamous “ex-girlfriend’ show, from the very first “A Love So Fine” to the start of the talk show circuit for Bruce’s autobiography–all this and much more from this date.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 22"
----
+
 
 *Audio for 1979; video for 1992***New for 2025:**
 

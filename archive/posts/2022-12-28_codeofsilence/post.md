@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Code of Silence” is Bruce’s only live recording to win a Grammy, but his studio version with Joe Grushecky is pretty great, too.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Code of Silence"
----
 
 Quick, name the only live Springsteen performance to win a Grammy.
 

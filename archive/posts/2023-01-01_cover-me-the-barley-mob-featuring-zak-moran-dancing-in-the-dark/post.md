@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Two great “Dancing in the Dark” covers today, both featuring Irish vocalist Zak Moran–one solo and one with The Barley Mob. Check them both out inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Barley Mob featuring Zak Moran: Dancing in the Dark"
----
 
 The Barley Mob are a six-member rock band from Ireland, and if their name strikes you as a play on the name of a certain beloved artist, well let’s just say the band’s influences show in their terrific cover of Bruce’s “,” released earlier this year.
 

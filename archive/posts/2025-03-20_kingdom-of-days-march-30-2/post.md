@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen in on a 1993 rehearsal session, watch Jimmy Barnes guest-star with Bruce at Hanging Rock, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 30"
----
 
 *New entry for 1978, 1979, 1996, and 2008***New for 2025:**
 

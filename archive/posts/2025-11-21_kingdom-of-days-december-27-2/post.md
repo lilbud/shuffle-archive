@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Born to Run and Darkness Tours wind down, and “Lost in the Flood” makes its last appearance for a quarter-century.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 27"
----
 
 *New entry for 1977***New for 2025:**
 

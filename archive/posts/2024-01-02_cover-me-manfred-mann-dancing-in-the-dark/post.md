@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Manfred Mann’s Earth Band is no stranger to covering Bruce’s songs. “Blinded by the Light” may be their most famous adaption, but they also took a run at Bruce’s greatest hit, “Dancing in the Dark.” Check it out inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Manfred Mann: Dancing in the Dark"
----
 
 Everyone knows Manfred Mann’s cover of Bruce’s “.” True Springsteen fans know Manfred Mann’s Earth Band “” and “.”
 

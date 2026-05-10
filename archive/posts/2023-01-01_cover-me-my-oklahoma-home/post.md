@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 1997, Bruce plucked Sis Cunningham’s bitingly funny dust bowl chronicle from obscurity when he recorded it in his very first Seeger Session. Nine years later, it would become a nightly tour showpiece. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: My Oklahoma Home"
----
 
 Of the folks songs Bruce recorded for his 2006 album , “My Oklahoma Home” was one of the most contemporary–and yet somehow, the least familiar.
 

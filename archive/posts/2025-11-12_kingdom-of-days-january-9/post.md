@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: listen to the earliest live recording of Bruce and the E Street Band, a full performance of Springsteen on Broadway, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 9
----
+
 
 Bruce plays the second of two nights at the Upstage in Asbury Park as one of headliner Steve Van Zandt’s “friends.” Other friends on stage include Garry Tallent, Danny Federici, and Southside Johnny.
 

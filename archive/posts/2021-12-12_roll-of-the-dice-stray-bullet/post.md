@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Stray Bullet” is a dark and haunting outcast from the River sessions.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Stray Bullet"
----
 
 Wow.
 

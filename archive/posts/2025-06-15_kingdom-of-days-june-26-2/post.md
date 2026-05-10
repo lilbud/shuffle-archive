@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce films the video for “American Skin (41 Shots),” plays his last show with the 1992-1993 band, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 26"
----
+
 
 *New entry for 1973; video for 1992, 2013 and 2023; audio for 1993***New for 2025:**
 

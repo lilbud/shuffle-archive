@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In a studio appearance late last month, Of Monsters and Men played a quiet cover of Bruce Springsteen’s greatest hit, and it’s very, very good.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Of Monsters and Men: Dancing in the Dark"
----
 
 I wasn’t going to feature another “” cover for a while (just like with “” there are so many that I have to space them out).
 

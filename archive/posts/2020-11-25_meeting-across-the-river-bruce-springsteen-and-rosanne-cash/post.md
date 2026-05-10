@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "“Sea of Heartbreak” first became a hit in 1961, when Don Gibson took it all the way to #2 on the Billboard Hot Country Singles…
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and Rosanne Cash, Sea of Heartbreak"
----
+
 
 “Sea of Heartbreak” first became a hit in 1961, when Don Gibson took it all the way to #2 on the Billboard Hot Country Singles chart.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "My all-time favorite Bruce cover: a tender re-working of “Tougher Than the Rest” by a vocalist with the emotional range to perfectly capture the song’s nuance.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Everything But the Girl: Tougher Than the Rest"
----
+
 
 This is probably my all-time favorite Bruce cover.
 

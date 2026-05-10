@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s one-time-only performance of “Blue Bayou” with Roy Orbison and friends went missing in action for years after being edited out of Roy’s Black and White Night TV special, but you can watch that beautiful performance here. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Roy Orbison, Bruce Springsteen and Friends: Blue Bayou"
----
 
 It’s time for another trip back to , a one-time-only Roy Orbison concert with a backing band so deserving of the “all-star” label that you’ll spend half your viewing time wondering, “is that…?” (It is.)
 

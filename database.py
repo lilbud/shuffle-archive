@@ -6,6 +6,7 @@ from pathlib import Path
 import ftfy
 import html_to_markdown
 import psycopg
+import unidecode
 from dotenv import load_dotenv
 from psycopg.rows import dict_row
 
@@ -13,7 +14,7 @@ from cleanup import initial_cleanup
 
 load_dotenv()
 
-DATABASE_URL = "postgresql://postgres:password@localhost:5432/shuffle"
+DATABASE_URL = "postgresql://postgres:password@localhost:5432/shuffle_new"
 
 
 def load_db() -> psycopg.Connection:
@@ -24,111 +25,92 @@ def load_db() -> psycopg.Connection:
     )
 
 
-def insert_post(data: dict, cur: psycopg.Cursor, conn: psycopg.Connection) -> None:
-    """Insert post into database.
+def insert_post() -> None:
+    """Insert post into database."""
+    post_dir = Path("./archive/posts")
 
-    Posts are only inserted if the post_id and modified date in the
-    API response object are different than the one in the database.
-    """
-    id = data["id"]
-    url = data["link"]
+    with load_db() as conn, conn.cursor() as cur:
+        for post in post_dir.iterdir():
+            content = Path(post / "post.md").read_text(encoding="utf-8")
+            meta = json.loads(Path(post / "meta.json").read_text())
 
-    published = datetime.datetime.strptime(
-        data["date_gmt"],
-        "%Y-%m-%dT%H:%M:%S",
-    )
+            post_id = meta["id"]
+            slug = meta["slug"]
+            link = meta["link"]
 
-    last_modified = datetime.datetime.strptime(
-        data["modified_gmt"],
-        "%Y-%m-%dT%H:%M:%S",
-    )
+            published = datetime.datetime.strptime(
+                f"{meta['date_gmt']}+0000",
+                "%Y-%m-%dT%H:%M:%S%z",
+            ).astimezone(datetime.timezone.utc)
+            last_modified = datetime.datetime.strptime(
+                meta["modified_gmt"],
+                "%Y-%m-%dT%H:%M:%S",
+            )
 
-    title = ftfy.fix_text(data["title"]["rendered"])
+            print(post_id, published)
+            title = ftfy.fix_text(meta["title"]["rendered"])
+            excerpt = html_to_markdown.convert(meta["excerpt"]["rendered"])
 
-    content = initial_cleanup(data["content"]["rendered"])
+            media = meta["featured_media"]
+            author = meta["author"]
 
-    excerpt = html_to_markdown.convert(data["excerpt"]["rendered"])
-
-    # the only author on the site is Ken, so no point in querying with only one result.
-    author = "c8f4a2a5-a55d-4ef7-82d3-d59a8940c107"
-
-    cur.execute(
-        """INSERT INTO posts (post_id, published, last_modified, url, title, content, excerpt, author, slug)
-            values (%(id)s, %(published)s, %(last_modified)s, %(url)s, %(title)s, %(content)s, %(excerpt)s, %(author)s, %(slug)s)
-            on conflict (post_id, last_modified) do nothing""",
-        {
-            "id": id,
-            "published": published,
-            "last_modified": last_modified,
-            "url": url,
-            "title": title,
-            "content": content,
-            "excerpt": excerpt,
-            "author": author,
-            "slug": data["slug"],
-        },
-    )
-
-    conn.commit()
-
-    print(f"Successfully inserted post {id}")
-
-    post_id = cur.execute(
-        """select id, post_id, last_modified from posts where post_id = %s and last_modified = %s""",
-        (id, last_modified),
-    ).fetchone()["id"]
-
-    if post_id and int(data["featured_media"]) != 0:
-        cur.execute(
-            """insert into media (media_id, url, post_id)
-                values (%(media)s, %(url)s, %(post)s) on conflict do nothing""",
-            {"media": int(data["featured_media"]), "url": None, "post": post_id},
-        )
-
-        media = cur.execute(
-            """select id from media where media_id = %(media)s""",
-            {"media": int(data["featured_media"])},
-        ).fetchone()["id"]
-
-        cur.execute(
-            """update posts set featured_media = %(media)s where post_id = %(post)s""",
-            {"media": media, "post": id},
-        )
-
-    for item in data["categories"]:
-        category = cur.execute(
-            """select id from categories where category_id = %(category)s""",
-            {"category": item},
-        ).fetchone()["id"]
-
-        cur.execute(
-            """INSERT INTO post_categories (post_id, category_id)
-            VALUES (%(post)s, %(category)s) on conflict do nothing""",
-            {"post": post_id, "category": category},
-        )
-
-    for item in data["tags"]:
-        tag = cur.execute(
-            """select id from tags where tag_id = %(tag)s""",
-            {"tag": item},
-        ).fetchone()["id"]
-
-        cur.execute(
-            """INSERT INTO post_tags (post_id, tag_id)
-            VALUES (%(post)s, %(tag)s) on conflict do nothing""",
-            {"post": post_id, "tag": tag},
-        )
-
-    for item in data["jetpack-related-posts"]:
-        try:
-            related = cur.execute(
-                """select id from posts where post_id = %(post)s""",
-                {"post": item["id"]},
-            ).fetchone()["id"]
+            if media == 0:
+                media = None
+            else:
+                cur.execute(
+                    """insert into media (id) values (%s) on conflict (id) do nothing""",
+                    (media,),
+                )
+                conn.commit()
 
             cur.execute(
-                """INSERT INTO related_posts (post_id, related_post) VALUES (%(post)s, %(related)s) on conflict do nothing""",
-                {"post": post_id, "related": related},
+                """INSERT INTO posts (post_id, published, last_modified, title, content, excerpt, featured_media, author_id, slug, url)
+                    values (%(id)s, %(published)s, %(last_modified)s, %(title)s, %(content)s, %(excerpt)s, %(media)s, %(author)s, %(slug)s, %(link)s)
+                    on conflict (post_id, last_modified) do update set url = %(link)s, slug = %(slug)s, content=%(content)s""",
+                {
+                    "id": post_id,
+                    "published": published,
+                    "last_modified": last_modified,
+                    "title": title,
+                    "content": content,
+                    "excerpt": excerpt,
+                    "media": media,
+                    "author": author,
+                    "slug": slug,
+                    "link": link,
+                },
             )
-        except TypeError:
-            continue
+
+            conn.commit()
+
+            db_post_id = cur.execute(
+                """select id from posts where post_id = %(id)s and last_modified = %(last_modified)s""",
+                {"id": post_id, "last_modified": last_modified},
+            ).fetchone()
+
+            for tag in meta["tags"]:
+                cur.execute(
+                    """insert into post_tags (tag_id, post_id) values (%(tag)s, %(post)s) on conflict (tag_id, post_id) do nothing""",
+                    {"tag": tag, "post": db_post_id["id"]},
+                )
+
+            for category in meta["categories"]:
+                cur.execute(
+                    """insert into post_categories (category_id, post_id) values (%(category)s, %(post)s) on conflict (category_id, post_id) do nothing""",
+                    {"category": category, "post": db_post_id["id"]},
+                )
+
+            for rp in meta["jetpack-related-posts"]:
+                rel_id = cur.execute(
+                    """select id from posts where post_id = %(id)s order by published asc limit 1""",
+                    {"id": rp["id"]},
+                ).fetchone()
+
+                cur.execute(
+                    """insert into related_posts (related_post_id, post_id) values (%(related_post)s, %(post)s) on conflict (related_post_id, post_id) do nothing""",
+                    {"related_post": rel_id["id"], "post": db_post_id["id"]},
+                )
+
+
+if __name__ == "__main__":
+    insert_post()

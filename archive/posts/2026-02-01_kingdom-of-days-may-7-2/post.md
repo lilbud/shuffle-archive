@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce plays full albums for the first time, makes his first visit to Austria, promotes an upcoming SNL appearance, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 7
----
 
 Four days before Bruce’s scheduled show at Auburn University, Bruce makes an unannounced visit to the campus… or does he? (h/t Bud McLaughlin)
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Time will tell if he’s really the new Springsteen, but up-and-comer Sam Fender certainly does the old Springsteen justice in his cover of “Born in the U.S.A.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Sam Fender: Born in the U.S.A."
----
 
 Sam Fender has a lot to live up to.
 

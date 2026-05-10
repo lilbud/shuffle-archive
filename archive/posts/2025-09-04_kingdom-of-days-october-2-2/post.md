@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Are you loose? On this historic day: The infamous Bomb Scare Show, the kickoff of the Magic Tour, and the finale of the Born in the U.S.A. Tour–video and much more inside!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 2"
----
+
 
 *Review for 2004***New for 2025:**
 

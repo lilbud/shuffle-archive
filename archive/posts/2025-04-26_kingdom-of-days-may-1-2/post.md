@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Great highlights on this day in Springsteen history, including Bruce’s first guest appearance in Europe, promotional performance footage from 1973, local Spanish TV news footage from 1993, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 1"
----
 
 *Video for 2014***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: If you’ve never heard Mary J. Blige’s cover of “American Skin (41 Shots)” with new lyrics and vocals by Kendrick Lamar, stop what you’re doing and listen to this magnificent performance.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Mary J. Blige and Kendrick Lamar: American Skin (41 Shots)"
----
 
 Back in September 2016, when the U.S. presidential election was coming down to the home stretch (wow, that seems like so long ago), Mary J. Blige debuted a new show on Apple Music called 
 

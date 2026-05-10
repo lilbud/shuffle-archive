@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Rare performances abound on this date in Springsteen history–listen to the debut performances of “Car Wash,” and “Seaside Bar Song” and more. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 13"
----
 
 *New entry for 1977 and 1983***New for 2025:**
 

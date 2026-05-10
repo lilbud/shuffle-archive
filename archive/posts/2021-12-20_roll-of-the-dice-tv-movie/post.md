@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An almost-forgotten rockabilly outcast from the Born in the U.S.A. sessions, “TV Movie” is a sly send-up of the cost of popular fame and a star turn for Professor Roy Bittan.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: TV Movie"
----
 
 I remember one night when we were completely packed up to go home and Bruce was off in the corner playing his acoustic guitar. Suddenly, I guess the bug bit him, and he started writing these rockabilly songs. We’d been recording all night and were dead tired, but they had to open up the cases and set up the equipment so that we could start recording again at five in the morning. That’s when we got “,” “,” and… “TV Movie”… Bruce got on a roll, and when that happens, you just hold on for dear life. [Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)[Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)— Max Weinberg, quoted in Clinton Heylin, *E Street Shuffle: The Glory Days of Bruce Springsteen and the E Street Band*
 

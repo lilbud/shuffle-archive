@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce and Patti made a guest appearance on this standout track on Soozie Tyrell’s debut solo album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Ste. Genevieve
----
 
 Just before the Rising Tour kicked off, new E Streeter Soozie Tyrell found time to record her debut album, Soozie proved herself to be a great singer-songwriter, and the entire album is worth a listen.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Garland Jeffreys coaxes Bruce Springsteen onto the stage at Light of Day 2002 to join him on his last great hit, “Hail Hail Rock ‘n’ Roll.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Hail Hail Rock ‘n’ Roll
----
+
 
 Garland Jeffreys should have been a much bigger star than he is, and there were a few brief moments (“Wild in the Streets” in 1973 and “96 Tears” in 1981) where it seemed he might be on his way.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Tour premieres galore at shows across the years, plus Bruce makes a promotional book tour appearance, and previews continue for his Broadway show.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 10"
----
 
 *New entry for 1983; audio for 2006***New for 2025:**
 

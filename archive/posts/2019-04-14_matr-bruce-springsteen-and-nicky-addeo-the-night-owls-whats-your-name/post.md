@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce and Nicky Addeo and the Night Owls croon a soulful cover of “What’s Your Name?” at the Stone Pony.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Nicky Addeo &amp; The Night Owls, “What’s Your Name?”"
----
 
 On April 2, 2011, Nicky Addeo and the Night Owls played the Wonder Bar in Asbury Park.
 

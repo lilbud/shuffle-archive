@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Castiles perform a contemporaneous cover of Eric Burdon and The Animals’ hit, “San Franciscan Nights.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: San Franciscan Nights"
----
 
 Waaaaaay back in September 1967, The Castiles covered Eric Burdon and The Animals’ “San Franciscan Nights.” The song had only just been released a month prior, but it was well on its way to becoming a Top 10 hit.
 

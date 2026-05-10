@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Talk to Me” took a strange and winding path from the studio to vinyl to the E Street stage, but it’s guaranteed to make us laugh anytime Bruce pulls it out. But let’s not think too hard about the lyrics.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Talk to Me"
----
 
 No other song in Bruce’s catalog brings out his inner ham more than “Talk to Me.”
 

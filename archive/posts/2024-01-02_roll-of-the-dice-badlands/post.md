@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Every fan knows it; every audience member is part of it: “Badlands” is Bruce’s anthem of steadfast resistance, persistence, and faith in his audience. It’s one of his very best songs.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Badlands"
----
+
 
 “I had the word. I had ‘Badlands.’ And then I had chord changes and we got in the studio and we laid the track down. And I had a vague outline and I’d go home, I’d play the tape and I’d write the words.” — Bruce Springsteen, July 9, 1978
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "This date’s highlights are almost all New Jersey-based: from archival footage of The Doors at Convention Hall in ’68 (Bruce was there) to a Bruce-and-Steve reunion in ’85 to the closing night of the ten-night Giants Stadium stand in ’03.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 31"
----
+
 
 *No updates***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen, John Eddie, Greg Kihn, Marshall Crenshaw, and Elliott Murphy team up on the T. Rex/Power Station classic.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: John Eddie, Bruce Springsteen, and Friends: Bang a Gong (Get It On)"
----
+
 
 One of rock’s greatest riffs was based on another one of rock’s greatest riffs, and Bruce has played them both.
 

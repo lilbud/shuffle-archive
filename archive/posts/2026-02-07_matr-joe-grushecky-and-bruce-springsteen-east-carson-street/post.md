@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce plays guitar on the title track of Joe Grushecky’s 2009 album, but even without Bruce’s contribution, “East Carson Street” is a great song about staying true to one’s roots.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: East Carson Street
----
 
 Among the many similarities between Bruce Springsteen and Joe Grushecky: they both have deep roots. If Bruce is inseparably associated with New Jersey, Joe is the musical avatar of Pittsburgh.
 
@@ -23,7 +17,7 @@ Oh, and the Springsteen connection? Bruce plays guitar on the track. Don’t let
 (2009)
 
 **East Carson Street**
-Released:**  
+**Released:**  
 *East Carson Street*  
 **Never performed**
 

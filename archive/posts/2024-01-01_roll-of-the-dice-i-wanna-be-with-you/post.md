@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A lost power-pop classic, “I Wanna Be With You” charms with its lovesick loser protagonist, fiercely defiant lyrics and exuberant arrangement.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I Wanna Be With You"
----
 
 In a parallel universe, Bruce Springsteen released every song he ever wrote and holds the record for most pop hits by a single artist.
 

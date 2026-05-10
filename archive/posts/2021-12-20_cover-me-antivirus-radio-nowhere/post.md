@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "United at a distance: Italian musicians come together (virtually) to raise money for COVID-19 research and relief with their cover of Bruce Springsteen’s “Radio Nowhere.” 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Antivirus: Radio Nowhere"
----
+
 
 Bonus post today, because this project is too great and too urgent to wait:
 

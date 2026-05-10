@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This romantic slow song has its fans, but its creator isn’t among them. When Bruce finally relented and released it, he hid it away as best he could.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Way"
----
 
 Toward the end of the era when recorded music was primarily delivered via circular, physical media, there was an annoying fad that seemed to sweep up almost every artist sooner or later: the hidden track.
 

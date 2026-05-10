@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s last great hit was a defining moment for his career and a pinnacle of his songwriting.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Streets of Philadelphia"
----
 
 Will the real “Streets of Philadelphia” please stand up?
 

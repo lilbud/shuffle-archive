@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Patti Scialfa joins the E Street Band, Bruce performs on David Letterman’s last NBC show, and the Darkness Tour comes to Seattle. More inside!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 25"
----
 
 *Audio for 2008; video for 2016***New for 2025:**
 

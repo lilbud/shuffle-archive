@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Watch Bruce tear it up on the piano(!) when he, Jimmy Vivino, and The Max Weinberg 7 cover Detroit Junior’s classic “Christmas Day.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Christmas Day
----
 
 Detroit Junior released a seasonal single in 1961 entitled “This Time Last Christmas.” It was the song’s B-side, however, that caught on: “Christmas Day” may not exactly be a holiday classic, but it was successful enough to have been included on several holiday compilation albums.
 

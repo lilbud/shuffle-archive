@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A self-spoofing Bruce joins Jimmy Fallon-as-Neil Young for a hilarious take on LMFAO’s “Sexy and I Know It.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Jimmy Fallon, “Sexy and I Know It”"
----
 
 To promote Bruce’s new album, Jimmy Fallon declared the last days of February 2012 and the first days of March as “Bruce Springsteen Week,” featuring interviews with and performances by the artist himself.
 

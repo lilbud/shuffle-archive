@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce Springsteen has given us hundreds of fantastic covers over the years. This isn’t one of them. (But it’s worth a listen anyway.) 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Dancing in the Street"
----
 
 I don’t second guess Bruce’s choices very often. He’s the artist, and I’m not even a musician.
 

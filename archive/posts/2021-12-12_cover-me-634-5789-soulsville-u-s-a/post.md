@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Whenever Bruce goes to Soulsville, U.S.A., there’s gonna be a party. Check out some great performances of this Stax classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: 634-5789 (Soulsville, U.S.A.)"
----
 
 A song written by Eddie Floyd and Steve Cropper (“,” ““) and recorded by Wilson Pickett (“,” “) is pretty much guaranteed to get a cover treatment from Bruce Springsteen.
 

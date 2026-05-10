@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Oh No No No” is an unfinished attempt at a he-said/she-said. Too bad we lack the music to pair with these unpublished lyrics, so we could see what Bruce was aiming for.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Oh No No No"
----
 
 Sometimes, Bruce’s unreleased, recorded lyrics stand on their own as poetry. But sometimes, you really need the music to know what he was going for.
 

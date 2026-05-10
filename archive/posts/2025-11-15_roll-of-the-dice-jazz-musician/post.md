@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The road to Tenth Avenue starts with this 1972 outtake.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Jazz Musician
----
 
 The road to Tenth Avenue started way back in 1972.
 

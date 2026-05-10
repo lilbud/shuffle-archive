@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce assembles his new band for the first time and “Terry’s Song” gets its first public performance. Plus: Bob Seger, Alejandro Escovedo, Joe Ely, Tom Waits and others join Bruce on-stage.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 14"
----
+
 
 *Video for 2023***New for 2025:**
 

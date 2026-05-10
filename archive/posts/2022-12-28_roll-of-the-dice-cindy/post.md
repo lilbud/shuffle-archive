@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce originally included “Cindy” on The River back when it was only one disc, but he discarded it before finalizing the two-disc version. That’s too bad, because like “Hungry Heart,” its pop trappings combined with dark lyrics make for a perfect album fit.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Cindy"
----
 
 At first, it seems like we’re in “” territory: a sad sack hero doing his best to please his girl, only to find that she sets the bar just a little bit higher than he can clear.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce makes a guest appearance with Levon Helm, Little Steven reunites with the E Street Band, and the original Miami Horns make their final appearance on an E Street stage.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 22"
----
+
 
 *Audio for 1985***New for 2025:**
 

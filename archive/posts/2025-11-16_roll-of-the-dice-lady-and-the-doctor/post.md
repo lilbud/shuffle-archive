@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This pre-label story of a doomed love affair features some dazzlingly clever lyrics from our 22-year-old songwriter.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Lady and the Doctor
----
 
 One of the first songs recorded for but ultimately discarded from the final release, “Lady and the Doctor” mines a common early Springsteen theme: lovers from different worlds, unable to make it work but unwilling to break it off.
 

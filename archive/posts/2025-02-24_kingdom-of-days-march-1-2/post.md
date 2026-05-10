@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Grammy Award wins and performances, Part 2 of a Friday Night Videos profile, and a most unexpected cover from this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 1"
----
 
 *No updates***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce makes a surprise “guest” appearance with Joe Grushecky (if 15 of 18 songs can be considered a guest appearance), Bruce teases an injured Jake, the Devils and Dust Tour set list busts open, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 18"
----
 
 *Review for 1973; new entry for 1975 and 2024; audio for 1999***New for 2025:**
 

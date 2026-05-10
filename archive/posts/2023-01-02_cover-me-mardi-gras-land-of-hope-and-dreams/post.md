@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Back in 2011, Rome-based Mardi Gras released a gorgeously uplifting cover of “Land of Hope and Dreams.” Check it out inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Mardi Gras: Land of Hope and Dreams"
----
 
 Not only can Italy claim to have the most avid Springsteen fans in the world, they also have some of Bruce’s best cover artists.
 

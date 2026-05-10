@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce headlines at the Philadelphia Spectrum for the first time, Western Stars debuts in movie theaters, and Clarence Clemons joins the E Street Band. Lots more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 25"
----
+
 
 *New entry for 1983, 1993, and 2024; audio for 2006 and 2012***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Stop me if you’ve heard this one: Bruce Springsteen, Joe Grushecky, John Eddie, and Dion walk into a bar. Guest blogger Terry Camp tells what happens next.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Long Branch, August 20, 1994 (Terry’s story)"
----
+
 
 Editor's Note
 

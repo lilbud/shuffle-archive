@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When Bruce covers “Highway 61 Revisited,” it’s always a group effort. Watch and listen to all four team-ups on Dylan’s classic rocker.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Highway 61 Revisited
----
 
 When Bob Dylan released in 1965, it was the first time he’d recorded with rock musicians–or really, with anything other than his guitar.
 

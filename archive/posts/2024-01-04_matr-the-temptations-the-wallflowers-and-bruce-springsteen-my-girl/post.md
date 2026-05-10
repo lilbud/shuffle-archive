@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It takes some searching and stretching to find a Springsteen performance of one of the most beloved Motown songs ever.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: The Temptations, The Wallflowers, and Bruce Springsteen: My Girl"
----
 
 It’s arguably the greatest answer song of all time.
 

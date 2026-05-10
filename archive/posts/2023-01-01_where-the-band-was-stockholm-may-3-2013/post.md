@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Introducing our first guest blogger: Stray Bullet’s Anna Lind shares her first-hand report from Bruce’s Wrecking Ball show in Stockholm.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Stockholm, May 3, 2013"
----
+
 
 Editor's Note
 

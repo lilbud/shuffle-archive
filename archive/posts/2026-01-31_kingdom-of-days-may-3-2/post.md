@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce records his first demos for Columbia Records, honors Pete Seeger and Dr. John, makes a return visit to Jazz Fest, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 3
----
+
 
 After impressing John Hammond the day prior, Bruce records fourteen demo tracks at Columbia Records in New York City. Four of them (“Mary Queen of Arkansas,” “It’s Hard to Be a Saint in the City,” “Growin’ Up,” and “Does This Bus Stop at 82nd Street?” will be released more than a quarter century later on . Others, like “Two Hearts in True Waltz Time” and “Street Queen,” remain unreleased.
 

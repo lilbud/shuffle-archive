@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce teams up with Joe Grushecky, Robert Gordon, Dion, and Marah. Plus: the earliest recorded “Santa Claus is Comin’ to Town,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 2"
----
+
 
 *Article for 1984; review for 2002; new entry for 2023***New for 2024:**
 

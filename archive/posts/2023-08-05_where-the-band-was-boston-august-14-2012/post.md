@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: There’s no better example of the Night One/Night Two rule than Bruce’s Fenway Park stand on the Wrecking Ball Tour. On Night One, Bruce was certainly playing it safe…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Boston, August 14, 2012"
----
 
 If you’re a frequent concertgoer, there’s a rule that you should know and follow: if an artist plays two or more shows in a given city, and you can only attend one, make sure you go to the last one. The first show is almost always the “standard set,” the one the band is most comfortable with and varies only in minor ways from town to town. The last show is almost always a free-for-all, a loose and unpredictable barnburner
 

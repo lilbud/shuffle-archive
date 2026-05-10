@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: We now have a site index of other artists covering Bruce Springsteen’s songbook! Check it out to see what other artists do with your favorite songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Introduction
----
 
 “Tonight! One time only!”
 

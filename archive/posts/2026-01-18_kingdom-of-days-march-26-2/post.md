@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The live debuts of “Frankie” and “Ain’t Got You” both happened on this date in history. More highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 26
----
 
 At the Fox Theater in Atlanta, Bruce premieres an early version of “Frankie.”
 

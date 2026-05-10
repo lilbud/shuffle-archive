@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The E Street Band debuts their new name, Jon Landau sees the future of rock and roll, and Bruce makes his first appearance on Saturday Night Live. New video and more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 9
----
+
 
 A watershed moment for Bruce, when he plays two shows opening for Bonnie Raitt at the Harvard Square Theater in Cambridge, Massachusetts. Not only is his band introduced as “The E Street Band” for the very first time at the early show, but Jon Landau attends the late show and is moved to write his famous “rock and roll future” review.
 

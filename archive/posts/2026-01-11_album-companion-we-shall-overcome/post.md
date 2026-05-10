@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The true, winding road from a backyard birthday party to a critically acclaimed, Grammy-winning album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Introduction
----
 
 On September 23, 1997, Bruce Springsteen threw himself a 48th birthday party.
 

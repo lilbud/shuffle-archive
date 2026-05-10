@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The second single from Western Stars is a standout, from Bruce’s Orbisonian vocals to his anti-thematic lyrics.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: There Goes My Miracle"
----
 
 When Bruce dropped his second single a month in advance of , my wife remarked, “I didn’t know he could still sing like that.”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The River Tour begins its morph into the “Autobiography Tour” as the ten-show victory lap kicks off in East Rutherford.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: East Rutherford, August 23, 2016"
----
 
 I didn’t go into this show with sky-high expectations.
 

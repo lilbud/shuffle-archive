@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The origin of American Babylon starts with Bruce and Joe’s first-ever studio collaboration.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Grushecky and Bruce Springsteen: Chain Smokin’"
----
 
 The origin of Joe Grushecky’s milestone album starts with “Chain Smokin’,” the album’s second track.
 

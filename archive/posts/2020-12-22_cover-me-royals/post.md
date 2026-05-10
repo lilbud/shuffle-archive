@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce found a kindred spirit in the lyrics of Lorde’s 2013 mammoth breakout hit and paid tribute to the young singer-songwriter when he performed it in Auckland on the High Hopes Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Royals"
----
 
 If it seems like “Royals” was everywhere in 2013-2014, that’s because it was.
 

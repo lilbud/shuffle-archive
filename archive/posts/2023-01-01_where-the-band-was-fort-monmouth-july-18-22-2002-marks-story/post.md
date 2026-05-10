@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Guest-blogger Mark Cunningham takes us behind the scenes at Bruce’s Rising Tour rehearsals.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Fort Monmouth, July 18-22, 2002 (Mark’s story)"
----
 
 Editor's Note
 

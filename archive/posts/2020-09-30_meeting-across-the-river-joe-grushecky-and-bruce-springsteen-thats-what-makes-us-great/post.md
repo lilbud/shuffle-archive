@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Joe and Bruce team up over e-mail on this Trump-era resistance anthem.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Joe Grushecky and Bruce Springsteen, That’s What Makes Us Great"
----
 
 Sign of the times: long-time collaborators Bruce and Joe Grushecky now team up over e-mail–seriously.
 

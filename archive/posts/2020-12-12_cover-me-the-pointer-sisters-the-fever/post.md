@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Forty years later, the Pointer Sisters’ cover of “The Fever” still smokes. Watch a rare vintage video performance inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Pointer Sisters: The Fever"
----
 
 The Pointer Sisters’ version of “” has long been one of my favorite Springsteen covers. It’s not that they bring anything new to the table–their arrangement is very close to the original, in fact.
 

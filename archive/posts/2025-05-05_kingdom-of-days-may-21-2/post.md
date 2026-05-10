@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Too many highlights to list: the first cut of “Born to Run,” the first “Meeting Across the River” in 20 years, and more. Plus: the debut of Bruce Springsteen and the Hot Mammas (really).
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 21"
----
+
 
 *Video for 2016 and 2023***New for 2025:**
 

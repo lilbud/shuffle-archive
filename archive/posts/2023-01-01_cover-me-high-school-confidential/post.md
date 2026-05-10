@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Jerry Lee Lewis’ 1958 single might have been overshadowed by personal drama and the camp classic the song introduced, but Bruce drew inspiration from it for an unusual Halloween show opener.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: High School Confidential"
----
 
 What can we say in praise about the film other than: in terms of camp value, it only improves with age.
 

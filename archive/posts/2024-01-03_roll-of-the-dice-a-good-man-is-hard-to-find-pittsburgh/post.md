@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From the early days of the Born in the U.S.A. recording sessions comes this jewel box of a song that captures the impact of war on the ones left behind.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: A Good Man Is Hard to Find (Pittsburgh)"
----
 
 There was something in those stories of [Flannery O’Connor] that I felt captured a certain part of the American character that I was interested in writing about. They were a big, big revelation. She got to the heart of some part of meanness that she never spelled out, because if she spelled it out you wouldn’t be getting it. It was always at the core of every one of her stories–the way that she’d left that hole there, that hole that’s inside of everybody. *–Bruce Springsteen to Will Percy, DoubleTake, Spring 1998*
 

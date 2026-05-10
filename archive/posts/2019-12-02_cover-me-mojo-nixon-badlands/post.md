@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Mojo Nixon’s never-released cover of “Badlands” is fresh, fierce, and fascinating–it deserves to be heard.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Mojo Nixon: Badlands"
----
 
 Thanks to Jason Luttrull for bringing this one to my attention!
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: If you’re paying attention to the words, you’re doing it wrong. This is song you feel, not hear.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Streets of Fire"
----
 
 *Pouring outside. Windy. Windows open. Turn the lights out and perfect setting for “Streets of Fire.”* — Anonymous Springsteen Fan
 

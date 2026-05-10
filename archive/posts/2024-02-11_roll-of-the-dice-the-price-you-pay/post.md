@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “The Price You Pay” is considered to be one of Bruce’s most enigmatic songs, but it’s only the backstory that’s mysterious–the song reveals itself when we pay close attention.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Price You Pay"
----
 
 I have a theory about “The Price You Pay.”
 

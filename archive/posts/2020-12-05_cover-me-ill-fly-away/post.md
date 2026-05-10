@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The E Street Band covered one of the world’s most well-known gospel hymns to salute their dearly departed bandmate.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: I’ll Fly Away"
----
 
 “I’ll Fly Away” is perhaps the world’s most covered and recorded gospel song. You almost certainly know it. It dates back to 1929, when it was written by Albert E. Brumley, and recordings date back as far as 1941. Here’s the earliest known recording by The Selah Singers:
 

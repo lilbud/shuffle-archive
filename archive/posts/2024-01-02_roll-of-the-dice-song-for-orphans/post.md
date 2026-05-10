@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Lost and found: “Song for Orphans” disappeared after a handful of 1972-73 performances until Bruce shocked fans with it more than 30 years later. Insights, backstory, and lovely performances inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Song for Orphans"
----
+
 
 I think "Song to Orphans" is less about the call and more about the dangers, distractions, temptations, and seductions that lie in one's path when answering it. They're good album-mates, these two songs.
 

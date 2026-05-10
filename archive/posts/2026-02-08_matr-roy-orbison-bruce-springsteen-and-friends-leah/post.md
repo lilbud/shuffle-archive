@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins an all-star backing band to accompany Roy Orbison’s soaring vocals on “Leah.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Leah
----
+
 
 Roy Orbison’s “Leah” wasn’t intended to be a single; it was actually the B-side for his 1962 release, “Working for the Man.” But with that gorgeous, soaring melody and Orbison’s preternaturally high vocals, how could it not be?
 

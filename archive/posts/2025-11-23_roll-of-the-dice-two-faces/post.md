@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A 1960s doo-wop break-up song inspired one of Bruce’s most openly confessional songs about his depressive struggles. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Two Faces
----
 
 “For a long time, if I loved you or if I felt a deep attachment to you, I’d hurt you if I could.” *–Bruce Springsteen, Western Stars*
 

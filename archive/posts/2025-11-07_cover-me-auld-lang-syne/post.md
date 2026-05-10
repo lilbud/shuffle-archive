@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and the E Street Band transform the traditional “Auld Lang Syne” into a rocker to usher in 1981. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Auld Lang Syne
----
+
 
 “Auld Lang Syne” is certainly one of the oldest songs Bruce has covered: in poem form, it dates back to at least 1788 (when Robert Burns wrote it down) and as far back as 1711 for the first verse.
 

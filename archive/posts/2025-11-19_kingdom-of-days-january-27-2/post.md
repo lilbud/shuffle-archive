@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "A jam-packed day in Springsteen history: watch Bruce’s full Syracuse 1985 show, the live debut of “Streets of Philadelphia,” plus rare footage from the Ghost of Tom Joad Tour in Tokyo, the release of Working on a Dream, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 27
----
+
 
 Night Four of five for Bruce at The Quiet Knight in Chicago opening for the Persuasions.
 

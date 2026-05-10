@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "“Save My Love” is modern-day nostalgia: a 2010 recording (based on a 1976 rehearsal) about the power of radio in a pre-streaming world. Backstory, insights, and remarkable video inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Save My Love"
----
+
 
 Ever since Bruce released more than twenty years ago, we’ve become used to Bruce rescuing, tweaking, finishing, and releasing outtakes from the vault.
 

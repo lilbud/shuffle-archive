@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Nebraska” is a song of disconnection and alienation. It’s one of Bruce’s most powerful compositions.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Nebraska"
----
 
 When I started this blog, I knew there would be certain songs that would be tough to write about. “Nebraska” is one of them.
 

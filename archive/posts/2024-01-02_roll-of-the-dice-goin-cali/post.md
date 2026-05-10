@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Goin’ Cali” traces Bruce’s journey from east to west, from isolation and frustration to connection and reinvention.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Goin’ Cali"
----
 
 Funny how those dice work.
 

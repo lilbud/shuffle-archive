@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Prepare yourself for the best cover of “Born to Run” ever–Diarrhea Planet’s festival-closing performance (with Harry Kagan on vocals and Ross Holmes on fiddle) is a mic drop performance if ever there was one.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Diarrhea Planet and Harry Kagan: Born to Run"
----
 
 Prepare yourself for the absolute best freaking cover of “Born to Run” ever.
 

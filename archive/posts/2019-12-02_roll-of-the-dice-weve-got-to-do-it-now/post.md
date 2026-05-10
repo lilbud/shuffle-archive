@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “We’ve Got to Do It Now” is a Steel Mill-era anti-war song with co-lead vocals by Bruce and Robbin Thompson. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: We’ve Got to Do It Now"
----
 
 What to say about “We’ve Got to Do It Now…”
 

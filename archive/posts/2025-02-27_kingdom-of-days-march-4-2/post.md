@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce likes to spend March 4th below the Mason-Dixon line, it seems. Check out highlights from Florida, North Carolina and Kentucky from this date in history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 4"
----
 
 *Audio for 1988***New for 2025:**
 

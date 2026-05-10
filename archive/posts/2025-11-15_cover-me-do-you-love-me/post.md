@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A few years before Dirty Dancing catapulted The Contours back onto the charts, Bruce was busting out his own dance moves to the 1962 classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Do You Love Me
----
 
 If you’re destined to be a one-hit wonder, it helps if lightning strikes twice.
 

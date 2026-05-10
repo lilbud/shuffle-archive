@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the 23rd Bridge School Benefit, Chris Martin bravely attempts an acoustic cover of one of Bruce’s hardest-rocking anthems.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Chris Martin: My Love Will Not Let You Down"
----
 
 Flashback to 2009 and the 23rd Bridge School benefit concert, a recurring event that Bruce himself is no stranger to.
 

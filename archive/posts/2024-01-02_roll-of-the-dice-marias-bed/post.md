@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Sister song to “Reno” and cousin to “Further On (Up the Road),” “Maria’s Bed” is a carefree jaunt with surprising depth and hidden poignancy–it’s one of Bruce’s best 21st-century songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Maria’s Bed"
----
 
 In the micro-genre of “Maria’s Bed” looms large.
 

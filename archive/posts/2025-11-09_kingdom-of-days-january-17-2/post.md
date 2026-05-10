@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce joins The Who on stage, plays a “surprise” Light of Day set, and more. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 17
----
 
 For a short time, Bruce led a band called Earth. On this date, the band plays a two-hour show at Le Teendezvous in New Shrewsbury, New Jersey.
 

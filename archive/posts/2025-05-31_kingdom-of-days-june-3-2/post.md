@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The very first performances of “Loose Ends” and “Lion’s Den” lead off the highlights from this date in Springsteen history. Plus: it’s wedding season!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 3"
----
+
 
 *Deleted entry for 1973 (mis-dated); new entry for 1977 and 2024; audio for 1999; review for 2006***New for 2025:**
 

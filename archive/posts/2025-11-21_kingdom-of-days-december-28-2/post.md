@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "“Merry Christmas Baby,” “This Land Is Your Land” and a work-in-progress “Ramrod” all made their live debut on this date. Plus: Bruce joins Mike Ness in the studio, Earth’s biggest show, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 28"
----
+
 
 *No updates***New for 2025:**
 

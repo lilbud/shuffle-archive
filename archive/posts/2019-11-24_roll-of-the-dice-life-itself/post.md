@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Life Itself” bridges the themes of Magic and Working on a Dream–a neat trick in itself.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Life Itself"
----
 
 Little known fact: “Life Itself” was actually released ahead of Bruce’s album, along with the video below. “” (the single) and “” also received the pre-release treatment, and both garnered much more attention than “Life Itself.”
 

@@ -5,6 +5,11 @@ from pathlib import Path
 import httpx
 from user_agent import generate_user_agent
 
+from convert import save_to_archive
+from database import load_db
+
+# from convert import save_to_archive
+
 cookies = {"wordpress_test_cookie": "WP Cookie check"}
 headers = {
     "User-Agent": generate_user_agent(),
@@ -54,6 +59,8 @@ def save_posts(
             with save_path.open("w", encoding="utf-8") as f:
                 json.dump(post, f)
 
+        save_to_archive(post)
+
 
 def get_latest_posts() -> None:
     """Get posts ordered by modified date.
@@ -80,3 +87,22 @@ def get_latest_posts() -> None:
 
             posts = res.json()
             save_posts(posts)
+
+
+if __name__ == "__main__":
+    list = (
+        Path(r"C:\Users\bvw20\Desktop\public_media_export_2026-05-02_143059.csv")
+        .read_text()
+        .split("\n")
+    )
+
+    with load_db() as conn, conn.cursor() as cur:
+        for l in list:
+            if len(l.split(",")) == 2:
+                id = int(l.split(",")[0])
+                url = l.split(",")[1]
+
+                cur.execute(
+                    """insert into media (id, url) values (%s, %s) on conflict (id) do nothing""",
+                    (id, url),
+                )

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Here’s a look at an early home demo of a song that never made it to the studio. There aren’t any lyrics to speak of, but Bruce was pretty far along with the music.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Love is a Gun"
----
 
 Here’s a work in progress that (as far as I can tell, at least) never ended up as a finished song in whole or in part.
 

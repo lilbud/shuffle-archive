@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The E Street Band returns at an emotional opener to the Wrecking Ball tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Atlanta, March 18, 2012"
----
 
 If you’re one of those fans who goes to concerts for the classics and makes a beer run during the new songs, don’t go to the first night of a tour.
 

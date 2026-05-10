@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Human Rights Now! Tour kicks off, Bruce and Bob Seger meet for the first time, Bruce and the E Street Band help inaugurate the Rock and Roll Hall of Fame, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 2"
----
 
 *New entry for 1977 and 1979***New for 2025:**
 

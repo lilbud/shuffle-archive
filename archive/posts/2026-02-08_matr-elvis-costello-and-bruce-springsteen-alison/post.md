@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Elvis Costello on his timeless “Alison” during Elvis’ surprise appearance at Bruce’s 2001 holiday shows,
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Alison
----
+
 
 “I’ve always told people that I wrote the song ‘Alison’ after seeing a beautiful checkout girl at the local supermarket. She had a face for which a ship might have once been named. Scoundrels might once have fought mist-swathed duels to defend her honour. Now she was punching in the prices on cans of beans at a cash register and looking as if all the hopes and dreams of her youth were draining away.” — Elvis Costello, *Unfaithful Music & Disappearing Ink*
 

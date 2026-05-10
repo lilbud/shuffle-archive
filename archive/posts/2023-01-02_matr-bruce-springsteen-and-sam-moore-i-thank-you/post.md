@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Soul legend Sam Moore made nightly appearances at Bruce’s 2003 holiday shows–each one was a delight, but none more than this Sam and Bruce team-up on “I Thank You.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Sam Moore: I Thank You"
----
 
 Bruce’s team-ups are always fun, but this one’s an absolute delight.
 

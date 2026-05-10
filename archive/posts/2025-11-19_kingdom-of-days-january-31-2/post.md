@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Rare performances of lost classics in amazing clarity, a benefit team-up with Jon Bon Jovi, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 31
----
 
 Bruce and the band eventually known as E Street open a six-night, two-shows-nightly stand at Max’s Kansas City in New York City, opening for Biff Rose. Several tracks from this show are professionally recorded for use on The King Biscuit Flower Hour, but only “” will be aired. That “Bishop Danced” recording, however, will see the light of day again 25 years later, when it is released on .
 

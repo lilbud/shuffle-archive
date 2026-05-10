@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From deep in the vaults comes one of the oldest recorded Springsteen covers, unreleased until 1995 and featuring a blink-and-you’ll-miss-it David Bowie cameo.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "The Astronettes: Spirit in the Night"
----
 
 One of the very first covers of a Bruce Springsteen song went unreleased for more than twenty years after it was recorded. And while you may not know the band that recorded it, you certainly know the producer who masterminded it.
 

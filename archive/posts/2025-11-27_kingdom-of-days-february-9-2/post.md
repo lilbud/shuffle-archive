@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Watch highlights from Bruce’s last show in Sydney. Off-stage, a fourteen-year old Bruce watches the Beatles live debut on American TV. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 9
----
+
 
 Bruce watches The Beatles make their live American debut on The Ed Sullivan Show. Bruce is inspired, galvanized, and dedicates himself to learning music and playing his guitar.
 

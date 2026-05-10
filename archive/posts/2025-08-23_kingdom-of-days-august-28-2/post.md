@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The full-band debut of “Soul Driver,” an “Independence Day” train wreck, the premiere of “Proud Mary” and “Plane Wreck at Los Gatos (Deportee),” and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 28"
----
 
 *Audio for 1981***New for 2025:**
 

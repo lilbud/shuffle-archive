@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Sister song to “Unsatisfied Heart,” “Fugitive’s Dream” is a fully-realized Born in the U.S.A. outtake that would have been right at home on Nebraska.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Fugitive’s Dream (Ballad)
----
 
 In early 1983, Bruce was hard at work on the album that would become 
 

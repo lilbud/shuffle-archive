@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Many Rivers to Cross” may not be Bruce’s most well-known Jimmy Cliff cover, but it may be his most faithful.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Many Rivers to Cross"
----
 
 We know Bruce is a Jimmy Cliff fan–his cover of Jimmy’s “” has been a fan favorite since its debut.
 

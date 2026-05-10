@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: For at least a moment, for at least a song, Bruce settles his inner struggle between building and burning.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Leah"
----
 
 Duality: it’s one of many recurring themes in Bruce’s catalog.
 

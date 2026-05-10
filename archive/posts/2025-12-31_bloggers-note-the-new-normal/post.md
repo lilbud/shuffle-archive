@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A little note to explain the new posting schedule. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Preface
----
 
 For the most part, I made it through years of daily blogging without confronting my earlier writing. But curating these volumes requires revisiting everything I’ve written since 2018.
 

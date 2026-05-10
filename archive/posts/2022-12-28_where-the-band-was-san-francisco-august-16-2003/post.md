@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Sometimes the journey is better than the destination, and sometimes the wait is even better than the show.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: San Francisco, August 16, 2003"
----
 
 Some shows stand out more for the setting than the show, and this was one of them.
 

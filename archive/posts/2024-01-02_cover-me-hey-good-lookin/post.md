@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s one and only cover of “Hey, Good Lookin'” was a bit of a hot mess, but that’s its charm. Take a listen inside. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Hey, Good Lookin’"
----
 
 By now, we shouldn’t be surprised at the range of covers Bruce Springsteen is prone to playing in concert.
 

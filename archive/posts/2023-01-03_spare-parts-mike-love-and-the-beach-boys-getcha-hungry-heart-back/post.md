@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Beach Boys’ 1985 single was an even better “Hungry Heart” cover than Mike Love’s direct attempt, and they make for a terrific mash-up.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Spare Parts: Mike Love and The Beach Boys: Getcha Hungry Heart Back"
----
 
 When The Beach Boys released “Getcha Back” in 1985, more than a few people noticed that the catchy single sounded more than a little like an earlier hit single from the biggest rock star in the world.
 

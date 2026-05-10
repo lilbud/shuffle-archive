@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of Bruce’s perfect pop songs is hidden away on Gary U.S. Bonds’ 1982 album, On the Line.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "RotD/Cover Me, Gary U.S. Bonds: Hold On (To What You Got)"
----
 
 Truthfully, I don’t know how to classify this one.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: At Stand Up for Heroes in 2019, Bruce made a surprise appearance with Sheryl Crow to perform one of her earliest songs.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Redemption Day
----
+
 
 In March 1995, singer-songwriter Sheryl Crow accompanied First Lady Hillary Clinton to war-torn Bosnia. Crow was relatively new to the popular music scene at the time, her debut album less than two years old. But the album was a hit, and it earned her an invitation to tour with the USO.
 

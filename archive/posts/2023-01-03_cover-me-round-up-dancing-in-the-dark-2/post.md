@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Five great, fresh takes on Bruce Springsteen’s greatest hit.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me Round-Up: Dancing in the Dark (#2)"
----
 
 Welcome to the third installment of our series, spotlighting Springsteen songs covered too frequently to keep up with unless I spotlight them in batches.
 

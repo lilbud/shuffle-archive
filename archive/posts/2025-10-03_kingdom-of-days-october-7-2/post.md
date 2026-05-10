@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce debuted (and re-debuted, and re-debuted) “You Can Look (But You Better Not Touch)” on this date. Plus: Bruce recalls his first-ever show in Africa, is interviewed on-stage at The New Yorker Festival, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 7"
----
+
 
 *No updates***New for 2025:**
 

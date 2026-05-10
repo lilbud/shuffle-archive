@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce covered Nanci Griffith’s gorgeous ballad at a 1988 soundcheck in New York City.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Gulf Coast Highway"
----
 
 In February 1988, just prior to the kickoff of Bruce’s Tunnel of Love Express Tour, Nanci Griffith released her sixth studio album, 
 

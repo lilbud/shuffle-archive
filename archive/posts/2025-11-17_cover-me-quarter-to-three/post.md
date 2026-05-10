@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: How a 1960 instrumental led to one of Bruce Springsteen’s most exciting on-stage covers.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Quarter to Three
----
 
 “Man, when I’d wake up in the middle of the night, I’d put that record on and drive everybody in the house fucking . I’d just wake up and slam that thing on, man, and turn it on 10, and ‘” *nuts**shit!**–Bruce Springsteen, October 29, 1976*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce announces the reunion of the E Street Band! Plus: Watch Bruce improv a new “song” when nature calls during a show, catch two holiday shows, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 8"
----
+
 
 *Audio for 1974; review for 1978; video for 2002***New for 2025:**
 

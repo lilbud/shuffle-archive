@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Watch a great pro-shot video of Bruce covering Chuck Berry’s classic 20 years after its release.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Sweet Little Sixteen"
----
 
 “Sweet Little Sixteen” was one of Chuck Berry’s greatest hits, peaking at #2 on the Billboard Hot 100 chart. It also served as the music for another of rock’s most influential songs, “”
 

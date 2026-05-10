@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Mary G’s version of “Further On (Up the Road)” is a cover of a cover, but it stands on its own as a fresh, wonderful take on Bruce’s song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Mary G: Further On (Up the Road)"
----
 
 In general, I don’t buy into the whole “cover of a cover” thing.
 

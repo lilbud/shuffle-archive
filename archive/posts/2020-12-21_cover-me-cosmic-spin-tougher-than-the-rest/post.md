@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Hot off the presses, Cosmic Spin brings their trademark harmonies and guitar grooves to Bruce’s “Tougher Than the Rest” — and the result is fantastic. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Cosmic Spin: Tougher Than the Rest"
----
 
 I’m digging Cosmic Spin at the moment. Their EP is well worth seeking out for their gorgeous harmonies, deep grooves, and fantastic cover arrangements of Fleetwood Mac, Neil Young, and other great artists.
 

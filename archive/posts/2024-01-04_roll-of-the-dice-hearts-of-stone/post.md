@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Whether in its original Southside Johnny incarnation or its more modern Tracks version, “Hearts of Stone” offers some of Bruce’s most brutally, emotionally honest songwriting.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Hearts of Stone"
----
 
 “Hearts of Stone” is a hard song to write about.
 

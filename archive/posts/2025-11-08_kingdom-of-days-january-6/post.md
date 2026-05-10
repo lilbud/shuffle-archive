@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Seven-year-old Bruce stays up late to watch Elvis, gorgeous soundboard recordings from a 1974 show and rehearsal, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 6
----
+
 
 : As he will recount decades later in , seven-year-old Bruce Springsteen stays up late to watch Elvis Presley perform on the Ed Sullivan show.
 

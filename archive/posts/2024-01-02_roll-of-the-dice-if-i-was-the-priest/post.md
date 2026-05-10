@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the very earliest demos Bruce ever recorded, “If I Was the Priest” may have been the song that sealed the deal with John Hammond and launched Bruce on his way to stardom.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: If I Was the Priest"
----
 
 Well, the first sentence of my original essay sure did age well. As of a few minutes ago, we finally have an officially released version of “If I Was the Priest,” and an E Street Band version to boot. I’m going to let my original essay stand unedited–I think the lyrical analysis holds up (the differences between the original and modern versions are minor), and while the tremendous E Street Band performance deserves some discussion (as well as Bruce’s vocals–he’s in full Dylan mode), I’ll save that for another day. For now, it’s enough to just rejoice in a terrific song finally realized fifty years after Bruce first played it.
 

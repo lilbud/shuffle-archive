@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce records the videos for “Vigilante Man” and “I Ain’t Got No Home,” but the real highlights for this date are the only known Darkness-era performances of three tracks from The Promise.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 19"
----
 
 *New entry for 1975***New for 2025:**
 

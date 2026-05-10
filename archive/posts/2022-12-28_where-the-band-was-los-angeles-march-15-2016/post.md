@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A fantastic opener to a sizzling three-night stand that sent off the L.A. Sports Arena off to meet the Wrecking Ball in style.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Los Angeles, March 15, 2016"
----
 
 It can be a bit hard to focus on a concert when Rocky Balboa is rocking out in front of you. But that’s the risk when you catch a show in L.A., where the stars mix right in with the hoi polloi. (And yes, that’s Stallone actually taking photos of the crowd (you can see my arm circled), who were chanting “Rocky! Rocky! Rocky!” before the show, to which Sly mugged and waved and generally ate it up. It was charming.)
 

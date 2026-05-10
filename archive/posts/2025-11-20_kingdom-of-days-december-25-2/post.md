@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce unwrapped his very first electric guitar on this date in 1964–truly the gift that keeps on giving. Merry Christmas!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 25"
----
 
 *No updates***New for 2025:**
 

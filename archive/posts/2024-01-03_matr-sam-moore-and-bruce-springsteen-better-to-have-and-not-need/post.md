@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Sam Moore lent his vocal talents to Bruce’s 1992 Human Touch album; fourteen years later, Bruce returned the favor.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Sam Moore and Bruce Springsteen: Better to Have and Not Need"
----
 
 You could say Bruce Springsteen owed Sam Moore a favor.
 

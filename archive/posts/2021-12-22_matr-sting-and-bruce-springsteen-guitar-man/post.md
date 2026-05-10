@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Sting for a rocking cover of Jerry Reed’s and Elvis Presley’s 1967 single.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Sting and Bruce Springsteen: Guitar Man"
----
+
 
 Looks like the dice turned up an Elvis double-shot! Yesterday we heard Bruce cover Elvis’ breakthrough smash hit; today’s entry is a bit more obscure.
 

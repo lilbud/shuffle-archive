@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: How an outcast from the Born in the U.S.A. sessions became the song that ushered in the E Street Band’s Reunion era.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Murder Incorporated"
----
 
 “There’s a body count incorporated into our way of life. We’ve come to accept the expendability of some of our citizens’ lives and dreams as just a part of the price of doing business.” *–Bruce Springsteen, December 17, 1995*
 

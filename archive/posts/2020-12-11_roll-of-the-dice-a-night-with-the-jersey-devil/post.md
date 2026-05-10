@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A curiosity of a song with an unusual release history. “A Night with the Jersey Devil” is an exercise in clever misdirection, and a sly wink from Bruce.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: A Night with the Jersey Devil"
----
 
 [https://www.youtube.com/embed/l6leNRGhOqA?feature=oembed](https://www.youtube.com/embed/l6leNRGhOqA?feature=oembed)
 

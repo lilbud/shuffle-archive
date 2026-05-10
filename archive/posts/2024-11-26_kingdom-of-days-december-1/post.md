@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce guest stars with Bob Seger, serves as temporary front-man for U2, joins Robert Gordon in the studio and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 1"
----
+
 
 *Video for 2011***New for 2024:**
 

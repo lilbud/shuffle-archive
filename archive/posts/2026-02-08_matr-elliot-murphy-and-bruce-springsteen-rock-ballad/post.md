@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce invites Elliott Murphy on stage for an acoustic duet of Elliott’s 1977 “Rock Ballad.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Rock Ballad
----
+
 
 On January 31, 1974, reviewed Bruce Springsteen’s latest album, The headline on the page read, “He’s the Best Dylan Since 1968.”
 

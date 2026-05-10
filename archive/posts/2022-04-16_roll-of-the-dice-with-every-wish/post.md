@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "“With Every Wish” by Bruce Springsteen: a cautionary tale about caution.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: With Every Wish"
----
+
 
 A deep cut from an underrated album, “With Every Wish” escaped my understanding when it debuted on the album in 1992.
 

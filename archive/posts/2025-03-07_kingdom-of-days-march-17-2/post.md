@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: Guest appearances with Joe Ely, Warren Zevon, Richard Davis, and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 17"
----
+
 
 *New entry for 1975 and 2024***New for 2025:**
 

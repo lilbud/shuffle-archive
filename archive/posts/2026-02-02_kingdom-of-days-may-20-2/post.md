@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Watch Bruce and his new band rehearse for their 1992 tour, and then listen to Joe Ely and Jerry Lee Lewis join them on stage a year later. These and more highlights from this date inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 20
----
 
 The River Tour continues its almost month-long U.K. leg with a show at waterlogged New Bingley Hall in Stafford.
 

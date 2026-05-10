@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From November 2019, Barney Bentall and the Cariboo Express gift us with their superb cover of Bruce’s instant classic, “Moonlight Motel.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Barney Bentall and the Cariboo Express: Moonlight Motel"
----
 
 Barney Bentall may not be a familiar name outside of his native Canada, but he’s certainly well-known there.
 

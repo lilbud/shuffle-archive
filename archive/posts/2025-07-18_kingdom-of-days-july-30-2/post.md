@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce releases The Rising, his first E Street Band album in 18 years. Watch the day’s festivities inside. Plus: the premiere of “All the Way Home” in 1992, reggae versions of “Born in the U.S.A.” and “My Hometown,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 30"
----
+
 
 *No updates***New for 2025:**
 

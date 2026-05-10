@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Highlights from Halloween shows across the years, plus: the release of “A Night with the Jersey Devil.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 31"
----
+
 
 *New entry for 2024***New for 2025:**
 

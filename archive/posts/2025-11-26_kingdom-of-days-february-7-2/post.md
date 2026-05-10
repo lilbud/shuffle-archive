@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: Not one, not two, but *three* Australian shows, the “Lawsuit Tour” opener, and no respect in Atlanta for “Bruce Silversteen.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 7
----
+
 
 Bruce and the band open for NRBQ at Richards in Atlanta. The club accidentally promotes him as “Bruce Silversteen.”
 

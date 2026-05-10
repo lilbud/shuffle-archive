@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce plays with Pete Seeger for the first time, holds a rehearsal show for the Magic Tour, and gives a Philly schoolboy a great absence note.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 29"
----
 
 *New entry for 1977 and 1987***New for 2025:**
 

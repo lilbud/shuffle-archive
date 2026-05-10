@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Phantom Dan earns his nickname, Bruce and the band kick off a six-night stand at the Philadelphia Spectrum, Bruce plays his first 9/11 show since the tragic attacks, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 11"
----
+
 
 *New entry for 1972***New for 2025:**
 

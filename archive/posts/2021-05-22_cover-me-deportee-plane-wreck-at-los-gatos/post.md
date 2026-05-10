@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The true story of the tragic plane crash that inspired a popular protest song and one of Bruce Springsteen’s least-heard officially-released covers.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Deportee (Plane Wreck at Los Gatos)"
----
 
 On January 28, 1948, a DC-3 charter plane with seating for 26 passengers took off from Oakland with 32 people aboard–almost all of whom were Mexican citizens being deported from the United States.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The E Street Band finally gets an official recording credit in 1977 when Steve Van Zandt recruits them to back Ronnie Spector in the studio. Listen to Ronnie and the band cover Billy Joel’s “Say Goodbye to Hollywood.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Ronnie Spector and The E Street Band, Say Goodbye to Hollywood"
----
 
 Call it a meeting of the Mutual Admiration Society.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: The Bruce Springsteen Band plays a slight love song that might be a musical ancestor of “Kitty’s Back.” 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Love Is a Crazy Thing"
----
+
 
 Towards the tail end of the sparsely-documented Bruce Springsteen Band era, Bruce introduced a song known as “Love Is a Crazy Thing.”
 

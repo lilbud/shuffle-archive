@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce led an all-star line-up at the 2003 Grammy Awards to pay tribute to the late, great Joe Strummer.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen, Elvis Costello, Steve Van Zandt &amp; Dave Grohl: London Calling"
----
 
 At the Grammy Awards in 2003, Bruce paid tribute to the recently departed Joe Strummer by teaming up with Steve Van Zandt, Elvis Costello and Dave Grohl to cover The Clash’s classic “London Calling.”
 

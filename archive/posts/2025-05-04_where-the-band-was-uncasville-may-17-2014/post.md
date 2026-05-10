@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce gifted us with the most jaw-droppingly unpredictable show I’d ever seen as the High Hopes Tour started its last stand.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Uncasville, May 17, 2014"
----
 
 The problem with seeing a lot of Bruce Springsteen shows is that you tend to run out of superlatives after a while. So for this show at the Mohegan Sun Cas
 

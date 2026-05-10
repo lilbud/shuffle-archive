@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: What do you do when you need a break from rehearsing the intense setlist for the Darkness Tour? You cover the novelty song of the summer.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: King Tut"
----
 
 In 1978, if you weren’t out on a Saturday night, you were more than likely at home watching the 43-year old TV mainstay has never been more popular than it was during the last two seasons of the 1970s.
 

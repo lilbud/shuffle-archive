@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the Chicken Scratch Tour kicks off, the Lawsuit Tour winds down, and Bruce performs at the Oscars. More highlights inside. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 25
----
+
 
 The Chicken Scratch Tour kicks off with a show at the Township Auditorium in Columbia, South Carolina–Bruce’s first time performing in the state.
 

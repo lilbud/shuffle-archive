@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Twice only: Bruce joins Southside Johnny on the Little Steven-penned 1991 rave-up, “I’ve Been Working Too Hard.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Southside Johnny and Bruce Springsteen, I’ve Been Working Too Hard"
----
+
 
 Don’t call it a comeback album (because he was never gone), and don’t you dare call it a return to form.
 

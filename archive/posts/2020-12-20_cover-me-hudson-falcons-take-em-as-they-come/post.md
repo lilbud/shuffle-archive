@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: New Jersey legends The Hudson Falcons unleash the inner punk in Bruce’s 1980 power pop outtake.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Hudson Falcons: Take ‘Em as They Come"
----
 
 Take Bruce’s 1980 power pop outtake, pass directly through garage rock, and stop just an inch shy of punk, and what do you get?
 

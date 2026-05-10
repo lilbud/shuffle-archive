@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: First meetings with Clarence, Jackson Browne, and Bonnie Raitt; guest appearances with Sting, Jackson, Southside, and The Wallflowers; and a new album from Patti.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 4"
----
 
 *Review for 1984***New for 2025:**
 

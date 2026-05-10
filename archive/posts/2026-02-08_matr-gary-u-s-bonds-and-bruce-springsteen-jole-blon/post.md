@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Originally meant for The River before Bruce and the band leant their talents to Gary U.S. Bonds’ comeback album, “Jole Blon” still (sort of) qualifies as Bruce’s first officially released cover.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Jole Blon
----
 
 “Jole Blon” has been a fan favorite since Bruce first covered it during the River Tour, although these days it makes far fewer appearances.
 

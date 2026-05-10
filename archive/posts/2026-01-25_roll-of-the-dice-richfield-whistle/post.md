@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A year after recording “James Lincoln Deere,” Bruce revisits his anti-hero and crafts a much strong and grayer tale.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Richfield Whistle
----
 
 Let’s pick up the story.
 

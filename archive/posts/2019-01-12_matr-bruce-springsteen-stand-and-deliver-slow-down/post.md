@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce covers Larry Williams’ influential “Slow Down” with a cover band at the Classics Cafe in Westwood, New Jersey.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen &amp; Stand and Deliver, Slow Down"
----
+
 
 Larry Williams released “Slow Down” in 1958, and its influence exceeded its initial popularity.
 

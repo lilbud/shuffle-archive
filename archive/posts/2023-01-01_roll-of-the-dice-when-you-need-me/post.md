@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “When You Need Me” was one of the first songs Bruce recorded for Tunnel of Love, but given the direction of the final album, this pop trifle never stood a chance. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: When You Need Me"
----
 
 Ask a fan or a critic about Bruce Springsteen’s album, and odds are pretty good you’ll hear the term “divorce album.”
 

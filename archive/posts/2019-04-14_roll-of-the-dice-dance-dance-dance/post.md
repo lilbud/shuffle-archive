@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Dance, Dance, Dance” is a delightfully atypical, funky, horn-fueled, unreleased delight from 1971.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Dance, Dance, Dance"
----
 
 Today’s roll of the dice is undeservedly obscure.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce films one of his very best videos, and Barack Obama takes in Springsteen on Broadway. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 3"
----
+
 
 *Review for 1988 and 1996***New for 2025:**
 

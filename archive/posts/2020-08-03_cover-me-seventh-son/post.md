@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Honoring a young fan’s request (or perhaps his parents’), Bruce and the E Street Band delivered a crowd-pleasing cover of Johnny Rivers’ 1965 hit.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Seventh Son"
----
+
 
 When the Working on a Dream Tour stopped in Greensboro, Bruce honored a sign request from a young boy who, I suspect, had a little bit of prompting from his parents.
 

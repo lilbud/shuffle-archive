@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce kicks off August with a bang: from the debut of the Miami Horns, the first-ever performances of “Something in the Night,” “Two for the Road,” “Rendezvous,” and “Trouble River,” a Letterman appearance, bar gigs and more–this date in history is jam-packed! (And yet Bruce still finds time to take in a ballgame…)
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 1"
----
+
 
 *New entry for 1974 and 1977; audio for 1976***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Backed by a full choir, in the presence of the President and First Lady, Sting paid tribute to his good friend at the 2009 Kennedy Center Honors.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Sting: The Rising"
----
 
 In 2009, the Kennedy Center Honors recognized Bruce for his lasting impact on and contributions to American culture through the arts. The president and first lady were present, seated directly next to Bruce while a star-studded line-up paid tribute by performing Bruce’s music.
 

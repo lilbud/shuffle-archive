@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “If I Should Fall Behind” is an enduring favorite that continuously grows, changes, and evolves like the best and strongest of relationships.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: If I Should Fall Behind"
----
 
 (
 

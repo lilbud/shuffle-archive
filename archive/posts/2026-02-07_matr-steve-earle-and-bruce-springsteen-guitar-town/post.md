@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: In 1998, Bruce joined Steve Earle on the song he inspired fourteen years earlier.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Guitar Town
----
+
 
 “A friend of mine bought me a ticket to see Bruce Springsteen and the E Street Band at Murphy Center in Murfreesboro, Tennessee on the Born in the U.S.A. Tour. We went out there, and Bruce walked out that night and sang ‘Born in the U.S.A.’ right out of the box. Three hours and fifteen minutes later, I walked out into the Tennessee night, and I knew exactly what to do. I went home and wrote ‘Guitar Town.'” — *Steve Earle, December 4, 2016*
 

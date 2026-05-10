@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Jesse Malin and friends gave us a lovely cover of one Bruce’s lighter tracks, from Light of Day 2017.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Jesse Malin: Janey, Don’t You Lose Heart"
----
 
 Here’s a lovely cover of one of my favorite songs from 
 

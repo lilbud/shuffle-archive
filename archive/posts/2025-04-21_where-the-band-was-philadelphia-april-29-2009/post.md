@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Night Two in Philadelphia finishes as strong as it opened, with rarities and wild cards abounding. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Philadelphia, April 29, 2009"
----
 
 It’s a rule that Night Two of a two-night stand is always better than . Bruce tends to play it safe on the opening night and let loose on the last night.
 

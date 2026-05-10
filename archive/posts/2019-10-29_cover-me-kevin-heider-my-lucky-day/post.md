@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An obscure Springsteen song, a beautiful acoustic arrangement, and toddlers on a slide. That’s a pretty tough combo to beat. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Kevin Heider: My Lucky Day"
----
 
 Singer-songwriter Kevin Heider has a brand-new Springsteen tribute album out.
 

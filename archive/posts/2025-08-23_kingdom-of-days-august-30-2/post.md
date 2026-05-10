@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce headlines the Harley Davidson Festival in Milwaukee and blows minds with a setlist for the ages in New Jersey, but it’s his surprise appearance with Southside Johnny at The Agora in Cleveland that wins the date.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 30"
----
 
 *New entry for 1977; video for 2023***New for 2025:**
 

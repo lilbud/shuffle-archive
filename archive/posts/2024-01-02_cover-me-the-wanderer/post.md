@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce played Dion’s “The Wanderer” three times with its original artist, long before he took a run at it with the E Street Band. Watch and listen to great performances across three decades.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: The Wanderer"
----
 
 “‘The Wanderer’ is really a sad song. A lot of guys don’t understand that. Bruce Springsteen was the only guy who accurately expressed what that song was about. It’s “I roam from town to town and go through life without a care, I’m as happy as a clown with my two fists of iron, but I’m going nowhere.” In the Fifties, you didn’t get that dark. It sounds like a lot of fun but it’s about going nowhere.” — Dion DiMucci
 

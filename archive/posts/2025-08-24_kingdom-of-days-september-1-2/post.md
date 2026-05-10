@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce plays “Chimes of Freedom” for the first time, records a live performance for Clarence’s future album, has a chance encounter with a Boston street musician and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 1"
----
+
 
 *New entry for 1977 and 1988; audio for 1999***New for 2025:**
 

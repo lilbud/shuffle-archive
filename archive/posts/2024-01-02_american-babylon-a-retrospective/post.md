@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: On the 25th anniversary of American Babylon, Joe Grushecky and I take a look back at the making and meaning of Joe’s landmark album and his decades-long friendship with producer, co-writer, and collaborator Bruce Springsteen.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "American Babylon: A Retrospective"
----
 
 Editor's Note
 

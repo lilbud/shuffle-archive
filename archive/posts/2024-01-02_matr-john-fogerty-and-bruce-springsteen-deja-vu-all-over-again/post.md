@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When America found itself enmeshed in an unpopular foreign war (again), John Fogerty met the moment. On the Vote For Change Tour, the E Street Band backed Fogerty each night for his comeback track.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: John Fogerty and Bruce Springsteen: Deja Vu (All Over Again)"
----
 
 “If you’re in my generation and if you grew up in any part of the alternative culture, [activism] was just a part of your birthright… that came as part of those times. [T]he people who we admired and emulated–which for me obviously begins with Dylan–had a very clear political voice. John [Fogerty] did it more subtly, but fabulously also.” *–Bruce Springsteen to Christopher Phillips, Backstreets, February 10, 2009*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce Springsteen found the soul of Woody Guthrie’s signature song and helped millions of Americans hear its true message for the first time.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: This Land Is Your Land"
----
 
 Four years ago, I found myself in an unusual situation. It was a cold winter day, and I was standing alongside of Pete Seeger… He’s ninety years old, a living embodiment of Woody’s legacy. And there were several hundred thousand of our fellow citizens in front of us. We had the Lincoln Memorial behind us and a newly-elected president to our right. We were going to sing, “This Land is Your Land” in front of all these Americans. And Pete insisted, “We have to sing all the verses! We have to sing all the verses, man, you can’t leave any of them out.” I said, I don’t know, Pete… He says, “No. We’re all gonna sing all the verses. All the verses.” So we got to it.  *–Bruce Springsteen, March 15, 2012*
 

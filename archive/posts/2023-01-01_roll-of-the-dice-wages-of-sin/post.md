@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Dark, brooding, and haunting, “Wages of Sin” is one of Bruce’s bleakest and finest outtakes. Backstory, evolution, analysis, and one gorgeous performance inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Wages of Sin"
----
 
 I don’t know exactly why this 1982 outtake fascinates me so much. Bruce mined similar earth to more humorous effect both earlier (““) and later (““); he’d write more probing and insightful relationship songs on a few years later.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "It’s one of Bruce’s best songs, and it arose from a simple question: And then what?
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Racing in the Street"
----
+
 
 “Oh yeah, life goes on long after the thrill of living is gone.” *–John Mellencamp*
 

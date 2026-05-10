@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce meets Patti, kicks off the Wrecking Ball tour, makes a guest appearance with Dropkick Murphys, plays the first public gig with the reunited E Street Band, and more on this VERY busy day in Bruce history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 18
----
 
 The Castiles play The Cage in Middletown, New Jersey.
 

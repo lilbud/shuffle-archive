@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen paid tribute to the recently departed George Harrison by performing Harrison’s greatest hit at Bruce’s first 2001 holiday show.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: My Sweet Lord"
----
+
 
 George Harrison passed away just a week after Thanksgiving in 2001, so when Bruce kicked off his first holiday show of the year a few days later in Asbury Park, before delving into seasonal favorites he started with a pair of tributes to the late, great musician.
 

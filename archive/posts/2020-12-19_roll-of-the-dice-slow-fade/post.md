@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Still missing in action after all these years: whatever happened to the smoking E Street Band song known only as “Slow Fade” from bootleg rehearsal tapes? Take a listen to this remarkable track inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Slow Fade"
----
+
 
 Friend of the blog Mike Nichols has unbelievably sharp hearing. He cracked the case: “Slow Fade” appears to be an early version of “,” because those are the lyrics we hear at a distance. We already know that Bruce experimented with alternative melodies for “Point Blank;” this appears to be one of them. (Or at the very least, it’s Bruce working on an instrumental track using “Point Blank” lyrics as a place holder.) Great detective work, Mike!
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce films the video for “Glory Days,” makes a guest appearance with Robert Gordon, plays the last “The Price You Pay” for almost 30 years, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 27
----
+
 
 Bruce and the E Street Band play for the U.S. Military Academy at West Point.
 

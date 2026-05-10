@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: We now have an Album-by-Album Index for the Roll of the Dice series! Check it out and see if we’ve covered your favorite song yet.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Ghostbusters
----
 
 Lindsey Buckingham passed on it. So did Kenny Loggins and Huey Lewis.
 

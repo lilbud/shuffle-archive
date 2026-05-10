@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: My last show of 2012 was a nice Wrecking Ball capstone, with lots of small but satisfying surprises.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Portland, November 28, 2012"
----
 
 I knew going in that this was my last show of the year, and possibly the tour. (I’d have one more chance to catch the Wrecking Ball Tour in Spain the following June, but I didn’t know that then.)
 

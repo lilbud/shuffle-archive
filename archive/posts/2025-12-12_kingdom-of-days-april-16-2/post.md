@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Quite the grab bag of highlights today: a guest appearance by Mike Ness, a gorgeous acoustic “Point Blank,” the premiere of “Pilgrim in the Temple of Love,” and a Bruce concert gets panned by two critics in the same paper. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 16
----
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G1-1-scaled.jpg?resize=758%2C1084&amp;ssl=1)
 

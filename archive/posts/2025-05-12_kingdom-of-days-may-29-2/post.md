@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the live premiere of “Trapped” and guest appearances with Bono, Dropkick Murphys, the Rolling Stones, and… Stephen King? (Yep, and Dave Barry, Amy Tan, Matt Groening and more–this one needs to be seen to be believed.)
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 29"
----
+
 
 *New entry for 1979; video for 2016***New for 2025:**
 

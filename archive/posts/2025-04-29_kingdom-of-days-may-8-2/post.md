@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The live premiere of “Wages of Sin” and the last performance of “Run Through the Jungle.” Plus: Bruce returns to the Hammersmith Odeon after more than 30 years. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 8"
----
+
 
 *New entry for 1975; video for 2000; audio for 2000 and 2003***New for 2025:**
 

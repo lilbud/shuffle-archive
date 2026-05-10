@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Nightly during Bruce’s 2003 holiday show stand in Asbury Park, Bruce and Garland Jeffreys lifted the show with a team-up on Garland’s 1981 anthem.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Garland Jeffreys and Bruce Springsteen, R.O.C.K."
----
 
 We can hear the E Street connection in Garland Jeffreys’ “R.O.C.K.” from its very first notes–that’s Roy Bittan featured prominently on piano throughout.
 

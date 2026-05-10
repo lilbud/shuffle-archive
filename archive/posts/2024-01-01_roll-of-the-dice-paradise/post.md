@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Paradise” is one of Bruce Springsteen’s loveliest, most nuanced, and most challenging songs. Let’s break it down.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Paradise"
----
 
 Well. “Paradise” is quite the contrast to last week’s “” installment: where LOHAD is jubilant and optimistic, “Paradise” is quiet and fatalistic. LOHAD features more musicians than I can easily count or discern; “Paradise” features Bruce, and only Bruce. (He plays guitar, keyboard and percussion on this track, although Patti Scialfa’s backing vocals can be heard for a few brief monents.) Left to my own devices, I’d have saved “Paradise” for a later installment at a more somber time, but the dice have spoken, so into the breach we go.
 

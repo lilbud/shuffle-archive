@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A Labor Day special, courtesy of Canadian singer-songwriter Melissa McClellan’s rocking arrangement of “Factory.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Melissa McClelland: Factory"
----
 
 A Labor Day special today, courtesy of Canadian singer-songwriter Melissa McClelland.
 

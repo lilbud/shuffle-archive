@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Atlantic City” ranks high among Bruce’s best songwriting accomplishments. Rooted deeply in time and place, it tells of the hope of resurrection that never quite pans out.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Atlantic City"
----
 
 **Everything dies, baby, that’s a fact.**
 But maybe everything that dies someday comes back.*  

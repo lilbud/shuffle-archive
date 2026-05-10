@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Great E Street Band footage from 1975, a guest appearance with Steve Earle from 1998, a James Taylor cover from 2006, and a tribute to Bob Dylan in 2015–all from this date in Bruce Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 6
----
 
 The Bruce Springsteen Band plays their third of nine shows this month at The Back Door in Richmond, Virginia.
 

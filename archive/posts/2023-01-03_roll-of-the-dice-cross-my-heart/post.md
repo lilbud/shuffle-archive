@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Beneath its prurient lyrics, there’s surprising substance to Bruce’s nuanced updating of Sonny Boy Williamson’s classic blues song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Cross My Heart"
----
 
 “” is generally considered to be Bruce’s first officially released song featuring cunnilingus, but it’s actually his second. He slipped “Cross My Heart” past fans with very little notice.
 

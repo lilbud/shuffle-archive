@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Steve Earle for a faithful cover of The Rolling Stones’ country rock classic, “Dead Flowers.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Steve Earle and Bruce Springsteen: Dead Flowers"
----
+
 
 “Dead Flowers” is as close as The Rolling Stones ever got to country music.
 

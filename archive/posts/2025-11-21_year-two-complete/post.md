@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: We’re two years old! Thanks for joining–I hope you stick around for year three!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Introduction
----
 
 was never supposed to be a book, let alone a twelve-volume series.
 

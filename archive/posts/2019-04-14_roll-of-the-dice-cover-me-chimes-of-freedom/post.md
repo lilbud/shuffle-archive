@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When Bruce announced his participation in the Amnesty International Human Rights Now! Tour in 1988, his re-arrangement and performance of this Bob Dylan classic became the title track of an EP released the following month.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice/Cover Me: Chimes of Freedom"
----
 
 On July 3, 1988, during a worldwide radio broadcast of his Tunnel of Love show in Stockholm, Bruce announced his participation in an upcoming super-star tour under the aegis of Amnesty International.
 

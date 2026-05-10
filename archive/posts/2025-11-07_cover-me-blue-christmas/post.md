@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "This perennial holiday classic holds special meaning for E Street Nation: it’s the last song Clarence Clemons ever performed with the E Street Band.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Blue Christmas
----
+
 
 “Blue Christmas” has special meaning for E Street Nation.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This lonely River-era acoustic outtake never made it past the home demo stage, but with Bruce’s warm melody and vocals it demonstrated a lot of promise. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Walking on the Avenue"
----
 
 How prolific was Bruce Springsteen during the period between and ?
 

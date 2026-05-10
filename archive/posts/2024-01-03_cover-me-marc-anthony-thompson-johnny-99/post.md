@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Wondering how the founder of Chocolate Genius ended up in the Sessions Band? Listen to this cover and wonder no longer.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Marc Anthony Thompson: Johnny 99"
----
 
 I discovered Marc Anthony Thompson around the same time that Bruce Springsteen did: at the New York Guitar Festival’s tribute concert in January 2006.
 

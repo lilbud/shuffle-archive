@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Prove It All Night” is the heart of Darkness, rock’s most ferocious wedding song, and the closest thing to an E Street mission statement.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Prove it All Night"
----
 
 “‘Some of the New York taxi cab drivers, they got a running monologue that they keep going whether somebody’s in there or not… I get in with this cat, and he was complaining about how it seems you gotta prove it all night to your boss, then you gotta go home and prove it to your wife and kids, and it seems like it never stops… you know there’s a big philosophy there.” *–Bruce Springsteen, August 22, 1978*
 

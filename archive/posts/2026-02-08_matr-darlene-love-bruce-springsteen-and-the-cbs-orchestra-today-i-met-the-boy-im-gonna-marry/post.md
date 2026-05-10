@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joined Darlene Love at her Rock and Roll Hall of Fame induction, teaming up on “Today I Met the Boy I’m Gonna Marry.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Today I Met the Boy I’m Gonna Marry
----
+
 
 In 2011, Darlene Love was inducted into the Rock and Roll Hall of Fame. Bruce joined Darlene and the house band on stage at the induction ceremony for three of her songs, including her 1963 hit, “Today I Met the Boy I’m Gonna Marry.”
 

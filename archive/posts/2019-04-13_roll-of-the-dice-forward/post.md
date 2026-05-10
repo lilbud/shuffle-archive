@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Be careful what you wish for when you ask Bruce Springsteen to write your campaign song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Forward!"
----
 
 The dice must be obeyed.
 

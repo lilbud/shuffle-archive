@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A rainy evening prompts Bruce to cover Frankie Ford’s classic novelty song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Sea Cruise"
----
 
 On a wet summer night at Red Rocks in 1981, Bruce playfully covered the Frankie Ford novelty song “Sea Cruise,” complete with bell and horn sound effects.
 

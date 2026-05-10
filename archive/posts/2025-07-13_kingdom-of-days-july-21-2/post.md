@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce performs “Factory” live for the first time, reunites with “Mad Dog” Vini Lopez at Giants Stadium, and more–all on this date in history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 21"
----
 
 *New entry for 2024***New for 2025:**
 

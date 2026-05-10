@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Two interviews and guest-stars galore: Rosanne Cash, John Cafferty, Wolfgang Niedecken, and Tom Morello all share the stage with Bruce on this date.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 15"
----
+
 
 *New entry for 2013 and 2024***New for 2025:**
 

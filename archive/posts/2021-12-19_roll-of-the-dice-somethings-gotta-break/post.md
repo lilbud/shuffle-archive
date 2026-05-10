@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Let’s go way back to the Steel Mill era and see what we can make of this elusive Springsteen original.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Something’s Gotta Break"
----
 
 Now here’s a maddening one.
 

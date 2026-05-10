@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Start your Valentine’s Day off right with Patti’s gorgeous centerpiece from her 2004 album, 23rd Street Lullaby.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Love (Stand Up)
----
 
 On an episode of dedicated exclusively to her music, Patti owned up to what her fans realized long ago: her album was entirely a love letter to her husband.
 

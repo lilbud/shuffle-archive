@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Child plays their last show, “The Ties That Bind” and “Fade Away” make their debut, and the first all-Bruce, all-the-time radio station takes to the airwaves.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 1"
----
 
 *Video for 2004; new entry for 2024***New for 2025:**
 

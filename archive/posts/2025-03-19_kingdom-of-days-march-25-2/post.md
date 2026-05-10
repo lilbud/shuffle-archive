@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the Chicken Scratch Tour kicks off, the Lawsuit Tour winds down, and Bruce performs at the Oscars. More highlights inside. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 25"
----
+
 
 *Expanded entry and audio for 1979; video for 2023; new entry for 2024***New for 2025:**
 

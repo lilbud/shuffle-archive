@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Nothing particularly stands out about this Bruce Springsteen Band-era road song, but sometimes that’s not that the aim.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Last Night in Tulsa"
----
 
 Some songs run deep; others float right on by.
 

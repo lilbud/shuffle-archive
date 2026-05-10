@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Until the Good is Gone” is one of Steve’s earliest and best solo efforts, featuring uncredited but unmistakable backing vocals from Bruce. Check out Steve and Bruce’s studio and live performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Little Steven and Bruce Springsteen, Until the Good is Gone"
----
 
 While Bruce was writing and recording the songs that would eventually form the and albums, Steve Van Zandt was busy as well, developing and recording his first solo album, under the new name Little Steven.
 

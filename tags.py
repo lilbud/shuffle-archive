@@ -2,9 +2,19 @@ import json
 from pathlib import Path
 
 import httpx
+import psycopg
+from psycopg.rows import dict_row
+# from main import get_client
 
-from main import get_client
+DATABASE_URL = "postgresql://postgres:password@localhost:5432/shuffle_new"
 
+
+def load_db() -> psycopg.Connection:
+    """Load DB and return connection."""
+    return psycopg.connect(
+        conninfo=DATABASE_URL,
+        row_factory=dict_row,
+    )
 
 def get_tags() -> None:
     """Get all tags using WP REST API."""
@@ -39,3 +49,24 @@ def get_tags() -> None:
         else:
             with Path("tags.json").open("w") as f:
                 json.dump(res.json(), f)
+
+def insert_tags() -> None:
+    """Insert tags into database."""
+    with load_db() as conn, conn.cursor() as cur:
+        with Path("tags.json").open("r") as f:
+            tags = json.load(f)
+
+            for tag in tags:
+                cur.execute(
+                    """INSERT INTO tags (tag_id, name, slug) VALUES (%s, %s, %s)""",
+                    (
+                        tag["id"],
+                        tag["name"],
+                        tag["slug"],
+                    ),
+                )
+
+                conn.commit()
+
+if __name__ == "__main__":
+    insert_tags()

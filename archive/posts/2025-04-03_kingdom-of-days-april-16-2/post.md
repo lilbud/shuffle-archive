@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Quite the grab bag of highlights today: a guest appearance by Mike Ness, a gorgeous acoustic “Point Blank,” the premiere of “Pilgrim in the Temple of Love,” and a Bruce concert gets panned by two critics in the same paper. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 16"
----
+
 
 *New entry for 1983 and 2013; video for 2009; review for 2012***New for 2025:**
 

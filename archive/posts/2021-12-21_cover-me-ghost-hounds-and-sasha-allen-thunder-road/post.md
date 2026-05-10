@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Pittsburgh rockers The Ghost Hounds team up with Sasha Allen on a terrific cover of one of Bruce’s greatest hits. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Ghost Hounds and Sasha Allen: Thunder Road"
----
 
 The Houserockers aren’t the only rock band keeping the Pittsburgh sound alive.
 

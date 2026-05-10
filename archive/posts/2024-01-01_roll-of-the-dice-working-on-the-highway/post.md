@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Working on the Highway: Perhaps the best jailbait song ever.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Working on the Highway"
----
+
 
 One of Springsteen’s most head-scratching penchants is for pairing dark lyrics with melodies so upbeat that you’ll find yourself dancing, singing, and celebrating some low or pitiful characters.
 

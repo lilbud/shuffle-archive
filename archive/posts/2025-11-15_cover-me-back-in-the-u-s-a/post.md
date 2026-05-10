@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: They may have been a throwaway reference in Chuck Berry’s “Back in the U.S.A.,” but when Bruce covered the song, it was all about the burgers.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Back in the U.S.A.
----
 
 Bruce Springsteen has covered almost two dozen Chuck Berry tunes in concert, but none with more gusto than “Back in the U.S.A.” (Perhaps “” is tied for first, though.)
 

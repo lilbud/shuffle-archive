@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the height of the Great Recession, Bruce heartened his audiences with a nightly encore of Stephen Foster’s 1854 classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Hard Times Come Again No More
----
 
 Stephen Foster’s impact on American music can’t be understated. You know his songs even if you didn’t know he wrote them: “Oh! Susanna,” “Camptown Races,” “Swanee River,” and of course his 1854 classic “Hard Times Come Again No More.”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A fresh and funky take on “I’m Goin’ Down” by Joan Osborne and the Waybacks from MerleFest 2015.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Waybacks and Joan Osborne: I’m Goin’ Down"
----
 
 Every year, the MerleFest roots music festival features a “Hillside Album Hour” hosted by The Waybacks. Each year, a different classic album is chosen for re-interpretation, and each year there’s a cryptic clue guessing game leading up to it.
 

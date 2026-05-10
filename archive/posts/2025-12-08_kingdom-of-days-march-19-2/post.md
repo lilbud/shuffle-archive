@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce makes a Daily Show appearance, records tracks for the Seeger Sessions album, and closes out the L.A. Sports Arena on this date in history. Highlights and more inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 19
----
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19a.jpg?resize=494%2C824&amp;ssl=1)
 

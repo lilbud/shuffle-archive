@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Recycled melange or original organ donor? Either way, “American Beauty” ranks among the best songs of Bruce’s Magic period.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: American Beauty"
----
 
 What are we to make of “American Beauty?”
 

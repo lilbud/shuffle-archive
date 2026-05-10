@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Ain’t Too Proud to Beg” paved the way for “Back in Your Arms” and other down-on-my-knees Springsteen classics. Hear Bruce and the band cover it inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Ain’t Too Proud to Beg"
----
 
 If there was no “Ain’t Too Proud to Beg” by The Temptations, there would probably be no “” by Bruce Springsteen.
 

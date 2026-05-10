@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Stop the presses and check out this gorgeous cover of “Tougher Than the Rest” by Italian duo The Travel Bag.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Travel Bag: Tougher Than the Rest"
----
 
 I had a completely different cover queued up for today and a week’s worth of posts written to follow.
 

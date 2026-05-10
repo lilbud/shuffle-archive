@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A one-off cover of “Oh, What a Beautiful Mornin” and the taping of VH1 Storytellers leads the highlights from this date in Bruce history. Watch two full shows, rare clips, and more highlights inside. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 4"
----
 
 *New entry for 1979, 1980, and 2024; video for 1993***New for 2025:**
 

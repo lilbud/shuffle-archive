@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Never recorded, released, or performed, Bruce’s legendary “Glory Road” provides fascinating insight into the evolution of two of his signature songs. Check out early lyrics and artifacts inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Glory Road"
----
 
 Of the many mysteries surrounding Bruce Springsteen’s early work, few are as tantalizing as the never-recorded, never-performed “Glory Road.”
 

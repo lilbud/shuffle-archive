@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Another treasure from the vault: Listen to “Street Queen,” Bruce’s car-on-boy fetish song from the very first day of recording sessions for Greetings from Asbury Park.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Street Queen
----
+
 
 What is it with Bruce Springsteen and cars?
 

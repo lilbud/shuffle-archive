@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Haters gonna hate it, but I’m gonna love it: “Let’s Be Friends” is one of my favorite tracks on The Rising.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Let’s Be Friends (Skin to Skin)"
----
+
 
 I’m gonna say it: I this song, and it’s in my top three tracks on 
 

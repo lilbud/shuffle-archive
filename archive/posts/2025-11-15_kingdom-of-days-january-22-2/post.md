@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "A very busy day in Springsteen history: Bruce takes home a Golden Globe, kicks off an Australian tour, performs for benefits and TV specials, and more. Lots of great footage today!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 22
----
+
 
 “Mad Dog” Vini Lopez, original E Street Band drummer, is born in Neptune Township, New Jersey.
 

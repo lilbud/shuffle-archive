@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Used Cars” is one of Bruce’s most honestly autobiographical songs. Beneath its vignette veneer lies powerful, nuanced themes of shame and alienation. Let’s explore and listen to rare performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Used Cars"
----
 
 Many of Bruce’s best songs are deceptively simple. At first listen, they strike us as a simple tale, a short story–perhaps fictional, perhaps biographical. On closer inspection, we find deep set human themes beneath their surface.
 

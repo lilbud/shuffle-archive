@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Ballad of a Self-Loading Pistol” is a lost gem from the Greetings era, a precursor to “Highway 29” decades later. It deserves wider attention.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Ballad of a Self-Loading Pistol"
----
 
 How?
 

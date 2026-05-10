@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in history: the live debut of “Raise Your Hand,” the live recording of “Be True” for Chimes of Freedom, and Springsteen on Broadway reaches its 100th show. More highlights and lots of great video inside!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 28
----
+
 
 Steel Mill plays a second night at the Hullabaloo in Richmond.
 

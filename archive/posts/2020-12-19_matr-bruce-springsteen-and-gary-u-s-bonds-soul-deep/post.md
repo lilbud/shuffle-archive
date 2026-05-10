@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Did he or didn’t he? Bruce and Gary U.S. Bonds played “Soul Deep” on stage together in 2003, but the jury’s out on whether that was really Bruce’s first time singing the 1969 blue-eyed soul classic with Gary.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Gary U.S. Bonds: Soul Deep"
----
 
 “Soul Deep” has a curious history.
 

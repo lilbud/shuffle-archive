@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Son Little’s treatment of Bruce’s “State Trooper” sheds new light on the madness and violence at the heart of the song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Son Little: State Trooper"
----
 
 Son Little hails from Philadelphia, deep in Springsteen country. Perhaps that’s why his first Springsteen cover is a true deep cut rather than one of the countless versions of “” and “” out there.
 

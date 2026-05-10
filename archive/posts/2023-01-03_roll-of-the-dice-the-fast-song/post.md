@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: If “Candy’s Boy” is the lyric donor for “Candy’s Room,” “The Fast Song” is Candy’s musical parent.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Fast Song"
----
 
 Even for a songwriter notorious for swapping and recycling parts between songs, “” has a seriously gnarly evolutionary history.
 

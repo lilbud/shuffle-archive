@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday, Cindy Mizelle! Also on this date: Bruce sues Mike Appel, plays the first “Candy’s Room” in 15 years, duets with Glen Hansard, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 27"
----
+
 
 *New entry for 2024***New for 2025:**
 

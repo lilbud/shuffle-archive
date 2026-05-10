@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce and Sam Moore share the stage for the first time, and the Human Rights Now! Tour wraps up with a worldwide broadcast. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 15"
----
+
 
 *Video for 2005; new entry for 2024***New for 2025:**
 

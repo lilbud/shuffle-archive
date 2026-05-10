@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce joined Warren Zevon in the studio during the final months of Warren’s life, and the resulting track earned Zevon his first-ever Grammy.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Disorder in the House
----
 
 In the summer of 2002, Warren Zevon was diagnosed with inoperable lung cancer and immediately began working on what he knew would be his final album.
 

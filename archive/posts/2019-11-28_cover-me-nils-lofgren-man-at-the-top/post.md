@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Nils Lofgren has performed “Man at the Top” live more often than Bruce has–it’s a song that clearly means a lot to him.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Nils Lofgren: Man at the Top"
----
 
 “” is an obscure choice to cover from Bruce’s catalog, but the covering artist is an obvious one.
 

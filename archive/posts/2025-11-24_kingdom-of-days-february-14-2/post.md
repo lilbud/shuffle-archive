@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "It’s a monumental date in Springsteen history: Bruce auditions for Mike Appel and records his greatest hit, Rosie comes out for the first time (listen inside), and much more. Plus: the secret origin of the E Street Band. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 14
----
+
 
 Earth (one of Bruce’s early bands) plays their final gig at the Italian-American Mens Association Clubhouse in Long Branch, New Jersey. Vini Lopez is in attendance and is impressed enough to recruit Bruce for a new band he’s putting together. Over the next several weeks, that band will gel under the name of Child and include not just Bruce and Vini, but also Danny Federici. By the end of the year, Child will become Steel Mill, which will eventually give way to The Bruce Springsteen Band, all the while drawing the E Street musicians ever closer into Bruce’s orbit. If the E Street Band has a secret origin, this is where it begins.
 

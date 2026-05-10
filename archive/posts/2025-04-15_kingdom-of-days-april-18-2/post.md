@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The premiere of “Can’t Help Falling in Love” and “Give My Love to Rose,” the filming of “Broken Radio,” the E Street Band premiere of “Better Days,” and an on-stage Bruce and Clarence collision lead the highlights from this date in history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 18"
----
 
 *New entry for 1975 and 2024***New for 2025:**
 

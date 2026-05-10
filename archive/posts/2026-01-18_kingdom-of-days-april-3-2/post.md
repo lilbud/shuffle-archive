@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce records “Roulette,” performs “Johnny Bye-Bye” for the final time, releases Live in New York City, and jams with Jon Bon Jovi and Richie Sambora. Video and more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 3
----
+
 
 Child continues their opening stand at the Pandemonium in Wanamassa, New Jersey.
 

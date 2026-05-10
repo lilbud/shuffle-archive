@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It dates back to the 18th century and has inspired a slew of genre-crossing covers, but when Bruce covered Elvis’ classic Blue Hawaii ballad, he drew on The King’s original version for inspiration.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Can’t Help Falling in Love
----
 
 “I had a song we were gonna do, but in the end we didn’t learn it in time. I wanted to do–what’s the song from ? It was his theme song, one which everyone relates to his Las Vegas period: ‘I Can’t Help Falling in Love With You.’ Which I think is a great song, but everyone relates to it as being Las Vegas-y, but I don’t think it is. I wanted to do that one, but we just didn’t get a chance to run it down before the show. — *Blue Hawaii**Bruce Springsteen to Ed Sciaky, August 19, 1978*
 

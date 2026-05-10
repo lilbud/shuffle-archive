@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Happy birthday, Jake Clemons! A 20/20 segment from 1986 and a Late Night with Jimmy Fallon performance from 2012 lead the other highlights from this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 27
----
 
 Steel Mill barely makes it across the country from California to Virginia for their gig at Richmond’s Free University.
 

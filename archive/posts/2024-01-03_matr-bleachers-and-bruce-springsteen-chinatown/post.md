@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the height of the pandemic, Bruce came out of lockdown to appear on Jack Antonoff’s album track, video, and live rooftop performance.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bleachers and Bruce Springsteen: Chinatown"
----
 
 At the height of the Great Pandemic, when pleasant surprises were in short supply and even the smallest of delights were few and far between, Jack Antonoff surprised fans with a surprise Bleachers album.
 

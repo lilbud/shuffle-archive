@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Today in Springsteen history: two notable births (one human, one vinyl) and one rebirth.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 5
----
+
 
 : Bruce’s recording career is born with the release of his first album, It garners some critical praise but sells a mere 25,000 copies in its first run, eventually rising to #60 on the charts.
 

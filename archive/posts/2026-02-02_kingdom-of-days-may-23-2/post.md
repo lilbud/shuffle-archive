@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The legendary Darkness on the Edge of Town Tour begins! Hear the soundcheck and opening inside, and watch tour premieres and rarities galore from this date in history.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 23
----
+
 
 Child plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 

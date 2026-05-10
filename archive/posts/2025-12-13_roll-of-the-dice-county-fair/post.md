@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “County Fair” is a perfect song about a perfect day, and so delicate that live performance can’t match the power of the version on record.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: County Fair
----
 
 It’s the crickets, I tell you.
 

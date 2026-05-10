@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Lefty Frizzell’s 1959 tale of a falsely accused man who accepts his sentence rather than confess his secret was a natural temptation for a Bruce Springsteen cover treatment. Watch one of its frequent outings on Bruce’s 2006 Seeger Sessions Tour inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Long Black Veil"
----
 
 Bruce Springsteen’s 2006 Seeger Sessions Tour is remembered primarily for its mix of vintage American folk songs and inspired re-arrangements of Bruce’s original songs.
 

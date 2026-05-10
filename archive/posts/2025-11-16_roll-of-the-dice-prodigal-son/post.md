@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This early demo, influenced if not shaped by Bruce’s 1971-72 family reunion, points the way to “Lost in the Flood” and other saga songs to come.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Prodigal Son
----
 
 A couple of weeks ago, we examined “” an original Springsteen song that Bruce wrote in the aftermath (or maybe even during) his West Coast reunion with his family in the winter of 1971-72.
 

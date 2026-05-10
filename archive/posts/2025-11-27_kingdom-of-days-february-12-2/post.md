@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "An embarrassment of riches on this date in Bruce history: the one and only performance of “Hunter of Invisible Game,” a Grammy performance with Paul McCartney, a Johnny Cash tribute, and much more–great footage and audio today!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 12
----
+
 
 Steel Mill opens for Boz Scaggs at The Matrix in San Francisco.
 

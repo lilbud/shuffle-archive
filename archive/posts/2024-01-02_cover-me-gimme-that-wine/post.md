@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Before Bruce had Kevin Buell to lean on, when he broke a guitar string it was Clarence Clemons to the rescue. Originally a lark, Clarence’s rendition of “Gimme That Wine” became a genuine (if rare) highlight when on-stage misfortune would strike.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Gimme That Wine"
----
 
 Sometimes you gotta vamp, sometimes you gotta tell a joke.
 

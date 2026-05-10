@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Watch Bruce send Giants Stadium off to meet the wrecking ball with an appropriately timed cover of one of The Rolling Stones’ earliest hits.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: The Last Time"
----
 
 The first time Bruce Springsteen played “The Last Time” was in Atlanta in 1978. (It’s a terrible recording, though, so I’ll spare you from listening to it.)
 

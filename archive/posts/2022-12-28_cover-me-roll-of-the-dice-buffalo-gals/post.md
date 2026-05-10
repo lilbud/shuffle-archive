@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An age-old American classic is reinvigorated by a younger American classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me/Roll of the Dice: Buffalo Gals"
----
 
 Buried on the bonus DVD that came with was Bruce’s take on the classic American folk song “Buffalo Gals.”
 

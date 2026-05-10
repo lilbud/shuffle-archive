@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Christmas in May, the first E Street Band “Red Headed Woman” and a full video document of a Wrecking Ball show lead the highlights for this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 25"
----
 
 *New entry for 1979, 1982, 1983, and 2024; audio for 1993, 1999, and 2008***New for 2025:**
 

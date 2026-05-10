@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce receives his first Tony Award! Plus: a wonderful, under-the-radar video/performance of “The Promised Land” in London, the premiere of a three-part BBC profile on Bruce, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 10"
----
+
 
 *Reviews for 1973; new entry for 1977 and 1983***New for 2025:**
 

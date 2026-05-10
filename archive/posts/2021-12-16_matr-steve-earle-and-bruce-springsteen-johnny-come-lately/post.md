@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Steve Earle and the Dukes on “Johnny Come Lately,” Earle’s sibling song to “Born in the U.S.A.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Steve Earle and Bruce Springsteen, Johnny Come Lately"
----
+
 
 The first time I heard Steve Earle’s “Johnny Come Lately,” I thought to myself: this sounds like a companion piece to “”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce Springsteen performs at President Obama’s inaugural concert, a truly all-star Hall of Fame jam, the debut performance of “Frankie Fell in Love,” and much more on this day in history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 18
----
 
 Steel Mill headlines at D’Scene in South Amboy, New Jersey.
 

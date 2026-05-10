@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of Bruce’s most devastatingly powerful songs is one of the least-known and -heard from his official catalog. Listen to the dark, multi-layered “Hey Blue Eyes” inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Hey Blue Eyes"
----
 
 At the very end of an EP that almost nobody noticed (including the artist, it seems, because he’s never even once performed of the songs on it) resides one of Bruce Springsteen’s most breathtaking songs.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Two cover takes of “Fire” — the first and the definitive, both by Robert Gordon and Link Wray.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Robert Gordon and Link Wray: Fire"
----
 
 Robert Gordon and Link Wray were the first to record and release Bruce Springsteen’s “.” Bruce gave Gordon the song after seeing him perform with Wray; they released it in 1978, years before Bruce’s version debuted on , and decades before the Bruce’s studio version surfaced on 
 

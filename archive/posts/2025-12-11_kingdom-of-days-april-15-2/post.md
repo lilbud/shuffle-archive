@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Two interviews and guest-stars galore: Rosanne Cash, John Cafferty, Wolfgang Niedecken, and Tom Morello all share the stage with Bruce on this date.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 15
----
+
 
 The Bruce Springsteen Band headlines a show at Rutgers University.
 

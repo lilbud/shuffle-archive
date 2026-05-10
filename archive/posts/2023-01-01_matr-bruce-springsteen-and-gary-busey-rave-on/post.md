@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce Springsteen idolized Buddy Holly, and Gary Busey portrayed him on screen. Together, they paid tribute to the late rocker, covering one of his greatest hits in the summer of ’78. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Gary Busey, Rave On"
----
 
 “It’s funny because I could never really picture Buddy Holly moving. To me, he was always just that guy with the bow tie on the album cover. I liked the picture because it made him a lot more real for me.” — *Bruce Springsteen, The Inglewood Forum, July 5, 1978*
 

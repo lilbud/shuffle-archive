@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: South African folk combo The Descendants turn in an inspirational cover of one of Bruce’s very best songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Descendants: Land of Hope and Dreams"
----
 
 They may be a folk trio, but this cover rocks.
 

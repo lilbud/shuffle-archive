@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins rockabilly pioneer Sonny Burgess on his earliest hard-rocking classic.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: We Wanna Boogie
----
+
 
 In fairness, they probably never stood a chance.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Sonics’ 1965 hit became a nightly 1988 encore on Bruce Springsteen’s Tunnel of Love Tour. Watch Bruce ham it up inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Have Love, Will Travel
----
 
 “Have Love, Will Travel” started out as a 1959 “” sound-alike, probably because both songs were written and recorded by Richard Berry.
 

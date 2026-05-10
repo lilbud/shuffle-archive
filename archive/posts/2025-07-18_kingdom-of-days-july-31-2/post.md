@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce plays his longest show ever in Helsinki, well over four hours including a pre-show. Plus: surprise appearances with U2, Bruce Hornsby, and Marshall Crenshaw, the live debut of “Lift Me Up” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 31"
----
+
 
 *Video for 2022***New for 2025:**
 

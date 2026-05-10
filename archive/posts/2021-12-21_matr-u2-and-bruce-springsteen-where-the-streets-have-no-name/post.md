@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce stands in for Bono at a surprise World AIDS Day benefit concert in Times Square, in a callback to the band’s famous 1987 video.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: U2 and Bruce Springsteen: Where the Streets Have No Name"
----
+
 
 If Bruce was only ever going to perform U2’s “Where the Streets Have No Name” once, there was only really one right way to do it: as an impromptu live performance at a busy city intersection.
 

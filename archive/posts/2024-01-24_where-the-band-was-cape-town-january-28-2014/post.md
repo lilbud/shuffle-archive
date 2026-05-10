@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A return to the Seeger Sessions tour, or so it seemed at Cape Town Night 2.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Cape Town, January 28, 2014"
----
 
 I knew I was in for an unpredictable, unforgettable experience when I made the trip from Seattle to Cape Town for Bruce’s three-show stand (his first shows in South Africa) in 2014.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The band gets tighter and more confident on Night Two of the Wrecking Ball tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Greensboro, March 19, 2012"
----
 
 In general, second shows of the tour are basically repeats of the first show. Don’t go expecting anything different until the kinks are worked out a week or two in, but do go if you want to enjoy new material that will likely get dropped from the setlist within a matter of weeks (if not days).
 

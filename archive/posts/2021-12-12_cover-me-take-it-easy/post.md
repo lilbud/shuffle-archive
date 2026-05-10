@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Another great one gone too soon: Bruce Springsteen pays tribute to Glenn Frey, one day following his death on January 18, 2016.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: “Take It Easy”"
----
+
 
 Another great one gone too soon: Bruce Springsteen pays tribute to Glenn Frey, one day following his death on January 18, 2016.
 

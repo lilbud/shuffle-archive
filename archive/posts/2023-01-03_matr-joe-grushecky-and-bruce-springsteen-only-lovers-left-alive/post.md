@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Joe Grushecky’s American Babylon album ends on an unsettling note with a song that could be the mirror image of “Hungry Heart.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Grushecky and Bruce Springsteen: Only Lovers Left Alive"
----
 
 I was sitting on that title for years and years. I actually had a book called when I was in high school, because I read that the Rolling Stones had licensed that book to make a movie. This is early, like when the Stones first hit. I had the book for years and years. It probably just fell apart, it was a little paperback, and I always liked the title of it: . So I fashioned a story.*Only Lovers Left Alive**Only Lovers Left Alive*
 

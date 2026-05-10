@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this busy date: the release of Human Touch and Lucky Town, the start of World Tour 1993, and the finale of the 2013 Australian Tour. More highlights and video inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 31"
----
+
 
 *Video for 1993; new entry for 1996 and 2024***New for 2025:**
 

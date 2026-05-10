@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen to highlights from Toronto ’77 and Starkville ’81.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 13
----
 
 Steel Mill opens for Boz Scaggs for the second of three nights at The Matrix in San Francisco.
 

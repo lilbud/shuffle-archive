@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Two great live performances of “Cadillac Ranch” today–both by the Nitty Gritty Dirt Band.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Nitty Gritty Dirt Band: Cadillac Ranch"
----
 
 “” was always rockabilly, so it shouldn’t be surprising that the Nitty Gritty Dirt Band covered it frequently in concert. They actually released live recordings of it twice, in 1984 and 1991.
 

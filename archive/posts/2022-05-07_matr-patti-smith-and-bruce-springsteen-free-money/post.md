@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen joins The Patti Smith Group on one of Patti’s earliest songs.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Patti Smith and Bruce Springsteen: Free Money"
----
+
 
 In 1976, Bruce Springsteen and Patti Smith were both stars on the ascent, each riding high on their recent breakthrough albums ( and respectively).
 

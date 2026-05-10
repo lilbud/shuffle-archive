@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Laced with playfully ribald metaphor and delightfully sly euphemism, “All I’m Thinkin’ About” earns its place among the great masturbation songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: All I’m Thinkin’ About"
----
 
 Welcome to another installment of 
 

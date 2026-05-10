@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Guest stars galore in DC, a surprise outdoor jam in Sea Bright, and a Labor Day special in Philly lead off the many highlights from this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 3"
----
 
 *Video for 1999 and 2023; new entry for 2022***New for 2025:**
 

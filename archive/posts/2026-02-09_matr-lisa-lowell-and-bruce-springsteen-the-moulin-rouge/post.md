@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce contributes some smoking guitar licks to Lisa Lowell’s sultry ode to the Moulin Rouge.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: The Moulin Rouge
----
 
 Lisa Lowell is familiar name to E Street Nation. Her vocals can be found all over Bruce’s nineties-forward catalog (“Better Days,” “Across the Border,” and “Land of Hope and Dreams” to name but a few), and she was a featured background singer on the Seeger Sessions Tour.
 

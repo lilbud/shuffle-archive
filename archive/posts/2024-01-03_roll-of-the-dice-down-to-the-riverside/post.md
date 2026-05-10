@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce relives the day his grandfather died in this powerful, intimate, and bluesy performance.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Down to the Riverside"
----
+
 
 “Every chance I got, I returned to stay with my grandparents. It was my true home and they felt like my real parents. I could and would not leave… This was where I needed to be to feel at home, safe, loved…
 

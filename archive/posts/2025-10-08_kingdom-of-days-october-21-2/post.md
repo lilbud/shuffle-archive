@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "This date in Springsteen history features guest-spots galore: John Eddie, Marshall Crenshaw, Elliott Murphy, Nils Lofgren, Joe Grushecky, Greg Kihn, and Jon Bon Jovi all share a stage with Bruce. Plus: rare performances, great shows, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 21"
----
+
 
 *Audio for 2006; review for 2012; new entry for 2024***New for 2025:**
 

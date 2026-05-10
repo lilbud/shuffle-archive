@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: American Babylon’s title track is one of the only tracks Bruce had nothing to do with on the album, but that hasn’t stopped Bruce and Joe from teaming up to play it on stage.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Grushecky and Bruce Springsteen: American Babylon"
----
 
 It’s one of only two songs Bruce have any involvement with on Joe Grushecky’s 1995 seminal album.
 

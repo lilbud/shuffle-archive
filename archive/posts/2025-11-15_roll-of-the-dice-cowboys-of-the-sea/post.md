@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: For a young Jersey Shore songwriter fascinated with American westerns, undersea cowboys is as high concept as it gets.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Cowboys of the Sea
----
 
 It was one of the songs Bruce played when he auditioned for Mike Appel.
 

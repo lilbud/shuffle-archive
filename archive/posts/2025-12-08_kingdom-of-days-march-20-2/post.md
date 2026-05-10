@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in history: Danny Federici makes his final appearance with the E Street Band. Watch the emotional performance, plus more highlights from across the years.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 20
----
+
 
 Bruce and his band play two shows at their third night at Gertie’s in Dallas.
 

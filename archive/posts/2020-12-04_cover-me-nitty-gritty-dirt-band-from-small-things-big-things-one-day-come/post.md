@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “From Small Things” got some cover love long before Bruce officially released it. Here’s one of the best. from the Nitty Gritty Dirt Band in 1990.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Nitty Gritty Dirt Band: From Small Things (Big Things One Day Come)"
----
 
 The Nitty Gritty Dirt Band has a knack for spotting Springsteen songs that are ripe for a rockabilly cover treatment.
 

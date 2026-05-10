@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Here’s a cover that will always rank among my favorites if only for the circumstances in which I first heard it.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Eddie Berman and Laura Marling: Dancing in the Dark"
----
 
 Some songs are indelibly imprinted on or by the context in which you first hear them. For me, Eddie Berman and Laura Marling’s version of “” is a textbook example.
 

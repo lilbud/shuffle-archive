@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Sonny Day’s version of “Saving Up” is the definitive one, even if it’s an obscure cover of an obscure song (unless you’re from Auckland, in which case it’s a classic).
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Sonny Day and the All Stars: Savin’ Up"
----
 
 It’s obscure covers week here on the Shuffle. First, we had “” by , but at least Bruce officially released that song. Today’s entry can’t even claim that.
 

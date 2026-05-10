@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Willie Nelson and Emmylou Harris hit a home run with their world-weary take on “Dry Lightning.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Willie Nelson and Emmylou Harris: Dry Lightning"
----
 
 Here’s another cover I like better than the original.
 

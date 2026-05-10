@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The live premiere of “Wages of Sin” and the last performance of “Run Through the Jungle.” Plus: Bruce returns to the Hammersmith Odeon after more than 30 years. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 8
----
+
 
 John Hammond sends the demos that Bruce recorded on May 3 to Clive Davis, president of Columbia Records. He includes a note that reads:
 

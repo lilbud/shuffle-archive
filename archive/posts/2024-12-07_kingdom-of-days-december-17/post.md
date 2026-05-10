@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce kicks off a multi-year tradition of Asbury Park Holiday shows. Plus: a Tonight Show appearance, last performances of several songs for years to come, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 17"
----
+
 
 *Audio for 1975 and 1984; review for 1975***New for 2024:**
 

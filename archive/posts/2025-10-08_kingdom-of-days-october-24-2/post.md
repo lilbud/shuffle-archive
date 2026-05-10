@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: News coverage and live footage from great shows from this date across the years.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 24"
----
 
 *Audio for 2006; new entry for 2024***New for 2025:**
 

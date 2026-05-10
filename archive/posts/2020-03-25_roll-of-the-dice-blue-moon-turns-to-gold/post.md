@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Hidden away on the flip side of the handwritten lyrics for “Gloria’s Eyes” lurks a Springsteen original that still hasn’t seen the light of day.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Blue Moon Turns to Gold"
----
 
 Okay, humor me here, because I’m well aware that with this installment I’m crossing over into obsessive territory.
 

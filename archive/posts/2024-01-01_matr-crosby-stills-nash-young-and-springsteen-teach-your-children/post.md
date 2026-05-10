@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: an all-star ensemble performs a CSNY Classic at the first Bridge School benefit.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Crosby, Stills, Nash, Young, and Springsteen, “Teach Your Children”"
----
+
 
 One time only: At Neil Young’s inaugural Bridge School Benefit in 1986, Bruce joined Crosby, Still, Nash and Young for a beautifully loose rendition of “Teach Your Children.”
 

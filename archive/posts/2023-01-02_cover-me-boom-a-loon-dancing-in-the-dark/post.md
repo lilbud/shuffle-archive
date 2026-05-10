@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: BOOM a LOON, Robert J. Hunter, and Eddy Smith reinvent Bruce’s greatest hit with a cool funk groove. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, BOOM a LOON: Dancing in the Dark"
----
 
 BOOM a LOON bills themselves as “the next step in funk,” releasing a new song weekly, featuring a core combo and a rotating cast of guest artists.
 

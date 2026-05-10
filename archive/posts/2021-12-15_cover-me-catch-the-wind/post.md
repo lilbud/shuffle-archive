@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only, more than fifty years ago: Bruce and the Castiles cover Donovan’s first single, “Catch the Wind.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Catch the Wind"
----
+
 
 “Catch the Wind” might seem like a strange candidate for a Castiles setlist.
 

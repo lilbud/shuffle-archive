@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s Double-Shot Tuesday! Check out not one but *two* terrific, fresh covers of Bruce’s oft-covered classic from the folks at Scary Pockets, featuring Rett Madison and George Krikes.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Scary Pockets: I’m on Fire"
----
 
 It’s Double-Shot Tuesday on the Shuffle! Today, we bring you not one but terrific covers of “I’m on Fire” courtesy of the fine folks at Scary Pockets.
 

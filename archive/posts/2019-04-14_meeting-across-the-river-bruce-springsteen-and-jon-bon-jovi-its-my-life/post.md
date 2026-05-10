@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One night only: Bruce and Jon Bon Jovi perform one of Bon Jovi’s oldest and biggest hits.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and Jon Bon Jovi, It’s My Life"
----
+
 
 A one-time-only performance: Jon Bon Jovi makes a guest appearance at Bruce’s 2003 holiday show in Asbury Park, and the two perform Bon Jovi’s “It’s My Life” together.
 

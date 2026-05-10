@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "A big day for premieres: “Cautious Man,” “Boom Boom,” “A Good Man Is Hard to Find (Pittsburgh),” and “Bring ’em Home” all make their debuts on this date. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 10"
----
+
 
 *New entry for 1978 and 1982; review for 2005; video for 2006***New for 2025:**
 

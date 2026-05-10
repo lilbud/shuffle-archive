@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Joe Grushecky on one of the Iron City Houserockers’ best early tracks, “Junior’s Bar.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Grushecky and Bruce Springsteen, Junior’s Bar"
----
+
 
 Let’s reach waaay back in Joe Grushecky’s catalog–all the way back to the Iron City Houserocker days and the band’s sophomore album (and one of the better albums of 1980), .
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s one of rock’s most meta-powerful songs, and in 1984 Bruce and Steve transformed it into a tribute to their brotherhood. Hear that moment and watch more great performances of “Drift Away” inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Drift Away
----
 
 Pop quiz: who originally recorded the 1973 and 2003 hit “Drift Away?”
 

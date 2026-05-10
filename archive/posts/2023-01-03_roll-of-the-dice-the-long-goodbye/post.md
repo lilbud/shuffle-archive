@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Although often attributed to Bruce’s cross-country move, “The Long Goodbye” offers more a more universal theme about relationships that last too long. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Long Goodbye"
----
 
 “The tragedy of life…is not that the beautiful things die young, but that they grow old and mean. It will not happen to me.”
 

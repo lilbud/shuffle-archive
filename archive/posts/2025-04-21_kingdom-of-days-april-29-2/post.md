@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce makes his legendary late-night Graceland expedition. Plus: great video of Bruce’s return visit to JazzFest and rare performances and premieres over the years.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 29"
----
+
 
 *New entry for 1980; audio for 2009; video for 2012 and 2014***New for 2025:**
 

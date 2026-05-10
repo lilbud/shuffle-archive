@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Barely a week into the Trump Administration, Bruce apologized on behalf of America to his Australian audience for the new president’s diplomatic rudeness. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Don’t Hang Up"
----
 
 On January 28, 2017, President Trump bullied, berated, and finally blew off Prime Minister Turnbull over Turnbull’s temerity to insist that the United States live up to its agreement to accept 1,250 refugees from an Australian detention center.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Ryan Bingham doesn’t just cover “Atlantic City” — he pays homage to its origins.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Ryan Bingham: Atlantic City"
----
 
 Singer/songwriter Ryan Bingham already had the talent, voice and sensibilities to nail his cover of “.”
 

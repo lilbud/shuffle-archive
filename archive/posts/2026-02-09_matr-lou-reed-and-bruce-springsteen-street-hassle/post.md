@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Tramps like us, we were born to pay. So says an uncredited Bruce Springsteen in his 1978 spoken-word monologue buried deep within Lou Reed’s epic “Street Hassle.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Street Hassle
----
 
 On Memorial Day weekend in 1977, Bruce Springsteen finally settled his long-running legal dispute with Mike Appel that had prevented him from recording a follow up to his 1975 album 
 

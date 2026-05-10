@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The annual Cover Me competition is underway, and our first spotlight this year shines on Italian singer-songwriter Luca Milani’s hard-rocking re-imagining of Bruce’s Grammy-winning single.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Luca Milani &amp; The Glorious Homeless: Devils &amp; Dust"
----
 
 If “,” a protest song born of the blues, works as rock anthem, then why wouldn’t ““?
 

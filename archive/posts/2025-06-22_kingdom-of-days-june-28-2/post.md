@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "London Calling: Live in Hyde Park is filmed on this date, as is Bruce’s video for “Dancing in the Dark.” Plus: a stormy night in Milan on the Rising Tour, a 1993 bar gig and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 28"
----
+
 
 *New entry for 1973; video for 2023***New for 2025:**
 

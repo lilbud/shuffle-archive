@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “She’s the One” is alchemy, amalgamation, and pure adrenaline. Let’s trace its origins and see what makes it tick.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: She’s the One"
----
 
 It began with the beat–perhaps the most famous beat of all time.
 

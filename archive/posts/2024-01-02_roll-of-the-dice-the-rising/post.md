@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An anthem cloaked as an elegy, a gospel wrapped in rock, “The Rising” is one of Bruce’s finest, most important, and most superbly crafted songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Rising"
----
 
 It started as an elegy.
 

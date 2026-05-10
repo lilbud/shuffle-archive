@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The Ties That Bind: The River Collection was released on this day in 2015. Other highlights from this date: guest appearances from Joe Grushecky, Tom Morello, and Mike Ness, rare River Tour footage, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 4"
----
+
 
 *New entry for 2023***New for 2024:**
 

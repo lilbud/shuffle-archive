@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This under-the-radar Born in the U.S.A. outtake is the darkest in Bruce’s “car crash song” mini-genre.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Rockaway the Days"
----
 
 There’s a strange but genuine tradition in rock and pop music: the .
 

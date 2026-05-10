@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce’s parents marry, Steel Mill records in the studio, and Bruce and the band play a fun Australian winery show. Plus: Friday Night Videos airs a private reel on Bruce.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 22
----
+
 
 Douglas Springsteen and Adele Zerilli marry at the St. Rose of Lima Church in Freehold, New Jersey. Later the following year, they’ll become the proud parents of a baby boy destined to become one of the world’s most famous, respected, and beloved rock stars, but tonight they enjoy their wedding reception at the Blue Moon Inn in Farmingdale. Long, long after, their son will write one of his finest songs about the indelibility of young love. Is “” a loving nod to his parents’ wedding? Only Bruce knows.
 

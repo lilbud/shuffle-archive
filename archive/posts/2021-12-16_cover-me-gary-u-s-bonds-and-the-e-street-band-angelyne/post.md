@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A cover that was almost a team-up in a parallel universe version of “The River” — Gary U.S. Bonds and Steve Van Zandt replaced Bruce’s original vocals on this outtake from the River recording sessions.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Gary U.S. Bonds and the E Street Band: Angelyne"
----
 
 Covers of Bruce Springsteen songs tend to fall into two categories: new interpretations of Bruce’s officially released material, or songs Bruce wrote and gave away.
 

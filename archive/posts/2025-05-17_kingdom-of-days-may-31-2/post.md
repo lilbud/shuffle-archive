@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: one of the great Springsteen radio broadcasts, the recording of “Pink Cadillac” and “I Wanna Be With You,” plus highlights from great shows over the years.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 31"
----
+
 
 *Audio for 1983***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Part 2 in a new series spotlighting songs that are covered too frequently to feature individually–this time we take a look at five great versions of “Dancing in the Dark.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me Round-Up: Dancing in the Dark"
----
 
 Presenting the second in our new series, spotlighting Springsteen songs that are covered too frequently to keep up with unless I spotlight them in batches. (Check out the first installment featuring covers of “” .)
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An E Street “sneak attack,” a self-spoofing Bruce, and a pair of guest-starring Joes highlight this day in Springsteen history. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 2"
----
 
 *Advertisement for 1974***New for 2025:**
 

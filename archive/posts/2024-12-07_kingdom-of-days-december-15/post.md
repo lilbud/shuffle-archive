@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Winterland ’78. Need I say more? (Okay, how about a Rolling Stones guest appearance and the streaming video release of Springsteen on Broadway?)
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 15"
----
+
 
 *Audio for 1978; review for 2001***New for 2024:**
 

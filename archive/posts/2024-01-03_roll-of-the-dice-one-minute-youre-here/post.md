@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce opens his most recent album by directly reckoning with death.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: One Minute You’re Here"
----
 
 “There were trains–passenger and freight–that came through Freehold in the fifties during long summer afternoons. We waited for them to jump and ride from one end of town to the other, or just to lay our pennies down on the rails and pick them up hot and flat. Those trains came and went as sudden as death.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The dazzling and dizzying track that kicked off Springsteen’s fifty-year recording career and burned his rhyming dictionary to cinders
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Blinded by the Light
----
 
 “It’s basically about sex.” — *Bruce Springsteen, February 20, 2003*
 

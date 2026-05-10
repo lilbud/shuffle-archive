@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Six new takes on Bruce’s most popular song–each with its own unique spin.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me Round-Up: Dancing in the Dark (Part 3)"
----
 
 Welcome to a new installment of 
 

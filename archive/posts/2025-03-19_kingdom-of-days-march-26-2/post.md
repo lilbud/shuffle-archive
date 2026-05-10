@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The live debuts of “Frankie” and “Ain’t Got You” both happened on this date in history. More highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 26"
----
 
 *No updates***New for 2025:**
 

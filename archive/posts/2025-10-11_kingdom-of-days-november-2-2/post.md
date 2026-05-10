@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: “Working on a Dream” makes its debut, Bruce headlines a Hurricane Sandy telethon, and the first of several Seeger Sessions. More highlights inside. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 2"
----
+
 
 *New entry for 1977; article for 1978; review for 2007***New for 2025:**
 

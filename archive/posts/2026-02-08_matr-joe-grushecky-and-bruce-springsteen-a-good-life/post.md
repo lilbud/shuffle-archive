@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In their first studio collaboration since American Babylon, Joe Grushecky and Bruce Springsteen sing the joys of domesticity.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: A Good Life
----
 
 The first time Joe Grushecky and Bruce Springsteen worked together, Joe criss-crossed the country, working for two years on two coasts to complete with Bruce.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Stop what you’re doing and listen to this gorgeous, haunting rendition of “Drive All Night” by Sharon Van Etten, enhanced by “TomBerry26.” 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Sharon Van Etten (and TomBerry26): Drive All Night"
----
 
 When I started this blog, the very first cover I wanted to share was Sharon Van Etten’s version of “.” It’s gorgeous–and Sharon’s vocals are so passionate that I dare say they rival the original. Without a doubt, it’s one of my all-time favorite covers of a Springsteen song.
 

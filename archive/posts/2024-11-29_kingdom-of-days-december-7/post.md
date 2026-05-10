@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "It’s a date for tributes, as Bruce salutes Harry Chapin, Bob Dylan, and Sting. Plus: two holiday shows, Clarence’s last E Street appearance, Bruce plays Sing Sing Prison and more–all on this very, very packed date.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 7"
----
+
 
 *Video for 2003 and 2010***New for 2024:**
 

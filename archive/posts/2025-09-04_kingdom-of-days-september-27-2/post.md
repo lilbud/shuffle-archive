@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Born in the U.S.A. Tour starts its last stand, and Bruce becomes a published author. More highlights and lots of video inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 27"
----
 
 *Audio for 1975, 1985, and 1988***New for 2025:**
 

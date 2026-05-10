@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The Castiles play their final show, Bruce’s 1972 performance at Max’s Kansas City is captured on video, and Bruce’s eleven-night World Tour 1992 Meadowlands stand wraps up in style. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 10"
----
+
 
 *New entry for 1977***New for 2025:**
 

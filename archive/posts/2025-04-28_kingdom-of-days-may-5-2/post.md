@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce receives Sweden’s Polar Music Prize. Watch full footage plus more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 5"
----
+
 
 *New entry for 1975 and 2024; audio for 1982***New for 2025:**
 

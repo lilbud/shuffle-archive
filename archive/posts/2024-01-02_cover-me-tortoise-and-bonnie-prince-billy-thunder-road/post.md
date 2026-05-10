@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Perhaps the most surprising and effective re-interpretation of “Thunder Road” ever, Tortoise and Bonnie “Prince” Billy transform Bruce’s classic song of escape into a dark, sinister temptation.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Tortoise and Bonnie “Prince” Billy: Thunder Road"
----
 
 My rule for what makes for a great cover of a Bruce Springsteen song: do it different or do it better.
 

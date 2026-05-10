@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This Tunnel of Love outtake is the mirror image of “Valentine’s Day,” an artfully and subtly constructed escape fantasy that would have been a perfect fit on the album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Lucky Man"
----
 
 To the degree that fans think about “Lucky Man” at all (after all, it was a 1987 B-side that didn’t see an official album release for more than a decade–and even then it was buried as the very last track on Disc 3 of ), we tend to fall on two sides: those who think the title is sincere and those who think it’s ironic.
 

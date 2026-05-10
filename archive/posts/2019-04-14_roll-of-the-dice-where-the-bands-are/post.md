@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Where the Bands Are” is power pop perfection, showcasing the E Street Band at their most joyous.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Where the Bands Are"
----
 
 Much of Bruce’s catalog demands concentration and invites analysis.
 

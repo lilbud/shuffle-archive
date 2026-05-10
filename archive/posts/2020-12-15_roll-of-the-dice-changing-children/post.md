@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the dawn of the 1970s, even Bruce couldn’t help but be a little cynical about the likelihood of real change. Take a listen to his sarcastic Steel Mill song, “Change It.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Changing Children"
----
 
 I suppose a warning might be appropriate here: If you enjoy picturing Bruce Springsteen as a lifelong idealist, you might not want to listen to his (very) early composition, “Change It.”
 

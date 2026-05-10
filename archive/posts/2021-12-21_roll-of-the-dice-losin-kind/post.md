@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Losin’ Kind” is one of only two original Nebraska demos left in the vault, but its imprint can be found across Bruce’s catalog. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Losin’ Kind"
----
 
 If Bruce hadn’t rewritten “Losin’ Kind” as “Highway 29,” this essay would be a lot longer than it is. (I’d also be calling it an artistic crime to keep this beautiful outtake locked away in the vault.)
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s one-and-only performance of “School Is Out” was with its original recording artist back in 1981.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Gary U.S. Bonds and Bruce Springsteen, School Is Out"
----
 
 This one’s for the completists (like me).
 

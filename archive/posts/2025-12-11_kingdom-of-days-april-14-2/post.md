@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce assembles his new band for the first time and “Terry’s Song” gets its first public performance. Plus: Bob Seger, Alejandro Escovedo, Joe Ely, Tom Waits and others join Bruce on-stage.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 14
----
+
 
 The River Tour returns to Germany for a show at Festhalle in Frankfurt. What a deal you were offered if you lived in the U.K. at the time!
 

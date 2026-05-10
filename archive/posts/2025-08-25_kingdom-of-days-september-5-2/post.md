@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A guest appearance on stage with The Pretenders and on record with Joe Grushecky lead today’s highlights, along with a stunner of a rainout make-up show in Virginia Beach.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 5"
----
 
 *New entry for 1979***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s high school graduation, rare Steel Mill performances, and abundant tour premieres lead off the highlights from this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 19"
----
 
 *Audio for 1988***New for 2025:**
 

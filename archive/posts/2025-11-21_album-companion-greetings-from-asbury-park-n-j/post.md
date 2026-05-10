@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A half-century ago today, Bruce Springsteen sent the world Greetings from Asbury Park, and rock and roll has never been the same.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Greetings From Asbury Park, N.J.
----
 
 On January 5, 1973, Columbia Records introduced their hot new up-and-coming singer-songwriter to the world.
 

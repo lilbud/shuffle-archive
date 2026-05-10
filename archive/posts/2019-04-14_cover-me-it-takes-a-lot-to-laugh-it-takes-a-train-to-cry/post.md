@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Performed only twice, way back in 1971: Dr. Zoom and the Sonic Boom covers Bob Dylan’s “It Takes a Lot to Laugh, It Takes a Train to Cry.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: It Takes a Lot to Laugh, It Takes a Train to Cry"
----
+
 
 Firing up the waaaaaayback machine today and travelling to Newark State College on May 15, 1971, so we can catch Dr. Zoom and The Sonic Boom performing Bob Dylan’s bluesy “It Takes a Lot to Laugh, It Takes a Train to Cry.”
 

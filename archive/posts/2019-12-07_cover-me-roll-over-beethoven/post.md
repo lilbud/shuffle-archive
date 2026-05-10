@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce covered it several times over the years, as far back as 1971–but it took until 2009 before a taper could capture Bruce covering Chuck Berry’s seminal classic, “Roll Over Beethoven.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Roll Over Beethoven"
----
 
 Talk about elusive: we know of at least four documented occasions on which Bruce covered Chuck Berry’s seminal “Roll Over Beethoven” from as early as 1971 through 2002, but no one managed to capture it on tape until a fan requested it during the Working on a Dream Tour in 2009.
 

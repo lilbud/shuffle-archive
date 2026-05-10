@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Craig Finn’s obscure cover of a more-relevant-than-ever Springsteen deep cut gives Bruce’s original a run for its money. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Craig Finn: Magic"
----
 
 “” isn’t a song that gets covered very often, even though it’s only grown in relevance since Bruce first released it in 2007.
 

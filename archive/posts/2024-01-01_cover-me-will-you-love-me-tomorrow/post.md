@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Dr. Zoom and the Sonic Boom covers Carole King’s “Will You Love Me Tomorrow”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Will You Love Me Tomorrow?"
----
 
 We’re taking the way-way-WAY-back machine today:
 

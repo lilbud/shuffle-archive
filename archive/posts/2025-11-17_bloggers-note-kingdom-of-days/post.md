@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Looks like my Kingdom of Days posts aren’t being automatically e-mailed. I’m working on a fix, but in the meantime, rest assured that publication continues here on the blog. We haven’t missed a day yet!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Visitation at Fort Horn
----
 
 “Never doubt that a small group of thoughtful, committed citizens can change the world. Indeed, it is the only thing that ever has.” *–Margaret Mead*
 

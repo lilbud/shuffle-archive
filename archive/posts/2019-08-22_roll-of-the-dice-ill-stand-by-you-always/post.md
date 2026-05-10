@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A couple of years ago, news leaked of an unreleased Springsteen song about Harry Potter, and it wasn’t long before the song leaked, too. This one probably should stay in the vault.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I’ll Stand By You"
----
 
 An official version of “I’ll Stand By You” was just released on the soundtrack album for . It’s a tighter, shorter, and much better mix, with new (or at least different) vocals than the leaked demo. From a musical standpoint, it’s a lot more listenable. Unfortunately, though, the lyrics are still the same.
 

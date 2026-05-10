@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Roy Orbison and an all-star backing band for a great cover of Roy’s 1961 B-side.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Roy Orbison, Bruce Springsteen, and Friends: Candy Man"
----
+
 
 It may not have enjoyed quite the success that its A-side did, but Roy Orbison’s 1961 B-side “Candy Man” still managed to claw its way to #25 on the Billboard Hot 100.
 

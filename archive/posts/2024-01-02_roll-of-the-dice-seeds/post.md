@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Will the real “Seeds” please stand up? Let’s take a listen to the many forms of this unreleased but vital entry in the Springsteen catalog.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Seeds"
----
 
 Will the real “Seeds” please stand up?
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Even obscure, never-released-on-an-album Springsteen songs get cover treatments: check out Mojo Nixon and Skid Roper’s outstanding cover of “The Big Payback” from 1985.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Mojo Nixon and Skid Roper: The Big Payback"
----
+
 
 Bonus Cover Me post today, since I totally had a brainfart and mis-attributed Greg Kin’s live cover of “” to John Eddie earlier. (That post has since been retracted, redirected, and merged with my post from last year about Kihn’s version of that song. My apologies–once in a while, the daily blog deadline combined with my day job get the better of me!)
 

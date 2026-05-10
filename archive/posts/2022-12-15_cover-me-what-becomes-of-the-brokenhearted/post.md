@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s cover of this Motown classic may be the only track on Only the Strong Survive to rival the original.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: What Becomes of the Brokenhearted"
----
 
 If you only read the lyrics, you’d think you had stumbled across the unlikeliest pop hit ever.
 

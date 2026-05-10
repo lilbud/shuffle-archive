@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Whenever Bruce visits Boston, odds are good he’ll play The Standells’ garage rock tribute.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Dirty Water
----
 
 If you’re gonna rock in Boston, sooner or later you’ve got to play “Dirty Water.”
 

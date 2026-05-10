@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in history: Bruce releases his American Beauty EP. Plus: the live debut of “Follow That Dream” and “Where the Bands Are” and much more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 19
----
+
 
 Bruce and the not quite E Street Band play a poorly advertised (and therefore poorly attended) show at the New Jersey State Theater in New Brunswick. In attendance tonight: Penn Jillette.
 

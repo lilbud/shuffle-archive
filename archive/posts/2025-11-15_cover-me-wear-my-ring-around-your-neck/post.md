@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Wear My Ring Around Your Neck” may not be one of Elvis’ best songs, but it made for a fun E Street encore cover in the Born to Run era. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Wear My Ring Around Your Neck
----
 
 “There have been many tough guys. There have been contenders and there have been pretenders, but there is only one king: Elvis Presley.” *–Bruce Springsteen, introducing “Wear My Ring Around Your Neck,” March 8, 1975*
 

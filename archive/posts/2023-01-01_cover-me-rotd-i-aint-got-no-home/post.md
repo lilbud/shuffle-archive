@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce follows in the footsteps of Woody Guthrie, recasting “I Ain’t Got No Home” for modern times. Listen to Bruce’s studio recording and watch the official video inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me/RotD: I Ain’t Got No Home"
----
 
 Bruce has a penchant for taking songs (both traditional and popular) and recasting them, adding or replacing lyrics and creating new layers of meaning. He’s done that on a spectrum that spans from “” to “,” from “” to “.”
 

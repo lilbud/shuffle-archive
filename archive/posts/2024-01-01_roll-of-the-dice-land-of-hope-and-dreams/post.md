@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In a better world, Land of Hope and Dreams would be our national anthem. It’s certainly my personal one. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Land of Hope and Dreams"
----
 
 In a better world, “Land of Hope and Dreams” would be our national anthem. It’s certainly my personal one.
 

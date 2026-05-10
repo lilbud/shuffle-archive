@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Oops.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Introduction
----
 
 “As much as it is the writer’s job to write well, it is the listener’s job to listen well.” — 
 

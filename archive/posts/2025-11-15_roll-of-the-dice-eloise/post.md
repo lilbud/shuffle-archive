@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Growin’ Up” almost had a twin sibling. Take a listen to the first verse of what might have been.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Eloise
----
 
 Someday I hope someone brings an “Eloise!” sign to a show, just so I can a) finally learn how the song ends, and b) watch the collective confusion in the room when Bruce plays the opening bars and sings:
 

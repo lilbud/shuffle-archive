@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Countin’ on a Miracle” is a heartbreaking tale of love and loss, one of the most powerful songs on The Rising–but even more powerful still in its alternate post-concert arrangement. Listen to both inside, along with insights and great performances.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Countin’ on a Miracle"
----
 
 For all of Bruce’s considerable skill as a songwriter, performer, and bandleader, it’s his skill as an arranger that impresses me the most.
 

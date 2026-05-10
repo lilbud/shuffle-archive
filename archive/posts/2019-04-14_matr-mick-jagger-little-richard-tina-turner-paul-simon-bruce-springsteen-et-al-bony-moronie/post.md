@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "New video: Bruce joins an all-start jam at the fourth annual Rock and Roll Hall of Fame and covers Larry Williams’ “Bony Maronie.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Mick, Jagger, Little Richard, Tina Turner, Paul Simon, Bruce Springsteen, et al: Bony Moronie"
----
+
 
 On January 18, 1989, Bruce joined an all-star jam band at the fourth annual Rock and Roll Hall of Fame induction ceremony. Included in the set: Larry Williams’ 1957 hit, “Bony Moronie.”
 

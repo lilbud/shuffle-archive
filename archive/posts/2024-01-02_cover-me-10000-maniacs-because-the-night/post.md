@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Lightning strikes twice: 10,000 Maniacs releases not one but two fantastic live covers of “Because the Night” — 23 years apart. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, 10,000 Maniacs: Because the Night"
----
+
 
 Quick: who had the highest charting success with Bruce Springsteen and Patti Smith’s “Because the Night?”
 

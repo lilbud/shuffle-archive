@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Omitting this stunning street romance from Greetings From Asbury Park was a ballroom crime. Take a close listen to this misunderstood lost classic inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Two Hearts in True Waltz Time
----
 
 Bruce often confesses to discomfort with writing love songs in his early years, claiming to have hidden them away either metaphorically (by burying the theme so deeply in a song that you have to pay attention to find it) or by literally squirreling the song away in a vault, never to see the light of day.
 

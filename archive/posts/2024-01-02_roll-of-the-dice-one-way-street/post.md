@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "A tale of two one-way streets: one bitter, one sad, both sweet. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: One Way Street"
----
+
 
 Oh, Bruce.
 

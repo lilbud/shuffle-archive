@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "No other highlight from this date can top our lead story: Bruce’s legendary East Berlin show in front of 300,000 energized, galvanized Germans.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 19"
----
+
 
 *No updates***New for 2025:**
 

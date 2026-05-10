@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Co-written but never performed by Bruce, Joe Grushecky’s “Cheap Motel” sure *sounds* like a Bruce song. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Spare Parts: Cheap Motel"
----
 
 I’m glad I started this “Spare Parts” series recently, because I’d have no idea how else to classify this, to be honest.
 

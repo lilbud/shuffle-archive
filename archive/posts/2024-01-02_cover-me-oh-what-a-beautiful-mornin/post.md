@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: In tribute to Elaine Steinbeck (wife of John), Bruce plays a gentle, acoustic cover of the opening song from the classic Broadway musical Oklahoma!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Oh, What a Beautiful Mornin’"
----
+
 
 Okay, we all know that Bruce Springsteen is a John Steinbeck fan.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: a mini-Seeger Sessions reunion, an Edwin Starr guest appearance, the release of “We’ve Got the Love,” and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 16"
----
+
 
 *New entry for 1973, 1975, and 2024; audio for 1999***New for 2025:**
 

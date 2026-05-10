@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: More appropriate today than the night it was performed.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: I Have Faith in These Desolate Times
----
 
 One early summer evening, 27 years ago, Bruce Springsteen invited Terence Trent D’Arby to the stage at his Madison Square Garden benefit show for the Kristen Ann Carr Fund.
 

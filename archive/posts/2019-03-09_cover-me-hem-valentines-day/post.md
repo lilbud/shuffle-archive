@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Indie-folk band Hem gave us a wonderful adaptation of “Valentine’s Day” on their 2002 EP of cover songs. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Hem: Valentine’s Day"
----
 
 Shortly after their founding, the eclectic, indie folk band Hem released , a 2002 EP of cover tunes, all gorgeously reimagined.
 

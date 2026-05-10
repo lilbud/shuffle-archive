@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: If Night Two in Philadelphia wasn’t longer than Night One, it certainly was looser–and that unpredictability made for a great show on a thick and humid Friday night.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Philadelphia, September 9, 2016"
----
 
 The big question in my mind coming out of : how do you top a show that includes “New York City Serenade,” “,” “, “,” “” “, “,” “,” and “Jungleland” on Night Two?
 

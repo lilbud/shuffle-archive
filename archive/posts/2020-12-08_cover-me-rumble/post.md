@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Shortly after Link Wray’s death in 2005, Bruce paid homage by opening the final two shows of the Devils &amp; Dust Tour with a bristling, menacing cover of Wray’s signature song, “Rumble.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Rumble"
----
 
 Has there ever been an instrumental so sinister, slinky and sexy as Link Wray’s 1958 single, “Rumble?”
 

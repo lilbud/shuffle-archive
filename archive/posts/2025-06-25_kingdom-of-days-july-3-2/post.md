@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce announces his participation in the Human Rights Now Tour during a worldwide broadcast of his Tunnel of Love show in Stockholm, and Italian fans surprise Bruce when he takes the stage in Milan. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 3"
----
+
 
 *New entry for 1978***New for 2025:**
 

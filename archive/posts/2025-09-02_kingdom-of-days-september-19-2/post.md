@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Max and Roy make their E Street Band debut, Bruce debuts a brand new song in Providence, and a legendary show in Passaic. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 19"
----
 
 *Review for 2012***New for 2025:**
 

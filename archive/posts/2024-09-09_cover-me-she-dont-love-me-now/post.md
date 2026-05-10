@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A return to form for Bruce as a cover artist and a fitting tribute for an artist we’ve featured here may times before. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: She Don’t Love Me Now"
----
 
 The mark of a great cover artist is the ability to find something that was always hidden within a song but that wasn’t brought to light by the original artist.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Lyrically slight and melodically malleable, “Does This Bus Stop at 82nd Street” is an early songwriting exercise that improbably became a fan favorite.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Does This Bus Stop at 82nd Street?
----
 
 “Any song… that you don’t understand the meaning to is always about sex.'” *–Bruce Springsteen introducing “Does This Bus Stop on 82nd Street?”, February 19, 2003*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Joe Grushecky’s first song on the heels of American Babylon was a complete tonal shift–a warm, uplifting rocker that resonates even more today than when he first released it.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Everything’s Going to Work Out Right
----
 
 Bruce Springsteen co-wrote four songs on Joe Grushecky’s 1998 album, , but the strongest song on the album is one hundred percent Joe’s.
 

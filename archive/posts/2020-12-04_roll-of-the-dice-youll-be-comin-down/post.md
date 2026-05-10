@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Musical cousin but lyrical opposite to “Lucky Town,” “You’ll Be Comin’ Down” is an under-the-radar track (perhaps justifiably) from Bruce’s Magic album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: You’ll Be Comin’ Down"
----
 
 Someday, I’d love to see Bruce play “You’ll Be Comin’ Down” back-to-back with “” and see if he has the same epiphany that he had in Sunrise a few years ago…
 

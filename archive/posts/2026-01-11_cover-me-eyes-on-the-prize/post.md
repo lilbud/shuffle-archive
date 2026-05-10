@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce and Marc Anthony Thompson breathed new life into this civil rights anthem on their 2006 Seeger Sessions Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Eyes on the Prize
----
 
 *The only thing I did was wrong*  
 *Was staying the wilderness too long.*

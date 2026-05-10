@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "This date in Springsteen history gave us some gems: check out the unreleased 1980 concert video from Largo, listen to highlights from Bruce’s trio of Asbury Park concerts in 1996, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 24"
----
+
 
 *Review for 1975***New for 2025:**
 

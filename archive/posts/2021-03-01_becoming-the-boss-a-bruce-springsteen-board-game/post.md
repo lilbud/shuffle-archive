@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Introducing a free-to-all Bruce Springsteen board game and love letter to Jersey Shore music scene. Here’s my interview with the designers of Becoming The Boss.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Becoming The Boss: A Bruce Springsteen Board Game"
----
 
 I didn’t know the world needed a Springsteen-themed board game, but Søren Kitaj and Knud Jønsson did.
 

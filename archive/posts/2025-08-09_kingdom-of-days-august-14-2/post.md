@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Steel Mill plays under the stars, Boom Carter and Dave Sancious play their final E Street gig, Philly and Boston duel each other across the years for most fervent news coverage, and more–all from this date.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 14"
----
 
 *Audio for 1985; new entry for 2004***New for 2025:**
 

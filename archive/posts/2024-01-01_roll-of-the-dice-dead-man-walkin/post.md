@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s quiet, introspective title track for Tim Robbins’ award-winning film earned him his second Oscar nomination.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Dead Man Walkin’"
----
 
 is based on a book by the same name, a true story of convicted murderers awaiting execution and the nun who develops a relationship with them and acts as their spiritual counselor throughout the remainder of their lives.
 

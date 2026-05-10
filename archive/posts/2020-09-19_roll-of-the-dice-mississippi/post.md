@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Long before “The Ghost of Tom Joad,” nineteen-year-old Bruce Springsteen adapted another great work of literature into song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Mississippi"
----
 
 Bruce adapted classic literature in song long before “”
 

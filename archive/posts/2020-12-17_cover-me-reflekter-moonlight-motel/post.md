@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: James Gooch’s acoustic cover of “Moonlight Motel” is the first Western Stars cover I’ve featured on this blog, and it’s bound to be a controversial one. You’ll understand why when you listen to it.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Reflekter: Moonlight Motel"
----
 
 Okay, so here’s the thing: I really want to like this cover.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Today’s highlights include a show from the short-lived Sundance Blues Band and Springsteen’s Hall of Fame induction of (and duet with) Roy Orbison.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 21
----
 
 Upon returning home from his aborted relocation to California, Bruce reunites with his eponymous band (now called The Sundance Blues Band) at The Captain’s Garter in Neptune, New Jersey.
 

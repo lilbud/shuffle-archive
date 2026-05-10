@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It takes a special performer to steal the show from Bruce Springsteen. Watch The Philly Elvis do it when Bruce grants his request on the Working on a Dream Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and The Philly Elvis, All Shook Up"
----
 
 Normally, when I write a post about Bruce covering another artist, I provide a little backstory about the song. Sometimes I also add some color commentary about the album and the artist, along with an angle on why that song is a natural or surprising choice for Bruce.
 

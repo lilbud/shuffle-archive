@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Now it can be told: the secret Springsteen studio performance kept under wraps for a quarter century.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Grushecky, Bruce Springsteen, and Patti Scialfa: Comin’ Down Maria"
----
+
 
 Two COVID summers ago, Joe Grushecky and I had a long, detailed conversation about his milestone album, which celebrated its 25th anniversary last year. And in the middle of our conversation, he dropped a bombshell on me.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce grappled with depression through song as early as 1968, as this unreleased entry from his notebook demonstrates.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: For Never Asking"
----
 
 It’s time for another visit to the “,” where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don’t appear on any bootlegs.
 

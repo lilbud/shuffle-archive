@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: On the Born to Run Tour, Chuck Berry’s 1958 classic made frequent encore appearances.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Carol
----
 
 It wasn’t his biggest hit (it wasn’t even his biggest hit that year), but it was one of his most influential.
 

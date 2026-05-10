@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce gives a revealing radio interview, plays “Prove It ’78” for the last time for 32 years, and makes the first of many Light of Day appearances. More highlights and tons of video inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 3"
----
+
 
 *New entry for 2024***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In the waning days of 1975, Bruce broke out this charming 1962 one-hit wonder, and it led to a River-era outtake.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Party Lights
----
 
 “Party Lights” must have seemed like an unlikely cover for Bruce Springsteen and the E Street Band when they broke it out on the Born to Run Tour.
 

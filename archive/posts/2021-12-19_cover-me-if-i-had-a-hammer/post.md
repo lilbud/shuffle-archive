@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the few holdbacks from the decade-long Seeger Sessions finally saw an official release last year. Take a listen to Bruce’s cover of Pete Seeger’s “If I Had a Hammer.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: If I Had a Hammer"
----
 
 We tend to think of the Seeger Sessions as a point in time, a momentary diversion between Bruce’s rock albums. The Seeger Sessions actually spanned a full decade, though–they bridge the period all the way through to the era.
 

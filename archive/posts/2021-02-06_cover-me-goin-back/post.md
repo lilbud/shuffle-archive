@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When Carole King attended Bruce’s show at The Roxy in 1975, Bruce paid tribute by covering her wistful classic, “Goin’ Back.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Goin’ Back"
----
 
 There’s something about Carole King’s nostalgic “Goin’ Back” that grabs hold of the hearts of musicians in their mid-twenties.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce kicks off a magical show at Circus Maximus with “New York City Serenade” (complete with strings), plays a one-time-only cover of “Honky Tonk,” and makes surprise appearances at Jersey shore bar gigs. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 16"
----
+
 
 *New entry for 1975 and 1998***New for 2025:**
 

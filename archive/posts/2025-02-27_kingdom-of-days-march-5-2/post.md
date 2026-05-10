@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in history: Bruce plays “Fade Away” for the last time for almost a quarter-century. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 5"
----
+
 
 *Video for 2023***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "A true flash in the wild: the E Street Band rehearses a one-time-only performance of a lost, light Springsteen original.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I’m Gonna Treat You Right (Wild Kisses)"
----
+
 
 My goodness, where did come from? And where did it go?
 

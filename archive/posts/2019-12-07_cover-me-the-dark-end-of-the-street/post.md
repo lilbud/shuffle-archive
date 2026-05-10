@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce does his best Clarence Carter homage when a fan requests James Carr’s classic cheating song.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: The Dark End of the Street"
----
+
 
 Every once in a while, a fan brings a seriously great request sign to a show. One that would never even occur to me to ask for, but one that makes me immediately think “oooooh yeah, that’s a great choice.”
 

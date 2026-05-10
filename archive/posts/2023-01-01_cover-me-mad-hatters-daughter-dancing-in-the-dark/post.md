@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Hamburg duo Mad Hatter’s Daughter delight with their lovely, lonely cover of Bruce’s greatest hit.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Mad Hatter’s Daughter: Dancing in the Dark"
----
 
 “” has been enjoying a bit of a renaissance these past couple of years.
 

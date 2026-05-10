@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce galvanized his audiences to vote for change by leading all-star team-ups on Nick Lowe’s earnest anthem.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: (What’s So Funny ‘Bout) Peace, Love and Understanding
----
 
 It was supposed to be a joke.
 

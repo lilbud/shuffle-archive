@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Big day: Bruce releases his second studio album, films a 1980 River show for posterity (and an eventual box set), and makes guest appearances with Huey Lewis, Bob Geldof, and Eric Church. Lots more inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 5"
----
+
 
 *New entry for 2024***New for 2025:**
 

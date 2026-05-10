@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: You won’t hear Bruce’s voice on Joe Grushecky’s “Broken Wheel,” but you’ll certainly hear his guitar lending power to an already killer song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Broken Wheel
----
 
 Joe Grushecky’s very fine album is known by Springsteen fans primarily because it’s the home of the studio version of “Another Thin Line,” co-written and performed by both Bruce and Joe.
 

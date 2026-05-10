@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In the summer of 1970, Steel Mill (featuring a young Bruce Springsteen) performed one of Bruce’s early galvanizing anthems. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Come On"
----
 
 “It’s all happening out there in the street… so what are we all doing in here?” *–Bruce Springsteen, July 17, 1970*
 

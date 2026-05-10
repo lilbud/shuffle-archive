@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Hold on tight: Bruce Springsteen’s “Night” is three minutes of pure rock and roll adrenaline, but I’ll try to break it down inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Night"
----
+
 
 The first time you hear Bruce Springsteen’s “Night”… well, it’s kind of like this:
 

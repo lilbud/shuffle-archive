@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce records his first demos for Columbia Records, honors Pete Seeger and Dr. John, makes a return visit to Jazz Fest, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 3"
----
+
 
 *Audio for 1972; new entry for 1982; video for 1988***New for 2025:**
 

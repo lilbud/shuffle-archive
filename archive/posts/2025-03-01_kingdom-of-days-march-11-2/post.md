@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This date in Springsteen history features more rehearsals than concerts–but there are still a couple of gems. Check them out inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 11"
----
 
 *Advertisement for 1977; new entry for 2002***New for 2025:**
 

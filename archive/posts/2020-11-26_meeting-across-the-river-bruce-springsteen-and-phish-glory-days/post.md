@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Trey and Bruce tear it up at Bonnaroo and close with an epic “Glory Days.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and Phish, “Glory Days”"
----
 
 Bruce headlined Bonnaroo on June 13, 2009; the next day it was Phish’s turn.
 

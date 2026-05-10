@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce and Steve play an emotional tribute to the victims of the Norway attacks, Bruce makes surprise appearances with Southside Johnny and Joe Grushecky, and the feature documentary Springsteen &amp; I is released to theaters worldwide. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 22"
----
+
 
 *Audio for 1975***New for 2025:**
 

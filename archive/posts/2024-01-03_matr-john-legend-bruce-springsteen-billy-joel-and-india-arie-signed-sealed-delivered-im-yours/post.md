@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: John Legend, India Arie, Billy Joel, and Bruce Springsteen join forces on an anticipatory, celebratory cover of Stevie Wonder’s 1970 classic. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: John Legend, Bruce Springsteen, Billy Joel, and India Arie: Signed, Sealed, Delivered I’m Yours"
----
+
 
 Stevie Wonder’s “Signed, Sealed, Delivered I’m Yours” was a smash hit from the beginning, topping the U.S. R&B chart for six weeks and peaking at #3 on the Hot 100 in 1970.
 

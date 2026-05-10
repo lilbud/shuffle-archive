@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Never “officially” covered in concert, Bruce soundchecked Hank Williams’ classic during the Tunnel of Love Tour. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: I’m So Lonesome I Could Cry"
----
 
 Hank Williams had a considerable influence on Bruce’s music, so it’s not surprising that Bruce has covered so many of his songs. And yet one of Williams’ best-known songs–“I’m So Lonesome I Could Cry” remains uncovered by Bruce, even through a wide array of artists from Johnny Cash to Keb Mo to Cowboy Junkies to Al Green has taken a swing at it.
 

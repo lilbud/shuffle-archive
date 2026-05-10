@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the more curious of Bruce’s work-in-progress River-era home demos, “Stockton Girls” offers an inside look at a songwriter striving to bring a theme to life.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Stockton Girls"
----
 
 We took a look at Bruce Springsteen’s abandoned “” home demos a year or so ago; today we’ll listen to their sister song.
 

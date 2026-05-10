@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This lush but dark River-era outtake is one of Bruce’s best songs that never made an official studio album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Loose Ends"
----
 
 How could something so bad come from something so good?
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Although it’s believed that Bruce played blues classic “I’m Sitting on Top of the World” on multiple occasions, only one recording and definitively dated performance survives. Listen to it inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Sitting on Top of the World"
----
 
 “Sitting on Top of the World” is an American blues standard, recently recognized by the Library of Congress for its historical and cultural significance. It dates back to 1930, when it was first recorded by The Mississippi Sheiks, and its evergreen popularity is no doubt due in large part to its ironic lyrics: in any incarnation, the singer recounts his woes but still insists with each verse that he’s “sitting on top of the world” — determined to remain optimistic even though nothing about his circumstances may warrant it.
 

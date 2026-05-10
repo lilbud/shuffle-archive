@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Sometime in late 1981, Bruce sat down with a tape recorder and attempted a cover of “Precious Memories.” Listen to that demo here.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Precious Memories"
----
 
 Bruce was fascinated with traditional American folk and gospel long, before the Seeger Sessions.
 

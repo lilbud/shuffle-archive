@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: a unique arrangement of this Steve Van Zandt classic when Stevie joins Bruce at his “solo” acoustic show in 1996.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: I Don’t Want to Go Home
----
+
 
 For a brief shining moment, it felt like the E Street Band had reunited.
 

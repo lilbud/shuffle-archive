@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce had a dream in which he re-wrote “Happy Birthday” and now it’s on an album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Surprise, Surprise"
----
 
 “In my dreams, I’ve written many, many songs. And in my dreams these songs sound like the greatest songs I’ve ever written. I wake up, and I write some of these things down. And then I get up the next morning, and almost invariably all these songs are total shit! You think you’re great in your dream, but you’re not. For years, I’d write a song in my dreams, and in my dream I’m going ‘This is the one! This is the one that’ll make them forget Born to Run!’ I get up, I write it down, and I get up the next morning and play it and it’s horrendous. But one song I wrote in my dream, and I got up the next morning and played it and it was good. There’s only been one in all of 45 years.” — Bruce Springsteen’s on-stage introduction to “Surprise, Surprise”, November 4, 2011
 

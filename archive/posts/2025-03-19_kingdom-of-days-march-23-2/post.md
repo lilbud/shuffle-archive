@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce holds a one-off benefit show with a wild setlist in ’93, the first Working on a Dream preview show in ’09, and the legendary ’77 Boston stand continues. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 23"
----
+
 
 *New entry for 1978, 1996, and 2018; audio for 1988; video for 1993***New for 2025:**
 

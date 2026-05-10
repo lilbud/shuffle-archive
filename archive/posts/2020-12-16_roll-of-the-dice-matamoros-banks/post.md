@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Sadly more relevant today than when it was written, “Matamoros Banks” remains one of Bruce’s most heart-breakingly beautiful songs, better enjoyed on album than in concert.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Matamoros Banks"
----
 
 “We need nothing more right now than a humane immigration policy.” — *Bruce Springsteen, April 25, 2005*
 

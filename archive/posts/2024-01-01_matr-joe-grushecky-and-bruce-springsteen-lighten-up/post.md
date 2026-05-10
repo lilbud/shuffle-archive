@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A one-off performance of Joe Gruchecky’s “Lighten Up” with Bruce from the American Babylon tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Grushecky and Bruce Springsteen, “Lighten Up”"
----
 
 Today’s meeting across the river comes from the city of three rivers: Pittsburgh, PA.
 

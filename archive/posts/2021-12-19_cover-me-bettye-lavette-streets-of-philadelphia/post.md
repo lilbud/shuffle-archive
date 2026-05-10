@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: What can possibly be more powerful than Bettye LaVette’s 2007 cover of “Streets of Philadelphia?” A live performance from a decade later. Both are required listening.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Bettye LaVette: Streets of Philadelphia"
----
 
 Wow.
 

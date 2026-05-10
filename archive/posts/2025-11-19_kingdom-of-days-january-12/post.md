@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Youngstown in Youngstown, an all-star HOF jam, and a secret gig at the White House are among this day’s highlights.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 12
----
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2017-01-12.png?resize=758%2C738&amp;ssl=1)
 

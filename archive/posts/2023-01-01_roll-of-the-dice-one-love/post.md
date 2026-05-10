@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An almost B-side for an almost album, “One Love” remains locked away in Bruce’s vault (except for the demo escapee, which you can hear inside).
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: One Love"
----
 
 Bruce’s recording sessions for what would become spanned more than two years. “” (recorded in January, 1982) would end up as the earliest recorded song on the album; “” would complete the album when it was recorded almost 25 months later.
 

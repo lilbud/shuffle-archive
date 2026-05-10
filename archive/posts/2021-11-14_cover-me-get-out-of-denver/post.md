@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Catch Bruce playing in Denver, and you just might get lucky enough to hear him cover Bob Seger’s 1974 classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Get Out of Denver"
----
 
 It sounds like a Chuck Berry song and reads like a Bruce Springsteen song.
 

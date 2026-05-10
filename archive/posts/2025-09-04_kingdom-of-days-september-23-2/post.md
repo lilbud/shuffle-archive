@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "It’s Bruce’s birthday! You’d think that’d be enough highlight for one date, but there’s more: the release of Chapter and Verse, the last E Street Band performance before the break-up, the origin of the Seeger Sessions Band, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 23"
----
+
 
 *New entry for 1984; audio for 1988***New for 2025:**
 

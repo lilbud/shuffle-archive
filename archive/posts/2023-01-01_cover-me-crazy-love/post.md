@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen in on a 1988 soundcheck, where Bruce mashes up two Van Morrison classics.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Crazy Love"
----
 
 Early in the Tunnel of Love Express Tour, Bruce was in a Van Morrison state of mind. Although they never made the setlist, he often soundchecked Morrison’s songs. On one night, in fact, he soundchecked “,” “,” and “Crazy Love.”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Dr. Zoom and the Sonic Boom play their final gig, Bruce takes over a dancing school ball in Germany (really), and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 15"
----
+
 
 *Video for 2023***New for 2025:**
 

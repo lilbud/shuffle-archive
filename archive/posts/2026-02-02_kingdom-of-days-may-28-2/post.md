@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce drafts Mumford &amp; Sons at Pinkpop, films a pro-shot show in Stockholm, plays a new song for John Fogerty’s birthday, and gets the green light to start recording again when he settles his legal dispute with Mike Appel.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 28
----
+
 
 Child opens for the James Cotton Band for three shows in one day at the Pandemonium in Wanamassa, New Jersey.
 

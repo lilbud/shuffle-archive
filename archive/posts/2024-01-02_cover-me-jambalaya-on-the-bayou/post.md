@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At an impromptu soundcheck-turned-preshow, Bruce, Southside, and friends play a loose, fun cover of a Hank Williams classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Jambalaya (On the Bayou)"
----
 
 Sometimes the best moments at a Springsteen show happen long before the lights go down.
 

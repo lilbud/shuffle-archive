@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s eighth studio album is the latest to receive the complete Roll of the Dice treatment. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Tunnel of Love
----
 
 It’s been called his divorce album, but that ignores all the songs about beginnings rather than endings.
 

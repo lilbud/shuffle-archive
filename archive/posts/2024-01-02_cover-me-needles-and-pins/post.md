@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Never performed but occasionally soundchecked, Bruce was clearly taken with The Searchers’ “Needles and Pins” during the Born to Run tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Needles and Pins"
----
 
 Written by Sonny Bono and Jack Nitzsche, “Needles and Pins” was first recorded in 1963 by Jackie DeShannon, who scored a minor hit with it, peaking at #84 in the U.S. (but taking it all the way to the top in Canada.)
 

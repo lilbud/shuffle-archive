@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce calls it “an annoying fan favorite” and certainly not one of his. But in this blogger’s opinion, “The Fever” is one of the E Street Band’s finest moments on record.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Fever"
----
 
 Sometimes the dice are kind to me.
 

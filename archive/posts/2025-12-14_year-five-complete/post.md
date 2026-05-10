@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A note of thanks for your readership this past year and a look ahead to the next one!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Follow That Dream
----
 
 This is a ghost story.
 

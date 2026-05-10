@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce wins many Grammys, is saluted by MusiCares, breaks out an awesome “Highway to Hell” cover and more on this very busy day in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 8
----
 
 Night Two for Bruce and the (still unnamed) E Street Band at Richards in Atlanta, opening for NRBQ.
 

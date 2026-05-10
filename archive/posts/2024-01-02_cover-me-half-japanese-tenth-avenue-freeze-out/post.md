@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: You’ve wondered what “Tenth Avenue Freeze-Out” would sound like covered by the punkiest of punk bands, right? Of course you have.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Half Japanese: Tenth Avenue Freeze-Out"
----
 
 I don’t even know what to say about Half Japanese’s cover of “” other than: if you already know their style, you already know what to expect.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Rarities abound at gigs played on this day. Listen to live performances of “Lion’s Den,” “So Young and In Love,” “Janey, Don’t You Lose Heart,” and more. Plus: Greatest Hits is released on this date in 1995.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 28
----
+
 
 Bruce, Vini Lopez, Danny Federici, and Vinnie Roslin jam at the Upstage in Asbury Park. Within weeks, they will debut their new band, Child.
 

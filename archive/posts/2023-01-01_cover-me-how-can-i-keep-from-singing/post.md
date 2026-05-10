@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Buried away on the bonus DVD that accompanied the original Seeger Sessions album release, Bruce’s arrangement of “How Can I Keep From Singing” was too beautiful to keep hidden away for long. Listen to beautiful choral performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: How Can I Keep From Singing"
----
 
 Here’s one of the most under-the-radar officially released Springsteen tracks: a cover of a Christian hymn that dates back to at least the American Civil War era, about a devout but persecuted worshiper who refuses to surrender his faith.
 

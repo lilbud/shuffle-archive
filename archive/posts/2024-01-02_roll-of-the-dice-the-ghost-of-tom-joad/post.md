@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s personal anthem has been central and vital to his catalog since its 1995 debut, receiving an astonishing *four* different studio releases. Listen to them all, along with backstory, insights, and great performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Ghost of Tom Joad"
----
 
 “I had been watching what’s happening in the world and seeing thirty years of work undone. It seems disastrous to me–and everyone is compliant. I don’t think there is any such thing as an innocent man; there is a collective responsibility.” — *Bruce Springsteen to David Corn, December 1995*
 

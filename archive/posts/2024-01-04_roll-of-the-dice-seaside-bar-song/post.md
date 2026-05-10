@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An early Wild and Innocent outtake based on a still-standing bar bears the seeds of classic songs still to come.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Seaside Bar Song"
----
 
 “There was a club in New Jersey–it’s still there–called The Osprey. It’s in Manasquan. I had my first drink there, first drink ever. I thought it was the greatest night of my life. And I saw Bo Diddley! I saw Bo Diddley at the The Osprey in Manasquan. There’s a little stage… there’s a bar and a little stage that’s right there. So I went home and I wrote this song.” —*Bruce Springsteen, March 28, 2012*
 

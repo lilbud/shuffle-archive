@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce and Joe Grushecky team up on stage for the first time, a rocking tribute to Clarence, the filming of Springsteen on Broadway, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 17"
----
+
 
 *Audio for 1970; new entry for 1979***New for 2025:**
 

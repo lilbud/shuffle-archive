@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Fellow New Jerseyans take a swing at Bruce’s “Downbound Train.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Smithereens: Downbound Train"
----
 
 Fellow New Jerseyans take a swing at Bruce’s “.”
 

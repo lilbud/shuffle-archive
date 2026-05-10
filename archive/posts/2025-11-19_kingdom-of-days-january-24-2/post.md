@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce plays his first ever show in Chicago, preps for his first ever show in South Africa, and records two songs that have still never seen the light of day. These and more highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 24
----
 
 Bruce performs in Chicago for the first time, beginning a five-night stint at The Quiet Knight, opening for The Persuasions.
 

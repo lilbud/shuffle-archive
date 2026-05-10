@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: My first show in Milano hooked me on Italian shows forever–once I managed to survive getting inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Milan, November 28, 2007"
----
 
 I’d already seen one Springsteen show in Italy, . I I knew all about Italian fans and their legendary zeal for Bruce from that first-hand experience.
 

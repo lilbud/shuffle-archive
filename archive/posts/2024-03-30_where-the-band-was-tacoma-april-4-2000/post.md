@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The show that hooked me on Bruce in concert.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Tacoma, April 4, 2000"
----
 
 Even by Bruce’s standards, it was a late start: Rumor had it that Bruce had taken in a Mariners game earlier that day and was delayed in getting to the arena by Seattle’s infamous traffic, causing a domino effect from soundcheck to show start.
 

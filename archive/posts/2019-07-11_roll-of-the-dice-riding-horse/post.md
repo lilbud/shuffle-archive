@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "From the one-that-got-away files: take a listen to “Riding Horse,” Bruce’s ode to, um, dating tall women.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Riding Horse"
----
+
 
 Let’s take a listen to a never-released outtake from Bruce Springsteen’s sessions that’s especially, um, high concept.
 

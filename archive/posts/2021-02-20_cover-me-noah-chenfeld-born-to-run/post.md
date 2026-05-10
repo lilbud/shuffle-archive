@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: NYC-based Noah Chenfeld reimagines “Born to Run” for our troubled times while winking at another Springsteen classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Noah Chenfeld: Born to Run"
----
 
 It’s two covers in one!
 

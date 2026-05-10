@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The Vote for Change Tour kicks off, The Rising Tour winds down, and Bruce kicks off a mini-tour of Italy with the Sessions Band. Plus: Bruce serenades Sting on his 60th birthday, and I meet Bruce in Seattle!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 1"
----
+
 
 *Video for 2003; new entry for 2024***New for 2025:**
 

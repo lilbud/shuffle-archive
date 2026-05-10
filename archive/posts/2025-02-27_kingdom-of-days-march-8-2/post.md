@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "It’s a behind-the-scenes day: listen to the backstory of Ernest “Boom” Carter’s first show, watch local news coverage of the Tunnel of Love Express tour, and spy on Bruce getting ready for sound check with The Wallflowers.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 8"
----
+
 
 *No updates***New for 2025:**
 

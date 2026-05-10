@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s sonically rough and lyrically trite, but a 20-year-old Springsteen turns in a ferocious guitar performance in his early composition, “Good Lovin’ Woman.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Good Lovin’ Woman"
----
 
 Okay, this one’s more than a little bit rough. But if you’re like me–a completist that absolutely listen to every song Bruce has written and recorded or performed at least once–well then, please proceed.
 

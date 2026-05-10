@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This Born to Run outtake is a mess, an absolute mishmash. But I love it nonetheless.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Lonely Night in the Park"
----
 
 When Sirius first announced its E Street Radio station, fans wondered if it would feature any rare or unheard songs, or if it would stick to released tracks and more mainstream bootleg recordings. We didn’t have to wait long to find out: shortly after the station debuted in 2005, this well-documented but never-heard (by me, at least!) song entered the rotation with absolutely no fanfare. To call me surprised is to put it mildly.
 

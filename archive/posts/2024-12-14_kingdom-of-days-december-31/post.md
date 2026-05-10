@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Highlights from New Years Eve shows across the years, including the earliest known prototype of “Drive All Night.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 31"
----
 
 *No updates***New for 2024:**
 

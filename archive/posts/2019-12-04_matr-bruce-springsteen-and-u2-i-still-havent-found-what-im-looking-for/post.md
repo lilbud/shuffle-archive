@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s a veritable lovefest every time Bruce joins U2 on their iconic anthem, “I Still Haven’t Found What I’m Looking For.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and U2, I Still Haven’t Found What I’m Looking For"
----
 
 It’s one of the most iconic songs from one of rock’s most iconic bands.
 

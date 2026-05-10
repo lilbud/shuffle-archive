@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen to the never-released “Sell It and They Will Come,” first performed on this day in 1996, an E Street Radio interview from 2014, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 10
----
 
 Steel Mill plays the College of Marin during their California sojourn.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce covers Dominc Behan’s cautionary ballad on the cost of patriotic extremism.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: The Patriot Game"
----
+
 
 For all of the hundreds of covers Bruce has performed in concert, there are probably thousands he’s only soundchecked.
 

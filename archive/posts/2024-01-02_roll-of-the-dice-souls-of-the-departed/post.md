@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Souls of the Departed” serves as the mirror image and bookend to “Better Days” on Bruce’s Lucky Town album–a deeply unsettling song about the hidden costs of a charmed life.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Souls of the Departed"
----
 
 Even when Bruce is happiest with his lot in life, he grapples with the systemic social inequality that made it possible.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The live debut of “I Wanna Be With You” and the first public Seeger Sessions warm-up show lead the highlights from this date in Bruce history. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 20
----
 
 Child performs at Hullabaloo in Asbury Park.
 

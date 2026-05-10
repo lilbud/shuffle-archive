@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This understated, underrated 1989 outtake puts a period at the end of “Brilliant Disguise.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Trouble in Paradise"
----
 
 Bruce Springsteen released “” in October 1987, but he apparently didn’t finish writing it for another two years after that.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: So nice they covered it twice–and both versions made the Top 100.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: The Manfred Mann Covers
----
 
 When it comes to Springsteen covers, Manfred Mann’s Earth Band occupies the throne with not one but successfully charting hits–all of which scored higher than Bruce was able to do by himself.
 

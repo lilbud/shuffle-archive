@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: I’m not sure where it came from, but Sarah Hepburn’s brooding cover of “Adam Raised a Cain” is wonderful regardless.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Sarah Hepburn: Adam Raised a Cain"
----
 
 Gotta confess: I know next to nothing about Sarah Hepburn, and absolutely zero about Mungo Records and the film called .
 

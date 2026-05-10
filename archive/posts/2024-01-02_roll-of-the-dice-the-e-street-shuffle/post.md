@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An unlikely origin song and musical melange in every incarnation, “The E Street Shuffle” introduced and knighted Bruce’s destined-for-legend band.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The E Street Shuffle"
----
 
 “It’s just a place. Our piano player lives there, lives on that street. It’s just a place.'” *–Bruce Springsteen, 1975*
 

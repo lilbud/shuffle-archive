@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce takes a supporting role in Patti’s outstanding civic anthem.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Patti Scialfa and Bruce Springsteen: Looking for Elvis"
----
+
 
 “To me, Elvis was a metaphor for your more patriotic ideas and dreams for your country… and the guys, everybody, you and everybody, played the hell out of it. It was actually one of my angriest songs that I’ve ever written.” — Patti Scialfa to Bruce Springsteen, *From My Home to Yours, Volume 9*
 

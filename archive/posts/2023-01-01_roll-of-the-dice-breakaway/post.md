@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Is this the darkest song in Bruce’s catalog? (Spoiler alert: yes.) 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Breakaway"
----
+
 
 It takes a lot of darkness to out-dark , but “Breakaway” manages to do it.
 

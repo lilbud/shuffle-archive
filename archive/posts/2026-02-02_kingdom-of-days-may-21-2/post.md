@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Too many highlights to list: the first cut of “Born to Run,” the first “Meeting Across the River” in 20 years, and more. Plus: the debut of Bruce Springsteen and the Hot Mammas (really).
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 21
----
+
 
 The Castiles perform at their own junior prom at Freehold Regional High School.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Ladies and gentlemen, the definitive performance of “Adam Raised a Cain.” And it’s not by Bruce. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Alabama Shakes: Adam Raised a Cain"
----
 
 Last weekend I had the honor and pleasure of joining The Jersey Girls on their delightful podcast, . (The episode isn’t out yet, but if you’re so inclined you can keep an eye out for it at whichever podcast hub you frequent. Check out their back episodes while you’re there!)
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce salutes his mom with this song by local Philly band The A’s.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: A Woman’s Got the Power"
----
 
 When Bruce’s mom complained that he always sang about his father but never about her, Bruce replied by covering “A Woman’s Got the Power” by the great Philly band The A’s during a Meadowlands appearance early on the Tour. (This was before Bruce wrote “.”)
 

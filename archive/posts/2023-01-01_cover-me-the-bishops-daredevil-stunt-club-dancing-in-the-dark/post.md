@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Fierce, fresh, and irresistible, The Bishop’s Daredevil Stunt Club revitalizes and electrifies Bruce’s greatest hit. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Bishop’s Daredevil Stunt Club: Dancing in the Dark"
----
 
 Well into their second decade, The Bishop’s Daredevil Stunt Club has carved out their berth at the forefront of the Chicago power pop scene with fierce guitar hooks, sweet harmonies, and a sound that’s more than a little reminiscent of The Cars.
 

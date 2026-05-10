@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In a historic one-off performance, Bruce joined Ringo Starr, Billy Preston, Nils, Clarence, Levon Helm, Dr. John, and more for the All-Starr Band’s first live performance of “Get Back.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Get Back
----
 
 For a musician who was so inspired by The Beatles, Bruce Springsteen’s covers of The Fab Four’s catalog have been relatively few and far between.
 

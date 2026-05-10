@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The only electric rocker on Nebraska, “Open All Night” was destined for greater heights than its original arrangement.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Open All Night"
----
 
 “[‘Open All Night’] is totally Chuck Berry-inspired, because he was the master of everyday imagery.” — Bruce Springsteen to Conan O’Brien, October 25, 2020*Conan O’Brien Needs a Friend,*
 

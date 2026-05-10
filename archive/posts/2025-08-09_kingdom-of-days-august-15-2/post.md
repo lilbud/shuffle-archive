@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s a day for legendary shows, from the 1975 Bottom Line radio broadcast to the ’78 Largo video to the stunning, unpredictable second night in Fenway in 2012. Lots of great video and many more highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 15"
----
 
 *New entry for 1977 and 2024; audio for 1985; video for 2008***New for 2025:**
 

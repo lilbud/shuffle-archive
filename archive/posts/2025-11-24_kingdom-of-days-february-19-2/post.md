@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: early E Street Band footage from ’77, a one-off acoustic show in Somerville, and two surprise covers in Sydney. Lots of great video to watch today!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 19
----
+
 
 Bruce jams with local musicians at an open mic night at the Upstage.
 

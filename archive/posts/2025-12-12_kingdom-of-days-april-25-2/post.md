@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce kicks off the Devils &amp; Dust Tour, wraps up the first U.S. leg of the River (2016) Tour, and appears on Good Morning America to promote his new Seeger Sessions album. These and more highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 25
----
 
 Bruce plays two shows at The Main Point in Bryn Mawr, Pennsylvania. 
 

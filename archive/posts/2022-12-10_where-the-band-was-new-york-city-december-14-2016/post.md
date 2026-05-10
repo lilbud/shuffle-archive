@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce closed the show at the 2016 Rainforest Fund holiday concert, playing five songs that included two live premieres and one fantastic team-up.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: New York City, December 14, 2016"
----
 
 I’d always wanted to attend one of Sting and Trudie’s Rainforest Fund concerts–I support their cause and love Sting’s music, and I’m usually tickled by the creative themes and wide array of artistry on display.
 

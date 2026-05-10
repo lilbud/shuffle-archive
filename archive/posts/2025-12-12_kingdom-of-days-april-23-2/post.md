@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “4th of July Asbury Park (Sandy),” made its concert debut on this date, along with Bruce’s covers of “Have Love Will Travel,” “Sweet Soul Music,” and “Purple Rain.” These and many more highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 23
----
 
 Bruce plays two shows at The Upstage in Asbury Park, jamming with (and scouting) local musicians for a new band.
 

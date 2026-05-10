@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce lent his vocal and keyboard talents to Joe Ely for Joe’s 1995 classic, “All Just to Get to You.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Ely and Bruce Springsteen: All Just to Get to You"
----
 
 Critics compared Joe Ely with Bruce Springsteen from the beginning.
 

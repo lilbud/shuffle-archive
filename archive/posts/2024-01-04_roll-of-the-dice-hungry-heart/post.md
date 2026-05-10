@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Written for The Ramones and influenced by The Byrds, The Four Seasons, and The Beach Boys, “Hungry Heart” gave Bruce his first Top Ten hit.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Hungry Heart"
----
 
 Written for The Ramones, arranged after The Beach Boys, built around a Four Seasons riff and a Tennyson metaphor, sped up a la Alvin and The Chipmunks, and sporting deceptively dark lyrics, “Hungry Heart” was a longshot candidate for release at all, let alone a lead single.
 

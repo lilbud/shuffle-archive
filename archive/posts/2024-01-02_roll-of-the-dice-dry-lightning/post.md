@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The closes thing to an E Street Band track on The Ghost of Tom Joad, this post-romantic ballad points the way to Western Stars in more ways than one.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Dry Lightning"
----
 
 “Dry Lightning” might be the first song Bruce ever wrote for even if his 2019 masterpiece album wasn’t even a gleam in his eye at the time.
 

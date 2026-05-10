@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A surprise pre-show sets the tone for a memorable night at the L.A. Sports Arena.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Los Angeles, April 27, 2012"
----
 
 Every Springsteen show has at least one special moment. You never know what it will be–maybe a never-before-played song, maybe a special guest or a special request, maybe a performance that goes off-the-rails and way past curfew. You also never know exactly it will be.
 

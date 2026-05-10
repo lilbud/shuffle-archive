@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: video footage from Bruce’s 1975 show in Houston, Bruce wins two MTV VMAs, and Bruce’s first performance of “I Walk the Line.” Watch them all, plus more highlights here.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 13"
----
+
 
 *Reviews for 1975; new entry for 1993 and 2024***New for 2025:**
 

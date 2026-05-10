@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen joins local band Solar Circus to pay tribute to the late Jerry Garcia.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Solar Circus and Bruce Springsteen: Better Things"
----
+
 
 “In the 1970s I went to a Grateful Dead show at a community college. I watched the crowd swaying and doing its trance-dance thing and I stood very outside of it. To me—sober, nonmystical, only half hippie, if that, me—they sounded like a not-very-talented bar band. I went home gently mystified. I don’t know if the Grateful Dead were great but I know they did something great. Years later, when I came to appreciate their subtle musicality, Jerry Garcia’s beautifully lyrical guitar playing and the folk purity of their voices, I understood that I’d missed it. They had a unique ability to build community and sometimes, it ain’t what you’re doing but what happens while you’re doing it that counts.” — Bruce Springsteen, (2016)*Born to Run*
 

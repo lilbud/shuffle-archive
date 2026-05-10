@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Facing his largest audience ever, performing for the first time as a married man, Bruce shared what was on his mind by covering The Beach Boys’ “When I Grow Up (To Be a Man).”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: When I Grow Up (To Be a Man)"
----
+
 
 When Brian Wilson and Mike Love were just 18 and 19 respectively, they took a peek over the precipice of adulthood and recorded “When I Grow Up (To Be a Man).”
 

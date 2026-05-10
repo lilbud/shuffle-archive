@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Steel Mill opens for Black Sabbath, Bruce makes a Tonight Show appearance, and it’s the world premiere of “It’s the Little Things That Count.” More highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 27"
----
 
 *No updates***New for 2025:**
 

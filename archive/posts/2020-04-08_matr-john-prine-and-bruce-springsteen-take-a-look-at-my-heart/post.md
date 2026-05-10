@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From John Prine’s 1991 album The Missing Years comes this wry, bitter rocker, written by Prine and John Mellencamp.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: John Prine and Bruce Springsteen, Take a Look at My Heart"
----
 
 Bruce Springsteen has been a fan of John Prine since the early seventies, and they once shared a stage in the late eighties. But it took until 1991 for them to record their first and only collaboration.
 
@@ -28,6 +22,6 @@ It’s clever and angry and funny and vulnerable and a great piece of songwritin
 (1991)
 
 **Take a Look at My Heart**
-Released:**  
+**Released:**  
 *The Missing Years*  
 **Never performed**

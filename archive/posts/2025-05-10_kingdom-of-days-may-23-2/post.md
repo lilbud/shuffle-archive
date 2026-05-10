@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The legendary Darkness on the Edge of Town Tour begins! Hear the soundcheck and opening inside, and watch tour premieres and rarities galore from this date in history.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 23"
----
+
 
 *New entry for 1975, 1983, and 2024; audio for 1988***New for 2025:**
 

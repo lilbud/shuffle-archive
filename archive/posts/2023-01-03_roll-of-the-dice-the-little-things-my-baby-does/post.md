@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Little Steven calls it the E Street Band’s finest moment on record, and he may be right.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Little Things (My Baby Does)"
----
 
 “‘The Little Things (My Baby Does)’… in my opinion, for me right now, may be our finest moment on record. Period. I’m serious.” — Little Steven, Episode 470*Little Steven’s Underground Garage,*
 

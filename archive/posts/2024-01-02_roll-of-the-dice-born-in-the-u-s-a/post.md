@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Even Bruce wasn’t always sure exactly what he was trying to say with “Born in the U.S.A.” Let’s finish tracing the evolution of one of Bruce Springsteen’s most famous songs, from early drafts to remixes and great live performances.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Born in the U.S.A."
----
 
 Last month, we took a look at Bruce’s unreleased era home demo, “.”
 

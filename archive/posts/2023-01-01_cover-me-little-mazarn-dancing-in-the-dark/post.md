@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Little Mazarn’s brand-new cover of Bruce’s biggest hit is one of my favorite “Dancing in the Dark” covers yet. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Little Mazarn: Dancing in the Dark"
----
 
 I’m not sure how to describe Little Mazarn’s sound; “new age/Appalachian” may be as close as I can get.
 

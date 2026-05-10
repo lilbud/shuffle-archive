@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce plays in Washington DC for the first time, sings karaoke in London, and treats French fans to an acoustic pre-show.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 24
----
+
 
 Bruce plays his first ever show in Washington, D.C. at Childe Harold. David Sancious (not yet a member of the E Street Band) sits in.
 

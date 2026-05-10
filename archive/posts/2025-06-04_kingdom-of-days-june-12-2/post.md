@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The legendary final stand of the Reunion Tour kicks off at Madison Square Garden, and Bruce joins Jackson Browne at the Rally for Disarmament. More highlights from this date in Springsteen history inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 12"
----
 
 *New entry for 1979 and 2024; audio for 2000; video for 2003***New for 2025:**
 

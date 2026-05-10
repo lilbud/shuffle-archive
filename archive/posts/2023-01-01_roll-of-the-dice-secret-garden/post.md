@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Secret Garden” is one of Bruce’s best love songs. It’s also one of his least romantic. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Secret Garden"
----
 
 Let’s just get this out of the way up front: we’re not going to discuss that horrendous “Jerry Maguire Mix.”
 

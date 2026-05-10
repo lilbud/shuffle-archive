@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Valerie” looms large in Bruce and Patti’s personal history, and that may be why their one and only performance of it was so lovely and powerful.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Valerie
----
 
 [“Valerie” is] a very heavy song in our history… I was visiting you in your apartment in New York (probably when I shouldn’t have been visiting you in your apartment in New York). Under the guise of rehearsing for, I’m teaching you the guitar parts. But somehow, you got around to playing me this next song, and I remember thinking, “Oh my God, this woman can write.” And it totally made me twice as scared as I was anyway. It was like, whoa, I think I saw your talent for the first time, outside of just your voice. It was a pretty intense moment. —  *Tunnel of Love**Bruce Springsteen to Patti Scialfa, From My Home to Yours Volume 9*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Listen to a work-in-progress “Born to Run” from the Bottom Line and a rare E Street Band “Man’s Job.” Plus Patti releases her first solo album, Rumble Doll—listen to her in-depth radio interview inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 13"
----
+
 
 *New entry for 1975 and 1979***New for 2025:**
 

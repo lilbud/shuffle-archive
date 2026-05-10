@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When Southside Johnny took ill, Bruce, Steve, the E Street Band, and the Jukes came to the rescue. From May 1977, here’s one of Bruce’s only performances of the Solomon Burke classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and the Asbury Park All-Star Revue, Got to Get You Off My Mind"
----
 
 When Southside Johnny took ill in May ’77 and couldn’t perform his scheduled gigs at the Monmouth Arts Center in Red Bank, Steve Van Zandt transformed his show into “The Asbury Park All-Star Revue,” featuring the Jukes, Bruce and the E Street Band, and Ronnie Spector. The Revue performed only one show on and two shows on , but while it lasted it was a glorious concert experience.
 

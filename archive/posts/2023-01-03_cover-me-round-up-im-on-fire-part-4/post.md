@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Five more fresh takes on Bruce’s steamy hit single.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me Round-Up: I’m on Fire (Part 4)"
----
 
 It’ s time for our first “” round-up of 2022, and we’ve got some great ones to enjoy today. Each of today’s artists gifts us with a different spin on Bruce’s oft-covered classic.
 

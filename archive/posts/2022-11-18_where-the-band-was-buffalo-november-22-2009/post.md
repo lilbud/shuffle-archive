@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: No one could have known that this was Clarence’s final show. But it almost seems like Bruce did, because it’s hard to imagine a more fitting tribute to their friendship.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Buffalo, November 22, 2009"
----
 
 Way, way, up near the top of my favorite shows list lies this one. Certainly one of the least predictable, absolutely one of the most memorable and (especially in retrospect) emotional.
 

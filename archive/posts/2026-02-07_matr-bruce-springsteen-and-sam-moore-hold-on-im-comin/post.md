@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Magic happens when two legendary front men share the stage. Check out Bruce and Sam Moore performing Sam and Dave’s timeless “Hold On, I’m Comin'”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Hold On, I’m Comin’
----
 
 Bruce has long credited Sam Moore as a major influence, and if you’ve ever seen Sam perform live, it’s easy to see why and how. But let’s let Bruce explain it in his own words to Elvis Costello:
 

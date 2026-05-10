@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Jane Willow captured the sense of isolation and frustration we all felt early in the pandemic with her cover of “Dancing in the Dark.” Now she’s updated it for what it feels like a year later.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Jane Willow: Dancing in the Dark"
----
 
 I told myself I’d lay low with the “” covers for a bit, but I love this new one too much to keep it on the shelf.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in history: Danny Federici makes his final appearance with the E Street Band. Watch the emotional performance, plus more highlights from across the years.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 20"
----
+
 
 *Audio for 2008; video for 2013 and 2023***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Steven Van Zandt makes his E Street Band debut as the Born to Run tour gets underway. Plus: he may be the best at capturing a crowd’s attention, but even Bruce can’t compete with a moon landing.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 20"
----
+
 
 *Audio for 1975***New for 2025:**
 

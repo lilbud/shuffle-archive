@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "“Wrecking Ball” (the song) debuted on this date. Plus: Bruce films Black &amp; White Night with Roy Orbison, joins Bryan Adams at the Invictus Games, makes his first and only appearance in India, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 30"
----
+
 
 *Audio for 1976; new entry for 1977***New for 2025:**
 

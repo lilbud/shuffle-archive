@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday, Bobby King! Plus: a sizzling set in a rainy Rock Creek Park, the debut of “Summertime Blues,” the emotional return of “Jungleland,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 28"
----
+
 
 *Audio for 1975; new entry for 1983; video for 2016***New for 2025:**
 

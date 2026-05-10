@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The decade-long and winding tale of an early outtake that missed making three albums but ended up (sorta) on one by Warren Zevon.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Janey Needs a Shooter"
----
 
 If you’d told me when I first published this essay that we’d seen an officially released, brand new recording of “Janey Needs a Shooter” within ninety days, I’d have thought you were nuts. And yet, here we are: Bruce’s new album, , is available and includes–at long, long last–a fully realized version of “Janey Needs a Shooter,” and it is glorious.
 

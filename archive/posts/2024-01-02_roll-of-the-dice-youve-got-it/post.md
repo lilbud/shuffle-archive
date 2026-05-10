@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s an okay trifle, but whatever makes a pop song great, “You’ve Got It” ain’t got it.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: You’ve Got It"
----
 
 Not every song has to be a masterpiece; not every song requires analysis and dissection.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only (that we can listen to, at least): Listen to The Bruce Springsteen Band at their bluesiest, as they cover Howlin’ Wolf’s Chicago blues classic.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Sitting on Top of the World"
----
+
 
 If you are a fan of the blues, then today’s entry is for you, because trust me: you will never hear Bruce Springsteen any bluesier than this.
 

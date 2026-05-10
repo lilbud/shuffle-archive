@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s one-time-only cover of Leonard Cohen’s “Suzanne,” with the Castiles in 1967.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Suzanne"
----
 
 Bruce covered Leonard Cohen’s “Suzanne” just once, with the Castiles, the same year that Cohen released his debut single.
 

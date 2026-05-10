@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce has covered “Louie Louie” several times through the decades–catch some of his best performances of the frat rock classic inside. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Louie Louie"
----
 
 No recording exists of Bruce Springsteen’s first known performance of “Louie Louie” on September 9, 1978. (: I’m wrong, as readers Mark and Suzanne point out below. I have the bootleg from that show but thought it was missing “Louie Louie.” Thanks for the correction, guys!)
 

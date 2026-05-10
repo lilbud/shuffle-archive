@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: If there was ever a song that sounds like (but isn’t) a Springsteen original, it would have to be Tom Waits’ “Jersey Girl.” Check out Bruce’s great cover performances inside, including a rare Springsteen/Waits duet with hybrid lyrics!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Jersey Girl
----
 
 Honestly now: are we sure Bruce Springsteen didn’t write “Jersey Girl?”
 

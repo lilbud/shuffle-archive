@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A little Valentine’s day (counter?) programming.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I’ll Work For Your Love"
----
 
 I know what you’re thinking: the dice must be loaded today.
 

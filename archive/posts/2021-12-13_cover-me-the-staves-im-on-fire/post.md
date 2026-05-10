@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s time for another “I’m on Fire” cover–by a trio who nails it so well that I can only narrow them down to three great performances.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Staves: I’m on Fire"
----
 
 Yes, I know–I’ve already featured “” covers on the Shuffle, but there are just so darn many of them.
 

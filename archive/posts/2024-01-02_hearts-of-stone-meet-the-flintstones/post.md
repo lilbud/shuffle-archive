@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Today we kick off a new series examining the work of the lesser-known Bruce Springstone. Today’s heart of stone: Bruce’s homage to the classic “(Meet the) Flintstones.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Hearts of Stone: (Meet the) Flintstones"
----
+
 
 Our long-running and series have been so well-received that I’ve decided to launch a sixth series starting today!
 

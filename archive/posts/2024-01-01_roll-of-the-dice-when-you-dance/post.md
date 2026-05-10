@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce wrote and performed “When You Dance” with The Bruce Springsteen Band long before Southside Johnny covered and released it, and Bruce’s early guitar-jam version is an unreleased gem that belong’s in every fan’s collection.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: When You Dance"
----
 
 Turn it up!
 

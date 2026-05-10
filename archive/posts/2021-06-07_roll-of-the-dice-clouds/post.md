@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Clouds” is the first entry in Bruce’s legendary lost 1968 Notebook. Likely performed in his solo acoustic shows that year, “Clouds” is the lament of a Vietnam soldier clinging desperately to visions of home, love, and life.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Clouds"
----
 
 It’s time for another visit to eighteen-year-old Bruce Springsteen’s .
 

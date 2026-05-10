@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Brand new but instantly one of my top ten favorite Springsteen covers: take a listen to Danny Gone’s gorgeous rendition of “If I Should Fall Behind.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Danny Gone: If I Should Fall Behind"
----
+
 
 I realize that Springsteen covers are a mixed bag; just because we love the song when performed by its original artists doesn’t mean the song translates well to others.
 

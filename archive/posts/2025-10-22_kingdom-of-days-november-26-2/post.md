@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce makes a guest appearance with Patti Smith, debuts “Hearts of Stone,” and records a Christmas greeting for Ed Sciaky. Plus: a very crowded “solo” stage in Asbury Park and much more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 26"
----
+
 
 *Audio for 1996; new entry for 2024***New for 2025:**
 

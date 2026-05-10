@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this busy date: Bruce plays three shows in three cities (and two states) in one day, records live tracks for the Chimes of Freedom EP, and opens a show with… Pony Boy?
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 27
----
+
 
 Bruce opens for Blood, Sweat and Tears, The Eagles, Joe Walsh, Billy Preston, and more at the Ohio University Music Festival.
 

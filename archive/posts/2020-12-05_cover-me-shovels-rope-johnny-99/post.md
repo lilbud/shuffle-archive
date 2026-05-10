@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Love it or hate it, Shovels &amp; Rope certainly captures the bravado and unraveling desperation of Bruce’s classic anti-hero.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Shovels &amp; Rope: Johnny 99"
----
 
 You’re either going to love this or hate it.
 

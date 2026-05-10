@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Southside Johnny turns in a gorgeously soulful, acoustic cover of “Fade Away.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Southside Johnny: Fade Away"
----
 
 Last week, I wrote about Bruce’s sublime “” It takes a lot of guts to cover it–there’s not much room (if any) for improvement.
 

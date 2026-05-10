@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: A live radio broadcast from The Roxy, guest appearances with The Knack and U2, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 17"
----
+
 
 *New entry for 1974 and 2024***New for 2025:**
 

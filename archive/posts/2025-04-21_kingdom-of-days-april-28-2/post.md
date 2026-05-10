@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce is interviewed by Tom Hanks, Jon Bon Jovi makes a guest appearance, and the E Street Band backs Chuck Berry. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 28"
----
+
 
 *New entry for 1982; audio for 2008; video for 2023***New for 2025:**
 

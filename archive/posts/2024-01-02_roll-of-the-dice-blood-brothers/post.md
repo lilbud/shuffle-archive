@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In any version, in any arrangement, “Blood Brothers” packs an emotional punch and holds a special place in fans’ hearts.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Blood Brothers"
----
 
 *“I always felt that the friendships, loyalties, and relationships are the bonds that keep you from slipping into the abyss of self-destructiveness. Without those things, that abyss feels a lot closer–like it’s on your heels.” —* Bruce Springsteen to Neil Strauss, September 1995
 

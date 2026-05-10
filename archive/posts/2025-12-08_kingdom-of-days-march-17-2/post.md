@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: Guest appearances with Joe Ely, Warren Zevon, Richard Davis, and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 17
----
+
 
 The Bruce Springsteen Band opens for Mitch Ryder (of “Detroit Medley” fame) in Richmond. Also on the bill: the Mike Quatro Jamband. Mike’s sister Suzi will go on to become a well-known rocker (and minor TV star), someday covering Bruce’s signature song, “Born to Run.”
 

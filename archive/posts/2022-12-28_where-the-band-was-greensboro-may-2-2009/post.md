@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: I’ve never been more surprised and impressed by an American crowd than I was at this show in Greensboro, and I’ll never pass up the chance to see Bruce play there again.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Greensboro, May 2, 2009"
----
 
 There’s really no reason for me to have been at this show, and coming off of the previous two shows in Philly, my expectations were set pretty low for what I was sure would be a return to a “normal” set.
 

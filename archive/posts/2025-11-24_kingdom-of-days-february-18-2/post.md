@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Check out highlights from Hunter Valley, Atlanta, Jacksonville, and more–all from this date.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 18
----
 
 The Bruce Springsteen Band plays at The Back Door in Richmond.
 

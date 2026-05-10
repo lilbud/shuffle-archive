@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce and Cats on a Smooth Surface cover Ritchie Valens’ very first hit.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Come On, Let’s Go"
----
 
 Rock and roll singer/songwriter Ritchie Valens’ life and career were both cut tragically short: he died at the age of seventeen not even a year into his recording career, in a plane crash that also took the lives of Buddy Holly and J.P. Richardson.
 

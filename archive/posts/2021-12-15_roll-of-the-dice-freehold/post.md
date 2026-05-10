@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Twenty years before “Born to Run” (the book) and “Springsteen on Broadway,” Bruce started his autobiography as a song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Freehold"
----
 
 Long before and (the book), Bruce wrote the beginning of his autobiography as a song.
 

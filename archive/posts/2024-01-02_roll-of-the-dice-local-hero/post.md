@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Local Hero” is a sly, meta-commentary on the downhill side of fame–and its greatest irony is that Bruce never quite reached it like he thought he would.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Local Hero"
----
 
 Most of the reviews I read for mention Bruce’s self-deprecating humor, noting that late in his career, Bruce seems intent on deflating some of his importance, self- or otherwise.
 

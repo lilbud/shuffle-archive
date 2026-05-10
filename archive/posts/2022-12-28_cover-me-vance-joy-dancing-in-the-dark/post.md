@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Vance Joy’s gorgeously shot and sung cover of “Dancing in the Dark” captures the frustration and isolation at the root of Bruce’s greatest hit.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Vance Joy: Dancing in the Dark"
----
 
 Australian singer-songwriter Vance Joy seems to have a soft spot for Bruce’s greatest hit: he’s covered it frequently, and if you want to hear it, you have several pro-shot video clips and high-quality audio clips to choose from.
 

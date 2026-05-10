@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A short but sizzling show kicks off the Pacific Northwest swing of the River (2016) Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Portland, March 22, 2016"
----
 
 Leave it to Portland:
 

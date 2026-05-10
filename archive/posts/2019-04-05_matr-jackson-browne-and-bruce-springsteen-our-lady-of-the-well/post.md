@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the Laid Back Festival in 2017, Bruce joined Jackson Browne on stage for a show-closing “Our Lady of the Well.” Watch that lovely performance inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Jackson Browne and Bruce Springsteen, Our Lady of the Well"
----
 
 Jackson Browne’s “Our Lady of the Well” was never a hit, and it’s not even a stand-alone album track–Jackson segues right into it from the album-opening “” on his 1973 album, .
 

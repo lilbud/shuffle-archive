@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce drafts Mumford &amp; Sons at Pinkpop, films a pro-shot show in Stockholm, plays a new song for John Fogerty’s birthday, and gets the green light to start recording again when he settles his legal dispute with Mike Appel.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 28"
----
+
 
 *New entry for 1975 and 2024; audio for 2005***New for 2025:**
 

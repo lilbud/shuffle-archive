@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: German duo UnTechWHV turns in a beautifully atmospheric cover of “Something in the Night.” Who knew the song was so perfect for the nyckelharpa?
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, UnTechWHV: Something in the Night"
----
 
 This may be the first Springsteen cover to feature the nyckelharpa (at least the first one that I’m aware of), and it’s beautiful.
 

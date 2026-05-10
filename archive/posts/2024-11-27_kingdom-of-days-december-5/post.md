@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: President Obama and an all-star line-up of musicians pay tribute to Bruce at the Kennedy Center Honors. Video and more highlights from this date in Springsteen history inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 5"
----
 
 *Audio for 1975***New for 2024:**
 

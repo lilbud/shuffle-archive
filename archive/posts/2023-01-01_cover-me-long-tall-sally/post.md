@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Lots of times with lots of people: “Long Tall Sally” is tried and true when Bruce joins fellow musicians for an impromptu jam. Check out some of his best performances inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Long Tall Sally"
----
+
 
 Is there anyone Bruce played “Long Tall Sally” with?
 

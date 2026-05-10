@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An unfortunate licensing snafu resulted in one of the finest covers of a Springsteen song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Richie Havens: Streets of Philadelphia"
----
 
 In 1995, Rhino Records issued a thorough (and thoroughly great) five-disc box set called 
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Sting, Billy Joel, and more to cover Elvis’ best-selling single. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Sting, Bruce Springsteen, Billy Joel, and more: It’s Now or Never"
----
+
 
 It isn’t just Elvis’ best-selling single–it’s one of the best-selling singles of all time .
 

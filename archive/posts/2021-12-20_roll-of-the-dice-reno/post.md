@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Reno” is easily one of Bruce’s most beautiful, poignant, and cinematic songs–it’s been in my top ten since the moment I first heard it.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Reno"
----
 
 “[On] his last solo record, , there’s a song about the man in the hotel room with the hooker and stuff. My artistic side said, ‘That is so brave.’ Then, just thinking right from the heart, I was like, ‘What are you writing about that shit for? Are you fucking crazy?’ *Devils & Dust**–Patti Scialfa to Austin Scaggs, Rolling Stone, September 2007*
 

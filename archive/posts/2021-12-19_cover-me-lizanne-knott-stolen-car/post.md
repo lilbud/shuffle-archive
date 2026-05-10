@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Lizanne Knott celebrated Bruce’s 60th birthday by recording a wistful cover of deep cut “Stolen Car.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Lizanne Knott: Stolen Car"
----
 
 The last time Bruce had a milestone birthday, Philadelphia’s WXPN-FM (shout-out to my all-time favorite radio station) organized an on-air 60th Birthday Bash tribute.
 

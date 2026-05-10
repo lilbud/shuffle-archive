@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the rarest and most revealing songs on Tunnel of Love, “Cautious Man” is an overlooked, unsettling gem.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Cautious Man
----
 
 “For a long time, if I loved you or if I felt a deep attachment to you, I’d hurt you if I could.” *–Bruce Springsteen, Western Stars*
 

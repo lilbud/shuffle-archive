@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only, at a Tunnel of Love tour rehearsal: Bruce tackles the Four Tops’ 1965 classic.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Something About You"
----
+
 
 When Bruce Springsteen revealed his eight desert island discs on BBC Radio back in 2016, The Four Tops made the cut.
 

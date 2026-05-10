@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “The Honeymooners,” like “County Fair,” chronicles a single perfect day, time-out-of-time, through a delicate series of fleeting wedding day impressions.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Honeymooners"
----
 
 A month or so ago, I wrote about “,” and called it a perfect song about a perfect day.
 

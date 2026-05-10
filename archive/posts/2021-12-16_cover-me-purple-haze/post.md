@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Less than three months after it exploded onto the American rock scene, Bruce’s high school band opened their show with a passionate cover of Jimi Hendrix’s “Purple Haze.” Listen to a 17-year-old Bruce Springsteen tear it up inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Purple Haze"
----
 
 You can name that tune in one note.
 

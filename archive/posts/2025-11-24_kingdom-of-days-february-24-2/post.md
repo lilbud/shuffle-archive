@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A relatively quiet day in Bruce history, with no gigs on this date after 1974–just a few Grammy losses.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 24
----
 
 Steel Mill plays a final California gig at the College of Marin and then hurries home by car across the country to make a gig in Virginia three days later.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "This date in history was the source of five tracks from Live 1975-85 plus the official video for Born to Run. Plus: Bruce brings back two Tunnel of Love tour staples after a 20-year absence, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 19"
----
+
 
 *Audio for 2008***New for 2025:**
 

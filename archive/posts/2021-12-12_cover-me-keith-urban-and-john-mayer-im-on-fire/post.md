@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of my favorite “I’m on Fire” covers, with exquisite guitar interplay from John Mayer and Keith Urban.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Keith Urban and John Mayer: I’m on Fire"
----
 
 There are enough covers of “” to fuel a blog of its own, but this is one of my favorites–the guitar interplay is just exquisite, and you’d expect no less from John Mayer and Keith Urban.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The twisty tale of a hit cover of an unreleased outtake by an imaginary band that evolved into a barnburning, set-closing showcase.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Light of Day"
----
 
 In the pantheon of Springsteen songs, “Light of Day” is a song unlike any other. Which is saying a lot for a song that’s pretty much a Springsteen stereotype.
 

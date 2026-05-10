@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Want to know why Bruce Springsteen became known as the “Fastest Guitar in Asbury Park?” Listen to this.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Sherlock Goes Home"
----
 
 Want to know why Bruce became known as the “Fastest Guitar in Asbury Park?”
 

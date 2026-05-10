@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Long-time Springsteen fan Amy Ray loves “Racing in the Street” so much that she almost never covers it (out of reverence for the original). But she covered it last year, and you can watch her gorgeous performance inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Amy Ray: Racing in the Street"
----
 
 How much of a Springsteen fan is Amy Ray?
 

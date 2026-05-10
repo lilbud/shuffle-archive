@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce first covered The Crystals’ 1963 hit around the same time he recorded “Born to Run.” That’s almost certainly not a coincidence.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Then (S)he Kissed Me"
----
 
 Bruce first covered “Then He Kissed Me” in concert during the summer of 1974, which is also when he recorded “Born to Run.”
 

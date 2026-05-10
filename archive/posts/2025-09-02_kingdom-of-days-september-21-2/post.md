@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The Wrecking Ball tour wraps, the No Nukes! shows kick off, and Bruce opens a telethon for a nation in desperate need of healing–all on this date. Plus: early birthday surprises!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 21"
----
+
 
 *Audio for 1978 and 1979; video for 2009 and 2013***New for 2025:**
 

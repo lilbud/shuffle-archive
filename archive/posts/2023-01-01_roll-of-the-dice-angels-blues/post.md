@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Is “Angel’s Blues” the missing link in “Thunder Road’s” lineage? You decide, but one thing’s for certain: this mysterious Springsteen original disappeared as soon as it debuted.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Angel’s Blues"
----
+
 
 Now where did come from? And perhaps more importantly, where did it go?
 

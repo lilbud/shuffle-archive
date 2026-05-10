@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The live debut of “Iceman,” the looooong-awaited return of “Prove It ’78,” and an epic final High Hopes stand lead the highlights from this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 17"
----
 
 *Audio for 2005 and 2014; video for 2014***New for 2025:**
 

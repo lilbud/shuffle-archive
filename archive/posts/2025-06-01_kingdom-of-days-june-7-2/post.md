@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: recording sessions begin for Bruce’s first album, Pete Townshend makes a guest appearance, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 7"
----
+
 
 *Audio for 1972; review for 1973; new entry for 1977***New for 2025:**
 

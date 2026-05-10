@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce holds a one-off benefit show with a wild setlist in ’93, the first Working on a Dream preview show in ’09, and the legendary ’77 Boston stand continues. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 23
----
+
 
 Bruce opens for Lou Reed at the Palace Concert Theater in Providence.
 

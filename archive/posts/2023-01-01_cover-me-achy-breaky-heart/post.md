@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only (and I still can’t believe it happened at all): Bruce Springsteen covered Billy Ray Cyrus’ monster breakout hit, “Achy Breaky Heart.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Achy Breaky Heart"
----
+
 
 “Laying in bed the other night I said, ‘What would really bend everybody’s minds?… Achy Breaky Heart!” *–Bruce Springsteen, March 23, 1993*
 

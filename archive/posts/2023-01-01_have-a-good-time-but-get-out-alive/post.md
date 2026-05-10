@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The album that led to a legendary lifelong friendship gets a 40th anniversary reissue today. Let’s take a listen and look back on Joe Grushecky and the Iron City Houserockers’ watershed album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Have a Good Time… But Get Out Alive!
----
 
 “…the strongest album an American band has made this year, and when the year ends, the word “American” may come off.” — 
 

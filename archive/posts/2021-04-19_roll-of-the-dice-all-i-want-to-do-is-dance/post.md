@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From way back in The Bruce Springsteen Band era, “All I Want to Do Is Dance” is Bruce at his poppiest.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: All I Want to Do Is Dance"
----
 
 One might argue that the Bruce Springsteen Band line-up (Bruce, Steve Van Zandt, Garry Tallent, Vini Lopez, and David Sancious) is basically the core of the original E Street Band, and you’d be correct… technically.
 

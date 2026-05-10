@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Twice only during the summer of 1982: Bruce covers “Rip It Up,” Little Richard’s #1 R&amp;B 1956 hit, at back-to-back surprise club appearances.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Sonny Kenn &amp; The Wild Ideas: Rip It Up"
----
+
 
 Despite Bruce’s admiration for Little Richard and his catalog, only two of Little Richard’s three Number One R&B hits (“” and ““) seem to make Bruce’s set lists.
 

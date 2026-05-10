@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "From the legendary “Bomb Scare” show of 1975 comes a very loose cover of a cover: The Shirellles’ “Sha La La” (by way of Manfred Mann).
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Sha La La
----
+
 
 On the Born to Run Tour, one of the more frequent covers (performed 13 times) was “Sha La La,” originally released by The Shirelles. Here’s a terrific recording of Bruce’s final performance of it on that tour, in Philadelphia on December 28, 1975:
 

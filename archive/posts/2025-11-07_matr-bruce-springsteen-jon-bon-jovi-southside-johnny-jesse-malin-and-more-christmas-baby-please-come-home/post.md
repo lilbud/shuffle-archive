@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: What else could Bruce close his holiday show sets with but the greatest rock and roll Christmas song of all time?
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Christmas (Baby Please Come Home)
----
 
 named it the Greatest Rock and Roll Christmas Song of all time.
 

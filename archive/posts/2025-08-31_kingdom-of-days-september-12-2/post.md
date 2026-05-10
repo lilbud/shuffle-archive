@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Western Stars debuts at the Toronto International Film Festival, the E Street Band plays their first “All or Nothin’ At All,” and Bruce has a close encounter with fans in the shower. Great video/audio inside (except for that last part).
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 12"
----
+
 
 *New entry for 1977***New for 2025:**
 

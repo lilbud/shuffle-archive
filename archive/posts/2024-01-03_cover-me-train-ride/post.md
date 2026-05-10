@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce wasn’t Steel Mill’s only songwriter. Co-lead vocalist Robbin Thompson contributed his own song to the band’s set lists, but their version was a far cry from Mercy Flight’s original.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Train Ride"
----
 
 I’m sort of at a loss for how to classify today’s entry. Is it an original? A cover? A team-up?
 

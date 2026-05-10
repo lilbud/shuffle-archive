@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Trace the throughline from an obscure 1909 Broadway musical to Bruce’s lullaby for his newborn son.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Pony Boy"
----
 
 A long time ago, in a tiny apartment far, far away, I spent a long evening pacing my living room floor.
 

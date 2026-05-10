@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the rare outtakes from the Seeger Sessions, “Hobo’s Lullaby” features Bruce and Pete Seeger in one of their few studio recordings together.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Hobo’s Lullaby
----
 
 There aren’t a lot of outtakes floating around from Bruce’s original Seeger Sessions, but there are a couple hiding in plain sight… if you know where to look for them.
 

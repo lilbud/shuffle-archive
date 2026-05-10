@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce kicks off the Rising Tour, plays the first “Don’t Look Back” in 22 years, debuts a work-in-progress “On the Prowl,” and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 7"
----
 
 *Expanded entry for 1973; new entry for 2024***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce debuts his cover of “Sociedade Alternativa,” the first E Street Band performance of “Souls of the Departed,” a tour one-off of “My Father’s House,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 18"
----
+
 
  *No updates***New for 2025:**
 

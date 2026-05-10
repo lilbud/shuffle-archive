@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It took four decades and seven private priors, but Bruce finally debuted “Green River” on the E Street stage with its songwriter, John Fogerty.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and John Fogerty: Green River"
----
 
 The third time was the charm.
 

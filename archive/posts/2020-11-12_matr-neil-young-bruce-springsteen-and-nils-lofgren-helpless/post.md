@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen, Neil Young, and Nils Lofgren perform a beautiful acoustic rendition of Neil’s “Helpless.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Neil Young, Bruce Springsteen, and Nils Lofgren: Helpless"
----
+
 
 “Well, it’s not literally a specific town so much as a feeling. Actually, it’s a couple of towns. Omemee, Ontario, is one of them. It’s where I first went to school and spent my ‘formative’ years. Actually I was born in Toronto… *I was born in Toronto*… God, that sounds like the first line of a Bruce Springsteen song.” — Neil Young, December 1995*Mojo,*
 

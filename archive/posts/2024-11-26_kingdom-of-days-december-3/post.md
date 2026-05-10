@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Today in Springsteen history: Bruce releases two new videos, a star-studded holiday show in Asbury Park features the return of some notable set list prodigals, and an epic 20-minute “Kitty’s Back.” More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 3"
----
+
 
 *No updates***New for 2024:**
 

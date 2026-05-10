@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce releases the video for “War,” gets his first opening act in 20 years, and plays his last show of the 20th century. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 29"
----
+
 
 *Advertisement for 1974; new entry for 1983***New for 2025:**
 

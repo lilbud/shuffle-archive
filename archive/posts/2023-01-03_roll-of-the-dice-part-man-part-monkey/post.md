@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It may have been inspired by a famous trial, but this Human Touch outtake is more sly than substantive.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Part Man, Part Monkey"
----
 
 Okay, let’s get this part out of the way:
 

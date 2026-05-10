@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The road to “The River” continues with this early, based-on-a-true-story song about a laid-off construction worker longing to escape his hopeless circumstancs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Oh Angelyne"
----
 
 If you’re looking for the inflection point where economic inequality really took off in the United States, the point at which the top one percent started to become the Top One Percent, look to 1979.
 

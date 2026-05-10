@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Seven Angels” is a terrific pop song with a great riff–a surprising castoff from the Human Touch sessions that deserves greater exposure.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Seven Angels"
----
 
 Talk about a sleeper: “Seven Angels” is a terrific pop song, both sly and serious, funny and fearful, exaggeration with the ring of truth.
 

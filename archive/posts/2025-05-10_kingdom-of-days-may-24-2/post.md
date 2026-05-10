@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce plays in Washington DC for the first time, sings karaoke in London, and treats French fans to an acoustic pre-show.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 24"
----
+
 
 *New entry for 1983***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Whether you take it seriously or comedically, “Meeting Across the River” ranks high in Bruce’s catalog and represents a leap forward in his songwriting. Insights, early versions, and rare performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Meeting Across the River"
----
 
 Bruce is a pretty funny guy, but it took a while before he let his sense of humor show through in his songs. When he did, it was hard to miss.
 

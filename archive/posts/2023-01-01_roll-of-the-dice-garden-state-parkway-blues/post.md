@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Is a discarded fifty-years-old, thirty-minutes-long opus really the secret origin of “Kitty’s Back,” “Cadillac Ranch,” and “One Step Up?” Just listen and decide for yourself.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Garden State Parkway Blues"
----
 
 Before “Rosalita (Come Out Tonight)” and “” before even “,” there was “Garden State Parkway Blues” — Bruce’s prototype for the epic show-stopping, song-changing, band-vamping showcase that brings his main sets to their will-it-ever-end end.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Presenting the first in an occasional catch-up/round-up of terrific “I’m on Fire” covers. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me Round-Up: I’m on Fire"
----
 
 So I’ve had this dilemma for a while now: there are just too many great covers of “” out there.
 

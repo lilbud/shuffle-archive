@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The Castiles lay down their first tracks, the High Hopes Tour reaches its anything-goes finale, and Bruce premieres… “Hava Nagila?” Listen, watch, and read more inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 18
----
+
 
 Bruce enters a recording studio for the very first time when The Castiles record their first two songs: “Baby I” and “That’s What You Get.” Both are co-written by Bruce and George Theiss. The former will be officially released on in 2016; the latter is still unreleased but can be heard below.
 

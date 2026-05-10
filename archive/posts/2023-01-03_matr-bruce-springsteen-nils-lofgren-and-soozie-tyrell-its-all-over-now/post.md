@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The Rolling Stones’ first #1 U.K. hit had a habit of turning up in Bruce’s set lists in the strangest places, but fortunately a couple of his team-ups were captured for posterity.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen, Nils Lofgren, and Soozie Tyrell: It’s All Over Now"
----
+
 
 It’s a Rolling Stones double-shot!
 

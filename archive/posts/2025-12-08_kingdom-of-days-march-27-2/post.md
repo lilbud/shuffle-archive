@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Steve Van Zandt makes his Steel Mill debut, Dr. Zoom and the Sonic Boom play their first show, and Bruce convinces Columbia Records to sign The Bangles–all on this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 27
----
 
 Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.
 

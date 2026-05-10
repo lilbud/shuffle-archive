@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bad Scooter finds his groove pretty quickly in Joe Slomp’s fresh and funky take on “Tenth Avenue Freeze-Out.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Joe Slomp: Tenth Avenue Freeze-Out"
----
 
 To me at least, the most remarkable thing about Joe Slomp’s cover of “” isn’t how good it is (and it is good), it’s where it came from.
 

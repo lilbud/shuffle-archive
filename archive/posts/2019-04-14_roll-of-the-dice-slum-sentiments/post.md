@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Another excerpt from the “1968 Notebook,” “Slum Sentiments,” shows how well Bruce had already honed his writing by the tender age of eighteen.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Slum Sentiments"
----
 
 It’s time for another visit to the “,” where an 18-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don’t appear on any bootlegs.
 

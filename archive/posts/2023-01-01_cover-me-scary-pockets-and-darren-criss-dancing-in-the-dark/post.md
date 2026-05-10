@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Darren Criss joins Scary Pockets for an awesomely funky cover of “Dancing in the Dark.” Trust me: watch it… and wait for it.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Scary Pockets and Darren Criss: Dancing in the Dark"
----
+
 
 If you haven’t discovered Scary Pockets yet, check out their and prepared to be hooked.
 

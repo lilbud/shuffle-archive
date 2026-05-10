@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce responds to President Trump’s attempt to ban Muslims from the U.S. with a pointed, timely speech and setlist in Adelaide. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 30
----
+
 
 Bruce sits in with Steve Van Zandt and The Big Bad Bobby Williams Band (which included Garry Tallent, Dave Sancious, and Southside Johnny) at The Upstage in Asbury Park.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 1987, “Darlington County” became the eighth song from Born in the U.S.A. to hit the Billboard charts, but it wasn’t Bruce who took it there.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Jeff Stevens and the Bullets: Darlington County"
----
 
 The next time you’re playing Springsteen trivia and you get this old softball:
 

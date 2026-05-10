@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this busy date: the release of In Concert/MTV Plugged, the debut of “Light of Day,” an all-star Elvis-themed benefit at Carnegie Hall, and so much more!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 12
----
+
 
 Carol Dennis, back-up singer for Bruce’s 1992-1993 World Tour, is born.
 

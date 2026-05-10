@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From March 2018, the X Ambassadors prove their fandom by delivering a fantastic, moody cover of Bruce’s “Stolen Car.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, X Ambassadors: Stolen Car"
----
 
 X Ambassadors make absolutely no secret about their appreciation for Bruce’s music–they cite him as an influence on their music pretty frequently in interviews. Heck in 2016, they even said they’d have cut their show short in order to catch his encore when they learned he’d been playing just across the street from them in Brooklyn.
 

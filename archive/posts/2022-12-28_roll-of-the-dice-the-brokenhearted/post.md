@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “The Brokenhearted” is Roy Orbison meets The Drifters, and 1977 Bruce meets 2010 Bruce. The style mash-up works, the vocal graft not so much.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Brokenhearted"
----
 
 Among the many things I’m grateful to Bruce for: he wears his influences on his sleeve.
 

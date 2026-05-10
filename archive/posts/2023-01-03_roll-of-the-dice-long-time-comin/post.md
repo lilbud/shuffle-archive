@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The final chapter in Bruce’s father-and-son songwriting.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Long Time Comin’"
----
 
 “We are ghosts or we are ancestors in our children’s lives. We either lay our mistakes, our burdens upon them and we haunt them, or we assist them in laying those old burdens down, and we free them from the chain of our own flawed behavior. And as ancestors, we walk alongside them, and we assist them in finding their own way, and some transcendence.” *–Bruce Springsteen, Springsteen on Broadway*
 

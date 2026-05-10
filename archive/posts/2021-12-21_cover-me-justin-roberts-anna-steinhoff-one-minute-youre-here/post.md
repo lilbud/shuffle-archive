@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Four-time Grammy nominee and kids’ singer-songwriter Justin Roberts tackles the very grown-up “One Minute You’re Here,” and it’s just perfect.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Justin Roberts &amp; Anna Steinhoff: One Minute You’re Here"
----
 
 If you don’t know who is, you probably don’t have kids at home.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Kicking off Valentine’s Week with Bruce’s ode to new love and old friends: “Frankie Fell in Love.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Frankie Fell in Love"
----
+
 
 *Good morning, good morning!*   
 **The church mouse is snoring**

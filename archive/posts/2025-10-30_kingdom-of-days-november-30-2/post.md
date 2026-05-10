@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday to David Sancious, born on this date in 1953. Plus: Bruce debuts “The New Timer,” a bookstore appearance in Denver, and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 30"
----
+
 
 *New entry for 1977***New for 2025:**
 

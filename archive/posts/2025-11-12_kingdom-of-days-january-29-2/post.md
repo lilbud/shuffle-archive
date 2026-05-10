@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Listen to a great Springsteen concert recording from 1974, watch Bruce’s first press conference in 20 years, and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 29
----
+
 
 The Castiles play the Matawan-Keyport Roller Drome in Matawan, New Jersey. Can you believe you could once see Bruce play for $1.25?
 

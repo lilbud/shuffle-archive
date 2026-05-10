@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce took a few runs at Little Richard’s “Keep A-Knockin’.” Listen to two of them here: one with Midnight Thunder, the other with Southside Johnny and The Asbury Jukes.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen, Midnight Thunder, and Southside Johnny, Keep A-Knockin’"
----
+
 
 Some songs get passed down from generation to generation, with one artist inspiring the next.
 

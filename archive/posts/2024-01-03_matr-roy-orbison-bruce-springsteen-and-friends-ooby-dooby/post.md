@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At Roy Orbison’s legendary Black and White Night event, Bruce took a guitar solo on Roy’s earliest hit.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Roy Orbison, Bruce Springsteen and Friends: Ooby Dooby"
----
 
 In 1955, two North Texas State College students named Wade Moore and Dick Penner downed a six-pack of beer and dashed off a song in a fifteen-minute burst of songwriting on the roof of the Lambda Chi Alpha fraternity house.
 

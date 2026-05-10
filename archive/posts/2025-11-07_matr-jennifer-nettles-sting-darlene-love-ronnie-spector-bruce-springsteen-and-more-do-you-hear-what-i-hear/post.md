@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Watch Bruce’s only performance of this perennial holiday classic (which isn’t really the holiday song you might think it is).
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Do You Hear What I Hear
----
 
 It sounds a lot older than it is, and it’s not about Christmas at all.
 

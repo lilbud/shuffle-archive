@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: During sound checks on the Tunnel of Love Tour, Bruce occasionally covered one of Van Morrison’s loveliest songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Tupelo Honey"
----
 
 Van Morrison may have always had a few bones to pick with Bruce Springsteen, but Bruce only ever had homage to pay.
 

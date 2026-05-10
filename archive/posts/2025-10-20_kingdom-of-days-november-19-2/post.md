@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this significant date: Bruce pays tribute to Frank Sinatra on his 80th birthday, the Blood Brothers EP is released, and Danny Federici plays his final full show. Much more inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 19"
----
+
 
 *Audio for 2012; new entry for 2024***New for 2025:**
 

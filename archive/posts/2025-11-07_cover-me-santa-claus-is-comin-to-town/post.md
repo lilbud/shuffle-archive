@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Here’s the sad story behind Bruce’s most beloved holiday classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Santa Claus is Comin’ to Town
----
 
 It was already one of the most famous Christmas songs of all time before Bruce Springsteen immortalized it for annual radio play.
 

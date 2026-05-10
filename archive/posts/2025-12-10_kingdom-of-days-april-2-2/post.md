@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A fascinating Asbury Park panel and joyous Wonder Bar concert with Nicky Addeo lead the highlights from this date in Bruce history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 2
----
 
 Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they’ll rename themselves Steel Mill.
 

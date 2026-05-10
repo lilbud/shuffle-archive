@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Rocky Ground” may be wrapped in gospel trappings, but its themes are as Springsteenian as anything on Darkness on the Edge of Town.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Rocky Ground"
----
 
 “Rocky Ground” may be wrapped in gospel trappings, but its themes are as Springsteenian as anything on .
 

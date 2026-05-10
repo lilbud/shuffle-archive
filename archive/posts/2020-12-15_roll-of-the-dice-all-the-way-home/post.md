@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A tale of two versions of the same song. One ranks near the top of Bruce’s catalog, the other near the bottom. Find out which is which (and why) inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: All the Way Home"
----
 
 I love this song.
 

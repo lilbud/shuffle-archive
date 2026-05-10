@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only (and *almost* another): Bruce joins John Eddie on Carl Perkins’ breakthrough rockabilly hit.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and John Eddie: Blue Suede Shoes"
----
+
 
 For an artist with an appreciation of (and even at times a fixation on) rockabilly records, it’s somewhat surprising that one of the earliest and most well-known rockabilly hits isn’t among the countless songs Bruce has properly covered in concert.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Long before “Detroit Medley,” The Bruce Springsteen Band was grooving to “C.C. Rider” in a much bluesier arrangement.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: C.C. Rider"
----
 
 Now is The Bruce Springsteen Band. Remember that heavy recording of “” we listened to yesterday? Compare that with this gorgeous stereo recording of the blues standard “C.C. Rider.”
 

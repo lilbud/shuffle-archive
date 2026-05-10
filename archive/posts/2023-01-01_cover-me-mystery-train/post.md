@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The biggest mystery about “Mystery Train” (besides why it’s called that): why’d it take so long for Bruce to cover it?
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Mystery Train"
----
+
 
 Ah, “Mystery Train.” It’s so easy to find snippets of it in Bruce’s performances over the years. It shows up scores of times, from “…”
 

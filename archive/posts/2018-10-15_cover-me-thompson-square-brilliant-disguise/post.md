@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of my favorite “Brilliant Disguise” covers–Thompson Square gets to the heart of the song and its shifting meaning over time.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Thompson Square: Brilliant Disguise"
----
 
 Country duo Thompson Square are husband and wife. Maybe that’s why their take on “” has a very different feel than turns taken by other artists.
 

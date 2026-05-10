@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Here’s a lovely under-the-radar duet featuring one of Bruce’s best 90s vocals and a verse he couldn’t resist.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Everything I Do (Leads Me Back to You)
----
 
 In 1995, Elliott Murphy was working on his upcoming album and among the songs he’d written and selected for it was a lovely little ballad called “Everything I Do (Leads Me Back to You).”
 

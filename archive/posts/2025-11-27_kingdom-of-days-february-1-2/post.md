@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Step back from the guacamole dip, put the chicken fingers down, and turn your television ALL the way up: Bruce Springsteen and the E Street Band play the Super Bowl! Watch Bruce’s video journal, full performance, and more highlights from this date inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 1
----
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-01.png?resize=758%2C690&amp;ssl=1)
 

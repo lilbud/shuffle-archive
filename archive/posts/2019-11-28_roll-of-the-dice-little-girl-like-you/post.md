@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In which Bruce wisely avoids tossing a lighted match into a powder keg by discarding this destined-for-controversy outtake.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Little Girl (Like You)"
----
 
 For every great song Bruce has released over the years, there’s at least one great outtake that never saw the light of day.
 

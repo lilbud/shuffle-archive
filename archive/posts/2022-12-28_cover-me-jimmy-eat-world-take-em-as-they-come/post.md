@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Jimmy Eat World absolutely nails it with their cover of this gem from Tracks. It’s one of the best Springsteen covers out there, if you can find it.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Jimmy Eat World: Take ‘Em as They Come"
----
 
 Here’s an undeservedly obscure Bruce cover that deserves much wider exposure:
 

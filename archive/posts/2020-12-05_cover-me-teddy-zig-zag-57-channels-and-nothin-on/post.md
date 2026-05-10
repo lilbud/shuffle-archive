@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Teddy “Zig Zag” Andreadis breathes new life into “57 Channels” with his bluesy, gravelly take.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Teddy “Zig Zag”: 57 Channels (And Nothin’ On)"
----
 
 It’s not often I can say this: I think this cover is better than Bruce’s original version.
 

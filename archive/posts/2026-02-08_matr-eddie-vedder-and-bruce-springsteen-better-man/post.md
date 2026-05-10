@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and Eddie Vedder team up on one of Eddie’s oldest and most beloved songs.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Better Man
----
+
 
 Even though it was Bruce’s stage and he’d never played it before, “Better Man” was recognizable from its opening notes. Released on their album in 1994, the song was a smash hit for Pearl Jam despite never being issued as a single.
 

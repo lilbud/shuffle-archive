@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Whether spotlighting his heroes or his bandmates, “Sweet Soul Music” is a reliable crowd-pleaser whenever Bruce breaks it out.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Sweet Soul Music
----
 
 “Sweet Soul Music” was one of Bruce’s set list staples during the 1980s. He first performed it way back on the River Tour, debuting it in Paris on the evening of April 19, 1981.
 
@@ -60,12 +54,8 @@ Alas, unlike the full album performance of , “Sweet Soul Music” was destined
 
 We likely haven’t heard the last of “Sweet Soul Music.” With another E Street Band tour on the horizon, odds are good for at least one more outing for this fan and artist favorite.
 
-April 19, 1981 (Paris, France)
- July 27, 2013 (Kilkenny, Ireland)
-
 **Sweet Soul Music**
-First played:**  
-
-**Last played:**
+**First played:** April 19, 1981 (Paris, France)
+**Last played:** July 27, 2013 (Kilkenny, Ireland)
 
 (c) November 1, 2019

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Another entry from the lost notebook–this one had some real potential.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Crystal"
----
 
 Today, the dice land on another entry from 18-year-old Bruce’s handwritten notebook of mystery songs, never recorded and possibly never performed. (See “” for the backstory.)
 

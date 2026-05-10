@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The title’s not a coincidence: This Wrecking Ball deep cut is a direct sequel to Bruce’s 1985 Top Ten single.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Death to My Hometown"
----
+
 
 No, it’s not a coincidence.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce joins Paul Simon and an all-star line-up to combat homelessness, the E Street Band plays the entire Darkness album to an empty theater, and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 13"
----
+
 
 *Audio for 1992 and 2007***New for 2025:**
 

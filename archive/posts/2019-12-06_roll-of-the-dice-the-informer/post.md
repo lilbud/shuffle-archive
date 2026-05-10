@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Today’s roll of the dice: a tantalizing glimpse of a song still very much lost in the vault… if it ever got recorded at all.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Informer"
----
+
 
 I can’t even begin to fathom how much material Bruce still has in his vault, and if we extend “the vault” to include his copious notebooks, it may not be much of an exaggeration to label his unreleased material mountainous.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The curious case of a bootleg turned official release (and the mystery of why bother).
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Mr. Outside"
----
 
 Now here’s a curiosity: an officially released song that’s actually an edited version of a bootlegged home demo.
 

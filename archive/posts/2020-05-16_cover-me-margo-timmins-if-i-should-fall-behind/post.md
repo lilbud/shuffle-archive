@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From Margo Timmin’s Ty Tyrfu solo sessions back in 2009, this gorgeous and intimate performance of “If I Should Fall Behind” ranks among the song’s best covers.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Margo Timmins: If I Should Fall Behind"
----
 
 The Cowboy Junkies are no strangers to covering Bruce’s music in their inimitably sad style. Their stark covers of “” and “Thunder Road” are right up there among the best Springsteen covers out there.
 

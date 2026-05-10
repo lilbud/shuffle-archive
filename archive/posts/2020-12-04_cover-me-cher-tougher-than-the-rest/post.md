@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Cher’s cover of “Tougher The Rest” is a bit over the top, but c’mon… it’s Vegas!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Cher: Tougher Than the Rest"
----
 
 I’m not the biggest Cher fan, and the whole “bar in the sky” thing is a bit over-the-top and more than a bit corny, but… I do like her vocal turn on “” from her 1990 performance in Vegas.
 

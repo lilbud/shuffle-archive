@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The illegitimate child of “Loose Ends” and “Follow That Dream” still lives deep in the vault, but you can listen to an early demo of it inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Baby, I’m So Cold"
----
 
 From time to time here on the Shuffle, we profile Springsteen original songs that never made it to vinyl but instead ended up donating their DNA to other songs that did.
 

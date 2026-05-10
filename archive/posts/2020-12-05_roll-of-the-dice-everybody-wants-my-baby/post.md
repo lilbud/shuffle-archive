@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Everybody Wants My Baby” was on its way to being an edgy uptempo rocker before it went missing in action. Listen to a pretty well-formed demo inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Everybody Wants My Baby"
----
 
 After the Darkness Tour ended, Bruce spent much of 1979 and the early days of 1980 writing and recording home demos for his next album. Some ended up on , others would be released years later on and , and some were just scraps, ideas that never developed into a full-blown composition.
 

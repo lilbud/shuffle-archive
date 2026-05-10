@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Today’s public service: a Guide to “I”m a Rocker” for Millennials and Generation Z. (It’s all about 1966.)
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I’m a Rocker"
----
+
 
 Ladies and gentlemen, the winner of the Most Dated Song in the Springsteen Catalog award is…
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In the early years of the Iraq War, Bruce warned us about the cost of moral compromise.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Devils &amp; Dust"
----
 
 “How much of this was I thinking about when I wrote the song? None of it… How much of it was I feeling when I wrote the song? All of it.” — Bruce Springsteen after explaining the meaning of “Devils & Dust,” April 4, 2005
 

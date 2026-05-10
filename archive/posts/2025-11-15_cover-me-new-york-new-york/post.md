@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: What better way to celebrate the re-opening of Springsteen on Broadway than with Bruce’s almost/sorta cover of New York’s unofficial theme song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: New York, New York
----
 
 Start spreading the news: I’m leaving today!
 

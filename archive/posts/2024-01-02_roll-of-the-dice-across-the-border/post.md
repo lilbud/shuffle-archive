@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A salve for troubled times, Bruce’s sublime “Across the Border” reminds us of the power and necessity of hope.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Across the Border"
----
 
 “This is a song about how even after the world reveals itself, people keep on going. We return to faith and hope and belief in love, because that’s all there is.” *–Bruce Springsteen, London, April 27 1996*
 

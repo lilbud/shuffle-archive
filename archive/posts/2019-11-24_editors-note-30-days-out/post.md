@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In which I take a deep breath, answer questions, and say “thanks!”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Editor’s Note: 30 Days Out"
----
 
 It’s been thirty days since I started developing estreetshuffle.com, and twenty days since it went live; that seems like a good time to step back for a moment and say:
 

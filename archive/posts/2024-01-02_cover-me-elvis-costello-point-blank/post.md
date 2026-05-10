@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the best performances from Elvis Costello’s Springsteen episode of Spectacle was never aired–but you can listen to that intense performance of “Point Blank” inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Elvis Costello: Point Blank"
----
 
 On September 25, 2009, Elvis Costello invited Bruce to join him for an episode of his television series. Bruce accepted, and the result was a session so chock full of great stories and performances that it spanned not one but two complete episodes.
 

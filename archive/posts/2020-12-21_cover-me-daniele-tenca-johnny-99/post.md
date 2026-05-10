@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Daniele Tenca turned in a gloriously gritty cover of “Johnny 99” at a live performance in 2018. It’s now my all-time favorite arrangement of the song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Daniele Tenca: Johnny 99"
----
 
 Daniele Tenca hails from Italy, but he shouldn’t be a stranger to Springsteen fans–he’s made multiple Light of Day appearances, played The Stone Pony in Asbury Park, and recorded a few outstanding Springsteen covers.
 

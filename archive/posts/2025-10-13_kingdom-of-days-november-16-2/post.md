@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce debuts “Sugarland,” plays the first of two amazing Christic shows, and releases The Promise: The Darkness on the Edge of Town Story on this remarkable date. Lots more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 16"
----
+
 
 *Audio for 1990; new entry for 2024***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Lorde came out of hiding last night, performing a beautiful duet of “Tougher Than the Rest” with Marlon Williams in Auckland.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Lorde and Marlon Williams: Tougher Than the Rest"
----
 
 No fooling: Lorde made her first public performing appearance in almost two years last night (I think so, anyway–I don’t follow her as closely as I do Bruce) when she joined fellow New Zealand singer-songwriter Marlon Williams on stage at the Hollywood in Auckland.
 

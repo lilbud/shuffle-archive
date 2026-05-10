@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An appearance on Italian television, a one-off acoustic show with Q&amp;A in Somerville, and a bar gig with Beaver Brown highlight this day in Bruce history. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 20
----
 
 Bruce jams with local musicians at an open mic night at The Upstage in Asbury Park.
 

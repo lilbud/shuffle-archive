@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “We Are Alive” delivers one of Bruce’s most hopeful messages through his some of his most macabre imagery–quite an impressive feat.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: We Are Alive"
----
 
 *“Is there anybody ALIVE out there?!?”*
 

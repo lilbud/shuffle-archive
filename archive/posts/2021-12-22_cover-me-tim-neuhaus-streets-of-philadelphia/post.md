@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Ahead of his upcoming cover album, Tim Neuhaus shares his sensitive reading of Bruce’s Oscar-winning hit.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Tim Neuhaus: Streets of Philadelphia"
----
 
 Tim Neuhaus was a drummer for The Blue Man Group and Clueso before evolving into an accomplished indie-pop singer-songwriter with an impressive catalog of albums to his credit.
 

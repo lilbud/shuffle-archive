@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One of my all-time favorite covers of a Springsteen song: Elvis Costello and Mumford &amp; Sons play a lovely, spontaneous “The Ghost of Tom Joad” at Sasquatch in 2013.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Elvis Costello and Mumford &amp; Sons: The Ghost of Tom Joad"
----
+
 
 This is one of my all-time favorite covers of a Springsteen song. Even if you find yourself dismissing 95% of the cover attempts out there, take a few minutes to listen to this one. Not only is it a wonderful, spontaneous performance, but it’s gorgeously captured at one my absolute favorite outdoor venue.
 

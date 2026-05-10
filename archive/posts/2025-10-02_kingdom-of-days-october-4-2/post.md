@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Suki Lahav and “She’s the One” make their debut on the same night, the Rising Tour wraps up, and Bruce kicks off a mini-tour with Barack Obama. Much more inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 4"
----
 
 *Audio and video for 2006; new entry for 2024***New for 2025:**
 

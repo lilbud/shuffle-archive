@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Among the earliest Springsteen covers was this disco-ish, gender-flipped version of Bruce’s 1975 deep cut. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Rhonda: He’s the One"
----
 
 You know the rule: Do it better, or do it different.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Ever wonder what “Dancing in the Dark” would have sounded like in the fifties? Now you know.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Postmodern Jukebox: Dancing in the Dark"
----
 
 Okay, I know just posted a few days ago to celebrate the video’s anniversary, so I was planning to save this one for much later. But I watched it again last night, and it’s just too much fun to sit on.
 

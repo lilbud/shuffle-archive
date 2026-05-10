@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce fakes us out with this River outtake that sounds more like a Working on a Dream outtake.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Whitetown"
----
 
 We obsessive fans think we know it all.
 

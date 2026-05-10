@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce celebrates the tenth anniversary of the Human Rights Now! Tour in Paris, wins an important lawsuit in the UK, plays his first-ever concert in Mexico, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 10"
----
 
 *No updates***New for 2025:**
 

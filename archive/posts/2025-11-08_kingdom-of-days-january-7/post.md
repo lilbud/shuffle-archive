@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce premieres a new song written for Jann Wenner’s birthday. It hasn’t surfaced to this day.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 7
----
+
 
 Bruce and his band finish a four-night, two-shows-nightly stand opening for Travis, Shook and The Club Wow at The Main Point in Bryn Mawr, Pennsylvania.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce gets married for the first time, plays “Johnny Bye-Bye” for the first time, and joins an 80s nostaglia night with Sting, Lady Gaga, Elton John, and more. Great video inside!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 13
----
+
 
 Laurel Canyon sends Bruce a royalty check for $67,000, but an auditor determines it should have been for $2,000,000, ramping up a legal battle that will keep Bruce out of the studio for some time to come. In the meantime, Bruce and the E Street Band bring the Chicken Scratch Tour to New Orleans for a single show at the Municipal Auditorium. This show features Bruce’s first performance of Gary U.S. Bonds’ “New Orleans” and one of the longest-ever performances of “It’s Hard to Be a Saint in the City.”
 

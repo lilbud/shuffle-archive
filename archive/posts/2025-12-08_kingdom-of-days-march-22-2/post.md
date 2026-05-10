@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The legendary Boston Music Hall stand of ’77 began on this date. Plus: Bruce guests with Neil Young in Sydney, Rosie comes out for the first time in the post-reunion era, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 22
----
+
 
 The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 

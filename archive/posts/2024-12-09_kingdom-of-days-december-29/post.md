@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce’s first show in Ohio, performances destined for Live 1975-85, and an E Street Band guest appearance on Good Morning America. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 29"
----
+
 
 *No updates***New for 2024:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Never have I seen a Springsteen cover start with so much promise only to go so horribly wrong.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Bette Midler: The E Street Shuffle"
----
 
 Oh my.
 

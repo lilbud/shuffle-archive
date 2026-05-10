@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The original River Tour kicks off with a Bob Seger duet, Bruce releases an American Land Edition of his Seeger Sessions album, and Springsteen on Broadway makes its debut. Many, many more highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 3"
----
 
 *New entry for 2024***New for 2025:**
 

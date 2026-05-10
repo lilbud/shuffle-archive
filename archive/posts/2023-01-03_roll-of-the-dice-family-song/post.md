@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s revealing, healing “Family Song” shines a light into his glossed-over reconciliation with his family in the winter of 1971-72.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Family Song"
----
 
 A quarter-century before “,” and almost a half-century before Bruce’s revealing autobiography and Broadway show, there was “Family Song.”
 

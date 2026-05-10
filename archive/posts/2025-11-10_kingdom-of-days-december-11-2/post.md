@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Watch rare River Tour footage, a holiday performance with Conan O’Brien, an interview on Italian TV, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 11"
----
 
 *No updates***New for 2025:**
 

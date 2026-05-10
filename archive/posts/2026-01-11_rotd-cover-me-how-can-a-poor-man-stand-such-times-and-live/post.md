@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s version of Blind Alfred Reed’s original protest song draws on a 1970 arrangement by Ry Cooder and a 2005 natural disaster for inspiration.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: How Can A Poor Man Stand Such Times and Live?
----
 
 Stocks fell on September 4, 1929.
 

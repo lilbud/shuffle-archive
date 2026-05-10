@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: watch Bruce’s full Tunnel of Love show in Uniondale, hear his last performance of “Good Eye,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 1
----
+
 
 Bruce and his “strange but adept” band headline a show at Rutgers University.
 

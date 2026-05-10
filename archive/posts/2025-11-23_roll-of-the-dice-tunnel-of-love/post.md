@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The most mature and intimate song on Tunnel of Love cloaks itself in carnival imagery and telegraphs things to come.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Tunnel of Love
----
 
 Julie was already sleeping one evening as I came to bed. There, in the darkness, the bedside lamp caught a glint of my wedding ring… . I’d never taken it off; something inside of me told me I never would, never should. I sat on the edge of the bed, gave it a light tug and watched as it slid off my finger. An ocean of despair swept over me and I felt faint. My pulse leapt and I could feel my heart threatening to push through my chest. I got up, made my way to the bathroom, ran cold water over my face and neck, then, gathering myself, beneath the bathroom’s fluorescent light, I slipped my ring back on. I walked back into the shadows of our bedroom, a room containing all my mysteries and fears, where my lovely wife lay in bed, her body just an outline, a dark, gentle ridge of tousled covers. I placed my hand upon her shoulders, moved my palm over her cheek, breathed in, felt the air return to my lungs, pulled back the sheets, climbed in and went to sleep. – *Bruce Springsteen, Born to Run (2016)*
 

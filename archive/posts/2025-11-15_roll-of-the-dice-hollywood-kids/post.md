@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An early, unreleased, never-performed demo by a 22-year-old Bruce Springsteen.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Hollywood Kids
----
 
 We are going obscure today.
 

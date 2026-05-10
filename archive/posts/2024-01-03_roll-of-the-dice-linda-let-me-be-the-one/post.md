@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The only Born to Run outtake to earn an official release, “Linda Let Me Be The One” is a beautifully melodramatic hat tip to Phil Spector.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Linda Let Me Be the One"
----
 
 was released on August 25, 1975.
 

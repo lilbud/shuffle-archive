@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce becomes an honorary Beach Boy when he joins Brian Wilson on stage for “Surfin’ U.S.A.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Brian Wilson and Bruce Springsteen, Surfin’ U.S.A."
----
+
 
 It took more than fifty years after its release, but Bruce Springsteen finally covered the immensely popular “Surfin’ U.S.A.” with its original artist and songwriter.
 

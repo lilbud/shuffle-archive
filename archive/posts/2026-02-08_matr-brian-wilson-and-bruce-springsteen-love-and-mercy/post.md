@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins one of his musical heroes on stage for a moving encore performance of “Love and Mercy.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Love and Mercy
----
+
 
 On May 12, 2007, Brian Wilson headlined a benefit concert for the Count Basie Theatre Foundation in Red Bank, New Jersey.
 

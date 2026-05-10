@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Let’s take another trip into the Bruce’s notebook archive and look at an early work-in-progress that never made it to a full song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Phantom Love (Just 16)"
----
 
 For every song that escapes, another never even makes it out of the notebook.
 

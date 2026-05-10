@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Part myth, part strut, and all magic: it’s the story of Bad Scooter and the E Street Band.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Tenth Avenue Freeze-Out"
----
+
 
 Let’s get one thing out of the way right off the bat: I’m not even going to to analyze and explain what the phrase “Tenth Avenue freeze-out” means. After all, if you ask Bruce, even he’ll admit:
 

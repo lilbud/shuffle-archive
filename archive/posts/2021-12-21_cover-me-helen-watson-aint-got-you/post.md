@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 1999, Helen Watson paid tribute to her favorite songwriters on her album Doffing, featuring a terrific a capella cover of “Aint Got You.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Helen Watson: Ain’t Got You"
----
 
 With her incredible voice and stylistic range, Helen Watson could probably cover almost any song in Bruce Springsteen’s catalog and bring something new to the table in the process.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Richard Shindell’s arrangement of “Born in the U.S.A.” highlights the anger and loss in the lyrics without sacrificing the melody. It’s a brilliant cover–take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Richard Shindell: Born in the U.S.A."
----
 
 Folk singer-songwriter Richard Shindell shares at least two talents with Bruce Springsteen: they’re both fantastic songwriters, and they both have an amazing ability to breathe new life into songs written by other artists.
 

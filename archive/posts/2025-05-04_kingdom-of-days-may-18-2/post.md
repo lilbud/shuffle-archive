@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The Castiles lay down their first tracks, the High Hopes Tour reaches its anything-goes finale, and Bruce premieres… “Hava Nagila?” Listen, watch, and read more inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 18"
----
+
 
 *Audio for 1999 and 2014; video for 2014 and 2023***New for 2025:**
 

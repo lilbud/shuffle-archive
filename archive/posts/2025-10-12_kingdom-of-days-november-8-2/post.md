@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce plays a special show at his old elementary school, a complete Stand Up for Heroes performance, and the long-awaited return of “Drive All Night” after a quarter-century absence.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 8"
----
+
 
 *New entry for 1977***New for 2025:**
 

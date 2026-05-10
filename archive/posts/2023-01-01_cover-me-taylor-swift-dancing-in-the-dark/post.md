@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At her 2011 concert in Newark, Taylor Swift paid homage to Bruce on-stage; a few months later, Bruce repaid the complement backstage in Raleigh. Catch both moments inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Taylor Swift: Dancing in the Dark"
----
 
 Now here’s an unlikely cover: when her Speak Now World Tour made a stop in Newark on July 20, 2011, superstar Taylor Swift paid homage to her New Jersey songwriting influencers:
 

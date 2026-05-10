@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In which I review an upcoming book that marks Bruce’s 70th birthday and answer a couple of frequently asked questions.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: “Long Walk Home” Book Review and Reader Mail
----
 
 Well, hello there!
 

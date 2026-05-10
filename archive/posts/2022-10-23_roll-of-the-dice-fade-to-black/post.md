@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This Nebraska-era demo uses cinematic vocabulary to devastating effect.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Fade to Black"
----
 
 He’s better known for his encyclopedic knowledge of rock history, but he’s also quite the cinematic connoisseur.
 

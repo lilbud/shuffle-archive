@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: More an impressionistic scene than a story, “Wild Billy’s Circus Story” is one of Bruce’s most carefully crafted early songs, full of delightful musical and lyrical detail. Insights, backstory, and some remarkable early performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Wild Billy’s Circus Story"
----
 
 “…I think when you’re a kid, the things you notice about the circus aren’t the things you’re meant to notice. But those are the things that are fascinating to you. You know what you’re watching, that right underneath it… you’d walk down the midway, but I was always interested in what’s going on down that side alley back by that trailer. And then late at night, if you happened to be stranded there at 11:30, midnight, after it had shut down, it was the province of local hoodlums at the time, and it was really scary for a little boy.”–*Bruce Springsteen to Elvis Costello, Spectacle, September 25, 2009*
 

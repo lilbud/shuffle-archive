@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Recorded live and professionally in Seattle, Vampire Weekend performs an acoustic cover of “I’m Goin’ Down.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Vampire Weekend: I’m Goin’ Down"
----
 
 At a Vancouver concert in 2010, Vampire Weekend delighted fans with a cover of Bruce’s “I’m Goin’ Down.”
 

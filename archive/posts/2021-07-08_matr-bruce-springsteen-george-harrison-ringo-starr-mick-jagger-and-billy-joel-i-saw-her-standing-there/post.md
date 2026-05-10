@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Rock royalty gathers in 1988 to induct The Beatles into the Rock and Roll Hall of Fame, and Bruce takes a turn at the mic on their 1963 classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen, George Harrison, Ringo Starr, Mick Jagger, and Billy Joel: I Saw Her Standing There"
----
 
 Bruce has played “I Saw Her Standing There” three times on stage (documented, at least), always with at least one Beatle present to play their 1963 classic.
 

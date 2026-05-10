@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s the biggest rock and roll single in history, but Bruce only ever covered it once.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen, Joe Grushecky, and Gary U.S. Bonds: The Twist"
----
 
 You’ve done The Twist.
 

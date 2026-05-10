@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Ken Tizzard of The Watchmen contributed a deeply empathic cover of “Devils and Dust” to a Newfoundland radio station’s Springsteen tribute.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Ken Tizzard: Devils &amp; Dust"
----
 
 Ken Tizzard is a Newfoundland-based singer-songwriter and bassist for The Watchmen.
 

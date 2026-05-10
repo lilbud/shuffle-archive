@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce is officially a Broadway star when his show opens at long last. Plus: Bruce plays in Brazil for the first time and is inducted into the American Academy of Arts and Sciences. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 12"
----
+
 
 *New entry for 1979; audio for 1988 and 2006; review for 2005***New for 2025:**
 

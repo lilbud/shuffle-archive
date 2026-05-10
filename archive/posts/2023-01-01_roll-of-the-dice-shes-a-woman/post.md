@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “She’s a Woman” is one for the completists, a funky guitar showcase with substandard lyrics. Bruce would get it right a few years later with “She’s the One.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: She’s a Woman"
----
 
 Warning: this is another one for the completists out there–the folks who want to hear everything Bruce has ever played at least once, regardless of quality.
 

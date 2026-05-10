@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce meets Max for the first time, debuts a new arrangement for “The Ghost of Tom Joad” with Tom Morello, kicks off the European leg of the first River Tour, and subjects himself to a deeply insightful 90-minute interview.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 7"
----
 
 *Expanded entry and review for 1976; video for 2023; new entry for 2024***New for 2025:**
 

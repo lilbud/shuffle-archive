@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: She doesn’t come out often, but when she does it’s probably going to be a loose but impassioned rave-up. Watch some of Bruce’s best (and funniest) performances of “Little Latin Lupe Lu.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Little Latin Lupe Lu
----
 
 [https://videopress.com/embed/ATK1qBy1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ATK1qBy1?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

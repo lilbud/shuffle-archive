@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Rest in peace, Clarence “Big Man” Clemons. Clarence passed away on this date in 2011, but watch his magical performance with Bruce–just the two of them–from this date in 1988.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 18"
----
 
 *Audio for 2008***New for 2025:**
 

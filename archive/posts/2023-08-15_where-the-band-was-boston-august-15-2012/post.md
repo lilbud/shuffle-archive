@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Mind. Blown.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Boston, August 15, 2012"
----
 
 …and then came Night Two.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Double-entry today: “Savin’ Up” is a Bruce Springsteen original composition, recorded by Clarence Clemons and the Red Bank Rockers, but performed live by Bruce on many occasions.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice/Cover Me, Clarence Clemons: Savin’ Up"
----
+
 
 Double-category entry today: Bruce wrote “Savin’ Up” and gave it to Clarence to record for his album in 1983, but in recent years, Bruce has reclaimed it, performing it several times in concert.
 

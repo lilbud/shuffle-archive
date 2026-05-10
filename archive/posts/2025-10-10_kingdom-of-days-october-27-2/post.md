@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy Birthday, Garry Tallent, born on this day in 1949. Also on this date: Bruce films a BBC documentary, gets politically active, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 27"
----
+
 
 *New entry for 1983; audio for 2002***New for 2025:**
 

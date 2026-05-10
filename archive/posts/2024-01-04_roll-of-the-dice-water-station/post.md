@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Truly one time only, and never before heard: Bruce Springsteen joins local band Odin and creates a brand new song on the spot. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Water Station"
----
+
 
 I know, I know: It’s been a long time since the last installment.
 

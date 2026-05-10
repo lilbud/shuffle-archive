@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Soaring vocals, gorgeous harmonies, and Suki Lahav’s violin carry this beautiful cover of “Spanish Harlem” by Bruce Springsteen and the E Street Band.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: “Spanish Harlem”"
----
 
 “Spanish Harlem,” originally recorded by Ben E. King in 1960 and written by Jerry Lieber and Phil Spector, covered live by Bruce Springsteen and the E Street Band on October 19, 1974 (and only three other times ever).
 

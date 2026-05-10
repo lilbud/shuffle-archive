@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen in on Bruce’s first-ever show in Seattle, Darkness Tour rehearsals, and more–all from this date.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 26"
----
 
 *New entry for 1972; audio for 1974; video for 1996***New for 2025:**
 

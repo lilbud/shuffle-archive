@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and The Wallflowers cover Vince Taylor’s 1959 rockabilly classic, “Brand New Cadillac.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and The Wallflowers, Brand New Cadillac"
----
+
 
 “Brand New Cadillac” was one of the first British rock and roll singles, first released in 1959 by Vince Taylor (as a B-side, actually).
 

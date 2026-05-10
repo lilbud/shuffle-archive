@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “The Wish” is Bruce’s most autobiographical song, and it’s more resonant and poignantly powerful today than ever.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Wish"
----
 
 I’m about to break my own rules–three of them, in fact:
 

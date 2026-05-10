@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday, Mighty Max Weinberg! Plus: Bruce releases 18 Tracks, Jon Bon Jovi makes a guest appearance, and much, much more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 13"
----
+
 
 *Audio for 1976 and 1996; review for 2012; new entry for 2018***New for 2025:**
 

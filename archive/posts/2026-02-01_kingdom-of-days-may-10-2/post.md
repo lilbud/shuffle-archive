@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "A big day for premieres: “Cautious Man,” “Boom Boom,” “A Good Man Is Hard to Find (Pittsburgh),” and “Bring ’em Home” all make their debuts on this date. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 10
----
+
 
 Steel Mill headlines an outdoor concert at Monmouth College in West Long Branch, New Jersey.
 

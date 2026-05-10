@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “The Star Spangled Banner” was written on and for a day like this very one. Watch Bruce Springsteen play a lovely version of it in 2004.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: The Star-Spangled Banner"
----
 
 On September 13, 1814, America was under attack.
 

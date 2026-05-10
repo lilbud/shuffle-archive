@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 2001, Bruce welcomed his holiday show audiences each night with a warm, merry cover of Bobby Helms’ “Jingle Bell Rock.” 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Jingle Bell Rock
----
 
 By this point in the holiday season, you’ve almost certainly heard Bobby Helms singing “Jingle Bell Rock” on the radio. Heck, you might have even heard it the 1957 holiday hit is that ubiquitous this time of year.
 

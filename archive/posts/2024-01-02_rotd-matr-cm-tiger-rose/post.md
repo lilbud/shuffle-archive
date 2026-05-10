@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A castoff from the Ghost of Tom Joad recording sessions, “Tiger Rose” made its way to an official release and stage performance via the late, great Sonny Burgess. Watch Bruce and Sonny perform it together inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "RotD/MatR/CM: Tiger Rose"
----
 
 Today’s entry checks all the boxes: it’s a Springsteen original, a cover, a team-up!
 

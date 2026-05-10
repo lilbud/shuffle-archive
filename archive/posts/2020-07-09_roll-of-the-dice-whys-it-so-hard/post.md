@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Why’s It So Hard” is a Springsteen original, but he takes a backseat in his only live performance of it. Southside Johnny takes the lead vocals, and Dave Sancious is absolutely on fire on the organ. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Why’s It So Hard"
----
 
 *upon review, corrected to reflect Steve on vocals rather than Southside. (Thanks for the catch, Mike Saunders!)***Updated 7/9/2020–**
 

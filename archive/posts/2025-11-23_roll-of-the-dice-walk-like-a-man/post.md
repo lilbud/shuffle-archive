@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Walk Like a Man” is the conclusion to Bruce’s “Daddy Trilogy,” an underplayed and under-recognized masterpiece of songwriting.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Walk Like a Man
----
 
 For sheer, raw emotional power in song, I’m not sure it’s possible to top the gut-punch of Bruce’s “Daddy Trilogy.”
 

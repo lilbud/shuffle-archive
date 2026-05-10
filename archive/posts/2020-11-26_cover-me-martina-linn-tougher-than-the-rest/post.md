@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Continuing our mini-theme for Valentine’s Week, here’s Swiss recording artist Martina Linn with a gorgeous acoustic cover of Bruce’s “Tougher Than the Rest.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Martina Linn: Tougher Than the Rest"
----
 
 Continuing our mini-theme for Valentine’s Week, here’s Swiss recording artist Martina Linn with a gorgeous acoustic cover of Bruce’s “.”
 

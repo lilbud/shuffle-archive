@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “My Lucky Day” is classic E Street magic both in the studio and on stage. Take a look and listen behind the scenes inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: My Lucky Day"
----
 
 For the life of me, I can’t figure out why “My Lucky Day” never became the monster hit it deserves to be.
 

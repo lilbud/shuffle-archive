@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce likes to spend June 11th in Italy–watch highlights from three Italian shows held on this date.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 11"
----
 
 *No updates***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of only two known outtakes from The Rising, “Down in the Hole” is the brutal, tragic tale of the search for loved ones at Ground Zero.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Down in the Hole"
----
 
 The father comes to be near his son. He digs through the smoking steel with a small Army pick and shovel. ”Where are you, boy?” he asks. It has been the same routine for months.
 

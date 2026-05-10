@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Brilliant Disguise” is a nakedly intimate, exquisitely written, and intensely performed exploration of self-doubt and the mysteries and insecurities of relationships.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Brilliant Disguise
----
 
 *God have mercy on the man who doubts what he’s sure of.*
 

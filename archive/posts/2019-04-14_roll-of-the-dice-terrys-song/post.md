@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Written less than three days after the passing of its inspiration, “Terry’s Song” is at once intensely personal and universal. It reminds us of the importance of truly knowing the people in our lives.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Terry’s Song"
----
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/terryssong_rememberingterrymagovern1-1-300x113.jpg?resize=642%2C242)
 

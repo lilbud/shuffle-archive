@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bono inducts Bruce into the Hall of Fame, Bruce speaks and performs at SXSW, and more on a busy date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 15
----
 
 : Bruce and the band play their fourth of seven nights at Oliver’s in Boston.
 

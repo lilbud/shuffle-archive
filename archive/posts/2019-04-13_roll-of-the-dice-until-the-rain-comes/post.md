@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Unearthed handwritten lyrics by an 18-year-old Bruce Springsteen.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Until the Rain Comes"
----
 
 Today’s entry is an unusual one. I’ve covered unreleased songs and even work-in-progress snippets, but this is the first essay for which we don’t even have a scrap of music to listen to.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A finished but unreleased home recording from the Born in the U.S.A. sessions, “Seven Tears” is a beautifully sad song and a masterful example of songwriting economy.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Seven Tears"
----
 
 Here’s another diamond in the rough from Bruce’s home studio recording sessions in early 1983–a short, tight lament called “Seven Tears.”
 

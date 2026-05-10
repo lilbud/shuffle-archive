@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce records one of the most beloved, evergreen holiday pop songs ever. Plus: the first “It’s My Life,” a Hurricane Sandy telethon performance and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 12"
----
+
 
 *Audio for 1975; new entry for 1977 and 2024***New for 2025:**
 

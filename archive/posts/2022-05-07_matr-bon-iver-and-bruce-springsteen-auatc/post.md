@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the height of the pandemic, Bon Iver enlisted some surprising guest vocalists for their one-off anti-capitalist single.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bon Iver and Bruce Springsteen: AUATC"
----
 
 Bruce Springsteen appears in this song.
 

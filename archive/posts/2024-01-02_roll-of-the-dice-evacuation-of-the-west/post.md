@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Part spaghetti western, part Mad Max, part War of the Worlds, “Evacuation of the West” is a brilliant, cinematic, fully realized E Street Band outtake that cries out for an official release.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Evacuation of the West"
----
 
 Bruce Springsteen was fascinated by the American West long before and . Western imagery and themes feature in Bruce’s work dating back to the beginning–even the beginning, if we examine his pre-label material.
 

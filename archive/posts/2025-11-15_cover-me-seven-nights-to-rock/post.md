@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: On the Rising Tour (and pretty much every year since) Bruce resurrected an obscure single from one of rock’s great but forgotten influencers.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Seven Nights to Rock
----
 
 Aubrey “Moon” Mullican was never the crossover star he should have been.
 

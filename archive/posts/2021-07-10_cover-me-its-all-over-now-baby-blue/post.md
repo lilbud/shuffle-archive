@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Stop what you’re doing and listen. The Bruce Springsteen Band’s cover of Bob Dylan’s “It’s All Over Now, Baby Blue” is one of their finest pre-E Street moments.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: It’s All Over Now, Baby Blue"
----
 
 When it comes to covering “It’s All Over Now, Baby Blue,” Bruce is in good company.
 

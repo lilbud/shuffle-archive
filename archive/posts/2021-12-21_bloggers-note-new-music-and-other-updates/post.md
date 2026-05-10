@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: For a summer without live music, it’s been a remarkably busy time for Bruce Springsteen. Here’s a quick round-up of the most must-watch/listen events of the summer. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Blogger’s Note: New Music and Other Updates"
----
 
 Well, hello there!
 

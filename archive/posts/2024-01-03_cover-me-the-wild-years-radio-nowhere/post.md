@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Brian W. Foster and Ashley Johnson remind us how lonely those first days of quarantine were with their haunting cover of “Radio Nowhere.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Wild Years: Radio Nowhere"
----
 
 *Thanks to friend of the blog Frank Saverio for tipping me off to this one!*
 

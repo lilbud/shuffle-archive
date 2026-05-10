@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and The Castiles cover The Blues Magoos’ “One By One” shortly after the release of the band’s last-charting single.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: One By One"
----
+
 
 “One by One” by The Blues Magoos has a curious history–although never a big hit (the single peaked only at #71 when it was released in 1967), it’s still one of the band’s better-known songs, as well as their last one ever to chart.
 

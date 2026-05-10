@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The E Street Band debuts their new name, Jon Landau sees the future of rock and roll, and Bruce makes his first appearance on Saturday Night Live. New video and more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 9"
----
+
 
 *Audio for 1974; review for 1976; new entry for 1980 and 2024; video for 2023***New for 2025:**
 

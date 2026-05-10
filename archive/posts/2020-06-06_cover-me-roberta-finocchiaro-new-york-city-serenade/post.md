@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Hot off the presses: Roberta Finocchiaro’s wonderful cover of Bruce’s “New York Serenade” translates perfectly to her solo electric guitar arrangement.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Roberta Finocchiaro: New York City Serenade"
----
+
 
 Italian singer-songwriter Roberta Finocchiaro (you might have caught her in her Light of Day appearances) just dropped her new album, and it’s terrific. Check it out or on your favorite music streaming service.
 

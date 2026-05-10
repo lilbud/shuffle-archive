@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Hidden away on a barely promoted Record Store Day EP, “Hurry Up Sundown” is a slick (if overproduced) piece of power pop, perfect for an open road on a sunny day.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Hurry Up Sundown"
----
 
 Remember the days when years would go by between Bruce’s album releases?
 

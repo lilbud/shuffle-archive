@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Certainly one of the most unusual Bruce covers, Neil Young’s version of “My Hometown” was recorded in a vintage Voice-o-Graph recording booth. Listen to it inside, and watch Neil and Jack White discuss the project.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Neil Young: My Hometown"
----
 
 Once upon a time, there was a thing called a vinyl recording booth. Usually found at arcades or amusement parks, these machines allowed you to record your own voice (or musical instrument, if you brought one along with you) directly onto a vinyl record.
 

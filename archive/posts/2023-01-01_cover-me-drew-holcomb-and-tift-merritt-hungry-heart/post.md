@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Drew Holcomb and Tift Merritt discover the country song that was always lurking at the core of Bruce Springsteen’s “Hungry Heart.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Drew Holcomb and Tift Merritt: Hungry Heart"
----
 
 There was always a country song deep down in Bruce Springsteen’s “,” and Drew Holcomb and Tift Merritt found it back in 2017 when they appeared together on .
 

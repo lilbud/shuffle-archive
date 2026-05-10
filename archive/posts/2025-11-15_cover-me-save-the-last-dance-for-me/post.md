@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce doesn’t play The Drifters’ 1960 classic often, but each time he does, it’s a magic moment.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Save the Last Dance for Me
----
 
 We’ve known that Bruce is a fan of The Drifters long before he namechecked Ben E. King in “.”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Dutch singer-songwriter catapulted his career into motion by covering one of his musical hero’s best-known songs and one of his least-known.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Jim van der Zee: Highway 29"
----
 
 Jim van der Zee is just a few days shy of his 26th birthday, but his career is off to a great start.
 

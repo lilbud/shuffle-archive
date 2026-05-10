@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce’s legendary 50th birthday show, the debut of a hastily-penned song for a Michigan crowd, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 24"
----
+
 
 *New entry for 1979***New for 2025:**
 

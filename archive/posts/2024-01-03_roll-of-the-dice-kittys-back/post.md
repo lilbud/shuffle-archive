@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s big and brassy; it swings and it struts. And more than any other song in Bruce’s catalog, no two performances are alike.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Kitty’s Back"
----
 
 When Bruce inducted the E Street Band into the Rock and Roll Hall of Fame, they closed their set with the only song appropriate for the occasion.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Get (very) up close and personal as Bruce and Levon Helm’s All-Stars play “Up on Cripple Creek” at The Stone Pony on August 22, 1987. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and Levon Helm’s All-Stars, Up on Cripple Creek"
----
 
 On August 22, 1987, Bruce made a guest appearance with Levon Helm’s All -Stars at The Stone Pony on August 22, 1987, and in addition to a rocking cover of “” they just to play one of The Band’s greatest hits.
 

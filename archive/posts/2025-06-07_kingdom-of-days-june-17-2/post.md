@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The first-ever performances of “All or Nothin’ at All,” “Real Man,” and “Spanish Eyes,” and the first “E Street Shuffle” in 25 years lead the highlights from this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 17"
----
 
 *New entry for 1977 and 2024; video for 2012 and 2016***New for 2025:**
 

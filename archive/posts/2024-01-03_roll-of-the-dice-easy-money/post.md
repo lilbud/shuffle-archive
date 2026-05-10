@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A bookend of sorts to “Atlantic City,” “Easy Money” inspired an entire album centered around the impact of societal economic inequality.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Easy Money"
----
 
 You cannot have a social contract with enormous income disparity – you’re going to slice the country down the middle. Without jobs, without helping folks with foreclosures, without regulating the banks, without some sort of tax reform… Without addressing those issues in some way, I don’t think the country is going to hold together. I understand the effects of globalization, I understand all that, but at the end of the day, you can’t have a society and you can’t have a civilization without a reasonable amount of economic fairness, full employment, purpose and civic responsibility. — , *Bruce Springsteen to Jon Stewart**Rolling Stone #1153*
 

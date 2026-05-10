@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s first concert performance of “Hang On Sloopy” gets the entire Greensboro Coliseum crowd on its feet for a deafening singalong. Watch the electrifying moment inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Hang on Sloopy"
----
 
 Somewhat improbably, I find myself pulling into Greensboro, North Carolina on the first evening of a ten-day cross-country bus trip/publicity stunt for work (long story, not relevant), about an hour before Bruce Springsteen is due to take the stage at the Coliseum.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Things are about to get confusing again. “Fugitive’s Dream” is one of three very closely related songs on L.A. Garage Sessions ’83, and it’s virtually impossible…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Fugitive’s Dream
----
 
 Things are about to get confusing again.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Highway 29” is a taut, cinematic masterpiece with some of Bruce’s best lyrics that challenge the listener to co-write the song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Highway 29"
----
 
 Way back in 1982, Bruce recorded a song called “.”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce kicks off his first stadium tour, guest stars with John Fogerty, and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 5"
----
+
 
 *New entry for 1977***New for 2025:**
 

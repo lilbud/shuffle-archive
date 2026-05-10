@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The E Street Band welcomes David Sancious, Bruce says goodbye to his beard, and Bruce and the boys play Max Weinberg’s wedding. More highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 22"
----
 
 *New entry for 1969 and 2024; expanded entry for 1973***New for 2025:**
 

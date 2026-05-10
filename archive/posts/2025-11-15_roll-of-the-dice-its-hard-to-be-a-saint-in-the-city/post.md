@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “It’s Hard to Be Saint in the City” played an important role in Bruce’s rise to stardom, but the lesser-known acoustic version is the definitive take.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: It’s Hard to Be a Saint in the City
----
 
 True fact: the last song on Bruce’s debut album, “It’s Hard to Be a Saint in the City,” fades out before it’s over.
 

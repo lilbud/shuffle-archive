@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce lets his psych rock flag fly in this 13-minute original epic, captured only once. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Sure Can Feel the Pain"
----
 
 Bruce is a self-confessed fan of psychedelic rock, even if its influence can be a bit hard to find in his officially released music. But go back a bit earlier, and you’ll hear it for sure.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "As guest appearances go, Tom Waits and Sting are pretty high up there–both happened on this date. Plus: the Magic Tour wraps up in loose, eclectic style, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 24"
----
+
 
 *New entry for 1977 and 1979; video for 2023***New for 2025:**
 

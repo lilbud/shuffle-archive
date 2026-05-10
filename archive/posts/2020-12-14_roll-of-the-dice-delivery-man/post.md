@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Darlington County” has a prequel, Wayne’s buddy has a name, and Bobby Jean has yet another sister. Don’t believe me? Take a listen to Bruce’s unreleased lark, “Delivery Man.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Delivery Man"
----
 
 In 1984, the world was introduced to Wilson and Wayne, two good ol’ boys driving down to Darlington County.
 

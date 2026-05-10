@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce opens a 1993 benefit concert with an emotional one-time cover of “Lonesome Valley.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Woody Guthrie’s “Lonesome Valley”"
----
 
 At the June 26, 1993 Kristen Ann Carr benefit concert, Bruce and the 1992-1993 band (plus Joe Ely), opened the show with this emotional cover of Woody Guthrie’s “Lonesome Valley.”
 

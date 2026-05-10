@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An early rock and roll sequel and the tragic deaths of two of his musical heroes inspired this powerful, under-the-radar B-side.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Johnny Bye Bye
----
 
 “I remember when I was nine years old and my mother had on and Elvis came on. I sat there and I said, ‘When I grow up, I wanna be just like that.’ I remember I was sitting at home when somebody called me up and told me that he died. It´s something I still think about all the time… how somebody that had so much and was so alive inside could end up losing so bad and seeming so lonely.”*The Ed Sullivan Show*
 

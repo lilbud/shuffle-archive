@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce turns the essential, existential question of rock and roll into a 2007 shoulda-been-a-hit single.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Radio Nowhere"
----
 
 It’s the essential, existential question at the heart of rock and roll.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce plays Wrigley Field for the first time, and in Philadelphia he sets the unbroken record for his longest American show. Plus: the E Street Band plays a gig without Bruce, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 7"
----
+
 
 *New entry for 2024***New for 2025:**
 

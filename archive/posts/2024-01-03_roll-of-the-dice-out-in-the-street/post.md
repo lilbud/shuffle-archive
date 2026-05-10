@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A departure at the time, “Out in the Street” established a theme of community in Bruce’s songwriting that became a hallmark of the E Street Band experience.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Out in the Street"
----
 
 “I wanted to be the reasonable voice of revenge for what I’d seen [my father’s] life come to.” *— Bruce Springsteen to Terry Gross, Fresh Air, December 26, 2016*
 

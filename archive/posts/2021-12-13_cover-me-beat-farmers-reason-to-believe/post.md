@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Beat Farmers’ rock arrangement of “Reason to Believe” electrified the Nebraska classic more than two decades before Bruce broke out a similar arrangement on the Magic Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Beat Farmers: Reason to Believe"
----
 
 If you’re a fan of the rock arrangement of “” that Bruce debuted during the Magic Tour, give a listen to The Beat Farmers’ cover treatment from way back in 1985–it rocks just as hard.
 

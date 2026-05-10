@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An unfinished, unreleased demo that would resonate particularly well these days.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: You Gotta Be Kind"
----
 
 “You Gotta Be Kind” is an unfinished demo, recorded by Bruce at home in early 1980.
 

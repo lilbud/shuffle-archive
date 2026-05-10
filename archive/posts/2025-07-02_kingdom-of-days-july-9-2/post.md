@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "It’s a big music video day for Bruce: in Berlin, he teams up with Wolfgang Niedecken for a new “Hungry Heart” video, in Sheffield he shoots the official “Spare Parts” video, and on the Internet, he releases the short film, “Hunter of Invisible Game.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 9"
----
+
 
 *Audio for 1981; new entry for 2013 and 2024***New for 2025:**
 

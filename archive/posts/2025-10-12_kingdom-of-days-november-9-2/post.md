@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "“Santa Ana” returns after more than three decades away, Nils steals the stage at a Seeger Sessions show in Birmingham, and Bruce debuts a brand new song: “Yankees Win.” 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 9"
----
+
 
 *New entry for 1977 and 2024; audio for 2006***New for 2025:**
 

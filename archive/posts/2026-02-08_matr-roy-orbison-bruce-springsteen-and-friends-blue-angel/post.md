@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Originally cut from the Black &amp; White Night broadcast and home video release, “Blue Angel” spotlights Roy Orbison’s amazing vocals, backed by a stellar band that includes Bruce.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Blue Angel
----
 
 On September 30 1987, an all-star array of musical talent gathered at the Cocoanut Grove in Los Angeles for the filming of .
 

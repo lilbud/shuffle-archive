@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The debut performance of “This Is Your Sword” was more memorable than the song itself.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: This Is Your Sword"
----
 
 the first time Bruce played “This Is Your Sword” in public, but all I remember about that performance is how unprepared Little Steven was for that selection.
 

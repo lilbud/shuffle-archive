@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce duets with Billy Joel on “A Matter of Trust” during the waning days of the 2008 American presidential campaign.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: A Matter of Trust
----
+
 
 It’s one of Billy Joel’s greatest hits, cracking the Top 10 (although just barely) in the summer of ’86.
 

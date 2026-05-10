@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From his 2012 Good Feeling album, take a listen to Paul Carrack’s wonderful cover of “If I Should Fall Behind.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Paul Carrack: If I Should Fall Behind"
----
 
 Even if Paul Carrack isn’t a familiar name to you, he’s almost certainly a familiar talent–whether from his 1974 hit “How Long” with his band Ace, his lead vocal in Squeeze’s “Tempted” in 1981, or his lead vocal on “Silent Running (On Dangerous Ground)” with Mike + The Mechanics in 1985.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One night in in the Big Easy, Bruce and the E Street Band swapped out their standard encore of Gary U.S. Bonds’ “Quarter to Three” for his earlier hit, “New Orleans,” and of course they nailed it. Check it out inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: New Orleans
----
 
 “New Orleans” was Gary U.S. Bonds’ first-ever single and one of his highest-charting, so of course Bruce was bound to cover it.
 

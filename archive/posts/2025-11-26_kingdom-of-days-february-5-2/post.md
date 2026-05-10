@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Check out a rare TV profile from 1985, a pro-shot “Kitty’s Back” from 2014, and highlights from the spectacular 1975 Main Point show featuring work-in-progress versions of songs that would appear on Born to Run.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 5
----
 
 The Bruce Springsteen Band plays their second of nine shows this month at The Back Door in Richmond, Virginia.
 

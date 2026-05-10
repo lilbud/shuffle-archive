@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Arcade Fire makes a memorable guest appearance, Bruce plays his first-ever show in Argentina, and the European Rising Tour kicks off. Video and more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 14"
----
+
 
 *Audio for 1977***New for 2025:**
 

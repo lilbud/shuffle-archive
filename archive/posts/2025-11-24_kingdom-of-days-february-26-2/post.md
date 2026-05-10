@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An insanely eventful day in Bruce history with gigs galore, Grammy Awards, and TV appearances. Check out the highlights, including an amazing cover of “Stayin’ Alive” and a barely-pre-reunion clip from Conan O’Brian.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 26
----
 
 The Castiles play the Matawan-Keyport Roller Drome in Matawan, serving as the backup band for The Exciters. Bruce will one day witness a young Patti Scialfa cover The Exciters’ biggest hit, “,” and remember it as the night he first fell in love with Patti’s voice.
 

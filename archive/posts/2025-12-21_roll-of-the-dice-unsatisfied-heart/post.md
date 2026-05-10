@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The curious tale of “Unsatisifed Heart,” never released but with DNA that would influence several later songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Unsatisfied Heart
----
 
 Hailing back to early 1983, in the midst of what would become known retroactively as the “Unsatisfied Heart” existed in the wild for decades only as a demo recorded by Bruce in his home studio.
 

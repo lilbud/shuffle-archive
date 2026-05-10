@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Walking in the Street” — a never-released, never-performed alternative path for Springsteen’s “Thunder Road.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Walking in the Street"
----
 
 The dice direct our attention to another unreleased classic: “Walking in the Street,” first recorded in the summer of 1974, reworked during the Born to Run sessions in May 1975… and then subsequently lost forever. (Bruce searched for the master tape when compiling the 1998 box set but was never able to locate it.)
 

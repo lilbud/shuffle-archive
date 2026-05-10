@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: You can find the heart of many Springsteen songs in a single line. In “Drive All Night,” it’s in the sax solo–it says more than any lyric ever could.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Drive All Night"
----
 
 **Zappos!**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It alternates between ragged and polished, it’s metaphorically inconsistent, and It has brilliant lyrical subtext that vanishes halfway through. But it rocks, and it charms, and it thrives both on vinyl and on stage. It’s “Human Touch.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Human Touch"
----
 
 During his solo acoustic tour in 2005, Bruce would often comment that love songs didn’t come easy to him during his early years. For his first several albums, he’d “disguise” them in other songs that didn’t seem like love songs to casual listeners.
 

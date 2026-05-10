@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: If you’d like Bruce Springsteen to sing on your album, it helps to have an in. Just ask his son’s guitar teacher.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Black Boots
----
 
 Matt O’Ree is singer-songwriter and blues guitarist from Holmdel, New Jersey. Both as frontman for his eponymous band and rhythm guitarist for Bon Jovi, O’Ree has torn it up on stages around the world.
 

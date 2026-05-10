@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce plays “Two Hearts” for the first time, and the E Street Band tackles “Kitty’s Back” for the first time in 24 years. Plus: Bruce plays an Obama campaign rally and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 6"
----
+
 
 *Review for 1980***New for 2025:**
 

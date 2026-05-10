@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Often derided if it’s remembered at all, “The Angel” deserves greater appreciation for its craft and early, tentative steps towards Bruce’s signature song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: The Angel
----
 
 “[The Angel] was written in fifteen minutes, and that’s one of my favorites because it’s one of the most sophisticated things I’ve written.” — Bruce Springsteen to Jerry Gilbert, *ZigZag*, August 1974
 

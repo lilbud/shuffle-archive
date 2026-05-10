@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Traditional, slow-grooving, or hard-rocking, they’re all great: check out Bruce’s three very different covers of Johnny Cash’s “Ring of Fire” spanning five decades.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Ring of Fire"
----
+
 
 On the night of November 18, 2009, in the final week of the Working on a Dream Tour in Nashville, Bruce opened the encores with those words every Springsteen fan loves to hear:
 

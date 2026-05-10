@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Southern Sun” is one of the original Hammond demos Bruce never committed to disc, and while there are elements to admire, that’s probably a good thing.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Southern Sun
----
 
 Everyone needs a change of scenery once in a while, even aspiring songwriters.
 

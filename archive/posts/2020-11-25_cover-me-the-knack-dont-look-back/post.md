@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One of my all-time favorite Bruce covers: “Don’t Look Back” by The Knack. (I’m a child of the 1980s. No apologies.)
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Knack: Don’t Look Back"
----
+
 
 One of my all-time favorite Bruce covers: “” by The Knack. (I’m a child of the 1980s. No apologies.)
 

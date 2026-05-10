@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A one-off cover for local flavor turned rare studio cover, The Saints’ “Just Like Fire Would” is a natural fit for Bruce’s set lists.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Just Like Fire Would"
----
 
 When Bruce pulled out a surprise two songs into his Brisbane show in 2013, set list watchers back in the U.S. must have been scratching their heads: What was this song?
 

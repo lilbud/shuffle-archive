@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Twice only: Bruce covered Elvis Presley’s 1964 hit during two appearances in the same week at Jersey Shore clubs.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and John Eddie: Ain’t That Lovin’ You Baby"
----
+
 
 Eddie Riff recorded and released “Ain’t That Lovin’ You, Baby” as a single in 1956. It was a great song and a fantastic performance, but it went nowhere.
 

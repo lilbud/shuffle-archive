@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce debuts “Turn Back the Hands of Time” and a country arrangement of “No Surrender,” takes over the Tonight Show, and teaches us how to count.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 15"
----
 
 *Expanded entry and audio for 1979; review for 1980***New for 2025:**
 

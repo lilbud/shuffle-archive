@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Simultaneously morbid and mirthful, “Cadillac Ranch” bears surprisingly deep substance beneath its rollicking veneer. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Cadillac Ranch"
----
 
 “Cadillac Ranch” is one of the brightest, zippiest, and just plain fun songs in Bruce Springsteen’s catalog, as long as you don’t actually pay attention to the words.
 

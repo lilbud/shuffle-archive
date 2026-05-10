@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In which I learn the downside of a celebrity encounter at a show.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Oakland, May 5, 2005"
----
 
 I was looking forward to this show.
 

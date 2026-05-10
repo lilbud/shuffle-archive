@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Wrong Side of the Street” is a lyrical lightweight, but it features a great E Street Band backing track that went unreleased for more than 30 years after it was recorded.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Wrong Side of the Street"
----
 
 Bruce’s penchant for tinkering with old recordings and grafting modern elements has accelerated in recent years, and sometimes the seams are more noticeable than others. (I’m looking at you, “.”)
 

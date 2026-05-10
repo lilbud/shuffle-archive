@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this day in Springsteen history: The Tunnel of Love Express Tour kicks off, the E Street Band plays their last concert to date, the inspiration for one of Bruce’s most controversial songs, and a whole lot more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 25
----
+
 
 The Bruce Springsteen Band plays their seventh show this month at The Back Door in Richmond. This show features the only known circulating performance of “.”
 

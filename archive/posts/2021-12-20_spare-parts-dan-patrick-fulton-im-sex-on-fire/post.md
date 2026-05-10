@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Dan Patrick Fulton pulls off a brilliant mash-up and perfect pairing of “I’m on Fire” with “Sex on Fire” by Kings of Leon.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Spare Parts: Dan Patrick Fulton: (I’m/Sex) On Fire"
----
 
 It’s pretty tough to do something new with “” — it’s very likely the most covered song in Bruce’s catalog.
 

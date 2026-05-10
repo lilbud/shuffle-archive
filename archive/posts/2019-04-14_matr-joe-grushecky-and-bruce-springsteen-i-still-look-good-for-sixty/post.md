@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Yes they do.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Grushecky and Bruce Springsteen: I Still Look Good (for Sixty)"
----
 
 Performed together only thrice: Bruce and Joe Grushecky have a good time sending themselves up with Joe’s “I Still Look Good (for Sixty).”
 

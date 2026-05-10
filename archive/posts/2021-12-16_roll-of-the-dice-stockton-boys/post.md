@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A precursor to “Working on the Highway,” Bruce’s lost-in-time “Stockton Boys” never made it past the home demo stage–but those demos escaped into the wild. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Stockton Boys"
----
 
 In the early months of 1980, Bruce was still writing and tinkering with material for his upcoming album, He often retreated into his home studio in Holmdel, New Jersey, where alone with his guitar and tape recorder, he’d work and re-work lyrics, test different arrangements, and occasionally even .
 

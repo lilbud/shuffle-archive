@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Fade Away” is a young man’s “Back in Your Arms,” a Danny Federici-powered cry of anguish over lost love. It’s beautiful and perfect–Bruce’s songwriting at its best.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Fade Away"
----
 
 With “Fade Away,” Bruce absolutely nails it: his lyrics, music, and vocals absolutely ooze desperation. It’s a young man’s “” covering the same emotional ground but without his older self’s wisdom, insight, and self-awareness. “Fade Away” is all anguish, and anguish never sounded sweeter.
 

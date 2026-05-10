@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Queen of the Supermarket” is one of Bruce’s best 21st century songs. There–I’ve said it. I’ll explain why inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Queen of the Supermarket"
----
 
 described it as “a widescreen melodrama about a cashier crush that for sheer overkill rivals Adam Sandler’s parody ‘Lunchlady Land.'”
 

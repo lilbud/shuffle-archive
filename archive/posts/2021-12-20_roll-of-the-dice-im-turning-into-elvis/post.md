@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A themed benefit concert invite provided the spark for Bruce’s original talking blues. Take a listen and laugh along inside. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I’m Turning into Elvis"
----
 
 In the spring of 1995, Sting and Trudie Styler invited Bruce Springsteen to perform at their annual Rainforest Foundation benefit show. This year’s theme: Elvis.
 

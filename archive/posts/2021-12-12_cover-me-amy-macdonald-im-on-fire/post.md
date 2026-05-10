@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Scottish singer-songwriter Amy Macdonald sneaks a lovely cover of “I’m on Fire” onto the deluxe edition of her most recent album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Amy MacDonald: I’m on Fire"
----
 
 When Scottish singer-songwriter Amy Macdonald released her album of original songs last year, she tacked one cover tune onto the deluxe edition: a lovely acoustic rendition of “.”
 

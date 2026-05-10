@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "It’s one of the great Springsteen mysteries: what exactly makes “I’m on Fire” so freaking popular?
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I’m on Fire"
----
+
 
 At long last, the dice force us to confront one of the great enduring Springsteenian mysteries, namely:
 

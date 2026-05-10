@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The shoulda-been “Cover Me” that never was.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Drop on Down and Cover Me"
----
 
 This.
 

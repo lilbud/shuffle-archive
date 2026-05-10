@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In which Bruce redeems one of his least compelling compositions decades after it was released.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: All or Nothin’ at All"
----
 
 The maddening thing about Bruce’s album is that there are some really good songs ruined by terrible arrangements and over-production (I’m talking to , ““).
 

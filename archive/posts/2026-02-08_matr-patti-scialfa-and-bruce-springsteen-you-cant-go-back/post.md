@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It may be called 23rd Street Lullaby, but “You Can’t Go Back” is the song that best captures the spirit of Patti’s second album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: You Can’t Go Back
----
 
 The first track may have lent the album its title, but the second track captures its spirit.
 

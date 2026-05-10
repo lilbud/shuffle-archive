@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Featuring a banjo-led arrangement and beautiful harmonies, The Alexander Schmidt Band’s version of “I’m on Fire” deserves a listen.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Alexander Schmidt Band: I’m on Fire"
----
 
 There are of Bruce Springsteen’s “” floating around out there that I had to put a temporary moratorium on featuring them on this blog to avoid accidentally creating its own sub-blog.
 

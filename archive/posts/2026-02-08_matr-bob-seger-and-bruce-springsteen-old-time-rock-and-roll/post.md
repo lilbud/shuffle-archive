@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce has played Bob Seger’s “Old Time Rock and Roll” in concert twice: once in 2011 with Seger himself, and once way back in a 1980s club appearance. Catch both fun performances inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Old Time Rock and Roll
----
+
 
 There’s no official video for the studio version of Bob Seger’s “Old Time Rock and Roll.”
 

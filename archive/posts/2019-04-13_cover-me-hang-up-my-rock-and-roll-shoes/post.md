@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce has covered this Chuck Willis classic from 1958 three times over his career. Listen to the first and watch the last inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Hang Up My Rock and Roll Shoes"
----
 
 Chuck Willis passed away in 1958 just as he was reaching the pinnacle of his career, so he never got to see “Hang Up My Rock and Roll Shoes” become a hit and an enduring classic.
 

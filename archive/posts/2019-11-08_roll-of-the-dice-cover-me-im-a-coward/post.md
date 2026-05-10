@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Springsteen’s “I’m a Coward.” Homage or cover? You decide. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice (Cover Me?): I’m a Coward"
----
 
 Oh man. I was dreading the first time the dice came up with one of these songs, because I’m not sure how to classify them. Are they originals or covers?
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce plays his original holiday song for ribald laughs, but beneath its risque surface it has a lot to say.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Pilgrim in the Temple of Love
----
 
 “Say in your next interview, Mr. Social Consciousness!” —*that*  *Patti Scialfa to Bruce Springsteen (on many an occasion), as related by Bruce Springsteen (on many an occasion)*
 

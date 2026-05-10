@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Just as powerful as an instrumental as the Youngbloods’ original anti-war nightmare, The Bruce Springsteen Band does justice to Jesse Colin Young’s “Darkness, Darkness.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Darkness, Darkness"
----
 
 “Darkness, Darkness” never got anywhere close to being a hit for The Youngbloods. Even though the band released it as a single twice (once in 1969 and then again the following year), it took the second attempt for it to even crack the Top 100.
 

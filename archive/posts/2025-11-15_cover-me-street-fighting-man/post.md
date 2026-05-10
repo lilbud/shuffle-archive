@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Street Fighting Man” was a regular encore during the early days of the Born in the U.S.A. Tour. Listen to great performances of the Rolling Stones’ anthem inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Street Fighting Man
----
 
 Mick Jagger may not be a big fan of “Street Fighting Man,” (he’s admitted as much in interviews), but Bruce Springsteen surely is.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “The Klansman” is one of the best unreleased outtakes from the Born in the U.S.A. sessions–a stark, morally ambiguous tale of the day a KKK recruiter visits a young boy’s home.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Klansman"
----
 
 On March 10, 1983, Bruce sat down in his new home studio in his Los Angeles home, switched on a drum machine, and recorded “The Klansman,” a dark reminiscence of a home visit by a KKK recruiter through the eyes of a child.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday, Mighty Max Weinberg! Plus: Bruce releases 18 Tracks, Jon Bon Jovi makes a guest appearance, and much, much more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 13
----
+
 
 E Street Band drummer and late night telly-vision personality Max Weinberg is born in Newark, New Jersey.
 

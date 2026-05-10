@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the Cover Me finals in Bergamo, the surprise of the night was Iacopo Fedi’s powerful, acoustic reinvention of “Man’s Job.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Iacopo Fedi: Man’s Job"
----
 
 There I was…
 

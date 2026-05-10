@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce kicks off World Tour 1992, continues the Reunion Tour’s last stand, premieres “Take ‘Em as They Come,” and more. Plus: Patti Scialfa releases her second album and plays a mini-concert in New York City.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 15"
----
+
 
 *New entry for 1979***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s only officially released original instrumental provided a much-deserved song-length spotlight for The Big Man.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Paradise by the “C”"
----
 
 Today, we look at one of the more enigmatic entries in the Springsteen catalog: the instrumental Big Man spotlight, “Paradise by the ‘C’.”
 

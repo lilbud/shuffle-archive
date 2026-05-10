@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: John Hiatt gives us a sharp-edged, hard-driving take on Bruce’s “Johnny 99.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, John Hiatt: Johnny 99"
----
 
 John Hiatt gives us a sharp-edged, hard-driving take on Bruce’s “.”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A joyful but haunted anthem that both celebrates and mourns our losses.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Ghosts"
----
 
 “Death’s final and lasting gift to the living is an expanded vision of life itself.”
 

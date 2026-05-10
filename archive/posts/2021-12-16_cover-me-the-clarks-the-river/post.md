@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Clarks transform “The River” from ballad to full-on rocker, and it works–better than one might imagine was possible.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Clarks: The River"
----
 
 Be great or be different if you’re covering Bruce.
 

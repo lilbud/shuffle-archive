@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce takes a backing guitar role only on this one, but it’s too beautiful a performance not to include: From Black and White Night, “The Comedians.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: The Comedians
----
+
 
 In a concert filled with Orbison classics, “The Comedians” is an outlier. It was written by Elvis Costello and released on Costello’s 1984 album, 
 

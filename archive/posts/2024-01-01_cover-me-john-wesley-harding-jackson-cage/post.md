@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Available on three different album releases, John Wesley Harding’s cover of “Jackson Cage” deserves its repeated exposure. It’s one of the few Bruce covers I enjoy more than the original.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, John Wesley Harding: Jackson Cage"
----
 
 Singer-songwriter John Wesley Harding is no stranger to Bruce’s music. He’s performed with Bruce twice before (including a wonderful ), and Bruce hand-picked Harding to be his opening act–Bruce’s first in two decades–during his 1995 Berkeley gigs.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "A life moment for me, as I check off two of my top bucket list goals: a visit to Rome and my all-time, most-chased song.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Rome, July 16, 2016"
----
+
 
 If I didn’t already have tickets for a pair of Philly shows in September, I probably would have made Rome my last stop on the 2016 River Tour, because I couldn’t imagine any concert experience topping this one.
 

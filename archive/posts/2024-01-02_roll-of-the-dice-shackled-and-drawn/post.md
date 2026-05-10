@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Part work song, part call to action, and one of Bruce’s best and most Springsteenian songs, “Shackled and Drawn” is also Bruce’s best show opener ever. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Shackled and Drawn"
----
 
 What’s your favorite Springsteen song? Favorite tour? Favorite album? Favorite cover?
 

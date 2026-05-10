@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At John Fogerty’s 50th birthday party. Bruce debuted what may be a lost original song–and it’s a fun one, to boot.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I’m Your Detail Man"
----
 
 I only I’m cataloging every song Bruce has ever written or covered.
 

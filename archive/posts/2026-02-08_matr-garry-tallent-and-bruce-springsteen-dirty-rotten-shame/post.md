@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Garry’s second solo project features a taut, two-minute rocker with backing vocals from Bruce.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Dirty Rotten Shame
----
 
 Back before the pandemic, when 2020 was shaping up to be a big E Street touring year, Bruce’s bandmates devoted 2019 to solo projects while they could. Max toured with his Jukebox; Nils, Steve, and Jake all released new music.
 

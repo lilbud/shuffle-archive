@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Take in highlights from Springsteen shows in every decade today.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 13"
----
 
 *No updates***New for 2025:**
 

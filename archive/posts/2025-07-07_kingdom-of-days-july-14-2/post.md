@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce and Paul McCartney learn what happens when you break curfew at Hyde Park.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 14"
----
+
 
 *New entry for 1975 and 1985; video for 2012***New for 2025:**
 

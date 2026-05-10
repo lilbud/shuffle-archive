@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Mary Mary” is a lovely and melancholy Magic outtake that *almost* made it on High Hopes and ultimately escaped the vault on Record Store Day, 2014. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Mary, Mary"
----
 
 “’Mary Mary” is a lovely mystery, a small piece of heartbreak poetry that sneaks up on you with its slippery grove, punctuated string section and spectral lyrics.”
 

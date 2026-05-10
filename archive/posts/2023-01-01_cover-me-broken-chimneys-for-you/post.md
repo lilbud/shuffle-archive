@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Adam Selzer’s intriguing arrangement re-imagines Bruce’s early classic as a chamber piece–and it works very well.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Broken Chimneys: For You"
----
 
 The Broken Chimneys is the brainchild/pseudonym of Adam Selzer, a Chicagoland renaissance man (author, musician, public speaker, podcaster and local tour guide) who records under the Broken Chimneys banner to avoid confusion with the multi-talented Adam Selzer (a musician, writer, photographer and producer in Portland, Oregon).
 

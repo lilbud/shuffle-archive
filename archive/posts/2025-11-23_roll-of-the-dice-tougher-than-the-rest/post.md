@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Easily one of Bruce’s best songs and most universally resonant, “Tougher Than the Rest” celebrates resilience and second chances–and we all need a little bit of both.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Tougher Than the Rest
----
 
 Not all of us were born in the U.S.A. We don’t all get to that place where we really wanna go.
 

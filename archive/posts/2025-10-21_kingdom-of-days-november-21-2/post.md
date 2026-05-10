@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce releases his eleventh studio album, The Ghost of Tom Joad. Plus: the Seeger Sessions Tour wraps up, the return of forgotten classic “Song for Orphans,” and Bruce plays his first ever show in Sweden. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 21"
----
+
 
 *No updates***New for 2025:**
 

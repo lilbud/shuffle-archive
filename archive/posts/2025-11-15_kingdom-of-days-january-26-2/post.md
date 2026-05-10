@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Tom Morello joins the E Street Band, Bruce plays South Africa for the first time, the United Steelworkers honor Bruce, and much more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 26
----
+
 
 The Castiles (Bruce’s first band) play a gig at The Left Foot in Bruce’s hometown of Freehold.
 

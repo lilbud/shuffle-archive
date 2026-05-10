@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Years before Darkness on the Edge of Town, Bruce gave his fans a glimpse at his dark side with his stunning cover of The Animals’ “It’s My Life.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: It’s My Life"
----
 
 It must have been a shock to the audience the first time Bruce first covered “It’s My Life” in concert.
 

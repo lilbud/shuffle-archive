@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bearing influences both local and literary, “Spirit in the Night” immediately established itself as one of Bruce’s signature songs. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Spirit in the Night
----
 
 The story goes something like this:
 

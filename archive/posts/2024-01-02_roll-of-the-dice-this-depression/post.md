@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Years before he openly confessed his lifelong battle with depression, Bruce hid it in plain sight as the centerpiece of his Wrecking Ball album. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: This Depression"
----
 
 In retrospect, it couldn’t have been more obvious.
 

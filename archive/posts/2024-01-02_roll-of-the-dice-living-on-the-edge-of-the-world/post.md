@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Living on the Edge” is a glorious hot mess of a song. An unreleased outtake until 1998, it nevertheless spawned no less than three officially released Springsteen originals along the way.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Living on the Edge of the World"
----
 
 This is one of the essays I’ve been dreading, but I knew the dice would turn it up eventually.
 

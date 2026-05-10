@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In which my friend Steve and I get caught in a downpour, meet Steve Van Zandt, and then catch an amazing show in which only 3 of 35 songs were released post-1980.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Oakland, March 13, 2016"
----
 
 If you’re Bruce Springsteen, and you’re in the middle of a tour, and your shows break the three-hour mark routinely, and you have six shows in a row coming up with only a day in between each of them, and you’re 66 years old, and your voice is straining, and you’ve just seen a doctor in Phoenix to make sure you’re good to go for the show, what do you do next?
 

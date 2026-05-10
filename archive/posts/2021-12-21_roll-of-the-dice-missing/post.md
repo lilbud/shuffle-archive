@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The sole escapee to date from Bruce’s unreleased 1994 hip hop/EDM album, “Missing” is a hauntingly powerful and daringly experimental meditation on loss and absence.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Missing"
----
 
 “I got together a lot of samples and loops and started to put this album together. It was fun; I enjoyed doing it, but I needed two or three more songs, and for some reason, I never got around to writing them. So I put it away. Eventually, I’m going to find a way to get this music out to people. — Bruce Springsteen, November 16, 1998*Time Magazine,*
 

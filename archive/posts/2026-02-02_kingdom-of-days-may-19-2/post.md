@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce records the videos for “Vigilante Man” and “I Ain’t Got No Home,” but the real highlights for this date are the only known Darkness-era performances of three tracks from The Promise.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 19
----
 
 Bruce cancels a scheduled performance at Detroit’s Masonic Temple Theater.
 

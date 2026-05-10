@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Strange &amp; Primitive’s cover of “I’m on Fire” lives up to the band’s name. Listen to this one in the dark with headphones on.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Strange &amp; Primitive: I’m on Fire"
----
 
 Here’s an unusual cover of a song usually covered.
 

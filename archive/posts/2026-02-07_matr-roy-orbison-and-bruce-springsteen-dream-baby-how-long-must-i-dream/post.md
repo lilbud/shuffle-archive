@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Roy Orbison on vocals for his 1962 hit, “Dream Baby” at Roy’s 1987 Black and White Night concert. Plus: listen to Bruce adapt the song at home in 1981.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Dream Baby (How Long Must I Dream)
----
+
 
 I’ve shared a few songs from Bruce’s 1987 appearance as a member of Roy Orbison’s all-star backing band (see “The Comedians,” Blue Angel,” “,” and “Go Go Go (Down the Line)” for the others), but this one’s special for two reasons.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: How in the world did it take Bruce until 2009 to cover The Kinks’ breakthrough hit?
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: You Really Got Me"
----
 
 How in the world did it take Bruce 45 years to cover the breakthrough hit from one of his favorite bands?
 

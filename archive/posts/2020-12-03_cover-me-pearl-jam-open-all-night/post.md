@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "In honor of this week’s #TheHomeShows, here’s Pearl Jam’s scorching one-off cover of “Open All Night.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Pearl Jam: Open All Night"
----
+
 
 This week, it seems like everyone in my adopted hometown of Seattle is attending (or wishing they could) a pair of benefit shows by one of our local bands to combat and raise awareness about local homelessness. What started out as a concert has swelled into a community-wide movement. I’m sure Bruce approves of and is impressed by what his friend Eddie and crew have accomplished.
 

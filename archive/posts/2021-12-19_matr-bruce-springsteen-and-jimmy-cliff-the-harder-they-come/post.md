@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen performs Jimmy Cliff’s “The Harder They Come” with the original artist at SXSW.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Jimmy Cliff, The Harder They Come"
----
+
 
 Jimmy Cliff wrote “The Harder They Come” for the 1972 film by the same name (in which he played the starring role). The film’s soundtrack became an international success, raising the global profile of reggae music and establishing Cliff as a star.
 

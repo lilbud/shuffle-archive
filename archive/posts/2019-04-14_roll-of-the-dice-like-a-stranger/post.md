@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Like a Stranger” appeared at a few Bruce Springsteen Band Shows, representing one of Bruce’s early attempts to grapple with relationships through song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Like a Stranger"
----
 
 You know, for a guy who likes to profess that he didn’t write songs about relationships until his late thirties, Bruce sure wrote a lot of them back in his early twenties.
 

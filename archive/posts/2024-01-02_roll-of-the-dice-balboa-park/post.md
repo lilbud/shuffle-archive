@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A heartbreaking L.A. Times article inspires one of Bruce’s most harrowing narratives–the tale of young lost boys in Balboa Park.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Balboa Park"
----
 
 After the Border Patrol van departed carrying the boys who did not run fast enough, Carlitos whistled, the sound echoing in the park beneath sun-glazed downtown office towers.
 

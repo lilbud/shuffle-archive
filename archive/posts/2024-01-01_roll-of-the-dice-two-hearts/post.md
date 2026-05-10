@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Two Hearts” is one of Bruce’s early songwriting masterpieces, and one that is best listened to acoustically than in its original arrangement.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Two Hearts"
----
 
 Let’s establish up front: the definitive version of “Two Hearts” can’t be found on . To do justice to one of Bruce’s greatest songwriting accomplishments, we must look to his hometown acoustic performance from 1996, available as an official archive series recording.
 

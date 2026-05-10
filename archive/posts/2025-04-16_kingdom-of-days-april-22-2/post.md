@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce performs “The Angel” for the first time and soundchecks a new song, “American Skin (41 Shots).” Plus: Bruce is honored on Ellis Island, and the E Street Band returns to the stage after the passing of Danny Federici. Many more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 22"
----
+
 
 *New entry for 1980; audio for 1985 and 2008; video for 2009***New for 2025:**
 

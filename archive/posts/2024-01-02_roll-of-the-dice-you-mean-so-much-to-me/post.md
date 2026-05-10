@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "“You Mean So Much to Me” is a rarity: a Bruce Springsteen Band song that survived well into the E Street Band era, allowing us to trace the evolution of Bruce’s sound from 1971 to 1974. Take a listen inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: You Mean So Much to Me"
----
+
 
 If you want to trace the rapid evolution in Bruce’s sound during the first half of the 1970s, there’s no better case study than his lost original, “You Mean So Much to Me.”
 

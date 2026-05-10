@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: 47 years after he first performed it, Bruce got a chance to cover one of his biggest influences with the original artist.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: We Gotta Get Out of This Place
----
 
 “[F]or me, it was The Animals. For some, they were just another one of the really good beat groups that came of the 60s. But to me, The Animals were a revelation. The first records with full blown class consciousness that I had ever heard.” *–Bruce Springsteen, SXSW Keynote, March 15, 2012*
 

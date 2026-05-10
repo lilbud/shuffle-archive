@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s Darkness and River albums are bridged by this stealthy and extraordinarily empathetic love song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Independence Day"
----
 
 “I grew up in this little town, and as I got older, I started looking around me and it didn´t seem like there was any way I was gonna get out of there. Because I looked back at my father, and the only time he´d ever gotten out of that town was to go to World War II. And then when he came out of the army, he got married and he settled down and went to work in a plastics factory. And his father had done the same thing.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Warren Zevon has a blast covering “Cadillac Ranch” at a beautifully captured 1982 performance.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Warren Zevon: Cadillac Ranch"
----
 
 Frequent readers of this blog know my rule when it comes to covering Bruce’s (or really, anyone’s) songs: do it better or do it different–or else don’t bother.
 

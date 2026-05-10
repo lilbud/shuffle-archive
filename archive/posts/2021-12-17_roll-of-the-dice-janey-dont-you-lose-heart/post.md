@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of Bruce’s lightest but truest songs of love and friendship, “Janey, Don’t You Lose Heart” is an instant highlight wherever she turns up. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Janey, Don’t You Lose Heart"
----
 
 Bruce’s catalog is filled with songs that contain dense imagery and layered metaphor, that demand attention and considered interpretation.
 

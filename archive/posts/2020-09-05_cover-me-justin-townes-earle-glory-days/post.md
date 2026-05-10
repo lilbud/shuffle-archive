@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Rest in peace, Justin Townes Earle–gone far, far too soon. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Justin Townes Earle: Glory Days"
----
 
 Oh man… I don’t have the words tonight.
 

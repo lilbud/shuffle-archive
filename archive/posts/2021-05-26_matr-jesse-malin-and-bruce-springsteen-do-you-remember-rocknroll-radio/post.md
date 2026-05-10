@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A one-time-only cover of a Ramones classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Jesse Malin and Bruce Springsteen, “Do You Remember Rock’n’Roll Radio?”"
----
 
 It amazes me that Bruce has only covered this once, at Light of Day 2014–this would be an instant highlight at an E Street Band concert.
 

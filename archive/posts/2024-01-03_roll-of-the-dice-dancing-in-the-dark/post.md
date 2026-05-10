@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A last-minute addition to Born in the U.S.A. provided Bruce with his greatest hit and the rocket fuel for his best-selling album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Dancing in the Dark"
----
 
 “Jon [Landau] had been bothering me to write a single, which is something he rarely does. But he did that day. And he wanted something That seemed to be what he was hitting on me for at the time. I was angry. I had written a lot of songs and was kind of fed up with the whole thing. We’d been making the record for a long time and I was bored with the whole situation.*direct.*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Lifelong Springsteen fan Richard Nijstad bring us a double-shot of beautiful covers of two of Bruce’s best songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Richard Nijstad: My Hometown and Tougher Than the Rest"
----
 
 Richard Nijstad has only been playing the guitar since 2010, but he’s a lifelong Springsteen fan.
 

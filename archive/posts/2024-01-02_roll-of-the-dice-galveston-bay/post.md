@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: More short story than song, Bruce lifted “Galveston Bay” from real-life headlines to tell a tale of hope and better angels.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Galveston Bay"
----
 
 “That’s a miracle that can happen, that does happen: People get to a certain brink, and they make a good choice instead of a deadly choice.” *–Bruce Springsteen to David Corn, Mother Jones, March/April 1996*
 

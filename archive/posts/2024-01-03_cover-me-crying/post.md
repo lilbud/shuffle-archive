@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 1989, Bruce paid tribute to the late, great Roy Orbison by performing Roy’s signature ballad at the Rock and Roll Hall of Fame.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Crying"
----
 
 Purely by coincidence (I have no advance knowledge of these things), Bruce’s cover of “Crying” was released this morning along with the rest of his May 16, 1988 show as part of his official archive series. Get it to listen to it in much better quality than the sound check version below.
 

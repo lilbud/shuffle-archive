@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Mumford &amp; Sons have been covering “I’m on Fire” for years, but this may be their best performance.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Mumford and Sons: I’m on Fire"
----
 
 I really tried to put some more space between “” covers, but then this one popped up on YouTube a week ago and suddenly I’m off the wagon.
 

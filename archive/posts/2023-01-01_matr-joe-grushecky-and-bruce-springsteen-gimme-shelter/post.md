@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Joe Grushecky and The Houserockers on a blistering cover of The Rolling Stones’ anthem “Gimme Shelter.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Grushecky and Bruce Springsteen, Gimme Shelter"
----
+
 
 It’s shocking that it took Bruce until 1995 to cover what is arguably The Rolling Stones’ greatest song ( and certainly think so, at least); it’s even more surprising that he hasn’t covered it since.
 

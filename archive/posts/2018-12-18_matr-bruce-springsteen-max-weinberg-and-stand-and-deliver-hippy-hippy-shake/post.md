@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "From the Legends of Springsteen files: Bruce and Max join cover band Stand and Deliver at the Classics Cafe in Westwood for rocking rendition of “Hippy Hippy Shake.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen, Max Weinberg, and Stand and Deliver: Hippy Hippy Shake"
----
+
 
 Chan Romero was only 17 when he wrote his breakthrough hit, “Hippy Hippy Shake.”
 

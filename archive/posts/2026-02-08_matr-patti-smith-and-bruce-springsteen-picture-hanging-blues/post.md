@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Now here’s a true rarity: Bruce Springsteen backing Patti Smith on piano, gamely trying to keep up with her as she improvs her way through one of her earliest poems.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Picture Hanging Blues
----
+
 
 Let’s set the Wayback Machine for Black Friday, November 26, 1976, at the Bottom Line club in New York City.
 

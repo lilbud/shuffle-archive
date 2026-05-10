@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Phil Beer Band’s cover of “No Surrender” infuses Bruce’s 1984 song with a Zydeco spirit that’s impossible to resist.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Phil Beer Band: No Surrender"
----
 
 Singer, songwriter, and multi-instrumentalist Phil Beer is no stranger to Bruce Springsteen’s catalog, having played covers of Bruce’s music at least as far back as his Albion Band days a couple of decades ago.
 

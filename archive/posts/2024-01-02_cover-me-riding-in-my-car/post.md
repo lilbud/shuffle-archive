@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce has covered Woody Guthrie’s social and political folk songs time and again, but it was only a matter of time before Bruce discovered Guthrie’s children’s songs, too. “Riding in My Car” must have proved irresistible–which is exactly the descriptor for Bruce’s cover version.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Riding in My Car"
----
 
 Bruce Springsteen his covered the work of Woody Guthrie time and again.
 

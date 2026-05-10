@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When The Revivalists played their first post-pandemic shows at Red Rocks, there was only one song that deserved to be their final encore.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Revivalists: Born to Run"
----
 
 When your band plays its first shows in over a year…
 

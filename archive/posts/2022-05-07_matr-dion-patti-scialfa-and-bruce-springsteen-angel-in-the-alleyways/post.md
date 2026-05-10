@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Patti and Bruce reunited with Dion DiMucci last year on a second religious-themed collaboration.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Dion, Patti Scialfa, and Bruce Springsteen: Angel in the Alleyways"
----
 
 Some team-ups are too good to be one-offs.
 
@@ -29,6 +23,6 @@ In the album’s liner notes, Dion wrote: “I gave Patti a simple, raw demo of 
 (2021)
 
 **Angel in the Alleyways**
-Released:**  
+**Released:**  
 *Stomping Ground*  
 **Never performed**

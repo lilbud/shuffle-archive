@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Everybody’s looking for *something*, but I’ll be darned if I can figure out what. Give this brief home demo a listen and see if you can figure out what Bruce is singing about.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Everybody’s Looking for Somebody"
----
 
 Actually, it’s not at all clear to me that looking for somebody.
 

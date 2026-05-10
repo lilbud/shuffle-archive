@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: What can we say about this early, bluesy Steel Mill original other than that it showcases a young Bruce Springsteen developing his stage presence and patter? Um… let’s just go with that.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Mary Louise Watson"
----
 
 When I started this blog, I promised to make my way through Bruce’s entire catalog–released and unreleased–and give each song due consideration and analysis.
 

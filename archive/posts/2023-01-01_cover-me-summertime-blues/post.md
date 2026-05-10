@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: With can’t-catch-a-break lyrics belied by an infectious and instantly recognizable riff, “Summertime Blues” was tailor-made for a Springsteen set list. Watch some of Bruce’s great performances of it inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Summertime Blues"
----
 
 With one of the most recognizable riffs in rock and roll and lyrics aimed right at rock’s core audience, it’s no wonder that “Summertime Blues” became a monster hit when rockabilly legend Eddie Cochran released it in the summer (appropriately) of 1958.
 

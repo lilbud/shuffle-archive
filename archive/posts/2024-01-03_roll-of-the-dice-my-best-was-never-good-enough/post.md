@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Beneath this two-minute trifle lurks dark and complex inspiration.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: My Best Was Never Good Enough"
----
 
 “Well, I tell you,” I drawled. “I tell you the way I look at it, a man doesn’t get any more out of life than what he puts into it.”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen to Bruce and Stevie discuss the influence of Them before covering “Gloria” in concert.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Gloria"
----
 
 “Gloria” is a riff-rock classic that’s perfectly suited for the E Street Band’s guitar-heavy arsenal. It’s turned up in Bruce’s setlist more than a dozen times over the years, and that’s including its frequent mini-appearance as a lead-in to “.” It’s clearly a significant song for Bruce, as you can hear in this conversation between Bruce and Steve from the Underground Garage in 2011.
 

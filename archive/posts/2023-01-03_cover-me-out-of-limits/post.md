@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and the E Street Band open their Halloween Eve second set with a cover of The Marketts’ surf-rock instrumental classic.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Out of Limits"
----
+
 
 In the autumn of 1963, a new television series took to the air and became an immediate hit. was a speculative fiction series in the vein of , which was still in its original run. Even today, fans of can recite its memorable opening credit sequence word for word.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “I Just Can’t Change” is a long lost Bruce Springsteen Band song, but its melody survived into the E Street Band era attached to another song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I Just Can’t Change"
----
 
 Here’s our second pre-ESB song this week. Unlike “,” however, “I Just Can’t Change” has lyrics and is a fully realized song. Bruce wrote it in 1971, and he performed it live with the Bruce Springsteen Band through 1972, although only one specific performance is documented and recorded.
 

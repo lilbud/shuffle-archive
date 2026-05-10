@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Stark, dark, and brooding, the film noir-ish “Point Blank” dazzles with one of Bruce’s very best vocals and arrangements. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Point Blank"
----
 
 , (French: “dark film”) style of filmmaking characterized by such elements as cynical heroes, stark lighting effects, frequent use of flashbacks, intricate plots, and an underlying existentialist philosophy. (Brittanica.com)**Film noir**
 

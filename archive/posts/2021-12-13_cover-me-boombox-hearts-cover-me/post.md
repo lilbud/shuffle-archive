@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Melancholy, lo-fi indie” group The Boombox Hearts take a different path with their version of “Cover Me,” and it works.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Boombox Hearts: Cover Me"
----
 
 By now you my motto when it comes to covers: Do it better, or do it different.
 

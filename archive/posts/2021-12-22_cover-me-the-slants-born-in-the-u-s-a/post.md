@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The ironic story of an earnest band performing an earnest cover in an ironic context.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Slants: Born in the U.S.A."
----
 
 This is an ironic story about an earnest band.
 

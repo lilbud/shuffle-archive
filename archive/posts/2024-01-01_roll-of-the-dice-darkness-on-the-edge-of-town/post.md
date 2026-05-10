@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Darkness on the Edge of Town” is one of Bruce’s most enduring classics. But is it a song about heroic defiance or defeat and addiction? 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Darkness on the Edge of Town"
----
 
 I’ve gone on record a few times confessing my (relative) lack of appreciation for the album, and I usually find myself embroiled in animated debate whenever I do. I find it heavy-handed: many of the songs are thematically so similar that they seem to be almost identical in their pairing of obsessive defiance and defeatedness, and while I can appreciate the craftsmanship, I don’t find the album enjoyable to listen to.
 

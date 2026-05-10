@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce unveils his new touring band at a special gig at the Bottom Line. Plus: A special night with Robert Pinsky and John Wesley Harding, Little Steven’s NJ Hall of Fame induction, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 6
----
+
 
 Bruce plays the Spring Carnival at UMass Amherst. With attendance at around 18,000, this is one of the largest crowds that Bruce will play to for years.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 2008, Alejandro Escovedo’s upcoming single received an unexpected boost from The Boss when Bruce asked Alejandro to perform it with him live in concert–their first joint appearance of many.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Alejandro Escovedo and Bruce Springsteen: Always a Friend"
----
 
 “Those four minutes on stage with Bruce were more important than the 33 years I’ve been playing music. It just changed my life. It was like being blessed by the Dalai Lama. Suddenly all those years of working really hard and struggling, someone said, ‘You’re alright. You’re good at what you do. You deserve to be up here.'” *–Alejandro Escovedo, Backstreets interview, July 2008*
 
@@ -60,7 +54,7 @@ Prior to the pandemic, Escovedo’s career was back on track, but it’s been a 
  March 14, 2012 (Austin, TX)
 
 **Always a Friend**
-Released:**  
+**Released:**  
 *Magic Tour Highlights*  **First performed:**  
 
 **Last performed:**

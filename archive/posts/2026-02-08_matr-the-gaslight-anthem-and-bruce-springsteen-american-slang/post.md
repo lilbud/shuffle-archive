@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When The Gaslight Anthem came through Asbury in 2011, Bruce joined them on their album’s title track in a surprise appearance for a hometown crowd.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: American Slang
----
 
 Did anyone really expect Bruce to turn up when The Gaslight Anthem played Asbury Park’s Convention Hall on their American Slang Tour?
 

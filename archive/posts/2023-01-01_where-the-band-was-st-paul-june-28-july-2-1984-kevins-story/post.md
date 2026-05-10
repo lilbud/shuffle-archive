@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Guest blogger Kevin Doyle was at the “Dancing in the Dark” video shoot as well, and he provides new detail and some stunning photos inside. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: St. Paul, June 28 – July 2, 1984 (Kevin’s story)"
----
 
 Editor's Note
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Santa comes out in ’99, an intense Magic show in Milan, and a unique Ramrod/Living on the Edge of the World mash-up–all and more from this date.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 28"
----
 
 *New entry for 1977***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The third time was not the charm, but Bruce still managed to salvage something from this River-era outtake.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Out on the Run"
----
 
 Bruce and the band sound like they’re having a blast working this one out in their 1979 rehearsal sessions for .
 

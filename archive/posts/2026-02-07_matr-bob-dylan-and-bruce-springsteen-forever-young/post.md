@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and Bob Dylan perform Dylan’s classic “Forever Young” at the Rock and Roll Hall of Fame Museum inaugural concert.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Forever Young
----
+
 
 On October 23, 1987, the music industry paid tribute to the man who introduced much of the world to Count Basie, Bob Dylan, Aretha Franklin, Benny Goodman, Billy Holliday, Pete Seeger, Bessie Smith, Stevie Ray Vaughn… and Bruce Springsteen.
 

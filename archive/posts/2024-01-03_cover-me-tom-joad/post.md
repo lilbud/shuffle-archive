@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Long before Bruce wrote “The Ghost of Tom Joad,” one of his musical heroes turned Steinbeck’s tale into a galvanizing ballad.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Tom Joad"
----
 
 It was the centerpiece of one of the very first concept albums, and it inspired one of Bruce Springsteen’s finest ballads.*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bookended by a wild card opener and closer, punctuated by a full Born to Run album performance and the debut of Philly Elvis, my last show at the Spectrum was a memorable one.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Philadelphia, October 19, 2009"
----
 
 Of all the Philadelphia shows I’ve seen, this was the Philly-est of all.
 

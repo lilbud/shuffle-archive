@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce proclaims “Crush on You” to be a masterpiece, and I agree. Only he’s being sarcastic, and I’m not.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Crush on You"
----
 
 What if the The Clash and The Rolling Stones got together back in the day and wrote a song?
 

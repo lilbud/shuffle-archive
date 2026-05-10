@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce releases his Devils &amp; Dust album, debuts “Hello Sunshine,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 26"
----
+
 
 *New entry for 1980 and 1982***New for 2025:**
 

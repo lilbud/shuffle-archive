@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Singer-songwriter Stjerne teams up with the eclectic SMAF! combo on a beautiful, longing, torchy arrangement of “Streets of Philadelphia.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, SMAF and Stjerne: Streets of Philadelphia"
----
 
 SMAF is a German combo that describe their music as “a soundtrack Quentin Tarantino would dance to on acid at a soul music party,” inspired by “spaghetti westerns, Motown, and reggae.”
 

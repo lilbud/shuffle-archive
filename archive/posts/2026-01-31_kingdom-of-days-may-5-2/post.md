@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce receives Sweden’s Polar Music Prize. Watch full footage plus more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 5
----
+
 
 Eleven-year-old Bruce Springsteen receives the sacrament of confirmation at St. Rose of Lima Church in Freehold.
 

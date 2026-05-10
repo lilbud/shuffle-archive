@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: KT Tunstall and the Buena Vista Social Club bring out the sexy in their 2009 cover of “Because the Night.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, KT Tunstall and the Buena Vista Social Club: Because the Night"
----
 
 There are a of “Because the Night” covers out there, but this is one of my favorites–and it comes from a most unexpected pairing.
 

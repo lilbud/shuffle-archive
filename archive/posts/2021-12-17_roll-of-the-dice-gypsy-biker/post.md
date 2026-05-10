@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Gypsy Biker” is one of Bruce’s angriest songs and best modern vocals. Filled with loss, regret, rage, and resignation, it’s an emotional powerhouse that anchors the Magic album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Gypsy Biker"
----
 
 “Gypsy Biker” has the soul of Bruce’s classic narrative laments like “Highway Patrolman,” “,” or “”
 

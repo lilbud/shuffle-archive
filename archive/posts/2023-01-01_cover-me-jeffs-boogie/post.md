@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Jeff Beck’s “Jeff Boogie” intimidates even the most accomplished guitar players, but Bruce Springsteen took a shot at it on stage at the tender age of seventeen. Take a listen and hear how he did.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Jeff’s Boogie"
----
+
 
 “The ultimate test for any self-respecting guitar player is: could you play ‘Jeff’s Boogie–which you could not. You could fake your way through ‘Jeff’s Boogie’, but you couldn’t actually play it.” *–Bruce Springsteen, Little Steven’s Underground Garage, April 8, 2011*
 

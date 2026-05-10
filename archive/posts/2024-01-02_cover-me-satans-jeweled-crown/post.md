@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In the spring of 1993, Bruce leaned further into his new band’s strengths with their gorgeous cover of a country-gospel classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Satan’s Jeweled Crown"
----
 
 By the time Bruce resumed his World Tour in 1993 after a three-month winter break, he’d grown more comfortable with his new band. He’d begun seeding more of his E Street material back into the set, and more importantly he started leaning in to the gospel vocal strengths of his back-up singers.
 

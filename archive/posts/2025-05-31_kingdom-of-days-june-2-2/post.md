@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Darkness on the Edge of Town was released on this date in 1978! Also on this date: a historic radio performance, the only known performance of “A Night Like This,” and more. Great audio and video inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 2"
----
+
 
 *New entry for 1977***New for 2025:**
 

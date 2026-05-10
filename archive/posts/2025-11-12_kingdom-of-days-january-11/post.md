@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: The Big Man is born, and Bruce wins a Golden Globe. Plus: video highlights from Springsteen on Broadway.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 11
----
+
 
 Clarence “Big Man” Clemons is born in Norfolk, Virginia.
 

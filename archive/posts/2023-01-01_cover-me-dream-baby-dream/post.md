@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The story of how an unlikely cover of an obscure electro-punk band became a nightly benediction from Bruce to his fans.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Dream Baby Dream"
----
 
 It was just about the unlikeliest song for Bruce Springsteen to cover, and yet cover it he did.
 

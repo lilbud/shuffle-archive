@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Soozie Tyrell joins the E Street family, and Evan James joins the Springsteen family. Plus: Bruce plays… an IPO party?
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 25"
----
+
 
 *Audio for 1975 and 1992; new entry for 2024***New for 2025:**
 

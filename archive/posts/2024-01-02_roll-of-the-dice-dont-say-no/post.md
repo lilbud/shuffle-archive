@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: We may not be able to make out the lyrics for “Don’t Say No,” but the backing track is a keeper. Too bad Bruce didn’t find a home for it–although it’s not for lack of trying.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Don’t Say No"
----
 
 Bruce really, really, wanted to find a home for the instrumental track that backs his unreleased song, “Don’t Say No.” He used it not once but twice in 1977–and then a third time in 1979.
 

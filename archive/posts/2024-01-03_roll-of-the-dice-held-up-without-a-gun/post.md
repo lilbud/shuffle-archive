@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At 77 seconds, this furious 1980 B-side is Bruce’s shortest studio track on record.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Held Up Without a Gun"
----
 
 “Held Up Without a Gun” came darn close to making the final pressing of .
 

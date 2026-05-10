@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Visit the vividly painted streetscape of “Santa Ana,” featuring a lost Clarence Clemons flute performance and dreamlike imagery.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Santa Ana"
----
 
 “Santa Ana” is typical early-Bruce tapestry–full of larger-than-life characters, colorful metaphors, and some liberal dips into the rhyming dictionary a la “Blinded by the Light.” Written in 1972 and recorded in early 1973, it wouldn’t see the light of day (officially, anyway) for a full quarter century thereafter.
 

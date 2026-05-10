@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Springsteen fan Lucas Mège shares his gorgeous, passionate, and powerful solo piano performance of “Drive All NIght.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Lucas Mege: Drive All Night"
----
 
 We have a rule here on the Shuffle: If you’re going to cover a Bruce Springsteen song, either do it different or do it better.
 

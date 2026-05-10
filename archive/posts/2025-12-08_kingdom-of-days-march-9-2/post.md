@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Jake Clemons’ debut E Street Band performance and Suki Lahav’s final one.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 9
----
+
 
 Bruce’s scheduled gig opening for Paul Butterfield in Phoenix is cancelled due to poor ticket sales.
 

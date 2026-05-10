@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Western Stars” is Bruce’s magnum opus–a gorgeously cinematic, metatextual commentary on his life’s work and journey.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Western Stars"
----
 
 For Bruce Springsteen, all roads lead west.
 

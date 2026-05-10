@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A love song for anyone who’s tried to save someone who couldn’t be saved.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: For You
----
 
 “…I fell in obsession with a lovely surfer girl, a drug-taking, hell-raising wild child who played by nobody’s rules. She was a perfect antidote to the control freak in me and opened up my hunger for every blond perfect thing I never had. She was so alive, funny and broken, I couldn’t resist her. She stirred up my Catholic-school-bred messianic complex, then did the bone-and-heart-crushing dance over it that it deserved. She’d been around a little, California and back, knew a few grade-B-level rock stars, brought them down to ‘discover’ my band, then slept with them. I got a handshake and a ‘you guys are great’ T-shirt out of the deal.” *–Bruce Springsteen, Born to Run (2016)*
 

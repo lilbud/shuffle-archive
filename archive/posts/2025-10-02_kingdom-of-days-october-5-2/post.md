@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce releases Tunnel of Love, his eighth studio album. Plus: Bruce performs on SNL (and winds up in the doghouse during rehearsals), an epic Neil Young guest appearance, and much more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 5"
----
+
 
 *Video for 2004 and 2006***New for 2025:**
 

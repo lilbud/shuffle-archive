@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: listen to the earliest known performance of a work-in-progress “Jungleland,” the debut of “Man at the Top,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 12"
----
+
 
 *New entry for 1972, 1977, 1979, 1994, and 2024***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Into the river we dive, as we appreciate one of Bruce’s finest and most heartbreaking songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The River"
----
 
 *(: Friend of the blog Steven Semeraro pointed out that while Mary was 17 when they met, the narrator is likely eighteen by implication. I’ve updated some timing references accordingly.)***Updated 3/4/2021**
 

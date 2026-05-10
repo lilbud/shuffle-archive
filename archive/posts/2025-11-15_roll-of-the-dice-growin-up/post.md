@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An ode to never growing up that never gets old. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Growin’ Up
----
 
 The irony was there at the outset.
 

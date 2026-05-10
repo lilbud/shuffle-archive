@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Win Butler and Régine Chassagne join Bruce on stage in Ottawa for one of Arcade Fire’s greatest hits.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Arcade Fire: Keep the Car Running"
----
+
 
 “Robert De Niro said once that what he likes about acting is that he gets to step into other people’s shoes without the real-life consequences. Art does allow you to do that, to go right up to the abyss and look in, hopefully without falling in. On any given day. I feel like that’s what was built to hold off, that falling in. There’s a furious aspect to the performance, and that’s why people come out — you’re recognizing the realities of people’s emotional lives and their difficulties, you’re presenting these problems, and you’re bringing a survival kit. The bands that do that forge intense, intense relationships with their audience, and to me, that was always the core of the best rock’n’roll.” **Arcade Fire***–Bruce Springsteen to Steve Kandell, Spin, December 2007*
 

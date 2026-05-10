@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Anti-folk singer Kirk Kelly pares “Downbound Train” down to a ukulele and a haunted, lonely vocal.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Kirk Kelly: Downbound Train"
----
 
 More than fifteen years before Kirk Kelly gave Bruce’s “” the ukulele treatment.
 

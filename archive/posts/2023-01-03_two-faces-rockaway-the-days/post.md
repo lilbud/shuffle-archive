@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Katy Crane returns with a deep dive into Bruce’s 1984 outtake.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Two Faces: Rockaway the Days"
----
 
 Editor's Note
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce teams up with Garland Jeffreys for a crowd-pleasing cover of ? and the Mysterians’ “96 Tears.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Garland Jeffreys, 96 Tears"
----
 
 Bruce Springsteen has supported Garland Jeffreys on “96 Tears” so many times that if you didn’t know better, you’d think the song was originally Garland’s.
 

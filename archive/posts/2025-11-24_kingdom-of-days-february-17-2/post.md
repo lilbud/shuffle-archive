@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce meets Nils for the first time and plays with Ronnie Spector and Flo and Eddie.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 17
----
+
 
 Bruce meets Nils Lofgren for the first time at The Matrix in San Francisco, where both Steel Mill (Bruce’s band) and Grin (Nils’ band) are playing.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Another dip into the amazing “Back in the U.S.A.” tribute album by Joan Osborne and The Waybacks–this time a slow burn of “Born in the U.S.A.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Waybacks and Joan Osborne: Born in the U.S.A."
----
 
 When I shared Joan Osborne and The Waybacks’ a few months ago, I promised it wouldn’t be the last time I dip into this absolutely fantastic album.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce teamed up with John Fogerty on “Fortunate Son” nightly during 2004’s Vote for Change Tour, but that wasn’t the first time Bruce covered John’s anti-war anthem. Listen to rare early bar performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: John Fogerty and Bruce Springsteen, Fortunate Son"
----
 
 At the first night of the Rock and Roll Hall of Fame 25th Anniversary Concerts, on a night that was basically all highlights, one of the best was the team-up between Bruce Springsteen and one of his great songwriting influences.
 

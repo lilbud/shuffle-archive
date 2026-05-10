@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Factory” ranks among the best of Bruce’s early song-writing, with lyrical economy and an instrumental track both spare and ornate–it’s a marvel of restraint and emotional bravery.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Factory"
----
 
 My wife and I have this debate from time to time: when it comes to art–any form of it–sometimes you can love something you don’t like.
 

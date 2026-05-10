@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Written long before 9/11 but perfectly capturing the pain of its first responders, “Nothing Man” is a bleak but ambiguous look at the lasting emotional effects of intense trauma.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Nothing Man"
----
 
 One of Bruce Springsteen’s underappreciated talents is the construction of an album sequence.
 

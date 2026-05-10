@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: During the Born to Run Tour, Bruce worked up a simmering, slow burn of a cover of Solomon Burke’s 1962 classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Cry to Me"
----
 
 With a new album of old soul covers on the way, let’s take a look at a few more classics from the deep trove of R&B standards Bruce has covered over the years. We’ll start with one you almost certainly know but almost certainly haven’t heard him perform live.
 

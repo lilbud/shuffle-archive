@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Inspired by the legendary collaborations at the Rock and Roll Hall of Fame 25th Anniversary Concerts, Ray Davies kicked off his album of revitalized Kinks songs with “Better Things” as a duet with Bruce.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Ray Davies and Bruce Springsteen, Better Things"
----
 
 “Better Things” was something of a comeback single for The Kinks when they released it in 1981; it placed them back on the charts in the US and the UK after being absent for more than a decade. Never reaching past the #92 spot on the Hot 100, it still provided the venerable band a foothold they very much needed.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From his Destination Anywhere tour in 1997, Jon Bon Jovi treats Japanese fans to a faithful cover of Bruce Springsteen’s “Fade Away.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Jon Bon Jovi: Fade Away"
----
 
 I don’t know much about the source of today’s video; perhaps some Bon Jovi fans can help me out.
 

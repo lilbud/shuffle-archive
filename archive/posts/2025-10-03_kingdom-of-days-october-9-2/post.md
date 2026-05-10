@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s Bruce’s first show in Indiana and the Ivory Coast, and his last-ever show at Giants Stadium. Both happened on this date–more highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 9"
----
 
 *No updates***New for 2025:**
 

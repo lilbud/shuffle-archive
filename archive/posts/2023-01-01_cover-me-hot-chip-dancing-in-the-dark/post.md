@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Just in case Bruce’s video for “Dancing in the Dark” isn’t eighties enough for you… well, sometimes its better to just let a clip speak for itself.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Hot Chip: Dancing in the Dark"
----
 
 Just in case Bruce’s original video for “” isn’t eighties enough for you… well, sometimes its better to just let a clip speak for itself.
 

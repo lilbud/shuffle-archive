@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Bruce Springsteen Band debuted on this date in 1971. Listen to their first performance inside, plus more highlights from this date in history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 10"
----
 
 *No updates***New for 2025:**
 

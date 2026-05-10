@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce headlines an all-star roster of talent at the Rock and Roll Hall of Fame 25th Anniversary concerts. Also on this date: Bruce plays at Tom Petty’s house, Gary U.S. Bonds’ first appearance on an E Street stage, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 29"
----
+
 
 *Audio for 2006; video for 209***New for 2025:**
 

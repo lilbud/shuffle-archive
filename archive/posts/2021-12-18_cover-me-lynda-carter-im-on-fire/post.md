@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In the latest installment of “1970s TV Icons Covering Bruce Springsteen,” Wonder Woman herself covers Bruce’s sultry 1984 single, “I’m on Fire.” 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Lynda Carter: I’m on Fire"
----
 
 So this is a thing: Iconic TV stars from the 1970s covering songs by Bruce Springsteen. Sure, it’s a micro-genre, but a surprisingly well-represented one.
 

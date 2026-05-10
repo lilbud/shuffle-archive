@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Edwin Starr’s “War” remains sadly relevant ever since its original smash release. In 1985, Bruce released a live music video of his cover version, and three years later he performed it with Starr himself. Watch both amazing performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: War"
----
 
 “War” was a Top 10 hit–but never for its original recording artists.
 

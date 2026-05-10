@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Dripping in symbolism and gorgeous imagery, “Moonlight Motel” is lyrically Bruce Springsteen’s best song. Full stop.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Moonlight Motel"
----
 
 Please excuse me for a moment while I get something out of my system:
 

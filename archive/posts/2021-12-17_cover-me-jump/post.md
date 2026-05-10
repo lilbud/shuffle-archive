@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Twice only: Bruce Springsteen and the E Street Band cover one of the greatest rock anthems of the 1980s.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Jump"
----
+
 
 No list of eighties arena rock anthems would be complete without Van Halen’s “Jump.”
 

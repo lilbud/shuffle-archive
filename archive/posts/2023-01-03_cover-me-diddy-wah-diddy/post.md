@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bo Diddley’s ode to the mythical locale of Diddy Wah Diddy became the perfect way to thank fans for a great tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Diddy Wah Diddy"
----
 
 It ain’t no town, and it ain’t no city.
 

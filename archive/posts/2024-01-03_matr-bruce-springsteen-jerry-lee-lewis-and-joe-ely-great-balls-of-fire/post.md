@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce took two cracks at performing Jerry Lee Lewis’ signature song with The Killer, but it took a guest appearance by the Jerry Lee-influenced Joe Ely to get it right. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen, Jerry Lee Lewis, and Joe Ely: Great Balls of Fire"
----
 
 “I was with my parents in Amarillo, and there was this blinding dust storm–you couldn’t even see across the street. Everybody had bandannas across their faces to keep the dust out. We were at a Pontiac dealership, and this guy was selling cars. Suddenly, he said, ‘And now we’ve got a kid up here that’s gonna play a little piano for you.’ And it was Jerry Lee Lewis–just him and a piano, flailing away.
 

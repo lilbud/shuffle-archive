@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Joe D’Urso bravely rearranges Bruce’s classic anthem.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Joe D’Urso and Stone Caravan: Badlands"
----
 
 It takes guts to reinvent an anthem like “.” Even Bruce has never deviated from its original arrangement–it was pretty much born perfect.
 

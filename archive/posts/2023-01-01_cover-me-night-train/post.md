@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: To buy time for his clean-up crew, Bruce and the band vamp their way through Jimmy Forrest’s “Night Train.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Night Train"
----
+
 
 Jimmy Forrest recorded “Night Train” in 1952 as a sultry, earthy R&B instrumental.
 

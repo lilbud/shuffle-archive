@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Patti’s title track for her third album makes clever and strategic use of her husband’s musical talents.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Play It As It Lays
----
 
 “You make your choices in life, and then it comes down to your heart and your resilience.” *–Patti Scialfa to Dennis Elsas, NPR, November 1, 2007*
 

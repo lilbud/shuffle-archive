@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Michael Strollo on “Could Die Young Tonight” to pay tribute to Michael’s recently departed brother (and Bruce’s friend), Tony.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Could Die Young Tonight
----
+
 
 In the early 2000s, Michael Strollo made a local name for himself as the lead singer of Exit 105, a terrific Jersey Shore-based rock band. (Where else would a band with that name be from?)
 

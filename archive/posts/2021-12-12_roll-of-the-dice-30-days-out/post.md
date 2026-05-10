@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A Human Touch outtake stronger than much of that album, “30 Days Out” deserves an official album release.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: 30 Days Out"
----
 
 And then there’s “30 Days Out.”
 

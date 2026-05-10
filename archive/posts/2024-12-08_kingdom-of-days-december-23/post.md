@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Peace on earth hasn’t quite set in–a fight breaks out during an early performance of “Santa Claus is Comin’ to Town.” 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 23"
----
 
 No updates
 

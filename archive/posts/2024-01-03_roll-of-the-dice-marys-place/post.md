@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At the heart of The Rising lies a song about the power of community and faith to help us carry on in the face of loss.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Mary’s Place"
----
 
 There’s a party in the middle of .
 

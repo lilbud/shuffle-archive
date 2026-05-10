@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Long Walk Home” lost its way in the studio, but in its original and acoustic arrangements, it’s one of Bruce’s finest and most relevant 21st century songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Long Walk Home"
----
 
 Because I write this blog on a long lead, this entry was written before the global COVID-19 pandemic of 2020. As I prep it for publication now, it’s impossible for me to listen to “Long Walk Home” and not hear it in a completely different context than Bruce could ever have imagined.
 

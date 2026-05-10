@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: They may be new, but they’re great. New York-based Racketeers nails Bruce’s “Atlantic City” in a beautiful homage to the original album arrangement.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Racketeers: Atlantic City"
----
 
 I don’t know much about this New York City-based Irish band than what I’ve already typed, but I hope we hear more from them in the future.
 

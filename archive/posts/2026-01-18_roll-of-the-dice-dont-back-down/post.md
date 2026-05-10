@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce worked on two different songs by the same name during the Born in the U.S.A. sessions–and this is the lesser known of the two.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Don’t Back Down
----
 
 For every song that made it onto Bruce wrote five more that didn’t. We’ve listened to many of them on this blog over the past four years, and we’ll listen to more before we bring this journey to a close.
 

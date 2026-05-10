@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Why does Bruce have so much trouble getting through “Oh, Pretty Woman?” Who knows, but it’s fun to watch him try. Check out a bevy of great performances with Roy Orbison, Elvis Costello, and John Fogerty.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Roy Orbison and Bruce Springsteen, Oh, Pretty Woman"
----
 
 Bruce Springsteen has covered hundreds–many hundreds–of songs in concert, so we count ourselves fortunate if even a single performance of a song was captured on tape or video.
 

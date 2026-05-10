@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Two abandoned, noir-ish Nebraska-era demos converge more than a decade later in an officially released gem. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Straight Time"
----
 
 “This is a song about a fellow who gets out of prison and is working hard to sort of integrate himself back into his family and into the world at large. But a change like that is a hard thing to do, because all your old habits end up feeling like your friends. Sometimes those very old habits, it’s how we define ourselves, how we feel like we know who we are. Whether it’s true or not, whether they kill us or not.” *–Bruce Springsteen, December 3, 1995*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Long before “The Ghost of Tom Joad,” Bruce recorded another song influenced by Steinbeck’s novel: an E Street Band cover of Woody Guthrie’s “Vigilante Man.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Vigilante Man"
----
+
 
 In late 1987, Bruce signed on to a Woody Guthrie tribute project called , produced by the late Harold Leventhal, who managed Guthrie along with Pete Seeger, Joan Baez, Judy Collins, and many other great folk artists.
 

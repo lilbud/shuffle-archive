@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Dr. Zoom and the Sonic Boom play their final gig, Bruce takes over a dancing school ball in Germany (really), and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 15
----
+
 
 Dr. Zoom and the Sonic Boom make their second and final appearance under that moniker, at Newark State College’s Ernie the Chicken Festival. Miraculously, the show is recorded in very good quality–take a listen below for great covers like “Will You Love Me Tomorrow” and “It Takes a Lot to Laugh, It Takes a Train to Cry” and great Springsteen originals like “Look Towards the Land” and “Goin’ Back to Georgia.” Later that same evening, Bruce makes his debut as a member of The Sundance Blues Band at The Student Prince.
 

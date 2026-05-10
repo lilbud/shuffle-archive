@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce debuts “Long Time Comin'” nine years before its album release, a star-studded show at the Roxy, Bruce and Billy Joel perform for Barack Obama, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 16"
----
+
 
 *New entry for 1974; audio for 2008***New for 2025:**
 

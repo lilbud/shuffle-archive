@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Watch Bruce’s surprise appearance at a 2008 holiday show. Plus: Bruce heads west and gets his California driver’s license. These and more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 22"
----
+
 
 *No updates***New for 2024:**
 

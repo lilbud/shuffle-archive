@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Abandoned almost as soon as Bruce began it, “In Kansas” provides a glimpse of what might have developed into an early epic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: In Kansas"
----
 
 This one’s for the completists (like me).
 

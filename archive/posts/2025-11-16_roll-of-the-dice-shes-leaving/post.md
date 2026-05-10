@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “She’s Leaving” is a lovely outcast from Bruce’s pre-Greetings recording sessions, a rare survivor from the Bruce Springsteen Band era for which we have both a studio recording and a live performance.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: She’s Leaving
----
 
 If Bruce’s catalog of officially released material was a mountain, it would be surrounded by a vast range of foothills of discarded songs. Some, undoubtedly, were wise castoffs; others were true gems, both polished and unrefined.
 

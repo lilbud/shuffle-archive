@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Boasting a hypnotic backing track and skillful editing, “City of Night” closes out The Promise with a lost gem.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: City of Night"
----
 
 I can’t fault Bruce for leaving “City of Night” off of .
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce duets with John Legend, the legendary Hammersmith Odeon ’75 show, the release of Live in Barcelona, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 18"
----
+
 
 *No updates***New for 2025:**
 

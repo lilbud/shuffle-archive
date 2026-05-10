@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Finally: a rock arrangement of “Nebraska,” courtesy of Italian rockers Diego Mercuri and the Wrecking Band. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Diego Mercuri &amp; The Wrecking Band: Nebraska"
----
+
 
 Rumors of an electric album have circulated among Springsteen fans for decades, but proof of its existence (let alone an official release) continues to elude us.
 

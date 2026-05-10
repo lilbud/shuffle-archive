@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In which Bruce wears his influence so much on his sleeve that it’s practically a “Peggy Sue” tattoo.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Outside Looking In"
----
 
 “I didn’t want to be pegged as a revivalist, so I was hesitant to wear my influences too clearly on my sleeve at the moment.” — Bruce Springsteen to Brian Hiatt, , November 25, 2010*Rolling Stone*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Highlights today include a Steel Mill recording from 1970, a radio broadcast from 1973, the one-and-only performance of “Dollhouse,” and much more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 24"
----
 
 *New entry for 1980 and 2024; audio for 1999***New for 2025:**
 

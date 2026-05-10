@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 1985, Bruce picked up a book on the new American underclass. When he finally opened and read it a decade later, it inspired one of the strongest songs on his next album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Youngstown"
----
 
 “I remember thinkin’, well I’m a guy. I know how to do one thing. What would happen if you’ve done something for thirty years… What would I say to my kids if I came home at night and I couldn’t feed them, or if they were hurting? I couldn’t help them. I couldn’t make them safe or ensure their health… It strikes to such a central part of who you are.” *–Bruce Springsteen, 1995*
 

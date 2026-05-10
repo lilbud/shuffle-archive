@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “The Big Payback” is a Nebraska-era B-side obscurity, as tight, taut, and sinister as anything on the album it didn’t make but a whole lot more fun to sing.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Big Payback"
----
 
 Talk about an obscurity: “The Big Payback” is one of the least-known officially released Springsteen songs.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "More urgent and more relevant with each passing year, “We Take Care of Our Own” is Bruce’s reminder to his countrymen: We are better than this.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: We Take Care of Our Own"
----
+
 
 With his new single, “We Take Care of Our Own,” Springsteen seems to be throwing up a gauntlet: Misunderstand me. Go on, I dare you.” *— Chris Willman, Reuters, January 19, 2012*
 

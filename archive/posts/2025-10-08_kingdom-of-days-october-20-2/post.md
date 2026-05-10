@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s final show at the Spectrum, a guest appearance with Neil Young and Bob Dylan, a hometown Houserockers show, those famous Time and Newsweek covers, and more–all from this date.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 20"
----
 
 *Audio for 1995 and 2002***New for 2025:**
 

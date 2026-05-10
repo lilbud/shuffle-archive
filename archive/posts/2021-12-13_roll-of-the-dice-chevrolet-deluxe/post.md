@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce seems to have spent a lot of time working on “Chevrolet Deluxe,” but in the end, he sold it for parts.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Chevrolet Deluxe"
----
 
 For a song that never made it out of the incubator, we certainly have a lot of insight into the development of “Chevrolet Deluxe.”
 

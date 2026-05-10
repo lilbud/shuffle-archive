@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce opens his winery show with an oenological classic of ithyphallic origin.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Drinkin’ Wine, Spo-Dee-O-Dee"
----
+
 
 This is gonna be a long walk, and it goes through a red light district, but trust me: the destination is worth it.
 

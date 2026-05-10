@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in history: Bruce releases his American Beauty EP. Plus: the live debut of “Follow That Dream” and “Where the Bands Are” and much more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 19"
----
+
 
 *New entry for 1975 and 1980; video for 2014***New for 2025:**
 

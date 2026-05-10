@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the strange circumstances behind the first ever performance of “Dancing in the Dark,” the wrap-up of the Ghost of Tom Joad Tour, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 26
----
+
 
 Seven-year-old Bruce Springsteen receives his first Communion at St. Rose of Lima Church.
 

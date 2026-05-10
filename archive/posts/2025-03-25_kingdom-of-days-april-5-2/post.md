@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: the live debuts of “Secret Garden,” “I’m Turning into Elvis,” and “Blood Brothers,” a David Letterman appearance, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 5"
----
+
 
 *New entry for 1969 and 1978; video for 2023***New for 2025:**
 

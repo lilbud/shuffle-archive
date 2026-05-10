@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Missing in action: this early lyrical forerunner to “Tougher Than the Rest” made it all the way to an E Street Band rehearsal but never to the studio.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Find It Where You Can"
----
+
 
 In late 2015, Bruce released an anniversary box set for called . Included in the set was a disc of outtakes that had never before seen an official release. While there are some genuine gems among those unreleased outtakes, there are also some headscratchers. (“,” I’m looking at you.)
 

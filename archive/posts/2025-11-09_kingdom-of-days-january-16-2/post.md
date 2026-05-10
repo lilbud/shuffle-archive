@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the E Street Band plays to one of their smallest audiences ever, the revived River tour kicks off, plus news footage from ’96. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 16
----
+
 
 Bruce and the not-yet-named E Street Band play Villanova University in a 150-seat auditorium more than two-thirds unfilled. (The school newspaper is on strike, so the concert goes unadvertised.) Imagine an E Street Band concert in front of no more than fifty people!
 

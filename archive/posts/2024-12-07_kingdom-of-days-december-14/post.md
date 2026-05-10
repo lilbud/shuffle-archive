@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: not one but two TV appearances–one in New York and one in Spain. Plus: Bruce joins Billy Joel on stage for the fist time, the soundtrack release of Springsteen on Broadway, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 14"
----
+
 
 *Video for 1995***New for 2024:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this busy date: the release of Human Touch and Lucky Town, the start of World Tour 1993, and the finale of the 2013 Australian Tour. More highlights and video inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 31
----
+
 
 Bruce receives his bear merit badge at the monthly meeting for Cub Scout Pack 18 at St. Rose of Lima in Freehold.
 

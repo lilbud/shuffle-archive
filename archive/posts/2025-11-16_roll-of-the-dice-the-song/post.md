@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Known by a few names, “The Song” is an unreleased, unperformed but completely realized early songwriting exercise by Bruce.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: The Song
----
 
 There’s some debate as to the actual name of this unreleased, never-performed Springsteen original composition.
 

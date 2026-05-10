@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce makes a guest appearance with Brian Wilson, the BBC premieres a Bruce documentary (watch it inside!), Steve Van Zandt saves the day when Southside Johnny gets sick, and more–lots of great video and audio today!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 12
----
 
 Bruce and the E Street Band perform a free concert at Niagara University in Lewiston, New York.
 

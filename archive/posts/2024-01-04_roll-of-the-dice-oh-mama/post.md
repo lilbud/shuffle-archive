@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s a bit of a mess on its own merits, but this early Steel Mill song paved the way for a Born to Run classic years later.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Oh Mama"
----
 
 Even Bruce Springsteen doesn’t always get it right on the first try.
 

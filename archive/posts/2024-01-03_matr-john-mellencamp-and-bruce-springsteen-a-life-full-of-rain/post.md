@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce contributed an emotive guitar solo to the closing track of John Mellencamp’s recent album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: John Mellencamp and Bruce Springsteen: A Life Full of Rain"
----
 
 “Bruce has a wonderful way of having humility and tenacity, all at the same time. He can get his ideas across with humility and an ability to do what he wants to do. He’s run his own band longer than I have, so I don’t have to say, ‘Hey Bruce, how about…?’ He says, ‘How about if I try this?’ and ‘How about if I try that?’ and, he’s Bruce Springsteen — sure, try it.”
 

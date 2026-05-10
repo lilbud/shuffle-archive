@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: By remarkable circumstance, Bruce covered “Goodnight, Irene” in concert twice, but almost no one in the venue heard him! You can, though–watch the great video inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Pete Seeger and Bruce Springsteen – Goodnight, Irene"
----
 
 No one knows for sure quite when or where it started, but we know that Lead Belly was the first to record it: In 1933, he released the first recorded version of “Goodnight, Irene,” and it went on to become not just one of Lead Belly’s most popular songs but a bonafide American folk standard.
 

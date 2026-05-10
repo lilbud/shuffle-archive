@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In which I discover the secret to getting in the building for sound check.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Los Angeles, April 26, 2012"
----
 
 Some of Bruce’s rarest performances are the ones most people never get to hear–Bruce is known for working out new songs or whipping out a never-played-publicly cover during his famously long and meticulous sound checks.
 

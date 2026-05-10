@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce performs “The Angel” for the first time and soundchecks a new song, “American Skin (41 Shots).” Plus: Bruce is honored on Ellis Island, and the E Street Band returns to the stage after the passing of Danny Federici. Many more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 22
----
+
 
 The Castiles perform and compete at a Battle of the Bands at the Matawan-Keyport Roller Drome in Matawan, New Jersey. The Castiles do not win (or even place in the top five), but Bruce meets the drummer of the second place band, Vini Lopez, and one of the judges, Vinnie Roslin, for the first time. Vini, Vinnie and Bruce (along with Danny Federici) will go on to form Steel Mill.
 

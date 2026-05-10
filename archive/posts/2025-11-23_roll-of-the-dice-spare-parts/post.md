@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The rocking arrangement and blunt language of “Spare Parts” overwhelms the dilemma at its center its moral of redemptive self-empowerment. Like “Born in the U.S.A.,” its true power emerges when it’s performed quietly.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Spare Parts
----
 
 Bruce captured “Spare Parts” on the second take of the very first day of recording for the album that would become . Wham, bam, thank you, ma’am.
 

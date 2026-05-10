@@ -1,45 +1,49 @@
-import datetime
+import glob
 import json
+import re
 from pathlib import Path
 
-import html_to_markdown
+import pandas as pd
+from bs4 import BeautifulSoup as bs4
 
-from cleanup import initial_cleanup
+# uncategorized
+# kingdom-of-days
+# roll-of-the-dice
+# cover-me
+# meeting-across-the-river
+# where-the-band-was
+# hearts-of-stone
+# spare-parts
 
-posts = Path(r".\archive\posts")
-json_posts = Path(r".\posts_json")
+category = "spare-parts"
 
-tags = []
+cmpath = Path(
+    rf"C:\Users\bvw20\Documents\Personal\Projects\Bruce Stuff\Websites\e-street-shuffle\2025-11-30 - httrack\estreetshuffle\estreetshuffle.com\index.php\category\{category}",
+)
 
+titles = []
 
-if __name__ == "__main__":
-    for file in json_posts.iterdir():
-        post = json.loads(file.read_text(encoding="utf-8"))
+for file in cmpath.glob("**/*.html"):
+    print(file.parent.name)
 
-        post_id = post["id"]
+    if file.parent.name == "feed":
+        continue
 
-        date = datetime.datetime.strptime(
-            post["modified_gmt"],
-            "%Y-%m-%dT%H:%M:%S",
-        )
+    with file.open("r", encoding="utf-8") as f:
+        soup = bs4(f.read(), "html.parser")
 
-        save_path = Path(f"./archive/posts/{date.date()}_{post['slug']}")
+        for item in soup.find_all("h1", {"class": "entry-title"}):
+            title = item.text
 
-        print(save_path)
-        save_path.mkdir(exist_ok=True)
+            url = re.search(
+                r"(/\d+/\d+/\d+/.*/)index.html",
+                item.find_next("a")["href"],
+            ).group(1)
 
-        content = initial_cleanup(post["content"]["rendered"])
-        content = html_to_markdown.convert(content)
+            published = item.find_next("time", {"class": "published"})["datetime"]
+            updated = item.find_next("time", {"class": "updated"})["datetime"]
 
-        if not Path(save_path, "meta.json").exists():
-            with Path(save_path, "meta.json").open("w", encoding="utf-8") as f:
-                json.dump(post, f)
+            titles.append([title, url, published, updated])
 
-            print("created json")
-
-        # convert post to markdown and save
-        if not Path(save_path, "post.md").exists():
-            with Path(save_path, "post.md").open("w", encoding="utf-8") as f:
-                f.write(content)
-
-            print("created md")
+df = pd.DataFrame(titles, columns=["title", "url", "published", "updated"])
+df.to_csv(f"master_lists/{category}-titles.csv", index=False)

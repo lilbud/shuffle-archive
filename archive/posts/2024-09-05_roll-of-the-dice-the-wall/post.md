@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: How an old newspaper article and unsettling dinner company inspired one of Bruce Springsteen’s most hauntingly moving songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: The Wall"
----
 
 Those who work there call it “The Floor.”
 

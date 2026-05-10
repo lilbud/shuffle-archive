@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Talk about an obscure cover–“Unsatisfied Heart” has never been released or performed, but The War on Drugs nailed it last month in San Diego.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "The War on Drugs: Unsatisfied Heart"
----
 
 I’m a sucker for a good cover of an obscure Bruce song, and this one is as obscure as it gets.
 

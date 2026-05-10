@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Ferocious in concert, limp on vinyl, “Lost in the Flood” is nevertheless a lyrically brilliant piece of work.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Lost in the Flood
----
 
 Putting the dice aside for the day to fill a request: E Street Shuffle reader David asked for my take on “Lost in the Flood.” It was a surprisingly tough assignment, because my feelings about the song are conflicted, depending on which version we’re discussing.
 

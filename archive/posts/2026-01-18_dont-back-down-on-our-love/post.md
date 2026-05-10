@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Despite my best efforts, this book is going to be confusing at times, and that confusion starts here. Many of the eighteen tracks on L.A. Garage…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Don’t Back Down on Our Love
----
 
 Despite my best efforts, this book is going to be confusing at times, and that confusion starts here.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Jesse Malin’s debut performance with Bruce turned a legion of Springsteen fans into Malin fans, and “Wendy” was the song that did it. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Wendy
----
 
 What is it about Wendy?
 

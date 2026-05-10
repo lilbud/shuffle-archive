@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Here’s one for all you retro-gaming Springsteen fans out there: an 8-bit cover of “Western Stars” that’s way more impressive than you’d ever imagine. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, 8-Bit Arcade: Western Stars"
----
+
 
 Because of course you’ve always wondered what a chiptuned Bruce Springsteen song sounds like. Right?
 

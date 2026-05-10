@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Kurt Vile and the Violators nailed Bruce’s “Downbound Train” in concert, capturing and heightening the song’s underlying menacing obsession.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Kurt Vile: Downbound Train"
----
 
 Kurt Vile’s cover of “” with The Violators is fantastic.
 

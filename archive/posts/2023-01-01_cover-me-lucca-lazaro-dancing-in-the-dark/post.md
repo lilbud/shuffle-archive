@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Staying at home? Sheltering in place? Here’s just the thing to lift your spirits: Turn up the volume and get ready to dance to Lucca Lazaro’s infectious cover of Bruce Springsteen’s greatest hit.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, John Legend: Dancing in the Dark (remix)"
----
+
 
 Sometimes, we just need to dance, even if we’re stuck at home and alone.
 

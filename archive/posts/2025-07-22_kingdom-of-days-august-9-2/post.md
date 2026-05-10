@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce stuns locals in Montana when he jams with a restaurant house band, and shocks fans worldwide when Springsteen on Broadway is officially confirmed. Plus: Joe Grushecky catches his first Bruce concert, the Springsteen/Appel lawsuit gets underway, and Bruce plays his legendary Darkness Show at The Agora.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 9"
----
+
 
 *New entry for 1973 and 1977; audio for 1978; video for 1985***New for 2025:**
 

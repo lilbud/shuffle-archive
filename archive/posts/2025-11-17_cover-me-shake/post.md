@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Frequently part of encore medleys, Sam Cooke’s “Shake” has only been covered once in its entirety by the E Street Band, at Kilkenny in 2013.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Shake
----
 
 Sam Cooke’s 1964 classic “Shake” has made many appearances in Bruce’s concerts over the years, but almost always as part of a medley. Other than a couple of bar performances, the only time he’s performed the entire song live in concert was at the tail end of the Wrecking Ball Tour in Kilkenny.
 

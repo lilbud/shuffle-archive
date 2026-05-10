@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “I Need You” and “Ruled by the Gun” — two unreleased works-in-progress with a common melody but very different lyrics. The former is an anti-romantic ballad that never quite gelled.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I Need You"
----
 
 In early 1982, Bruce recorded a series of demos in his home studios. Some were released essentially as recorded on others were electrified for , or other collections. And some never saw light of day at all.
 

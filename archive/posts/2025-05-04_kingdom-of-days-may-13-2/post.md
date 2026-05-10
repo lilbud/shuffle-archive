@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce gets married for the first time, plays “Johnny Bye-Bye” for the first time, and joins an 80s nostaglia night with Sting, Lady Gaga, Elton John, and more. Great video inside!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 13"
----
+
 
 *New entry for 1982***New for 2025:**
 

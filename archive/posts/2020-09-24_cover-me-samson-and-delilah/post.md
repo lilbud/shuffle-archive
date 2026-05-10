@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen and the Sessions Band cover a hidden protest song in Verona.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Samson and Delilah"
----
+
 
 “Samson and Delilah” dates back to recordings in the 1920s, and probably a whole lot farther.
 

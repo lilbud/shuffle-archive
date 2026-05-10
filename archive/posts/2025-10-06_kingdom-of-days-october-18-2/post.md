@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce broke up the band on this date in 1989, but there are plenty of happy highlights too: the first-ever performances of “Drive All Night” and “Hungry Heart,” an adorable tape-recorded message to local schoolchildren, the premiere of Legends of Springsteen, Charlie’s first E Street appearance, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 18"
----
+
 
 *New entry for 2024***New for 2025:**
 

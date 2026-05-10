@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A rough opening spurs Bruce on to an unpredictable middle show of the Magic Tour’s Pacific NW swing.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Seattle, March 29, 2008"
----
 
 The train almost wrecked before it left the station.
 

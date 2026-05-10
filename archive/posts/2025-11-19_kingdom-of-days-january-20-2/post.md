@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Classic all-star Hall of Fame team-ups lead the highlights from this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 20
----
 
 Bruce plays the third of four nights at My Father’s Place on Long Island.
 

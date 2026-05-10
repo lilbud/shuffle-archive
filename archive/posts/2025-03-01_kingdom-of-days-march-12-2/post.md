@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A quiet date in Springsteen history, with only club dates and rehearsals.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 12"
----
 
 *No updates***New for 2025:**
 

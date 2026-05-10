@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce wins the Best Original Song Academy Award for “Streets of Philadelphia,” plays his first-ever show in Australia, releases the single for “Better Days” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 21
----
+
 
 Bruce and his still unnamed band play their final of four nights at Gertie’s in Dallas.
 

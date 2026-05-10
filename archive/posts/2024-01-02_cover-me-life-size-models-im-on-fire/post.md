@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Life Size Models rises above a sea of “I’m on Fire” covers with their daring, rocking arrangement of Bruce’s 1984 classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Life Size Models: I’m on Fire"
----
 
 Meet Life Size Models.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Out of work during the pandemic, Bruce takes a side gig as a radio DJ. Plus: controversy ensues when Bruce cancels a Greensboro show in protest over discrimination in North Carolina,
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 8
----
+
 
 The second of two nights in Cleveland on the Chicken Scratch Tour features the last “When You Walk in the Room” for 33 years.
 

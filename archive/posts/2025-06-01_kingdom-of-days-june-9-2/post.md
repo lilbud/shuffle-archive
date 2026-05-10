@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce Springsteen signs his first contract with Columbia Records and begins assembling the E Street Band! More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 9"
----
+
 
  *New entry for 1977***New for 2025:**
 

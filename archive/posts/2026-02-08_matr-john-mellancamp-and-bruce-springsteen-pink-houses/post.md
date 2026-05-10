@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen and John Mellencamp team up on John’s famously misinterpreted 1983 single.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Pink Houses
----
+
 
 I reckon every songwriter has a list of songs they wish they’d written, and I have to imagine that “Pink Houses” is on Bruce’s.
 

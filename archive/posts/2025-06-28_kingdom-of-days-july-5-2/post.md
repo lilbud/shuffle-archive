@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce makes his first television appearance, makes his first political endorsement (earlier than you might think), and plays “Drive All Night” for the first time in 27 years–all on this date in history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 5"
----
 
 *Audio for 2008; video for 2012; new entry for 2024***New for 2025:**
 

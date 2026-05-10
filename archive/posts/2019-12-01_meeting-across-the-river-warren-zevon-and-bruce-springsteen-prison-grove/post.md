@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce contributed his backing vocals to help Warren Zevon complete one last album shortly before his friend’s death.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Warren Zevon and Bruce Springsteen, Prison Grove"
----
 
 When Warren Zevon was diagnosed with terminal lung cancer, he wrote and recorded a final album, replete with themes of finality and metaphors of mortality. The album was released just two weeks before Zevon’s death.
 

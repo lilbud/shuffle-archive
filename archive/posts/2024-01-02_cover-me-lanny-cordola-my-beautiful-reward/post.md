@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Lanny Cordola delivers a beautiful, atmospheric studio recording of “My Beautiful Reward.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Lanny Cordola: My Beautiful Reward"
----
 
 Sometimes a wonderful cover can fly completely under the radar.
 

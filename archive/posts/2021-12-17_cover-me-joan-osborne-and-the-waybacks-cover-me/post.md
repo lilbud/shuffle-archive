@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Let’s take another visit to MerleFest 2015 and the absolutely brilliant tribute performance by Joan Osborne and The Waybacks. Check out their mashup of “Cover Me” with Edwin Starr’s “War.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Joan Osborne and The Waybacks: Cover Me"
----
 
 At least once a year, I have to spotlight this absolutely fantastic live cover album–Joan Osborne and The Waybacks just absolutely knock every single track out of the park. Some are , some are , some are clever mash-ups, but all of them are great, and this is an album very much worth having.
 

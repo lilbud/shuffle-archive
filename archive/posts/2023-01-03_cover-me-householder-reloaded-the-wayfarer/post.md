@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Our final Cover Me entry before our month-long hiatus is Boss-approved! Check out this lovely arrangement of a Western Stars deep cut.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, HouseHolder Reloaded: The Wayfarer"
----
 
 I know, I know.
 

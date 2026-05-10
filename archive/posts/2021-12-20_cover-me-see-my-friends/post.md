@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: a very young Bruce Springsteen and his high school band The Castiles tackle one of the earliest songs to introduce the Indian raga sound to western rock music.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: See My Friends"
----
+
 
 They may have been a high school band, but we have to give The Castiles some extra credit, because they certainly did not shy away from challenging material.
 

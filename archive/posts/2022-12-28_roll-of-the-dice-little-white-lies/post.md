@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Little White Lies” is a thematic analogue to “Stolen Car” and forerunner to “Brilliant Disguise” — a fascinating outtake from The River sessions.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Little White Lies"
----
 
 Every once in a while, Bruce throws a curve ball.
 

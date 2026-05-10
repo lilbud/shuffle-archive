@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Preacher’s Daughter” is one Bruce’s greatest unreleased outtakes–a Darkness cast-off with Born to Run sweep and cinematic power.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Preacher’s Daughter"
----
 
 When I sit down to compose these essays, I always listen to the song a few times before I start to write: to refresh my memory, to remind myself of what I love or find curious, and to experience it with as close to fresh ears as I can manage.
 

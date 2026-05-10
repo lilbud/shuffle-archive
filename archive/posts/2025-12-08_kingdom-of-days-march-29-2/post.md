@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Seattle and Philadelphia get set list rarities, and Bruce opens for Steve Wonder. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 29
----
+
 
 Bruce and his band open for Stevie Wonder at Kutztown State College.
 

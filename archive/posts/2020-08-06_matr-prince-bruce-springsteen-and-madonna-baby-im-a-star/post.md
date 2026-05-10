@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Pop’s triumvirate unites on stage for the first and only time when the Purple Rain Tour stops in L.A.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Prince, Bruce Springsteen, and Madonna: Baby I’m a Star"
----
+
 
 In the golden age of pop music that was the 1980s, a triumvirate of mega-stars reigned over the charts: Bruce Springsteen, Madonna, and Prince.
 

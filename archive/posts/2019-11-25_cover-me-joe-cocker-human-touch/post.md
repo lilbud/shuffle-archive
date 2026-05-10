@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Be prepared to fall for this cool, acoustic take on “Human Touch” by Joe Cocker.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Joe Cocker: Human Touch"
----
 
 I’ve always thought “” cried out for an acoustic arrangement, but surprisingly, Bruce has never tried it (in public, at least).
 

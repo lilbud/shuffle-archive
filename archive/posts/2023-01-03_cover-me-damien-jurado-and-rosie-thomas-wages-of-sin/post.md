@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Damien Jurado and Rosie Thomas turn Bruce’s haunting outtake into the dance of distrust it was always meant to be.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Damien Jurado and Rosie Thomas: Wages of Sin"
----
 
 Okay, I think we’ve given enough spotlight to Bruce’s pop hits of late, so let’s give “” and “” a rest and listen to some great deep cut covers for a bit.
 

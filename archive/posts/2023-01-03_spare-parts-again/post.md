@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: I know, I know–another vacation. But this one’s short, and I brought you back something!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Spare Parts: Blogger About Town"
----
 
 I know, I know.
 

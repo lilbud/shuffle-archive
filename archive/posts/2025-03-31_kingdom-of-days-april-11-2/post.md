@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the E Street Band premiere of “Brothers Under the Bridge,” an early version of “Devils &amp; Dust,” and pro-shot Verona footage from 1993.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 11"
----
+
 
 *New entry for 1978, 1979, and 1980; video for 2023***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Back in 2009, Vatican Cellars gave us a cover of “Darkness on the Edge of Town” both daring and beautiful–check out their cello-led arrangement inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Vatican Cellars: Darkness on the Edge of Town"
----
 
 If I had less restraint, I’d probably feature a cover from the outstanding compilation (released back in 2009) at least once a week. There are so many great tracks on that album–I really can’t recommend it enough.
 

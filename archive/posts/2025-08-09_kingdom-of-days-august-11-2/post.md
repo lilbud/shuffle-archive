@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "It’s a day of long-awaited returns, as Bruce brings back “Pretty Flamingo,” “New York City Serenade” and “Night” after many years of absence. Plus: The Rising hits the top of the album chart, Bruce makes a guest appearance with Ringo Starr and His All Starr Band, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 11"
----
+
 
 *New entry for 1977; audio for 2003***New for 2025:**
 

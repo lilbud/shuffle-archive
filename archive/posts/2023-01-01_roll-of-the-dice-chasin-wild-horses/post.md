@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Poignant, elegiac, and ironic, “Chasin’ Wild Horses” is the perfect centerpiece for Bruce’s finest album. It demands and rewards careful listening and inspection. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Chasin’ Wild Horses"
----
 
 At last: the dice lead us to Bruce Springsteen’s latest and finest album, .
 

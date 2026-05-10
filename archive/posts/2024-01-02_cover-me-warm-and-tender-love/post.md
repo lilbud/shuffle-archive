@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: watch Bruce perform a re-written cover of a classic Percy Sledge hit.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Warm and Tender Love"
----
+
 
 “Warm and Tender Love” should have made Joe Haywood’s career when he released it in 1964. His original version is one of the most beautiful soul ballads of the early sixties.
 

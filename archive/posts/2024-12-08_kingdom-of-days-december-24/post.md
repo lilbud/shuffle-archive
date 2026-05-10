@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: All is quiet on E Street, but the Springsteen household gets a visit from local carolers. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 24"
----
 
 No updates
 

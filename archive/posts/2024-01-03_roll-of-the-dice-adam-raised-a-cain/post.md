@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s first officially released father/song features the singer and the band at peak fury and ferocity.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Adam Raised a Cain"
----
 
 “I guess there’s just a certain amount of good and bad you get from your parents, and I just got the bad.”
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The brightest song on Tunnel of Love is a hat tip to a classic 1955 romance film.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: All That Heaven Will Allow
----
 
 It was a tale of… well, if not forbidden then at least frowned-upon love.
 

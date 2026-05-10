@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: If you’ve ever wondered what it would sound like of Bruce crammed all of his Darkness themes into one unreleased outtake, this song is for you.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Break Out"
----
 
 If you ever wondered what it sound like if Bruce crammed all of his lyrical themes from into a single unreleased outtake, you’ve come to the right place.
 

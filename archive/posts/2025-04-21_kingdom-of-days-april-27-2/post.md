@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this busy date: Bruce plays three shows in three cities (and two states) in one day, records live tracks for the Chimes of Freedom EP, and opens a show with… Pony Boy?
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 27"
----
+
 
 *New entry for 1982***New for 2025:**
 

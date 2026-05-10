@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A solid setlist, a loose performance, and some surprising placements made for a great night in Vancouver on the Wrecking Ball Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Vancouver, November 26, 2012"
----
 
 If you go see Bruce Springsteen after Thanksgiving, you better watch out, and you better not cry. And you better bring your Santy Claus hats, because odds are you’re gonna need them.
 

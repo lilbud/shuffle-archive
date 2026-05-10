@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: As on-this-date highlights go, it’s hard to top Bruce’s first meeting with John Hammond. But there’s much more, including Bruce’s first guest turn with Cats on a Smooth Surface and some truly epic shows. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 2"
----
 
 *New entry for 1980 and 2002; review for 2009***New for 2025:**
 

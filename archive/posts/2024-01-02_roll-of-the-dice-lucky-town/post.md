@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Lucky Town” is an intimate song of personal affirmation and professional re-dedication, one of the strongest tracks on a strong but under-rated album. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Lucky Town"
----
 
 On first listen, “Lucky Town” sounds like a latter-day retelling of “.” Our narrator feels the need to escape the confines of his home and his life, so he starts walking.
 

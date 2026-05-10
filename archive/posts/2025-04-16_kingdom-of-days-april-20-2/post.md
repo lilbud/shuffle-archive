@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The live debut of “I Wanna Be With You” and the first public Seeger Sessions warm-up show lead the highlights from this date in Bruce history. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 20"
----
 
 *New entry for 1969, 1980, and 1983; video for 1999***New for 2025:**
 

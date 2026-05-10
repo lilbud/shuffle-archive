@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The River (2016) Tour hits its inflection point with a long, spontaneous B-set.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Seattle, March 24, 2016"
----
 
 There’s a point in every tour where Bruce loosens up, throws the setlist out the window, and transforms the entire concert into a non-stop, unpredictable jet engine of a show.
 

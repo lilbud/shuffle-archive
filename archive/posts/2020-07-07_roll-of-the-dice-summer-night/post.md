@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Summer Night” is one for the completists–a Nebraska-era home demo with a lovely melody but mostly bluffed lyrics. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Summer Night"
----
 
 Here’s another one for the completists, because good luck trying to make out most of what Bruce is singing in this Nebraska-era home demo.
 

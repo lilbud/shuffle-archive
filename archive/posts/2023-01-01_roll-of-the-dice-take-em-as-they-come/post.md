@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A classic Springsteen formula–dark lyrics paired with a power pop melody–results in a shoulda-been new wave classic. Insights and great performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Take ‘Em as They Come"
----
 
 Sometimes you start with a title, and it leads you to a shoulda-been new wave classic.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Lyrically lazy and musically plodding, “Cover Me” is a candidate for Bruce’s weakest song ever. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Cover Me"
----
 
 I always knew this day would come.
 

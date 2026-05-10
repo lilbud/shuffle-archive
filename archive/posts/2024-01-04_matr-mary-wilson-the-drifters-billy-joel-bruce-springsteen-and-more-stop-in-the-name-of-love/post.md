@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins a truly all-star assembly an early Rock Hall induction to perform one of the greatest girl group songs of all time.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Mary Wilson, The Drifters, Billy Joel, Bruce Springsteen and more: Stop! In the Name of Love"
----
+
 
 We’re still a week away from hearing Bruce Springsteen’s new album of R&B covers, and only a couple of days out from the induction of this year’s Rock and Roll Hall of Fame class.
 

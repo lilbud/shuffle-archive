@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this day in history: Bruce reassembles the E Street Band for the first time in over five years. See their rehearsal and performance footage here.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 21
----
+
 
 Bruce cancels a show at Moravian College to make room for recording sessions.
 

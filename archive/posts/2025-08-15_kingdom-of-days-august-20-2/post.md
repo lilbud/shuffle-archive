@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Two legendary shows happened on this date: the 1981 Vietnam Veterans benefit and the closing show of the 1984 ten-night Meadowlands stand. Highlights from these and other great shows inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 20"
----
+
 
 *New entry for 1979; audio for 1984***New for 2025:**
 

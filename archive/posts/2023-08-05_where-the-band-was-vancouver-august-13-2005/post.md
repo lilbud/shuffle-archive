@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce wraps up the summer leg of his solo acoustic tour in the Pacific Northwest and gives one of his best performances of the tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Vancouver, August 13, 2005"
----
 
 Ah, Vancouver… I love that city.
 

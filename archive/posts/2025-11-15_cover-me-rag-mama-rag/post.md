@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Band’s loose, rollicking “Rag Mama Rag” was a perfect candidate for the Sessions Band treatment, and it became an encore favorite during that tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Rag Mama Rag
----
 
 In retrospect, we probably should have expected it.
 

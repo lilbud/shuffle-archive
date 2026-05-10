@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Waitin’ on a Sunny Day” is one of Bruce’s most misunderstood songs, but understanding it isn’t really the point. Let’s take a close listen to one of Bruce’s most divisive songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Waitin’ on a Sunny Day"
----
 
 “Pure pop songwriting is a lot of fun. It’s fun to play with the words in a simple fashion…. There’s not much else to say about those, they speak for themselves.” *–Bruce Springsteen, April 4, 2005*
 

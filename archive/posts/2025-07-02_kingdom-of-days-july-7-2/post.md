@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Born in the U.S.A. hits #1, Bruce wraps up the European leg of the BITUSA Tour, and at the Roxy in 1978, Bruce delivers one of his greatest performances of all time.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 7"
----
+
 
 *New entry for 1977***New for 2025:**
 

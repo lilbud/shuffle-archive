@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Black Mountain Ballad” improves on “Don’t Back Down on Our Love” in almost every way. As we noted in the early pages of this book,…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Black Mountain Ballad
----
 
 “Black Mountain Ballad” improves on “Don’t Back Down on Our Love” in almost every way.
 

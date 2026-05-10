@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Nils Lofgren turns in a beautiful cover of “Wreck on the Highway”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Nils Lofgren: Wreck on the Highway"
----
 
 Today’s Bruce cover is close to home: From the tail end of the E Street Diaspora comes this gorgeous Nils Lofgren cover of “.”
 

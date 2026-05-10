@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Coming Home” is a rare studio recording from the Bruce Springsteen Band era and an early precursor to one of Bruce’s greatest hits. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Coming Home"
----
 
 Steel Mill played its last gig in the early weeks of 1971.
 

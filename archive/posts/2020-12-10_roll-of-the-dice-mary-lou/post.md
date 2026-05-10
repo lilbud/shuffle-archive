@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Meet “Mary Lou,” big sister to “Be True.” They share the same lyrics, yet they’re completely different songs. Let’s trace their origins together and hear how Bruce constructs a song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Mary Lou"
----
 
 How good is Bruce Springsteen?
 

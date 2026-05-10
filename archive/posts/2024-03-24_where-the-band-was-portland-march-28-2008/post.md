@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A short, taut opener for the Magic Tour’s swing through the Pacific Northwest.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Portland, March 28, 2008"
----
 
 Bruce doesn’t make it up to the Pacific Northwest that often, so when he does, I try to catch the entire Portland-Seattle-Vancouver swing (almost always in that order).
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One leap year ago tonight: Bruce Springsteen and the E Street play only their third-ever Leap Day show. It may have been a standard set, but it was a terrific crowd and performance. Highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: St. Paul, February 29, 2016"
----
+
 
 Happy Leap Day!
 

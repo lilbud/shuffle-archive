@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At home on a break during the River Tour, Bruce wrote and recorded a charming pop trifle that never saw the light of day–but you can listen to it inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: My Heart is an Open Book"
----
 
 Even living legends at the peak of their powers need a break from time to time.
 

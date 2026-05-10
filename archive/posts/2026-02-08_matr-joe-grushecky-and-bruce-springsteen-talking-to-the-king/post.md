@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Talking to the King” is a sweet, count-your-blessings rocker and a ton of fun in concert. No wonder Joe and Bruce have played it together 28 times. Check out some of the best inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Talking to the King
----
 
 38 years, 53 shows.
 

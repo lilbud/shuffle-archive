@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce breaks the longest-American-show-ever record for the fourth time in two weeks while delivering a dream setlist in Philadelphia.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Philadelphia, September 7, 2016"
----
 
 My, they don’t make longest-show-ever records like they used to. By the time the 2016 River Tour reached its last month, Bruce was continually raising the bar, breaking and setting new records for longest American show (his 2012 record-length show in Helsinki is still unmatched) with regularity.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only, in the studio and on stage: Bruce joins Dropkick Murphys on their Celtic punk transformation of the sweet standard “Peg o’ My Heart.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Dropkick Murphys and Bruce Springsteen: Peg o’ My Heart"
----
+
 
 When Alfred Bryan and Fred Fisher first wrote “Peg o’ My Heart” after the 1912 play of the same name, they probably envisioned arrangements like the one Charles Harrison recorded the following year.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Twice only: Bruce and Joe Ely jam to an extended “Fingernails” on stage in Dublin.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Joe Ely and Bruce Springsteen, Fingernails"
----
+
 
 “Fingernails” dates way back to 1978, from Joe Ely’s second album, It’s one of the shortest tracks on the record (a mere 2:13), but it’s a honky-tonk rave-up that grows in length, power, and raucousness in its frequent appearances in Joe’s setlists.
 

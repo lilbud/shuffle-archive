@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The Locarno Film Festival (Locarno, Switzerland) always plays the first week of August. It mixes the passion of the Italians with the organization and graciousness…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Zurich, July 31, 2016 (Barry Rebo’s story)"
----
 
 Editor's Note
 

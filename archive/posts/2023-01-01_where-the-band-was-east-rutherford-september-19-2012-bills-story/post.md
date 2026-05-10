@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Guest blogger Bill Kenney takes us back to The Meadowlands on the Wrecking Ball Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: East Rutherford, September 19, 2012 (Bill’s story)"
----
 
 Editor's Note
 

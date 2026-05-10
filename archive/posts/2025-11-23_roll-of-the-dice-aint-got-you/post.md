@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: With a sly hat tip to a 1955 blues classic, “Ain’t Got You” signaled a turning point in Bruce’s songwriting and love life. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Ain’t Got You
----
 
 Billy Boy Arnold isn’t anywhere near as famous as his friend Elias McDaniel (who received his “Bo Diddley” stage name from Arnold in 1951 while they were busking on the street together), but the elder Chicago blues statesman and harp hero is certainly known to Bruce Springsteen.
 

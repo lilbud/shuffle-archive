@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “No Need” is melodramatic, at times bordering on overwrought, but it offers fascinating insight into a young artist at a pivotal point in his journey.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: No Need
----
 
 In April of 1972, Bruce began recording demos with Jim Cretecos. (Bruce would sign on with Cretecos and Mike Appel in May.)
 

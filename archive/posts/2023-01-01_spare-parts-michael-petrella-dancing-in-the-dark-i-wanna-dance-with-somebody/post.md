@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "An unlikely mash-up that works perfectly: Michael Petrella unites one of Bruce Springsteen’s greatest hits with one of Whitney Houston’s.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Spare Parts: Michael Petrella: Dancing in the Dark/I Wanna Dance With Somebody"
----
+
 
 And now for something completely different:
 

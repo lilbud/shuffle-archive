@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce Springsteen meets Jon Landau and Ennio Morricone, plays his first show in Japan, inducts his band into the Rock and Roll Hall of Fame, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 10"
----
+
 
 *New entry for 1979 and 1980***New for 2025:**
 

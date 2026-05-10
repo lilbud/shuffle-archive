@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Check out this lovely cover of “I’m Goin’ Down” from The Strumbellas’ acoustic sessions.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Strumbellas: I’m Goin’ Down"
----
 
 “When I was a kid, my dad was a lawyer and sometimes when his clients couldn’t pay him, he would accept different trades in return for legal work. One time, my dad made a deal with a client to get a sports car and it was a really big deal. We never thought we’d have a sports car. My dad would drive us in the sports car down old country roads and blast ‘I’m Goin’ Down’ over and over again. So I have really fond memories of the song.” *— Simon Ward, April 12, 2021*
 

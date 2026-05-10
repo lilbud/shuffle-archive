@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It took more than four decades for Bruce to cover “Good Lovin’,” but he made up for it when he did. Great performances inside. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Good Lovin’"
----
 
 “Good Lovin'” has a curious history. Most of us associate it with the group that made it a #1 hit in 1966: The Young Rascals.
 

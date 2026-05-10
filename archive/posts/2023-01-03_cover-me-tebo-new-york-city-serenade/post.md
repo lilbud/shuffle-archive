@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Canadian one-man-band Tebo reimagined “New York City Serenade” as a straight-up rocker, and it’s pretty great.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Tebo: New York City Serenade"
----
 
 One-person band covers are all the rage during quarantine, and this year has brought a flood of “I” and “” covers.
 

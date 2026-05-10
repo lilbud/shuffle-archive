@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: the debut of Bruce’s answering machine message (sort of).
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: January 3"
----
+
 
 **New for 2026:** *No updates*
 

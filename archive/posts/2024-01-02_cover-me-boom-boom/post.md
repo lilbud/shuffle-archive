@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Coincidence, subconscious, or intentional? Whatever the reason, Bruce’s cover of “Boom Boom” telegraphed an important change in his personal life. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Boom Boom"
----
 
 When it comes to art imitating life, there may be no better metatextual example in the Springsteen canon than Bruce’s decision to replace his sweet, romantic, original “” with a smoldering cover of John Lee Hooker’s “Boom Boom” midway through the Tunnel of Love Express Tour.
 

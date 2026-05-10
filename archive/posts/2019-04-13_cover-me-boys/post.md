@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Max Weinberg and the E Street Band cover “Boys,” originally recorded by The Shirelles and made famous by The Beatles.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Boys"
----
+
 
 During sign collection in Kansas City, at the final show on the Magic Tour, Bruce collected a sign from a Max Weinberg fan that simply said, “Let Max Sing.”
 

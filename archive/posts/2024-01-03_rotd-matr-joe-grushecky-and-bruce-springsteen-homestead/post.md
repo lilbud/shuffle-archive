@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of Joe and Bruce’s best collaborations may have inspired one of Bruce’s own songs too.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "RotD/MatR: Joe Grushecky and Bruce Springsteen: Homestead"
----
 
 “‘Homestead’ is probably one of the best songs I ever wrote,” Joe Grushecky told me during our virtual sit-down a couple of years ago.
 

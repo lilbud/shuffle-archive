@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce makes an unusual appearance at the Invictus Games closing ceremony, playing a short acoustic set and joining Bryan Adams for two rockers.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Toronto, September 30, 2017"
----
 
 I suppose if I can count the week before as a show, I can count Bruce’s five songs at the Invictus Games closing ceremonies as one, too.
 

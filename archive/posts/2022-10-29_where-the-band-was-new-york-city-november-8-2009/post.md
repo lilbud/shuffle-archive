@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Guest-blogger Marietta Phillips shares her ten-years-ago-tonight story, from the night she helped make the back pit riser an even better place to be near.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: New York City, November 8, 2009 (Marietta’s Story)"
----
 
 Editor's Note
 

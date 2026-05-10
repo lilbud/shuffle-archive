@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce plays his second album start-to-finish for the first time, debuts a new arrangement for “Blinded by the Light,” and plays a last-ditch rally for Hillary Clinton on Election Eve.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 7"
----
 
 *New entry for 1977; audio for 2006***New for 2025:**
 

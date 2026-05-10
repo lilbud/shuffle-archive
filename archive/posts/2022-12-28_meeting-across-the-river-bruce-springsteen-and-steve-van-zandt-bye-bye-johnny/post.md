@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Chuck Berry’s “Bye Bye Johnny” inspired one of Bruce’s own songs, but strangely he’s only covered it a few times. Here’s his most recent performance, with Little Steven and the Disciples of Soul.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and Little Steven, Bye Bye Johnny"
----
 
 True fact: Chuck Berry wrote songs about Mr. Johnny B. Goode, so you’d be forgiven for confusing any of them with the titular and most famous of them.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Noticing broken video links lately? Here’s why and what to expect going forward.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Introduction
----
 
 Shhh…. I’ll let you in on a secret, but you can’t tell anyone.
 

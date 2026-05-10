@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Funk Song” is a Springsteen original instrumental (or maybe two) that hasn’t been heard since 1975.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Funk Song"
----
 
 An original Springsteen composition from 1971 that survived into the E Street Band Era?
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce finishes “Born to Run,” says farewell to Jon Stewart on The Daily Show, shoots the video for “Leap of Faith” and records official live performances of “Nebraska,” “No Surrender,” and “Trapped.” Lots of video and audio today.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 6"
----
 
 *Audio for 1984***New for 2025:**
 

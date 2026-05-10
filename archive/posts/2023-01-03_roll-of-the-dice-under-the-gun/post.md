@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Under the Gun” donated its lyrics to “The River” and “Wreck on the Highway” but there’s still a terrific rocker hiding away in the vault somewhere. Let’s trace its evolution to get a sense of what the final song might promise. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Under the Gun"
----
 
 For all the outtakes that Bruce has released from the River recording sessions, there are more in the vault waiting for their author to rediscover them.
 

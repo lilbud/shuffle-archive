@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Nils Lofgren joins the E Street Band, Bruce enjoys a final night out as a bachelor, Bruce plays “Dream Baby Dream” for the first time, and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 11
----
+
 
 The Castiles play a gig at The Hullabaloo in Freehold.
 

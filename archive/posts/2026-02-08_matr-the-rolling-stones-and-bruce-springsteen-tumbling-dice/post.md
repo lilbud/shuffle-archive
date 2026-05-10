@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Twice only: Bruce joins The Rolling Stones on stage for a duet with Mick Jagger on “Tumbling Dice.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Tumbling Dice
----
+
 
 It sounds so loose and effortless that you’d be forgiven for believing it so.
 

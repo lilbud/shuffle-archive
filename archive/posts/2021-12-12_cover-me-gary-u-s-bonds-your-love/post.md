@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of many great songs Bruce gave away, “Your Love” is the missing link in a story that begins with “Little White Lies” and ends with “My Love Will Not Let You Down.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "RotD/Cover Me, Gary U.S. Bonds: Your Love"
----
 
 The hardest part about this entry? Figuring out how to tag it.
 

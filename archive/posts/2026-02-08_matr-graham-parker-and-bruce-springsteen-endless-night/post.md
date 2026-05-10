@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce took a break during the River sessions to lend his backing vocals to the artist he reportedly once called the only singer he’d pay money to see. Take a listen.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Endless Night
----
 
 At the tail end of 1979, while Bruce was recording , Graham Parker and The Rumour were recording their next album as well. Danny Federici was doing double duty at the time, recording with both the E Street Band and with The Rumor–he appears all over the album. Parker’s album had another E Street connection as well: engineer Jimmy Iovine was in the producer’s chair for Parker’s 1980 release.
 

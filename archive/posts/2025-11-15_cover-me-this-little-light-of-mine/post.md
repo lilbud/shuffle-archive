@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Always at the ready whenever defiance, solidarity, and resoluteness are called for, “This Little Light of Mine” proved a perfect penultimate song for the Sessions Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: This Little Light of Mine
----
 
 It’s unclear where and from whom “This Little Light of Mine” originated. Wikipedia attributes it to the white composer Harry Dixon Loes, but researchers have cast doubt on that.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Our third and final installment on the long road from “Candy’s Boy” to “Candy’s Room”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Candy’s Room"
----
 
 Editor's Note
 

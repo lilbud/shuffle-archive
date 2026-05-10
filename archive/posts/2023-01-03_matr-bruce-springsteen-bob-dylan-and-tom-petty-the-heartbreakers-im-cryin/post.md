@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce covered The Animals as far back as his Castiles days, but he saved one of their greatest hits for his first and only on-stage team-up with Tom Petty.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Tom Petty &amp; The Heartbreakers, Bruce Springsteen, and Bob Dylan: I’m Cryin’"
----
 
 Bruce Springsteen is no stranger to Eric Burdon and The Animals.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen to Bruce’s greatest unfinished rocker from the Darkness sessions and imagine what a show-stopper we *almost* had.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Crazy Rocker"
----
 
 I don’t bring request signs to Springsteen concerts; I prefer to just let the night unfold around me.
 

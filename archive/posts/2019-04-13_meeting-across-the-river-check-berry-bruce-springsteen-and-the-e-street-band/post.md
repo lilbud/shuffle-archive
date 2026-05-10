@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "From the 1995 opening concert for the Rock and Roll Hall of Fame: Chuck Berry backed by Bruce Springsteen and the E Street Band.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Check Berry, Bruce Springsteen, and the E Street Band, Johnny B. Goode"
----
+
 
 From the 1995 opening concert for the Rock and Roll Hall of Fame: Chuck Berry backed by Bruce Springsteen and the E Street Band.
 

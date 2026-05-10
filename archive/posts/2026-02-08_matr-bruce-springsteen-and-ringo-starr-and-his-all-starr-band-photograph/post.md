@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce guests with Ringo Starr and His All-Starr Band for Ringo’s classic “Photograph.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Photograph
----
+
 
 In 1989, with no E Street Band tour on the horizon, Clarence and Nils joined the original incarnation of Ringo Starr’s All-Star Band (which also included Levon Helm, Joe Walsh, Dr. John, Billy Preston, and other great artists).
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Jake Clemons’ debut E Street Band performance and Suki Lahav’s final one.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 9"
----
+
 
 *Video for 2012***New for 2025:**
 

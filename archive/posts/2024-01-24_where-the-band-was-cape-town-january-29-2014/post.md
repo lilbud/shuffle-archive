@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A very special final night in Cape Town featured the world premiere of “This Is Your Word” and a surprise performance of “Sun City” with Mos Def.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Cape Town, January 29, 2014"
----
 
 The last night in Cape Town was a strange mix: on one hand, it was a throwback to the Wrecking Ball Tour, opening with “” and featuring standards from that tour like “” “” “,” and “.” It’s almost as if Bruce felt bad that he skipped South Africa on that tour and wanted to give the locals a taste of what they missed.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Your Own Worst Enemy” is the bridge between Magic and Working on a Dream, featuring a lush and layered backing track paired with devastatingly biting lyrics. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Your Own Worst Enemy"
----
 
 Most accounts (including Bruce’s) contend that Bruce’s album began with the recording of “” during the mixing sessions.
 

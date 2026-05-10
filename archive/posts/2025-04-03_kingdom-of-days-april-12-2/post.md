@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this busy date: the release of In Concert/MTV Plugged, the debut of “Light of Day,” an all-star Elvis-themed benefit at Carnegie Hall, and so much more!
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 12"
----
+
 
 *Audio for 1995; new entry for 2024***New for 2025:**
 

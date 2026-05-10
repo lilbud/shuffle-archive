@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Rendezvous” is one of Bruce’s best pop songs, born on the road and better that way.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Rendezvous"
----
 
 If there was at all a benefit to the long period between and when Bruce was legally barred from recording new material, it’s that it gave him a chance to road test some new material before taking it into the studio.
 

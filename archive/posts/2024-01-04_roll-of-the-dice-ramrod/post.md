@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This encore staple and “Pink Cadillac” companion song isn’t as deep as Bruce might lead us to believe. But it sure is fun. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Ramrod"
----
 
 “This guy, he’s there, but he’s really there no more. He’s the guy in ‘‘–either guy, actually. But he’s also the guy, in the end, who says, ‘I’ll give you the word, now, sugar, we’ll go ramrodding forever more.’ I don’t know, that’s a real sad line to me, sometimes.”*not*[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)
 

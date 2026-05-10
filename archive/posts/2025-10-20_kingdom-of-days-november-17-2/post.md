@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce films the video for “Tunnel of Love,” releases his first album collection, plays the second of two amazing Christic shows, and serenades Taylor Swift–all this and much more inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 17"
----
+
 
 *Advertisement for 1973 and 1974; video for 1990; audio for 1990 and 2005***New for 2025:**
 

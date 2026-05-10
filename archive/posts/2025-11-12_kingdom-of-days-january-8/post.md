@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Oh, the ignominy: Rejections, second fiddles, and name mangling mark January 8th in Springsteen history. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 8
----
+
 
 : After driving across the U.S., Steel Mill auditions for a gig at The Family Dog on The Great Highway in San Francisco. They are rejected.
 

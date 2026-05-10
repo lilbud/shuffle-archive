@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Tommaso Imperiali won third-place recognition for his powerful cover of “Devils &amp; Dust” at this year’s Cover Me contest in Bergamo.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Tommaso Imperiali: Devils &amp; Dust"
----
 
 Continuing our coverage of last week’s finals in Bergamo, let’s meet Tommaso Imperiali, an Italian blues musician, guitarist, vocalist for the band Five Quarters, and philosophy student at the University of Milan.
 

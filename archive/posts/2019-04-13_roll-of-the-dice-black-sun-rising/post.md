@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "For the completists only: A strident, polemic “Black Sun Rising” performed only twice (mercifully) by Steel Mill.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Black Sun Rising"
----
+
 
 Some days the dice let you down. But being the completist that I am…
 

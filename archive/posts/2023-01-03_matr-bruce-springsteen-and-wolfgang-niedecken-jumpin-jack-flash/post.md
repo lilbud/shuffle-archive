@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Watch Bruce join his friend Wolfgang Niedecken at a Berlin club for a loose, raucous cover of one of The Rolling Stones’ most popular songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Wolfgang Niedecken: Jumpin’ Jack Flash"
----
 
 How in the world has this one not turned up more often?
 

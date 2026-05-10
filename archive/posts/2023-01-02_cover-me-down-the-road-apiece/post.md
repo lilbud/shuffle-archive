@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From Bruce’s pre-E Street Days to just pre-pandemic, “Down the Road Apiece” has always been an epic, crowd-pleasing jam. Let’s watch and listen to some of the best inside. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Down the Road Apiece"
----
 
 If ever a rock and roll recording was predestined for live jamming, it’s “Down the Road Apiece.”
 

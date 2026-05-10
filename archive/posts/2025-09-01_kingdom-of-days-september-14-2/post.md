@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Both River tours ended on this date; check out highlights from each inside, plus: Ed Norton interviews Bruce on stage in Toronto, and on the Rising Tour, Bruce starts rediscovering his missing years.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 14"
----
+
 
 *Audio for 1973 and 1984; new entry for 1977, 1983, 1989, and 2024***New for 2025:**
 

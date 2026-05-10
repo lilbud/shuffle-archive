@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce performed the only song enshrined in the Baseball Hall of Fame nightly with its original artist during the Vote for Change Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Centerfield
----
 
 There are 338 members of the Rock and Roll Hall of Fame.
 

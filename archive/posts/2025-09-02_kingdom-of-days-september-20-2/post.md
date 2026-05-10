@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce releases Nebraska, films the video for “Lonesome Day” and photobombs a couple’s engagement photos. Plus, Patti appears solo on Letterman, the live debut of “County Fair,” the first full-album show on the 2009 tour, and more. Whew! Lots of highlights today…
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 20"
----
+
 
 *Video for 1978; audio for 2003***New for 2025:**
 

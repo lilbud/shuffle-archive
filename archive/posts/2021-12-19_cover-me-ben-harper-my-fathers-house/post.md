@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Thanks to a pro-shot filmed appearance in a French radio studio, we can finally see and hear Ben Harper’s *complete* cover of “My Father’s House.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Ben Harper: My Father’s House"
----
 
 At the 32nd annual Kennedy Center Honors (the highest honor the U.S. bestows on individuals who influence American arts and culture), an array of artists assembled to pay tribute to Bruce Springsteen.
 

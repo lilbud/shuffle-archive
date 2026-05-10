@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Patti riffs on Bruce and rips on New Jersey in this improv piece from 1976 (Bruce accompanies on piano).
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Patti Smith and Bruce Springsteen, Slowly Walking Down the River"
----
 
 On the day after Thanksgiving in 1976, Bruce spent the evening in New York City with Patti Smith at The Bottom Line.
 

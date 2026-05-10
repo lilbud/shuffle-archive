@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Italian harpist transforms Bruce’s signature song without ever losing its rock and roll soul.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Micol Picchioni: Born to Run"
----
 
 When it comes to spotlighting artists who cover Bruce’s songs here on the Shuffle, we have one rule:
 

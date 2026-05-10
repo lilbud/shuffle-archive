@@ -83,4 +83,5 @@
 
 # 2026-04-22
 - All posts up through April 22 grabbed as well as converted to markdown
-- All markdown files have received another cleanup pass, this time fixing incorrectly formatted **bold** lines at the end of posts. This is an addition to the other cleanup passes, which were done in January. Many of the markdown files likely still have structural and formatting issues.
+- All markdown files have received another cleanup pass, this time fixing incorrectly formatted **bold** lines at the end of posts. This is an addition to the other cleanup passes, which were done in January.
+- General repo cleanup. Removed most of the database functions as I have plans to redo most of that. Tags, Comments, and Categories have been refreshed and are as up to date as they'll get.

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In the summer of 1978, Bruce became fascinated with the music of Hank Williams, whose music quickly started surfacing in Bruce’s soundchecks. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Wedding Bells"
----
 
 “What I’ve been listening to now… is a lot of Hank Williams. He was fantastic. God, he’s just incredible.” — *Bruce Springsteen to Ed Sciaky, August 19, 1978*
 

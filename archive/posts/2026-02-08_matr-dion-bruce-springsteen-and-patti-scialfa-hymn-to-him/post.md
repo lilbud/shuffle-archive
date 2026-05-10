@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When Dion resurrected his 1986 Christian rock hymn, he asked Patti Scialfa to provide new backing vocals. He got them–along with a bonus guitar solo from her husband.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Hymn to Him
----
 
 Dion DiMucci is best known for his early doo-wop and rock hits in the 1960s and 1970s, but at the dawn of the eighties, Dion took a spiritual turn, becoming a born-again Christian and releasing a half-dozen Christian rock albums.
 

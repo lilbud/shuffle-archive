@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: U2 pays tribute to Bruce on his 60th birthday by covering one of his classics from Born to Run.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, U2: She’s the One"
----
 
 Although U2 frequently “quotes” Bruce’s songs in concert, they’ve only covered him at length twice (unless you count their handful of performances of “Because the Night” with Patti Smith’s lyrics).
 

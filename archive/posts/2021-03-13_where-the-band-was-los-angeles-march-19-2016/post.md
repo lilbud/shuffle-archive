@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A spectacular send-off for the Sports Arena featured a magical “Drive All Night.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Los Angeles, March 19, 2016"
----
 
 It was just that kind of night.
 

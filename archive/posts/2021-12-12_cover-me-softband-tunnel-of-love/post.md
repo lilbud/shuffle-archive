@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A lovely acoustic cover by a mystery band. Anyone know anything about them?
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Softband: Tunnel of Love"
----
 
 I don’t know anything about this band (and couldn’t find any info on-line), but I adore this acoustic cover of “.” If you know anything about them, please drop me a note.
 

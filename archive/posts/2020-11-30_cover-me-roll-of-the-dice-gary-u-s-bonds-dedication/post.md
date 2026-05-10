@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s original version of “Dedication” has never been released…. or has it?
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me (Roll of the Dice?), Gary U.S. Bonds: Dedication"
----
 
 Now here’s an usual cover for a couple of reasons:
 

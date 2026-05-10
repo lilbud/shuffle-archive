@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A holiday SNL appearance, Bruce’s first-ever Canadian show, and two raucous holiday shows lead off today’s highlights.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 19"
----
 
 *No updates***New for 2025:**
 

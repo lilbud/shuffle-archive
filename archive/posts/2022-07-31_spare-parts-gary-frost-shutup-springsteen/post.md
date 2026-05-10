@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Hot off the presses: this bittersweet, Springsteen-inspired country single by rising New Jersey artist (and Bruce’s neighbor) Gary Frost.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Spare Parts: Gary Frost, “Shutup Springsteen”"
----
+
 
 “Shutup Springsteen” isn’t the first song inspired by a certain New Jersey rock star, but it may very well be the cleverest.
 

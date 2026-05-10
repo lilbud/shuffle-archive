@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday, Soozie Tyrell! Also on this date: Bruce is inducted into the New Jersey Hall of Fame, surprises Swedish fans with a full album performance, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 4
----
+
 
 E Street Band violinist Soozie Tyrell is born in Pisa, Italy.
 

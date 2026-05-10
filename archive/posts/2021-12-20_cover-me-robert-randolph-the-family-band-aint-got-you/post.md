@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: On the occasion of Bruce Springsteen’s 70th birthday, fellow New Jerseyan Robert Randolph gifted all of us with an irresistibly funky cover of “Ain’t Got You.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Robert Randolph &amp; The Family Band: Ain’t Got You"
----
 
 Bruce’s original recording of “” is spare–almost a capella–but its Bo Diddley beat has always cried out for a funkified arrangement.
 

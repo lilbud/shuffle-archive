@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: On this date in 2008, Danny Federici passes away after a long fight with melanoma. Rest in peace, Danny. Other notable events from this date inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 17"
----
 
 *Audio for 1999***New for 2025:**
 

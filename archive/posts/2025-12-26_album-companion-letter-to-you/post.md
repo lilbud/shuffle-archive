@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: There’s a truly great EP buried within this over-stuffed and thematically inconsistent album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Introduction
----
 
 By now, the story is almost as legendary as the origin of .
 

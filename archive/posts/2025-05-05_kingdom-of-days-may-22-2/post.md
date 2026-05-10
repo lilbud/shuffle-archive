@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce serenades and conducts a sing-along from an Italian balcony, Joe Grushecky joins Bruce for a wildly unpredictable show in Pittsburgh, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 22"
----
 
 *New entry for 1979 and 2024; audio for 1988***New for 2025:**
 

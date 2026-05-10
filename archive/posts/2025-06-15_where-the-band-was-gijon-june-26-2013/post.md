@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: What the heck was I doing at this particular show? Believe it or not, I was (relatively) in the neighborhood, and I’m sure glad I was.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Gijon, June 26, 2013"
----
 
 There was absolutely no reason for me to be at this show. It was half a world away from home, and Gijon isn’t exactly an international hub. If I was going to choose one show to attend for all of 2013, I would have chosen one in Italy or Sweden, where Bruce is pretty much guaranteed to put on an amazing show.
 

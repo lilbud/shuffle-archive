@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Bring on the Night” is one of the weaker outtakes on Tracks, but it offers insight into its descendant, “My Love Will Not Let You Down.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Bring on the Night"
----
 
 Twenty years ago, Bruce turned on the outtake faucet, first releasing , a four-disc box set of ones that got away, and following that up in subsequent years with a full disc of bonus songs on , an album-that-never-was (), and even more outtakes in box set.
 

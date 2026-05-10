@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: There are a lot of covers of “Dancing in the Dark” out there, but this is one by Mat Kearney in 2009 is my favorite.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Mat Kearney: Dancing in the Dark"
----
 
 There are a lot of covers of “” out there, but this is one by Mat Kearney in 2009 is my favorite.
 

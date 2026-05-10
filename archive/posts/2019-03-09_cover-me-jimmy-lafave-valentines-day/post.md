@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From Jimmy LaFave’s 1999 release, Trail, comes this faithful cover of Bruce’s “Valentine’s Day.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Jimmy LaFave: Valentine’s Day"
----
 
 From Jimmy LaFave’s 1999 release, , comes this faithful cover of Bruce’s “.”
 

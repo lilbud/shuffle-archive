@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The former Dukes of Hazard star tackles Bruce’s noir classic, and it’s way better than that sentence would lead you to expect.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Tom Wopat: Meeting Across the River"
----
 
 So this is a thing: a micro-genre of 1970s TV celebrities covering Bruce Springsteen songs.
 

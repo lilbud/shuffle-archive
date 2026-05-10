@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It may not have accomplished much in the short term, but Bruce and company put on a galvanizing show in Cleveland that helped reclaimed patriotism for the American left.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Cleveland, October 2, 2004"
----
 
 What’s better than a Springsteen concert? A Springsteen concert with REM as the opening act and an extended John Fogerty guest appearance!
 

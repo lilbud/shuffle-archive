@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At an Elvis-themed benefit concert, Bruce joined Sting, Billy Joel, Elton John, Paul Simon, and more great performers on an encore of Elvis’ classic “Jailhouse Rock.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen, Sting, Billy Joel, Elton John, and Friends – Jailhouse Rock"
----
 
 It was a team-up for the ages, an Elvis-themed evening featuring an all-star cast of performers.
 

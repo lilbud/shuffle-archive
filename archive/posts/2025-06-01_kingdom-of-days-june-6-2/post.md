@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Highlights from this date: a great recording of an early version of “Rosalita,” a guest-appearance by Joan Baez, an abandoned “Dancing in the Dark” video,, and more. Plus: the E Street Band (and the fans!) get an on-stage surprise in Indianapolis.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 6"
----
+
 
 *New entry for 1977 and 1983; audio for 2005***New for 2025:**
 

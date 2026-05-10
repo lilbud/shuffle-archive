@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The live debut of “Iceman,” the looooong-awaited return of “Prove It ’78,” and an epic final High Hopes stand lead the highlights from this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 17
----
 
 Bruce and the E Street Band play their second River Tour show in Edinburgh, Scotland, with “The Ties That Bind” in the opening spot for the first time.
 

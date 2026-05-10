@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Sandra Stephens and Lanny Cordola’s simmering, smoky, wonderful cover of “Adam Raised a Cain” dials back the fury and dials up the foreboding. One of my favorite Springsteen covers without question.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Sandra Stephens: Adam Raised a Cain"
----
 
 Stop what you’re doing and listen to Sandra Stephens’ remarkable cover of “.” If you haven’t heard it before, you’ve never heard it performed like this before.
 

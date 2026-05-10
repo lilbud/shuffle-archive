@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The standout track on Letter to You in more ways than one, “Rainmaker” warns about what happens when hope blends with desperation.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Rainmaker"
----
 
 “[Rainmaker] was sort of the one that stood in for the album I didn’t make.” *–Bruce Springsteen to Brian Hiatt, Rolling Stone, September 20, 2020*
 

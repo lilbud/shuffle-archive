@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Canadian singer-songwriter Serena Ryder hung out on E Street back in 2009, playing a beautifully stripped-down rendition of “Racing in the Street.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Serena Ryder: Racing in the Street"
----
 
 Singer-songwriter Serena Ryder may not be as well known in the U.S. as she is in her native Canada, but she certainly caught someone’s attention on E Street, because her exquisite, stripped-down cover of “” was featured on Bruce’s official site back in 2009 as part of the site’s short-lived “Hangin’ on E Street” series.
 

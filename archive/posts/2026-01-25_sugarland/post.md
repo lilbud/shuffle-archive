@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "For decades, “Sugarland” was one of the great what if’s for Springsteen collectors. It was the ghost in the machine of the early eighties: a…
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Sugarland
----
+
 
 For decades, “Sugarland” was one of the great for Springsteen collectors. It was the ghost in the machine of the early eighties: a song that existed in the cracks between Bruce’s home-recorded solitude and the stadium-shaking roar of 
 

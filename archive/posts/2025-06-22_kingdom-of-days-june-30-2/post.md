@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce headlines Hard Rock Calling, plays an impromptu 2am concert in Iceland(!), guest-stars with Jackson Browne, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 30"
----
 
 *New entry for 1977***New for 2025:**
 

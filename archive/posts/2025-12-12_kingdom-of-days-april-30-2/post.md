@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Talk about a significant date: Bruce plays his legendary Jazz Fest show in 2006; “Dancing in the Dark” makes its reunion-era debut; MTV debuts a new documentary; and the Sunshine Blues Band debuts. Much more inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 30
----
+
 
 At the Student Prince in Asbury Park, Bruce makes a guest appearance at the debut performance of The Sundance Blues Band, led by Steve Van Zandt and Southside Johnny, and featuring Vini Lopez, Garry Tallent, and Joe Hagstrom.
 

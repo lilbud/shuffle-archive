@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A holiday show favorite! Check out Bruce’s only-in-New Jersey cover performances of Chuck Berry’s classic Christmas rocker.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Run Rudolph Run
----
 
 Meanwhile… I was thinking:
 

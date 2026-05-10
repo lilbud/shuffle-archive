@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Turnabout’s fair play: After Bruce paid homage to The Bee Gees on his 2014 tour, Barry Gibb returned the favor by covering Bruce a few months later. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Barry Gibb: I’m on Fire"
----
+
 
 One of the highlights of Bruce Springsteen’s Australian High Hopes Tour was his gorgeously arranged cover of “” by the Bee Gees. It was so good that even Barry Gibb was blown away by it. (Don’t take my word for it, though.)
 

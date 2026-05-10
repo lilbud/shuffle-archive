@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Listen in on a 1993 rehearsal session, watch Jimmy Barnes guest-star with Bruce at Hanging Rock, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: March 30
----
 
 At the Record Plant in New York City, Bruce and his studio team complete the mix for “Darkness on the Edge of Town.”
 

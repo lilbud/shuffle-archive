@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce joins a stellar line-up of guest musicians at a 1994 John Eddie concert to cover Elvis Presley’s last number one hit, “Suspicious Minds.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen, John Eddie, and Friends: Suspicious Minds"
----
 
 Bruce covered Elvis Presley throughout the Tunnel of Love Express Tour. On any given night, you were liable to hear “” or “.” Swiss fans even got a one-off of “Follow That Dream.”
 

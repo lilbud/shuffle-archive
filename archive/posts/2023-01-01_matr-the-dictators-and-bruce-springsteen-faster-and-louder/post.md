@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Blink and you’ll miss it: “Faster and Louder” features the only collaboration between Bruce Springsteen and the legendary punk band, The Dictators.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: The Dictators and Bruce Springsteen, Faster and Louder"
----
+
 
 I admit it: I’m reaching with this one.
 

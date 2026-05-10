@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Three times only on the Tunnel of Love Tour, Bruce and the E Street Band closed their shows with a cover of Jackie Wilson’s breakthrough hit.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Lonely Teardrops
----
 
 “Lonely Teardrops” was Jackie Wilson’s breakthrough hit, catapulting him to the top of the Billboard R&B chart and into the Top 10 of the Billboard Hot 100 in 1959.
 

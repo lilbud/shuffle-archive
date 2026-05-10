@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: During the early weeks of the Tunnel of Love Express Tour, Bruce often closed the show with a mid-encore performance of Elvis Presley’s enduring classic, “Love Me Tender.” Watch a 31-year old performance captured on video inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Love Me Tender"
----
 
 For today’s entry, we need to travel way back–all the way to the American Civil War, in fact.
 

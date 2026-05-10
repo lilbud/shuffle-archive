@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A quiet, taut take on the CCR anti-gun classic rocker. “200 millions guns are loaded…” If only.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Run Through the Jungle"
----
 
 Here’s a timely cover: Three times only, on the original River tour, Bruce and the E Street Band covered the classic CCR anti-gun polemic, “Run Through the Jungle.”
 

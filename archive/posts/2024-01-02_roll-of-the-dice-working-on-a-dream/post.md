@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In defense of “Working on a Dream,” the perfect title track for one of Bruce’s best and most underrated albums.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Working on a Dream"
----
 
 I’m tempted to prefix the title of this article with “In Defense of,” but “Working on a Dream” warrants no apologies.
 

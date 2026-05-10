@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In this installment from the 1968 Notebook, we learn that Bruce had his lean, spare storytelling chops long before he revealed them on Nebraska.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Death of a Good Man"
----
 
 It’s time for another visit to the “,” where an eighteen-year-old Bruce Springsteen jotted down lyrics and song ideas for songs he never (as far as we know) recorded and that don’t appear on any bootlegs.
 

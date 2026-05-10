@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: For a couple of nights in 1977, Steve was the front man and Bruce was the sidekick. Listen in on a highlight from those shows, a wonderful “cover” of Little Steven’s “Some Things Just Don’t Change.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Some Things Just Don’t Change
----
 
 When a fellow fan asks me what shows I most wish I could have been at, the famous Asbury Park All-Star Revue shows from May 1977 rank pretty high on the list.
 

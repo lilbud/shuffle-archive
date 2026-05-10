@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s Bridge School Benefit sequel, the E Street Band’s first-ever show, the DVD release that never was, and more–all from this date.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 28"
----
 
 *Audio for 1976; new entry for 2024***New for 2025:**
 

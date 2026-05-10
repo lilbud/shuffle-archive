@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Melodically warm but lyrically icy, “When You’re Alone” is (appropriately) one of the least played songs on Tunnel of Love. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: When You’re Alone
----
 
 When Bruce gathered the E Street Band at the Expo Theater in Fort Monmouth to rehearse for their upcoming Tunnel of Love Express Tour, “When You’re Alone” was among the first songs they tackled.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The road to “Born in the U.S.A.” starts here with this Nebraska-era demo.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Vietnam"
----
 
 “*It’s like when you’re walking down a dark street at night, and out of the corner of your eye you see somebody getting hurt in a dark alley. But you keep walking on because you think it don’t have nothing to do with you, and you just want to get home. Vietnam turned this whole country into that dark street, and unless we can walk down those alleys and look into the eyes of those men and women, we’re never gonna get home.*” *–Bruce Springsteen, August 20, 1981*
 

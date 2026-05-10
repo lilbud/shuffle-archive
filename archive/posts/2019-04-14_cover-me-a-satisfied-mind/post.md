@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce covers the classic “A Satisfied Mind” during a 1988 soundcheck.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: A Satisfied Mind"
----
 
 Bruce never officially performed “A Satisfied Mind” in concert, but he did play it during a soundcheck in Atlanta on March 23, 1988–and we’re lucky enough to have a recording of it.
 

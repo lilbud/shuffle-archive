@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 2006, Bruce resurrected and revised an anti-war song from the Napoleonic era, filling it with resonance for the modern era.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice/Cover Me: Mrs. McGrath"
----
 
 Bruce has recorded his share of anti-war songs, some original and some covered. Most are commentaries on the wars of his lifetime or the World Wars that preceded it.
 

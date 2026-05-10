@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When Steve Van Zandt produced a comeback album for Darlene Love, Bruce contributed an original song that’s both unmistakably Springsteenian and custom-tailored for Love. Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Darlene Love: Night Closing In"
----
 
 Is a cover still a cover if the original songwriter never recorded it?
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce recorded a home demo of “I Don’t Know” in 1979. What’s it about? Like the song says…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I Don’t Know"
----
 
 Sometime in the autumn of 1979, at his home in Holmdel, Bruce recorded this little ditty:
 

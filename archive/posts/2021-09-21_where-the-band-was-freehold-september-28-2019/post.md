@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce surprised a literal hometown crowd by dropping by the opening of a new exhibit dedicated to his early life.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Freehold, September 28, 2019"
----
 
 Editor's Note
 

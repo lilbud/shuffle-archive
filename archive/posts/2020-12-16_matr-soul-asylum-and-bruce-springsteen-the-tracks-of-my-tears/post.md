@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen makes a surprise appearance with Soul Asylum in 1995, joining the band for Smokey Robinson’s classic, “The Tracks of My Tears.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Soul Asylum and Bruce Springsteen, The Tracks of My Tears"
----
+
 
 Bruce Springsteen is such a self-professed fan of Smokey Robinson (both in interviews and on stage), that it’s surprising that he doesn’t cover him more often. “” certainly got a workout nightly on the Wrecking Ball Tour’s “Apollo Medley,” but even that was part of a medley rather than a full performance.
 

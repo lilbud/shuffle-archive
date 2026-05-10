@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Italian musician and Springsteen fan Renato Tammi turns in a haunting cover of this deep cut from The Ghost of Tom Joad.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Renato Tammi: Straight Time"
----
 
 Full transparency: this is another plug for this year’s 
 

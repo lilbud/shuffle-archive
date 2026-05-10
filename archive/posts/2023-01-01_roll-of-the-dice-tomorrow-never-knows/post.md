@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The very definition of an overlooked gem, “Tomorrow Never Knows” reflects an artist truly coming to terms with his mortality and establishes a throughline to Western Stars.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Tomorrow Never Knows"
----
 
 It’s easy to forget about “Tomorrow Never Knows.” Bruce has never performed it live, and I’ve never seen a fan ask for it or heard Bruce talk about it. And yet, it’s arguably one of the songs that best defines the album on which it’s hidden away.
 

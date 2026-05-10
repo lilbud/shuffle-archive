@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Recorded too late to become the hit it should have been, “Don’t Look Back” is one of Bruce’s rarest and hardest-rocking anthems. Let’s take a look at its evolution inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Don’t Look Back"
----
 
 It was one of the very first songs Bruce recorded for and it was the last song to be cut.
 

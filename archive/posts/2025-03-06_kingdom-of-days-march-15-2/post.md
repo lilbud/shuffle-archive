@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bono inducts Bruce into the Hall of Fame, Bruce speaks and performs at SXSW, and more on a busy date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 15"
----
 
 *New entry for 1978, 2010, and 2024***New for 2025:**
 

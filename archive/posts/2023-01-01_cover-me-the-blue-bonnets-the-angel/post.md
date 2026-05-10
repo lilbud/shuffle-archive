@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It’s an obscure song covered by an even more obscure band, but The Blue Bonnets’ version of “The Angel” is terrific–maybe even better than Bruce’s version.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Blue Bonnets: The Angel"
----
 
 I don’t know much about The Blue Bonnets other than that they contributed to the excellent Italian tribute album back in 1995.
 

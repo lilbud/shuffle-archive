@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: My favorite of the four Devils &amp; Dust shows I attended, Portland ’05 was a motherlode of rarities, gems, and personal debuts. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Portland, August 10, 2005"
----
 
 The Devils and Dust Tour was unpredictable and intimate: just Bruce and his guitars (and occasionally, a piano, a pump organ, and a used electric keyboard he bought on ebay). Maybe it was the relative lack of companionship on a solo tour that prompted Bruce to make unannounced visits to the arena parking lots during breaks in the sound checks. (His son Evan accompanied him for this leg of the tour, but Bruce liked to remark that Evan was usually lost in his videogames.) Whatever the reason, it was a never-before opportunity to meet the arti
 

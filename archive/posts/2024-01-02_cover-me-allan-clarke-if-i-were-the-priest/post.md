@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Allan Clarke’s cover of “If I Was the Priest” had a 46-year head start on Bruce’s own version. Read the backstory inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Allan Clarke: If I Were the Priest"
----
 
 “I don’t know what it means!” remarked Allan Clarke in a about his cover of “.”
 

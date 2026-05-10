@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Twice only: Bruce, Southside, and Little Steven trade lead vocals on Steve’s standout track from Southside’s 1991 don’t-call-it-a-comeback album. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Southside Johnny, Little Steven, and Bruce Springsteen: All I Needed Was You"
----
+
 
 Little Steven may have written it, but on the evening of December 17, 2000, it belonged to three longtime friends.
 

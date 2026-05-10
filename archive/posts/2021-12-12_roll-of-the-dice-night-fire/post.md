@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When “Night Fire” finally saw the light of day,it turned out to be a lesser version of “Point Blank.” But what was it meant to be originally?
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Night Fire"
----
 
 When the long-awaited anniversary box set for was announced, fans were excited to learn it would include a collection of unreleased outtakes. The prospect of complete, unreleased River-era Springsteen music unearthed and released from the vault certainly had me salivating.
 

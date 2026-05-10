@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: the debut of Bruce’s answering machine message (sort of).
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 3
----
+
 
 At home in Colts Neck, Bruce records demos for “” “,” “,” and “.” These demos will eventually be released on .
 

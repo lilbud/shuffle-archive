@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Steel Mill opens for Ike and Tina Turner, Suki Lahav joins the E Street Band, and the Vote for Change Tour wraps up with a star-studded broadcast. These and more highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 11"
----
+
 
 *Review for 1970; new entry for 1979; video for 2004***New for 2025:**
 

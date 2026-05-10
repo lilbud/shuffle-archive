@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and Roger McGuinn team up on the Magic Tour for a special performance of Bob Dylan’s (and The Byrds’) “Mr. Tambourine Man.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Mr. Tambourine Man
----
+
 
 On April 23, 2008, the E Street Band was still raw from the recent loss of Danny Federici when they arrived in Orlando.
 

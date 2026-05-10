@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A day full of highlights, from Bruce’s first meeting with Mike Appel, to his first on-stage appearance with Ronnie Spector, to the recording of the “Born in the U.S.A.” video and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 4"
----
 
 *Audio for 1976 and 1977; review for 2002 and 2007; new entry for 2024***New for 2025:**
 

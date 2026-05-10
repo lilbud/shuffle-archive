@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce covers Darlene Love (in a song for which she was never credited) for the first time in the summer of 1976.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: She’s Sure the Girl I Love"
----
+
 
 Like “” and “,” figuring out who to credit for “He’s Sure the Boy I Love” isn’t straightforward.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From Bruce’s legendary 2001 holiday shows, Garland Jeffreys takes the spotlight (with Bruce’s backing vocals and guitar) on a contemplative performance of “New York Skyline.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Garland Jeffreys and Bruce Springsteen: New York Skyline"
----
 
 After a self-imposed hiatus, Garland Jeffreys re-emerged on the New York music scene in the summer of 2001. By that winter, Bruce had asked his friend and contemporary to join him on stage in Asbury Park at Bruce’s annual holiday concerts.
 

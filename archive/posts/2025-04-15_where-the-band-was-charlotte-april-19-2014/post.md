@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce took more sign requests and called more audibles than I’ve ever witnessed at this unpredictable show from the High Hopes tour. When the opener is “Iceman,” you know you’re in for a wild night.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Charlotte, April 19, 2014"
----
 
 What is it about Bruce and North Carolina?
 

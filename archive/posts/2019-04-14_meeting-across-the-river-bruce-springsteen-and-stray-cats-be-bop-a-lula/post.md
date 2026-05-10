@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen and Stray Cats team up on the 1956 Gene Vincent classic.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and Stray Cats, Be-Bop-a-Lula"
----
+
 
 On July 23, 1982, Bruce dropped by The Fast Lane in Asbury Park and joined Stray Cats on stage for one song: “Be-Bop-a-Lula.”
 

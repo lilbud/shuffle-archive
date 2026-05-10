@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This early candidate for Bruce’s debut album ended up an organ donor for two of his most well-known songs.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Henry Boy
----
 
 Had “Henry Boy” made it onto , Rosie might never have come out.
 

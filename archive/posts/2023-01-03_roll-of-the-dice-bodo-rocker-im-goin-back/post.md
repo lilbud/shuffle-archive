@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Move over, “She’s the One” and “Preacher’s Daughter” – “BoDo Rocker” is the Bo Diddley homage we’ve been waiting for.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: BoDo Rocker (I’m Goin’ Back)"
----
 
 Play this one 
 

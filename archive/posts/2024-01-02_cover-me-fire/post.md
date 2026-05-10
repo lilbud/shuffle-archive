@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Seventeen-year-old Bruce Springsteen covers Jimi Hendrix’s “Fire” with his high school band, The Castiles.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Fire"
----
+
 
 In the late summer of 1967, seventeen-year-old Bruce Springsteen was rapidly becoming the center of attention in his high school band, The Castiles.
 

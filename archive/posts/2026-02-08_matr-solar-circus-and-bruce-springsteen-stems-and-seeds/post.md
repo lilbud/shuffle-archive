@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce Springsteen joins local band Solar Circus for an impromptu performance of the band’s 1992 song, “Stems and Seeds.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Stems and Seeds
----
+
 
 The band is Solar Circus, a North Jersey-based Grateful Dead-influenced band (at one point, Dead songs comprised about half their sets) that broke up in 1997 but can’t quite manage to stay broken. (The members were still getting together for live shows as recently as 2020.)
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of rock’s most covered songs produced some memorable Springsteen on-stage performances.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Kansas City
----
 
 Even among frequently-covered songs, “Kansas City” stands out. Not only has pretty much everybody performed it on stage at one point or another, but there are more than three hundred versions as well.
 

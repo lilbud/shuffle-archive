@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Lost in time: a lovely pre-E Street Band romantic ballad captured in gorgeous quality.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Look Towards the Land"
----
+
 
 “Look Towards the Land” is a gorgeous early Springsteen ballad, easy to listen to but tough to pin down.
 

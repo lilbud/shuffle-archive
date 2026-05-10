@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Today is a relatively quiet date in Springsteen history, but there’s one momentous exception: the very first performance ever of “Backstreets.” Listen to it here.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 8"
----
+
 
 *Audio for 1975***New for 2025:**
 

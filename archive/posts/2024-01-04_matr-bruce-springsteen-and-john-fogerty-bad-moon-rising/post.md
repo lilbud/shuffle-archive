@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Springsteen has covered John Fogerty’s signature song seven times over the years. Check them all out here.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and John Fogerty: Bad Moon Rising"
----
 
 It wasn’t their only single to fall victim to the Creedence curse, but given its lyrics, it’s amazing “Bad Moon Rising” made it onto the Billboard Hot 100 at all.
 

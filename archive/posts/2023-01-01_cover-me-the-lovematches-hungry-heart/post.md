@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Here’s a light and lovely new acoustic cover of “Hungry Heart” by Finnish duo The Lovematches, perfect for a weekend morning.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Lovematches: Hungry Heart"
----
 
 One of my favorite things about writing this blog is coming across new Springsteen covers on an almost daily basis.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Ten years ago tonight: Guest blogger Marietta Phillips takes us inside one of Bruce’s most intimate concerts ever.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Asbury Park, December 7, 2010 (Marietta’s Story)"
----
+
 
 Editor's Note
 

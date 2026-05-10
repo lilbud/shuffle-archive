@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday, Nils Lofgren! Also on this date: the first “Badlands” bridge singalong, Bruce’s first-ever show in Italy, a secret gig in rural PA, and a memorial service for Clarence. More inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 21"
----
+
 
 *New entry for 1979; audio for 2003; video for 2023***New for 2025:**
 

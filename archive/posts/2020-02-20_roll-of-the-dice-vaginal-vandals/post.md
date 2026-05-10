@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 2010, an on-line auction site featured a page of untitled, original early Springsteen lyrics. Despite the deceptively provocative name they assigned, “Vaginal Vandals” is a fascinating seed of what might have developed into an early tale of youthful rebellion.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Vaginal Vandals"
----
 
 Poor Bruce.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Earth makes their public debut, Bruce premieres “Sea Cruise,” “It’s Gonna Work Out Fine,” the first full-band “Across the Border,” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 16"
----
+
 
 *Audio for 1975***New for 2025:**
 

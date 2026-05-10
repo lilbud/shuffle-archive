@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Look past the dated lyrics (and the limp studio version), and “Fire” goes the distance as a fan-favorite rarity. The secret? It’s…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Fire"
----
 
 We’re all friends here, so let’s just acknowledge a couple of things up front, okay?
 

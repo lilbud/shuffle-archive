@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: Bruce plays Fenway Park and New Orleans for the first time, Boz Scaggs and Peter Wolf make guest appearances with the E Street Band, the release of Chimes of Freedom, and more. Audio and video inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 6"
----
+
 
 *No updates***New for 2025:**
 

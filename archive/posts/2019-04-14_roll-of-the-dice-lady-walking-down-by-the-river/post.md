@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s first published work in a college literary magazine leads to a Steel Mill song that would be recorded forty years later.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Lady Walking Down by the River"
----
 
 Here’s another one from the wayback machine: “Lady Walking Down by the River” is a Springsteen original from 1970, performed twice only (that we know of) with Steel Mill.
 

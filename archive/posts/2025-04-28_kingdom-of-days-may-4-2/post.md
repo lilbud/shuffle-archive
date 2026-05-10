@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday, Soozie Tyrell! Also on this date: Bruce is inducted into the New Jersey Hall of Fame, surprises Swedish fans with a full album performance, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: May 4"
----
+
 
 *New entry for 1975, 1982, and 2024; audio for 2000 and 2009; video for 2023***New for 2025:**
 

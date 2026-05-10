@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce makes a Daily Show appearance, records tracks for the Seeger Sessions album, and closes out the L.A. Sports Arena on this date in history. Highlights and more inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 19"
----
 
 *Audio for 1977; video for 2009 and 2012; new entry for 2024***New for 2025:**
 

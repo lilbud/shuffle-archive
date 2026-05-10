@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the inaugural Glory Days Symposium draws hundreds of Springsteen scholars to Monmouth University. On stage, Bruce plays “Double Shot (of My Baby’s Love)” and “Louie Louie” for the first time. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 9"
----
+
 
 *New entry for 1977***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Ryan Adams celebrates “1994 Day” (really) with an intimate cover of Bruce’s “Streets of Philadelphia.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Ryan Adams: Streets of Philadelphia"
----
 
 For reasons that I don’t have time or even the curiosity to fathom, BBC Radio declared a “1994 Day” last March and invited Man of Many Covers Ryan Adams to help celebrate it. (I’m having trouble coming up with a single enduring musical classic from that year, but I’m sure there are some.)
 

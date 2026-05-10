@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s “other” Christmas song is almost as well-known and much-loved as his “Santa Claus,” even though he’s never performed it beyond New Jersey or New York.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Merry Christmas, Baby
----
 
 If Bruce is associated with one holiday song, it’s “Santa Claus is Comin’ to Town.” But if he’s associated with , the second one is most certainly “Merry Christmas Baby” — and yet, he’s only ever played it in concert four times with the E Street Band, and never at all outside of New Jersey or New York State.
 
@@ -63,7 +57,7 @@ December 28, 1980 (Uniondale, NY)
 December 14, 2016 (New York City, NY)
 
 **Merry Christmas Baby**
-Released:**  
+**Released:**  
 *A Very Special Christmas*   
 **First performed:**   
 **Last performed:**

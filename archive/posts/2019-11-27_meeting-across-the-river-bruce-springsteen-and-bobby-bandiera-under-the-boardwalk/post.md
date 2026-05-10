@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce and Bobby cover “Under the Boardwalk” on the Jersey Shore on the third day of summer. There’s no setting more perfect for that song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and Bobby Bandiera, “Under the Boardwalk”"
----
 
 Can anything scream “summer at the Jersey shore” more than Bruce Springsteen singing “Under the Boardwalk?” I don’t think so.
 

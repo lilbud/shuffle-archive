@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Drawn from the headlines of the 1960s, written in the 1980s, “My Hometown” still resonates today in struggling communities everywhere.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: My Hometown"
----
 
 It was ’69, not ’65; Monday night rather than Saturday night; and it wasn’t his high school.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This early Springsteen original features fine vocals from Bruce and Robbin and a typically great Steel Mill guitar jam–but ouch, those lyrics.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I Can’t Take It No More"
----
 
 For at least a few months from the autumn of 1970 through the early weeks of 1971, if you caught Steel Mill in concert, you might have heard this original Springsteen song.
 

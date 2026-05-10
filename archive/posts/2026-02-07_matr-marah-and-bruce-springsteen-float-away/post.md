@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The story of how a Philly garage rock band landed a Bruce Springsteen cameo on their breakthrough album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Float Away
----
 
 Marah could have made it big. They have made it big.
 

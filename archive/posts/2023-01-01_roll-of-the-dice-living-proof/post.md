@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In 1991, Bruce shed his skin and embraced life as a family man with “Living Proof,” one of the most important and influential songs in his catalog. Analysis and great performances inside. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Living Proof"
----
 
 “When I wrote [“Living Proof”], I said: ‘Yeah what I’m trying to say. That’s how I feel.’ And that was a big moment, because I landed hard in the present, and that was where I wanted to be. I’d spent a lot of my life writing about my past, real and imagined… This is what’s important in my life .'” *that’s**right now**–Bruce Springsteen to James Henke, Rolling Stone, August 6, 1992*
 

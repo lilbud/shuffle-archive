@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: John Legend has covered Bruce’s greatest hit many times, but my favorite is when he teamed up with The Roots on the Tonight Show.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, John Legend: Dancing in the Dark"
----
 
 John Legend has covered Bruce’s greatest hit many times in concert, including at Bruce’s MusiCares Person of the Year Tribute concert.
 

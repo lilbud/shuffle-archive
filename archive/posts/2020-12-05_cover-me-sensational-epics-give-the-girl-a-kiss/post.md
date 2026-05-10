@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Could there be a better cover pairing for “Give the Girl a Kiss” than The Sensational Epics? I don’t think so.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Sensational Epics: Give the Girl a Kiss"
----
 
 The Sensational Epics hail from Columbia, South Carolina and date back to the early 1960s. A favorite on the southern college and beach circuit, their horn-fueled sound, on-stage presence and charisma make them a perfect fit to cover Bruce’s poppier tunes.
 

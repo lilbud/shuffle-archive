@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce releases his third studio album, Born to Run. Plus: Little Steven fronts the E Street Band at a 2009 soundcheck, a memorable on-stage marriage proposal, and more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 25"
----
+
 
 *New entry for 1979***New for 2025:**
 

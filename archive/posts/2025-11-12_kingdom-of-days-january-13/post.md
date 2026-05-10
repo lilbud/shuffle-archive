@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Watch Bruce induct Creedence Clearwater Revival into the Rock and Roll Hall of Fame, listen to an NPR interview from 2014, and more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 13
----
 
 : When Boz Scaggs gets sick and cancels his headlining gig at The Matrix in San Francisco, Steel Mill is promoted from opener to headliner. The band plays for more than an hour to a small crowd that includes journalist Philip Elwood, who was expecting to see and review Boz Scaggs. Needing to turn in something, he reviews Steel Mill instead and writes that he has “never been so overwhelmed by a totally unknown talent.” You can hear the groovy, very 70’s set here:
 

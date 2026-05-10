@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Yes, that’s the actress who played Joann Carlino in Eddie and the Cruisers, taking a turn on Bruce’s torch song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Helen Schneider: Hearts of Stone"
----
 
 Today’s cover is definitely on the obscure side–unless, perhaps, you live in Germany, where Helen Schneider was a popular recording artist in the late 1970s and early 1980s.
 

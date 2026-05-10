@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Twice only: Bruce paid tribute to The Man in Black after his passing by opening his shows with a lovely acoustic cover of “I Walk the Line.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: I Walk the Line"
----
+
 
 The late, great Johnny Cash passed away on September 12, 2003.
 

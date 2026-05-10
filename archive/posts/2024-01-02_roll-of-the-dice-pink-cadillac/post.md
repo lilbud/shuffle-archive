@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It may be pink, but it ain’t no car. Backstory and great performances inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Pink Cadillac"
----
 
 “This is a song about sin! According to the Bible (at least the way I was taught), way back in the Garden of Eden, Eve showed Adam the apple, Adam took a bite… and here we are tonight! That’s a little hard to believe… there had to be something more than an *apple*. So I got to thinking… I figured it couldn’t be an apple, so it must have been… it must have been…” *–Bruce Springsteen, introducing the debut of “Pink Cadillac” in St. Paul on July 1, 1984*
 

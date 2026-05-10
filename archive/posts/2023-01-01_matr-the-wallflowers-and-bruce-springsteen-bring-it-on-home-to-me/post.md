@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins The Wallflowers in a gorgeous cover of Sam Cooke’s classic “Bring It on Home to Me.” 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: The Wallflowers and Bruce Springsteen, Bring It on Home to Me"
----
+
 
 It was a B-side that couldn’t have been more different from its A-side, but both sides became smash hits.
 

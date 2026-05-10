@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This uncirculating, fifty-year-old recording showcases the Bruce Springsteen Band at the height of their powers.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Bless My Soul"
----
 
 I’ve got a treat for you today.
 

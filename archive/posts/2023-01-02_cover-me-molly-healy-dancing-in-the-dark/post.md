@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Now here’s a “Dancing in the Dark” cover like we’ve never seen before, from multi-talented looping violinist and guitarist Molly Healey.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Molly Healey: Dancing in the Dark"
----
 
 Molly Healey is a multi-talented looping violinist, cellist, and guitarist, and she puts two of those talents (along with a terrific voice) to use on her cover of Bruce Springsteen’s “.”
 

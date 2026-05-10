@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The power goes out in Paris, the strings come out in Rome, Jake and Clarence share the stage, and it’s Christmas in July. It’s a date for unusual events in Springsteen history!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 11"
----
 
 *New entry for 1973, 1977 and 1979; video for 2023***New for 2025:**
 

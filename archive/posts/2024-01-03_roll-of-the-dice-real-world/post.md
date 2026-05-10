@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Nowhere in Bruce’s catalog is the importance of the right arrangement illustrated than in this deeply personal and vulnerable Human Touch track.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Real World"
----
 
 “This is a song I cut in the early ’90s. It was on but we didn’t quite get it right… I kind of screwed it up when I recorded it… It kind of got away from me… didn’t get a good version of it, but it was a good song.”*Human Touch,*
 

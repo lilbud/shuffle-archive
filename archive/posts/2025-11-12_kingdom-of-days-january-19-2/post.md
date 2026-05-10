@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this day in Springsteen history: Bruce releases “We Take Care of Our Own,” pays tribute to Glenn Frey, holds a benefit for 3M factory workers and much more. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 19
----
+
 
 Bruce opens for the Paul Winter Consort for the second of four nights at My Father’s Place on Long Island.
 

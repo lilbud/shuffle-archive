@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Mitch Ryder makes a “Detroit Medley” guest appearance, Bruce swings by the Yankees’ clubhouse, the debut of the acoustic “Countin’ on a Miracle” video, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 12"
----
+
 
 *New entry for 1977***New for 2025:**
 

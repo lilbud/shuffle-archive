@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Jon Landau logs a lone performer credit on this obscure hybrid outtake from the Darkness era.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: It’s a Shame"
----
 
 On May 28, 1977, Bruce Springsteen and former manager Mike Appel settled the mutual litigation that barred Springsteen from a recording studio for almost a year. Only four days later, Bruce and the E Street Band were back in the recording studio, recording eight songs that first night alone for what would eventually become . He was overflowing with material, arriving almost every day with new songs for the band to test drive.
 

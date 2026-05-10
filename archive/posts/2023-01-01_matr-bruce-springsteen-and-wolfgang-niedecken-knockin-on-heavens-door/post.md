@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The backstory is odd, but the performance is terrific: watch Bruce and Wolfgang Niedecken deliver a bilingual cover of “Knockin’ on Heaven’s Door” in a German cafe in 1995.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Wolfgang Niedecken, Knockin’ on Heaven’s Door"
----
+
 
 Of course Bruce has covered “Knockin’ on Heaven’s Door.” Hasn’t everybody?
 

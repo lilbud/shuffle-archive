@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Alt-country band Drive-by Truckers proves their rock bona fides whenever they cover this classic from Darkness on the Edge of Town.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Drive-By Truckers: Adam Raised a Cain"
----
 
 Alt-country band Drive-by Truckers prove their rock bona fides whenever they cover from . Here’s a recent performance from November 2016.
 

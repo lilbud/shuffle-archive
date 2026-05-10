@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: a starstruck Bruce Springsteen joins Roy Orbison and an all-star band on Orbison’s very first self-written song. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Roy Orbison, Bruce Springsteen and Friends, Go Go Go (Down the Line)"
----
+
 
 “Go Go Go (Down the Line)” is far from my favorite Roy Orbison song, but it’s certainly one of my favorite highlights from Orbison’s concert–if only for the sight of a completely starstruck Bruce Springsteen (with an “I can’t believe this is actually happening” expression the entire time) playing alongside one of his idols.
 

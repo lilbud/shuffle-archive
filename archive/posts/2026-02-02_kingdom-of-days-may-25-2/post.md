@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Christmas in May, the first E Street Band “Red Headed Woman” and a full video document of a Wrecking Ball show lead the highlights for this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 25
----
 
 Bruce plays the second of three nights at Childe Harold in Washington, DC.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One week only: At a run of Asbury Park holiday concerts in 2001, Bruce joined Garland Jeffreys on Garland’s 1992 plea for racial harmony.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Welcome to the World
----
+
 
 Garland Jeffreys and Bruce Springsteen both started writing and performing around the same time, and they each released their first records in 1973.
 

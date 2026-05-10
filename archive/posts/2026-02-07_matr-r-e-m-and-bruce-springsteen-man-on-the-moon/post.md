@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A nightly highlight of the Vote for Change Tour wasn’t political at all–it was the Stipe/Springsteen team-up on the Andy Kaufman tribute, “Man on the Moon.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Man on the Moon
----
 
 It had been a long time since Bruce Springsteen and the E Street Band had a regular opening act, let alone one that could have been a headliner on its own, but as Election Day 2004 approached, artists across America joined forces in an all-out, last-mile push to mobilize voters in support of the Democratic presidential ticket.
 

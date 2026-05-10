@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Clarence’s final music video debuts, Bruce plays his first show in Finland, and rumors spread about an upcoming Broadway run.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 16"
----
+
 
 *New entry for 1977; video for 2023***New for 2025:**
 

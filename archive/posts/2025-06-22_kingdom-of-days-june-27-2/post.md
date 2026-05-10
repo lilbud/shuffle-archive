@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "For a rare song, “Janey, Don’t You Lose Heart” is performed on two different occasions on this date. Plus: a complete 1982 bar gig, Bruce headlines Glastonbury, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 27"
----
+
 
 *New entry for 1977, 1979, and 2024; audio for 2008***New for 2025:**
 

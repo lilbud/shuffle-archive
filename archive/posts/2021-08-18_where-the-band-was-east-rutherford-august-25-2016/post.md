@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "MetLife #2 on the River Tour was literally a family affair, and I just happened to be seated right behind it. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: East Rutherford, August 25, 2016"
----
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/metlife2-a_LI.jpg?resize=758%2C1362&amp;ssl=1)
 

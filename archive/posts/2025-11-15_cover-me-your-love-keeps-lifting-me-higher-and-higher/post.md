@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In which I send thanks to the brilliant fan who requested and restored Jackie Wilson’s eternal classic to its rightful place in Bruce’s encore set.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: (Your Love Keeps Lifting Me) Higher and Higher
----
 
 I guess everyone has that one song, right?
 

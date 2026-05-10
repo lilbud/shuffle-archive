@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the earliest demos recorded during the Born in the U.S.A. sessions, “Your Love Is All Around Me” made it maddeningly far before Bruce abandoned it. Take a listen to this shoulda-been classic inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Your Love is All Around Me"
----
 
 We’ve examined a lot of Bruce’s unfinished, never-released home demos on this blog. Many of them are mere seeds, hooks, or riffs with which Bruce seemed momentarily infatuated. Others seem like great-grandparents to songs that eventually got released, with lyrical or melodic DNA propagated throughout Bruce’s catalog.
 

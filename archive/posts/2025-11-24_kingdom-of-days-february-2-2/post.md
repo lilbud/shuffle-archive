@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce apologizes to Australia on behalf of America and sends a message back to Washington DC on this date in Springsteen history. More highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 2
----
 
 Ten days after Steel Mill plays their final show, Bruce is already in the market for talent for a new band. This help wanted ad runs in the today.
 

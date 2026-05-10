@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Never Be Enough Time” is a standout track from a stellar album, and a joyous collaboration between Joe Grushecky and Bruce.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Joe Grushecky and Bruce Springsteen, Never Be Enough Time"
----
 
 This isn’t the first time and won’t be the last that I’ll say: Joe Grushecky’s is a must-own for a serious Springsteen fan. Bruce produced the album, wrote a couple of songs, and plays and/or sings on several.
 

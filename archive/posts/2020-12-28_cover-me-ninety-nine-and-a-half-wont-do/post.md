@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Twice only: Bruce paid tribute to Wilson Pickett with his own version of “Ninety-Nine and a Half (Won’t Do).” Just don’t call it a cover.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Ninety-Nine and a Half (Won’t Do)"
----
+
 
 (Actually, I’m not sure this even counts as a cover, but I don’t have a “Pay Homage to Me” category.)
 

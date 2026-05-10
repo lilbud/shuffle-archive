@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Southern rocker Rod Melancon perfectly translates “57 Channels” to the stage without losing the original’s dystopian, alienated spirit.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Rod Melancon: 57 Channels (And Nothin’ On)"
----
 
 This.
 

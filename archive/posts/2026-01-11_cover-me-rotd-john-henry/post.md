@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the all-time great American folk heroes made a nightly appearance on the Seeger Sessions Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: John Henry
----
 
 “John Henry” is one of the most-recorded American folk songs, and for good reason: there’s so much going on in it.
 

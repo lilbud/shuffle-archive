@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Everyone Loves You” is an unfinished (or more accurately, barely started) cast-off from Bruce’s 1979 home demo recordings.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Everyone Loves You"
----
 
 In case you haven’t figure it out yet, I’m a completist. So when I established that the scope of this blog spans Bruce’s entire catalog of originals and covers, that definition is a bit, um, liberal at times.
 

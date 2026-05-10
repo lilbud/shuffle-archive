@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Baby Doll” was one of the first songs Bruce played for Mike Appel at their very first meeting, and it almost kept him from getting a second chance. But the song had promise–listen to the unearthed demo and judge for yourself inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Baby Doll
----
 
 “It was a song about dancing with a girl who was deaf, dumb, and blind with a lyric that included, ‘They danced all night to a silent band….’ I didn’t feel the earth moving beneath me. I told him these were the worst two songs I ever heard, utterly devoid of any pop potential… He said, “I’ll write some more songs and come back.”–*Mike Appel to Marc Eliot, Down Thunder Road*
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce quoted it in “Born to Run” and imitated its sound, and in 1976 he finally had the chance to perform it with its original artist: Listen to Bruce Springsteen and Ronnie Spector play Spector’s signature “Be My Baby.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Be My Baby
----
+
 
 It peaked at #2 on the Billboard Hot 100.
 

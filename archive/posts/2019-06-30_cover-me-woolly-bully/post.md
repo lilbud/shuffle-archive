@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: As Bruce once put it, “any bar band worth its salt has got to know this one.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Wooly Bully"
----
 
 “Wooly Bully” is a rock/Tex-Mex hybrid released in 1964 by novelty act Sam the Sham and the Pharoahs. It became a massive hit the following year, earning Billboard Magazine’s Number One Record of the Year distinction.
 

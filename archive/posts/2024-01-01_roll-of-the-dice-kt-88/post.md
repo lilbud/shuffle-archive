@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: We’re in obscure territory today with this instrumental jam from the Child/Steel Mill era.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: KT-88"
----
 
 The dice take us into seriously obscure territory today:
 

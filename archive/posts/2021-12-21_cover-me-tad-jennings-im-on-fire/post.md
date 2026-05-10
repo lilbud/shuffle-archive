@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One-man band Tad Jennings delivers a fresh loop take on Bruce’s often-covered classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Tad Jennings: I’m on Fire"
----
 
 I know, I know… another “” cover.
 

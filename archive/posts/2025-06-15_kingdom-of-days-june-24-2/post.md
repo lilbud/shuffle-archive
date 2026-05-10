@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Patti Scialfa tries out for the E Street Band, Bruce plays host to a ton of guests for a special Concert to Fight Hunger, and much more on this eventful date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 24"
----
 
 *New entry for 1977; audio for 1993***New for 2025:**
 

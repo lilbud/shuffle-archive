@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A rare instrumental cover by Bruce, “Once Upon a Time in the West is a gorgeous composition by Italian composer Ennio Morricone.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Once Upon a Time in the West"
----
 
 A rare instrumental cover by Bruce, “Once Upon a Time in the West” is a composition by Italian composer Ennio Morricone. Bruce has often used it as walk-on music in Italy, and in 2006 he recorded a solo electric guitar instrumental version at his home studio.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce Springsteen, The Soul Survivors, and “Expressway to Your Heart.” Can there be a Philly-er combination? I don’t think so.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Expressway to Your Heart"
----
 
 Today’s spotlight cover holds a special place in the hearts of Philly boys like me.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Love of the Common People” stood out as one of the more contemporary set list selections on the Seeger Sessions Tour, but thematically it fit perfectly.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Love of the Common People"
----
 
 “Love of the Common People” was one of the rare songs Bruce performed on the Seeger Sessions Tour that originated during his own lifetime.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce often leads in to live performances of “I Wanna Marry You” with a gorgeous, unreleased song that pre-dates it by several years.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Here She Comes Walkin’"
----
 
 We’re so used to hearing it performed as a lead-in to “” (in fact, that’s the only way we’ve heard it for all of its 69 live outings), that you’d be forgiven for not realizing that “Here She Comes Walkin'” is an original Springsteen song all on its own.
 

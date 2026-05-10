@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce Springsteen’s fourth studio album becomes the first to receive the complete Roll of the Dice treatment. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Album Companion: Darkness on the Edge of Town"
----
 
 Don’t be fooled by the title: Bruce Springsteen’s fourth studio album isn’t dark… it’s just real.
 

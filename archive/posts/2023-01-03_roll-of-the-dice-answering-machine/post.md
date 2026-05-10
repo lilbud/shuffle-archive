@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This lost companion piece to “Hungry Heart” has only ever been officially released to friends and family with Bruce’s private number.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Answering Machine"
----
 
 If you weren’t on the planet during the era, here’s a quick history lesson:
 

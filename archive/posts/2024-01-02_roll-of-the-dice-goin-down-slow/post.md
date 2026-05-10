@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: In the early Steel Mill era, Bruce and the band closed their shows with a sexy band showcase called “Goin’ Down Slow.” Take a listen inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Goin’ Down Slow"
----
 
 During the early days of the Steel Mill era, Bruce and the band were known to close their shows with an extended band showcase called “Goin’ Down Slow.”
 

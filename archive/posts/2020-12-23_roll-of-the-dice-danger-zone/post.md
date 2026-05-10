@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the earliest songs Bruce wrote in the Nebraska era, the unfinished “Danger Zone” stands apart as a warm and tender ballad deserving of attention.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Danger Zone"
----
 
 We’ve listened to a lot of Bruce’s unreleased (but leaked) home demos together over the past few years, and I’ll be the first to admit that most of them are interesting only as insight into Bruce’s songwriting process and influences, or to trace the ancestry of Bruce’s released catalog back to early prototypes.
 

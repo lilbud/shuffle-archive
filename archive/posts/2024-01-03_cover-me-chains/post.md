@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: The Bruce Springsteen Band takes a swing at a girl group classic.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Chains"
----
+
 
 In December 1962, a new single by The Cookies was climbing the Billboard Hot 100.
 

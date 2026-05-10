@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Hear fans sing “Hungry Heart” to Bruce for the first time; watch Bruce give a remarkable interview to Charlie Rose; and catch Adam Sandler’s Bruce impression on SNL. These and more highlights inside, all from this date in history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 20"
----
 
 *New entry for 2006***New for 2025:**
 

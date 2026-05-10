@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Tom Morello teams up with Roger Waters and the Wounded Warriors Band for “The Ghost of Tom Joad.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Tom Morello, Roger Waters, and the Wounded Warriors Band: The Ghost of Tom Joad"
----
+
 
 On October 16, 2015, Roger Waters staged a benefit concert for MusiCorps, a non-profit that teaches music to wounded warriors.
 

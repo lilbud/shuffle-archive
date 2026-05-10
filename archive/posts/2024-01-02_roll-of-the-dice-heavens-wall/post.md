@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Who the heck would ever think to combine samba rhythm, middle eastern melody, a self-guitar duel, discordant strings, cowbell, and a gospel choir? Bruce Springsteen, that’s who!
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Heaven’s Wall"
----
 
 We know that Bruce has employed biblical imagery in his songs pretty much since he started writing them, but am I the only one who thinks it’s odd that Bruce released songs about Jonah and the whale on two albums in a row?
 

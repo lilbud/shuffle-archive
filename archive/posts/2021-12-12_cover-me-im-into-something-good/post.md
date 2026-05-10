@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: At The Back Door in Richmond, VA, 46 years ago today, Bruce played this one-time-only cover of “I’m Into Something Good” by Herman’s Hermits.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: I’m Into Something Good"
----
 
 At The Back Door in Richmond, VA, 46 years ago today, Bruce played this one-time-only cover of “I’m Into Something Good,” written by Gerry Goffin and Carole King but made famous by Herman’s Hermits.
 

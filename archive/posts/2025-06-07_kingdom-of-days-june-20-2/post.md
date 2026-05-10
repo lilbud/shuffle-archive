@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce plays Red Rocks for the first time, guest stars abound, and the legendary ten-night MSG Reunion stand continues. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 20"
----
+
 
 *New entry for 1977, 1979 and 2024***New for 2025:**
 

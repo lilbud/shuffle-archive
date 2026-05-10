@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Cover Me: From Ricki and the Flash, Meryl Streep sinks her teeth into “My Love Will Not Let You Down”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Meryl Streep(!): My Love Will Not Let You Down"
----
+
 
 Bonus today, because this is just too unlikely to feature on its own:
 

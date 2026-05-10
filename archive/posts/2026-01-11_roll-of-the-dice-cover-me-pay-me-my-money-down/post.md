@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Originally a worker protest song, “Pay Me My Money Down” became a set-closing highlight of merriment on the Seeger Sessions Tour. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Pay Me My Money Down
----
 
 It’s no surprise that Bruce chose “Pay Me My Money Down” to be the leadoff single from his 2006 album, See how much fun they’re having playing it?
 

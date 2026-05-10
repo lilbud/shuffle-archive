@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce teams up with Dropkick Murphys on their anthemic “I’m Shipping Up to Boston” on St. Patrick’s Day in 2011.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Dropkick Murphys and Bruce Springsteen, I’m Shipping Up to Boston"
----
+
 
 Dropkick Murphys co-wrote “I’m Shipping Up to Boston” with Woody Guthrie. Seriously.
 

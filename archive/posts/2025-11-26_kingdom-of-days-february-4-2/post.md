@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Listen to an outstanding Bruce Springsteen Band performance from 1972 and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 4
----
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/2016-02-04-229x300.jpg?resize=758%2C993)
 

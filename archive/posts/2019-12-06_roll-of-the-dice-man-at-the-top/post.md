@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The ultra-rare “Man at the Top” (performed only three times ever) has surprising depth beneath its simple lyrics. Written when Bruce was on the precipice of mega-stardom, the song grapples with the nature and cost of ambition.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Man at the Top"
----
 
 “This is a song that I guess fits both in Atlantic City or Washington.” — Bruce Springsteen, August 5, 1985
 

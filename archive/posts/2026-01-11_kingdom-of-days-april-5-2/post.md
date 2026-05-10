@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date in Springsteen history: the live debuts of “Secret Garden,” “I’m Turning into Elvis,” and “Blood Brothers,” a David Letterman appearance, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 5
----
+
 
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: When the city of New Orleans needed it most, Bruce found a heart of redemption in the city’s unofficial song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: When the Saints Go Marching In
----
 
 No one quite knows where “When The Saints Go Marching In” came from. Like many folk songs, it’s origins and earliest days are murky and multi-threaded. But the earliest known recording dates back to 1923 by the Paramount Jubillee Singers.
 

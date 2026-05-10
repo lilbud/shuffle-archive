@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: How a tale of 19th-century heartbreak and a 1947 Hank Williams song led to one of the most affecting tracks on Nebraska.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Mansion on the Hill"
----
 
 “This is a song about when I was a kid. My father was always transfixed… he used to drive me outside of town, there was this nice white house, used to sit up on this hill. Later on, when I thought back on it… as I got older, [the house] took on a lot of meaning for me. It became very mystical, like a touchstone.
 

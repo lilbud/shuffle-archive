@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An answer song of sorts to “If I Should Fall Behind,” Patti Scialfa’s “Town Called Heartbreak” is one of her strongest tracks and a highlight of the early Magic Tour.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Town Called Heartbreak
----
 
 “Work with me, baby.”
 

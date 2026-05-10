@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins Joe Grushecky on stage at a benefit show in Pittsburgh for a blistering guitar solo and backing vocals on Joe’s “True Companion.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Bruce Springsteen and Joe Grushecky, True Companion"
----
+
 
 Bruce Springsteen and Joe Grushecky have shared the stage together many times, but only once did they play Joe’s earnest love song “True Companion” together.
 
@@ -18,10 +12,6 @@ Curiously, even though it’s the title track, “True Companion” is the only 
 
 <http://estreetshuffle.com/wp-content/uploads/2019/04/04-True-Companion.mp3>
 
-December 2, 2004 (Pittsburgh, PA)
- December 2, 2004 (Pittsburgh, PA)
-
 **True Companion**
-First played:**  
-
-**Last played:**
+**First played:** December 2, 2004 (Pittsburgh, PA)
+**Last played:** December 2, 2004 (Pittsburgh, PA)

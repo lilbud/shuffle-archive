@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and Little Steven team-up for an encore of Marvin Gaye’s “Can I Get a Witness” at Steve’s Soulfire record release event.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Little Steven and Bruce Springsteen: Can I Get a Witness"
----
+
 
 Fans attending Little Steven’s record release show at the Count Basie Theater were no doubt delighted when Bruce Springsteen made a late on-stage appearance, but they probably weren’t surprised. Bruce often turns up when his lifelong friend performs locally.
 

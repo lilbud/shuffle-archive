@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce pays homage to (and pokes fun at) outgoing Yankees manager Joe Torre at a 2007 benefit for his Safe at Home foundation.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Yankees Win"
----
+
 
 Joe Torre is a an American baseball legend–an all-star player, New York Yankees manager, hall-of-famer, and the current chief baseball officer for Major League Baseball.
 

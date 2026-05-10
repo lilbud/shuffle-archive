@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: London-based Still Corners turn in a dream-like cover of “I’m on Fire.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Still Corners: I’m on Fire"
----
 
 Mere weeks after the release of their very first album, London-based duo Still Corners made an appearance at our local radio station KEXP here in Seattle, where they played a four-song set in the studio that wrapped with an ethereal cover of Bruce’s “.”
 

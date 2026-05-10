@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Steve Van Zandt takes the lead on a stunning cover of Willie Dixon’s “You Know My Love.” Oh, and Bruce plays on it, too.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: You Know My Love"
----
 
 If you’re a Little Steven fan, today’s entry is a true treat.
 

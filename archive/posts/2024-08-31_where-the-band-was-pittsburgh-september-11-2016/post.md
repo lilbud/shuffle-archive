@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce delivers a powerful, emotional, and cathartic communal experience at his first 9/11 show since the 2001 attacks.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Pittsburgh, September 11, 2016"
----
 
 Even coming off a run of three amazing shows in and , I had high expectations for Pittsburgh–even higher than for the previous shows, in fact.
 

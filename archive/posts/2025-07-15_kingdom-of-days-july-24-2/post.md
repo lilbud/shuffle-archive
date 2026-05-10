@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the live debut of “You Got It,” the long awaited return of “Point Blank,” a Boss-guided tour of Asbury Park, and a stunner of a show in Leeds.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 24"
----
+
 
 *New entry for 1973 and 1975; video for 2012***New for 2025:**
 

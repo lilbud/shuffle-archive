@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce backs Paul McCartney, Billy Joel, Eric Clapton, and an all-star jam band for a closing cover of “Let it Be” at the 1999 Rock and Roll Hall of Fame induction ceremony.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Let It Be
----
+
 
 Bruce Springsteen wasn’t the only Rock and Roll Hall of Fame inductee in 1999.
 

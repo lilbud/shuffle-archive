@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Singer-songwriter Aoife O’Donovan turns in a gorgeously sung and beautifully filmed performance of “Nebraska.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Aoife O’Donovan: Nebraska"
----
 
 I guess i’m in a bit of a mood this week, as this the second cover I’ve posted recently from that album.
 

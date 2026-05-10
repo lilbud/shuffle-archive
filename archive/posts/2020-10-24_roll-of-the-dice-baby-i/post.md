@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: On May 18, 1966, Bruce made his very first studio recording with his band, The Castiles. He’s come a long way since then.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Baby I"
----
 
 On May 18, 1966, a sixteen-year-old Bruce Springsteen walked into a recording studio (if you can call an in-store booth at the Brick Mall in Bricktown, New Jersey a studio) for the very first time. For a whopping sum of fifty dollars, Bruce and his band, The Castiles, cut more than a half-dozen acetates, of which a few are known to have survived.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce films the video for “Streets of Philadelphia,” Sam Moore makes an E Street cameo, and the Asbury Park holiday shows are in full swing. These and more highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 6"
----
 
 *Audio for 1974 and 1995; review for 1996; video for 2012; new entry for 2023***New for 2024:**
 

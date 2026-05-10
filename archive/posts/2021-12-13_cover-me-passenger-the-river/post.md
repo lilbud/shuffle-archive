@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Passenger stops by SiriusXM’s Studios and performs a stripped-down cover of “The River.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Passenger: The River"
----
 
 Passenger broke through in 2012 with his global hit, “Let Her Go.” About two years later, he covered Bruce’s “” during a promotional appearance at SiriusXM.
 

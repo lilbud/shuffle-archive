@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: As far as I’m concerned, Dave Alvin’s cover of “Seeds” is the definitive version of the song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Dave Alvin: Seeds"
----
 
 I love it when an artist has the respect and familiarity for Bruce’s material to go beyond his greatest hits, but also the confidence and skill to make the song their own.
 

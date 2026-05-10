@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The shows were the easy part. Thankfully, the good folks at Brucebase have them cataloged from top to bottom, so I know exactly what to…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Preface
----
 
 The shows were the easy part.
 

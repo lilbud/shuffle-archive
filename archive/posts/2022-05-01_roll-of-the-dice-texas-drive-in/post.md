@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Among the lost tracks from a lost album is this teaser of a song about a secret love.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Texas Drive-In"
----
 
 Somewhere in the vast recesses of Bruce’s vault, there may reside a legendary “lost” follow-up album to .
 

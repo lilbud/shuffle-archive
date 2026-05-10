@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce makes his first guest appearance with Patti Smith, and Patti Scialfa misses her first Broadway show with Bruce. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 26"
----
 
 No updates
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Ricky Wants a Man of Her Own” is a fun, poppy outtake from the River sessions–guaranteed to make you smile (unless you’re a parent to a teenage girl, in which case you’ll wince).
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Ricky Wants a Man of Her Own"
----
 
 Whew!
 

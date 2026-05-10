@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: We’re going obscure today… all the way back to 1973 to hear Bruce and the E Street Band cover the unofficial anthem of America’s national pastime.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Take Me Out to the Ball Game"
----
 
 Yeah, yeah. I know it’s the dead of winter (here in the northern hemisphere, at least).
 

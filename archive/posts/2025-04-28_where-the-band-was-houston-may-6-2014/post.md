@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: What a show! My best pit position ever at an unpredictable ride of rarities and crowd-pleasers. One of my favorite shows ever.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Houston, May 6, 2014"
----
 
 I just listened to this show again the other day, and I can still feel the adrenaline rush.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Bruce wraps up one Wembley stand, kicks off another, records performances for Live 1975-85, and more. Plus: Listen to a 1984 soundcheck that includes a never-played “The Good, The Bad, and The Ugly.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 6"
----
+
 
 *New entry for 1975; audio for 1985***New for 2025:**
 

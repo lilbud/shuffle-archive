@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Minnie Driver’s cover of “Hungry Heart” is more lush and romantic than Bruce’s lyrics call for, but then again so was Bruce’s original arrangement. Take a listen to her lovely version inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Minnie Driver: Hungry Heart"
----
 
 She’s much better known as an actress, but Minnie Driver’s also a singer-songwriter with three albums under her belt.
 

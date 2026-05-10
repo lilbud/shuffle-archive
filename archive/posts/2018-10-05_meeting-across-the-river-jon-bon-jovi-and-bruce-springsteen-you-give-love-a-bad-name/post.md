@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and Jon Bon Jovi team up at a benefit show to cover Bon Jovi’s first number one hit.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Jon Bon Jovi and Bruce Springsteen, You Give Love a Bad Name"
----
+
 
 On January 31, 1998, Bruce joined Jon Bon Jovi on stage at the Count Basie Theater in Red Bank at a benefit concert for the memorial fund of a slain local police officer.
 

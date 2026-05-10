@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Talk about a significant date: Bruce plays his legendary Jazz Fest show in 2006; “Dancing in the Dark” makes its reunion-era debut; MTV debuts a new documentary; and the Sunshine Blues Band debuts. Much more inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 30"
----
+
 
 *New entry for 1982; audio for 2000; video for 2023***New for 2025:**
 

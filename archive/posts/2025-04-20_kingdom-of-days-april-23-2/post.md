@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “4th of July Asbury Park (Sandy),” made its concert debut on this date, along with Bruce’s covers of “Have Love Will Travel,” “Sweet Soul Music,” and “Purple Rain.” These and many more highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: April 23"
----
 
 *New entry for 1975 and 1983; audio for 2008***New for 2025:**
 

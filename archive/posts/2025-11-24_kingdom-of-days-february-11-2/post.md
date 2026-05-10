@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce joins Marah in the studio, plays “In Freehold” *outside* Freehold for the first time, and plays three Australian shows (he knows the right time of year to go!) on this day in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 11
----
 
 The Bruce Springsteen Band headlines at Livingston College in Piscataway, New Jersey.
 

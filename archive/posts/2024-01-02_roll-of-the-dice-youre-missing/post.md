@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Written in the aftermath of 9/11, “You’re Missing” gives voice to the grief and loss we all experience sooner or later.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: You’re Missing"
----
 
 Even now, almost eighteen years later, “You’re Missing” hits like a punch to the gut.
 

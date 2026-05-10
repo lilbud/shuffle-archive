@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Yes, “My Lover Man” is a controversial song, but not because of the point-of-view character’s gender. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: My Lover Man"
----
 
 Bruce wrote “My Lover Man” for Patti Scialfa’s first album, but she decided not to use it.
 

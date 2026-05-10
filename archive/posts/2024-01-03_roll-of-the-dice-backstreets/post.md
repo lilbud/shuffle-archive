@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A forbidden love leads to a bitter betrayal in one of Bruce’s most powerful epics.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Backstreets"
----
 
 “Suki left the [E Street Band] around March 1975. She and her husband, Louis, decided to go back to Israel. Louis was our engineer and had done terrific work on the albums, as well as running sound on the live shows. I believe he got crazy because, quite simply, Bruce fell in love with Suki and she with him. She then had to get out to try and save the marriage.” — Mike Appel, (1992)*Down Thunder Road: The Making of Bruce Springsteen*
 

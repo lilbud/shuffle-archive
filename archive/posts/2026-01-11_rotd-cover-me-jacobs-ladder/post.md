@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce gives an old spiritual the Dixieland treatment and creates a setlist centerpiece in the process.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Jacob’s Ladder
----
 
 The origins of “Jacob’s Ladder” the song go back far enough (200 years, maybe more) to be lost in the distant past. The origins of the story go back much further to the Book of Genesis in the Bible.
 

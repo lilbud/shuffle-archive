@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Another date chock full of events for Bruce: From a late-night Letterman appearance to surprise bar gigs to the first performances of “Book of Dreams” and “Terry’s Song” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 2"
----
+
 
 *New entry for 1977; audio for 2002 and 2008***New for 2025:**
 

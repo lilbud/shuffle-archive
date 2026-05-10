@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Watch Bruce’s powerful rendition of Bob Dylan’s immortal “Blowin’ in the Wind” from the televised S.O.S. Racisme Concert in 1988.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Blowin’ in the Wind"
----
 
 Every musician has a list of songs they didn’t write but wished they had. I have to believe that Bob Dylan’s “Blowin’ in the Wind” is high on Bruce Springsteen’s list.
 

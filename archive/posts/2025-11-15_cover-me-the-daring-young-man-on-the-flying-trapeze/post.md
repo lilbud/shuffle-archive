@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One of the rarest gems from the Seeger Sessions Tour: a traditional yet wry arrangement of an American classic.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: The Daring Young Man on the Flying Trapeze
----
+
 
 Add this one near the top of “Songs Least Likely to Be Covered by Bruce Springsteen.”
 

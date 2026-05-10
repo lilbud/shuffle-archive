@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The Bruce cover that never was: Bette Midler recorded her version of “Pink Cadillac,” but Bruce refused to let her release it. Find out why and check out her live performance of it inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Bette Midler: Pink Cadillac"
----
+
 
 Bruce is known for being exceptionally generous with his music, allowing other artists to cover and re-interpret his music with such frequency that it’s almost impossible to keep track of the various covers that are out there.
 

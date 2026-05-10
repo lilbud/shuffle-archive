@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce and Willie Nile team up on Willie’s rock anthem “One Guitar” at Light of Day 2015.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Bruce Springsteen and Willie Nile, “One Guitar”"
----
 
 Willie Nile’s “One Guitar” won the AIM Independent Music Award for Best Social Action Song in 2013. It was well deserved. Willie’s metaphor for the power of the individual is tailor-suited for Bruce, and the two have performed it together at three Light of Day concerts over a four-year span.
 

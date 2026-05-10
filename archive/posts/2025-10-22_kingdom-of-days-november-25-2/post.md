@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce meets David Bowie, Charlie Giordano makes his official E Street Band debut, a remarkable acoustic show in Asbury Park, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: November 25"
----
+
 
 *Advertisement for 1973***New for 2025:**
 

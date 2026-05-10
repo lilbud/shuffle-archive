@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Oakland ’07 was a solid early-tour outing with a fantastic main set (if a lackluster encore)–and it was my last show with Danny Federici.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Oakland, October 26, 2007"
----
 
 My first show of the Magic tour was on a gorgeous autumn day by the Bay with good friends from the Pacific Northwest. Bruce decided to skip us on the first leg, and although we were reasonably confident we’d get a show eventually, we weren’t about to take the chance. Road trip!
 

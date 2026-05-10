@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: An outtake and afterthought from the Lucky Town sessions, “Happy” nevertheless captures the almost out-of-body contentment that’s born along with a new and growing family. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Happy"
----
 
 There are those who question the official recording date of “Happy,” cited in the liner notes as January 18, 1992.
 

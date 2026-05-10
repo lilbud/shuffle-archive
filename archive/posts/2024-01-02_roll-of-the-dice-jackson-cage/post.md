@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Jackson Cage” is a case of a theme in search of a song. It took a while for Bruce to find it, but find it he did. Let’s trace this underrated song’s winding path inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Jackson Cage"
----
 
 “Jackson Cage” may be one of the trickier songs on to interpret, but in fairness it took Bruce himself quite a while to figure out. From all available evidence, it seems like this is a case of Bruce landing a hook in search of a song.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This quiet expression of grief was the last song written for The Rising and the most frequently misunderstood.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Empty Sky"
----
 
 On the morning of September 11, 2001, with the skies so clear that the Twin Towers across the river appeared to be within reach, the very essence of what our country stands for – freedom, tolerance, and the pursuit of happiness – was attacked.
 

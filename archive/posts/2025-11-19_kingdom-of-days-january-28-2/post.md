@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Behind the scenes of “We Are the World” and the Tunnel of Love Express Tour, plus much more on this date in Springsteen history.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 28
----
 
 : The Bruce Springsteen Band plays The Captain’s Garter in Neptune, New Jersey.
 

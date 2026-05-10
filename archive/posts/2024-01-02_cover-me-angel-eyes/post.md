@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: The Boss pays tribute to the Chairman of the Board on the occasion of Sinatra’s 80th birthday.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Angel Eyes"
----
+
 
 “My first recollection of Frank’s voice was coming out of a jukebox in a dark bar on a Sunday afternoon when my mother and I went in searching for my father… I always remember she said, ‘Listen to that, that’s Frank Sinatra. He’s from New Jersey.’ It was a voice filled with bad attitude, life, beauty, excitement, a nasty sense of freedom, sex, and a sad knowledge of the ways of the world… his blues voice was always the sound of hard luck, and men late at night with the last ten dollars in their pockets, trying to figure a way out.” — Bruce Springsteen, November 19, 1995
 

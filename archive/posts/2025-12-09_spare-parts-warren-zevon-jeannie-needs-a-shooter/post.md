@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The maybe-true story of Warren Zevon’s sort-of half-cover of a lost Springsteen original.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Warren Zevon: Jeannie Needs a Shooter"
----
 
 This is an odd one.
 

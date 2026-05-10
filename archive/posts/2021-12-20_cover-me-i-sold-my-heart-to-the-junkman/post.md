@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Who made “I Sold My Heart to the Junkman” famous, and what made Bruce cover it one night in 1974? Just two of the many mysteries surrounding this classic song.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: I Sold My Heart to the Junkman"
----
 
 About the only things that I can tell you for certain about “I Sold My Heart to the Junkman” are that it was written by Leon René (who also wrote “” and other hits) under the pseudonym Jimmie Thomas, first recorded in 1946 by The Basin Street Boys…
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Way back in 2001, New Jersey-based The Razorbacks opened their live album with a cover of Bruce’s rockabilly classic.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, The Razorbacks: Stand On It"
----
 
 “” is not an easy song to cover–it’s as rockabilly as rockabilly gets, and rockabilly is a lost art form these days. But there are a few bands out there keeping rockabilly alive, and one of them hails from Pottsville, just an hour’s drive from Asbury Park.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A bonus track that could have been a title track, “Swallowed Up” is the thematic centerpiece of one of Bruce’s strongest albums.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Swallowed Up (In the Belly of the Whale)"
----
 
 When is a bonus track not a bonus track?
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday, Jay Weinberg, born on this date in 1990. Also on this date: Bruce plays The Stone Pony for the very first time, wins an MTV VMA, performs “State Trooper” live for the first time, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 8"
----
+
 
 *New entry for 1977 and 2024***New for 2025:**
 

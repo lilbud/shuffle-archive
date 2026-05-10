@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A rare performance of “Lion’s Den” and a surprise cover of Van Halen’s “Jump” lead today’s highlights.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: April 6
----
 
 Child performs at the Pandemonium in Wanamassa, New Jersey.
 

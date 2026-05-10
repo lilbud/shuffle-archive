@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Happy birthday, Patti Scialfa, born on this date in 1953! Watch Bruce wish his wife a happy birthday by premiering “Give the Girl a Kiss” in her honor. More highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 29"
----
 
 *Audio for 1999***New for 2025:**
 

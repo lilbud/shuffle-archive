@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Originally entitled “Small Town Girl,” this unusual Born in the U.S.A. outtake makes for a fine honky-tonk companion song to “Darlington County.” 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Car Wash"
----
 
 “Car Wash” is far from the only song Bruce has written from a female first-person perspective (see “,” “,” and “” for examples), but it may be the earliest, and it’s certainly the most overt: Bruce wastes no time introducing us to our heroine by name (Catherine) and drawing us into her world.
 

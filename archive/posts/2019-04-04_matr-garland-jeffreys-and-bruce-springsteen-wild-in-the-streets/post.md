@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "It’s a strange choice for a holiday show, but a great performance nonetheless: Bruce and Garland Jeffreys team up on Garland’s “Wild in the Streets.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Garland Jeffreys and Bruce Springsteen, Wild in the Streets"
----
+
 
 Garland Jeffreys and Bruce Springsteen started writing and performing around the same time, and they each released their first records in 1973. Garland’s first hit that year was “Wild in the Streets,” a gritty song about street crime.
 

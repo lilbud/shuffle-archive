@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Meet Me in the City” didn’t make it on The River, but it’s still the perfect, meta summation of Bruce’s landmark album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Meet Me in the City"
----
 
 For a song that sounds like it was written for the sole purpose of opening a Springsteen concert (which it did for almost all of Bruce’s 2016 River Tour’s American leg), “Meet Me in the City” hides surprising depth for those who pay close attention to its lyrics.
 

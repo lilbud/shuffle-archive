@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and Steve Earle team up on a Rolling Stones classic “British hillbilly song.”
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Meeting Across the River: Steve Earle and The Dukes with Bruce Springsteen, Sweet Virginia"
----
+
 
 One time only, way back in February 1998: Bruce joined Steve Earle and The Dukes on stage at Tradewinds in Sea Bright, NJ to perform a “perfectly good British hilbilly song” by The Rolling Stones.
 

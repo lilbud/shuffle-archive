@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A rich, romantic predecessor to “I’m on Fire” inspired by a 1960 Ben E. King hit single, “Spanish Eyes” deserves more airplay than it received. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Spanish Eyes"
----
 
 In the midst of the Born to Run Tour, Bruce Springsteen and his former manager Mike Appel filed mutual lawsuits that precluded Springsteen from entering a recording studio for almost a year.
 

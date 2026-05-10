@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It sticks out like a musical sore thumb, but lyrically “Burnin’ Train” is right at home on Letter to You with its theme of longevity through great sex.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Burnin’ Train"
----
 
 So the story goes that Bruce Springsteen wrote his album in a ten-day spurt of creativity, crafting nine new songs and supplementing them with three never-released older ones.
 

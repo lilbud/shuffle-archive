@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From their 2015 EP “The Living Room Sessions,” watch indie/folk/Americana trio Found Wandering’s spirited cover of Bruce’s “I’m on Fire.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Found Wandering: I’m on Fire"
----
 
 In 2015, indie/folk/Americana trio Found Wandering recorded a live EP of covers in the living room of Sarah and Colin Comstock (two members of the trio).
 

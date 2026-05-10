@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bluegrass band Salamander Crossing transformed Bruce’s Tunnel of Love deep cut for their 1996 Passion Train album.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Salamander Crossing: Two Faces"
----
 
 I’m a sucker for obscure Bruce covers and unusual arrangements; Salamander Crossing checked both boxes with their bluegrass rendition of “” on their 1996 album 
 

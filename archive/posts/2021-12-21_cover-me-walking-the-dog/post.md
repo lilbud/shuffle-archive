@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: The early E Street Band had a lot in common with the late Bruce Springsteen Band, and nowhere was that more apparent than in their cover of Rufus Thomas’ “Walking the Dog.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Walking the Dog"
----
 
 It’s tempting to define Bruce’s early career as a series of eras characterized by the band Bruce belonged to at the time. From the mid-1960s to the early 1970s, Bruce travelled from The Castiles to Earth to Child to Steel Mill to The Bruce Springsteen Band (with a Dr. Zoom and the Sonic Boom dalliance and a Sundance Blues Band detour) before finally convening the original E Street Band in late 1972.
 

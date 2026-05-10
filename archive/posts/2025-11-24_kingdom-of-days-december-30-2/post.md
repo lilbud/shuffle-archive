@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Streets of Philadelphia,” “Because the Night” and Jessica Rae Springsteen all debuted on this date. Video and more highlights inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 30"
----
 
 *No updates***New for 2025:**
 

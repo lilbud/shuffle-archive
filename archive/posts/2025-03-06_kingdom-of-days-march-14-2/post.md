@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: What’s the big highlight on a day like this? Hall of Fame performances with U2 and Darlene Love? Guest appearances with Robert Gordon and Conor Oberst? A pristinely recorded 1972 rehearsal? You decide–there’s too many to chose from.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: March 14"
----
 
 *New entry for 1978; video for 2013***New for 2025:**
 

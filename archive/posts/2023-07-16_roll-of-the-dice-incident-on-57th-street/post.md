@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Most artists spend their career working toward a pinnacle like “Incident in 57th Street.” Bruce recorded his on his 24th birthday.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Incident on 57th Street"
----
 
 Bruce recorded “Incident on 57th Street” on his 24th birthday.
 

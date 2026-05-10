@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce wins three Grammy Awards, plays his last show at the Sunshine In, and much more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: February 10
----
+
 
 Steel Mill plays the Fillmore West in San Francisco, a last minute-replacement for a band cancellation. Venue owner Bill Graham is impressed enough to invite the band back for a second gig the following week.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Highlights from Bruce Springsteen’s first-ever show in South Africa: January 26, 2014
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Cape Town 2014"
----
+
 
 On the list of things I’d never have expected to be a witness to, Bruce Springsteen kicking off his first-ever show in South Africa with a rousing singalong of “” would have ranked pretty high if it had even have occurred to me put it on the list.
 

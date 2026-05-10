@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Valentine’s Day” is a powerful counterpoint to “The River.” It may even be a sequel.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Valentine’s Day
----
 
 Buried–hidden almost–at the end of an album that primarily serves as a cautionary tale is one of Bruce’s most desperate and unabashedly romantic songs in his entire catalog.
 

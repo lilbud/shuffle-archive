@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Watch Bruce back Tina Turner one of her signature songs, then go vote her in to the Rock and Roll Hall of Fame! 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Tina Turner, Bruce Springsteen, Little Richard, Stevie Wonder, and more: River Deep – Mountain High"
----
 
 “‘River Deep — Mountain High’ is one of the greatest rock records probably ever made. And [Tina Turner] is simply one of the greatest rock singers, you know.” – *Bruce Springsteen, From My Home to Yours Volume 9*
 

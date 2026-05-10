@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce joined The Four Tops and Diana Ross at the 1990 Rock and Roll Hall of Fame induction ceremonies for the Tops’ “I Can’t Help Myself.” (I think–can’t actually pick him out. But give it try.)
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: I Can’t Help Myself
----
 
 Another one for the completists.
 

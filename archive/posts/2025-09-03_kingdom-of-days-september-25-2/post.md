@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: the release of Magic, guest appearances with U2 and Eddie Vedder, and a spectacular night with Elvis Costello. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 25"
----
+
 
 *Audio for 1996 and 1999***New for 2025:**
 

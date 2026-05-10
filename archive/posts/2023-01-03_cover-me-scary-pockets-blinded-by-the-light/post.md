@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Scary Pockets makes their third appearance on the Shuffle with their fresh and funky cover of “Blinded by the Light.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Scary Pockets: Blinded by the Light"
----
 
 I try to keep a rotating spotlight on fresh new cover artists here, but every once in a while an artist earns a second look.
 

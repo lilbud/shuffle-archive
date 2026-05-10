@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: As on-this-date highlights go, it’s hard to top Bruce’s first meeting with John Hammond. But there’s much more, including Bruce’s first guest turn with Cats on a Smooth Surface and some truly epic shows. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: May 2
----
 
 Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy birthday, Charlie Giordano and The River! Also on this date: Bruce plays an acoustic set at the first Bridge School Benefit, an epic E Street Band performance of “Better Man” with Bruce and Eddie Vedder, and much more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 13"
----
+
 
 *Video for 1980; audio for 2006; new entry for 2024***New for 2025:**
 

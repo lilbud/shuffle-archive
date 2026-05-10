@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A late, last-minute sign request leads to an ever-after show-closing encore.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Shout
----
 
 He played it so often over his last five years of touring that it’s surprising to remember that prior to the Wrecking Ball Tour, Bruce had barely covered it at all.
 

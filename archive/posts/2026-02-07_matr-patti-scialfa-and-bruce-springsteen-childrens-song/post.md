@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: A little marital creative tension and an uncredited duet vocal resulted in one of the loveliest but rarest Springsteen/Scialfa recordings–all for an important cause. 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: Children’s Song
----
 
 In 2011, Christy Turlington directed and released a documentary called , shining a spotlight on the shockingly high mortality rate for expectant mothers, particularly among women living in poverty.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce penned “This Little Girl” for Gary U.S. Bonds’ comeback album, and it worked–providing Bonds with a Top 40 (and almost a Top 10) hit, powered by the E Street Band and Bruce’s lyrics, music, and backing vocals.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: ROTD/MatR/Cover Me, Gary U.S. Bonds, Bruce Springsteen &amp; The E Street Band, This Little Girl
----
 
 The first time I ever heard “This Little Girl,” I was twelve.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce and Joe Grushecky wrote this under-the-radar song together in the summer of ’95; it keeps popping up in new forms ever since.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "RotD/MatR: Joe Grushecky and Bruce Springsteen: Idiot’s Delight"
----
 
 In the summer of 1995, Bruce joined Joe Grushecky on stage at Tradewinds on the Jersey Shore, where they debuted much of Joe’s upcoming Bruce-produced album.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Happy Birthday, Western Stars, released on this day in 2019. Plus: watch and listen to Bruce play with Phish, Neil Young, Jackson Browne, and Gary U.S. Bonds. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: June 14"
----
+
 
 *New entry for 1977, 1979, and 2024; review for 1978; video for 2006***New for 2025:**
 

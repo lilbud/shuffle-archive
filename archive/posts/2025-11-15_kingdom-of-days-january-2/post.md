@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s podcast appearance in 2017 makes national news when the topic turns to the president-elect.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: January 2
----
 
 Steel Mill starts out the year in California, where they play a gig at the Esalen Institute in Big Sur.
 

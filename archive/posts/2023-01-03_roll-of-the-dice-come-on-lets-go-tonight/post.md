@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This early draft of “Factory” has a surprising and somber depth all its own.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Come On (Let’s Go Tonight)"
----
 
 It’s always fun (for me, at least) when the dice turn up a mini-theme.
 

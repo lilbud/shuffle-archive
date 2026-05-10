@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: There are so many covers of Bruce Springsteen’s songs out there that I sometimes wonder if I’ll ever be able to catalog them all. Most…
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Jennie Abrahamson: Lift Me Up"
----
 
 There are so many covers of Bruce Springsteen’s songs out there that I sometimes wonder if I’ll ever be able to catalog them all.
 

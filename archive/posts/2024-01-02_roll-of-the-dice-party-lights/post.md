@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Part “Point Blank” and part “Jersey Girl,” this River outtake is much more than the sum of its parts.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Party Lights"
----
 
 A great chef can take a few ingredients and use them to create any number of wonderful dishes. So why shouldn’t the same be true for songwriters?
 

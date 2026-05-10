@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: This 1981-82 home demo sheds more light into the Bruce’s fascination with Robert Ford and Jesse James and the origins of “Highway Patrolman.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Robert Ford"
----
 
 Let’s see: Bruce has , recorded , and namechecked him in still another unreleased demo.
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce Springsteen’s most galvanizing anthem almost didn’t see the light of day, because it was too… Springsteenian.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: No Surrender"
----
 
 “[No Surrender] was a song I was uncomfortable with. You don’t hold out and triumph all the time in life. You compromise, you suffer defeat, you slip into life’s gray areas. But Steve [Van Zandt] talked me into putting the song on the album in the eleventh hour. He argued that the portrait of friendship and the song’s expression of the inspirational power of rock music was an important part of the picture. I don’t know if he was right or not, but it went on.” — Bruce Springsteen, (1998)*Songs*
 

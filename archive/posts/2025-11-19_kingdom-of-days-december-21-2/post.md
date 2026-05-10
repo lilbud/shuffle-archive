@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Born in the U.S.A. passes Thriller’s run on the U.S. album chart, Bruce plays his first-ever show in Toronto, and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: December 21"
----
+
 
 *No updates***New for 2025:**
 

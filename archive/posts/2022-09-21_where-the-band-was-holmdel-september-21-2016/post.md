@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: My first and surprise Bruce appearance was a tremendous show featuring Peter Wolf, Jackson Browne, and Little Steven &amp; The Disciples of Soul.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Holmdel, September 21, 2017"
----
 
 I don’t know why I was surprised when Bruce showed up at the Laid Back Festival. After all, it was essentially in his back yard (Holmdel is about a ten-minute drive from Bruce’s neighborhood), and the line-up of performers was comprised entirely of old friends (including his best friend).
 

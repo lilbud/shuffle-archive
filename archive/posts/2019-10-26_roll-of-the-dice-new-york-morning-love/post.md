@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Never recorded or performed, Bruce’s notebook lyrics for “New York Morning Love” reveal a budding 18-year-old songwriter grappling with some very adult themes.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: New York Morning Love"
----
 
 It’s time for another dip into the “” a compendium of early, unrecorded song drafts by an eighteen-year-old Bruce Springsteen(!), unbeknownst to fans until it was auctioned, allowing fans to get a peek at it.
 

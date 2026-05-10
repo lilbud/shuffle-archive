@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: On his 1982 album On the Line, Gary U.S. Bonds covers Bruce’s “Heartbreak Hotel” re-write, “Club Soul City.” 
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Gary U.S. Bonds and the E Street Band: Club Soul City"
----
 
 It started the way many of Bruce’s great songs did–with a hook.
 

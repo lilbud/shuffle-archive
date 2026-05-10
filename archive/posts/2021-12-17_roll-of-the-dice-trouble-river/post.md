@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Undeservedly obscure, “Trouble River” is a fun Human Touch-era soul rocker with deceptively dark lyrics and a long, terrific guitar solo from Bruce–this one needs more attention.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Trouble River"
----
 
 Talk about hiding in plain sight: For an officially released track, “Trouble River” remains about as obscure as they come.
 

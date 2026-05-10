@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Don’t even know where to start today–treasures abound. Listen to a gorgeous Bruce Springsteen Band performance from ’71, the earliest known performance of “New York City Serenade,” watch a delightful Copenhagen street performance, and so very much more.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: July 23"
----
 
 *Audio for 1982; video for 2009 and 2016***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s two-minute character study demo is a fascinating pre-Greetings curiosity.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: War Nurse
----
 
 The first half of 1972 found Bruce in prolific (even by his own standard) songwriting mode.
 

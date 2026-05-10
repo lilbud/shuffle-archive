@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Here’s something you don’t come across every day: an EDM remix of an acoustic cover of a minor 80s pop hit.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, EFIX, Henri Pfr, Florence Welch, and Kid Harpoon: I’m Goin’ Down"
----
+
 
 And now for something completely different.
 

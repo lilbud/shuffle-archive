@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce releases his Letter to You album, meets Bob Dylan for the first time and bids farewell to John Hammond. 
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: October 23"
----
+
 
 *New entry for 2024***New for 2025:**
 

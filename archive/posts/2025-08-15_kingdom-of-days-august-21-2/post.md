@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "Guest appearances galore on this date in history: Flo and Eddie, Little Steven and the Disciples of Soul, Marah’s Dave Bielanko, and more. Plus: the premiere of the modern arrangement of “Dancing in the Dark” and more.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: August 21"
----
+
 
 *New entry for 1979 and 2024***New for 2025:**
 

@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Bruce and Steve make a surprise guest appearance with Paul McCartney, Patti plays a solo show in Asbury Park, a judge bans Bruce from the recording studio, and k.d. lang joins Bruce, Sting, and the rest of the Human Rights Now! crew. More highlights inside.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 15"
----
+
 
 *Expanded entry and audio for 1977; new entry for 1983, 1987, 1989, 2007, and 2024***New for 2025:**
 

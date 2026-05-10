@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce’s 1998 cover of “We Shall Overcome” helps keep this most potent of protest songs alive and fresh for a new generation.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice/Cover Me: We Shall Overcome"
----
 
 *It was the most powerful song of the 20th century. It started out in church pews and picket lines, inspired one of the greatest freedom movements in U.S. history, and went on to topple governments and bring about reform all over the world. Word for word, the short, simple lyrics of “We Shall Overcome” might be some of the most influential words in the English language.*
 

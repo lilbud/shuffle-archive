@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: At an Atlanta soundcheck on the Tunnel of Love Tour, Bruce covered the musical inspiration for one his greatest anthems.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me: Don’t Let Me Be Misunderstood"
----
+
 
 Over the last week, two readers have informed me that videos like the Bruce and Steve one above no longer play for them. If this happens to you as well, please let me know in a comment, along with what type of device and browser you are using. So far it only seems to affect Mac users, but with a sample size of two, I can’t be sure. Once I have more data, I can put my hosting provider on the case. Thanks!)
 

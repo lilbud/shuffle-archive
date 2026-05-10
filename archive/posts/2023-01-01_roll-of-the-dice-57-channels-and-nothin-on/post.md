@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: It started as a lark but ended up biting social commentary. Let’s trace the curious evolution of “57 Channels.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: 57 Channels (And Nothin’ On)"
----
 
 In 2002, Bruce Springsteen released an album of songs that sounded like they were written for that post-9/11 moment, even though most of them weren’t. “” was recorded in 1994; “My City of Ruins” debuted in 2000; even “” probably originated pre-9/11.
 

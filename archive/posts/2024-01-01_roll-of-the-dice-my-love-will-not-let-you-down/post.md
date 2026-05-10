@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Springsteen’s “My Love Will Not Let You Down” – an introvert’s inner scream
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: My Love Will Not Let You Down"
----
 
 For every song that made it on a Springsteen album, there’s one (and usually a lot more) that didn’t. The man is nothing if not prolific.
 

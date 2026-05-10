@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Downbound Train” is a master class in cinematic songwriting. Let’s look at how the director skillfully crafted his “movie” inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Downbound Train"
----
 
 Of the many adjectives used to describe Bruce Springsteen’s songwriting, “cinematic” is one of the most frequent.
 

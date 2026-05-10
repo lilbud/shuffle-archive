@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "On this date: Born to Run hits #1, Bruce debuts his duet with Sting on “Every Breath You Take,” and a tantalizing audio glimpse of a still-unreleased, never-performed original song.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Kingdom of Days: September 17"
----
+
 
 *No updates***New for 2025:**
 

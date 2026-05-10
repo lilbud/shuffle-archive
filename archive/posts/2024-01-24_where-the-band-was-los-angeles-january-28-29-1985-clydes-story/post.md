@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: What was it like to be in the room at the “We Are the World” recording session? Guest-blogger Clyde Kaplan knows–he was an assistant engineer at the session, and he shares his story inside.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Where the Band Was: Los Angeles, January 28-29, 1985 (Clyde’s Story)"
----
 
 Editor's Note
 

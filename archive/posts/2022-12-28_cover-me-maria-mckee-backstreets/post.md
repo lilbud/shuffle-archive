@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: From her 2006 live album, Maria McKee delivers a powerful, beautiful cover of “Backstreets.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Cover Me, Maria McKee: Backstreets"
----
 
 Maria McKee is no stranger to Bruce’s music: when she was fronting Lone Justice in the eighties, Steve Van Zandt was a frequent collaborator, and Shane Fontayne was her bandmate. But the musical connection stayed second degree until 2006, when McKee took a crack at one of Bruce’s most enduring classics.
 

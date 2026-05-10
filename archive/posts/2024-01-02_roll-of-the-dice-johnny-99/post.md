@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "The tale of “Johnny 99” is an ironic one: on vinyl, it’s one of Bruce’s finest songwriting achievements, but on stage it loses power as it gains relevance.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Johnny 99"
----
+
 
 “The [*Nebraska*] songs had a lot of detail, so that when the band started to wail away into it, the characters got lost. Like ‘Johnny 99,’ I thought, ‘oh, that’d be great if we could do a rock version.’ But when you did that, the song disappeared.” *–Bruce Springsteen, Hot Press, November 2, 1984*
 

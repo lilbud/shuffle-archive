@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Bruce plays a beautiful, evocative mandolin and adds his backing vocals on this beautiful American Babylon deep cut.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "MatR: Joe Grushecky and Bruce Springsteen: Billy’s Waltz"
----
 
 Towards the end of Joe Grushecky’s , there’s a lovely but dark and evocative ballad.
 

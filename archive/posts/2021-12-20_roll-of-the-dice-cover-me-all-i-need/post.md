@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: One of the best full-band outtakes from the Nebraska era, the E Street Band’s recording of “All I Need” made for a fine deep cut for Gary U.S. Bonds.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice/Cover Me: All I Need"
----
 
 In the early summer of 1981, inspiration struck (as it often did), and Bruce captured it on tape in his home studio in the form of a mostly-bluffed new song called “All I Need.”
 

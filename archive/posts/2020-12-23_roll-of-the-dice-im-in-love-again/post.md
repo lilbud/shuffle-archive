@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: Welcome summer with Bruce’s tribute to 1960s girl groups, the wonderfully light “I’m in Love Again.”
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: I’m in Love Again"
----
 
 Two Bruce Springsteen Band songs in one week? You bet: it’s Memorial Day weekend, and I’m feeling summer coming on. That means it’s time to break out my BSB bootlegs, crank up the volume, and welcome the season.
 

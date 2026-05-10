@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce and Billy Joel team up on Billy’s ode to blue-collar communities. Could there be a song better suited for a Billy and Bruce duet?
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Allentown
----
+
 
 How is it possible they’ve only performed this together ?
 

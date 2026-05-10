@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: "One time only: Bruce joins an all-star array of artists for a show-closing Christmas carol at Sting and Trudie Styler’s 2016 Rainforest Benefit show.
-"
-meta-viewport: width=device-width, initial-scale=1.0
-title: Joy to the World
----
+
 
 Forgive me if I can’t pin down the original recording of today’s cover tune, but try figuring out the earliest recording of the most-published Christmas hymn in North America.
 

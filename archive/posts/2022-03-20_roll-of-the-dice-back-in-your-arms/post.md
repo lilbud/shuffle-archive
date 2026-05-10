@@ -1,10 +1,4 @@
----
-meta-author: Ken Rosen
-meta-description: “Back in Your Arms” is Bruce’s most soulful and rueful torch song, presaging themes he still grapples with today.
 
-meta-viewport: width=device-width, initial-scale=1.0
-title: "Roll of the Dice: Back in Your Arms"
----
 
 “For a long time, if I loved you or if I felt a deep attachment to you, I’d hurt you if I could.” *–Bruce Springsteen, Western Stars*
 
