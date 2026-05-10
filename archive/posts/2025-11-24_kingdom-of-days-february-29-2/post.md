@@ -8,7 +8,7 @@ Bruce and the E Street Band wrap up their three-night opening stand for the Tunn
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1988-02-29-300x262.jpg?resize=758%2C662)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Boston_Globe_Tue__Mar_1__1988_-scaled.jpg?resize=758%2C1064&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Boston_Globe_Tue__Mar_1__1988_-1-scaled.jpg?resize=758%2C1366&amp;ssl=1)
 
@@ -18,7 +18,7 @@ Bruce plays a solo acoustic show at the Symphony Hall in Birmingham, England.
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDwD2kjnWXOgedmvtxr8aLV](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDwD2kjnWXOgedmvtxr8aLV)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Birmingham_Evening_Mail_Fri__Mar_1__1996_.jpg?resize=758%2C535&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/The_Birmingham_Post_Fri__Mar_1__1996_-scaled.jpg?resize=758%2C1964&amp;ssl=1)
 

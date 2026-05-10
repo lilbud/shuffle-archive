@@ -36,14 +36,14 @@ By the end of the much-too-short Seeger Session Tour, however, both Bruce and th
 
 January 21, 2006
 (2006)
- April 20, 2006 (Asbury Park, NJ)
- November 21, 2006 (Belfast, Northern Ireland)
+April 20, 2006 (Asbury Park, NJ)
+November 21, 2006 (Belfast, Northern Ireland)
 
 **Jacob’s Ladder**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *We Shall Overcome: The Seeger Sessions*   
-**First performed:**  
-**Last performed:**
+**Released:** *We Shall Overcome: The Seeger Sessions* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © April 18, 2019

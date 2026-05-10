@@ -111,14 +111,14 @@ Most listeners would have probably heard it as a sweet romantic pledge that woul
 Given Bruce’s distaste for the song, it’s not surprising that he hasn’t played “The Way” in concert. With Bruce, we’ve learned to never say never, but I’d lay very long odds against us hearing this one live.
 
 August 1977 – February 1978
- (2010)
+(2010)
 
 **The Way**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Promise*  
+**Released:** *The Promise*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

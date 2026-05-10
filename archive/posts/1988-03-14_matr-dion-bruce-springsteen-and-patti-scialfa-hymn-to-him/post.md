@@ -19,8 +19,8 @@ Patti’s husband was taken by it, too–so much so that he was moved to add his
 And while it doesn’t seem like a live performance is on the horizon any time soon, we can be grateful for one more beautiful piece of music from an otherwise mostly quiet year.
 
 **Hymn to Him**
-**Recorded:** Unknown  
-**Released:** *Blues With Friends* (2020)  
+**Recorded:** Unknown<br>
+**Released:** *Blues With Friends* (2020)<br>
 **Never performed**
 
 © April 26, 2021

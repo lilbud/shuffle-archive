@@ -65,10 +65,10 @@ Just make sure you turn to the solo version.
 [Watch on Youtube: Bruce Springsteen - I Wish I Were Blind (Herning 2013-05-16)](https://www.youtube.com/watch?v=23abo1QRmfo)
 
 **I Wish I Were Blind**
-**Recorded:** September 1989 – March 1991
-**Released:** *Human Touch* (1992)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** February 23, 2014 (Hunter Valley, Australia)
+**Recorded:** September 1989 – March 1991<br>
+**Released:** *Human Touch* (1992)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** February 23, 2014 (Hunter Valley, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 

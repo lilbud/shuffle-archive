@@ -187,9 +187,9 @@ With luck, Bruce and the E Street Band will be back out on the road next year, a
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=g_9_r4r4nFI)
 
 **Dancing in the Dark**
-**Recorded:** February 14 – March 8, 1984  
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
-**First performed:** May 26, 1984 (Asbury Park, NJ)  
-**Last performed:** July 3, 2025 (Milan, Italy)
+**Recorded:** February 14 – March 8, 1984<br>
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** May 26, 1984 (Asbury Park, NJ)<br>
+**Last performed:** July 3, 2025 (Milan, Italy)<br>
 
 © December 25, 2021

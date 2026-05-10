@@ -74,15 +74,14 @@ Bruce didn’t forget about “You Mean So Much to Me” altogether, though: in 
 Look for that story coming soon.
 
 July 10, 1971 (Lincroft, NJ)
- May 13, 1977 (Red Bank, NJ)
+May 13, 1977 (Red Bank, NJ)
 
 **You Mean So Much to Me**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

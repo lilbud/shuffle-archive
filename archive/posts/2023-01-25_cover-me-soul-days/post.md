@@ -29,8 +29,8 @@ Bruce has only performed a few songs from *Only the Strong Survive* as of this w
 After all, like Springsteen himself said, "It almost sounds like it could have been one of my tunes."
 
 **Soul Days**
-**Recorded:** 2021
-**Released:** *Only the Strong Survive* (2022)
+**Recorded:** 2021<br>
+**Released:** *Only the Strong Survive* (2022)<br>
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

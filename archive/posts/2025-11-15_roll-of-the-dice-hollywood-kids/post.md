@@ -45,7 +45,7 @@ April 1972
 
 
 **Hollywood Kids**
-**Recorded:**  
+**Recorded:**<br>
 
 **Never released**  
 **Never performed**

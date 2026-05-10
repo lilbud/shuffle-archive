@@ -234,16 +234,15 @@ But ten years, twenty years, thirty years, forty years burning down the road, it
 
 April 27-May 3, 1984
 (1984)
- June 8, 1984 (Asbury Park, NJ)
- July 6, 2023 (London, England)
+June 8, 1984 (Asbury Park, NJ)
+July 6, 2023 (London, England)
 
 **Born in the U.S.A.**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Born in the U.S.A.*   
-**First performed:**  
-**Last performed:**
+**Released:** *Born in the U.S.A.* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -67,12 +67,11 @@ Still haven’t had enough “Crush on You?” Check out these outtakes–nothin
 1979-1980 (1980)October 3, 1980 (Ann Arbor, MI)July 28, 2016 (Oslo, Norway)
 
 **“Crush on You”**
-**Recorded:**   
- **Released:**   
-*The River* **First performed:**   
- **Last performed:**   
+**Recorded:** <br>
+**Released:** <br>
+*The River* **First performed:** <br>
+**Last performed:** <br>
 
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

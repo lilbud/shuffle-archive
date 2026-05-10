@@ -104,16 +104,15 @@ And the backing track barrels forward with the power of Bruce’s most ardent an
 So come on, Bruce: Bring “American Beauty” to the stage on your next tour. You couldn’t have known it when you wrote it, but it’s more relevant today than ever.
 
 early 2013
- (2014)
+(2014)
 April 19, 2014 (soundcheck only)
 April 19, 2014 (soundcheck only)
 
 **American Beauty**  
-**Recorded:**  
-**Released:** *American Beauty*  
-**First performed:**   
-**Last performed:**
+**Recorded:**<br>
+**Released:** *American Beauty*<br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

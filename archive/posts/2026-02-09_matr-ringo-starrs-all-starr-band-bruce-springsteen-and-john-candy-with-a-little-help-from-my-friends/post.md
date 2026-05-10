@@ -11,7 +11,7 @@ The original song, of course, was one of The Beatles’ rare singles with Ringo 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=0C58ttB2-Qg)
 
 **With a Little Help From My Friends**
-**First performed:** September 30, 1967 (Freehold, NJ)  
-**Last performed:** August 11, 1989 (Holmdel, NJ)
+**First performed:** September 30, 1967 (Freehold, NJ)<br>
+**Last performed:** August 11, 1989 (Holmdel, NJ)<br>
 
 © June 3, 2018

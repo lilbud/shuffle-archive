@@ -187,17 +187,15 @@ But when the band traveled to Europe and abandoned the full-album concept, “Me
 Will we hear from “Meet Me in the City” again? That remains to be seen–but if we do, I’m betting the album it represents will shortly follow.
 
 June 14, 1979 (backing track), 2015 (vocals)
- (2015)
- December 19, 2015 (New York City, NY)
- July 28, 2016 (Oslo, Norway)
+(2015)
+December 19, 2015 (New York City, NY)
+July 28, 2016 (Oslo, Norway)
 
 **Meet Me in the City**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The River: Outtakes*  
-**First performed:**  
-**Last performed:**
+**Released:** *The River: Outtakes*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -24,14 +24,8 @@ This is a beautifully captured clip–we can viscerally feel the energy in the r
 
 This is a live team-up we need to see again someday soon.
 
-2010
- (2011)
- March 18, 2011 (Boston, MA)
- March 18, 2011 (Boston, MA)
-
-**Peg o’ My Heart**
-**Recorded:**  
-
-**Released:***Going Out in Style*   
-**First performed:**  
-**Last performed:**
+**Peg o’ My Heart**<br>
+**Recorded:** 2010<br>
+**Released:***Going Out in Style* (2011)<br>
+**First performed:** March 18, 2011 (Boston, MA)<br>
+**Last performed:** March 18, 2011 (Boston, MA)<br>

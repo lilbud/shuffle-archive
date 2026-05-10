@@ -44,8 +44,8 @@ And very much relevant today.
 We're still waiting to hear "Life Itself" performed live; Bruce has yet to premiere it. But if we ever get that long-rumored solo tour after his Broadway run is finished, I nominate it for a setlist staple–I suspect it'll still be relevant by then.
 
 **Life Itself**
-**Recorded:** 2007-2008
-**Released:** "Life Itself" (single) (2008); *Working on a Dream* (2009)
+**Recorded:** 2007-2008<br>
+**Released:** "Life Itself" (single) (2008); *Working on a Dream* (2009)<br>
 **Never Performed**
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

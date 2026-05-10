@@ -25,6 +25,6 @@ That show was essentially the rehearsal for the U.S. leg of the Tour. Bruce and 
 April 6, 2014 (Dallas, TX)
 May 19, 2014 (Uncasville, CT)
 
-**Jump** **First performed:**  
+**Jump** **First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

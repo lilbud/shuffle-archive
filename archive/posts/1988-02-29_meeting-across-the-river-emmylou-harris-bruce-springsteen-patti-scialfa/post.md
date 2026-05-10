@@ -7,8 +7,8 @@ We’ve featured Emmylou on the blog several times over the years, always spotli
 So it’s surprising that this turn-of-the-century track so deep into their careers marks their first studio collaboration, but the wait resulted in a beautiful song.
 
 **Tragedy**
-**Recorded:** March 20, 2000  
-**Released:** *Red Dirt Girl* (2000)  
+**Recorded:** March 20, 2000<br>
+**Released:** *Red Dirt Girl* (2000)<br>
 **Never performed**
 
 © January 17, 2018

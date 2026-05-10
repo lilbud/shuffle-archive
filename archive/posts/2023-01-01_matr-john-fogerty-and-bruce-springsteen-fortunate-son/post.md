@@ -33,9 +33,9 @@ But while almost every post-Reunion era Springsteen performance of “Fortunate 
 [https://www.youtube.com/embed/BXTMhDJD3vk?feature=oembed](https://www.youtube.com/embed/BXTMhDJD3vk?feature=oembed)
 
 August 9, 1987 (Asbury Park, NJ)
- November 11, 2014 (Washington, DC)
+November 11, 2014 (Washington, DC)
 
 **Fortunate Son**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -128,16 +128,16 @@ As much as I adore the entire album, I’m perfectly content for Bruce to omit t
 
 2010-2019
 (2019)
- April 2019
- April 2019
+April 2019
+April 2019
 
 **There Goes My Miracle**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Western Stars*   
-**First performed:**  
-**Last performed:**
+**Released:** *Western Stars* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -74,8 +74,8 @@ Before we leave, there's something else worth pointing out about "Party Lights."
 [Watch Video Highlight](https://videopress.com/embed/C66uAIaH)
 
 **Party Lights**
-**Recorded:** October 8, 1979
-**Released:** *The Ties That Bind: The River Collection* (2015)
+**Recorded:** October 8, 1979<br>
+**Released:** *The Ties That Bind: The River Collection* (2015)<br>
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

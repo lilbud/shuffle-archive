@@ -123,9 +123,9 @@ I'll leave you with one of my favorite performances of "Human Touch," from Adela
 [Watch on Youtube: Bruce Springsteen | Human Touch - Adelaide - 11/02/2014](https://www.youtube.com/watch?v=jyBfhpiZsSc)
 
 **Human Touch**
-**Recorded:** Spring 1990
-**Released:** *Human Touch* (1992) (edited versions appear on *Greatest Hits* and *The Essential Bruce Springsteen* as well)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** April 28, 2023 (Barcelona, Spain)
+**Recorded:** Spring 1990<br>
+**Released:** *Human Touch* (1992) (edited versions appear on *Greatest Hits* and *The Essential Bruce Springsteen* as well)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** April 28, 2023 (Barcelona, Spain)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

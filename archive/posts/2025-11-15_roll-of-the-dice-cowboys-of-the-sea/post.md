@@ -82,14 +82,14 @@ In the end, “Cowboys of the Sea” is little more than a footnote in Bruce’s
 
 April – July 1972
 
- February 4, 1972 (Richmond, VA)
- February 25, 1972 (Richmond, VA)
+February 4, 1972 (Richmond, VA)
+February 25, 1972 (Richmond, VA)
 
 **Cowboys of the Sea**
-**Recorded:**  
+**Recorded:**<br>
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © September 17, 2021

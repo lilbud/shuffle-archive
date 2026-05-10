@@ -74,15 +74,14 @@ He took that notion to heart–over the course of the Ghost of Tom Joad Tour, he
 But “I’m Turning Into Elvis” was where it started. One wonders just how many other variations are scrawled through the pages of Bruce’s notebook, unheard except for the hotel guests in the room next door.
 
 April 5, 1995 (New York City, NY)
- November 19, 1996 (Memphis, TN)
+November 19, 1996 (Memphis, TN)
 
 **I’m Turning Into Elvis**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

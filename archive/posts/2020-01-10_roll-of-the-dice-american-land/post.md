@@ -135,9 +135,9 @@ Bruce has been off the road ever since, but I have to imagine that if the rumore
 We certainly need the reminder.
 
 **American Land**
-**Recorded:** ?
-**Released:** [*We Shall Overcome: The Seeger Sessions: American Land Edition*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)(2006);[*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)(2011)
-**First performed:** June 22, 2006 (New York City, NY)
-**Last performed:** May 29, 2020 (Boston, MA)
+**Recorded:** ?<br>
+**Released:** [*We Shall Overcome: The Seeger Sessions: American Land Edition*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)(2006);[*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)(2011)<br>
+**First performed:** June 22, 2006 (New York City, NY)<br>
+**Last performed:** May 29, 2020 (Boston, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

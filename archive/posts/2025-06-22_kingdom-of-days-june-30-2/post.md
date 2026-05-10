@@ -26,7 +26,7 @@ Night Two in Paris on the Born in the U.S.A. Tour features the last performance 
 
 [https://videopress.com/embed/HCJT03pP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HCJT03pP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Press_of_Atlantic_City_1985_07_07_55.jpg?resize=758%2C716&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Press_of_Atlantic_City_1985_07_07_57.jpg?resize=758%2C547&amp;ssl=1)
 
@@ -108,7 +108,7 @@ That evening, continues its return engagement at the St. James Theater in New Yo
 
 *Springsteen on Broadway*
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/2021-0630a.jpg?resize=399%2C532&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/2021-0630b.jpg?resize=400%2C500&amp;ssl=1)
 

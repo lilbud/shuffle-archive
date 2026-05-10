@@ -43,9 +43,9 @@ Here’s that much, much, better cover of “Shake, Rattle and Roll” — the l
 [https://www.youtube.com/embed/JUpCYsHNGfA?feature=oembed](https://www.youtube.com/embed/JUpCYsHNGfA?feature=oembed)
 
 September 2, 1995 (Cleveland, OH)
- July 5, 2013 (Mönchengladbach, Germany)
+July 5, 2013 (Mönchengladbach, Germany)
 
 **Shake, Rattle and Roll**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

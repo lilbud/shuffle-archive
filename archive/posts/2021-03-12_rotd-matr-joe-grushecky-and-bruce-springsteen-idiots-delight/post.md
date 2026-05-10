@@ -33,9 +33,9 @@ For an under-the-radar song. "Idiot's Delight" has enjoyed a few different incar
 Will we hear it performed live again someday? Well, this past year would have been a perfectly suited window for it. Even so, while we might be collectively smartening up a bit at the moment, it's not a stretch to imagine we may need a reminder someday soon.
 
 **Idiot's Delight**
-**Recorded:** Unknown
-**Released:** *Coming Home* (1997) (Joe's version); Unreleased (Bruce's version)
-**First performed:** March 2, 1998 (Pittsburgh, PA)
-**Last performed:** October 28, 2005 (Boston, MA)
+**Recorded:** Unknown<br>
+**Released:** *Coming Home* (1997) (Joe's version); Unreleased (Bruce's version)<br>
+**First performed:** March 2, 1998 (Pittsburgh, PA)<br>
+**Last performed:** October 28, 2005 (Boston, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

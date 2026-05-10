@@ -90,9 +90,9 @@ Bruce also issued "Rocky Ground" as the second single from [*Wrecking Ball*](htt
 Even so, "Rocky Ground" vanished after the Wrecking Ball Tour (save for a single encore at the very beginning of the High Hopes Tour), too pensive for the celebratory tour that followed. But in the years since the last full E Street Band outing, the world has traveled over some seriously rocky ground, and Bruce's song seems more timely than ever.
 
 **Rocky Ground**
-**Recorded:** 2011
-**Released:** *Wrecking Ball* (2012)
-**First performed:** March 9, 2012 (New York City, NY)
-**Last performed:** January 29, 2014 (Cape Town, South Africa)
+**Recorded:** 2011<br>
+**Released:** *Wrecking Ball* (2012)<br>
+**First performed:** March 9, 2012 (New York City, NY)<br>
+**Last performed:** January 29, 2014 (Cape Town, South Africa)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

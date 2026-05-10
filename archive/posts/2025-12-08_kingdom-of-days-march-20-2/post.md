@@ -48,7 +48,7 @@ Joe Grushecky guest-stars for a final encore of “Raise Your Hand” as the Tun
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-20.jpg?resize=470%2C821&amp;ssl=1)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1988-0320.jpg?resize=430%2C1000&amp;ssl=1)
 

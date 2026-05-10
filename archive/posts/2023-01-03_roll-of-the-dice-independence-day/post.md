@@ -2,19 +2,19 @@
 
 “I grew up in this little town, and as I got older, I started looking around me and it didn´t seem like there was any way I was gonna get out of there. Because I looked back at my father, and the only time he´d ever gotten out of that town was to go to World War II. And then when he came out of the army, he got married and he settled down and went to work in a plastics factory. And his father had done the same thing.
 
- 
+
 
 It seemed that the one thing that we had in common was that we didn’t have enough information. We didn’t have enough knowledge about the things and the forces that were controlling our lives. And I watched my old man end up a victim and he didn´t even know it.” — **Bruce Springsteen, May 7, 1981**
 
- 
+
 
 “When I was sixteen or seventeen, it was hard for me to understand what [my father’s] life was like. How he’d gotten married so young. When I was living at home… he wasn’t much older than I am right now, and he’d been working in this factory for ten years already. He had to put up with all the humiliation the world puts you through living like that. When I moved away when I was eighteen, I was sure that I was never gonna miss him. And for a long time I never did.
 
- 
+
 
 It took us 30 years just to be able to tell each other that we loved each other. And it’s just silly to wait that long. If you got folks at home, you oughta try talking to them sometime. They probably need it, you know.” — **Bruce Springsteen, May 8, 1981**
 
- 
+
 
 There’s a famous optical illusion called “My Wife and My Mother-in-Law.”
 
@@ -188,15 +188,15 @@ The original recording of “Independence Day” featured a longer instrumental 
 Autumn 1977 – April 1980
 (1980)
 uly 7, 1978 (Los Angeles, CA)
- August 23, 2016 (East Rutherford, NJ)
+August 23, 2016 (East Rutherford, NJ)
 
 **Independence Day**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The River*   
+**Released:** *The River* <br>
 **First performed: J**  
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

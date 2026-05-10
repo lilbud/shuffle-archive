@@ -81,7 +81,7 @@ By the time Bruce embarked on another acoustic tour almost a decade later, he'd 
 **Sell It and They Will Come**
 **Never recorded**
 **Never released**
-**First performed:** January 10, 1996 (Detroit, MI)
-**Last performed:** December 6, 1996 (Birmingham, AL)
+**First performed:** January 10, 1996 (Detroit, MI)<br>
+**Last performed:** December 6, 1996 (Birmingham, AL)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

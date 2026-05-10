@@ -31,9 +31,9 @@ So why no repeat performances since?
 Well… you really got me.
 
 January 17, 1990 (New York City, NY)
- May 5, 2009 (Charlottesville, VA)
+May 5, 2009 (Charlottesville, VA)
 
 **You Really Got Me**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

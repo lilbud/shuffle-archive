@@ -7,9 +7,9 @@ It’s the only time Bruce has performed this song to date.
 [https://www.youtube.com/embed/30DrA9_lIwc?feature=oembed](https://www.youtube.com/embed/30DrA9_lIwc?feature=oembed)
 
 June 26, 1993
- June 26, 1993
+June 26, 1993
 
 **Lonesome Valley**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

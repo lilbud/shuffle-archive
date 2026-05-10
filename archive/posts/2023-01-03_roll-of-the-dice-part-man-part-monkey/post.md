@@ -94,16 +94,16 @@ It’s still a fun song, though, and one that acknowledges an elemental truth: y
 
 January 1990
 (1998), (1999)
- February 25, 1988 (Worcester, MA)
- August 19, 2008 (Hershey, PA)
+February 25, 1988 (Worcester, MA)
+August 19, 2008 (Hershey, PA)
 
 **Part Man, Part Monkey**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *Tracks* *18 Tracks*  
-**First performed:**  
-**Last performed:**
+**Released:** *Tracks* *18 Tracks*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

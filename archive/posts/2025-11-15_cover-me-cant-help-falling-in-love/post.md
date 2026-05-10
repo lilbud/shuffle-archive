@@ -78,11 +78,11 @@ But when a fan requested it on the Working on a Dream Tour, Bruce and the band r
 It’s been more than a decade since Bruce last played “Can’t Help Falling in Love,” but a song that’s made 65 appearances across five separate tours can never be counted out.
 
 April 18, 1981 (Paris, France)
- November 10, 2009 (Cleveland, OH)
+November 10, 2009 (Cleveland, OH)
 
 **Can’t Help Falling in Love**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) May 6, 2021

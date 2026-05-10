@@ -13,8 +13,8 @@ Bruce has never covered “Slow Down” in concert, but he did perform it once, 
 [https://www.youtube.com/embed/J1NXrCA2DOc?feature=oembed](https://www.youtube.com/embed/J1NXrCA2DOc?feature=oembed)
 
 August 26, 1994 (Westwood, NJ)
- August 26, 1994 (Westwood, NJ)
+August 26, 1994 (Westwood, NJ)
 
 **Slow Down**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

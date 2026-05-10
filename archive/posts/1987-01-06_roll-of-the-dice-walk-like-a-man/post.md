@@ -72,9 +72,9 @@ In a brilliant stroke, Bruce switches mid-song from the electric to acoustic pia
 [Watch on Youtube: Walk Like A Man (solo piano) Bruce Springsteen 8/1/2005 Cincinnati, OH](https://www.youtube.com/watch?v=LwNPvRvFhKg)
 
 **Walk Like a Man**
-**Recorded:** January 20, 1987
-**Released:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) (1987)
-**First performed:** February 25, 1987 (Worcester, MA)
-**Last performed:** August 1, 2005 (Cincinnati, OH)
+**Recorded:** January 20, 1987<br>
+**Released:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) (1987)<br>
+**First performed:** February 25, 1987 (Worcester, MA)<br>
+**Last performed:** August 1, 2005 (Cincinnati, OH)<br>
 
 (c) July 21, 2018

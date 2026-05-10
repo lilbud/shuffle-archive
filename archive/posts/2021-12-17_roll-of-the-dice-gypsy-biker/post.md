@@ -87,16 +87,15 @@ In the clip below, only days after Danny’s passing, you can see and hear the i
 
 March-May 2007
 (2007)
- September 27, 2007 (Asbury Park, NJ)
- May 5, 2009 (Charlottesville, VA)
+September 27, 2007 (Asbury Park, NJ)
+May 5, 2009 (Charlottesville, VA)
 
 **Gypsy Biker**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Magic*   
-**First performed:**  
-**Last performed:**
+**Released:** *Magic* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

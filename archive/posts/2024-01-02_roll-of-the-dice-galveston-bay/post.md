@@ -109,17 +109,16 @@ Here’s that rarely seen performance–to my knowledge, it’s the only profess
 [https://videopress.com/embed/5Cf6O411?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5Cf6O411?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 March-August 1995
- (1995)
- November 21, 1995 (New Brunswick, NJ)
- September 25, 2009 (New York City, NY)
+(1995)
+November 21, 1995 (New Brunswick, NJ)
+September 25, 2009 (New York City, NY)
 
 **Galveston Bay**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***The Ghost of Tom Joad*   
-**First performed:**  
-**Last performed:**
+**Released:***The Ghost of Tom Joad* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

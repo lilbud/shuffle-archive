@@ -2,31 +2,31 @@
 
 After the Border Patrol van departed carrying the boys who did not run fast enough, Carlitos whistled, the sound echoing in the park beneath sun-glazed downtown office towers.
 
- 
+
 
 “They’re gone!” he shouted in Spanish, inhaling a blast of Octane Booster–a gasoline additive and makeshift drug–from a Coke can. “I chased them off.”
 
- 
+
 
 A dozen youths emerged warily from the trees: homeless illegal immigrants who earn a living in a verdant corner of Balboa Park where the cars circle day and night. Where the drivers in business suits and BMWs seek out children who survive by prostituting themselves and selling drugs.
 
- 
+
 
 Unfazed by the Border Patrol raid, the diminutive Carlitos, 14, led the way through the brush as he described the suburban home of a man who picked him up recently.
 
- 
+
 
 “He has Super-Nintendo, a video, a big television, a pool,” he exclaimed, black hair falling in his eyes. “Like the movies.”
 
- 
+
 
 Carlitos reached a freeway interchange that cuts through the park and gestured at a row of blankets in the dirt where he sleeps beneath a concrete bridge. “We’re from Tijuana, Sinaloa, Mexico City, Guadalajara, Honduras,” he said. “This is our new house.”
 
- 
+
 
 Carlitos and his friends are the children of the border.
 
- 
+
 
 *–Sebastian Rotella, “” — Los Angeles Times, April 3, 1993*[Children of the Border](https://www.latimes.com/archives/la-xpm-1993-04-03-mn-18653-story.html)
 
@@ -96,17 +96,16 @@ Bruce performed “Balboa Park” nightly throughout the Ghost of Tom Joad Tour,
 There were as many as fifty boys in Rotella’s original 1993 article. More than a quarter-century on, who knows where or who those boys are now? We don’t, and that’s just one more haunting aspect of “Balboa Park.”
 
 March-August 1995
- (1995)
- November 21, 1995 (New Brunswick, NJ)
- May 26, 1997 (Paris, France)
+(1995)
+November 21, 1995 (New Brunswick, NJ)
+May 26, 1997 (Paris, France)
 
 **Balboa Park**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Ghost of Tom Joad*  
-**First performed:**  
-**Last performed:**
+**Released:** *The Ghost of Tom Joad*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

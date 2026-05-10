@@ -70,9 +70,9 @@ But the full-on E Street Band version shines too. I’ll leave you with a great 
 [https://www.youtube.com/embed/aX6dOswftlc?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/aX6dOswftlc?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Lucky Town**  
-**Recorded:** September 1992-January 1992  
-**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003)  
-**First performed:** May 6, 1992 (New York City, NY)  
-**Last performed:** January 26, 2026 (Red Bank, NJ)
+**Recorded:** September 1992-January 1992<br>
+**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** January 26, 2026 (Red Bank, NJ)<br>
 
 © May 24, 2019

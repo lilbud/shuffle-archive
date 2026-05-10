@@ -11,7 +11,7 @@ As for the original song, that was Roy's first big hit upon its release in the s
 Despite the song's popularity and Bruce's lifelong admiration of Roy, though, that all-star line-up in 1987 represents the only time Bruce has ever performed "Only the Lonely" live.
 
 **Only the Lonely (Know the Way I Feel)**
-**First performed:** September 30, 1987 (Los Angeles, CA)
-**Last performed:** September 30, 1987 (Los Angeles, CA)
+**First performed:** September 30, 1987 (Los Angeles, CA)<br>
+**Last performed:** September 30, 1987 (Los Angeles, CA)<br>
 
 Watch more great performances from *Roy Orbison and Friends: A Black & White Night* [here](https://estreetshuffle.com/?s=orbison+black+white+night).

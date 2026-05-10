@@ -16,5 +16,5 @@ Listen to Bruce Springsteen and the E Street Band (featuring stunningly soaring 
 
 [Watch on Youtube: Bruce Springsteen - A CHANGE IS GONNA COME 1988 (audio)](https://www.youtube.com/watch?v=qINrDuYTdDI)
 
-**A Change Is Gonna Come****First performed:** March 22, 1988 (soundcheck only)
-**Last performed:** Match 22, 1988 (soundcheck only)
+**A Change Is Gonna Come****First performed:** March 22, 1988 (soundcheck only)<br>
+**Last performed:** Match 22, 1988 (soundcheck only)<br>

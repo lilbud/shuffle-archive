@@ -2,7 +2,7 @@
 
 “It’s basically about sex.” — *Bruce Springsteen, February 20, 2003*
 
- 
+
 
 “Don’t overthink the whole thing.” — *Bruce Springsteen, April 4, 2005*
 
@@ -198,14 +198,14 @@ If there is any segment of E Street Nation that doesn’t care for “Blinded by
 
 September 11, 1972
 (1973), (2003)
- December 7, 1972 (New York City, NY)
- September 15, 2024 (Asbury Park, NJ)
+December 7, 1972 (New York City, NY)
+September 15, 2024 (Asbury Park, NJ)
 
 **Blinded by the Light**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Greetings From Asbury Park, N.J.* *The Essential Bruce Springsteen*  
-**First performed:**  
-**Last performed:**
+**Released:** *Greetings From Asbury Park, N.J.* *The Essential Bruce Springsteen*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © January 1, 2023

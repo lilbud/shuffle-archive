@@ -33,11 +33,11 @@ Take a listen to Bruce’s own version of “” and hear for yourself.
 [https://www.youtube.com/embed/S2WWQAvS_6I?feature=oembed](https://www.youtube.com/embed/S2WWQAvS_6I?feature=oembed)
 
 December 2, 1975 (Boston, MA)
- December 11, 1975 (South Orange, NJ)
+December 11, 1975 (South Orange, NJ)
 
 **Party Lights**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) June 1, 2022

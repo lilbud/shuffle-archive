@@ -42,9 +42,9 @@ February 11, 2002
 (2002)
 
 **Float Away**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Float Away With the Friday Night Gods*   
+**Released:** *Float Away With the Friday Night Gods* <br>
 **Never performed**
 
 © August 11, 2020

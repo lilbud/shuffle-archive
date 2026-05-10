@@ -212,16 +212,16 @@ Although “Backstreets” functions best as a full-band showcase, on rare occas
 
 July 18, 1975
 (1975)
- August 8, 1975 (Akron, OH)
- September 3, 2023 (East Rutherford, NJ)
+August 8, 1975 (Akron, OH)
+September 3, 2023 (East Rutherford, NJ)
 
 **Backstreets**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Born to Run*   
-**First performed:**  
-**Last performed:**
+**Released:** *Born to Run* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

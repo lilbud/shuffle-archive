@@ -80,9 +80,9 @@ Bruce has played "My Beautiful Reward" 127 times to date, but surprisingly only 
 A return engagement is a long shot at this point. "[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)" seems to have taken its place, a more fitting send-off at this late stage of Bruce's career. Still, one never knows–as long as Bruce keeps writing and releasing new music, the search continues.
 
 **My Beautiful Reward**
-**Recorded:** Late 1991
-**Released:** *Lucky Town* (1992)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** May 23, 2014 (Pittsburgh, PA)
+**Recorded:** Late 1991<br>
+**Released:** *Lucky Town* (1992)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** May 23, 2014 (Pittsburgh, PA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

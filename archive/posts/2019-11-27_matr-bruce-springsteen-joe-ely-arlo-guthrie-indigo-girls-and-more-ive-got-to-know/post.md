@@ -13,8 +13,8 @@ Here’s the original for comparison:
 [https://www.youtube.com/embed/A_f1nlorvU0?feature=oembed](https://www.youtube.com/embed/A_f1nlorvU0?feature=oembed)
 
 September 29, 1996 (Cleveland, OH)
- September 29, 1996 (Cleveland, OH)
+September 29, 1996 (Cleveland, OH)
 
 **I’ve Got to Know**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

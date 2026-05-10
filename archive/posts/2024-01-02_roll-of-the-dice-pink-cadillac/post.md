@@ -68,7 +68,7 @@ It’s also even more overt than the finished version, which you might not have 
 *Can you imagine what would have happened if she’d just stepped back*  
 *And showed him her pink Cadillac*
 
- 
+
 
 [https://www.youtube.com/embed/61R5ECzHMiM?feature=oembed](https://www.youtube.com/embed/61R5ECzHMiM?feature=oembed)
 
@@ -193,16 +193,15 @@ The officially released version of “Pink Cadillac” includes a fade-out endin
 
 May 31, 1983 – original, November 2003 – Jerry Lee Lewis cover
 (1984) (1998), (1999) – original, (2006) – Jerry Lee Lewis cover
- July 1, 1984 (St. Paul, MN)
- December 13, 2021 (New York City, NY)
+July 1, 1984 (St. Paul, MN)
+December 13, 2021 (New York City, NY)
 
 **Pink Cadillac**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Dancing in the Dark* *, Tracks**18 Tracks**Last Man Standing*   
-**First performed:**  
-**Last performed:**
+**Released:** *Dancing in the Dark* *, Tracks**18 Tracks**Last Man Standing* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

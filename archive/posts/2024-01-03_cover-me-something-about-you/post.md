@@ -27,9 +27,9 @@ Bruce’s arrangement was pretty faithful to the original–a bit brighter, than
 Springsteen never did get around to performing it on stage, then or ever. But then again, Bruce hasn’t toured since shortly after revealing his desert island influences, so don’t count out a Four Tops appearance in his set list in 2023.
 
 January 28, 1988 (Fort Monmouth, NJ) (soundcheck only)
- January 28, 1988 (Fort Monmouth, NJ) (soundcheck only)
+January 28, 1988 (Fort Monmouth, NJ) (soundcheck only)
 
 **Something About You**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

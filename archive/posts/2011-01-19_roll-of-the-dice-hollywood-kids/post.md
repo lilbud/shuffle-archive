@@ -36,7 +36,7 @@ A twist of alienation and fascination that could only come from a 22-year-old Ne
 As the singer signs off: Yeah, that's it for that one.
 
 **Hollywood Kids**
-**Recorded:** April 1972
+**Recorded:** April 1972<br>
 **Never released**
 **Never performed**
 

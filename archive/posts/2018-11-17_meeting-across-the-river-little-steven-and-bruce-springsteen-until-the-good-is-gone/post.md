@@ -18,7 +18,7 @@ It took twelve years for them to play it again, this time at Right to Rock 2012 
 
 [Watch on Youtube: "Until The Good Is Gone"-Steven Van Zandt and Bruce Springsteen- Live](https://www.youtube.com/watch?v=0oGpSh8gvig)
 
-**Until the Good is Gone****Recorded:** November 1981
-**Released:** *Men Without Women* (1982)
-**First performed:** January 31, 1998 (Red Bank, NJ)
-**Last performed:** October 16, 2012 (New York City, NY)
+**Until the Good is Gone****Recorded:** November 1981<br>
+**Released:** *Men Without Women* (1982)<br>
+**First performed:** January 31, 1998 (Red Bank, NJ)<br>
+**Last performed:** October 16, 2012 (New York City, NY)<br>

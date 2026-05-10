@@ -66,8 +66,8 @@ But there's a reason why Bruce never recorded it, and it's probably not oversigh
 
 **Like a Stranger**
 Never Recorded**
-**First performed:** February 4, 1972 (Richmond, VA)*
-**Last performed:** February 25, 1972 (Richmond, VA)
+**First performed:** February 4, 1972 (Richmond, VA)*<br>
+**Last performed:** February 25, 1972 (Richmond, VA)<br>
 
 **evidence suggests "Like a Stranger" was performed in 1971 as well, but we cannot pin to a particular date(s)**
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

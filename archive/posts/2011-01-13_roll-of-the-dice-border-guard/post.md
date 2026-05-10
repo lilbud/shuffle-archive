@@ -68,7 +68,7 @@ That last couplet is heartbreaking: a son's refusal to surrender to his father's
 Bruce would revisit the California/Mexico border in song decades later, this time with a true focus on it. As for his reconciliation with his father, that would take a while yet. But his unreleased "Border Guard" reveals he was at least working his way towards it.
 
 **Border Guard**
-**Recorded:** April 1972
+**Recorded:** April 1972<br>
 **Never released**
 **Never performed**
 

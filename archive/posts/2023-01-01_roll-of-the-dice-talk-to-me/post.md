@@ -130,16 +130,15 @@ if you want to hear a great Bruce and Southside team-up on “Talk to Me” minu
 [https://www.youtube.com/embed/xabSr3O3zfo?feature=oembed](https://www.youtube.com/embed/xabSr3O3zfo?feature=oembed)
 
 July-October 1977
- (2010)
- September 26, 1991 (Asbury Park, NJ)
- November 16, 2019 (Asbury Park, NJ)
+(2010)
+September 26, 1991 (Asbury Park, NJ)
+November 16, 2019 (Asbury Park, NJ)
 
 **Talk to Me**  
-**Recorded:**  
-**Released:***The Promise*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***The Promise*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -59,7 +59,7 @@ But while "Winter Song" may not be remarkable for its lyrics (or even its clever
 The entire effect is a haunting one, and "Winter Song" lingers in the memory long after it ends.
 
 **Winter Song**
-**Recorded:** January 29-30, 1973
+**Recorded:** January 29-30, 1973<br>
 **Never released**
 **Never performed**
 

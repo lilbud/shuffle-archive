@@ -56,12 +56,10 @@ September 16, 2003 (Hartford, CT)
 September 16, 2003 (Hartford, CT)
 
 **Let’s Be Friends (Skin to Skin)**
-**Recorded:**   
- **Released:**   
+**Recorded:** <br>
+**Released:** <br>
 *The Rising*  
-**First performed:**   
-**Last performed:**
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

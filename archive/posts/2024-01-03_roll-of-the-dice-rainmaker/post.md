@@ -150,14 +150,14 @@ was sort of the one that stood in for the album I didn’t make,” Bruce said.
 What an album that might have been.
 
 2003-2020
- (2020)
+(2020)
 
 **Rainmaker**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Letter to You*  
+**Released:***Letter to You*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

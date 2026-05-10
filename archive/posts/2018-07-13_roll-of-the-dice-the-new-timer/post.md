@@ -109,8 +109,8 @@ On the 2005 tour, however, Bruce took a crack at it, arranging it for the autoha
 
 **The New Timer**
 Recorded: March-August, 1995
-**Released:** *The Ghost of Tom Joad* (1995)
-**First performed:** November 30, 1995 (Berkely, CA)
-**Last performed:** November 19, 2005 (Hollywood, FL)
+**Released:** *The Ghost of Tom Joad* (1995)<br>
+**First performed:** November 30, 1995 (Berkely, CA)<br>
+**Last performed:** November 19, 2005 (Hollywood, FL)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

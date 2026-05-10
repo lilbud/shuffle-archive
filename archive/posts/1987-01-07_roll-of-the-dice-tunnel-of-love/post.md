@@ -117,9 +117,9 @@ But don't count out future appearances. "Tunnel of Love" is too significant a tr
 
 
 **Tunnel of Love**
-**Recorded:** June-July, 1987
-**Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)
-**First performed:** February 25, 1988 (Worcester, MA)
-**Last performed:** June 25, 2016 (Gothenburg, Sweden)
+**Recorded:** June-July, 1987<br>
+**Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** February 25, 1988 (Worcester, MA)<br>
+**Last performed:** June 25, 2016 (Gothenburg, Sweden)<br>
 
 (c) June 15, 2021

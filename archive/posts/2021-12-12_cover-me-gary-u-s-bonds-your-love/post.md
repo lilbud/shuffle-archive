@@ -87,17 +87,16 @@ Bruce has never played “Your Love” in concert, but he actually did perform i
 So “Your Love” remains on my chase list, and it’s probably destined to stay there–but a Bonds guest appearance on an E Street Band stage is never out of the realm of possibility.
 
 1981
- Dedication (1981)
- (by Bruce): July 2, 1989 (Long Branch, NJ)
- (by Bruce): July 2, 1989 (Long Branch, NJ)
+Dedication (1981)
+(by Bruce): July 2, 1989 (Long Branch, NJ)
+(by Bruce): July 2, 1989 (Long Branch, NJ)
 
 **Your Love**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:**  
+**Released:**<br>
 **First performed**  
 **Last performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

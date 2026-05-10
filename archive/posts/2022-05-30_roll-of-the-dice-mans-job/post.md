@@ -93,9 +93,9 @@ With the benefit of the E Street Horns (an essential Stax element) and a fully p
 "Man's Job" flies under the radar in E Street Nation. It doesn't surface on many "Best of" lists, and you'll rarely spot it on a request sign. But it's a sweet, infectious trifle that deserves more recognition (and outings) than it gets.
 
 **Man's Job**
-**Recorded:** December 1989-January 1990
-**Released:** *Human Touch* (1992)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** July 13, 1992 (Werchter, Belgium)
+**Recorded:** December 1989-January 1990<br>
+**Released:** *Human Touch* (1992)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** July 13, 1992 (Werchter, Belgium)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

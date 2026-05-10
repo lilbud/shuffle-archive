@@ -206,16 +206,16 @@ But my favorite arrangement (right up there with the Reunion Tour) is Bruce’s 
 
 August 26, 1979 – April 1980
 (1980), (1995), (2003), (2016)
- September 21, 1979 (New York City, NY)
- July 25, 2021 (Monza, Italy)
+September 21, 1979 (New York City, NY)
+July 25, 2021 (Monza, Italy)
 
 **The River**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The River* *Greatest Hits* *The Essential Bruce Springsteen**Chapter and Verse*  
-**First performed:**  
-**Last performed:**
+**Released:** *The River* *Greatest Hits* *The Essential Bruce Springsteen**Chapter and Verse*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

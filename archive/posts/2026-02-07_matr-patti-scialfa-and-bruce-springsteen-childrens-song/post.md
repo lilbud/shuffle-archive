@@ -33,12 +33,12 @@ was available for sale exclusively in Starbucks stores (the Seattle-based coffee
 If you managed to snap up one of those rare original CDs, congratulations on scoring one of the more elusive original Springsteen recordings and for supporting an important cause–eight dollars of your purchase went toward helping make pregnancy and childbirth safe for women everywhere.
 
 2011
- (2011)
+(2011)
 
 **Children’s Song**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Every Mother Counts*  
+**Released:***Every Mother Counts*<br>
 **Never performed**
 
 © September 20, 2020

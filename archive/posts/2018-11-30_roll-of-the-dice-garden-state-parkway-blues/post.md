@@ -268,7 +268,7 @@ What are we to make of "Garden State Parkway Blues" looking back? It's mottled a
 
 **Garden State Parkway Blues**
 **Never recorded or released**
-**First performed:** September 20, 1969 (Richmond, VA)
-**Last performed:** October 17, 1970 (Long Branch, NJ)
+**First performed:** September 20, 1969 (Richmond, VA)<br>
+**Last performed:** October 17, 1970 (Long Branch, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

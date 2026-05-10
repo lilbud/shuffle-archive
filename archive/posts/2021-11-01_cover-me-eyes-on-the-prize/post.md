@@ -56,9 +56,9 @@ Their performances grew in power and potency throughout the tour, and by the end
 Other than a Magic Tour cameo, Thompson hasn't performed with Bruce since the end of the way-too-short Seeger Sessions Tour, but he's continued to release great music. Check out his catalog on your favorite streaming service–you'll be glad you did.
 
 **Eyes on the Prize**
-**Recorded:** January 21, 2006
-**Released:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) (2006)
-**First performed:** April 20, 2006 (Asbury Park, NJ)
-**Last performed:** November 21, 2006 (Belfast, Northern Ireland)
+**Recorded:** January 21, 2006<br>
+**Released:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/) (2006)<br>
+**First performed:** April 20, 2006 (Asbury Park, NJ)<br>
+**Last performed:** November 21, 2006 (Belfast, Northern Ireland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

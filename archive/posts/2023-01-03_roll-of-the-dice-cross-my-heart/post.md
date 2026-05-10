@@ -124,17 +124,17 @@ With just Roy on keyboards and Bruce on guitar and harmonica (with a solo that B
 *Human Touch*
 
 September 1989 – March 1991
- (1992)
- July 31, 1992 (East Rutherford, NJ)
- November 10, 1992 (Uniondale, NY)
+(1992)
+July 31, 1992 (East Rutherford, NJ)
+November 10, 1992 (Uniondale, NY)
 
 **Cross My Heart**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Human Touch*  
-**First performed:**  
-**Last performed:**
+**Released:** *Human Touch*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

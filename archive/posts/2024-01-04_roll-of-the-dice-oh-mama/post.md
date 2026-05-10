@@ -67,13 +67,13 @@ He saved the first couplet, aged the narrator a few years, changed the focus fro
 No one’s going to put “Oh Mama” on heavy rotation, but it’s a peak into the origins of a much stronger song and a great example of Bruce’s songwriting instincts. A great line waits for its time.
 
 November 27, 1970 (Asbury Park, NJ)
- January 23, 1971 (Asbury Park, NJ)
+January 23, 1971 (Asbury Park, NJ)
 
 **Oh Mama**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

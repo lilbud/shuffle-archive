@@ -57,9 +57,9 @@ December 28, 1980 (Uniondale, NY)
 December 14, 2016 (New York City, NY)
 
 **Merry Christmas Baby**
-**Released:**  
+**Released:**<br>
 *A Very Special Christmas*   
-**First performed:**   
-**Last performed:**
+**First performed:** <br>
+**Last performed:**<br>
 
 (c) December 24, 2018 by Ken Rosen

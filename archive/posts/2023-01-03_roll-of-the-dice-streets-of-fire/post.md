@@ -88,17 +88,17 @@ But one would be forgetting: when it comes to “Streets of Fire,” the words d
 Don’t listen. Just feel.
 
 June 24 – December 29, 1977
- (1978)
- May 23, 1978 (Buffalo, NY)
- September 11, 2016 (Pittsburgh, PA)
+(1978)
+May 23, 1978 (Buffalo, NY)
+September 11, 2016 (Pittsburgh, PA)
 
 **Streets of Fire**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *Darkness on the Edge of Town*  
-**First performed:**  
-**Last performed:**
+**Released:** *Darkness on the Edge of Town*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

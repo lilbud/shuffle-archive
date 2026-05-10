@@ -104,12 +104,11 @@ March 23, 2009 (Asbury Park, NJ)
 June 25, 2016 (Gothenburg, Sweden)
 
 **My Lucky Day**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *My Lucky Day* *Working on a Dream**The Essential Bruce Springsteen, 2nd Edition*   
-**First performed:**   
-**Last performed:**
+**Released:** *My Lucky Day* *Working on a Dream**The Essential Bruce Springsteen, 2nd Edition* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

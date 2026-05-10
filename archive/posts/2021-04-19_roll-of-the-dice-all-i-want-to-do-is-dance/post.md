@@ -61,15 +61,15 @@ Before long, Bruce would turn his attention to more serious subjects, but in 197
 If Bruce ever surprises us with an archive series document of one of these early shows, we’re in for a treat.
 
 February 4, 1972 (Richmond, VA)
- February 26, 1972 (Richmond, VA)
+February 26, 1972 (Richmond, VA)
 
 **All I Want to Do Is Dance**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

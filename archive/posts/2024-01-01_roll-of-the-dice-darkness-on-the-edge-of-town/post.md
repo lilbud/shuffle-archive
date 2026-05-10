@@ -61,16 +61,15 @@ I realize that I have a somewhat contrary view of this song than most fans do, b
 What’s yours?
 
 1977-1978
- (1978), (2003), (2009)
- May 23, 1978 (Buffalo, NY)
- September 1, 2023 (East Rutherford, NJ)
+(1978), (2003), (2009)
+May 23, 1978 (Buffalo, NY)
+September 1, 2023 (East Rutherford, NJ)
 
 **Darkness on the Edge of Town**  
-**Recorded:**  
-**Released:***Darkness on the Edge of Town**The Essential Bruce Springsteen* *Greatest Hits*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Darkness on the Edge of Town**The Essential Bruce Springsteen* *Greatest Hits*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

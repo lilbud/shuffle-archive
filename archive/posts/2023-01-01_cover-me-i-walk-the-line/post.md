@@ -25,9 +25,9 @@ Bruce must have been pleased with how it came off, because he opened his show wi
 [I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
 September 13, 2003 (Landover, MD)
- September 14, 2003 (Chapel Hill, NC)
+September 14, 2003 (Chapel Hill, NC)
 
 **I Walk The Line**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

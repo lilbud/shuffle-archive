@@ -17,11 +17,11 @@ Bruce and Sam finally got a chance to perform live together on the Reunion Tour 
 [https://www.youtube.com/embed/zK42PMBcESo?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/zK42PMBcESo?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 October 15, 1999 (Phoenix, AZ)
- April 22, 2017 (Marlboro, NJ)
+April 22, 2017 (Marlboro, NJ)
 
 **Soul Man**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © July 25, 2018

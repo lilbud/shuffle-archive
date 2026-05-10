@@ -21,9 +21,9 @@ And if audio from that performance is rare, video is scarcer still. But check th
 [https://www.youtube.com/embed/Gz20pPR3yXU?feature=oembed](https://www.youtube.com/embed/Gz20pPR3yXU?feature=oembed)
 
 October 16, 2008 (New York City, NY)
- October 16, 2008 (New York City, NY)
+October 16, 2008 (New York City, NY)
 
 **Signed, Sealed, Delivered I’m Yours**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

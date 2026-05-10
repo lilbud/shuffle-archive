@@ -90,16 +90,14 @@ But the full-on E Street Band version shines too. I’ll leave you with a great 
 [https://www.youtube.com/embed/aX6dOswftlc?feature=oembed](https://www.youtube.com/embed/aX6dOswftlc?feature=oembed)
 
 September 1992-January 1992
- (1992), (2003)
+(1992), (2003)
 May 6, 1992 (New York City, NY)
 June 24, 2023 (Gothenburg, Sweden)
 
 **Lucky Town**   
-**Recorded:**   
-**Released:** *Lucky Town**The Essential Bruce Springsteen*   
-**First performed:**   
-**Last performed:**
+**Recorded:** <br>
+**Released:** *Lucky Town**The Essential Bruce Springsteen* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

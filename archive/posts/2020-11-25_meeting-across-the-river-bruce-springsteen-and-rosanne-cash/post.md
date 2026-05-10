@@ -1,5 +1,3 @@
-
-
 “Sea of Heartbreak” first became a hit in 1961, when Don Gibson took it all the way to #2 on the Billboard Hot Country Singles chart.
 
 [https://www.youtube.com/embed/A4bo4ByFhLM?feature=oembed](https://www.youtube.com/embed/A4bo4ByFhLM?feature=oembed)
@@ -26,14 +24,8 @@ Well, not exactly by herself. From Cash’s album, here’s “Sea of Heartbreak
 
 Rosanne and Bruce performed “Sea of Heartbreak” together just once, at Rosanne’s show in Durham, North Carolina in 2010. No recording circulates from that performance.
 
-?
- (2009)
- April 15, 2010 (Durham, NC)
- April 15, 2010 (Durham, NC)
-
 **Sea of Heartbreak**
-**Recorded:**  
-
-**Released:** *The List*  
-**First performed:**  
-**Last performed:**
+**Recorded:** ?<br>
+**Released:** *The List* (2009)<br>
+**First performed:** April 15, 2010 (Durham, NC)<br>
+**Last performed:** April 15, 2010 (Durham, NC)<br>

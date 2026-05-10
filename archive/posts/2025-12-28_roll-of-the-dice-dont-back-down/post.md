@@ -61,12 +61,12 @@ These aren’t Bruce’s deepest lyrics, but with a hook like that and a beat th
 It just needed to be released.
 
 Early 1983
- (2025)
+(2025)
 
 **Don’t Back Down**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *L.A. Garage Sessions ’83*  
+**Released:** *L.A. Garage Sessions ’83*<br>
 **Never performed**
 
 © January 6, 2022 / December 28, 2025

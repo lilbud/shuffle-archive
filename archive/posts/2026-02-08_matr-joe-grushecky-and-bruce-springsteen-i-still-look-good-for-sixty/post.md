@@ -10,7 +10,7 @@ Joe released “I Still Look Good (For Sixty)” on his 2013 album, Even on an e
 
 *East of Eden.*
 
- 
+
 
 [https://www.youtube.com/embed/hMLxxgUCpeo?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/hMLxxgUCpeo?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
@@ -27,11 +27,11 @@ Both Joe and Bruce are now past sixty, and perhaps that’s why they’ve stoppe
 [https://www.youtube.com/embed/SHIGaBfiLcE?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/SHIGaBfiLcE?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 May 22, 2014 (Pittsburgh, PA)
- January 17, 2015 (Asbury Park, NJ)
+January 17, 2015 (Asbury Park, NJ)
 
 **I Still Look Good (For Sixty)**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © April 24, 2018 / February 8, 2026

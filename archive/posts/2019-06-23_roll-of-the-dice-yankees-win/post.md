@@ -33,7 +33,7 @@ It was a touching way for Bruce to honor the man who'd brought him (and so many 
 **Yankees Win**
 **Never recorded**
 **Never released**
-**First performed:** November 7, 2007
-**Last performed:** November 7, 2007
+**First performed:** November 7, 2007<br>
+**Last performed:** November 7, 2007<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

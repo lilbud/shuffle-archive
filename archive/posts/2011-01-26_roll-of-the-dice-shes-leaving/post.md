@@ -67,9 +67,9 @@ But it's a song I'd love to hear included if we ever get that fabled *Tracks Vol
 
 [Watch on Youtube: Bruce Springsteen - "She's Leaving" Version 1](https://www.youtube.com/watch?v=rLLo2vppHqw)
 
-**She's Leaving****Recorded:** May-June 1972
+**She's Leaving****Recorded:** May-June 1972<br>
 **Never released**
-**First performed:** December 3, 1971 (Asbury Park, NJ)
-**Last performed:** December 3, 1971 (Asbury Park, NJ)
+**First performed:** December 3, 1971 (Asbury Park, NJ)<br>
+**Last performed:** December 3, 1971 (Asbury Park, NJ)<br>
 
 © February 3, 2019

@@ -20,7 +20,7 @@ There was just one problem: unlike the solo material that comprised nearly half 
 
 On Monday, September 11th, Bruce, Clarence, and Vini (along with pinch-hitter pianist Harold Wheeler) would schlep up to 914 Sound Recording Studios in Blauvelt, New York to record the final two tracks for One of them would become Springsteen’s first commercial hit (albeit for another artist); the other endures as a concert favorite to this day.
 
-  [Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)
+[Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)
 
 But that would happen on Monday. There was a local summer weekend to get through first.
 
@@ -201,14 +201,14 @@ Three days later, Bruce and Odin once again appeared on the same bill, the last 
 It was the first public performance of the group who would someday be dubbed The E Street Band.
 
 September 9, 1972 (Highlands, NJ)
- September 9, 1972 (Highlands, NJ)
+September 9, 1972 (Highlands, NJ)
 
 **Water Station**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our full index . New entries coming soon! (I hope)
 

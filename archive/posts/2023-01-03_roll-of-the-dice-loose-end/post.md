@@ -83,17 +83,17 @@ Since then, “Loose End” has remained elusive, never missing an E Street Band
 
 July 18, 1979
 (1998), (2015)
- June 3, 1999 (Paris, France)
- September 9, 2016 (Philadelphia, PA)
+June 3, 1999 (Paris, France)
+September 9, 2016 (Philadelphia, PA)
 
 **Loose End**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tracks* *The River: Single Album*  
-**First performed:**  
-**Last performed:**
+**Released:** *Tracks* *The River: Single Album*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
 

@@ -23,11 +23,11 @@ It may not have been a topical selection, but it was a perfect song choice for B
 The Vote for Change Tour was ultimately a failed endeavor in that it would take another four years before America saw true political change. But it marked an inflection point for Bruce’s political activism–he’s taken to the stage in support of Democratic presidential candidates ever since.
 
 October 1, 2004 (Philadelphia, PA)
- October 11, 2004 (Washington, DC)
+October 11, 2004 (Washington, DC)
 
 **Man on the Moon**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © January 6, 2021

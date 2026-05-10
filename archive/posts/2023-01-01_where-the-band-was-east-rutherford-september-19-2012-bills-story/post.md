@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out –he’s got some great show reviews (not just Bruce-related) and insightful commentary.*[Bill’s blog](http://billk128.tumblr.com/)
 

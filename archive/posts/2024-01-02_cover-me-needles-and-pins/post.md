@@ -21,7 +21,7 @@ here’s a clearer recording from a soundcheck earlier in the year: February 23r
 **Bonus:**<http://estreetshuffle.com/wp-content/uploads/2019/02/307-Needles-And-Pins-Soundcheck.flac>
 
 February 23, 1975 (Westbury, NY)
- December 12, 1975 (Greenvale, NY)
+December 12, 1975 (Greenvale, NY)
 
 **Needles and Pins**  
 **Never performed in concert**  

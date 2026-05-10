@@ -29,9 +29,9 @@ What’s the holiday connection? Beats the heck out of me.
 All I know is we got a one-time (well, two-time) pairing on a gorgeous song, and that’s good enough for me.
 
 December 7, 2001 (Asbury Park, NJ)
- December 8, 2001 (Asbury Park, NJ)
+December 8, 2001 (Asbury Park, NJ)
 
 **The End of the Innocence**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

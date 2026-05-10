@@ -31,7 +31,7 @@ The highlight of the track is the instrumental break at the two-minute mark. It 
 Logs reveal a studio take was captured a few weeks later, but no trace of the song has ever surfaced. If we’ve learned one thing over the years, though, it’s that despite his protests to the contrary, Bruce’s vault never seems to be emptied.
 
 **Stop the War**
-**Recorded:** April 15, 1982 (rehearsal)  
+**Recorded:** April 15, 1982 (rehearsal)<br>
 **Never released**  
 **Never performed**
 

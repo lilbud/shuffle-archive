@@ -43,9 +43,9 @@ It was Bruce at his most playful, staged, and choreographed. Witness this 1988 p
 So what’s your take? Is this an original homage, or a creative cover? Share your thoughts below!
 
 February 25, 1988 (Worcester, MA)
- August 3, 1988 (Barcelona, Spain)
+August 3, 1988 (Barcelona, Spain)
 
 **I’m a Coward**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

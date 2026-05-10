@@ -89,8 +89,8 @@ June 13, 1983
 (2025), (2025)
 
 **Unsatisfied Heart**  
-**Recorded:**  
-**Released:** *L.A. Garage Sessions ’83* *Lost and Found*  
+**Recorded:**<br>
+**Released:** *L.A. Garage Sessions ’83* *Lost and Found*<br>
 **Never performed**
 
 © September 12, 2018 / December 21, 2025

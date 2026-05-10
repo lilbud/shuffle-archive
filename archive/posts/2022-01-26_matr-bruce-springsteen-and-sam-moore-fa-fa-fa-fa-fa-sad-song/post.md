@@ -17,5 +17,5 @@ We'll forgive them, though, because holy cow is this a great arrangement! Seguei
 And yes, I know that technically this entry breaks my "no snippets" rule (I only feature songs Bruce covers in full), but come on: how great is this clip? Any time you can start your day with Bruce Springsteen, Sam Moore, and a classic Stax track, you're better off for it.
 
 **Fa-Fa-Fa-Fa-Fa (Sad Song)**
-**First performed:** December 8, 2003 (Asbury Park, NJ)
-**Last performed:** December 8, 2003 (Asbury Park, NJ)
+**First performed:** December 8, 2003 (Asbury Park, NJ)<br>
+**Last performed:** December 8, 2003 (Asbury Park, NJ)<br>

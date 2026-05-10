@@ -49,9 +49,9 @@ Fun, yes, but that one and only live performance of "You've Got It" didn't get a
 The irony of "You've Got It" is that it ain't got it.
 
 **You've Got It**
-**Recorded:** 2011
-**Released:** *Wrecking Ball* (2012)
-**First performed:** July 24, 2012 (Bergen, Norway)
-**Last performed:** July 24, 2012 (Bergen, Norway)
+**Recorded:** 2011<br>
+**Released:** *Wrecking Ball* (2012)<br>
+**First performed:** July 24, 2012 (Bergen, Norway)<br>
+**Last performed:** July 24, 2012 (Bergen, Norway)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

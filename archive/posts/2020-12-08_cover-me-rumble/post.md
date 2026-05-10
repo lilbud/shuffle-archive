@@ -21,8 +21,8 @@ Watch and listen below. (Bruce is in the shadows most of the time, but isn’t t
 [https://www.youtube.com/embed/0j1xapvKBx8?feature=oembed](https://www.youtube.com/embed/0j1xapvKBx8?feature=oembed)
 
 November 21, 2005 (Trenton, NJ)
- November 22, 2005 (Trenton, NJ)
+November 22, 2005 (Trenton, NJ)
 
 **Rumble**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

@@ -75,15 +75,9 @@ To a pair of 2018 ears, it’s a little creepy.
 
 So, yeah: probably for the best that Bruce discarded this one. He’s never performed it live, and I doubt he ever will.
 
-January 20, 1983
-
-
-
 **Little Girl (Like You)**  
-**Recorded:**  
+**Recorded:** January 20, 1983<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -96,17 +96,15 @@ So why did Bruce change his mind forty years later and spotlight Jake instead of
 Regardless, “TV Movie” needs at least one more outing to set things right. Let’s hope we get it soon.
 
 June 13, 1983
- (1998)
- July 23, 2013 (Cardiff, Wales)
- July 23, 2013 (Cardiff, Wales)
+(1998)
+July 23, 2013 (Cardiff, Wales)
+July 23, 2013 (Cardiff, Wales)
 
 **TV Movie**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Tracks*   
-**First performed:**  
-**Last performed:**
+**Released:***Tracks* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

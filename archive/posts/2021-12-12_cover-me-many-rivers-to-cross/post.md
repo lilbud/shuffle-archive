@@ -23,8 +23,8 @@ Regardless, it remains a World Tour 1993 highlight. Bruce played it only one tim
 [https://www.youtube.com/embed/zEMwQVGIcW0?feature=oembed](https://www.youtube.com/embed/zEMwQVGIcW0?feature=oembed)
 
 April 3, 1994 (Dortmund, German)
- March 15, 2012 (Austin, TX)
+March 15, 2012 (Austin, TX)
 
 **Many Rivers to Cross**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

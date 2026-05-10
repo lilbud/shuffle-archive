@@ -29,7 +29,8 @@ It’s a great set-up, though (even if it pales beside the first verse of “Gro
 
 April-May 1972
 
-**Eloise** **Recorded:**  
+**Eloise**
+**Recorded:**<br>
 
 **Never released**   
 **Never performed**

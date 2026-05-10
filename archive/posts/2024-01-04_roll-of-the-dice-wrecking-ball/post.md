@@ -146,17 +146,17 @@ Squeeze every last drop out of the time you’ve been given, and find every joy 
 The way my dad did, in the last and best lesson he ever taught me.
 
 2011
- (2011)
- September 30, 2009 (East Rutherford, NJ)
- September 3, 2023 (East Rutherford, NJ)
+(2011)
+September 30, 2009 (East Rutherford, NJ)
+September 3, 2023 (East Rutherford, NJ)
 
 **Wrecking Ball**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:**[https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*  
-**First performed:**  
-**Last performed:**
+**Released:**[https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

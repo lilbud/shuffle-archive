@@ -88,9 +88,9 @@ In fact, the only time I'm aware of that Bruce played the song *without* Bonds i
 At this point in my Bruce concert career, I don't have a lot left on my chase list, but "This Little Girl" is pretty close to the top of it. I wish I'd kept that 45...
 
 **This Little** **Girl**
-**Recorded:** 1980
-**Released:** *Dedication* (1981)
-**First performed:** June 15, 1981 (San Francisco, CA)
-**Last performed:** January 17, 2015 (Asbury Park, NJ)
+**Recorded:** 1980<br>
+**Released:** *Dedication* (1981)<br>
+**First performed:** June 15, 1981 (San Francisco, CA)<br>
+**Last performed:** January 17, 2015 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

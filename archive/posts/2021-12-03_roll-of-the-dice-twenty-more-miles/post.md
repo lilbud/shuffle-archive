@@ -19,7 +19,7 @@ So apologies for the lack of lyrical analysis today, but even if we could make o
 **Twenty More Miles**
 Never recorded
 Never released
-**First performed:** April 18, 1970 (Toms River, NJ)
-**Last performed:** August 14, 1970 (Richmond, VA)
+**First performed:** April 18, 1970 (Toms River, NJ)<br>
+**Last performed:** August 14, 1970 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

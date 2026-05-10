@@ -126,9 +126,9 @@ It's been fifteen years since Bruce played it last, however; he seems to be thin
 I guess he's worked "All I'm Thinkin' About" out of his system.
 
 **All I'm Thinkin' About**
-**Recorded:** 1997-2004
-**Released:** *Devils & Dust* (2005)
-**First performed:** April 30, 2005 (Glendale, AZ)
-**Last performed:** November 19, 2005 (Hollywood, FL)
+**Recorded:** 1997-2004<br>
+**Released:** *Devils & Dust* (2005)<br>
+**First performed:** April 30, 2005 (Glendale, AZ)<br>
+**Last performed:** November 19, 2005 (Hollywood, FL)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

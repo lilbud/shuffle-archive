@@ -71,14 +71,14 @@ Here’s an E Street Band performance from Gothenburg in 2016, for no other reas
 [https://www.youtube.com/embed/BqDWGw1MLfY?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/BqDWGw1MLfY?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 July 1980
- (1981)
- June 5, 1981 (London, England)
- January 26, 2026 (Red Bank, NJ)
+(1981)
+June 5, 1981 (London, England)
+January 26, 2026 (Red Bank, NJ)
 
 **Jole Blon**  
-**Recorded:**  
-**Released:** *Dedication*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Dedication*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © August 29, 2019

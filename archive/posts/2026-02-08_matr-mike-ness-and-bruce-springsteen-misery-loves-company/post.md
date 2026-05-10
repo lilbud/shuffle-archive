@@ -31,15 +31,15 @@ Thankfully, that last performance (At Sea. Hear. Now. in September 2018) not onl
 [https://www.youtube.com/embed/loIfsQ8RmAc?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/loIfsQ8RmAc?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 December 29, 1998
- (1999)
+(1999)
 : May 17, 2008 (Asbury Park, NJ)
- September 30, 2018 (Asbury Park, NJ)
+September 30, 2018 (Asbury Park, NJ)
 
 **Misery Loves Company**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Cheating at Solitaire*  
+**Released:***Cheating at Solitaire*<br>
 **First performed**  
-**Last performed:**
+**Last performed:**<br>
 
 © January 22, 2020

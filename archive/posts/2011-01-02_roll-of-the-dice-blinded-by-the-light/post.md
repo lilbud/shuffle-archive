@@ -167,9 +167,9 @@ Bruce did.
 [Watch Video Highlight](https://videopress.com/embed/FpUdQtkf)
 
 **Blinded by the Light**
-**Recorded:** September 11, 1972
-**Released:** *Greetings From Asbury Park, N.J.* (1973), *The Essential Bruce Springsteen* (2003)
-**First performed:** December 7, 1972 (New York City, NY)
-**Last performed:** September 15, 2024 (Asbury Park, NJ)
+**Recorded:** September 11, 1972<br>
+**Released:** *Greetings From Asbury Park, N.J.* (1973), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** December 7, 1972 (New York City, NY)<br>
+**Last performed:** September 15, 2024 (Asbury Park, NJ)<br>
 
 © January 1, 2023

@@ -91,9 +91,9 @@ On the River Tour, "The Ties That Bind" was a setlist staple, but it disappeared
 [Watch on Youtube: The Ties That Bind (solo acoustic) Bruce Springsteen 11/8/2005 Philly](https://www.youtube.com/watch?v=q83NktVFUD0)
 
 **The Ties That Bind**
-**Recorded:** April 10-11, 1979; April 10, 1980
-**Released:** *The River* (1980), *The Ties That Bind: The River Collection* (alternate version) (2015)
-**First Performed:** November 1, 1978 (Princeton, NJ)
-**Last Performed:** June 24, 2023 (Gothenburg, Sweden)
+**Recorded:** April 10-11, 1979; April 10, 1980<br>
+**Released:** *The River* (1980), *The Ties That Bind: The River Collection* (alternate version) (2015)<br>
+**First Performed:** November 1, 1978 (Princeton, NJ)<br>
+**Last Performed:** June 24, 2023 (Gothenburg, Sweden)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

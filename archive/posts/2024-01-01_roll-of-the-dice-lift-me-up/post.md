@@ -66,17 +66,16 @@ For an obscure track that few mainstream fans are aware exists, “Lift Me Up”
 But I still maintain that to appreciate the song fully, watch it in context with the film. Both are underappreciated gems.
 
 Oct 1998 – Jan 1999
- (1999), (2003)
+(1999), (2003)
 July 31, 2005 (Columbus, OH)
 July 31, 2005 (Columbus, OH)
 
 **Lift Me Up**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***Limbo (Music from the Motion Picture)* *The Essential Bruce Springsteen*   
-**First performed:**   
-**Last performed:**
+**Released:***Limbo (Music from the Motion Picture)* *The Essential Bruce Springsteen* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

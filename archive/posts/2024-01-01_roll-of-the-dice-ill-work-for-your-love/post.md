@@ -37,7 +37,7 @@ Given the start-to-finish St. Theresa metaphor, I’m forced to wonder whether t
 Either way, the song works, I suppose, but it doesn’t resonate with me as a particularly devotional: the lyrics compare Theresa’s physical attributes only:
 
 *the bones in your back like the Stations of the Cross…*  
- *‘Round your hair the sun lifts a halo*  
+*‘Round your hair the sun lifts a halo*  
 *At your lips a crown of thorns…*  
 *The pages of Revelation lie open in your empty eyes of blue…*  
 *The rosary at your feet, my temple of bones…*
@@ -69,16 +69,15 @@ I was lucky enough to be at both of those shows, and ever since then, I hear thi
 In music, as with all great art, we receive the way need to. So maybe it’s Valentine’s Day-appropriate after all.
 
 March-May, 2007
- (2007)
- November 5, 2007 (Auburn Hill, MI)
- November 7, 2022 (New York, NY)
+(2007)
+November 5, 2007 (Auburn Hill, MI)
+November 7, 2022 (New York, NY)
 
 **I’ll Work For Your Love**  
-**Recorded:**  
-**Released:***Magic*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Magic*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

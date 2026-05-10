@@ -40,18 +40,10 @@ Back home in the states, he played it only three times over the course of a week
 
 I was lucky enough to catch it twice–in Cape Town and Charlotte, and I count myself fortunate to have done so. We may not hear Bruce play “Just Like Fire Would” again, but it was a fun, singalong addition to the set list while it lasted.
 
-March 2013
-(2014)
- March 14, 2012 (Brisbane, Australia)
- April 26, 2014 (Atlanta, GA)
-
 **Just Like Fire Would**
-**Recorded:**  
+**Recorded:** March 2013<br>
+**Released:** *High Hopes* (2014)<br>
+**First performed:** March 14, 2012 (Brisbane, Australia)<br>
+**Last performed:** April 26, 2014 (Atlanta, GA)<br>
 
-**Released:** *High Hopes*   
-**First performed:**  
-**Last performed:**
-
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

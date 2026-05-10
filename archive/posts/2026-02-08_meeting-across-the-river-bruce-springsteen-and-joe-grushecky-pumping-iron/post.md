@@ -35,10 +35,10 @@ Bruce and Joe would reprise it many times over the years that followed–althoug
 [https://www.youtube.com/embed/5TrjyioI4IQ?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/5TrjyioI4IQ?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 July 22, 1995 (Sea Bright, NJ)
- January 17, 2026 (Red Bank, NJ)
+January 17, 2026 (Red Bank, NJ)
 
 **Pumping Iron**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © November 3, 2018

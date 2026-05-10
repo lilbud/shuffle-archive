@@ -53,11 +53,10 @@ March 19, 2005(2006)(2006) (2007)April 20, 2006 (Asbury Park, NJ)
 May 15, 2023 (Nanterre, France)
 
 **Pay Me My Money Down**  
-**Recorded:** **Released:**   
-*We Shall Overcome: The Seeger Sessions* *, We Shall Overcome: The Seeger Sessions – American Land Edition* *, Live in Dublin* **First performed:**   
+**Recorded:** **Released:** <br>
+*We Shall Overcome: The Seeger Sessions* *, We Shall Overcome: The Seeger Sessions – American Land Edition* *, Live in Dublin* **First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

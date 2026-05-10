@@ -70,9 +70,9 @@ But the full-on E Street Band version shines too. I'll leave you with a great re
 [Watch on Youtube: Lucky Town (Live at Ippodromo delle Capannelle, Rome, Italy - 7/11/2013)](https://www.youtube.com/watch?v=aX6dOswftlc)
 
 **Lucky Town**
-**Recorded:** September 1992-January 1992
-**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** June 24, 2023 (Gothenburg, Sweden)
+**Recorded:** September 1992-January 1992<br>
+**Released:** *Lucky Town* (1992), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** June 24, 2023 (Gothenburg, Sweden)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

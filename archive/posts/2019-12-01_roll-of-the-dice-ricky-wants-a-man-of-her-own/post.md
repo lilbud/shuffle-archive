@@ -89,17 +89,10 @@ Listen to an unreleased alternate take of “Ricky Wants a Man of Her Own,” wi
 
 [https://videopress.com/embed/Zef83eCx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Zef83eCx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-July 16, 1979
- (1998), (2015)
- August 24, 2008 (Kansas City, MO)
- August 24, 2008 (Kansas City, MO)
-
 **Ricky Wants a Man of Her Own**  
-**Recorded:**  
-**Released:***Tracks* *The Ties That Bind: The River Collection*  
-**First performed:**  
-**Last performed:**
+**Recorded:** July 16, 1979<br>
+**Released:***Tracks* (1998), *The Ties That Bind: The River Collection* (2015)<br>
+**First performed:** August 24, 2008 (Kansas City, MO)<br>
+**Last performed:** August 24, 2008 (Kansas City, MO)<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

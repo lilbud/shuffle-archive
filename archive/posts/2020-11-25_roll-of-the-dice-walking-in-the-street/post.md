@@ -62,16 +62,9 @@ Walking in the street with nowhere to go.*
 
 So give a listen to this never-released, never-performed classic, lost somewhere with Billy and Cherry, forever walking in the street with nowhere to go.
 
-August-September 1974
-
-
-
 **Walking in the Street**
-**Recorded:**  
-
+**Recorded:** August-September 1974<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

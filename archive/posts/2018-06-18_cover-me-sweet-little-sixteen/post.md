@@ -9,5 +9,5 @@ We're also fortunate enough to have a great video of Chuck Berry performing his 
 [Watch on Youtube: Chuck Berry "Sweet Little Sixteen"](https://www.youtube.com/watch?v=ZLV4NGpoy_E)
 
 **Sweet Little Sixteen**
-**First performed:** April 28, 1973 (College Park, MD)
-**Last performed:** December 17, 1989 (Ventura, CA)
+**First performed:** April 28, 1973 (College Park, MD)<br>
+**Last performed:** December 17, 1989 (Ventura, CA)<br>

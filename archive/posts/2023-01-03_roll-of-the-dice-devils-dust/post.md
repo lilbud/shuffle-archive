@@ -157,16 +157,16 @@ We like to think that faith will be rewarded, but sometimes faith just ain’t e
 
 2004
 (2005)
- April 4, 2005 (Red Bank, NJ)
- January 12, 2017 (Washington, DC)
+April 4, 2005 (Red Bank, NJ)
+January 12, 2017 (Washington, DC)
 
 **Devils & Dust**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Devils & Dust*   
-**First performed:**  
-**Last performed:**
+**Released:** *Devils & Dust* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

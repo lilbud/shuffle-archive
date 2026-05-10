@@ -13,9 +13,9 @@ You’re probably familiar with Buddy Holly’s version already–so here’s th
 [https://www.youtube.com/embed/TlcjdSJwI5k?feature=oembed](https://www.youtube.com/embed/TlcjdSJwI5k?feature=oembed)
 
 July 29, 1978 (St. Petersburg, FL)
- March 17, 1996 (Dublin, Ireland)
+March 17, 1996 (Dublin, Ireland)
 
 **Oh Boy**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

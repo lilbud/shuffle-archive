@@ -86,7 +86,7 @@ I know we've been focusing on the lyrical easter eggs, but "Break Out" really do
 So keep your fingers crossed: "Break Out" may yet break out.
 
 **Break Out**
-**Recorded:** September-November 1977
+**Recorded:** September-November 1977<br>
 **Never released**
 **Never performed**
 

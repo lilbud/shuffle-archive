@@ -116,9 +116,9 @@ Bruce seems to have surrendered "Real World" to its original incarnation, a deci
 We may yet hear it again when Bruce steps back out into the real world.
 
 **Real World**
-**Recorded:** December 1989 – January 1990
-**Released:** *Human Touch* (1992)
-**First performed:** November 16, 1990 (Los Angeles, CA)
-**Last performed:** July 18, 2013 (Cork, Ireland)
+**Recorded:** December 1989 – January 1990<br>
+**Released:** *Human Touch* (1992)<br>
+**First performed:** November 16, 1990 (Los Angeles, CA)<br>
+**Last performed:** July 18, 2013 (Cork, Ireland)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

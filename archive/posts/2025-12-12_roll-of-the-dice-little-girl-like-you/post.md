@@ -82,8 +82,8 @@ January 20, 1983
 (2025)
 
 **Little Girl Like You**  
-**Recorded:**  
-**Released:** *L.A. Garage Sessions ’83*   
+**Recorded:**<br>
+**Released:** *L.A. Garage Sessions ’83* <br>
 **Never performed**
 
 © June 15, 2018 / December 12, 2025

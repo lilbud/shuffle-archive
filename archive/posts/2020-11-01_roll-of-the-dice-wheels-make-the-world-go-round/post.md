@@ -25,7 +25,7 @@ Lyrically, there's not enough here for us to know exactly where Bruce was headed
 Many of Bruce's discarded outtakes contained lyrical or musical DNA that found their way to one or more officially released songs, but sadly (because I really like this one) "Wheels Make the World Go Round" appears to be a true dead end.
 
 **Wheels Make the World Go Round**
-**Recorded:** Late 1981-mid 1982
+**Recorded:** Late 1981-mid 1982<br>
 **Never released**
 **Never performed**
 

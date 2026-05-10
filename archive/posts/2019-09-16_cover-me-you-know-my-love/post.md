@@ -23,5 +23,5 @@ Just days later, The Sundance Blues Band was no more, although almost all of the
 But for a brief moment in time, the upstarts who would eventually become rock icons had a decidedly blues bent. If only we had more surviving recordings of it.
 
 **You Know My Love**
-**First performed:** January 21-23, 1972 (it's unknown which of these nights the recording hails from)
-**Last performed:** January 21-23, 1972 (it's unknown which of these nights the recording hails from)
+**First performed:** January 21-23, 1972 (it's unknown which of these nights the recording hails from)<br>
+**Last performed:** January 21-23, 1972 (it's unknown which of these nights the recording hails from)<br>

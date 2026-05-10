@@ -113,16 +113,15 @@ Here are two final clips, from the few performances with the E Street Band (ther
 [https://www.youtube.com/embed/ljabZgADz5g?feature=oembed](https://www.youtube.com/embed/ljabZgADz5g?feature=oembed)
 
 July-December 1991
- (1992)
+(1992)
 June 15, 1992 (Stockholm, Sweden)
 April 27, 2008 (Charlotte, NC)
 
 **Souls of the Departed**  
-**Recorded:**  
-**Released:***Lucky Town*   
-**First performed:**   
-**Last performed:**
+**Recorded:**<br>
+**Released:***Lucky Town* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

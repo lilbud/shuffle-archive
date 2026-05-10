@@ -58,7 +58,7 @@ Well, mostly unutilized. There actually is a commercially available studio track
 **Cherokee Queen**
 Never recorded**
 **Never released**
-**First performed:** July 1971 (South Amboy, NJ)
-**Last performed:** October 23, 1971 (Richmond, VA)
+**First performed:** July 1971 (South Amboy, NJ)<br>
+**Last performed:** October 23, 1971 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

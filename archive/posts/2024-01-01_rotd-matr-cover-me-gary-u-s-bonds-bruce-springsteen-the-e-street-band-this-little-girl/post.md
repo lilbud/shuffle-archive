@@ -118,16 +118,15 @@ In fact, the only time I’m aware of that Bruce played the song Bonds is at Lig
 At this point in my Bruce concert career, I don’t have a lot left on my chase list, but “This Little Girl” is pretty close to the top of it. I wish I’d kept that 45…
 
 1980
- (1981)
- June 15, 1981 (San Francisco, CA)
- January 17, 2015 (Asbury Park, NJ)
+(1981)
+June 15, 1981 (San Francisco, CA)
+January 17, 2015 (Asbury Park, NJ)
 
 **This Little****Girl**  
-**Recorded:**  
-**Released:***Dedication*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Dedication* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

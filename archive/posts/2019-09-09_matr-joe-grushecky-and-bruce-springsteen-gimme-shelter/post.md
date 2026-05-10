@@ -17,5 +17,5 @@ One last Bruce connection of note: the Stones' version of "Gimme Shelter" wouldn
 And Merry Clayton happens to be one of the singers featured in the outstanding 2013 film, *20 Feet From Stardom*, which itself has several on-screen contributions from... Bruce Springsteen.
 
 **Gimme Shelter**
-**First performed:** October 21, 1995 (Pittsburgh, PA)
-**Last performed:** October 21, 1995 (Pittsburgh, PA)
+**First performed:** October 21, 1995 (Pittsburgh, PA)<br>
+**Last performed:** October 21, 1995 (Pittsburgh, PA)<br>

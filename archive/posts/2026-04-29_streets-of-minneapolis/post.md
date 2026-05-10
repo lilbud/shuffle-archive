@@ -120,9 +120,9 @@ Springsteen never had any doubts about where the impromptu tour would open: it c
 *“Your strength and your commitment told us this is still America. And this will not stand.”*
 
 **Streets of Minneapolis  
-**Recorded:** January 27, 2026  
-**Released:** *Streets of Minneapolis* (single, 2026)  
-**First performed:** January 30, 2026 (Minneapolis, MN)  
-**Last performed:** April 26, 2026 (Austin, TX)
+**Recorded:** January 27, 2026<br>
+**Released:** *Streets of Minneapolis* (single, 2026)<br>
+**First performed:** January 30, 2026 (Minneapolis, MN)<br>
+**Last performed:** April 26, 2026 (Austin, TX)<br>
 
 © April 28, 2026

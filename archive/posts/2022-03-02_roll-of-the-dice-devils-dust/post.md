@@ -134,9 +134,9 @@ Will we hold ourselves and our leaders accountable to our shared values, or will
 We like to think that faith will be rewarded, but sometimes faith just ain't enough.
 
 **Devils & Dust**
-**Recorded:** 2004
-**Released:** *Devils & Dust* (2005)
-**First performed:** April 4, 2005 (Red Bank, NJ)
-**Last performed:** January 12, 2017 (Washington, DC)
+**Recorded:** 2004<br>
+**Released:** *Devils & Dust* (2005)<br>
+**First performed:** April 4, 2005 (Red Bank, NJ)<br>
+**Last performed:** January 12, 2017 (Washington, DC)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

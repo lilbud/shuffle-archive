@@ -91,16 +91,15 @@ On his 2005 solo tour stop in Grand Rapids, Bruce performed “Sherry Darling”
 [https://www.youtube.com/embed/TlYjluwtyls?feature=oembed](https://www.youtube.com/embed/TlYjluwtyls?feature=oembed)
 
 May 1979 – April 1980
- (1980)
- August 4, 1978 (Charleston, WV)
- August 30, 2023 (East Rutherford, NJ)
+(1980)
+August 4, 1978 (Charleston, WV)
+August 30, 2023 (East Rutherford, NJ)
 
 **Sherry Darling**  
-**Recorded:**  
-**Released:***The River*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***The River*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

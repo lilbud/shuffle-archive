@@ -20,9 +20,9 @@ February 2004
 (2004)
 
 **Can’t Teach an Old Dog New Tricks**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Back in 20*   
+**Released:** *Back in 20* <br>
 **Never performed**
 
 © July 1, 2019

@@ -86,7 +86,7 @@ Bruce and the reunited E Street Band play their third of six nights in Philadelp
 
 [https://www.youtube.com/embed/qZAGW7nUGXM?feature=oembed](https://www.youtube.com/embed/qZAGW7nUGXM?feature=oembed)
 
- 
+
 
 [https://videopress.com/embed/CBhRcW0u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CBhRcW0u?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

@@ -2,7 +2,7 @@
 
 “To me, [Bruce Springsteen] is the Steinbeck of our time. He has this amazing gift of putting you in a place and a feeling at the same time, with only a line or a word or a melody.”
 
- 
+
 
 Gregory Alan Isakov to Elizabeth Griffin, *Esquire*, June 4, 2014
 
@@ -32,6 +32,6 @@ Of their three Springsteen covers in the encore set (one of which was a performa
 
 [https://www.youtube.com/embed/T0borCD9MhA?feature=oembed](https://www.youtube.com/embed/T0borCD9MhA?feature=oembed)
 
- 
+
 
 Isakov and Griffin are on tour right now, with that very Springsteenian encore set. Catch them if you can!

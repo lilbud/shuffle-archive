@@ -15,9 +15,9 @@ Bruce concluded with a fond “Lord bless you, George!” before launching into 
 [https://videopress.com/embed/hniSZMBx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hniSZMBx?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 December 3, 2001 (Asbury Park, NJ)
- December 3, 2001 (Asbury Park, NJ)
+December 3, 2001 (Asbury Park, NJ)
 
 **My Sweet Lord**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

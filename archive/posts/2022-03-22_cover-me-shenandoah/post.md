@@ -21,9 +21,9 @@ Bruce's live arrangement starts slowly. Accompanied only by his acoustic guitar 
 "Shenandoah" works best in its original incarnation, Bruce seemed to realize, and it's likely that's the only way we'll hear it performed from now on–as a proud entry in the deep canon of covers of this American folk classic.
 
 **Shenandoah**
-**Recorded:** March 19, 2005
-**Released:** *We Shall Overcome: The Seeger Sessions* (2006)
-**First performed:** November 18, 2006 (Dublin, Ireland)
-**Last performed:** November 18, 2006 (Dublin, Ireland)
+**Recorded:** March 19, 2005<br>
+**Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
+**First performed:** November 18, 2006 (Dublin, Ireland)<br>
+**Last performed:** November 18, 2006 (Dublin, Ireland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

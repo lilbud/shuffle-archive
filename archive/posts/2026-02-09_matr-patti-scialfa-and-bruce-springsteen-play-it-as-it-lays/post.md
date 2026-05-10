@@ -25,7 +25,7 @@ To date, Bruce and Patti have never performed “Play It As It Lays” live, but
 (2007)
 
 **Play It As It Lays**   
-**Released:** *Play It As It Lays*   
+**Released:** *Play It As It Lays* <br>
 **Never performed**
 
 © October 12, 2020

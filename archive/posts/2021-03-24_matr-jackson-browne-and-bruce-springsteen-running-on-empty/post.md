@@ -33,5 +33,5 @@ Unlike their previous performances, they traded lead vocals this time, and for t
 Bruce and Jackson have performed "Running on Empty" since (the last time was exactly 25 years to the day from their very first), and they'll likely perform it again. Like "Born to Run," it captures the lure of the road, but "Running on Empty" also captures its toll–something with which Bruce would only later become familiar.
 
 **Running on Empty**
-**First performed:** June 12, 1982 (New York City, NY)
-**Last performed:** June 12, 2007 (Red Bank, NJ)
+**First performed:** June 12, 1982 (New York City, NY)<br>
+**Last performed:** June 12, 2007 (Red Bank, NJ)<br>

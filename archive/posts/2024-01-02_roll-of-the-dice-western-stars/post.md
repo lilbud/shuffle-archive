@@ -187,16 +187,15 @@ Here’s a promotional clip from the movie, . It’s only a partial performance 
 
 Unknown
 (2019)
- April 2019 (Colts Neck, NJ)
- April 2019 (Colts Neck, NJ)
+April 2019 (Colts Neck, NJ)
+April 2019 (Colts Neck, NJ)
 
 **Western Stars**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Western Stars*   
-**First performed:**  
-**Last performed:**
+**Released:** *Western Stars* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -18,7 +18,7 @@ In 1989, Spike Lee paid homage to that scene in his cinema classic,
 
 (Do also features a direct and discomfiting Springsteen reference that I don’t feel comfortable sharing here for reasons obvious to anyone who’s seen the film. If you haven’t, you really should. But I digress.)
 
- *the Right Thing*
+*the Right Thing*
 
 Powell’s speech imprinted itself on Bruce, too. In recent years, Bruce has talked openly about his own lifelong internal struggle–except for him, it wasn’t Hate that Love was warring with, it was Fear.
 
@@ -110,15 +110,15 @@ Here’s Bruce’s last performance of “Cautious Man” to date, in East Ruthe
 [https://www.youtube.com/embed/Yxtw7W5xZao?feature=oembed](https://www.youtube.com/embed/Yxtw7W5xZao?feature=oembed)
 
 January-April 1987
- (1987)
- May 10, 1988 (Bloomington, MN)
- November 17, 2005 (East Rutherford, NJ)
+(1987)
+May 10, 1988 (Bloomington, MN)
+November 17, 2005 (East Rutherford, NJ)
 
 **Cautious Man**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Tunnel of Love*   
-**First performed:**  
-**Last performed:**
+**Released:***Tunnel of Love* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) June 9, 2020

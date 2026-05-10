@@ -69,8 +69,8 @@ Bruce has never played "Your Love" in concert, but he actually did perform it on
 So "Your Love" remains on my chase list, and it's probably destined to stay there–but a Bonds guest appearance on an E Street Band stage is never out of the realm of possibility.
 
 **Your Love**
-**Recorded:** 1981
-**Released:** Dedication (1981)
+**Recorded:** 1981<br>
+**Released:** Dedication (1981)<br>
 **First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)
 **Last performed** (by Bruce): July 2, 1989 (Long Branch, NJ)
 

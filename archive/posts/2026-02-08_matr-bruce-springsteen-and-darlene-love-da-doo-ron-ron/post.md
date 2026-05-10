@@ -25,10 +25,10 @@ Ironically, though, “Da Doo Ron Ron” doesn’t actually feature Darlene’s 
 Over the years, varying accounts have credited Love with lead vocals or backing vocals, but it’s difficult to tell whether her vocals are anywhere to be found on the original single. Regardless, though, the song has come to be associated with her, and her one-time-only performance of it with the E Street Band was a highlight of that first Hall of Fame show.
 
 September 20, 2009 (Chicago, IL)
- October 29, 2009 (New York City, NY)
+October 29, 2009 (New York City, NY)
 
 **Da Doo Ron Ron**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © January 2, 2019

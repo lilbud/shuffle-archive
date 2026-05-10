@@ -65,15 +65,14 @@ But again, the key is in those final lines. Beneath the salacious headlines, Bru
 Hearing the song for the first time in concert, did his fans understand the true message of the song? Probably not. But I doubt we were his intended audience, anyway.
 
 September 19, 1996 (Providence, RI)
- May 10, 1997 (Warsaw, Poland)
+May 10, 1997 (Warsaw, Poland)
 
 **There Will Never Be Any Other for Me But You**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

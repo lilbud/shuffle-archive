@@ -93,9 +93,9 @@ It was almost a full decade before Bruce tried again, this time by request on th
 [https://www.youtube.com/embed/u45c-Owpl40?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/u45c-Owpl40?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Local Hero**  
-**Recorded:** Late 1991  
-**Released:** *Lucky Town* (1992), *In Concert/MTV Plugged* (1993)  
-**First performed:** May 6, 1992 (New York City, NY)  
-**Last performed:** September 15, 2024 (Asbury Park, NJ)
+**Recorded:** Late 1991<br>
+**Released:** *Lucky Town* (1992), *In Concert/MTV Plugged* (1993)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** September 15, 2024 (Asbury Park, NJ)<br>
 
 © January 17, 2019

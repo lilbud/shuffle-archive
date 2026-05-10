@@ -92,14 +92,13 @@ What accounts for the distance between the handwritten lyrics and the bootleg â€
 The rest is pre-history.
 
 March 10, 1974 (Houston, TX)
- March 10, 1974 (Houston, TX)
+March 10, 1974 (Houston, TX)
 
 **Angelâ€™s Blues**
 Never recorded**  
 
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -69,18 +69,10 @@ Performed in the same arrangement he used for the Born in the U.S.A. Tour, Bruce
 
 [https://www.youtube.com/embed/-evrNIjJLoc?feature=oembed](https://www.youtube.com/embed/-evrNIjJLoc?feature=oembed)
 
-January 12, 1984
- (1988)
- July 12, 1984 (East Troy, WI)
- July 28, 2013 (Kilkenny, Ireland)
-
 **Man at the Top**
-**Recorded:**  
+**Recorded:** January 12, 1984<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** July 12, 1984 (East Troy, WI)<br>
+**Last performed:** July 28, 2013 (Kilkenny, Ireland)<br>
 
-**Released:***Tracks*  
-**First performed:**  
-**Last performed:**
-
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

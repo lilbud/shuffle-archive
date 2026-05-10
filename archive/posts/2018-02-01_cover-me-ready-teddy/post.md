@@ -7,5 +7,5 @@ It's a great opener, so it's a surprise that this was a true one-off–Bruce nev
 [Watch on Youtube: Little Richard - Ready Teddy](https://www.youtube.com/watch?v=tpMaCUh569I)
 
 **Ready Teddy**
-**First performed:** November 16, 1978 (Toronto, ON)
-**Last performed:** January 20, 1991 (Sea Bright, NJ)
+**First performed:** November 16, 1978 (Toronto, ON)<br>
+**Last performed:** January 20, 1991 (Sea Bright, NJ)<br>

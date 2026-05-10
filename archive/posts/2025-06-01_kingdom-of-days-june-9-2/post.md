@@ -1,6 +1,6 @@
 
 
- *New entry for 1977***New for 2025:**
+*New entry for 1977***New for 2025:**
 
 The Castiles play the Senior Farewell Dance at Freehold Regional High School.
 

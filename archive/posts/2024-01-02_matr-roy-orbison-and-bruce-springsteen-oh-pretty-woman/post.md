@@ -41,8 +41,8 @@ Here’s their (finally) perfect cover of Roy Orbison’s “Oh, Pretty Woman”
 [https://www.youtube.com/embed/HDTcWqDCZi8?feature=oembed](https://www.youtube.com/embed/HDTcWqDCZi8?feature=oembed)
 
 January 21, 1987 (New York City, NY)
- August 1, 2015 (Asbury Park, NJ)
+August 1, 2015 (Asbury Park, NJ)
 
 **Oh, Pretty Woman**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

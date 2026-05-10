@@ -21,6 +21,6 @@ In the spring of 2022, Bruce performed “Come Together” in public–this time
 January 20, 1994 (New York City, NY)
 April 24, 2022 (New York City, NY)
 
-**Come Together** **First performed:**   
+**Come Together** **First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -114,17 +114,17 @@ On one occasion, Bruce even attempted it acoustically on the piano, with uneven 
 Still, in the right setting, at the right moment, and with the right feeling, “Mary’s Place” can be the adrenaline shot that lifts an already stellar show into the stratosphere. While never commonplace in the years since 2004, “Mary’s Place” makes return appearances from time to time and will likely continue to do so for as long as fans continue to meet there… and turn it up.
 
 February-March 2002
- (2002)
- July 25, 2002 (Asbury Park, NJ)
- September 3, 2023 (East Rutherford, NJ)
+(2002)
+July 25, 2002 (Asbury Park, NJ)
+September 3, 2023 (East Rutherford, NJ)
 
 **Mary’s Place**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Rising*  
-**First performed:**  
-**Last performed:**
+**Released:** *The Rising*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

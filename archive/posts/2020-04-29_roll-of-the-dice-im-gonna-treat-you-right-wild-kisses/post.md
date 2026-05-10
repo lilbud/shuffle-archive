@@ -31,7 +31,7 @@ It sure would be a nice surprise for *Tracks II*, though.
 
 **I'm Gonna Treat You Right (Wild Kisses)**
 Never recorded**
-**First performed:** October 26, 1978 (Holmdel, NJ) (soundcheck only)
-**Last performed:** October 26, 1978 (Holmdel, NJ) (soundcheck only)
+**First performed:** October 26, 1978 (Holmdel, NJ) (soundcheck only)<br>
+**Last performed:** October 26, 1978 (Holmdel, NJ) (soundcheck only)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

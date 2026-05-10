@@ -12,11 +12,9 @@ February-March 1979 (demo)
 N/A
 
 **Baby Come Back**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:**   
+**Released:** <br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -11,9 +11,9 @@ Bonus footage: Bruce and the E Street Band cover “London Calling” in concert
 [https://www.youtube.com/embed/9o_YqNN4cDQ?feature=oembed](https://www.youtube.com/embed/9o_YqNN4cDQ?feature=oembed)
 
 February 23, 2003 (New York City, NY)
- October 29, 2009 (New York City, NY)
+October 29, 2009 (New York City, NY)
 
 **London Calling**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -15,5 +15,5 @@ Southside, Bruce and Parker grooved on "Chain of Fools" for nine minutes (with a
 To date, that remains Bruce's only performance of one of Aretha's all-time greatest hits.
 
 **Chain of Fools**
-**First performed:** May 27, 2001 (Asbury Park, NJ)
-**Last performed:** May 27, 2001 (Asbury Park, NJ)
+**First performed:** May 27, 2001 (Asbury Park, NJ)<br>
+**Last performed:** May 27, 2001 (Asbury Park, NJ)<br>

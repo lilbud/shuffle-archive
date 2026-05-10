@@ -124,18 +124,10 @@ Shortly before Christmas, Bruce unexpectedly and without fanfare published a new
 
 The footage hails from (we believe) one of Bruce’s solo acoustic shows in Boston in 2005, and it finally does justice to this beautiful song with a superbly filmed performance.
 
-2004 (strings); uncertain (core recording)
-(2005)
- April 21, 2005 (Asbury Park, NJ)
- November 22, 2005 (Trenton, NJ)
-
 **Matamoros Banks**
-**Recorded:**  
+**Recorded:** 2004 (strings); uncertain (core recording)<br>
+**Released:** *Devils & Dust* (2005)<br>
+**First performed:** April 21, 2005 (Asbury Park, NJ)<br>
+**Last performed:** November 22, 2005 (Trenton, NJ)<br>
 
-**Released:** *Devils & Dust*   
-**First performed:**  
-**Last performed:**
-
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

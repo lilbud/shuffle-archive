@@ -74,13 +74,12 @@ Bruce is believed to have played “Clouds” during some of his acoustic shows 
 Perhaps someday a recording will surface and we’ll find out for sure.
 
 unknown
- unknown
+unknown
 
 **Clouds**  
 **Never recorded**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

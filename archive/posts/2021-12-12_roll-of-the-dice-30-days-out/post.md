@@ -55,11 +55,10 @@ Bonus: Here’s an alternate take–a bit faster with an alternate ending.
 March-April 1990 promo (1992) (select countries only)
 
 **30 Days Out**
-**Recorded:**   
- **Released:**   
+**Recorded:** <br>
+**Released:** <br>
 *Leap of Faith*  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

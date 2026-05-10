@@ -104,7 +104,7 @@ Sigh. Oh, Bruce...
 **Girlfriend Blues**
 Never recorded**
 **Never released**
-**First performed:** July 17, 1970 (Asbury Park, NJ)
-**Last performed:** July 17, 1970 (Asbury Park, NJ)
+**First performed:** July 17, 1970 (Asbury Park, NJ)<br>
+**Last performed:** July 17, 1970 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

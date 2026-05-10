@@ -128,10 +128,10 @@ Still, "Streets of Philadelphia" is a pretty sure bet when Bruce brings the band
 So if "Streets of Philadelphia" is on your chase list, you've still got a pretty good chance of catching it live... as long as you make the trip to the City of Brotherly Love.
 
 **Streets of Philadelphia**
-**Recorded:** August 1993
-**Released:** *Philadelphia* (1994), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
-**First performed:** January 27, 1994 (Los Angeles, CA)
-**Last performed:** September 9, 2016 (Philadelphia, PA)
+**Recorded:** August 1993<br>
+**Released:** *Philadelphia* (1994), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** January 27, 1994 (Los Angeles, CA)<br>
+**Last performed:** September 9, 2016 (Philadelphia, PA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries return in August!
 

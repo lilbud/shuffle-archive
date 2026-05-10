@@ -21,9 +21,9 @@ From March 8, 1997, take a listen to Bruce and The Wallflowers tear it up on “
 [https://www.youtube.com/embed/USSPnsZMO90?feature=oembed](https://www.youtube.com/embed/USSPnsZMO90?feature=oembed)
 
 March 8, 1997 (Sea Bright, NJ)
- March 8, 1997 (Seat Bright, NJ)
+March 8, 1997 (Seat Bright, NJ)
 
 **Brand New Cadillac**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

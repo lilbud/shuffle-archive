@@ -37,9 +37,9 @@ More than anything else, that’s a giveaway that Bruce identified with Lorde an
 That’s a lesson they’ve both proven time and again.
 
 March 1, 2014 (Auckland, New Zealand)
- March 2, 2014 (Auckland, New Zealand)
+March 2, 2014 (Auckland, New Zealand)
 
 **Royals**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

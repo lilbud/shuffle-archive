@@ -18,7 +18,7 @@ The Pacific Northwest leg of the Darkness Tour continues with a stop at the Para
 
 [https://www.youtube.com/embed/SH6H1GcvuPs?feature=oembed](https://www.youtube.com/embed/SH6H1GcvuPs?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/The_Daily_Herald_1978_06_29_21.jpg?resize=758%2C379&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/The_Daily_Herald_1978_06_28_43.jpg?resize=758%2C1232&amp;ssl=1)
 

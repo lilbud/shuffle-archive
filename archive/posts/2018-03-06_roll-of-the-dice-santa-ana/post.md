@@ -63,9 +63,9 @@ In concert, "Santa Ana" has been performed very few times–that we know of. The
 Bruce rescued "Santa Ana" from obscurity in 2005 for five performances, and then promptly returned it from whence it came. It hasn't been seen since.
 
 **Santa Ana**
-**Recorded:** June 28, 1973
-**Released:** *Tracks* (1998)
-**First performed:** January 3, 1973 (Bryn Mawr, PA)
-**Last performed:** November 21, 2005 (Trenton, NJ)
+**Recorded:** June 28, 1973<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** January 3, 1973 (Bryn Mawr, PA)<br>
+**Last performed:** November 21, 2005 (Trenton, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

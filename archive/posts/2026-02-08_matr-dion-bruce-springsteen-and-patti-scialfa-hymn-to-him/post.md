@@ -32,9 +32,9 @@ Unknown
 (2020)
 
 **Hymn to Him**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Blues With Friends*   
+**Released:** *Blues With Friends* <br>
 **Never performed**
 
 © April 26, 2021

@@ -43,9 +43,9 @@ It was an inspired choice–for fans anxious for release in that freshly post-9/
 Here’s hoping we all get to make a return visit soon.
 
 August 20, 1994 (Long Branch, NJ)
- September 7, 2003 (Boston, MA)
+September 7, 2003 (Boston, MA)
 
 **Diddy Wah Diddy**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -92,9 +92,9 @@ On this first day of a new year, may you feel that same hope and possibility–a
 [Watch on Youtube: Hello Sunshine - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=ItacaaT6Nsk)
 
 **Hello Sunshine**
-**Recorded:** 2010, 2019
-**Released:** *Western Stars* (2019)
-**First performed:** April 2019 (Colts Neck, NJ)
-**Last performed:** April 2019 (Colts Neck, NJ)
+**Recorded:** 2010, 2019<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

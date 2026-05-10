@@ -157,15 +157,15 @@ Bruce has been off the road ever since, but I have to imagine that if the rumore
 We certainly need the reminder.
 
 ?
- (2006);(2011)
- June 22, 2006 (New York City, NY)
- May 29, 2020 (Boston, MA)
+(2006);(2011)
+June 22, 2006 (New York City, NY)
+May 29, 2020 (Boston, MA)
 
 **American Land**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***We Shall Overcome: The Seeger Sessions: American Land Edition* *Wrecking Ball*   
-**First performed:**  
-**Last performed:**
+**Released:***We Shall Overcome: The Seeger Sessions: American Land Edition* *Wrecking Ball* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © January 10, 2020

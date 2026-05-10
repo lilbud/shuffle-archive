@@ -27,11 +27,11 @@ It took a request sign to finally get Bruce to play the song with the E Street B
 [https://www.youtube.com/embed/kg2AOVXpqU4?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/kg2AOVXpqU4?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 July 25, 1982 (Asbury Park, NJ)
- September 21, 2009 (Des Moines, IA)
+September 21, 2009 (Des Moines, IA)
 
 **The Wanderer**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © May 8, 2019

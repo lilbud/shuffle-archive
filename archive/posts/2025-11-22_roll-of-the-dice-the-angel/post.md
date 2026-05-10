@@ -113,15 +113,15 @@ That night––was the last time Bruce played “The Angel” in public to date
 Bruce would continue to reach far back into his catalog (and even earlier) in the years to come, but that perfect performance of “The Angel” felt like a farewell and a fond send-off from a once-desperate, hungry songwriter to a song that had long since served its purpose.
 
 June 27 – October 26, 1972
- (1973)
- February 14, 1972 (New York City, NY)
- November 22, 2009 (Buffalo, NY)
+(1973)
+February 14, 1972 (New York City, NY)
+November 22, 2009 (Buffalo, NY)
 
 **The Angel**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:**[](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.*   
-**First performed:**  
-**Last performed:**
+**Released:**[](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © September 26, 2020

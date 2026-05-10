@@ -139,9 +139,9 @@ My favorite performances, though, are when Bruce plays it alone at the piano. "I
 [Watch on Youtube: Bruce Springsteen-Independence Day from "Ties" Documentary](https://www.youtube.com/watch?v=xouTzlWWpa4)
 
 **Independence Day**
-**Recorded:** Autumn 1977 – April 1980
-**Released:** *The River* (1980)
+**Recorded:** Autumn 1977 – April 1980<br>
+**Released:** *The River* (1980)<br>
 **First performed: J**uly 7, 1978 (Los Angeles, CA)
-**Last performed:** August 23, 2016 (East Rutherford, NJ)
+**Last performed:** August 23, 2016 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

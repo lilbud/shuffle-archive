@@ -52,15 +52,15 @@ It’s still early, but “Don’t Play That Song” shows every sign of becomin
 
 2021
 (2022)
- November 15, 2022 (New York City, NY)
- February 14, 2023 (Houston, TX)
+November 15, 2022 (New York City, NY)
+February 14, 2023 (Houston, TX)
 
 **Don’t Play That Song**  
-**Recorded:**  
-**Released:** *Only the Strong Survive*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Only the Strong Survive* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

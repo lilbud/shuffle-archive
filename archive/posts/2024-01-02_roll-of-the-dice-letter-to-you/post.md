@@ -149,16 +149,16 @@ Please play “Letter to You,” Bruce. Just play it solo acoustic.
 
 November 18-22, 2019
 (2020)
- December 21, 2020 (Colts Neck, NJ)
- September 3, 2022 (East Rutherford, NJ)
+December 21, 2020 (Colts Neck, NJ)
+September 3, 2022 (East Rutherford, NJ)
 
 **Letter to You**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Letter to You*   
-**First performed:**  
-**Last performed:**
+**Released:** *Letter to You* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

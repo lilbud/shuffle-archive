@@ -17,5 +17,5 @@ However, we *do* have a recording of Bruce and the E Street Band performing it d
 Unfortunately, the recording is distant and the performance is short (they had new material to perfect, after all). But it's all we have–other than an unrecorded Reunion Tour soundcheck, this is the only documented performance of Bruce performing "Heart Full of Soul."
 
 **Heart Full of Soul**
-**First performed:** May 19, 1978 (Asbury Park, NJ) (soundcheck only)
-**Last performed:** June 27, 1999 (Oslo, Norway) (soundcheck only)
+**First performed:** May 19, 1978 (Asbury Park, NJ) (soundcheck only)<br>
+**Last performed:** June 27, 1999 (Oslo, Norway) (soundcheck only)<br>

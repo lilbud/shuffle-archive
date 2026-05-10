@@ -48,11 +48,11 @@ Here’s a clip of Bruce strumming a little bit of “When The Saints Go Marchin
 [https://videopress.com/embed/iCn8QoAN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iCn8QoAN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 April 20, 2006 (Asbury Park, NJ)
- May 3, 2014 (New Orleans, LA)
+May 3, 2014 (New Orleans, LA)
 
 **When the Saints Go Marching In**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) March 28, 2021

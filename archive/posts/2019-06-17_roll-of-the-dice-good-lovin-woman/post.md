@@ -12,7 +12,7 @@ Ah, but that guitar solo just past the three-minute mark... that's another story
 
 **Good Lovin' Woman**
 **Never recorded**
-**First performed:** August 14, 1970 (Richmond, VA)
-**Last performed:** August 14, 1970 (Richmond, VA)
+**First performed:** August 14, 1970 (Richmond, VA)<br>
+**Last performed:** August 14, 1970 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

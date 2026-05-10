@@ -129,16 +129,15 @@ Watch this wonderful performance from Charlottesville in 2012, featuring a loose
 
 November 10, 1977 (brass recorded in 1998)
 (1998)
- March 19, 1999 (Asbury Park, NJ)
- October 23, 2012 (Charlottesville, VA)
+March 19, 1999 (Asbury Park, NJ)
+October 23, 2012 (Charlottesville, VA)
 
 **Give the Girl a Kiss**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tracks*   
-**First performed:**  
-**Last performed:**
+**Released:** *Tracks* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -29,11 +29,11 @@ Bruce’s version of “Chains” is loose and sloppy–almost drunken–and bas
 As far as we know, this was a true one-off: “Chains” hasn’t turned up in Bruce’s sets before or since.
 
 Unknown (probably mid-1971)
- Unknown (probably mid-1971)
+Unknown (probably mid-1971)
 
 **Chains**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © April 20, 2022

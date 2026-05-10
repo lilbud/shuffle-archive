@@ -114,15 +114,14 @@ Enjoy the official video (yes, there is one) for “The Big Muddy.”
 
 Late 1991
 (1992)
- May 6, 1992 (New York City, NY)
- December 17, 1992 (Lexington, KY)
+May 6, 1992 (New York City, NY)
+December 17, 1992 (Lexington, KY)
 
 **The Big Muddy**  
-**Recorded:**  
-**Released:** *Lucky Town*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Lucky Town* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

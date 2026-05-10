@@ -73,8 +73,8 @@ Regardless of whether "Happy" ever receives a live outing, though, it's nice to 
 I suspect Bruce wrote "Happy" more for himself and his family than for his audience, and I'm fine evaluating it in that light. Everyone should get to feel that kind of contentment at least once.
 
 **Happy**
-**Recorded:** January 18, 1992
-**Released:** *Tracks* (1998)
+**Recorded:** January 18, 1992<br>
+**Released:** *Tracks* (1998)<br>
 **Never performed**
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

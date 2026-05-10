@@ -77,7 +77,7 @@ The rest is pre-history.
 
 **Angel's Blues**
 Never recorded**
-**First performed:** March 10, 1974 (Houston, TX)
-**Last performed:** March 10, 1974 (Houston, TX)
+**First performed:** March 10, 1974 (Houston, TX)<br>
+**Last performed:** March 10, 1974 (Houston, TX)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

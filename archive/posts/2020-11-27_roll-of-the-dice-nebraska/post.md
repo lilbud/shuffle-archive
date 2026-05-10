@@ -42,12 +42,11 @@ December 1981-January 1982 (1982), (2003) July 1, 1984 (St. Paul, MN)
 October 27, 2020 (Colts Neck, NJ)
 
 **Nebraska**
-**Recorded:**   
- **Released:**   
-*Nebraska**The Essential Bruce Springsteen*  **First performed:**  
+**Recorded:** <br>
+**Released:** <br>
+*Nebraska**The Essential Bruce Springsteen*  **First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

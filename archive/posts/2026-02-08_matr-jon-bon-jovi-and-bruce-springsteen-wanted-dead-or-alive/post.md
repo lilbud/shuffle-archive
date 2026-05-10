@@ -22,8 +22,8 @@ January 31, 1998 (Red Bank, NJ)
 January 31, 1998 (Red Bank, NJ)
 
 **Wanted Dead or Alive**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © March 3, 2019

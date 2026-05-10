@@ -132,10 +132,10 @@ All of this, of course, is just to serve as a build-up for the song’s climax. 
 *I wanna find one place, I wanna spit in the face of these…*
 
 **Badlands  
-**Recorded:** Late 1977  
-**Released:** *Darkness on the Edge of Town* (1978), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)  
-**First performed:** May 19, 1978 (Asbury Park, NJ)  
-**Last performed:** April 23, 2026 (Sunrise, FL)
+**Recorded:** Late 1977<br>
+**Released:** *Darkness on the Edge of Town* (1978), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
+**First performed:** May 19, 1978 (Asbury Park, NJ)<br>
+**Last performed:** April 23, 2026 (Sunrise, FL)<br>
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-LL_VBOy7r8)
 

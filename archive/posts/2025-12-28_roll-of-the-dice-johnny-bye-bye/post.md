@@ -2,7 +2,7 @@
 
 “I remember when I was nine years old and my mother had on and Elvis came on. I sat there and I said, ‘When I grow up, I wanna be just like that.’ I remember I was sitting at home when somebody called me up and told me that he died. It´s something I still think about all the time… how somebody that had so much and was so alive inside could end up losing so bad and seeming so lonely.”*The Ed Sullivan Show*
 
- 
+
 
 — Bruce Springsteen, September 2, 1981
 
@@ -149,15 +149,15 @@ Bruce replied: “I don’t know… Everybody makes their maps, and people will 
 He paused and added: “And everybody struggles.”
 
 January 1983 (Tracks version), March 9, 1983 ( version)
- (1985), (1998), (2025)
- May 13, 1981 (Manchester, England)
- April 3, 1985 (Melbourne, Australia)
+(1985), (1998), (2025)
+May 13, 1981 (Manchester, England)
+April 3, 1985 (Melbourne, Australia)
 
 **Johnny Bye-Bye**
-**Recorded:**  
+**Recorded:**<br>
 *L.A. Garage Sessions ’83*  
-**Released:** *I’m on Fire**Tracks**L.A. Garage Sessions ’83*   
-**First performed:**  
-**Last performed:**
+**Released:** *I’m on Fire**Tracks**L.A. Garage Sessions ’83* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © July 13,2022 / December 28, 2025

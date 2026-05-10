@@ -29,8 +29,8 @@ https://youtu.be/qtk5Ej1DI9Y
 Because the power had been cut, only those near the stage (or the engineers monitoring the feed above) could hear it–by strange coincidence making “Goodnight, Irene” a song that Bruce has “officially” covered more than once but which almost no one in the venue could hear.
 
 May 3, 2009 (New York City, NY)
- July 14, 2012 (London, England)
+July 14, 2012 (London, England)
 
 **Goodnight, Irene**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

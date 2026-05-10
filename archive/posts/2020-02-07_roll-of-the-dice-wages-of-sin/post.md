@@ -143,9 +143,9 @@ If you're wondering why Bruce chose to break out such an obscurity that night in
 Sometimes it ain't glamorous to be in the pit.
 
 **Wages of Sin**
-**Recorded:** May 10, 1982
-**Released:** *Tracks* (1998)
-**First performed:** May 8, 2013 (Turku, Finland)
-**Last performed:** May 8, 2013 (Turku, Finland)
+**Recorded:** May 10, 1982<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** May 8, 2013 (Turku, Finland)<br>
+**Last performed:** May 8, 2013 (Turku, Finland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

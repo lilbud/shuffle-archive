@@ -129,17 +129,15 @@ It’s very different from Bruce’s nightly performance on tour, and the only l
 [https://www.youtube.com/embed/mfJ0_WREIEg?feature=oembed](https://www.youtube.com/embed/mfJ0_WREIEg?feature=oembed)
 
 1997-2004
- (2005)
- April 22, 2005 (Asbury Park, NJ)
- November 22, 2005 (Trenton, NJ)
+(2005)
+April 22, 2005 (Asbury Park, NJ)
+November 22, 2005 (Trenton, NJ)
 
 **Reno**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Devils & Dust*   
-**First performed:**  
-**Last performed:**
+**Released:***Devils & Dust* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

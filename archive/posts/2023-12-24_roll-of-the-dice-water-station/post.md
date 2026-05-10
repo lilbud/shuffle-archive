@@ -161,7 +161,7 @@ It was the first public performance of the group who would someday be dubbed The
 **Water Station**
 Never recorded**
 **Never released**
-**First performed:** September 9, 1972 (Highlands, NJ)
-**Last performed:** September 9, 1972 (Highlands, NJ)
+**First performed:** September 9, 1972 (Highlands, NJ)<br>
+**Last performed:** September 9, 1972 (Highlands, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries coming soon! (I hope)

@@ -71,14 +71,14 @@ In 2016, Bruce released his original 1972 demo on his album, finally freeing Hen
 
 June 1972
 (2016)
- August 10, 1972 (New York City, NY)
- August 10, 1972 (New York City, NY)
+August 10, 1972 (New York City, NY)
+August 10, 1972 (New York City, NY)
 
 **Henry Boy**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Chapter and Verse*   
-**First performed:**  
-**Last performed:**
+**Released:** *Chapter and Verse* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © April 8, 2022

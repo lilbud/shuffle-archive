@@ -65,9 +65,9 @@ Bruce and Roger’s performance of “Turn! Turn! Turn!” with the E Street Ban
 Today, “Turn! Turn! Turn!” is regarded as both a folk and jangle rock classic, bearing the imprint of two of Bruce’s influencers. It’s only fitting that it remains one of the few covers that Bruce has issued on an official release.
 
 April 25, 2006 (Asbury Park, NJ)
- April 23, 2008 (Orlando, FL)
+April 23, 2008 (Orlando, FL)
 
 **Turn! Turn! Turn! (To Everything There Is a Season)”**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

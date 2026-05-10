@@ -9,9 +9,9 @@ Another great one gone too soon: Bruce Springsteen pays tribute to Glenn Frey, o
 [https://www.youtube.com/embed/4v8KEbQA8kw?feature=oembed](https://www.youtube.com/embed/4v8KEbQA8kw?feature=oembed)
 
 March 16, 2004 (New York City, NY)
- September 21, 2017 (Holmdel, NJ)
+September 21, 2017 (Holmdel, NJ)
 
 **Take It Easy**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

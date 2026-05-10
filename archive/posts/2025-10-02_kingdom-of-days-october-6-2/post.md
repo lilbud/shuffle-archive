@@ -32,7 +32,7 @@ At the first of two River Tour nights at the Richfield Coliseum, Bruce and the E
 
 [https://www.youtube.com/embed/Zv_GJ52eQf0?feature=oembed](https://www.youtube.com/embed/Zv_GJ52eQf0?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Plain_Dealer_1980_10_08_75.jpg?resize=758%2C551&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/10/The_Akron_Beacon_Journal_1980_10_07_Page_19.jpg?w=758&amp;ssl=1)
 

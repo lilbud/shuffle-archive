@@ -132,7 +132,7 @@ The Wrecking Ball Tour stops at First Niagara Center in Buffalo. Bruce enters to
 
 [https://www.youtube.com/embed/mUNQYwJRANQ?feature=oembed](https://www.youtube.com/embed/mUNQYwJRANQ?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Buffalo_News_2012_04_14_1.jpg?resize=758%2C811&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/The_Buffalo_News_2012_04_14_2.jpg?resize=758%2C735&amp;ssl=1)
 

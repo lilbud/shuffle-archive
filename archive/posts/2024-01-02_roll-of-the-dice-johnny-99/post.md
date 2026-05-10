@@ -203,17 +203,16 @@ Bruce shows no sign of reverting back to his original arrangement of “Johnny 9
 But in the back of my mind, I’ll be thinking about poor Ralph, locked away and forgotten.
 
 January 3, 1982
- (1982), (2003)
- June 29, 1984 (St. Paul, MN)
- August 30, 2023 (East Rutherford, NJ)
+(1982), (2003)
+June 29, 1984 (St. Paul, MN)
+August 30, 2023 (East Rutherford, NJ)
 
 **Johnny 99**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Nebraska* *The Essential Bruce Springsteen*   
-**First performed:**  
-**Last performed:**
+**Released:***Nebraska* *The Essential Bruce Springsteen* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -4,7 +4,7 @@ It’s a funeral dirge and a celebration of life, a church hymn and a social pro
 
 It began in 1907 as a Christian hymn by Ada R. Habershon and Charles H. Gabriel, who asked: *does a family reunite in heaven?* 
 
- 
+
 
 [https://www.youtube.com/embed/FL150IarjWM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/FL150IarjWM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
@@ -39,7 +39,7 @@ Featuring Springsteen, Staples, Darlene Love, John Mellencamp, Jackson Browne, a
 It was one link in a chain of tradition the continues on, ever unbroken.
 
 **Will the Circle Be Unbroken**
-**First performed:** June 12, 2007 (Red Bank, NJ)  
-**Last performed:** April 24, 2024 (West Long Branch, NJ)
+**First performed:** June 12, 2007 (Red Bank, NJ)<br>
+**Last performed:** April 24, 2024 (West Long Branch, NJ)<br>
 
 © February 10, 2026

@@ -26,12 +26,12 @@ August 14, 1970 (Richmond, VA)
 **Twenty More Miles**
 Never recorded
 Never released
-**First performed:**   
+**First performed:** <br>
 
 
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

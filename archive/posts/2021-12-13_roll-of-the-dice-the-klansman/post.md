@@ -48,10 +48,9 @@ Rumors still fly about a someday-soon box set treatment for and its contemporary
 March 10, 1983
 
 **The Klansman**   
-**Recorded:**   
+**Recorded:** <br>
 **Never released**   
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

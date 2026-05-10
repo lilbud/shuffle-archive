@@ -109,13 +109,12 @@ And as the song trails the final chorus, we’re deeply unsettled by the realiza
 *Hey blue eyes, yeah it’s alright*
 
 Unknown, but likely 2007-ish
- (2014)
+(2014)
 
 **Hey Blue Eyes**  
-**Recorded:**  
-**Released:***American Beauty*  
+**Recorded:**<br>
+**Released:***American Beauty*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

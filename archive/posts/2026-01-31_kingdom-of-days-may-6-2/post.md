@@ -48,7 +48,7 @@ Bruce and the E Street Band play their second of two nights at the Tacoma Dome o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Morning_News_Tribune_Mon__May_9__1988_.jpg?resize=758%2C846&amp;ssl=1)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Morning_News_Tribune_Mon__May_9__1988_-1-scaled.jpg?resize=758%2C2251&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1988-0506.jpg?resize=758%2C422&amp;ssl=1)
 

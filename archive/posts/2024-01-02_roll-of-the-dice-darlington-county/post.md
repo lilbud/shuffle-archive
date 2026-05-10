@@ -2,7 +2,7 @@
 
 Roger Scott to Bruce Springsteen: “… was full of these sharply contrasting songs, these wild celebrations alongside these hopeless people.”*The River*
 
- 
+
 
 Bruce Springsteen to Roger Scott: “On , I’d have a song like this and a song like that because I didn’t know how to combine it. By the time I’d got to the album, I kinda combined those two things. Like ‘Darlington County…'” (November 2, 1984)*The River**Born in the U.S.A.**Hot Press,*
 
@@ -123,17 +123,16 @@ Here’s Bruce working out the melody for “Darlington County” on his tape re
 [https://www.youtube.com/embed/dcjjeHtdsLg?feature=oembed](https://www.youtube.com/embed/dcjjeHtdsLg?feature=oembed)
 
 May 13, 1982
- (1984)
- June 8, 1984 (Asbury Park, NJ)
- August 24, 2023 (Foxborough, MA)
+(1984)
+June 8, 1984 (Asbury Park, NJ)
+August 24, 2023 (Foxborough, MA)
 
 **Darlington County**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Born in the U.S.A.*   
-**First performed:**  
-**Last performed:**
+**Released:***Born in the U.S.A.* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

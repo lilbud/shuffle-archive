@@ -25,13 +25,13 @@ Garry acknowledged the song’s brevity, calling it the shortest track he’d ev
 But it’s not about how long the song is but rather what you do with the time you have, and those two minutes of stage and studio time present two lifelong bandmates tearing through a terrifically fun rocker.
 
 Unknown
- (2019)
- July 6, 2019 (Asbury Park, NJ)
- July 6, 2019 (Asbury Park, NJ)
+(2019)
+July 6, 2019 (Asbury Park, NJ)
+July 6, 2019 (Asbury Park, NJ)
 
 **Dirty Rotten Shame**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***More Like Me*   
-**First performed:**  
-**Last performed:**
+**Released:***More Like Me* <br>
+**First performed:**<br>
+**Last performed:**<br>

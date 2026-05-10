@@ -29,5 +29,5 @@ Bruce Springsteen was a guest at one of those appearances, and when he joined Ea
 That was a one-off for Bruce; he hasn't played "Everybody's Trying to Be My Baby" since. But if Bruce ever goes back out on the road with the Sessions Band again, Griffin's original would make a great set list addition.
 
 **Everybody's Trying to Be My Baby**
-**First performed:** February 6, 1998 (Sea Bright, NJ)
-**Last performed:** February 6, 1998 (Sea Bright, NJ)
+**First performed:** February 6, 1998 (Sea Bright, NJ)<br>
+**Last performed:** February 6, 1998 (Sea Bright, NJ)<br>

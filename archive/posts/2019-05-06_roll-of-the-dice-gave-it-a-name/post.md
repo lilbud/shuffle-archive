@@ -49,8 +49,8 @@ The show explores the complicated civil rights history of Yonkers, New York, and
 [Watch on Youtube: Show Me a Hero. Intro](https://www.youtube.com/watch?v=xtpYCF8zMCA)
 
 **Gave It a Name**
-**Recorded:** August 24, 1998
-**Released:** *Tracks* (1998)
+**Recorded:** August 24, 1998<br>
+**Released:** *Tracks* (1998)<br>
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

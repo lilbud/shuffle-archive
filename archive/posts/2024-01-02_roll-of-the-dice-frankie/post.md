@@ -157,17 +157,15 @@ Bonus #2: Here’s another “Frankie” studio outtake, this one from the 1982 
 <http://estreetshuffle.com/wp-content/uploads/2019/03/08-Frankie-online-audio-converter.com_.mp3>
 
 May 14,1982
- (1998)
- March 26, 1976 (Atlanta, GA)
- July 20, 2016 (Horsens, Denmark)
+(1998)
+March 26, 1976 (Atlanta, GA)
+July 20, 2016 (Horsens, Denmark)
 
 **Frankie**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Tracks*  
-**First performed:**  
-**Last performed:**
+**Released:***Tracks* (1998)<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

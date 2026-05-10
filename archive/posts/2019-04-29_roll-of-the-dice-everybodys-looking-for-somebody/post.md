@@ -1,14 +1,10 @@
 
 
-Actually, it’s not at all clear to me that looking for somebody.
+Actually, it’s not at all clear to me that *anybody’s* looking for somebody.
 
-*anybody’s*
+This demo was recorded in Bruce’s home studio in Holmdel in late 1979. Fans have dubbed it “Everybody’s Looking for Somebody” (after what appears to be the refrain) or alternatively, “Blackwood” (after what appears to be a location mentioned in the song).
 
-This demo was recorded in Bruce’s home studio in Holmdel in late 1979. Fans have dubbed it “Everybody’s Looking for Somebody” (after what appears to be the refrain) or alternatively, “Blackwood” (after what appears to be a location mentioned in the song.
-
-Here’s the thing, though: I’ve listened to this thing waaaay more times than a 45-second, half-bluffed demo warrants, and I’m pretty darn sure Bruce is saying “everybody’s looking for somebody.”
-
-*not*
+Here’s the thing, though: I’ve listened to this thing waaaay more times than a 45-second, half-bluffed demo warrants, and I’m pretty darn sure Bruce is *not* saying “everybody’s looking for somebody.”
 
 Whatever everybody is looking for, it’s closer to “Blackwood” than “somebody,” but I don’t think it’s the name of a place, either.
 
@@ -18,16 +14,9 @@ So please give it a shot, and then you tell me. Take a listen below, and leave a
 
 [https://videopress.com/embed/cFNkYdxa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/cFNkYdxa?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-September-December 1979
-
-
-
 **Everybody’s Looking for ???**
-**Recorded:**  
-
+**Recorded:** September-December 1979<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

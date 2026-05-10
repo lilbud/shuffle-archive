@@ -25,14 +25,13 @@ The sound quality isn’t great, but here’s the only other known instance of �
 While the earlier version might play to ears today as a novelty song, from a historical perspective it offers us insight into a very young Bruce still developing his stage presence and patter.
 
 January 18, 1971 (South Amboy, NJ)
- December 17, 1971 (New Brunswick, NJ)
+December 17, 1971 (New Brunswick, NJ)
 
 **Mary Louise Watson**
 Never recorded/released**  
 
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

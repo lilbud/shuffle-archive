@@ -112,16 +112,16 @@ But he also tried giving “Rendezvous” to The Knack in 1978, offering the ban
 
 September 29, 1977
 (2010)
- August 1, 1976 (Red Bank, NJ)
- November 16, 2019 (Asbury Park, NJ)
+August 1, 1976 (Red Bank, NJ)
+November 16, 2019 (Asbury Park, NJ)
 
 **Rendezvous**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Promise*   
-**First performed:**  
-**Last performed:**
+**Released:** *The Promise* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

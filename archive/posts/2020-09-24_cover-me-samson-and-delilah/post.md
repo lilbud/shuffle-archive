@@ -25,9 +25,9 @@ That’s too bad–because it’s a fantastic performance. Here it is, thankfull
 [https://www.youtube.com/embed/37Ldb44KngI?feature=oembed](https://www.youtube.com/embed/37Ldb44KngI?feature=oembed)
 
 October 5, 2006
- October 5, 2006
+October 5, 2006
 
 **Samson and Delilah**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -129,17 +129,16 @@ https://www.youtube.com/watch?v=S1oagD7dv_Q
 Still, “Fire” remains a fan favorite for those able to look past its content, or at least recognize that we don’t have to admire a song’s point-of-view character to appreciate a great performance.
 
 1977 and 2010
- (2010)
- May 23, 1978 (Buffalo, NY)
- September 4, 2021 (New York City, NY)
+(2010)
+May 23, 1978 (Buffalo, NY)
+September 4, 2021 (New York City, NY)
 
 **Fire**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***The Promise*   
-**First performed:**  
-**Last performed:**
+**Released:***The Promise* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

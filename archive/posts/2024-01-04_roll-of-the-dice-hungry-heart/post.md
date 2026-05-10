@@ -200,16 +200,16 @@ Bruce released that version as an official single that year, too. What made him 
 
 June 14-21, 1979
 (1980), (1995), (2015)
- October 18, 1980 (St. Louis, MO)
- April 7, 2023 (Baltimore, MD)
+October 18, 1980 (St. Louis, MO)
+April 7, 2023 (Baltimore, MD)
 
 **Hungry Heart**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The River* *Greatest Hits**The Ties That Bind: The River Collection*  
-**First performed:**  
-**Last performed:**
+**Released:** *The River* *Greatest Hits**The Ties That Bind: The River Collection*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

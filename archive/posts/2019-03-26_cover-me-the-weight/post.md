@@ -13,5 +13,5 @@ Here's that one-time-only sing-along performance, from May 2, 2012:
 [Watch on Youtube: Bruce Springsteen - The Weight (Prudential Center, Newark, NJ, 2012-05-02) - Multicam, dubbed.](https://www.youtube.com/watch?v=OY2DO_QLRIA)
 
 **The Weight**
-**First performed:** May 2, 2012 (Newark, NJ)
-**Last performed:** May 2, 2012 (Newark, NJ)
+**First performed:** May 2, 2012 (Newark, NJ)<br>
+**Last performed:** May 2, 2012 (Newark, NJ)<br>

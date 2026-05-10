@@ -125,16 +125,15 @@ For a song about an ex-lover carrying a torch he refuses to put down, I can’t 
 
 January 12, 1995
 (1998)
- August 4, 1999 (East Rutherford, NJ)
- February 14, 2017 (Brisbane, Australia)
+August 4, 1999 (East Rutherford, NJ)
+February 14, 2017 (Brisbane, Australia)
 
 **Back in Your Arms**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tracks*   
-**First performed:**  
-**Last performed:**
+**Released:** *Tracks* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

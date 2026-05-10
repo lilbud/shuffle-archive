@@ -226,16 +226,16 @@ But even (and perhaps especially) without any build-up or introduction), “She�
 There’s a reason why “She’s the One” is one of Bruce’s most performed songs, even if its lyrics don’t rank in the top half of his catalog. It’s a guaranteed crowd-pleaser and roof-raiser that isn’t likely to disappear from Bruce’s sets anytime soon.
 
 April-July 1975
- (1975)
- October 4, 1974 (New York City, NY)
- September 3, 2023 (East Rutherford, NJ)
+(1975)
+October 4, 1974 (New York City, NY)
+September 3, 2023 (East Rutherford, NJ)
 
 **She’s the One**  
-**Recorded:**  
-**Released:***Born to Run*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Born to Run* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -36,16 +36,15 @@ Even Bruce knew this was a clunker–watch how sheepish he is about playing this
 So yeah, I still hate the song on the album. But I’ll sneak a listen from time to time on the bootleg.
 
 1990-1991
- (1992) June 17, 1992 (Stockholm, Sweden)
- May 6, 2014 (Woodlands, TX)
+(1992) June 17, 1992 (Stockholm, Sweden)
+May 6, 2014 (Woodlands, TX)
 
 **All or Nothin’ at All**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *Human Touch*  
-**First performed:**  
-**Last performed:**
+**Released:** *Human Touch*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

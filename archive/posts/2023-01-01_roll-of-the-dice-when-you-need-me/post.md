@@ -85,14 +85,13 @@ Astute reader Yoli Clavero noted that while Bruce hasn’t performed “When You
 **Update**
 
 January 10, 1987
- (1998)
+(1998)
 
 **When You Need Me**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tracks*  
+**Released:** *Tracks*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -61,11 +61,11 @@ Here’s that performance Eddie alluded to in that interview, from Eddie and Bru
 [https://videopress.com/embed/GFBm1mrR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GFBm1mrR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 March 21, 1976 (Asbury Park, NJ)
- October 26, 2025 (Asbury Park, NJ)
+October 26, 2025 (Asbury Park, NJ)
 
 **Raise Your Hand**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) May 21, 2021

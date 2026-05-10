@@ -37,7 +37,7 @@ But that's a story for another day.
 **Living in Rock and Roll**
 Never recorded**
 **Never released**
-**First performed:** October 30, 1971 (Richmond, VA)
-**Last performed:** October 30, 1971 (Richmond, VA)
+**First performed:** October 30, 1971 (Richmond, VA)<br>
+**Last performed:** October 30, 1971 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

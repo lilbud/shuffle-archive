@@ -31,6 +31,6 @@ Bloggers' Note
 *American Babylon* returns to print this fall as a deluxe two-disc anniversary re-issue, complete with bonus demos and vintage live performances with Bruce from their famous October Assault 1995 mini-tour. The original has long been out of print, so whether you own it or not, don't miss your chance to [order this special anniversary edition](https://orcd.co/JoeGrusheckyAmericanBabylon25).
 
 **Comin' Down Maria**
-**Recorded:** July 1994
-**Released:** *American Babylon* (1995)
+**Recorded:** July 1994<br>
+**Released:** *American Babylon* (1995)<br>
 **Never performed live**

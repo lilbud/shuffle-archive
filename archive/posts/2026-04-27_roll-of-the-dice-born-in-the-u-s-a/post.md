@@ -208,9 +208,9 @@ A week later, Bruce paired it with a cover of Edwin Starr’s “War” to kick 
 But ten years, twenty years, thirty years, forty years burning down the road, it remains the most necessary.
 
 **Born in the U.S.A.  
-**Recorded:** April 27-May 3, 1984  
-**Released:** *Born in the U.S.A.* (1984); *Tracks* (1998) (acoustic); *Electric Nebraska* (2025) (outtake)  
-**First performed:** June 8, 1984 (Asbury Park, NJ)  
-**Last performed:** April 26, 2026 (Austin, TX)
+**Recorded:** April 27-May 3, 1984<br>
+**Released:** *Born in the U.S.A.* (1984); *Tracks* (1998) (acoustic); *Electric Nebraska* (2025) (outtake)<br>
+**First performed:** June 8, 1984 (Asbury Park, NJ)<br>
+**Last performed:** April 26, 2026 (Austin, TX)<br>
 
 © September 21, 2019 / March 29, 2026 / April 27, 2026

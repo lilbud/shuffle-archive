@@ -30,5 +30,5 @@ Take a listen to it below–to date, it's the only known time Bruce has performe
 [Watch on Youtube: Steve Earle and Bruce Springsteen - "Johnny Come Lately" - Sea Bright, 1998-02-06](https://www.youtube.com/watch?v=ghycWG6AejM)
 
 **Johnny Come Lately**
-**First performed:** February 6, 1998 (Sea Bright, NJ)
-**Last performed:** February 6, 1998 (Sea Bright, NJ)
+**First performed:** February 6, 1998 (Sea Bright, NJ)<br>
+**Last performed:** February 6, 1998 (Sea Bright, NJ)<br>

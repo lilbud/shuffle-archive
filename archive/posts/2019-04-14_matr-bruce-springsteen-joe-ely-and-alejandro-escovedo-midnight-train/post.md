@@ -9,9 +9,9 @@ Here’s the original–
 [https://www.youtube.com/embed/y_TyiFj-3uw?feature=oembed](https://www.youtube.com/embed/y_TyiFj-3uw?feature=oembed)
 
 March 14, 2012 (Austin, TX)
- March 14, 2012 (Austin, TX)
+March 14, 2012 (Austin, TX)
 
 **Midnight Train**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

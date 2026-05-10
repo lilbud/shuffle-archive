@@ -53,14 +53,13 @@ Unfortunately, though, this is the only known recording of Steel Mill performing
 So we’ll appreciate this recording for what it is: a remarkably clear and very listenable document of an important evolutionary step toward the someday E Street Band.
 
 September 20, 1969 (Richmond, VA)
- April 18, 1970 (Toms River, NJ)
+April 18, 1970 (Toms River, NJ)
 
 **Goin’ Down Slow**  
 **Never recorded**  
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

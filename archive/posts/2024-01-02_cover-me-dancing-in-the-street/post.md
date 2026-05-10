@@ -33,9 +33,9 @@ Well, completely. Bruce has often teased a few lines of “Dancing in the Street
 *almost*[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
 December 31, 1969 (Big Sur, CA)
- January 22, 1971 (Asbury Park, NJ)
+January 22, 1971 (Asbury Park, NJ)
 
 **Dancing in the Street**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -13,5 +13,5 @@ So here's a treat: a newly uploaded, wonderfully clear recording of Bruce and Ca
 [Watch on Youtube: Bruce Springsteen & Cats on a Smooth Surface - "Come On, Let's Go" - Stone Pony, 1982-06-27](https://www.youtube.com/watch?v=oSf8JYKOCXo)
 
 **Come On, Let's** **Go**
-**First performed:** June 20, 1982 (Asbury Park)
-**Last performed:** August 2, 1987 (Asbury Park)
+**First performed:** June 20, 1982 (Asbury Park)<br>
+**Last performed:** August 2, 1987 (Asbury Park)<br>

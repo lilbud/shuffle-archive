@@ -53,10 +53,10 @@ Unknown
 
 
 **Answering Machine**   
-**Recorded:**   
+**Recorded:** <br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

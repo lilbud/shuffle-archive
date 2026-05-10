@@ -127,25 +127,16 @@ There may come a day when the name and music of Bruce Springsteen are all but fo
 
 ---
 
+**Bonus:**
 
 Here’s the acoustic performance that followed Bruce’s VH1 Storytellers spiel that opened this essay. It’s a one-off arrangement, but it’s absolutely lovely.
 
-**Bonus:**
-
 [https://www.youtube.com/embed/6we0bK-XZaU?feature=oembed](https://www.youtube.com/embed/6we0bK-XZaU?feature=oembed)
 
-Early 2002
- (2002)
- July 25,2002 (Asbury Park, NJ)
- November 16, 2019 (Asbury Park, NJ)
-
 **Waitin’ on a Sunny Day**
-**Recorded:**  
+**Recorded:** Early 2002<br>
+**Released:** *The Rising* (2002)<br>
+**First performed:** July 25,2002 (Asbury Park, NJ)<br>
+**Last performed:** November 16, 2019 (Asbury Park, NJ)<br>
 
-**Released:***The Rising*  
-**First performed:**  
-**Last performed:**
-
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

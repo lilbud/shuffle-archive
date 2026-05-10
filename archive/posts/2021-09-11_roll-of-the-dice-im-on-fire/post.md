@@ -101,9 +101,9 @@ But in a nice bit of circle closure, shortly before his death Johnny Cash record
 [Watch on Youtube: I'm On Fire By Johnny Cash - Music Video](https://www.youtube.com/watch?v=VN9RKaL1wD4)
 
 **I'm on Fire**
-**Recorded:** May 11, 1982
-**Released:** *Born in the U.S.A.* (1984)
-**First performed:** June 29, 1984 (Saint Paul, MN)
-**Last performed:** July 2, 2023 (Oslo, Norway)
+**Recorded:** May 11, 1982<br>
+**Released:** *Born in the U.S.A.* (1984)<br>
+**First performed:** June 29, 1984 (Saint Paul, MN)<br>
+**Last performed:** July 2, 2023 (Oslo, Norway)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

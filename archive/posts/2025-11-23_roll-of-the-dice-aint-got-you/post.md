@@ -113,14 +113,14 @@ It’s been sixteen years since we last heard from “Ain’t Got You” in a Sp
 
 January – April 1987
 (1987)
- March 26, 1988 (Lexington, KY)
- November 19, 2005 (Hollywood, FL)
+March 26, 1988 (Lexington, KY)
+November 19, 2005 (Hollywood, FL)
 
 **Ain’t Got You**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tunnel of Love*   
-**First performed:**  
-**Last performed:**
+**Released:** *Tunnel of Love* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) August 30, 2021

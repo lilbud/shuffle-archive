@@ -180,13 +180,13 @@ Here’s a rare live performance of “Pilgrim in the Temple of Love” captured
 [https://www.youtube.com/embed/YfNiDh9zndQ?feature=oembed](https://www.youtube.com/embed/YfNiDh9zndQ?feature=oembed)
 
 April 16, 1996 (London, England)
- February 8, 1997 (Sydney, Australia)
+February 8, 1997 (Sydney, Australia)
 
 **Pilgrim in the Temple of Love**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) December 8, 2020 by Ken Rosen

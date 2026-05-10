@@ -61,15 +61,14 @@ So yeah, this isn’t Bruce at his best–it’s not even Bruce at his teenage b
 And the next time you hear someone complain about Bruce getting political in his later years, point them to “The War Is Over.” His values were on full display a full half-century ago.
 
 September 20, 1969 (Richmond, VA)
- August 14, 1970 (Richmond, VA)
+August 14, 1970 (Richmond, VA)
 
 **The War Is Over**  
 **Never recorded**
 Never released**  
 
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

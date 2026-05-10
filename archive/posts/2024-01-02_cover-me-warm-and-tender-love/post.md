@@ -29,9 +29,9 @@ It’s always been a mystery to me why Bruce re-wrote “Warm and Tender Love”
 To this day, we’ve never heard Bruce perform this immortal classic in concert, so what could have been a standout performance remains an intimate curiosity, thankfully captured on video for posterity.
 
 March 23, 1993 (Red Bank, NJ) (soundcheck only)
- March 23, 1993 (Red Bank, NJ) (soundcheck only)
+March 23, 1993 (Red Bank, NJ) (soundcheck only)
 
 **Warm and Tender Love**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

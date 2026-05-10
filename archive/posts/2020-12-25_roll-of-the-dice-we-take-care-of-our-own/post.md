@@ -108,9 +108,9 @@ In a stripped-down arrangement with warm vocals, the full plaintive power of the
 [Watch on Youtube: We Take Care of Our Own - Bruce Springsteen (live at Beacon Theatre, New York City 2012)](https://www.youtube.com/watch?v=NDNZ2Unv4Mg)
 
 **We Take Care of Our Own**
-**Recorded:** 2011
-**Released:** *Wrecking Ball* (2012)
-**First performed:** February 10, 2012 (Los Angeles, CA)
-**Last performed:** June 22, 2016 (Copenhagen, Denmark)
+**Recorded:** 2011<br>
+**Released:** *Wrecking Ball* (2012)<br>
+**First performed:** February 10, 2012 (Los Angeles, CA)<br>
+**Last performed:** June 22, 2016 (Copenhagen, Denmark)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

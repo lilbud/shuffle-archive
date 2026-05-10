@@ -39,9 +39,9 @@ But it’s hard to resist falling under the spell of the E Street Band having th
 [https://www.youtube.com/embed/aA8Po2DBtf8?feature=oembed](https://www.youtube.com/embed/aA8Po2DBtf8?feature=oembed)
 
 September 21, 2003 (Detroit, MI)
- February 2, 2014 (Adelaide, Australia)
+February 2, 2014 (Adelaide, Australia)
 
 **Heat Wave**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

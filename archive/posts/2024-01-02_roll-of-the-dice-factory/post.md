@@ -99,17 +99,16 @@ The first is Bruce’s opening number from a Labor Day concert in Philadelphia i
 [https://www.youtube.com/embed/plaOhNjJeBg?feature=oembed](https://www.youtube.com/embed/plaOhNjJeBg?feature=oembed)
 
 October-November, 1977
- (1978)
- July 21, 1978 (Nashville, TN)
- September 5, 2016 (Virginia Beach, VA)
+(1978)
+July 21, 1978 (Nashville, TN)
+September 5, 2016 (Virginia Beach, VA)
 
 **Factory**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Darkness on the Edge of Town*   
-**First performed:**  
-**Last performed:**
+**Released:***Darkness on the Edge of Town* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

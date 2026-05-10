@@ -42,6 +42,6 @@ September 25, 1996 (Akron, OH)
 May 13, 2021 (Colts Neck, NJ)
 
 **Tom Joad**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

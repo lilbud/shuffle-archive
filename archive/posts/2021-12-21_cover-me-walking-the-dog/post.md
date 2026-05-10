@@ -51,8 +51,8 @@ There was one other time, however–way back in 1982, with Sonny Kenn & The Wild
 That performance was nowhere near as daring or expansive as any of the Bruce Springsteen Band or E Street Band versions, but it remains the last recorded document of Bruce performing a song that was a staple of his early set lists.
 
 December 11, 1971 (Asbury Park, NJ)
- July 17, 2004 (Asbury Park, NJ)
+July 17, 2004 (Asbury Park, NJ)
 
 **Walking the Dog**   
-**First performed:**   
-**Last performed:**
+**First performed:** <br>
+**Last performed:**<br>

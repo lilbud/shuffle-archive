@@ -148,9 +148,9 @@ So feel to reach out to me through the blog or wherever else we engage on-line, 
 [Watch on Youtube: Bruce Springsteen - Magic (Live Toronto 15.10.2007)](https://www.youtube.com/watch?v=hgzYSwLqQcc)
 
 **Magic**
-**Recorded:** March-May, 2007
-**Released:** *Magic* (2007)
-**First performed:** September 25, 2007 (Asbury Park, NJ)
-**Last performed:** June 23, 2008 (Antwerp, Belgium)
+**Recorded:** March-May, 2007<br>
+**Released:** *Magic* (2007)<br>
+**First performed:** September 25, 2007 (Asbury Park, NJ)<br>
+**Last performed:** June 23, 2008 (Antwerp, Belgium)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

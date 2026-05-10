@@ -114,16 +114,14 @@ Bruce played “Used Cars” only once more in the years since. It was another a
 As I wrote at the top, there’s a lot of information conveyed in “Used Cars,” and even more emotion–and almost all of it lies beneath the surface. To this day it remains one of Bruce’s most nuanced and powerfully layered songs.
 
 December 1981 – January 1982
- (1982)
- June 29, 1984 (St. Paul, MN)
- October 6, 2008 (Ypsilanti, MI)
+(1982)
+June 29, 1984 (St. Paul, MN)
+October 6, 2008 (Ypsilanti, MI)
 
 **Used Cars**  
-**Recorded:**  
-**Released:***Nebraska*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Nebraska*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**By popular demand, guest blogger Katy Crane returns today with a new entry.* **Two Faces**
 

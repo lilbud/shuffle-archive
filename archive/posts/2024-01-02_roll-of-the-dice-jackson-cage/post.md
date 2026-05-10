@@ -181,17 +181,16 @@ Here’s one of those performances, from one of the very last full-album shows i
 Will we see “Jackson Cage” again? If history is any indication, probably. Although it didn’t show up in the brief 2004 Vote for Change and 2017 Australian tours, it hasn’t skipped out a full E Street Band tour in over fifteen years. We haven’t heard the last from our lifers.
 
 February-March, 1980
- (1980)
- October 3, 1980 (Ann Arbor, MI)
- July 28, 1980 (Oslo, Norway)
+(1980)
+October 3, 1980 (Ann Arbor, MI)
+July 28, 1980 (Oslo, Norway)
 
 **Jackson Cage**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***The River*  
-**First performed:**  
-**Last performed:**
+**Released:***The River*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

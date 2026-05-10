@@ -71,7 +71,7 @@ The fact that “Spirit in the Night” swings as much as it does is entirely du
 
 Let’s take a listen.
 
- 
+
 
 [https://www.youtube.com/embed/hFEeqfqoTSY?feature=oembed](https://www.youtube.com/embed/hFEeqfqoTSY?feature=oembed)
 
@@ -201,15 +201,15 @@ Although the 1973 single went nowhere chart-wise, “Spirit in the Night” rema
 Regardless of whether it was inspired by The Bard, The Band, the poet, or the girlfriend, its magic belongs to The Boss.
 
 September 11, 1972 – October 26, 1972
- (1973), (2003)
- January 31, 1973 (New York City, NY)
- November 22, 2024 (Vancouver, BC)
+(1973), (2003)
+January 31, 1973 (New York City, NY)
+November 22, 2024 (Vancouver, BC)
 
 **Spirit in the Night**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Greetings from Asbury Park, N.J.**The Essential Bruce Springsteen*   
-**First performed:**  
-**Last performed:**
+**Released:** *Greetings from Asbury Park, N.J.**The Essential Bruce Springsteen* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © March 1, 2020

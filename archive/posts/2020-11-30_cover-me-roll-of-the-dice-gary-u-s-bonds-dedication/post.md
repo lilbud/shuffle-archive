@@ -91,18 +91,10 @@ They’re not Bruce’s deepest lyrics, but they would have been right at home o
 
 [https://videopress.com/embed/SsZa33Wh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SsZa33Wh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-June-August 1980 (vocals–possibly using a December 1979 instrumental track)
- Dedication (1981)
- (by Bruce): July 2, 1989 (Long Branch, NJ)
- (by Bruce): July 2, 1989 (Long Branch, NJ)
-
 **Dedication**
-**Recorded:**  
+**Recorded:** June-August 1980 (vocals–possibly using a December 1979 instrumental track)<br>
+**Released:** Dedication (1981)<br>
+**First performed** (by Bruce): July 2, 1989 (Long Branch, NJ)<br>
+**Last performed** (by Bruce): July 2, 1989 (Long Branch, NJ)<br>
 
-**Released:**  
-**First performed**  
-**Last performed**
-
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

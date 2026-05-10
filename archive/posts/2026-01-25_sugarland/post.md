@@ -94,15 +94,15 @@ It’s a theme carried over from explored throughout , and into and beyond.
 *Nebraska,* *L.A. Garage Sessions ’83**Born in the U.S.A.*
 
 January – February 1983
- (2025)
- November 16, 1984 (Ames, IA)
- November 18, 1984 (Lincoln, NE)
+(2025)
+November 16, 1984 (Ames, IA)
+November 18, 1984 (Lincoln, NE)
 
 **Sugarland**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***L.A. Garage Sessions ’83*  
-**First performed:**  
-**Last performed:**
+**Released:***L.A. Garage Sessions ’83*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © January 25, 2026

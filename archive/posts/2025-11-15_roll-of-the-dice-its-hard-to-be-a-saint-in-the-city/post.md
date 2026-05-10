@@ -30,7 +30,7 @@ He was the lookout for a local pimp relying on his gift of gab, which is serious
 
 
 *With my and et and hair* **blackjack****jack**slicked sweet  
- *on my like a in* Silver star **studs**  dudsHarleyheat  
+*on my like a in* Silver star **studs**  dudsHarleyheat  
 *When I down the I could feel the* strutstreetheartbeat
 
 Holy cow, that’s some hotshot writing!
@@ -133,10 +133,10 @@ May 2, 1972 (New York City, NY)
 April 3, 2023 (Brooklyn, NY)
 
 **It’s Hard to Be a Saint in the City**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** [Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Tracks*   
-**First performed:**   
-**Last performed:**
+**Released:** [Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Tracks* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
 © October 21, 2018

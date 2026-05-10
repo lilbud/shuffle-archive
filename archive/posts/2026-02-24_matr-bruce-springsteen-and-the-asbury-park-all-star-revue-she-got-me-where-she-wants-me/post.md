@@ -25,7 +25,7 @@ As for Southside, he was back in action pretty quickly. Here he is back where he
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LgDFjxLJ5B0)
 
 **She Got Me Where She Wants Me**
-**First performed:** May 12, 1977 (Red Bank, NJ)  
-**Last performed:** May 13, 1977 (Red Bank, NJ)
+**First performed:** May 12, 1977 (Red Bank, NJ)<br>
+**Last performed:** May 13, 1977 (Red Bank, NJ)<br>
 
 © September 13, 2021

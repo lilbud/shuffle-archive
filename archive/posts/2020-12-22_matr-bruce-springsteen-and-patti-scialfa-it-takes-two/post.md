@@ -33,9 +33,9 @@ On the evening of December 19, 2004, Bruce staged two holiday benefit shows at H
 [https://videopress.com/embed/c9grjILs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/c9grjILs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 April 13, 2002 (Asbury Park, NJ)
- October 17, 2009 (Asbury Park, NJ)
+October 17, 2009 (Asbury Park, NJ)
 
 **It Takes Two**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

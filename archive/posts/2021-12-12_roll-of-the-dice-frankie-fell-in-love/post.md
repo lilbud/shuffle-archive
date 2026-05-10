@@ -92,16 +92,15 @@ Bruce inevitably introduces the song by referencing its underlying arithmetic. A
 [https://www.youtube.com/embed/kMND-6X9XzA?feature=oembed](https://www.youtube.com/embed/kMND-6X9XzA?feature=oembed)
 
 2008 (probably)
- (2014)
- January 18, 2014 (Asbury Park, NJ)
- July 18, 2015 (Asbury Park, NJ)
+(2014)
+January 18, 2014 (Asbury Park, NJ)
+July 18, 2015 (Asbury Park, NJ)
 
 **Frankie Fell in Love**  
-**Recorded:**  
-**Released:** *High Hopes*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *High Hopes*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

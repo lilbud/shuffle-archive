@@ -35,5 +35,5 @@ But it's hard to resist falling under the spell of the E Street Band having that
 [Watch on Youtube: Bruce Springsteen "Heatwave" - "I'm Goin' Down" Mansfield, MA 8-23-09](https://www.youtube.com/watch?v=aA8Po2DBtf8)
 
 **Heat Wave**
-**First performed:** September 21, 2003 (Detroit, MI)
-**Last performed:** February 2, 2014 (Adelaide, Australia)
+**First performed:** September 21, 2003 (Detroit, MI)<br>
+**Last performed:** February 2, 2014 (Adelaide, Australia)<br>

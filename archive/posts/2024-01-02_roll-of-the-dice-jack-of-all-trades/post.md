@@ -112,16 +112,16 @@ After all: It’s all happened before. It’ll happen again.
 
 2011
 (2012)
- March 2, 2012 (New York City, NY)
- September 7, 2016 (Philadelphia, PA)
+March 2, 2012 (New York City, NY)
+September 7, 2016 (Philadelphia, PA)
 
 **Jack of All Trades**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Wrecking Ball*   
-**First performed:**  
-**Last performed:**
+**Released:** *Wrecking Ball* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

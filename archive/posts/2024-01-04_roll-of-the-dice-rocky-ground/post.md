@@ -124,17 +124,17 @@ liked “Rocky Ground,” too. They named it the seventh best song (by anyone) o
 Even so, “Rocky Ground” vanished after the Wrecking Ball Tour (save for a single encore at the very beginning of the High Hopes Tour), too pensive for the celebratory tour that followed. But in the years since the last full E Street Band outing, the world has traveled over some seriously rocky ground, and Bruce’s song seems more timely than ever.
 
 2011
- (2012)
- March 9, 2012 (New York City, NY)
- January 29, 2014 (Cape Town, South Africa)
+(2012)
+March 9, 2012 (New York City, NY)
+January 29, 2014 (Cape Town, South Africa)
 
 **Rocky Ground**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Wrecking Ball*  
-**First performed:**  
-**Last performed:**
+**Released:***Wrecking Ball*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -19,11 +19,11 @@ Bruce has performed “You Can’t Sit Down” so many times in concert that it�
 [https://www.youtube.com/embed/FYxRoKxneh8?feature=oembed](https://www.youtube.com/embed/FYxRoKxneh8?feature=oembed)
 
 August 1, 1976 (Red Bank, NJ)
- September 2, 2012 (Philadelphia, PA)
+September 2, 2012 (Philadelphia, PA)
 
 **You Can’t Sit Down**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) June 21, 2018

@@ -87,14 +87,15 @@ When Bruce performed “Valentine’s Day” in Portland, he received a mid-set 
 “Valentine’s Day” has gone missing since that tour, however–it’s been absent now for almost as long as it went unperformed originally. But if the cards hold another acoustic tour in Bruce’s future, I suspect we haven’t heard the last of it.
 
 early 1987
- (1987)
+(1987)
 July 23, 2005 (Atlanta, GA)
 October 21, 2005 (Providence, RI)
 
-**Valentine’s Day** **Recorded:**  
+**Valentine’s Day**
+**Recorded:**<br>
 
-**Released:** *Tunnel of Love*  
-**First performed:**   
-**Last performed:**
+**Released:** *Tunnel of Love*<br>
+**First performed:** <br>
+**Last performed:**<br>
 
 (c) June 12, 2018

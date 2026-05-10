@@ -150,16 +150,16 @@ For a song purportedly written in celebration of his band, it’s ironic that Br
 
 November 2019
 (2020)
- November 18, 2020 (Colts Neck, NJ)
- February 3, 2023 (Atlanta, GA)
+November 18, 2020 (Colts Neck, NJ)
+February 3, 2023 (Atlanta, GA)
 
 **House of a Thousand Guitars**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *Letter to You*   
-**First performed:**  
-**Last performed:**
+**Released:** *Letter to You* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

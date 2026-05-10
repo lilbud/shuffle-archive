@@ -71,7 +71,7 @@ But that's a thread we'll pick up another day, when we (finally!) bring the piec
 [Watch Video Highlight](https://videopress.com/embed/ejuhlzzg)
 
 **The Fast Song**
-**Recorded:** June-September, 1977
+**Recorded:** June-September, 1977<br>
 **Never released**
 **Never performed**
 

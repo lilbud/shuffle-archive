@@ -90,7 +90,7 @@ Bruce’s World Tour 1992 arrives in Philadelphia for a two-night stand at the S
 
 [https://www.youtube.com/embed/Me7NJnY_w6Y?feature=oembed](https://www.youtube.com/embed/Me7NJnY_w6Y?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Courier_Post_Wed__Dec_9__1992_-scaled.jpg?resize=501%2C2560&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Courier_Post_Wed__Dec_9__1992_-1.jpg?resize=758%2C982&amp;ssl=1)
 

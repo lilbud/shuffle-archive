@@ -11,5 +11,5 @@ Bruce never did play it that night–or *any* night ever–but we can eavesdrop 
 [Watch on Youtube: Bruce Springsteen - "Cathy's Clown" - Tacoma - 1988-05-06](https://www.youtube.com/watch?v=yMJ3q0nFpIY)
 
 **Cathy's Clown**
-**First performed:** May 6, 1988 (Tacoma, WA) – soundcheck only
-**Last performed:** May 6, 1988 (Tacoma, WA) – soundcheck only
+**First performed:** May 6, 1988 (Tacoma, WA) – soundcheck only<br>
+**Last performed:** May 6, 1988 (Tacoma, WA) – soundcheck only<br>

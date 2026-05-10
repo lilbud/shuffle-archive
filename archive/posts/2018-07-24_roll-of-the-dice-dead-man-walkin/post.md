@@ -60,9 +60,9 @@ The film debuted in December 1995, and Bruce was already in the middle of his so
 [Watch Video Highlight](https://videopress.com/embed/0yw1bB0y)
 
 **Dead Man Walkin'**
-**Recorded:** April-May 1995
-**Released:** *Dead Man Walking* (1996), *The Essential Bruce Springsteen* (2003)
-**First performed:** November 21, 1995 (New Brunswick, NJ)
-**Last performed:** June 23, 2000 (New York City, NY)
+**Recorded:** April-May 1995<br>
+**Released:** *Dead Man Walking* (1996), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** June 23, 2000 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -51,12 +51,12 @@ Alejandro eventually recovered, the tour finally happened, and he resumed his re
 Prior to the pandemic, Escovedo’s career was back on track, but it’s been a long eight years since he and Bruce last performed together. Let’s hope for the speedy return of live music and the chance to see these great artists perform together once more.
 
 (2008) April 14, 2008 (Houston, TX)
- March 14, 2012 (Austin, TX)
+March 14, 2012 (Austin, TX)
 
 **Always a Friend**
-**Released:**  
-*Magic Tour Highlights*  **First performed:**  
+**Released:**<br>
+*Magic Tour Highlights*  **First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © August 31, 2020

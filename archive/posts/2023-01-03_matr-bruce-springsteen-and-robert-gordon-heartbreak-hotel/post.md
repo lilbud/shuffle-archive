@@ -42,7 +42,7 @@ And that’s how Bruce came to cover “Heartbreak Hotel” for the first of wha
 
 When Bruce went out on tour for the following year, he added “Heartbreak Hotel” as a frequent cover, beginning with his legendary performance at the Roxy on July 7, 1978 (with a particular inspired solo by Roy).
 
-  [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)
+[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)
 
 [https://www.youtube.com/embed/0AuotOg1kCI?feature=oembed](https://www.youtube.com/embed/0AuotOg1kCI?feature=oembed)
 
@@ -51,9 +51,9 @@ Bruce continued to perform “Heartbreak Hotel” throughout the Darkness Tour, 
 Almost forty years down the road, Bruce has yet to revisit “Heartbreak Hotel.”
 
 December 2, 1977 (New York City, NY)
- June 13, 1982 (Asbury Park, NJ)
+June 13, 1982 (Asbury Park, NJ)
 
 **Heartbreak Hotel**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

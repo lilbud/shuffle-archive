@@ -57,14 +57,13 @@ The song itself, however, is a fairly pedestrian call-to-action for young people
 *Dead Sea Chronicles*
 
 May 23, 1970 (Richmond, VA)
- August 14, 1970 (Richmond, VA)
+August 14, 1970 (Richmond, VA)
 
 **Come On**   
 **Never recorded**  
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

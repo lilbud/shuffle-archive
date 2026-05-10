@@ -31,9 +31,9 @@ Among the songs they played that night was “Allentown,” with Bruce and Billy
 [The River of Dreams](https://estreetshuffle.com/index.php/2020/10/27/matr-billy-joel-and-bruce-springsteen-the-river-of-dreams/)[Movin’ Out (Anthony’s Song)](https://estreetshuffle.com/index.php/2020/04/27/matr-billy-joel-and-bruce-springsteen-movin-out-anthonys-song/)[A Matter of Trust](https://estreetshuffle.com/index.php/2020/03/17/matr-billy-joel-and-bruce-springsteen-a-matter-of-trust/)
 
 October 16, 2008 (New York City, NY)
- October 16, 2008 (New York City, NY)
+October 16, 2008 (New York City, NY)
 
 **Allentown**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

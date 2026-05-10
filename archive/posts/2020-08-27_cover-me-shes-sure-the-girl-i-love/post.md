@@ -17,5 +17,5 @@ The horns aren't featured on this song, but it's still a great encore performanc
 [Watch on Youtube: Bruce Springsteen - SHE'S SURE THE GIRL I LOVE 1976 (audio)](https://www.youtube.com/watch?v=hazQKc6EAEo)
 
 **She's Sure the Girl I Love (orig. He's Sure the Boy I Love)**
-**First performed:** August 1, 1976 (Red Bank, NJ)
-**Last performed:** August 1, 1976 (Red Bank, NJ)
+**First performed:** August 1, 1976 (Red Bank, NJ)<br>
+**Last performed:** August 1, 1976 (Red Bank, NJ)<br>

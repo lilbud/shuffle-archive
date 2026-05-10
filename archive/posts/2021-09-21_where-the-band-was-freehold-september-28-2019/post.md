@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**I wrote the article that follows for Backstreets.com ; it was published on September 29, 2019, the day after the events chronicled. I’m reprinting it here as part of my , in which I recap shows I’ve attended on their anniversary dates.*[Where the Band Was series](http://estreetshuffle.com/index.php/category/where-the-band-was/)
 

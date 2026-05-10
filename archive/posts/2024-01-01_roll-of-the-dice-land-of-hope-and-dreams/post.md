@@ -81,15 +81,14 @@ Following a bitter election and a last-minute insurrection attempt–all during 
 [https://www.youtube.com/embed/fW_Vny_aXNM?feature=oembed](https://www.youtube.com/embed/fW_Vny_aXNM?feature=oembed)
 
 July 1, 2000 (live), unknown (studio)(2002), (2011) March 18, 1999 (Asbury Park, NJ)
- May 24, 2023 (Gothenburg, Sweden)
+May 24, 2023 (Gothenburg, Sweden)
 
 **Land of Hope and Dreams**
-**Recorded:**  
- **Released:**   
-*Live in New York City* *Wrecking Ball* **First performed:**   
+**Recorded:**<br>
+**Released:** <br>
+*Live in New York City* *Wrecking Ball* **First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

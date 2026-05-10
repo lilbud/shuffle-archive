@@ -158,8 +158,8 @@ Rise up.
 
 **My City of Ruins  
 Recorded:** February-March 2002  
-**Released:** *The Rising* (2002)  
-**First performed:** December 17, 2000  
-**Last performed:** May 2, 2026 (Atlanta, GA)
+**Released:** *The Rising* (2002)<br>
+**First performed:** December 17, 2000<br>
+**Last performed:** May 2, 2026 (Atlanta, GA)<br>
 
 © May 3, 2026

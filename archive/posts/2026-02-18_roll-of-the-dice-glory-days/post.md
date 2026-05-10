@@ -158,9 +158,9 @@ Glory days.
 
 
 **Glory Days**
-**Recorded:** May 5, 1982  
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
-**First performed:** June 8, 1984 (Asbury Park, NJ)  
-**Last performed:** June 24, 2025 (San Sebastian, Spain)
+**Recorded:** May 5, 1982<br>
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** June 8, 1984 (Asbury Park, NJ)<br>
+**Last performed:** June 24, 2025 (San Sebastian, Spain)<br>
 
 © June 4, 2024

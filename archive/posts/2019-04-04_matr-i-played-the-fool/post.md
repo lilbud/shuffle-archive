@@ -17,5 +17,5 @@ The all-star set kicked off with "I Played the Fool," and although the sound qua
 [Watch on Youtube: Little Steven and Southside Johnny (w/Bruce Springsteen) - "I Played the Fool" - 1998-01-31](https://www.youtube.com/watch?v=yXHBxZVvT5E)
 
 **I Played the Fool**
-**First performed:** July 16, 1994 (Asbury Park, NJ)
-**Last performed:** January 31, 1998 (Red Bank, NJ)
+**First performed:** July 16, 1994 (Asbury Park, NJ)<br>
+**Last performed:** January 31, 1998 (Red Bank, NJ)<br>

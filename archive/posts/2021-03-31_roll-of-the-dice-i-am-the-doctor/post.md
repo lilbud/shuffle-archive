@@ -55,7 +55,7 @@ In the mid-song passage below, we can hear early evidence of Bruce's sense of hu
 **I Am The Doctor**
 Never recorded**
 **Never released**
-**First performed:** February 28, 1970 (Richmond, VA)
-**Last performed:** June 14, 1970 (Bricktown, NJ)
+**First performed:** February 28, 1970 (Richmond, VA)<br>
+**Last performed:** June 14, 1970 (Bricktown, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

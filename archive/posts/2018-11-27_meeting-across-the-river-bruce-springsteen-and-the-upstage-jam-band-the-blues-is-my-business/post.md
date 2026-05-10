@@ -13,5 +13,5 @@ The first song Bruce, Steve, and co. played together? "The Blues is My Business,
 [Watch on Youtube: Springsteen w/ Upstage Jam Band Asbury Park 4-21-2017](https://www.youtube.com/watch?v=62786yIkVsc)
 
 **The Blues is My Business**
-**First performed:** April 21, 2017
-**Last performed:** April 21, 2017
+**First performed:** April 21, 2017<br>
+**Last performed:** April 21, 2017<br>

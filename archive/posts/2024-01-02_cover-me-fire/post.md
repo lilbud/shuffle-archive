@@ -19,8 +19,8 @@ As for the Hendrix original, the funk and soul song was released on in 1967, but
 *Are You Experienced*<http://estreetshuffle.com/wp-content/uploads/2019/12/Jimi-Hendrix-Let-Me-Light-Your-Fire.mp3>
 
 September 16, 1967 (Freehold, NJ)
- September 16, 1967 (Freehold, NJ)
+September 16, 1967 (Freehold, NJ)
 
 **Fire**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

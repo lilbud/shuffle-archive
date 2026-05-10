@@ -86,9 +86,9 @@ Watch this performance all the way through to hear Bruce channel his inner Orbis
 [Watch Video Highlight](https://videopress.com/embed/6UU4PT3e)
 
 **Kingdom of Days**
-**Recorded:** Early 2008
-**Released:** *Working on a Dream* (2009)
-**First performed:** March 24, 2009 (Asbury Park, NJ)
-**Last performed:** May 22, 2014 (Pittsburgh, PA)
+**Recorded:** Early 2008<br>
+**Released:** *Working on a Dream* (2009)<br>
+**First performed:** March 24, 2009 (Asbury Park, NJ)<br>
+**Last performed:** May 22, 2014 (Pittsburgh, PA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

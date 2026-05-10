@@ -11,5 +11,5 @@ Want to compare with the original? You'll have to look further back than The Bea
 [Watch on Youtube: The Shirelles - Boys (1960)](https://www.youtube.com/watch?v=JnIhCCVmLEs)
 
 **Boys**
-**First performed:** August 24, 2008 (Kansas City, MO)
-**Last performed:** August 24, 2008 (Kansas City, MO)
+**First performed:** August 24, 2008 (Kansas City, MO)<br>
+**Last performed:** August 24, 2008 (Kansas City, MO)<br>

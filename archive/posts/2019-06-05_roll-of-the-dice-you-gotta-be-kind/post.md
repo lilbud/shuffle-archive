@@ -33,16 +33,9 @@ Bruce is known to fiddle around with lyrics, melodies and arrangements independe
 
 [Whitetown](http://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/)
 
-1980 (demo)
-
-
-
 **You Gotta Be Kind**
-**Recorded:**  
-
+**Recorded:** 1980 (demo)<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

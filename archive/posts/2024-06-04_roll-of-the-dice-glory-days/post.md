@@ -158,9 +158,9 @@ Glory days.
 
 
 **Glory Days**
-**Recorded:** May 5, 1982
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)
-**First performed:** June 8, 1984 (Asbury Park, NJ)
-**Last performed:** May 22, 2024 (Sunderland, England)
+**Recorded:** May 5, 1982<br>
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** June 8, 1984 (Asbury Park, NJ)<br>
+**Last performed:** May 22, 2024 (Sunderland, England)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries coming soon!

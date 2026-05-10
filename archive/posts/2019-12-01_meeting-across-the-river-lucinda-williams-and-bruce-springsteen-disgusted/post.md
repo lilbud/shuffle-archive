@@ -17,8 +17,8 @@ The other song, however, is much harder to find for some reason. So here it is, 
 [https://www.youtube.com/embed/j6xYe_1J3HM?feature=oembed](https://www.youtube.com/embed/j6xYe_1J3HM?feature=oembed)
 
 November 10, 2006 (London, England)
- November 10, 2006 (London, England)
+November 10, 2006 (London, England)
 
 **Disgusted**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

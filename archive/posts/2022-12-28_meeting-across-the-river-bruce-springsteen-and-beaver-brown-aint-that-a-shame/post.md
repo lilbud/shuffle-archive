@@ -11,9 +11,9 @@ Bonus: here’s a fantastic clip of Fats himself performing it in the 1956 movie
 [https://www.youtube.com/embed/zVYtlHwj7qs?feature=oembed](https://www.youtube.com/embed/zVYtlHwj7qs?feature=oembed)
 
 April 15, 1979 (Asbury Park, NJ)
- February 2, 1992 (New Orleans, LA)
+February 2, 1992 (New Orleans, LA)
 
 **Ain’t That a Shame**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

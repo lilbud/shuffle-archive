@@ -51,9 +51,9 @@ Bruce had started using as a second set-opener a few years earlier on the Darkne
 Bruce paused that practice on the River Tour, but “Out of Limits” proved a fitting one-time exception on that Halloween night.
 
 October 31, 1980 (Los Angeles, CA)
- October 31, 1980 (Los Angeles, CA)
+October 31, 1980 (Los Angeles, CA)
 
 **Outer Limits**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

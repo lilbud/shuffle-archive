@@ -30,14 +30,14 @@ Here’s the penultimate performance of “Erie Canal” to date, from the final
 
 March 19, 2005
 (2006)
- April 20, 2006 (Asbury Park, NJ)
- November 21, 2006 (Belfast, Northern Ireland)
+April 20, 2006 (Asbury Park, NJ)
+November 21, 2006 (Belfast, Northern Ireland)
 
 **Erie Canal**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *We Shall Overcome: The Seeger Sessions*   
-**First performed:**  
-**Last performed:**
+**Released:** *We Shall Overcome: The Seeger Sessions* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © November 2, 2019

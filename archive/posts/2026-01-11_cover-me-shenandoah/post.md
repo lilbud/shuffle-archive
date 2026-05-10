@@ -28,13 +28,13 @@ Bruce’s live arrangement starts slowly. Accompanied only by his acoustic guita
 
 March 19, 2005
 (2006)
- November 18, 2006 (Dublin, Ireland)
- November 18, 2006 (Dublin, Ireland)
+November 18, 2006 (Dublin, Ireland)
+November 18, 2006 (Dublin, Ireland)
 
 **Shenandoah**  
-**Recorded:**  
-**Released:** *We Shall Overcome: The Seeger Sessions*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *We Shall Overcome: The Seeger Sessions* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © March 22, 2022

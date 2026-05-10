@@ -209,16 +209,16 @@ My favorite version of “Racing in the Street” isn’t any of the above. It�
 
 August 1977 (both versions)
 (1978), (2010, ’78 version)
- May 23, 1978 (Buffalo, NY)
- June 26, 2023 (Gothenburg, Sweden)
+May 23, 1978 (Buffalo, NY)
+June 26, 2023 (Gothenburg, Sweden)
 
 **Racing in the Street**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*The Promise*   
-**First performed:**  
-**Last performed:**
+**Released:** [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*The Promise* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

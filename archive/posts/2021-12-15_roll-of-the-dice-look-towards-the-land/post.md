@@ -123,15 +123,14 @@ So like much of his early pre-Street work, we’ll have to content ourselves wit
 
 March 14, 1972 (rehearsal)
 
- May 15, 1971 (Union, NJ)
- October 23, 1971 (Richmond, VA)
+May 15, 1971 (Union, NJ)
+October 23, 1971 (Richmond, VA)
 
 **Look Towards the Land**   
-**Recorded:**   
+**Recorded:** <br>
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

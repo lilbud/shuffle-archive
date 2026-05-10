@@ -65,15 +65,14 @@ For all his “I can’t take it” protests, it seems that’s exactly what he�
 Not all of Bruce’s protagonists need be virtuous–if that were so, we’d be deprived of some of his best work. But we expect to be able to empathize if not sympathize, and “I Can’t Take It No More” fails on both counts.
 
 October 11, 1970 (Richmond, VA)
- January 18, 1971 (South Amboy, NJ)
+January 18, 1971 (South Amboy, NJ)
 
 **I Can’t Take It No More**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

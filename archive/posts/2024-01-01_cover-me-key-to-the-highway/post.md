@@ -28,8 +28,8 @@ Take a listen:
 <http://estreetshuffle.com/wp-content/uploads/2018/07/03-key-to-the-highway-online-audio-converter.com_.mp3>
 
 October 23, 1971 (Richmond, VA)
- August 1, 2015 (Asbury Park, NJ)
+August 1, 2015 (Asbury Park, NJ)
 
 **Key to the Highway**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

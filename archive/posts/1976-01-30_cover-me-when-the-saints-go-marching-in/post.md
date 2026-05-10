@@ -42,7 +42,7 @@ But we'll always have 2006. And when we need a little hope and solace, we could 
 [Watch Video Highlight](https://videopress.com/embed/iCn8QoAN)
 
 **When the Saints Go Marching In**
-**First performed:** April 20, 2006 (Asbury Park, NJ)
-**Last performed:** May 3, 2014 (New Orleans, LA)
+**First performed:** April 20, 2006 (Asbury Park, NJ)<br>
+**Last performed:** May 3, 2014 (New Orleans, LA)<br>
 
 (c) March 28, 2021

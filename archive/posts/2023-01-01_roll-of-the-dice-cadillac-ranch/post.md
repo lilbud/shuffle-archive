@@ -145,17 +145,16 @@ Here’s an unreleased studio outtake featuring a different mix, but the thing y
 [https://videopress.com/embed/RcbkHi9g?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RcbkHi9g?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 February 16-April 26, 1980
- (1980)
- October 3, 1980 (Ann Arbor, MI)
- November 16, 2019 (Asbury Park, NJ)
+(1980)
+October 3, 1980 (Ann Arbor, MI)
+November 16, 2019 (Asbury Park, NJ)
 
 **Cadillac Ranch**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***The River*  
-**First performed:**  
-**Last performed:**
+**Released:***The River*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

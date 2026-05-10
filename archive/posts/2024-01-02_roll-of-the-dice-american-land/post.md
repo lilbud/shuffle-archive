@@ -159,17 +159,16 @@ Bruce has been off the road ever since, but I have to imagine that if the rumore
 We certainly need the reminder.
 
 ?
- (2006);(2011)
- June 22, 2006 (New York City, NY)
- May 29, 2020 (Boston, MA)
+(2006);(2011)
+June 22, 2006 (New York City, NY)
+May 29, 2020 (Boston, MA)
 
 **American Land**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:**[](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*We Shall Overcome: The Seeger Sessions: American Land Edition* [](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*   
-**First performed:**  
-**Last performed:**
+**Released:**[](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*We Shall Overcome: The Seeger Sessions: American Land Edition* [](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

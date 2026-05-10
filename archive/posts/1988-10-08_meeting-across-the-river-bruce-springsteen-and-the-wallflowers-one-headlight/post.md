@@ -15,7 +15,7 @@ But most importantly, it was a killer performance, one that still holds up today
 [https://www.youtube.com/embed/Zzyfcys1aLM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/Zzyfcys1aLM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **One Headlight**  
-**First performed:** September 4, 1997 (New York City, NY)  
-**Last performed:** September 4, 1997 (New York City, NY)
+**First performed:** September 4, 1997 (New York City, NY)<br>
+**Last performed:** September 4, 1997 (New York City, NY)<br>
 
 © August 25, 2018

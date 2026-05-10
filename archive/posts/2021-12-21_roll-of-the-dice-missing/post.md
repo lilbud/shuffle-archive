@@ -109,10 +109,10 @@ As for the rest of his abandoned 1994 album, rumor has it we may yet hear it som
 *Tracks*
 
 March-April, 1994
- (single, 1996), (2003)
+(single, 1996), (2003)
 
 **Missing**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Missing* *The Essential Bruce Springsteen*   
+**Released:***Missing* *The Essential Bruce Springsteen* <br>
 **Never performed**

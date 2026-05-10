@@ -43,15 +43,15 @@ When I point out its relative rarity in concert, Joe admits “A Good Life” ha
 “I have a feeling we’ll be playing some new songs and some different songs when we get back out there. We’re itching to play live again.”
 
 February 2006
- (2006)
- December 2, 2006 (Sayreville, NJ)
- November 4, 2011 (Pittsburgh, PA)
+(2006)
+December 2, 2006 (Sayreville, NJ)
+November 4, 2011 (Pittsburgh, PA)
 
 **A Good Life**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***A Good Life*   
-**First performed:**  
-**Last performed:**
+**Released:***A Good Life* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © January 21, 2021

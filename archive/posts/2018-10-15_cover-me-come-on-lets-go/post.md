@@ -18,5 +18,5 @@ June 20, 1982 (Asbury Park)
 August 2, 1987 (Asbury Park)
 
 **Come On, Let’s****Go**  
-**First performed:**   
-**Last performed:**
+**First performed:** <br>
+**Last performed:**<br>

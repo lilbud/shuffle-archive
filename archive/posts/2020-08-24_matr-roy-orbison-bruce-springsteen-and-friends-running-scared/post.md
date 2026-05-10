@@ -15,5 +15,5 @@ Bruce has (wisely) never attempted the song on his own.
 (Check out more Orbison/Springsteen team-ups [here](https://estreetshuffle.com/?s=orbison).)
 
 **Running Scared**
-**First performed:** September 30, 1987 (Los Angeles, CA)
-**Last performed:** September 30, 1987 (Los Angeles, CA)
+**First performed:** September 30, 1987 (Los Angeles, CA)<br>
+**Last performed:** September 30, 1987 (Los Angeles, CA)<br>

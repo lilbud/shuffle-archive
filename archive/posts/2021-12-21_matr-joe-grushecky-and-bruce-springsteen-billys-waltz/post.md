@@ -22,7 +22,7 @@ March 1995
 (1995)
 
 **Billy’s Waltz**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *American Babylon*   
+**Released:** *American Babylon* <br>
 **Never performed**

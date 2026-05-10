@@ -139,6 +139,6 @@ In any arrangement, in any setting, "Atlantic City" remains one of Bruce's crown
 **Recorded**: December 1981 – January 1982
 **Released**: *Nebraska* (1982), *In Concert/MTV Plugged* (1993), *Greatest Hits* (1995), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007)
 **First performed**: June 29, 1984 (St. Louis, MO)
-**Last performed:** September 3, 2023 (East Rutherford, NJ)
+**Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

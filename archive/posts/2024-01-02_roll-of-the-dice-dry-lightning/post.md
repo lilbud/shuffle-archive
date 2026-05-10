@@ -103,16 +103,15 @@ I haven’t given up hope of hearing one someday.
 
 April-June 1995
 (1995)
- November 21, 1995 (New Brunswick, NJ)
- May 14, 2005 (Fairfax, VA)
+November 21, 1995 (New Brunswick, NJ)
+May 14, 2005 (Fairfax, VA)
 
 **Dry Lightning**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *The Ghost of Tom Joad*   
-**First performed:**  
-**Last performed:**
+**Released:** *The Ghost of Tom Joad* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

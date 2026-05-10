@@ -65,17 +65,15 @@ The combination of pop trifle, powerful guest vocals, bright brass, and a hotsho
 Bring on summer!
 
 July 23, 1971 (New York City, NY)
- July 29, 1971 (South Amboy, NJ)
+July 29, 1971 (South Amboy, NJ)
 
 **I’m in Love Again**
 Never recorded
 Never released
-**First performed:**   
+**First performed:** <br>
 
 
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

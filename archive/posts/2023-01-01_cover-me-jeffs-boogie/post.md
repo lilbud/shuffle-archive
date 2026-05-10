@@ -33,9 +33,9 @@ Bruce would try “Jeff’s Boogie” again on at least one other occasion in 19
 But thankfully we have that 1967 recording of an aspiring rock star full of spit and fire and nothing at all to fear.
 
 September 16, 1967 (Freehold, NJ)
- November 23, 1971 (Linden, NJ)
+November 23, 1971 (Linden, NJ)
 
 **Jeff’s Boogie**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

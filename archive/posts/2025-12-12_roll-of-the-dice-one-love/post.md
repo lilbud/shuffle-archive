@@ -81,9 +81,9 @@ January 19, 1983
 
 
 **One Love**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *L.A. Garage Sessions ’83*  
+**Released:** *L.A. Garage Sessions ’83*<br>
 **Never performed**
 
 © April 23, 2019 / December 12, 2025

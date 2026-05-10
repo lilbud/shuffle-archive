@@ -40,6 +40,6 @@ November 19, 1995 (Los Angeles, CA)
 November 19, 1995 (Los Angeles, CA)
 
 **Angel Eyes**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -8,7 +8,7 @@ Bruce and the E Street Band perform their first of two shows at the War Memorial
 
 [https://www.youtube.com/embed/nLA-tppfDYk?feature=oembed](https://www.youtube.com/embed/nLA-tppfDYk?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Times_1974_11_24_112-scaled.jpg?resize=758%2C1671&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Times_1974_11_24_115-scaled.jpg?resize=758%2C515&amp;ssl=1)
 

@@ -23,5 +23,5 @@ https://www.youtube.com/watch?v=zAN38fszmJg
 It's believed that Bruce may have also played "Born to Be Wild" as early as 1968 with his band Child, since the song title circulates on a list of covers that appears to represent the band's repertoire at the time. However, there's no record of a Child show where it appears on the set list, so the Harley Festival holds the distinction for Bruce's lead vocal debut on "Born to Be Wild."
 
 **Born to Be Wild**
-**First performed:** June 1, 1993 (Oslo, Norway)
-**Last performed:** August 2, 2009 (Santiago De Compostela, Spain)
+**First performed:** June 1, 1993 (Oslo, Norway)<br>
+**Last performed:** August 2, 2009 (Santiago De Compostela, Spain)<br>

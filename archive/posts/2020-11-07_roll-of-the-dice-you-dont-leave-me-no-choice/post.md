@@ -33,7 +33,7 @@ As for Barbara, she now goes by her married name of Barbara Gunter and is a web 
 **You Don't Leave Me No Choice**
 Never recorded**
 **Never released**
-**First performed:** July 22, 1971 (South Amboy, NJ)
-**Last performed:** July 29, 1971 (South Amboy, NJ)
+**First performed:** July 22, 1971 (South Amboy, NJ)<br>
+**Last performed:** July 29, 1971 (South Amboy, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

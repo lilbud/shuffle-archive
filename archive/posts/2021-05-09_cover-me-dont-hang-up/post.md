@@ -29,9 +29,9 @@ Even though it was barely a week into the Trump Administration, it wasn’t the 
 Bruce’s comments would sharpen over time, but on this early day in 2017, Bruce chose humor to get his point across. It remains to this day his only performance of “Don’t Hang Up.”
 
 February 2, 2017 (Melbourne, Australia)
- February 2, 2017 (Melbourne, Australia)
+February 2, 2017 (Melbourne, Australia)
 
 **Don’t Hang Up**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -17,7 +17,7 @@ The pair performed “Fingernails” once more together, and once again it was o
 [https://www.youtube.com/embed/Uv4lYpa6tzI?feature=oembed](https://www.youtube.com/embed/Uv4lYpa6tzI?feature=oembed)
 
 May 19, 1993 (Dublin, Ireland)
- March 13, 1996 (Dublin, Ireland)
+March 13, 1996 (Dublin, Ireland)
 
 **Fingernails**  
 **First performance:**  

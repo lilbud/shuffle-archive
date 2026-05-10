@@ -21,11 +21,11 @@ Although first written it while Nash was a member of The Hollies, it was Crosby,
 [https://www.youtube.com/embed/Lwy6jhemprw?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/Lwy6jhemprw?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 October 13, 1986 (Mountain View, CA)
- December 13, 2021 (New York City, NY)
+December 13, 2021 (New York City, NY)
 
 **Teach Your Children**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © April 14, 2018 / February 7, 2026

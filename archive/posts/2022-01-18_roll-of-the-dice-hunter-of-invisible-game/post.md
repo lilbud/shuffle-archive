@@ -94,9 +94,9 @@ Because, as he tells us before literally walking off into the sunset, there's al
 [Watch on Youtube: Bruce Springsteen - Hunter Of Invisible Game - Adelaide, Australia 12 February 2014](https://www.youtube.com/watch?v=KwDdVpXdvgE)
 
 **Hunter of Invisible Game**
-**Recorded:** 2004-2008
-**Released:** *High Hopes* (2014)
-**First performed:** February 12, 2014 (Adelaide, Australia)
-**Last performed:** February 12, 2014 (Adelaide, Australia)
+**Recorded:** 2004-2008<br>
+**Released:** *High Hopes* (2014)<br>
+**First performed:** February 12, 2014 (Adelaide, Australia)<br>
+**Last performed:** February 12, 2014 (Adelaide, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

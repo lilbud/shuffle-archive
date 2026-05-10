@@ -1,6 +1,6 @@
 
 
- 
+
 
 [Asbury Park] doesn’t mean a thing. It’s just a dumpy town. It doesn’t mean anything… I used to go there a lot more than I do now; I’ve hardly been there this summer at all.  –Bruce Springsteen to an interviewer in the summer of 1975
 
@@ -173,16 +173,16 @@ And we’ll love you forever.
 [https://www.youtube.com/embed/kB1d0eey5ho?feature=oembed](https://www.youtube.com/embed/kB1d0eey5ho?feature=oembed)
 
 August 9 – September 23, 1973
- (1973), (2003), (2016)
+(1973), (2003), (2016)
 April 23, 1973 (Hartford, CT)
 November 16, 2019 (Asbury Park, NJ)
 
 **4th of July, Asbury Park (Sandy)**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *The Wild, The Innocent & The E Street Shuffle**The Essential Bruce Springsteen* *Chapter and Verse*  
-**First performed:**   
-**Last performed:**
+**Released:** *The Wild, The Innocent & The E Street Shuffle**The Essential Bruce Springsteen* *Chapter and Verse*<br>
+**First performed:** <br>
+**Last performed:**<br>
 
 
 

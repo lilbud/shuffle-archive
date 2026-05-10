@@ -33,8 +33,8 @@ So maybe that's why Bruce orphaned the song–it certainly didn't have a sympath
 
 In any event, enjoy this curious historical artifact, because this is one song we're unlikely to hear played live again.
 
-**I Just Can't Change****Recorded:** N/A
-**Released:** N/A
+**I Just Can't Change****Recorded:** N/A<br>
+**Released:** N/A<br>
 **Performed:** February 4, 1972 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -109,14 +109,14 @@ During the early days of the great shutdown of 2020, Bruce and Patti contributed
 [https://www.youtube.com/embed/1thNca2rZW4?feature=oembed](https://www.youtube.com/embed/1thNca2rZW4?feature=oembed)
 
 July 9, 1981 (live)
- (1986)
- June 22, 1981 (East Orange, NJ)
- September 15, 2024 (Asbury Park, NJ)
+(1986)
+June 22, 1981 (East Orange, NJ)
+September 15, 2024 (Asbury Park, NJ)
 
 **Jersey Girl**  
-**Recorded:**  
-**Released:***Live 1975-85*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Live 1975-85* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) July 24, 2019

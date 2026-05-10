@@ -17,8 +17,8 @@ Wondering how you follow up a show opener like that? If you’re Bruce, you give
 [Out in the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)
 
 February 19, 2014 (Sydney, Australia)
- February 22, 2014 (Hunter Valley, Australia)
+February 22, 2014 (Hunter Valley, Australia)
 
 **Friday on My Mind**   
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

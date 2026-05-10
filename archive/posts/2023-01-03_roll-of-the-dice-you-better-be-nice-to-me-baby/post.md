@@ -102,13 +102,13 @@ Like much of The Bruce Springsteen Band’s repertoire, “You Better Be Nice to
 If you enjoyed this little road trip in the wayback machine, you’ll be happy to know we’ve got at least one more return visit ahead of us later this summer. And if not, never fear–we’ll be back in Bruce’s officially released catalog in just a few days.
 
 September 1, 1971 (Long Branch, NJ)
- September 1, 1971 (Long Branch, NJ)
+September 1, 1971 (Long Branch, NJ)
 
 **You Better Be Nice to Me, Baby**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

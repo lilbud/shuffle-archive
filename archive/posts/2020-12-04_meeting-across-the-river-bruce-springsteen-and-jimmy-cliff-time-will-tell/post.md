@@ -15,8 +15,8 @@ Perhaps that’s why Bruce included it in the set when he had the chance to have
 [https://www.youtube.com/embed/jxeRBjMH_ns?feature=oembed](https://www.youtube.com/embed/jxeRBjMH_ns?feature=oembed)
 
 April 11, 1993 (Verona, Italy)
- March 15, 2012 (Austin, TX)
+March 15, 2012 (Austin, TX)
 
-**Time Will Tell** **First performed:**  
+**Time Will Tell** **First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

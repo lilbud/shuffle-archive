@@ -2,7 +2,7 @@
 
 “Bruce has a wonderful way of having humility and tenacity, all at the same time. He can get his ideas across with humility and an ability to do what he wants to do. He’s run his own band longer than I have, so I don’t have to say, ‘Hey Bruce, how about…?’ He says, ‘How about if I try this?’ and ‘How about if I try that?’ and, he’s Bruce Springsteen — sure, try it.”
 
- 
+
 
 — John Mellencamp, , February 7, 2022*Cleveland.com*
 
@@ -39,10 +39,10 @@ It wasn’t the first time Mellencamp praised Bruce’s melodic talents. While m
 It’s not the kind of track one would expect from either John or Bruce (let alone together), but it’s one that sticks with you long after the first listen.
 
 April 10, 2021
- (2022)
+(2022)
 
 **A Life Full of Rain**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Strictly a One-Eyed Jack*  
+**Released:***Strictly a One-Eyed Jack*<br>
 **Never performed**

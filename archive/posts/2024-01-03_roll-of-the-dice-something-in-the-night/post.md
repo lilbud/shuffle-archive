@@ -140,16 +140,16 @@ There’s something about the darkness, the emptiness, and of course that album-
 
 June 1, 1977
 (1978)
- August 1, 1976 (Red Bank, NJ)
- September 3, 2023 (East Rutherford, NJ)
+August 1, 1976 (Red Bank, NJ)
+September 3, 2023 (East Rutherford, NJ)
 
 **Something in the Night**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Darkness on the Edge of Town*   
-**First performed:**  
-**Last performed:**
+**Released:** *Darkness on the Edge of Town* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

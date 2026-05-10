@@ -17,10 +17,10 @@ Redding’s version was inducted into the Rock and Roll Hall of Fame’s , ensur
 *500 Songs that Shaped Rock and Roll*
 
 April 14, 1981 (Frankfurt, West Germany)
- July 27, 2013 (Kilkenny, Ireland)
+July 27, 2013 (Kilkenny, Ireland)
 
 **Shake**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) April 15, 2018

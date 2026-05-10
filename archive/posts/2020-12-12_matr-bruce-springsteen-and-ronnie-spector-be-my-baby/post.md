@@ -31,9 +31,9 @@ On the night of November 4, 1976, Bruce finally had the chance to perform with R
 Ronnie and Bruce would perform “Be My Baby” together four more times the following year, but even though Ronnie and Bruce have shared a stage as recently as 2016, it’s been more than three decades since they last performed Ronnie’s iconic hit together.
 
 November 4, 1976 (New York City, NY)
- January 18, 1989 (New York City, NY)
+January 18, 1989 (New York City, NY)
 
 **Be My Baby**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -21,9 +21,9 @@ With the benefit of 34 years of hindsight, I can’t help but wonder–especiall
 We’ll never know what Bruce was thinking that night, though, and perhaps tellingly, he’s never performed the song since.
 
 June 1, 1985 (Slane, Ireland)
- June 1, 1985 (Slane, Ireland)
+June 1, 1985 (Slane, Ireland)
 
 **When I Grow Up (To Be a Man)**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -85,13 +85,14 @@ Here’s an alternate, aborted take of Bruce recording “She’s Leaving.” (I
 
 May-June 1972
 
- December 3, 1971 (Asbury Park, NJ)
- December 3, 1971 (Asbury Park, NJ)
+December 3, 1971 (Asbury Park, NJ)
+December 3, 1971 (Asbury Park, NJ)
 
-**She’s Leaving** **Recorded:**  
+**She’s Leaving**
+**Recorded:**<br>
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © February 3, 2019

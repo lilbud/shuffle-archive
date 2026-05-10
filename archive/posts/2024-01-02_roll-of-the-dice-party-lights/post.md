@@ -88,14 +88,13 @@ Here’s yet another work-in-progress arrangement (this time a rockabilly one) o
 [https://videopress.com/embed/C66uAIaH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/C66uAIaH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 October 8, 1979
- (2015)
+(2015)
 
 **Party Lights**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***The Ties That Bind: The River Collection*   
+**Released:***The Ties That Bind: The River Collection* <br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

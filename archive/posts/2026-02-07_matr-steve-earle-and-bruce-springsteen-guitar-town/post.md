@@ -24,7 +24,7 @@ February 6, 1998 (Sea Bright, NJ)
 February 6, 1998 (Sea Bright, NJ)
 
 **Guitar Town**   
-**First performed:**   
-**Last performed:**
+**First performed:** <br>
+**Last performed:**<br>
 
 © November 28, 2020

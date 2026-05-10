@@ -15,9 +15,9 @@ Nicky Addeo isn’t a household name, but in 1963 he released a song called “G
 [https://www.youtube.com/embed/vrZf3vRHmkw?feature=oembed](https://www.youtube.com/embed/vrZf3vRHmkw?feature=oembed)
 
 October 1965 (Monmouth County, NJ)
- April 2, 2011 (Asbury Park, NJ)
+April 2, 2011 (Asbury Park, NJ)
 
 **What’s Your Name**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

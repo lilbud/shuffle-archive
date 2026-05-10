@@ -57,8 +57,8 @@ Not satisfied enough with "Mary Lou" to release her on the *The River*, Bruce ne
 As for "Mary Lou," she would see the light of day on *Tracks*, almost two decades after she was recorded.
 
 **Mary Lou**
-**Recorded:** May 30, 1979
-**Released:** *Tracks* (1998), *The River: Outtakes* (2015)
+**Recorded:** May 30, 1979<br>
+**Released:** *Tracks* (1998), *The River: Outtakes* (2015)<br>
 **Never performed**
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

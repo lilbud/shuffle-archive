@@ -25,9 +25,9 @@ This year has been short on live performances by anyone, but Bruce and Joe manag
 [https://www.youtube.com/embed/aor4Wdwbfgc?feature=oembed](https://www.youtube.com/embed/aor4Wdwbfgc?feature=oembed)
 
 August 20, 1994 (Long Branch, NJ)
- January 18, 2020 (Asbury Park, NJ)
+January 18, 2020 (Asbury Park, NJ)
 
 **Never Be Enough Time**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

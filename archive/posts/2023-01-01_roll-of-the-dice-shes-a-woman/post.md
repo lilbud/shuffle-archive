@@ -45,15 +45,14 @@ Reportedly there’s a recording of The Bruce Springsteen Band’s final known p
 Anyone wanna hook me up? 🙂
 
 December 17, 1971 (New Brunswick, NJ)
- February 17, 1972 (Freehold, NJ)
+February 17, 1972 (Freehold, NJ)
 
 **She’s a Woman**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

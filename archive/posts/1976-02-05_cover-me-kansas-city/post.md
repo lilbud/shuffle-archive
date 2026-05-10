@@ -51,7 +51,7 @@ But one night in 1987, Bruce (and most of the E Street Band) joined Cats on a Sm
 [Watch on Youtube: Springsteen w/ Jon Bon Jovi - Kansas City (New Jersey 1987)](https://www.youtube.com/watch?v=idDI0dCmH_k)
 
 **Kansas City**
-**First performed:** January 11, 1979 (Fair Haven, NJ)
-**Last performed:** June 7, 2025 (Liverpool, England)
+**First performed:** January 11, 1979 (Fair Haven, NJ)<br>
+**Last performed:** June 7, 2025 (Liverpool, England)<br>
 
 (c) January 11, 2021

@@ -11,7 +11,7 @@ Check out Bruce’s one and only performance of “You May Be Right” below–t
 [https://www.youtube.com/embed/Tlo9RgXg1ME?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/Tlo9RgXg1ME?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **You May Be Right**  
-**First performed:** October 29, 2009 (New York City, NY)  
-**Last performed:** October 29, 2009 (New York City, NY)
+**First performed:** October 29, 2009 (New York City, NY)<br>
+**Last performed:** October 29, 2009 (New York City, NY)<br>
 
 © December 27, 2018

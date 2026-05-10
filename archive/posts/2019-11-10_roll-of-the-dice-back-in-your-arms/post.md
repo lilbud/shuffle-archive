@@ -106,9 +106,9 @@ For a song about an ex-lover carrying a torch he refuses to put down, I can't th
 [Watch on Youtube: Bruce Springsteen*Get your flowers On! *Back in Your Arms* Brisbane 14/02/17](https://www.youtube.com/watch?v=oQlkiVC3xis)
 
 **Back in Your Arms**
-**Recorded:** January 12, 1995
-**Released:** *Tracks* (1998)
-**First performed:** August 4, 1999 (East Rutherford, NJ)
-**Last performed:** February 14, 2017 (Brisbane, Australia)
+**Recorded:** January 12, 1995<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** August 4, 1999 (East Rutherford, NJ)<br>
+**Last performed:** February 14, 2017 (Brisbane, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

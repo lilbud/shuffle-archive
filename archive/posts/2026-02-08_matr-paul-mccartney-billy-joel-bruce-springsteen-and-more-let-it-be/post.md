@@ -17,11 +17,11 @@ Bruce was definitely in a supporting role that night. Clearly star-struck, Bruce
 Although Bruce has played with Paul McCartney several times since, that was their first time on stage together and the only time Bruce has ever performed “Let It Be.”
 
 March 15 ,1999 (New York City, NY)
- March 15, 1999 (New York City, NY)
+March 15, 1999 (New York City, NY)
 
 **Let It Be**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © November 23, 2020

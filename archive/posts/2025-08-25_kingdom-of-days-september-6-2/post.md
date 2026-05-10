@@ -98,6 +98,6 @@ Bruce reveals he has peptic ulcer disease, and under the advice of his doctor he
 
 **2023:**
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Asbury_Park_Press_2023_09_08_A1.jpg?w=758&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Asbury_Park_Press_2023_09_08_A2.jpg?resize=758%2C196&amp;ssl=1)

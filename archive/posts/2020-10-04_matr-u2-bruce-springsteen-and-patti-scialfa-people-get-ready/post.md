@@ -33,9 +33,9 @@ On October 17, 2005, at the Wachovia Center in Philadelphia, Bruce nonchalantly 
 [https://videopress.com/embed/Ds6Exsh4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ds6Exsh4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 January 16, 1991 (New York City, NY)
- October 17, 2005 (Philadelphia, PA)
+October 17, 2005 (Philadelphia, PA)
 
 **People Get Ready**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

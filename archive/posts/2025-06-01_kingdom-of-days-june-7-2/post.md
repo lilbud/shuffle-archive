@@ -42,7 +42,7 @@ In Birmingham, Pete Townshend makes a guest appearance in the encores of the fir
 
 [https://videopress.com/embed/CfWATe2k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CfWATe2k?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Birmingham_Evening_Mail_Mon__Jun_8__1981_.jpg?resize=758%2C656&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Sandwell_Evening_Mail_Mon__Jun_8__1981_-scaled.jpg?resize=758%2C271&amp;ssl=1)
 
@@ -106,6 +106,6 @@ Bruce announces a return engagement of to help re-open Broadway during a lull in
 
 **2021:** *Springsteen on Broadway*
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/2021-06-07a-scaled.jpg?resize=758%2C356&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/2021-06-07b.jpg?resize=758%2C958&amp;ssl=1)

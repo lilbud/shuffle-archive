@@ -17,9 +17,9 @@ Bruce covered “Under the Boardwalk” a few more times over the years. The las
 [https://www.youtube.com/embed/lPqDw4VtOJ4?feature=oembed](https://www.youtube.com/embed/lPqDw4VtOJ4?feature=oembed)
 
 June 24, 1989 (Asbury Park, NJ)
- November 2, 2012 (New York City, NY)
+November 2, 2012 (New York City, NY)
 
 **Under the Boardwalk**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

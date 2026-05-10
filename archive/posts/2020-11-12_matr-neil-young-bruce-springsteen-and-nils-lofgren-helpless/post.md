@@ -23,9 +23,9 @@ You won’t find that performance on Bruce’s archive release from that night, 
 [https://music.apple.com/us/album/the-bridge-school-collection-vol-2-live/208494388](https://music.apple.com/us/album/the-bridge-school-collection-vol-2-live/208494388)*The Bridge Collection, Volume 2*
 
 October 13, 1986 (Mountain View, CA)
- October 13, 1986 (Mountain View, CA)
+October 13, 1986 (Mountain View, CA)
 
 **Helpless**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

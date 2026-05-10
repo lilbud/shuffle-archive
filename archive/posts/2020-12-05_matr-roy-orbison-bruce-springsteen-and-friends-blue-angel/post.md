@@ -21,8 +21,8 @@ Check out more Orbison/Springsteen highlights from .
 *Black and White Night* [here](https://estreetshuffle.com/?s=orbison)
 
 September 30, 1987 (Los Angeles, CA)
- September 30, 1987 (Los Angeles, CA)
+September 30, 1987 (Los Angeles, CA)
 
 **Blue Angel**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

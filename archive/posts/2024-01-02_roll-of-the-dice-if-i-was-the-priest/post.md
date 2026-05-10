@@ -116,12 +116,11 @@ April-June 1972 (solo), November 2019 (band)
 (2020)
 February 14, 2023 (Houston, TX) (but likely performed in 1971 as well)
 February 21, 2023 (Tulsa, OK)
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 **If I Was the Priest**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Letter to You*   
-**First performed:**   
-**Last performed:**   
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+**Released:** *Letter to You* <br>
+**First performed:** <br>
+**Last performed:** <br>

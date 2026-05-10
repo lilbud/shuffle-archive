@@ -37,11 +37,11 @@ March 30, 1979 (rehearsals only)
 
 
 **Out on the Run**
-**Recorded:**  
+**Recorded:**<br>
 
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

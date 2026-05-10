@@ -15,7 +15,7 @@ And as always, here’s the original for comparison.
 [https://www.youtube.com/embed/tRVkS6Owp9Q?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/tRVkS6Owp9Q?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **I Don’t Want to Go Home**  
-**First performed:** July 22, 1976 (Los Angeles, CA)  
-**Last performed:** December 14, 2025 (Asbury Park, NJ)
+**First performed:** July 22, 1976 (Los Angeles, CA)<br>
+**Last performed:** December 14, 2025 (Asbury Park, NJ)<br>
 
 © March 30, 2018

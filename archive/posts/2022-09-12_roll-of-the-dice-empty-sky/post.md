@@ -60,9 +60,9 @@ In the years since, "Empty Sky" has been essentially relegated to the history bo
 
 
 **Empty Sky**
-**Recorded:** March-April, 2002
-**Released:** *The Rising* (2002)
-**First performed:** July 19, 2002 (Colts Neck, NJ)
-**Last performed:** July 14, 2012 (London, England)
+**Recorded:** March-April, 2002<br>
+**Released:** *The Rising* (2002)<br>
+**First performed:** July 19, 2002 (Colts Neck, NJ)<br>
+**Last performed:** July 14, 2012 (London, England)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

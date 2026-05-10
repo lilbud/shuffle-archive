@@ -17,11 +17,11 @@ Their arrangement is not exactly traditional, though—listen and enjoy.
 Happy new year to you, your family, and your community. Thanks for reading!
 
 December 31, 1978 (Richfield, OH)
- December 31, 1980 (Uniondale, NY)
+December 31, 1980 (Uniondale, NY)
 
 **Auld Lang Syne**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) December 31, 2018 by Ken Rosen

@@ -55,9 +55,9 @@ Here’s Bruce’s last (for now, at least) performance of “Not Fade Away.”
 [https://www.youtube.com/embed/s9_EESmDeJs?feature=oembed](https://www.youtube.com/embed/s9_EESmDeJs?feature=oembed)
 
 October 23, 1971 (Richmond, VA)
- July 6, 2019 (Asbury Park, NJ)
+July 6, 2019 (Asbury Park, NJ)
 
 **Not Fade Away**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -135,12 +135,12 @@ June 25-28, 1973
 September 4, 1972 (New York City, NY)
 February 26, 2014 (Brisbane, Australia)
 
-**Wild Billy’s Circus Story** **Recorded:**  
+**Wild Billy’s Circus Story**
+**Recorded:**<br>
 
-**Released:** *The Wild, The Innocent & The E Street Shuffle*   
-**First performed:**   
-**Last performed:**
+**Released:** *The Wild, The Innocent & The E Street Shuffle* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

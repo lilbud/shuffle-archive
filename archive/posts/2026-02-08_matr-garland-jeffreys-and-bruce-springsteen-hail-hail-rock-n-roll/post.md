@@ -23,11 +23,11 @@ But when Garland did his artist salutes during the song’s coda, he couldn’t 
 In the recording above, you can hear the moment when the crowd realizes that Bruce is actually on stage, and although his contributions are limited to a lead guitar lead-out, it’s one of the many great Light of Day moments Bruce has given us over the years.
 
 November 1, 2003 (Asbury Park, NJ)
- November 1, 2003 (Asbury Park, NJ)
+November 1, 2003 (Asbury Park, NJ)
 
 **Hail Hail Rock ‘n’ Roll**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © March 13, 2020

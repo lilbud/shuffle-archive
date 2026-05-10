@@ -19,5 +19,5 @@ We can hear that version inform The Castiles' performance at their September 196
 [Watch Video Highlight](https://videopress.com/embed/EcoWtAga)
 
 **Get Out of My Life, Woman**
-**First performed:** September 16, 1967 (Freehold, NJ)
-**Last performed:** September 16, 1967 (Freehold, NJ)
+**First performed:** September 16, 1967 (Freehold, NJ)<br>
+**Last performed:** September 16, 1967 (Freehold, NJ)<br>

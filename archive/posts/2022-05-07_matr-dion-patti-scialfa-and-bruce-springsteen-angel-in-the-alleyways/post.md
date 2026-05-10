@@ -16,13 +16,13 @@ the Monastery of St.Bernard de Clairvaux in Miami but with interwoven clips of P
 
 [https://www.youtube.com/embed/cUSMkdZKo6I?feature=oembed](https://www.youtube.com/embed/cUSMkdZKo6I?feature=oembed)
 
-       
+
 
 In the album’s liner notes, Dion wrote: “I gave Patti a simple, raw demo of ‘Angel in the Alleyways,’ with just my guitar and vocal.What you’ll hear now is what Patti made of it.There are five verses, and she treated each of them in a unique way.This is her gift.The lady’s imagination is unlimited.Her husband contributed the right tones on guitar and harmonica.They are my dream team.They truly make me feel loved.”
 
 (2021)
 
 **Angel in the Alleyways**
-**Released:**  
+**Released:**<br>
 *Stomping Ground*  
 **Never performed**

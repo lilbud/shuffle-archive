@@ -13,11 +13,11 @@ Bonus footage: One minute of pro-shot footage from 2009, where Bruce and the E S
 [https://www.youtube.com/embed/21ShrNP31CY?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/21ShrNP31CY?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 September 30, 1967 (Freehold, NJ)
- May 28, 2015 (New York City, NY)
+May 28, 2015 (New York City, NY)
 
 **My Generation**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © March 27, 2018

@@ -53,7 +53,7 @@ Even for a Bruce Springsteen Band fan like myself, "Do It With a Feeling" is for
 **Do It With a Feeling**
 **Never recorded**
 **Never released**
-**First performed:** July 22, 1971 (South Amboy, NJ)
-**Last performed:** October 23, 1971 (Richmond, VA)
+**First performed:** July 22, 1971 (South Amboy, NJ)<br>
+**Last performed:** October 23, 1971 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

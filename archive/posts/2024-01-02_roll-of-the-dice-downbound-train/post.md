@@ -151,16 +151,15 @@ Still, these are fine and unusual performances and worth watching (even if Bruce
 [here](http://estreetshuffle.com/index.php/2018/12/21/cover-me-kurt-vile-downbound-train/)[here](http://estreetshuffle.com/index.php/2018/02/13/cover-me-the-smithereens-downbound-train/)
 
 April 27 – May 6, 1982
- Born in the USA (1984)
- July 2, 1984 (St. Paul, MN)
- July 2, 2023 (Oslo, Norway)
+Born in the USA (1984)
+July 2, 1984 (St. Paul, MN)
+July 2, 2023 (Oslo, Norway)
 
 **Downbound Train**  
-**Recorded:**  
-**Released:**  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:**<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

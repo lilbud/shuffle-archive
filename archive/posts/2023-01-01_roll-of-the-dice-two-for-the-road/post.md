@@ -67,17 +67,16 @@ Bruce has never seemed fully comfortable with “Two For the Road,” and it’s
 I’d consider the odds to be pretty long against us hearing it again. Then again, I’d have said that every time he’s played it, so who knows…
 
 February 1987
- (B-side, 1987), (1998)
- August 1, 2005 (Cincinnati, OH)
- May 22, 2014 (Pittsburgh, PA)
+(B-side, 1987), (1998)
+August 1, 2005 (Cincinnati, OH)
+May 22, 2014 (Pittsburgh, PA)
 
 **Two For the Road**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tunnel of Love**Tracks*   
-**First performed:**  
-**Last performed:**
+**Released:** *Tunnel of Love**Tracks* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

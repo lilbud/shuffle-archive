@@ -161,8 +161,8 @@ Am I reading too much into the song? Perhaps–I admitted that possibility at th
 
 **None But the Brave**  
 **Recorded**: June 27, 1983 (and possibly a 2002-ish vocal track)  
-**Released:** *The Essential Bruce Springsteen* (2003)  
-**First performed:** December 5, 2003 (Asbury Park, NJ)  
-**Last performed:** February 18, 2017 (Hunter Valley, Australia)
+**Released:** *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** December 5, 2003 (Asbury Park, NJ)<br>
+**Last performed:** February 18, 2017 (Hunter Valley, Australia)<br>
 
 © September 24, 2018

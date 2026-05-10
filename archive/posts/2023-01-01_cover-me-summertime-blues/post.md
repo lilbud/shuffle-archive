@@ -39,9 +39,9 @@ Although Bruce didn’t perform “Summertime Blues” with the E Street Band be
 [https://videopress.com/embed/CZbyGqLp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/CZbyGqLp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 July 28, 1978 (Miami, FL)
- September 1, 2016 (Washington, DC)
+September 1, 2016 (Washington, DC)
 
 **Summertime Blues**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

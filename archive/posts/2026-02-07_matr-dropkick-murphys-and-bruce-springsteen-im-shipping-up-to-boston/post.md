@@ -11,10 +11,10 @@ On St. Patrick’s Day in 2011, Bruce shipped up to Boston to perform it with th
 [https://www.youtube.com/embed/a7QsVPYWQFE?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/a7QsVPYWQFE?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 March 18, 2011 (Boston, MA)
- March 18, 2011 (Boston, MA)
+March 18, 2011 (Boston, MA)
 
 **I’m Shipping Up to Boston**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © December 26, 2018

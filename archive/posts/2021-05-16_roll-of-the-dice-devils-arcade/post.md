@@ -110,9 +110,9 @@ Watch this complete performance of "Devil's Arcade" from early in the tour, and 
 [Watch on Youtube: Bruce Springsteen - Devil's Arcade](https://www.youtube.com/watch?v=dMN3RYMeHnE)
 
 **Devil's Arcade**
-**Recorded:** March-April 2007
-**Released:** *Magic* (2007)
-**First performed:** September 24, 2007 (Asbury Park, NJ)
-**Last performed:** June 16, 2008 (Dusseldorf, Germany)
+**Recorded:** March-April 2007<br>
+**Released:** *Magic* (2007)<br>
+**First performed:** September 24, 2007 (Asbury Park, NJ)<br>
+**Last performed:** June 16, 2008 (Dusseldorf, Germany)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -35,11 +35,11 @@ Bruce may have been a late convert to including “Shout” in his set, but he�
 I’d bet on that number getting a lot higher.
 
 December 31, 1982 (New York City, NY)
- February 25, 2017 (Auckland, New Zealand)
+February 25, 2017 (Auckland, New Zealand)
 
 **Shout**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) September 12, 2019

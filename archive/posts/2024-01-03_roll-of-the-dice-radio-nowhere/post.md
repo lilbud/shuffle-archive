@@ -143,18 +143,18 @@ The failure of “Radio Nowhere” to chart signaled that Bruce’s days of comm
 Is there anybody alive out there?
 
 March 2007
- (2007), (2015)
- September 24, 2007 (Asbury Park, NJ)
- February 21, 2017 (Christchurch, New Zealand)
+(2007), (2015)
+September 24, 2007 (Asbury Park, NJ)
+February 21, 2017 (Christchurch, New Zealand)
 
 **Radio Nowhere**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Magic**The Essential Bruce Springsteen*  
-**First performed:**  
-**Last performed:**
+**Released:***Magic**The Essential Bruce Springsteen*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
 

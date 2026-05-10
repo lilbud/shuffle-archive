@@ -25,9 +25,9 @@ But of course here we are almost two years later, still waiting for a proper con
 [Watch Video Highlight](https://videopress.com/embed/ab4LsAj4)
 
 **Turn Back the Hands of Time**
-**Recorded:** 2022
-**Released:** *Only the Strong Survive* (2022)
-**First performed:** November 15, 2022 (New York City, NY)
-**Last performed:** November 15, 2022 (New York City, NY)
+**Recorded:** 2022<br>
+**Released:** *Only the Strong Survive* (2022)<br>
+**First performed:** November 15, 2022 (New York City, NY)<br>
+**Last performed:** November 15, 2022 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

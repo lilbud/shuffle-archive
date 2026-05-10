@@ -68,7 +68,7 @@ The Magic Tour begins its Pacific Northwest swing with a show at the Rose Garden
 
 [https://www.youtube.com/embed/l9TWdEzs04g?feature=oembed](https://www.youtube.com/embed/l9TWdEzs04g?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_23-scaled.jpg?resize=758%2C1019&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Oregonian_2008_03_31_24-scaled.jpg?resize=758%2C1036&amp;ssl=1)
 

@@ -59,11 +59,10 @@ November 27, 1970 (Asbury Park, NJ)
 **We’ve Got to Do It Now**  
 **Never recorded**
 Never released
-**First performed:**  
+**First performed:**<br>
 
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

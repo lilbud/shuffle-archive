@@ -38,7 +38,7 @@ November 16, 1990 (Los Angeles, CA)
 October 4, 2003 (New York City, NY)
 
 **Highway 61 Revisited**   
-**First performed:**   
-**Last performed:**
+**First performed:** <br>
+**Last performed:**<br>
 
 (c) November 7, 2018

@@ -92,13 +92,11 @@ Regardless of whether “Happy” ever receives a live outing, though, it’s ni
 I suspect Bruce wrote “Happy” more for himself and his family than for his audience, and I’m fine evaluating it in that light. Everyone should get to feel that kind of contentment at least once.
 
 January 18, 1992
- (1998)
+(1998)
 
 **Happy**  
-**Recorded:**  
-**Released:** *Tracks*  
+**Recorded:**<br>
+**Released:** *Tracks*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

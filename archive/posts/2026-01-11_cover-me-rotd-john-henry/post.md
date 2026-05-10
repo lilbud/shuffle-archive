@@ -37,15 +37,15 @@ Bruce had a great time performing it on stage too. He featured “John Henry” 
 But even if Bruce never performs “John Henry” again, we’ll certainly be hearing versions from other artists. It’s too much of an American story to ever go out of style.
 
 March 19, 2005
- (2006)
- April 20, 2006 (Asbury Park, NJ)
- November, 21, 2006 (Belfast, Northern Ireland)
+(2006)
+April 20, 2006 (Asbury Park, NJ)
+November, 21, 2006 (Belfast, Northern Ireland)
 
 **John Henry**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***We Shall Overcome: The Seeger Sessions*  
-**First performed:**  
-**Last performed:**
+**Released:***We Shall Overcome: The Seeger Sessions*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © June 1, 2021

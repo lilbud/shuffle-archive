@@ -86,16 +86,15 @@ Gentle embarrassment: the tool of choice for loving parents of teenagers.
 How better to make it easier for your kids to leave the nest while always making sure they know they always have a home?
 
 June-September 1990
- (1992)
- July 31, 1992 (East Rutherford, NJ)
- April 27, 1996 (London, England)
+(1992)
+July 31, 1992 (East Rutherford, NJ)
+April 27, 1996 (London, England)
 
 **Pony Boy**  
-**Recorded:**  
-**Released:***Human Touch*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Human Touch* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

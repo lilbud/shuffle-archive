@@ -21,5 +21,5 @@ Oh, and there's one more Whack: Patti's husband, Mr. Rainy Day Man himself, who 
 I'm not aware of a live performance of "Rainy Day Man," sadly, and that's too bad. This is a song we need to hear live.
 
 **Rainy Day Man**
-**Released:** *Play It As It Lays* (2007)
+**Released:** *Play It As It Lays* (2007)<br>
 **Never Performed**

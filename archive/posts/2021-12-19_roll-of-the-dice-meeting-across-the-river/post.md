@@ -151,16 +151,14 @@ In 2008 (and again for an encore a year and a half later), Richard Davis reprise
 *Born to Run*
 
 May 28, 1975
- (1975)
- September 26, 1975 (Iowa City, IA)
- March 28, 2016 (New York City, NY)
+(1975)
+September 26, 1975 (Iowa City, IA)
+March 28, 2016 (New York City, NY)
 
 **Meeting Across the River**  
-**Recorded:**  
-**Released:***Born to Run*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Born to Run*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

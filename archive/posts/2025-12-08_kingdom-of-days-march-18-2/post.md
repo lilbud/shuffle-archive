@@ -126,7 +126,7 @@ Bruce and the E Street Band bring their World Tour to Penn State University, whe
 
 [https://www.youtube.com/embed/bzpVJE1_dGk?feature=oembed](https://www.youtube.com/embed/bzpVJE1_dGk?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-scaled.jpg?resize=758%2C170&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Centre_Daily_Times_Mon__Mar_20__2023_-1-scaled.jpg?resize=758%2C217&amp;ssl=1)
 

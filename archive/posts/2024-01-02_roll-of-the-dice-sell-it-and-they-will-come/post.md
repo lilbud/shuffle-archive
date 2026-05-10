@@ -93,14 +93,13 @@ He also seemed unable to stop himself from sharing his late-night fascination wi
 By the time Bruce embarked on another acoustic tour almost a decade later, he’d figure out the right balance of serious and silly. That’s probably why he hasn’t played his ode to infomercials ever since.
 
 January 10, 1996 (Detroit, MI)
- December 6, 1996 (Birmingham, AL)
+December 6, 1996 (Birmingham, AL)
 
 **Sell It and They Will Come**  
 **Never recorded**  
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

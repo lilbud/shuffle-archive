@@ -84,12 +84,11 @@ February-May 2007 (2007)
 March 24, 2008 (Columbus, OH)
 March 24, 2008 (Columbus, OH)
 
-**You’ll Be Comin’ Down** **Recorded:**   
- **Released:**  
+**You’ll Be Comin’ Down** **Recorded:** <br>
+**Released:**<br>
 *Magic*   
-**First performed:**   
-**Last performed:**
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

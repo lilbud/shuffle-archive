@@ -99,14 +99,14 @@ Even then, though, it’s only the music that’s warm–the lyrics are still ic
 
 January-April 1987
 (1987)
- March 23, 1993 (Red Bank, NJ)
- October 20, 2005 (Worcester, MA)
+March 23, 1993 (Red Bank, NJ)
+October 20, 2005 (Worcester, MA)
 
 **When You’re Alone**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tunnel of Love*   
-**First performed:**  
-**Last performed:**
+**Released:** *Tunnel of Love* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) November 15, 2020

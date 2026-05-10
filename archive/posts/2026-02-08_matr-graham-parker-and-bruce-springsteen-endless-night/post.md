@@ -17,11 +17,11 @@ Take a listen below.
 [https://www.youtube.com/embed/OiuH7_ITOaI?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/OiuH7_ITOaI?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 December 1979
- (1980)
+(1980)
 
 **Endless Night**  
-**Recorded:**  
-**Released:***The Up Escalator*   
+**Recorded:**<br>
+**Released:***The Up Escalator* <br>
 **Never performed**
 
 © July 15, 2019

@@ -89,9 +89,9 @@ European fans have been a bit more fortunate: Bruce played the song three times 
 (but he *still* couldn't get through the Iovine line without cracking up)
 
 **Ain't Good Enough For You**
-**Recorded:** January 1978
-**Released:** *The Promise* (2010)
-**First performed:** December 7, 2010 (Asbury Park, NJ)
-**Last performed:** June 26, 2013 (Gijon, Spain)
+**Recorded:** January 1978<br>
+**Released:** *The Promise* (2010)<br>
+**First performed:** December 7, 2010 (Asbury Park, NJ)<br>
+**Last performed:** June 26, 2013 (Gijon, Spain)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

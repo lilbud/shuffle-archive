@@ -15,9 +15,9 @@ Here’s that performance (with Bruce playing a supporting role on this one), fr
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/03/edmunds-300x202.jpg?resize=758%2C511)
 
 September 18, 1982 (Red Bank, NJ)
- September 18, 1982 (Red Bank, NJ)
+September 18, 1982 (Red Bank, NJ)
 
 **Let’s Talk About Us**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

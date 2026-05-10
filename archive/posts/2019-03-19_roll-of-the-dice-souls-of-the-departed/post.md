@@ -97,9 +97,9 @@ Here are two final clips, from the few performances with the E Street Band (ther
 [Watch on Youtube: bruce springsteen ft neil young souls of the departed](https://www.youtube.com/watch?v=ljabZgADz5g)
 
 **Souls of the Departed**
-**Recorded:** July-December 1991
-**Released:** *Lucky Town* (1992)
-**First performed:** June 15, 1992 (Stockholm, Sweden)
-**Last performed:** April 27, 2008 (Charlotte, NC)
+**Recorded:** July-December 1991<br>
+**Released:** *Lucky Town* (1992)<br>
+**First performed:** June 15, 1992 (Stockholm, Sweden)<br>
+**Last performed:** April 27, 2008 (Charlotte, NC)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -99,16 +99,15 @@ It’s hard to know how Bruce ultimately feels about “The Brokenhearted,” be
 *The Promise.*
 
 November 29, 1977 (plus additional work in 2010)
- (2010)
- December 7, 2010 (Asbury Park, NJ)
- December 7, 2010 (Asbury Park, NJ)
+(2010)
+December 7, 2010 (Asbury Park, NJ)
+December 7, 2010 (Asbury Park, NJ)
 
 **The Brokenhearted**  
-**Recorded:**  
-**Released:** *The Promise*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *The Promise*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

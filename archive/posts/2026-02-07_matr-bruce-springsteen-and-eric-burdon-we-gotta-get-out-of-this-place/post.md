@@ -47,11 +47,11 @@ Bruce played an abbreviated acoustic version of “We Gotta Get Out of This Plac
 [https://www.youtube.com/embed/ZE6evYHrL58?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/ZE6evYHrL58?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 October 1965 (Marlboro, NJ)
- July 23, 2013 (Cardiff, Wales)
+July 23, 2013 (Cardiff, Wales)
 
 **We Gotta Get Out of This Place**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © March 17, 2022

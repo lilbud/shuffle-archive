@@ -71,16 +71,15 @@ Here’s an E Street Band performance from Gothenburg in 2016, for no other reas
 [https://www.youtube.com/embed/BqDWGw1MLfY?feature=oembed](https://www.youtube.com/embed/BqDWGw1MLfY?feature=oembed)
 
 July 1980
- (1981)
- June 5, 1981 (London, England)
- February 21, 2017 (Christchurch, New Zealand)
+(1981)
+June 5, 1981 (London, England)
+February 21, 2017 (Christchurch, New Zealand)
 
 **Jole Blon**  
-**Recorded:**  
-**Released:** *Dedication*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Dedication*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

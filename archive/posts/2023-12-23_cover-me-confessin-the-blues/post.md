@@ -49,9 +49,9 @@ Check out Chapter Five of Steve’s to see where the story goes from there.
 *Unrequited Infatuations*
 
 January 21, 1972 (Neptune, NJ)
- September 9, 1972 (Highlands, NJ)
+September 9, 1972 (Highlands, NJ)
 
 **Confessin’ the Blues**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

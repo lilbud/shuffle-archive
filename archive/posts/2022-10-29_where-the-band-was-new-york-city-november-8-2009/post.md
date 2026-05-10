@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**Today’s guest blogger is my long-time friend (and I’m pretty sure this blog’s first subscriber) Marietta Phillips.*
 

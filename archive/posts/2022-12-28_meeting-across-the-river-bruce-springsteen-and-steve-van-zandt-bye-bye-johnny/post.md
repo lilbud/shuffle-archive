@@ -21,9 +21,9 @@ Considering it inspired a song in his catalog, it’s surprising that Bruce has 
 [https://www.youtube.com/embed/GDOEFWUmXUU?start=277&amp;feature=oembed](https://www.youtube.com/embed/GDOEFWUmXUU?start=277&amp;feature=oembed)
 
 July 17, 1982 (Red Bank, NJ)
- April 22, 2017 (Red Bank, NJ)
+April 22, 2017 (Red Bank, NJ)
 
 **Bye Bye Johnny**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

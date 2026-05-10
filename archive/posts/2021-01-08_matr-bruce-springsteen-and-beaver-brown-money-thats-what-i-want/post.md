@@ -37,9 +37,9 @@ Bruce has played “Money (That’s What I Want)” a couple of times since, but
 The rest of us will have to be content with these rare club recordings from the eighties.
 
 February 20, 1982 (Red Bank, NJ)
- January 22, 2016 (Wellington, FL)
+January 22, 2016 (Wellington, FL)
 
 **Money (That’s What I Want)**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

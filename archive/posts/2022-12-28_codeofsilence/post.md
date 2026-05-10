@@ -65,11 +65,10 @@ June 12, 2000 (New York City, NY)
 July 18, 2015 (Asbury Park, NJ)
 
 **Code of Silence**  
-**Recorded:**  
-**Released:** *The Essential Bruce Springsteen* *A Good Life*   
-**First performed:**   
-**Last performed:**
+**Recorded:**<br>
+**Released:** *The Essential Bruce Springsteen* *A Good Life* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

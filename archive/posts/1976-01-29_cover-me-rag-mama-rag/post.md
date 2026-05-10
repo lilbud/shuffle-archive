@@ -19,7 +19,7 @@ From its penultimate performance in Verona on October 5, 2006, here's one of the
 [Watch Video Highlight](https://videopress.com/embed/Ojm2IHfL)
 
 **Rag Mama Rag**
-**First performed:** May 30, 2006 (Columbus, OH)
-**Last performed:** October 8, 2006 (Caserta, Italy)
+**First performed:** May 30, 2006 (Columbus, OH)<br>
+**Last performed:** October 8, 2006 (Caserta, Italy)<br>
 
 (c) April 30, 2019

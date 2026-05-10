@@ -17,5 +17,5 @@ After taking a moment or ten to work out the song with the band, they barrel-rol
 A true one-off performance, that was–Bruce has never played "I Wanna Be Sedated" before or since.
 
 **I Wanna Be Sedated**
-**First performed:** April 22, 2009 (Boston, MA)
-**Last performed:** April 22, 2009 (Boston, MA)
+**First performed:** April 22, 2009 (Boston, MA)<br>
+**Last performed:** April 22, 2009 (Boston, MA)<br>

@@ -35,7 +35,7 @@ It was at this point that Bruce began to merge the sibling songs. As September p
 
 
 
- *when we kiss my hearts through my skin*Thenexplodes  
+*when we kiss my hearts through my skin*Thenexplodes  
 *For a moment she lets me in*with  
 *That’s when the sadness begins*  
 *I get visions of avenging angels of eden*  
@@ -50,7 +50,7 @@ It was at this point that Bruce began to merge the sibling songs. As September p
 *She says baby if you wanna be wild you got a lot to learn*  
 *You gotta let your heart burn*  
 *So come with me together baby we’ll drive all*  
- *drivin’ together into the night*We’ll go  
+*drivin’ together into the night*We’ll go  
 *through the heart of a fire fight with no rain*
 
 
@@ -169,16 +169,16 @@ And to reach Candy’s room, you have to walk that long, dark hall.
 
 October 27, 1977 – March 5, 1978
 (1978)
- May 23, 1978 (Buffalo, NY)
- August 26, 2023 (Foxborough, MA)
+May 23, 1978 (Buffalo, NY)
+August 26, 2023 (Foxborough, MA)
 
 **Candy’s Room**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Darkness on the Edge of Town*   
-**First performed:**  
-**Last performed:**
+**Released:** *Darkness on the Edge of Town* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

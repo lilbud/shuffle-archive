@@ -43,8 +43,8 @@ Bruce gave it one last airing (to date) seven years later at Carnegie Hall, but 
 [Watch on Youtube: Bruce Springsteen, "Merry Christmas Baby", Carnegie Hall, December 14, 2016](https://www.youtube.com/watch?v=bhsJUCB5Gc8)
 
 **Merry Christmas Baby**
-**Released:** *A Very Special Christmas* (1987)
-**First performed:** December 28, 1980 (Uniondale, NY)
-**Last performed:** December 14, 2016 (New York City, NY)
+**Released:** *A Very Special Christmas* (1987)<br>
+**First performed:** December 28, 1980 (Uniondale, NY)<br>
+**Last performed:** December 14, 2016 (New York City, NY)<br>
 
 (c) December 24, 2018 by Ken Rosen

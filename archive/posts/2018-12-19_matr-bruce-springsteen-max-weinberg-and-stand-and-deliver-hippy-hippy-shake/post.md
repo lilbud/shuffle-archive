@@ -11,5 +11,5 @@ Three decades later, Bruce took his one and only swing at it when he made an una
 [Watch on Youtube: Bruce Springsteen, Max Weinberg, & Stand and Deliver - "Hippy Hippy Shake," 1994-08-26](https://www.youtube.com/watch?v=ts_RdjuZqR8)
 
 **Hippy Hippy Shake**
-**First performed:** August 26, 1994 (Westfield, NJ)
-**Last performed:** August 26, 1994 (Westfield, NJ)
+**First performed:** August 26, 1994 (Westfield, NJ)<br>
+**Last performed:** August 26, 1994 (Westfield, NJ)<br>

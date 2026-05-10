@@ -121,14 +121,14 @@ These are Bruce’s early handwritten lyrics for “Arabian Nights,” and if yo
 
 April-June 1972
 
- February 14, 1972 (New York City, NY)
- May 2, 1972 (New York City, NY)
+February 14, 1972 (New York City, NY)
+May 2, 1972 (New York City, NY)
 
 **Arabian Nights**
-**Recorded:**  
+**Recorded:**<br>
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © March 23, 2021

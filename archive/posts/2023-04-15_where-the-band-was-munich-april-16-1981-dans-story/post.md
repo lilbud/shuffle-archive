@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**This is Part Two of guest blogger Dan French’s incredible E Street adventure from 1981. If you haven’t already, be sure to read* [Part One](https://estreetshuffle.com/index.php/2021/04/14/where-the-band-was-frankfurt-april-141981-dans-story/) *before continuing on.*
 

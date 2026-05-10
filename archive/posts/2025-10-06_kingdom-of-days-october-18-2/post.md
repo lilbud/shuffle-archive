@@ -196,11 +196,11 @@ The press junket for is in full swing. Today, Bruce is interviewed by Simon Mayo
 
 [#brucespringsteen](https://www.tiktok.com/tag/brucespringsteen?refer=embed "brucespringsteen")[#estreetband](https://www.tiktok.com/tag/estreetband?refer=embed "estreetband")[#dermotoleary](https://www.tiktok.com/tag/dermotoleary?refer=embed "dermotoleary")
 
-  
+
 
 [♬ original sound – BBC Radio 2](https://www.tiktok.com/music/original-sound-7433827014567627553?refer=embed "♬ original sound - BBC Radio 2")
 
- 
+
 
 …as well as by Antoine de Caunes for a French documentary. Later in the day, Bruce is joined by Jon Landau and Thom Zimny for an interview with Clint Drieburg of Radio Nova.
 

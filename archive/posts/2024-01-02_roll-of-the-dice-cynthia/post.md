@@ -135,17 +135,16 @@ Like “,” “Cynthia” is a song that ages well with its singer. Don’t cou
 **Want another take on “Cynthia?” Check out Katy Crane’s excellent essay** [here.](https://estreetshuffle.com/index.php/2021/12/06/two-faces-cynthia/)
 
 June 15, 1983
- (1998)
- August 31, 2003 (East Rutherford, NJ)
- July 23, 2013 (Cardiff, Wales)
+(1998)
+August 31, 2003 (East Rutherford, NJ)
+July 23, 2013 (Cardiff, Wales)
 
 **Cynthia**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Tracks*  
-**First performed:**  
-**Last performed:**
+**Released:***Tracks* (1998)<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

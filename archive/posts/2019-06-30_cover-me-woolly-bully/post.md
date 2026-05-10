@@ -11,9 +11,9 @@ Bonus footage: check out this high-quality video from the original artists.
 [https://www.youtube.com/embed/BcU3b_OfGrs?feature=oembed](https://www.youtube.com/embed/BcU3b_OfGrs?feature=oembed)
 
 September 19, 1982 (Asbury Park, NJ)
- May 8, 2009 (University Park, PA)
+May 8, 2009 (University Park, PA)
 
 **Wooly Bully**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

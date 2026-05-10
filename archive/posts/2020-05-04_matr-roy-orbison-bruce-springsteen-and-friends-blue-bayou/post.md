@@ -27,9 +27,9 @@ Watch more great performances from .
 *Roy Orbison and Friends: A Black & White Night* [here](http://estreetshuffle.com/?s=orbison+black+white+night)
 
 September 30, 1987 (Los Angeles, CA)
- September 30, 1987 (Los Angeles, CA)
+September 30, 1987 (Los Angeles, CA)
 
 **Blue Bayou**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

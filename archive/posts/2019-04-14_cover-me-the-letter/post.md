@@ -14,9 +14,9 @@ Here’s a contemporaneous video of The Box Tops performing their hit on sometim
 
 **Technically, Bruce did perform this one other time in 2015 with Southside Johnny, but Bruce was just on guitar for that one–SSJ took the vocals. So we’ll consider this a one-time-only performance.**
 September 30, 1967 (Freehold, NJ)
- January 17, 2015 (Asbury Park, NJ)
+January 17, 2015 (Asbury Park, NJ)
 
 **The Letter**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

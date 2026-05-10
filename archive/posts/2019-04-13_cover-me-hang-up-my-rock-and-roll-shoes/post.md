@@ -15,9 +15,9 @@ And keeping the classics alive, here’s the Chuck Willis original from 1958.
 [https://www.youtube.com/embed/rcitG7FpMVg?feature=oembed](https://www.youtube.com/embed/rcitG7FpMVg?feature=oembed)
 
 September 3, 1978 (Saginaw, MI)
- November 22, 2009 (Buffalo, NY)
+November 22, 2009 (Buffalo, NY)
 
 **Hang Up My Rock and Roll Shoes**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

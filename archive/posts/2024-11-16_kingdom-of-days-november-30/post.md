@@ -74,7 +74,7 @@ The Wrecking Ball Tour travels down the west coast to Oakland for a show at Orac
 
 [https://www.youtube.com/embed/wJg8MlZUUZs?feature=oembed](https://www.youtube.com/embed/wJg8MlZUUZs?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-scaled.jpg?resize=758%2C1557&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/Oakland_Tribune_Sun__Dec_2__2012_-1-scaled.jpg?resize=758%2C2411&amp;ssl=1)
 

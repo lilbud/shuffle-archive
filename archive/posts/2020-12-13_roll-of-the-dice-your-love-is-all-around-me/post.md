@@ -83,16 +83,9 @@ Let’s hope.
 
 [https://www.youtube.com/embed/sX-yxWSPUC0?feature=oembed](https://www.youtube.com/embed/sX-yxWSPUC0?feature=oembed)
 
-Early 1982 (demos only)
-
-
-
 **Your Love Is All Around Me**
-**Recorded:**  
-
-**Never released**  
+**Recorded:** Early 1982 (demos only)<br>
+**Never released**
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

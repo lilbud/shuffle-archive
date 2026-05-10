@@ -19,9 +19,9 @@ Why’d he do that? Beats me, but the Bruce Springsteen Band still manages to co
 Even then, they were that good.
 
 July 10, 1971 (Lincroft, NJ)
- February 4, 1972 (Richmond, VA)
+February 4, 1972 (Richmond, VA)
 
 **Darkness, Darkness**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

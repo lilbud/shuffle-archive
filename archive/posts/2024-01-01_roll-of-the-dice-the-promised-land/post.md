@@ -161,16 +161,15 @@ Here’s an alternate mix of “The Promised Land,” minus Bruce’s guitar sol
 [https://www.youtube.com/embed/KxY7CiPQa_g?feature=oembed](https://www.youtube.com/embed/KxY7CiPQa_g?feature=oembed)
 
 December 1977 (1978), (2003)
- May 23, 1978 (Buffalo, NY)
- September 3, 2023 (East Rutherford, NJ)
+May 23, 1978 (Buffalo, NY)
+September 3, 2023 (East Rutherford, NJ)
 
 **The Promised Land**
-**Recorded:**   
- **Released:**   
+**Recorded:** <br>
+**Released:** <br>
 [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*The Essential Bruce Springsteen*   
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

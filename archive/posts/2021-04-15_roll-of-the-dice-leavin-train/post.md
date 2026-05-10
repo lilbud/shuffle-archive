@@ -87,9 +87,9 @@ Will we ever hear from "Leavin' Train" again?
 I suspect not. That particular train has left the station, and with luck there's a burnin' one on the way.
 
 **Leavin' Train**
-**Recorded:** February 27, 1990
-**Released:** *Tracks* (1998)
-**First performed:** May 22, 2014 (Pittsburgh, PA)
-**Last performed:** May 23, 2014 (Pittsburgh, PA)
+**Recorded:** February 27, 1990<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** May 22, 2014 (Pittsburgh, PA)<br>
+**Last performed:** May 23, 2014 (Pittsburgh, PA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -89,9 +89,9 @@ But he also tried giving "Rendezvous" to The Knack in 1978, offering the band a 
 [Watch Video Highlight](https://videopress.com/embed/d4wU6cXH)
 
 **Rendezvous**
-**Recorded:** September 29, 1977
-**Released:** *The Promise* (2010)
-**First performed:** August 1, 1976 (Red Bank, NJ)
-**Last performed:** November 16, 2019 (Asbury Park, NJ)
+**Recorded:** September 29, 1977<br>
+**Released:** *The Promise* (2010)<br>
+**First performed:** August 1, 1976 (Red Bank, NJ)<br>
+**Last performed:** November 16, 2019 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

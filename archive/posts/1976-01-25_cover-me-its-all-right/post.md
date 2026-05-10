@@ -7,7 +7,7 @@ Bruce pays homage to Mayfield regularly in his encores when he includes "[People
 [Watch on Youtube: its alright (pro shot )- bruce springsteen](https://www.youtube.com/watch?v=nLTx4XIXdjw)
 
 **It's All Right**
-**First performed:** July 22, 1971 (South Amboy, NJ)
-**Last performed:** March 1, 1994 (New York City, NY)
+**First performed:** July 22, 1971 (South Amboy, NJ)<br>
+**Last performed:** March 1, 1994 (New York City, NY)<br>
 
 (c) July 19, 2018

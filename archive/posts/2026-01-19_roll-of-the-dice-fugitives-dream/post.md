@@ -71,8 +71,8 @@ January-March 1983
 (2025)
 
 **Fugitive’s Dream**  
-**Recorded:**  
-**Released:** *L.A. Garage Sessions ’83*   
+**Recorded:**<br>
+**Released:** *L.A. Garage Sessions ’83* <br>
 **Never performed**
 
 © October 19, 2019 / December 21, 2025

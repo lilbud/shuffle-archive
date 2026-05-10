@@ -121,12 +121,11 @@ February-March 2002 (both versions)
 July 26, 2002 (Asbury Park, NJ)
 June 19, 2005 (Rotterdam, The Netherlands)
 
-**Countin’ on a Miracle** **Recorded:**   
+**Countin’ on a Miracle** **Recorded:** <br>
 
-**Released:** *The Rising* *The Essential Bruce Springsteen*  
-**First performed:**   
-**Last performed:**
+**Released:** *The Rising* *The Essential Bruce Springsteen*<br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -29,9 +29,9 @@ Bruce would only play “Satan’s Jeweled Crown” once more after returning ho
 [here](http://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html)
 
 May 14, 1993 (Berlin, Germany)
- June 24, 1993 (East Rutherford, New Jersey)
+June 24, 1993 (East Rutherford, New Jersey)
 
 **Satan’s Jeweled Crown**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

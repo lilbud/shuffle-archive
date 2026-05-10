@@ -11,5 +11,5 @@ Check out Bruce's one and only performance of "You May Be Right" below–the vid
 [Watch on Youtube: Billy Joel joins Bruce Springsteen YOU MAY BE RIGHT](https://www.youtube.com/watch?v=Tlo9RgXg1ME)
 
 **You May Be Right**
-**First performed:** October 29, 2009 (New York City, NY)
-**Last performed:** October 29, 2009 (New York City, NY)
+**First performed:** October 29, 2009 (New York City, NY)<br>
+**Last performed:** October 29, 2009 (New York City, NY)<br>

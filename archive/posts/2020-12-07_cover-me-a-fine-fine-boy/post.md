@@ -23,9 +23,9 @@ Okay, so maybe Bruce couldn’t remember who sang the original on that night bac
 Darlene’s vocals are as rich and powerful as ever, and Bruce looks like he’s having the time of his life playing backup singer to one of the all-time greatest but unsung vocalists. And he probably was.
 
 October 25, 1976 (Philadelphia, PA)
- October 29, 2009 (New York City, NY)
+October 29, 2009 (New York City, NY)
 
 **A Fine Fine Boy (Girl)**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

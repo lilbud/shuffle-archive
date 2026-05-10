@@ -12,5 +12,5 @@ October 1, 2011 (New York City, NY)
 October 1, 2011 (New York City, NY)
 
 **Can’t Stand Losing You**   
-**First Performed:**   
-**Last Performed:**
+**First Performed:** <br>
+**Last Performed:**<br>

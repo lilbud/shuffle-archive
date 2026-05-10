@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**After last month’s back-to-back behind-the-scenes first-hand accounts from* [Sandi Pederson](http://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/) *and* [Kevin Doyle](http://estreetshuffle.com/index.php/2019/07/02/where-the-band-was-st-paul-june-28-july-2-1984-kevins-story/)*, I figured it would be a long time before I’d have the privilege to feature another exclusive “I was there” report.*
 
@@ -28,7 +28,7 @@ Each day, I was sent out to pick up food, supplies, instruments, etc. My down ti
 
 was so genuine and nice. Bruce really surrounds himself with people like himself. Seeing Bruce and Steve on stage for the first time in many years was a joy to watch. They were really enjoying themselves, lots of laughs and back slaps. A true friendship there.
 
-  Everyone
+Everyone
 
 
 

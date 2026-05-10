@@ -64,16 +64,15 @@ But when he tries to skip over the sad parts, his son makes him go back and read
 [https://videopress.com/embed/G9xPqO8U?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/G9xPqO8U?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Late 1989 1992
- June 15, 1992 (Stockholm)
+June 15, 1992 (Stockholm)
 July 23, 1992 (East Rutherford, NJ)
 
 **With Every Wish**
-**Recorded:**   
- **Released:**  
+**Recorded:** <br>
+**Released:**<br>
 *Human Touch,*   
-**First Performed:**  
- **Last Performed:**
+**First Performed:**<br>
+**Last Performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

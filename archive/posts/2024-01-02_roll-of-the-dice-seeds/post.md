@@ -146,17 +146,16 @@ That arrangement has stuck ever since. “Seeds” has continued to make appeara
 Given the state of the economy, however, and its likely prolonged recovery, I suspect “Seeds” may once again become a set list staple when Bruce tours once again.
 
 May 25, 1983
- (Live version released on )
- July 3, 1985 (London, England)
- June 5, 2016 (London, England)
+(Live version released on )
+July 3, 1985 (London, England)
+June 5, 2016 (London, England)
 
 **Seeds**
-**Recorded:**  
+**Recorded:**<br>
 
 **Never released***Live 1975-85*  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

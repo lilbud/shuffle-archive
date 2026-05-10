@@ -11,8 +11,8 @@ Originally written and recorded by Huey Smith, it became a hit when Frankie Ford
 [https://www.youtube.com/embed/i5tIHtbctFQ?feature=oembed](https://www.youtube.com/embed/i5tIHtbctFQ?feature=oembed)
 
 May 28, 1976 (Annapolis, MD)
- August 16, 1981 (Morrison, CO)
+August 16, 1981 (Morrison, CO)
 
 **Sea Cruise**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

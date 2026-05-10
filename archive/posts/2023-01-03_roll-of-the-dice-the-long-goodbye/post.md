@@ -2,7 +2,7 @@
 
 “The tragedy of life…is not that the beautiful things die young, but that they grow old and mean. It will not happen to me.”
 
- 
+
 
 *—* Raymond Chandler, *The Long Goodbye*
 
@@ -81,16 +81,16 @@ Bruce dropped it a few months into the tour and never attempted it with the E St
 [https://www.youtube.com/embed/AuLvzIM27aE?feature=oembed](https://www.youtube.com/embed/AuLvzIM27aE?feature=oembed)
 
 April-May, 1990
- (1992)
- June 26, 1992 (Frankfurt, Germany)
- October 22, 1992 (Mountain View, CA)
+(1992)
+June 26, 1992 (Frankfurt, Germany)
+October 22, 1992 (Mountain View, CA)
 
 **The Long Goodbye**  
-**Recorded:**  
-**Released:***Human Touch*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Human Touch*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

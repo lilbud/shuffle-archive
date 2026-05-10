@@ -9,8 +9,8 @@ From the 1995 opening concert for the Rock and Roll Hall of Fame: Chuck Berry ba
 [https://www.youtube.com/embed/Uf4rxCB4lys?feature=oembed](https://www.youtube.com/embed/Uf4rxCB4lys?feature=oembed)
 
 April 28, 1973 (College Park, MD)
- April 21, 2017 (Asbury Park, NJ)
+April 21, 2017 (Asbury Park, NJ)
 
 **Johnny B. Goode**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

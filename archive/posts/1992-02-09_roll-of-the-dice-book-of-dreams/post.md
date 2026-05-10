@@ -70,9 +70,9 @@ But my favorite performance is this one from 2005. It was the first time Bruce p
 [https://www.youtube.com/embed/EpVduSOxvLg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/EpVduSOxvLg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Book of Dreams**  
-**Recorded:** Late 1991  
-**Released:** *Lucky Town* (1992)  
-**First performed:** August 2, 1992 (East Rutherford, NJ)  
-**Last performed:** June 13, 2005 (Munich, Germany)
+**Recorded:** Late 1991<br>
+**Released:** *Lucky Town* (1992)<br>
+**First performed:** August 2, 1992 (East Rutherford, NJ)<br>
+**Last performed:** June 13, 2005 (Munich, Germany)<br>
 
 © June 4, 2019

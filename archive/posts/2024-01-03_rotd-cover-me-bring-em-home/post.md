@@ -75,17 +75,17 @@ Bruce retired his version of “Bring ‘Em Home” after the Seeger Sessions To
 Like all great folk songs, Pete Seeger’s patriotic anti-war song will continue to grow, adapt, and evolve across the years for as long as there are wars that require people to fight them.
 
 January 21 and May 18, 2006
- (single, 2006)
- May 10, 2006 (Paris, France)
- November 14, 2006 (Sheffield, England)
+(single, 2006)
+May 10, 2006 (Paris, France)
+November 14, 2006 (Sheffield, England)
 
 **Bring ‘Em Home**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Bring ‘Em Home*   
-**First performed:**  
-**Last performed:**
+**Released:***Bring ‘Em Home* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

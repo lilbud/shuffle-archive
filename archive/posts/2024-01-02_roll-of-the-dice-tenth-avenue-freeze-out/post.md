@@ -145,16 +145,15 @@ The break in the song eventually healed, just like a broken heart does, but “T
 [https://www.youtube.com/embed/r1twvwbB_cU?start=1090&amp;feature=oembed](https://www.youtube.com/embed/r1twvwbB_cU?start=1090&amp;feature=oembed)
 
 May 5-16, 1975
- (1975), (2003)
- July 20, 1975 (Providence, RI)
- September 3, 2023 (East Rutherford, NJ)
+(1975), (2003)
+July 20, 1975 (Providence, RI)
+September 3, 2023 (East Rutherford, NJ)
 
 **Tenth Avenue Freeze-Out**  
-**Recorded:**  
-**Released:***Born to Run* *The Essential Bruce Springsteen*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Born to Run* *The Essential Bruce Springsteen* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

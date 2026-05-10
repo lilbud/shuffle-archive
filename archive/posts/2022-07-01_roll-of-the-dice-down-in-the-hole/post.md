@@ -62,8 +62,8 @@ Regardless of the reason, it's effective–it keeps us at a distance and then dr
 *Down in the hole*
 
 **Down in the Hole**
-**Recorded:** 2002, 2013
-**Released:** *High Hopes* (2014)
+**Recorded:** 2002, 2013<br>
+**Released:** *High Hopes* (2014)<br>
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

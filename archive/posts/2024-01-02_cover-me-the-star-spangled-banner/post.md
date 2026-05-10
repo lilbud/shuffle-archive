@@ -101,9 +101,9 @@ Play it, Bruce.
 [https://www.youtube.com/embed/eCDBfSWyhiY?feature=oembed](https://www.youtube.com/embed/eCDBfSWyhiY?feature=oembed)
 
 October 1, 2004 (Philadelphia, PA)
- October 13, 2004 (East Rutherford, NJ)
+October 13, 2004 (East Rutherford, NJ)
 
 **The Star-Spangled Banner**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

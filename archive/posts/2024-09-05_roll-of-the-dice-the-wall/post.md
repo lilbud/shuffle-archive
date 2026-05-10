@@ -163,16 +163,16 @@ In a town where life-altering decisions are made by those far removed from conse
 [https://www.youtube.com/embed/j3m0BXVKPu0?feature=oembed](https://www.youtube.com/embed/j3m0BXVKPu0?feature=oembed)
 
 Late 1990s
- (2014)
- February 19, 2003 (Somerville, MA)
- May 22, 2014 (Pittsburgh, PA)
+(2014)
+February 19, 2003 (Somerville, MA)
+May 22, 2014 (Pittsburgh, PA)
 
 **The Wall**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *High Hopes*  
-**First performed:**  
-**Last performed:**
+**Released:** *High Hopes*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our . New entries coming soon!
 

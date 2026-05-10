@@ -41,9 +41,9 @@ I can’t help but wonder why Bruce never gave it a proper concert outing, but k
 *Volume 2*
 
 May 14, 1971 (Asbury Park, NJ)
- December 12, 1975 (Greenvale, NY) – soundcheck only
+December 12, 1975 (Greenvale, NY) – soundcheck only
 
 **Cry to Me**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

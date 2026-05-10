@@ -11,9 +11,9 @@ The Castiles’ take is faster, more percussive and guitar-forward, but it’s a
 [https://www.youtube.com/embed/svitEEpI07E?feature=oembed](https://www.youtube.com/embed/svitEEpI07E?feature=oembed)
 
 September 16, 1967 (Freehold, NJ)
- September 16, 1967 (Freehold, NJ)
+September 16, 1967 (Freehold, NJ)
 
 **Suzanne**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

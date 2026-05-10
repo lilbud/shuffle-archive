@@ -23,9 +23,9 @@ As for Bruce, it seems he’s played “The Last Time” for the last time.
 Until the next time.
 
 October 1, 1978 (Atlanta, GA)
- October 9, 2009 (East Rutherford, NJ)
+October 9, 2009 (East Rutherford, NJ)
 
 **The Last Time**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

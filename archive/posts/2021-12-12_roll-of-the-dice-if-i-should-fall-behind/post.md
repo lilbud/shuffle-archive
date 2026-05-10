@@ -104,17 +104,16 @@ Five years after the performance above, and five months after I originally publi
 [https://www.youtube.com/embed/JkZ7FCpeJWk?feature=oembed](https://www.youtube.com/embed/JkZ7FCpeJWk?feature=oembed)
 
 September 1991 – January 1992
- (1992), (2001), (2003), (2007).
- June 8, 1991 (Beverly Hills, CA)
- November 5, 2018 (New York City, NY)
+(1992), (2001), (2003), (2007).
+June 8, 1991 (Beverly Hills, CA)
+November 5, 2018 (New York City, NY)
 
 **If I Should Fall Behind**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Lucky Town**Live in New York City**The Essential Bruce Springsteen**Live in Dublin*  
-**First performed:**  
-**Last performed:**
+**Released:***Lucky Town**Live in New York City**The Essential Bruce Springsteen**Live in Dublin*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -11,5 +11,5 @@ Here's the original for comparison:
 [Watch on Youtube: I've Got to Know](https://www.youtube.com/watch?v=A_f1nlorvU0)
 
 **I've Got to Know**
-**First performed:** September 29, 1996 (Cleveland, OH)
-**Last performed:** September 29, 1996 (Cleveland, OH)
+**First performed:** September 29, 1996 (Cleveland, OH)<br>
+**Last performed:** September 29, 1996 (Cleveland, OH)<br>

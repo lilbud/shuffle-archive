@@ -5,5 +5,5 @@ It's the only time Bruce has performed this song to date.
 [Watch on Youtube: Bruce Springsteen - LONESOME VALLEY 1993 (audio)](https://www.youtube.com/watch?v=30DrA9_lIwc)
 
 **Lonesome Valley**
-**First performed:** June 26, 1993
-**Last performed:** June 26, 1993
+**First performed:** June 26, 1993<br>
+**Last performed:** June 26, 1993<br>

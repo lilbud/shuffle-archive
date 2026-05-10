@@ -190,16 +190,15 @@ But whether I was in the house or listening on CD or YouTube, in my opinion, non
 Am I reading too much into the song? Perhaps–I admitted that possibility at the outset. What’s your take on “None But the Brave?” I’d love to read it.
 
 : June 27, 1983 (and possibly a 2002-ish vocal track)
- (2003)
- December 5, 2003 (Asbury Park, NJ)
- February 18, 2017 (Hunter Valley, Australia)
+(2003)
+December 5, 2003 (Asbury Park, NJ)
+February 18, 2017 (Hunter Valley, Australia)
 
 **None But the Brave**  
 **Recorded**  
-**Released:***The Essential Bruce Springsteen*   
-**First performed:**  
-**Last performed:**
+**Released:***The Essential Bruce Springsteen* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

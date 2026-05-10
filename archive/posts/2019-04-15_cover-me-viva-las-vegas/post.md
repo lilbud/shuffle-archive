@@ -36,17 +36,10 @@ It took until 2003 before most fans were able to own the track, however. Late th
 
 The track received one more release in 2008, when it appeared in the soundtrack of an Elvis documentary. Other than the limited-time 2003 bonus disc, however, “Viva Las Vegas” remains unreleased in Bruce’s own catalog to this day.
 
-September 13-14, 1989
- (1990), (2003)
- August 13, 1992 (Worcester, MA)
- August 18, 2002 (Las Vegas, NV)
+**Viva Las Vegas**  
+**Recorded:** September 13-14, 1989<br>
+**Released:** *The Last Temptation of Elvis* (1990), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** August 13, 1992 (Worcester, MA)<br>
+**Last performed:** August 18, 2002 (Las Vegas, NV)<br>
 
-**Viva Las****Vegas**  
-**Recorded:**  
-**Released:** *The Last Temptation of Elvis**The Essential Bruce Springsteen*  
-**First performed:**  
-**Last performed:**
-
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

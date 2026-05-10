@@ -147,15 +147,15 @@ So if “Streets of Philadelphia” is on your chase list, you’ve still got a 
 
 August 1993
 (1994), (1995), (2003)
- January 27, 1994 (Los Angeles, CA)
- September 9, 2016 (Philadelphia, PA)
+January 27, 1994 (Los Angeles, CA)
+September 9, 2016 (Philadelphia, PA)
 
 **Streets of Philadelphia**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Philadelphia* *Greatest Hits* *The Essential Bruce Springsteen*  
-**First performed:**  
-**Last performed:**
+**Released:** *Philadelphia* *Greatest Hits* *The Essential Bruce Springsteen*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our full index . New entries return in August!
 
@@ -163,6 +163,6 @@ Looking for your favorite Bruce song? Check our full index . New entries return 
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**Our Roll of the Dice series goes on hiatus after today while I take some time off to relax, recharge, and reload the blog’s editorial queue. Roll of the Dice will resume in August–until then, consider checking out our to explore more of Bruce’s catalog, and have a great summer!*[album index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

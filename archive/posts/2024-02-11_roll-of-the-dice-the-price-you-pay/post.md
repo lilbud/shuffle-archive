@@ -219,15 +219,14 @@ But “The Price You Pay” remains one of Bruce’s most powerful, poignant, an
 
 June 1979
 (1980), (2015)
- October 31, 1980 (Los Angeles, CA)
- July 28, 2016 (Oslo, Norway)
+October 31, 1980 (Los Angeles, CA)
+July 28, 2016 (Oslo, Norway)
 
 **The Price You Pay**  
-**Recorded:**  
-**Released:** *The River* *The Ties That Bind*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *The River* *The Ties That Bind*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

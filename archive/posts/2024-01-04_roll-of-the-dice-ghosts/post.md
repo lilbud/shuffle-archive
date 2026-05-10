@@ -167,16 +167,16 @@ Remind yourself, like Bruce does:
 Someday we’ll be out there on our own.
 
 November 2019
- (2020)
- December 12, 2020 (New York City, NY)
- September 1, 2023 (East Rutherford, NJ)
+(2020)
+December 12, 2020 (New York City, NY)
+September 1, 2023 (East Rutherford, NJ)
 
 **Ghosts**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Letter to You*  
-**First performed:**  
-**Last performed:**
+**Released:***Letter to You*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our . New entries every month!
 

@@ -20,12 +20,12 @@ Bruce and Patti reprised their roles at the release party for at the Stone Pony 
 *White Lines*
 
 May 2002
- (2003)
- May 2, 2003 (Asbury Park, NJ)
- May 2, 2003 (Asbury Park, NJ)
+(2003)
+May 2, 2003 (Asbury Park, NJ)
+May 2, 2003 (Asbury Park, NJ)
 
 **Ste. Genevieve**   
-**Recorded:**  
-**Released:***White Lines*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***White Lines*<br>
+**First performed:**<br>
+**Last performed:**<br>

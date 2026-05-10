@@ -26,7 +26,7 @@ Bruce and the E Street Band play their first of two shows at the Houston Music H
 
 [https://www.youtube.com/embed/B5Zw_6PLuQM?feature=oembed](https://www.youtube.com/embed/B5Zw_6PLuQM?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/09/The_Houston_Post_1975_09_14_49-scaled.jpg?resize=758%2C2366&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/09/The_Houston_Chronicle_1975_09_14_28.jpg?resize=758%2C456&amp;ssl=1)
 

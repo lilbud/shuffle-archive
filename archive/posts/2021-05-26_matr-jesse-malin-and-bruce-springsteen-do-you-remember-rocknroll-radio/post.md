@@ -11,9 +11,9 @@ Here’s the original for good measure–because there’s no such thing as too 
 [https://www.youtube.com/embed/Gi9a7IdRiBI?feature=oembed](https://www.youtube.com/embed/Gi9a7IdRiBI?feature=oembed)
 
 January 18, 2014 (Asbury Park, NJ)
- January 18, 2014 (Asbury Park, NJ)
+January 18, 2014 (Asbury Park, NJ)
 
 **Do You Remember Rock ‘n’ Roll Radio**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

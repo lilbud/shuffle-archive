@@ -102,17 +102,16 @@ Unfortunately, like most of the album, the title track has mostly disappeared si
 *Working on a Dream*
 
 2007-2008
- (2009), (2015)
- November 2, 2008 (Cleveland, OH)
- June 5, 2022 (East Rutherford, NJ)
+(2009), (2015)
+November 2, 2008 (Cleveland, OH)
+June 5, 2022 (East Rutherford, NJ)
 
 **Working on a Dream**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Working on a Dream* *The Essential Bruce Springsteen*  
-**First performed:**  
-**Last performed:**
+**Released:***Working on a Dream* *The Essential Bruce Springsteen*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

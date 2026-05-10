@@ -2,11 +2,11 @@
 
 “I guess there’s just a certain amount of good and bad you get from your parents, and I just got the bad.”
 
- 
+
 
 “That’s not true. Cal! Listen to me: you can make of yourself anything you want. It’s up to you. A man has a choice.”
 
- 
+
 
 — Cal and Adam, *East of Eden* (1955)
 
@@ -143,17 +143,17 @@ The other is a jaw-droppingly intense performance before an empty Paramount Thea
 When Bruce and the band hit the road again next year, odds are very, very high that “Adam” will be with them, too.
 
 February 15-17, 1978
- (1978)
- May 23, 1978 (Buffalo, NY)
- February 9, 2017 (Sydney, Australia)
+(1978)
+May 23, 1978 (Buffalo, NY)
+February 9, 2017 (Sydney, Australia)
 
 **Adam Raised a Cain**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Darkness on the Edge of Town*   
-**First performed:**  
-**Last performed:**
+**Released:***Darkness on the Edge of Town* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

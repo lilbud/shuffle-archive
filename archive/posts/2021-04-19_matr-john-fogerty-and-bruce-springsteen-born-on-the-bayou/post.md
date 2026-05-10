@@ -19,5 +19,5 @@ But on that earlier occasion John sang the lead vocals himself. This time, John 
 [Watch Video Highlight](https://videopress.com/embed/7AXPHcVE)
 
 **Born on the Bayou**
-**First performed:** January 20, 1988 (New York City, NY)
-**Last performed:** August 1, 2015 (Asbury Park, NJ)
+**First performed:** January 20, 1988 (New York City, NY)<br>
+**Last performed:** August 1, 2015 (Asbury Park, NJ)<br>

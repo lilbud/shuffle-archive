@@ -101,15 +101,14 @@ If Joe’s band seemed particularly well-suited for the challenge in the clip ab
 
 September 22, 1992 (live performance)
 (1993) April 12, 1987 (Asbury Park, NJ)
- January 18, 2020 (Asbury Park, NJ)
+January 18, 2020 (Asbury Park, NJ)
 
 **Light of Day**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *In Concert: MTV xxPlugged*   
-**First performed:**  
-**Last performed:**
+**Released:** *In Concert: MTV xxPlugged* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

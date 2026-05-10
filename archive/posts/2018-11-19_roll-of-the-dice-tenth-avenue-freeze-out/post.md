@@ -130,9 +130,9 @@ The break in the song eventually healed, just like a broken heart does, but "Ten
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Tenth Avenue Freeze-Out (Live in New York City)](https://www.youtube.com/watch?v=r1twvwbB_cU?start=1090)
 
 **Tenth Avenue Freeze-Out**
-**Recorded:** May 5-16, 1975
-**Released:** *Born to Run* (1975), *The Essential Bruce Springsteen* (2003)
-**First performed:** July 20, 1975 (Providence, RI)
-**Last performed:** September 3, 2023 (East Rutherford, NJ)
+**Recorded:** May 5-16, 1975<br>
+**Released:** *Born to Run* (1975), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** July 20, 1975 (Providence, RI)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

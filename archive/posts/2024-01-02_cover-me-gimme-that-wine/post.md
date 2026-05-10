@@ -29,6 +29,6 @@ Clarence had one last star turn the following year in Lenox, MA, shortly before 
 March 10, 1974 (Houston, TX)
 July 23, 1975 (Lenox, MA)
 
-**Gimme That Wine** **First performed:**   
+**Gimme That Wine** **First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

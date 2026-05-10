@@ -32,9 +32,9 @@ Bruce performed "Jesus Was an Only Son" live throughout his 2005 solo acoustic t
 Despite its historical subject matter, "Jesus Was an Only Son" feels like one of Bruce's most intimate songs, tied to a particular time and place of life. It's unlikely ever to be performed in an E Street Band concert, and I wouldn't be surprised if we never hear it performed live again.
 
 **Jesus Was an Only Son**
-**Recorded:** Unknown–likely 2004
-**Released:** *Devils & Dust* (2005)
-**First performed:** April 4, 2005 (Red Bank, NJ/VH1 Storytellers)
-**Last performed:** November 19, 2006 (Dublin, Ireland)
+**Recorded:** Unknown–likely 2004<br>
+**Released:** *Devils & Dust* (2005)<br>
+**First performed:** April 4, 2005 (Red Bank, NJ/VH1 Storytellers)<br>
+**Last performed:** November 19, 2006 (Dublin, Ireland)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

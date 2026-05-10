@@ -21,11 +21,11 @@ This is the first time Bruce was known to have performed this perennial seasonal
 Happy Holidays, however you celebrate them, and may the holiday season bring you peace and joy.
 
 December 14, 2016 (New York City, NY)
- December 14, 2016 (New York City, NY)
+December 14, 2016 (New York City, NY)
 
 **Joy to the World**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) December 24, 2019 by Ken Rosen

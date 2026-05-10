@@ -30,14 +30,8 @@ Bruce and Pete recorded “Hobo’s Lullaby” from different locations, but the
 
 However, that lone live performance wasn’t a duet; Bruce and Pete were joined by Joe Ely, The Indigo Girls, Ani DiFranco, Arlo Guthrie, and others, so that very rare studio recording (it doesn’t stream on the major services, and the CD itself is out of print) is our only chance to hear Bruce and Pete perform “Hobo’s Lullaby” together.
 
-November 2, 1997 – July 4, 2008
- (2007)
-September 29, 1996 (Cleveland, OH)
-September 29, 1996 (Cleveland, OH)
-
 **Hobo’s Lullaby**
-**Recorded:**  
-
-**Released:** *Give US Your Poor*  
-**First performed:**   
-**Last performed:**
+**Recorded:** November 2, 1997 – July 4, 2008<br>
+**Released:** *Give US Your Poor* (2007)<br>
+**First performed:** September 29, 1996 (Cleveland, OH)<br>
+**Last performed:** September 29, 1996 (Cleveland, OH)<br>

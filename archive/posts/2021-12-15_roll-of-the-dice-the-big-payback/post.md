@@ -90,13 +90,12 @@ Like I said: this is material through and through. It’s also some of Bruce’s
 So maybe Bruce will someday remember about “The Big Payback” and give Bobby a chance to make it big on stage. But given Bobby’s bad luck and karma, it’s more likely he’ll stay condemned to lurking in the dark alleys of B-sides and bonus discs.
 
 January-April 1982
- (2003)
+(2003)
 
 **The Big Payback**  
-**Recorded:**  
-**Released:***The Essential Bruce Springsteen*   
+**Recorded:**<br>
+**Released:***The Essential Bruce Springsteen* <br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

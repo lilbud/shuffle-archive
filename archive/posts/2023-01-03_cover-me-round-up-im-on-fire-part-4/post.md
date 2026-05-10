@@ -6,7 +6,7 @@ It’ s time for our first “” round-up of 2022, and we’ve got some great o
 
 Let’s start off with singer-songwriter Stefanie Joyce’s country arrangement. “This song is so fun because it’s been covered by so many artists in so many drastically different ways,” Stefanie wrote on her YouTube page. “I’m partial to the Whitey Morgan version. We tried to do something a bit country, a bit bluegrass, and a whole lotta dark.”
 
- 
+
 
 Stefanie enlisted Danya Olsen on fiddle and Nick Halsted on percussion and backing vocals for an intimate trio arrangement that serves the song admirably. If you’re interested in hearing Stefanie’s own music, check out her site .
 

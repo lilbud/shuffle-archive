@@ -65,9 +65,9 @@ The differences are subtle but significant, like the extended introduction that 
 [Watch on Youtube: Hitch Hikin' - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=fdN4NXt414o)
 
 **Hitch Hikin'**
-**Recorded:** 2010-2018
-**Released:** *Western Stars* (2019)
-**First performed:** April 2019 (Colts Neck, NJ)
-**Last performed:** April 2019 (Colts Neck, NJ)
+**Recorded:** 2010-2018<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

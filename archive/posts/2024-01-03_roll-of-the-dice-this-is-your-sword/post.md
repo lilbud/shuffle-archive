@@ -76,17 +76,17 @@ That may be why Bruce only tried it twice more; while the latter two went more s
 But context is king, and if we’re lucky enough to get at least one more Sessions Band tour out of Bruce, I’d be interested in seeing what they can do with “This Is Your Sword.” With their expansive instrumental range and comfort with this type of arrangement (Sessions Band violinist Sam Bardfeld even plays on the studio track), I suspect it’d be right at home in their sets.
 
 2013
- (2014)
- January 29, 2014 (Cape Town, South Africa)
- May 13, 2014 (Albany, NY)
+(2014)
+January 29, 2014 (Cape Town, South Africa)
+May 13, 2014 (Albany, NY)
 
 **This Is Your Sword**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***High Hopes*   
-**First performed:**  
-**Last performed:**
+**Released:***High Hopes* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

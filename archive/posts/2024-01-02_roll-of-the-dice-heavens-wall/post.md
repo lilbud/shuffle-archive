@@ -80,16 +80,15 @@ But “Heaven’s Wall” is a fascinating song that explores dominant themes in
 
 2007-2013
 (2014)
- January 14, 2014 (New York City, NY)
- April 26, 2014 (Atlanta, GA)
+January 14, 2014 (New York City, NY)
+April 26, 2014 (Atlanta, GA)
 
 **Heaven’s Wall**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *High Hopes*   
-**First performed:**  
-**Last performed:**
+**Released:** *High Hopes* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

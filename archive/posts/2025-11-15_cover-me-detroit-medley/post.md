@@ -105,13 +105,13 @@ And counting.
 [https://www.youtube.com/embed/sut4A5aYFl8?feature=oembed](https://www.youtube.com/embed/sut4A5aYFl8?feature=oembed)
 
 (1979), (2005)
- September 23, 1975 (Ann Arbor, MI)
- November 19, 2024 (Edmonton, AB)
+September 23, 1975 (Ann Arbor, MI)
+November 19, 2024 (Edmonton, AB)
 
 **Detroit Medley**
-**Released:**  
+**Released:**<br>
 *No Nukes* *Hammersmith Odeon London ’75*  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) December 27, 2019

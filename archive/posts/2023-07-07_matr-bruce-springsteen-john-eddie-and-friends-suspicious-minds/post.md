@@ -25,8 +25,8 @@ Among them: “Suspicious Minds.” Here’s that all-star performance, recorded
 [https://www.youtube.com/embed/7m2QcHGtEeo?feature=oembed](https://www.youtube.com/embed/7m2QcHGtEeo?feature=oembed)
 
 October 21, 1994 (Sayreville, NJ)
- August 18, 2001 (Asbury Park, NJ)
+August 18, 2001 (Asbury Park, NJ)
 
 **Suspicious Minds**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

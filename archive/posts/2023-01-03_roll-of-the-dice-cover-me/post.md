@@ -154,17 +154,17 @@ Here’s an alternate, unreleased mix of “Cover Me.” I present it here for t
 [https://videopress.com/embed/e3V4yBk8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/e3V4yBk8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 January 25, 1982
- (1984)
- July 2, 1984 (St. Paul, MN)
- February 4, 2017 (Melbourne, Australia)
+(1984)
+July 2, 1984 (St. Paul, MN)
+February 4, 2017 (Melbourne, Australia)
 
 **Cover Me**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Born in the U.S.A.*   
-**First performed:**  
-**Last performed:**
+**Released:***Born in the U.S.A.* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

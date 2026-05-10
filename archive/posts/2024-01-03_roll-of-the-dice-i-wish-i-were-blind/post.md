@@ -2,7 +2,7 @@
 
 “There’s a world of love, a world of beauty, a world of fear and a world of loss and they are the same world and that person is wending his way through that maze and at that moment he’s very in touch with both of those things. [“I Wish I Were Blind”] gets that picture.
 
- 
+
 
 — Bruce Springsteen to David Hepworth, August 1992*Q Magazine,*   
 
@@ -95,17 +95,17 @@ Just make sure you turn to the solo version.
 
 September 1989 – March 1991
 (1992)
- May 6, 1992 (New York City, NY)
- February 23, 2014 (Hunter Valley, Australia)
+May 6, 1992 (New York City, NY)
+February 23, 2014 (Hunter Valley, Australia)
 
 **I Wish I Were Blind**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Human Touch*   
-**First performed:**  
-**Last performed:**
+**Released:** *Human Touch* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
 

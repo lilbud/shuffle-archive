@@ -19,9 +19,9 @@ Although we have reason (via a preserved but undated setlist) to believe Bruce p
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/02/earth-sl-bs.jpg?resize=758%2C652)
 
 September 16, 1967 (Freehold, NJ)
- September 16, 1967 (Freehold, NJ)
+September 16, 1967 (Freehold, NJ)
 
 **Purple Haze**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

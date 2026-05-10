@@ -31,11 +31,11 @@ Wilson remembers talking with Bruce after they left the stage that night:
 “Bruce came by afterward and hung out for a little while. He had really nice things to say about the band and how perfectly it fit the music. He said that the songs were American masterworks. It was nice of him to say. He has written some himself.”
 
 May 12, 2007 (Red Bank, NJ)
- May 12, 2007 (Red Bank, NJ)
+May 12, 2007 (Red Bank, NJ)
 
 **Love and Mercy**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © March 9, 2022

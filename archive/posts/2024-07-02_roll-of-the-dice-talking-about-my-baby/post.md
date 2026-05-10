@@ -78,7 +78,7 @@ And then of course, in late 2020, we were finally gifted with a modern, complete
 **Talking About My Baby**
 Never recorded**
 **Never released**
-**First performed:** October 30, 1971 (Richmond, VA)
-**Last performed:** October 30, 1971 (Richmond, VA)
+**First performed:** October 30, 1971 (Richmond, VA)<br>
+**Last performed:** October 30, 1971 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries coming soon!

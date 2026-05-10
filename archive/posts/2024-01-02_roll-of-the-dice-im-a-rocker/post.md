@@ -50,7 +50,7 @@ was notable for its integrated cast–the show centered around two partners play
 
 What was notable for, however, was gadgets. In this regard, it was the antithesis of James Bond, so I actually have no idea what possessed Bruce to reference an “I Spy beeper that tells me when you’re lonely.” It’s a really cool idea, just the wrong TV show.
 
- *I Spy**not*
+*I Spy**not*
 
 So don’t kick yourself if you didn’t get that one. You’ll definitely get the next one:
 
@@ -160,16 +160,15 @@ Sixty-six.
 
 April 10, 1980
 (1980)
- October 18, 1980 (St. Louis, MO)
- September 11, 2016 (Pittsburgh, PA)
+October 18, 1980 (St. Louis, MO)
+September 11, 2016 (Pittsburgh, PA)
 
 **I’m a Rocker**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The River*   
-**First performed:**  
-**Last performed:**
+**Released:** *The River* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

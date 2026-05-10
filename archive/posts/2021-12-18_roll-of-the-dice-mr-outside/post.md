@@ -64,10 +64,8 @@ So I’ll give Mr. Outside a pass. As has Bruce: he’s never once performed it 
 Late 1979
 
 **Mr. Outside**  
-**Recorded:**  
-**Released:***The Ties That Bind: The River Collection*  
+**Recorded:**<br>
+**Released:***The Ties That Bind: The River Collection*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

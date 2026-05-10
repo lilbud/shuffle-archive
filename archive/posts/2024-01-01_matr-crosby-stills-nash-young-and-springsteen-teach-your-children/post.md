@@ -17,9 +17,9 @@ The original, of course, can’t be topped.
 [https://www.youtube.com/embed/Lwy6jhemprw?feature=oembed](https://www.youtube.com/embed/Lwy6jhemprw?feature=oembed)
 
 October 13, 1986 (Mountain View, CA)
- December 13, 2021 (New York City, NY)
+December 13, 2021 (New York City, NY)
 
 **Teach Your Children**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

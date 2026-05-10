@@ -144,9 +144,9 @@ But apart from an odd arrangement on the Reunion Tour (which thankfully never su
 [Watch on Youtube: Bruce Springsteen - No Surrender (Houston 05.06.14) HD](https://www.youtube.com/watch?v=MrDkVJ1iSjg)
 
 **No Surrender**
-**Recorded:** October 27, 1983
-**Released:** *Born in the U.S.A.* (1984)
-**First performed:** June 29, 1984 (St. Paul, MN)
-**Last performed:** September 3, 2023 (East Rutherford, NJ)
+**Recorded:** October 27, 1983<br>
+**Released:** *Born in the U.S.A.* (1984)<br>
+**First performed:** June 29, 1984 (St. Paul, MN)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

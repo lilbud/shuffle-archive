@@ -13,5 +13,5 @@ Shortly after, Herman's Hermits released their version as their first single, an
 Bruce only performed it that once, with The Bruce Springsteen Band.
 
 **I'm Into Something Good**
-**First performed:** February 4, 1972 (Richmond, VA)
-**Last performed:** February 4, 1972 (Richmond, VA)
+**First performed:** February 4, 1972 (Richmond, VA)<br>
+**Last performed:** February 4, 1972 (Richmond, VA)<br>

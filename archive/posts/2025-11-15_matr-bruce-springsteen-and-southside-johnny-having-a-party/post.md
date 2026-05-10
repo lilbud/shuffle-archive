@@ -63,11 +63,11 @@ Have a happy and safe New Year’s Eve, and if you’re having a party: mask up.
 [https://videopress.com/embed/5or7QVbC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5or7QVbC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 May 30, 1976 (Asbury Park, NJ)
- August 7, 2019 (Asbury Park, NJ)
+August 7, 2019 (Asbury Park, NJ)
 
 **Having a Party**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) December 31, 2021

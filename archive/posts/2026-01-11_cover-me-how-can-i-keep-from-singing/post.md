@@ -31,15 +31,15 @@ When performed live, “How Can I Keep From Singing” provided a rare spotlight
 Those lucky Brits–they’re the only ones who got to experience this song live in all three of its only performances ever.
 
 January 21, 2006
- (2006)
- May 7, 2006 (Manchester, England)
- May 9, 2006 (London, England)
+(2006)
+May 7, 2006 (Manchester, England)
+May 9, 2006 (London, England)
 
 **How Can I Keep From Singing?**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***We Shall Overcome: The Seeger Sessions (American Land Edition)*  
-**First performed:**  
-**Last performed:**
+**Released:***We Shall Overcome: The Seeger Sessions (American Land Edition)*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © November 21, 2019

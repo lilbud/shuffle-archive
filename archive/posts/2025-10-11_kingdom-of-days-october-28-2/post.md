@@ -70,7 +70,7 @@ Bruce plays a solo acoustic show at the Arlene Schnitzer Concert Hall (formerly 
 
 **1996:** <http://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-10-28.mp3>
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/The_Oregonian_1996_10_29_27.jpg?w=758&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/The_Oregonian_1996_10_29_29.jpg?resize=758%2C301&amp;ssl=1)
 

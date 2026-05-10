@@ -32,9 +32,9 @@ During the Rising Tour, when the U.S. was preparing to invade Iraq, Bruce though
 
 Bruce played the song for the last time on March 26, 2003 in Brisbane. Edwin Starr died exactly one week later, his greatest hit sadly still as relevant as ever.
 
-**War****Recorded:** September 30, 1985
-**Released:** *Live 1975-85* (1986)
-**First performed:** September 27, 1985 (Los Angeles, CA)
-**Last performed:** March 26, 2003 (Brisbane, Australia)
+**War****Recorded:** September 30, 1985<br>
+**Released:** *Live 1975-85* (1986)<br>
+**First performed:** September 27, 1985 (Los Angeles, CA)<br>
+**Last performed:** March 26, 2003 (Brisbane, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

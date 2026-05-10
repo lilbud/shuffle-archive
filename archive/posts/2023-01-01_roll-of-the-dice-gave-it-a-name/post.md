@@ -67,13 +67,12 @@ The show explores the complicated civil rights history of Yonkers, New York, and
 [https://www.youtube.com/embed/xtpYCF8zMCA?feature=oembed](https://www.youtube.com/embed/xtpYCF8zMCA?feature=oembed)
 
 August 24, 1998
- (1998)
+(1998)
 
 **Gave It a Name**  
-**Recorded:**  
-**Released:***Tracks*   
+**Recorded:**<br>
+**Released:***Tracks* <br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

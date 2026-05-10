@@ -69,12 +69,12 @@ We follow a slightly different path, but it still leads to a moment of weakness 
 The title “Fugitive’s Dream” conditions us to expect a more black-and-white crime fiction. What we witness instead is a man on the run from himself.
 
 March 24, 1983
- (2025)
+(2025)
 
 **Fugitive’s Dream**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *L.A. Garage Sessions ’83*  
+**Released:** *L.A. Garage Sessions ’83*<br>
 **Never performed**
 
 © January 19, 2026

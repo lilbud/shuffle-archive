@@ -32,12 +32,12 @@ In advance of the 25th anniversary reissue of , Joe released the original demo h
 
 October-November 1993
 (1995)
- August 20, 1994 (Long Branch, NJ)
- July 18, 2015 (Asbury Park, NJ)
+August 20, 1994 (Long Branch, NJ)
+July 18, 2015 (Asbury Park, NJ)
 
 **Chain Smokin’**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *American Babylon*   
-**First performed:**  
-**Last performed:**
+**Released:** *American Babylon* <br>
+**First performed:**<br>
+**Last performed:**<br>

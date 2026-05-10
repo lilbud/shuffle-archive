@@ -60,17 +60,17 @@ Here’s a rare live, televised solo Scialfa performance of “Town Called Heart
 
 [https://www.youtube.com/embed/1J8a884WInk?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/1J8a884WInk?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
- 
+
 
 Early 2007
 (2007)
- September 25, 2007 (Asbury Park, NJ)
- November 12, 2007 (Washington, DC)
+September 25, 2007 (Asbury Park, NJ)
+November 12, 2007 (Washington, DC)
 
 **Town Called Heartbreak**  
-**Recorded:**   
-**Released:** *Play It As It Lays*   
-**First performed:**  
-**Last performed:**
+**Recorded:** <br>
+**Released:** *Play It As It Lays* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © August 9, 2020

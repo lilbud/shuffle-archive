@@ -18,7 +18,7 @@ From there, it took off through popular culture, morphing and evolving but alway
 
 It showed up in literature like, in science fiction novels and movies, in TV studio jingles, and in film:
 
- *Tom Sawyer*
+*Tom Sawyer*
 
 [https://www.youtube.com/embed/ToFuxOlI0Lw?feature=oembed](https://www.youtube.com/embed/ToFuxOlI0Lw?feature=oembed)
 
@@ -39,17 +39,16 @@ It showed up in literature like, in science fiction novels and movies, in TV stu
 It’s hard to say why “Buffalo Gals” became such an American classic, but with performances like this, it’s easy to see why it lives on.
 
 2005-2006
- 
- April 20, 2006 (Asbury Park, NJ)
- June 29, 2006 (Saratoga Springs, NY)
+
+April 20, 2006 (Asbury Park, NJ)
+June 29, 2006 (Saratoga Springs, NY)
 
 **Buffalo Gals**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***We Shall Overcome: The Seeger Sessions*  
-**First performed:**  
-**Last performed:**
+**Released:***We Shall Overcome: The Seeger Sessions*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

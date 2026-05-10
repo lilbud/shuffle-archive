@@ -40,5 +40,5 @@ March 14, 2005 (New York City, NY)
 July 31, 2015 (New York City, NY)
 
 **I Still Haven’t Found What I’m Looking For**   
-**First performed:**   
-**Last performed:**
+**First performed:** <br>
+**Last performed:**<br>

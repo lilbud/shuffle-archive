@@ -17,9 +17,9 @@ Bruce’s arrangement was traditional, and his vocals warm and wonderful. The E 
 It was a serendipitous one-off, and we’re fortunate that it was captured on tape.
 
 November 9, 1980 (Austin, TX)
- November 9, 1980 (Austin, TX)
+November 9, 1980 (Austin, TX)
 
 **Waltz Across Texas**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

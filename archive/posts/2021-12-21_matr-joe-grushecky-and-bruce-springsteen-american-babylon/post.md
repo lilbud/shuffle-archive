@@ -27,9 +27,9 @@ Opening night at The Stone Pony was captured for posterity on , one of the rarer
 Bruce and Joe have shared a stage together many times since, but after a one-off appearance in Pittsburgh in 1998, “American Babylon” dropped out of rotation as one of their go-to on-stage collaborations.
 
 July 22, 1995 (Sea Bright, NJ)
- March 2, 1998 (Pittsburgh, PA)
+March 2, 1998 (Pittsburgh, PA)
 
 **American Babylon**
-**First Performed:**  
+**First Performed:**<br>
 
-**Last Performed:**
+**Last Performed:**<br>

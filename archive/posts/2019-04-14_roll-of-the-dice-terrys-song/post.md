@@ -86,17 +86,10 @@ In concert, Bruce has played it only three times, and only by dedication or requ
 
 [https://www.youtube.com/embed/sNW3knnity0?feature=oembed](https://www.youtube.com/embed/sNW3knnity0?feature=oembed)
 
-August 2007
- (2007)
- August 2, 2007 (Red Bank, NJ)
- February 8, 2014 (Perth, Australia)
-
 **Terry’s Song**  
-**Recorded:**  
-**Released:***Magic*  
-**First performed:**  
-**Last performed:**
+**Recorded:** August 2007<br>
+**Released:** *Magic* (2007)<br>
+**First performed:** August 2, 2007 (Red Bank, NJ)<br>
+**Last performed:** February 8, 2014 (Perth, Australia)<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

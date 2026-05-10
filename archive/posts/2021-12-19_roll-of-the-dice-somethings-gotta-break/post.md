@@ -74,11 +74,11 @@ A note about that line in bold: I realize that the Springsteenlyrics transcripti
 Any takers?
 
 May 23, 1970 (Richmond, VA)
- June 13, 1970 (Bricktown, NJ)
+June 13, 1970 (Bricktown, NJ)
 
 **Something’s Gotta Break**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

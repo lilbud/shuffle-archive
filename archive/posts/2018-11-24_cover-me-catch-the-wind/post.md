@@ -11,5 +11,5 @@ Fortunately, their performance was captured on tape, so we can listen to the onl
 [Watch on Youtube: Bruce Springsteen - CATCH THE WIND 1967 (The Castilles) - audio](https://www.youtube.com/watch?v=cWHSJa5fpZ8)
 
 **Catch the Wind**
-**First performed:** September 16, 1967 (Freehold, NJ)
-**Last performed:** September 16, 1967 (Freehold, NJ)
+**First performed:** September 16, 1967 (Freehold, NJ)<br>
+**Last performed:** September 16, 1967 (Freehold, NJ)<br>

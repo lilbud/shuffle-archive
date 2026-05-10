@@ -34,7 +34,7 @@ Daryl Hall and John Oates open for Bruce and the E Street Band at Max’s Kansas
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/1974-1106-300x195.jpg?resize=758%2C493)
 
- 
+
 
 Bruce and the boys play their third of three nights at Arizona State University in Tempe on the Born to Run Tour.
 
@@ -74,7 +74,7 @@ Bruce plays his first-ever show in North Dakota, where “” makes its U.S. Reu
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Forum_1999_11_07_1.jpg?resize=758%2C721&amp;ssl=1)
 
-  
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Forum_1999_11_07_3.jpg?resize=758%2C612&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Forum_1999_11_21_31.jpg?resize=758%2C355&amp;ssl=1)
 

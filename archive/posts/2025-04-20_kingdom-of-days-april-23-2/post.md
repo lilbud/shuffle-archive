@@ -98,7 +98,7 @@ Still raw from the loss of Danny Federici, Bruce opens the show in Orlando with 
 
 **2008:** [Blood Brothers](http://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)[Turn! Turn! Turn!](https://estreetshuffle.com/index.php/2021/06/09/matr-bruce-springsteen-and-roger-mcguinn-turn-turn-turn/)[Mr. Tambourine Man](http://estreetshuffle.com/index.php/2019/12/28/matr-bruce-springsteen-and-roger-mcguinn-mr-tambourine-man/)*Magic Tour Highlights* [Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)[here](https://www.nugs.net/04-11-2025-archive-release-bruce-springsteen-and-the-e-street-band-amway-arena-orlando-florida-april-23-2008.html)
 
- 
+
 
 [https://www.youtube.com/embed/j9a_xcfrxqk?feature=oembed](https://www.youtube.com/embed/j9a_xcfrxqk?feature=oembed)
 

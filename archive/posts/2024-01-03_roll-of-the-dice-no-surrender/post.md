@@ -183,16 +183,16 @@ But apart from an odd arrangement on the Reunion Tour (which thankfully never su
 
 October 27, 1983
 (1984)
- June 29, 1984 (St. Paul, MN)
- September 3, 2023 (East Rutherford, NJ)
+June 29, 1984 (St. Paul, MN)
+September 3, 2023 (East Rutherford, NJ)
 
 **No Surrender**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Born in the U.S.A.*   
-**First performed:**  
-**Last performed:**
+**Released:** *Born in the U.S.A.* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

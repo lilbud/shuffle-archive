@@ -70,9 +70,9 @@ He also gave it the Seeger Sessions treatment on the *Bruce Springsteen with the
 “Bobby Jean” is simply one of those songs born perfect. Played in its original arrangement (but with less synth), it’s a powerful encore statement of eternal friendship and community that will probably never leave Bruce’s setlist for long. It’s one of the few songs that has never missed a tour since its debut.
 
 **Bobby Jean**  
-**Recorded:** January 1982-February 1984  
-**Released:** *Born in the U.S.A.* (1984), *Bruce Springsteen with the Sessions Band PBS Exclusive* (2007)  
-**First performed:** June 29, 1984 (St. Paul, MN)  
-**Last performed:** July 3, 2025 (Milan, Italy)
+**Recorded:** January 1982-February 1984<br>
+**Released:** *Born in the U.S.A.* (1984), *Bruce Springsteen with the Sessions Band PBS Exclusive* (2007)<br>
+**First performed:** June 29, 1984 (St. Paul, MN)<br>
+**Last performed:** July 3, 2025 (Milan, Italy)<br>
 
 © June 19, 2018

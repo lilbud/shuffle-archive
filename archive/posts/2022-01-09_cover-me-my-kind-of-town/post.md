@@ -33,5 +33,5 @@ Stevie performed the song on the promotional tour that followed, including this 
 *Lilyhammer* wrapped production after only three acclaimed seasons (including a great Bruce cameo in the final episode), but the *original* original Netflix series is still available to stream. If you haven't checked it out yet, now's a great time to do so.
 
 **My Kind of Town**
-**First performed:** April 29, 2013 (Oslo, Norway)
-**Last performed:** April 29, 2013 (Oslo, Norway)
+**First performed:** April 29, 2013 (Oslo, Norway)<br>
+**Last performed:** April 29, 2013 (Oslo, Norway)<br>

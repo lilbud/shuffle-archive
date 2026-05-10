@@ -23,11 +23,11 @@ Despite a few additional appearances together (most notably on Elvis’ late, la
 *Spectacle*
 
 December 8, 2001 (Asbury Park, NJ)
- December 8, 2001 (Asbury Park, NJ)
+December 8, 2001 (Asbury Park, NJ)
 
 **Alison**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © November 8, 2020

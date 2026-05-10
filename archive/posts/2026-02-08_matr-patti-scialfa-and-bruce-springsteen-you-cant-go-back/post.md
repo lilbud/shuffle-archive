@@ -19,12 +19,12 @@ And while Bruce and Patti have never performed it together in concert, we fortun
 [https://videopress.com/embed/VKJ2hyKD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VKJ2hyKD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 January 200
- (2004)
+(2004)
 
 **You Can’t Go Back**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *23rd Street Lullaby*  
+**Released:** *23rd Street Lullaby*<br>
 **Never performed**
 
 © October 16, 2021

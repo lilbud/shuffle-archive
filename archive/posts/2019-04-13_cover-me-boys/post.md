@@ -15,9 +15,9 @@ Want to compare with the original? You’ll have to look further back than The B
 [https://www.youtube.com/embed/JnIhCCVmLEs?feature=oembed](https://www.youtube.com/embed/JnIhCCVmLEs?feature=oembed)
 
 August 24, 2008 (Kansas City, MO)
- August 24, 2008 (Kansas City, MO)
+August 24, 2008 (Kansas City, MO)
 
 **Boys**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

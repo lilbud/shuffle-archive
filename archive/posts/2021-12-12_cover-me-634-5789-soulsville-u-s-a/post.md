@@ -33,7 +33,7 @@ See what I mean? Bruce has played “634-5789” twice since this article was po
 [https://www.youtube.com/embed/ldfdgTvQOsY?feature=oembed](https://www.youtube.com/embed/ldfdgTvQOsY?feature=oembed)
 
 February 14, 1973 (Richmond, VA)
- November 16, 2019 (Asbury Park, NJ)
+November 16, 2019 (Asbury Park, NJ)
 
 **634-5789 (Soulsville U.S.A.)**  
 **First played:**  

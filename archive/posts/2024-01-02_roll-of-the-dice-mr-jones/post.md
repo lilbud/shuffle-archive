@@ -23,14 +23,13 @@ Unfortunately, Father Fred was a priest, not a sound engineer, and it shows in t
 But again: it’s simply remarkable that this tape exists at all. Listen and marvel.
 
 September 30, 1967 (Freehold, NJ)
- September 30, 1967 (Freehold, NJ)
+September 30, 1967 (Freehold, NJ)
 
 **Mr. Jones**
 Never recorded or released**  
 
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

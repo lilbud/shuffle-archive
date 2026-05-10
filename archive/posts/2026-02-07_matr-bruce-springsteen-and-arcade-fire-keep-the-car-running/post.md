@@ -27,11 +27,11 @@ As it turned out, it translated pretty darn well. See for yourself: the clip bel
 Bruce would perform with Win and Régine once more, five years down the road, but that 2007 night in Ottawa remains the only time to date Bruce has played “Keep the Car Running.”
 
 October 14, 2007 (Ottawa, ON)
- October 14, 2007 (Ottawa, ON)
+October 14, 2007 (Ottawa, ON)
 
 **Keep the Car Running**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © April 1, 2020

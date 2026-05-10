@@ -29,9 +29,9 @@ That remarkable performance was the only time Bruce has ever performed “I’m 
 While Tom and Bruce had made joint appearances before as backing vocalists at all-star benefits, the recording above is the first and only time Bruce and Tom ever traded lead vocals on stage.
 
 March 1, 1990 (Inglewood, CA)
- March 1, 1990 (Inglewood, CA)
+March 1, 1990 (Inglewood, CA)
 
 **I’m Crying**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

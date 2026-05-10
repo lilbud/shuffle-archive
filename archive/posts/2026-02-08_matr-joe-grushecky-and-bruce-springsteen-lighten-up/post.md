@@ -11,11 +11,11 @@ This audio clip is the final encore from the October 20, 1995 show at Nick’s F
 *End of the Century*<http://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3>
 
 October 20, 1995 (Pittsburgh, PA)
- October 20, 1995 (Pittsburgh, PA)
+October 20, 1995 (Pittsburgh, PA)
 
 **Lighten Up**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © February 5, 2018

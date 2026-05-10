@@ -48,6 +48,6 @@ Gieco's lyrics are simple but powerful, beseeching his God for the strength to f
 It remains as important today as it was when Gieco first recorded it.
 
 **$1**
-**Recorded:** September 14, 2013
+**Recorded:** September 14, 2013<br>
 **Never released**
 **Never performed**

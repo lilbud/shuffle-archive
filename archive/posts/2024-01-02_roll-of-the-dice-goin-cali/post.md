@@ -107,14 +107,13 @@ Over the months that followed, Bruce would embrace and explore that theme more f
 But those are stories for another day.
 
 January 29, 1991
- (1998)
+(1998)
 
 **Goin’ Cali**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Tracks*  
+**Released:***Tracks* (1998)<br>
 **Never performed live**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

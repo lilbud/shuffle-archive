@@ -104,16 +104,15 @@ I’ll leave you with that masterful and nightmarish Vancouver performance, my a
 [https://videopress.com/embed/6LD966KH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6LD966KH?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 December 17, 1981 – January 3, 1982
- (1982)
- September 8, 1984 (Hartford, CT)
- November 15, 2012 (Omaha, NE)
+(1982)
+September 8, 1984 (Hartford, CT)
+November 15, 2012 (Omaha, NE)
 
 **State Trooper**  
-**Recorded:**  
-**Released:***Nebraska*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Nebraska*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

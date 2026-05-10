@@ -88,7 +88,7 @@ The song ends with our narrator arriving in Vietnam. (Ironically, when those lyr
 Obviously, “Born in the U.S.A.” still has miles to travel before it reaches its final form, but it’s important to note just how early Bruce latched on to the power of that phrase. Here, as in the final song, it serves as a statement of birthright, an indictment of the social inequality that leaves him no other choice but to enlist, and a symbol of the narrator’s alien presence in a foreign land.
 
 **Vietnam**  
-**Recorded:** Autumn 1981  
+**Recorded:** Autumn 1981<br>
 **Never released**  
 **Never performed**
 

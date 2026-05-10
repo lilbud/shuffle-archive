@@ -100,17 +100,16 @@ Watch this wonderfully filmed performance from London in 2012, pay attention to 
 https://youtu.be/C-dhZR5uTgY
 
 2011
- (2012)
+(2012)
 March 9, 2012 (New York City, NY)
 May 1, 2014 (Tampa, FL)
 
 **We Are Alive**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***Wrecking Ball*   
-**First performed:**   
-**Last performed:**
+**Released:***Wrecking Ball* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

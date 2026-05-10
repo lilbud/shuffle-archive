@@ -35,7 +35,7 @@ It's a tender reading, and it's one of my favorite moments of the 2013 tour.
 [Watch on Youtube: Bruce Springsteen - Drift away -MULTICAM HD - Hannover (28-05-2013)](https://www.youtube.com/watch?v=u9U8Le7hz5Q)
 
 **Drift Away**
-**First performed:** August 20, 1984 (East Rutherford, NJ)
-**Last performed:** May 28, 2013 (Hannover, Germany)
+**First performed:** August 20, 1984 (East Rutherford, NJ)<br>
+**Last performed:** May 28, 2013 (Hannover, Germany)<br>
 
 (c) June 14, 2019

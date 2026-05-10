@@ -90,14 +90,12 @@ It’s so potent that I almost postponed writing this article when the dice turn
 That’s some pretty great art.
 
 2011
- (2012)
+(2012)
 
 **Swallowed Up (In the Belly of the Whale)**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Wrecking Ball*  
+**Released:***Wrecking Ball*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

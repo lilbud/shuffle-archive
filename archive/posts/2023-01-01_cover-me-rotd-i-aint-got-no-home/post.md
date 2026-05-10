@@ -39,16 +39,15 @@ Here’s the most recent outing (and one of the finest) from SxSW 2012:
 Sadly, the song has been relevant since Bruce first recorded it, and it doesn’t look like that’s about to change any time soon… so chances are good we’ll hear it again.
 
 1987-1988
- (1988)
- September 23, 1988 (Oakland, CA)
- March 15, 2012 (Austin, TX)
+
+September 23, 1988 (Oakland, CA)
+March 15, 2012 (Austin, TX)
 
 **I Ain’t Got No Home**  
-**Recorded:**  
-**Released:***Folkways: A Vision Shared*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Folkways: A Vision Shared*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

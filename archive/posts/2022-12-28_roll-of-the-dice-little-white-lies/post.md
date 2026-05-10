@@ -94,10 +94,8 @@ June 1, 1979
 (2015)
 
 **Little White Lies**  
-**Recorded:**  
-**Released:** *The Ties That Bind: The River Collection*   
+**Recorded:**<br>
+**Released:** *The Ties That Bind: The River Collection* <br>
 **Never performed live**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

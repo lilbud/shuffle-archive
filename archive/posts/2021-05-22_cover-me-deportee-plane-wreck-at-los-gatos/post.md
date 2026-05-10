@@ -86,13 +86,13 @@ Recent research suggests that perhaps not all of the doomed flight’s passenger
 
 **<http://estreetshuffle.com/wp-content/uploads/2020/01/20130328_tmm_03.mp3>**
 September 29, 1996
- (2000)
- August 28, 1981 (Los Angeles, CA)
- May 13, 2021 (Colts Neck, NJ)
+(2000)
+August 28, 1981 (Los Angeles, CA)
+May 13, 2021 (Colts Neck, NJ)
 
 **Deportee (Plane Wreck at Los Gatos)**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***‘Till We Outnumber ’em*  
-**First performed:**  
-**Last performed:**
+**Released:***‘Till We Outnumber ’em*<br>
+**First performed:**<br>
+**Last performed:**<br>

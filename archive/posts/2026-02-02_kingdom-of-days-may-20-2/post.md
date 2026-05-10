@@ -4,7 +4,7 @@ The River Tour continues its almost month-long U.K. leg with a show at waterlogg
 
 **1981:**
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Evening_Sentinel_Thu__May_21__1981_-scaled.jpg?resize=758%2C533&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Derby_Evening_Telegraph_Fri__May_22__1981_.jpg?resize=758%2C789&amp;ssl=1)
 

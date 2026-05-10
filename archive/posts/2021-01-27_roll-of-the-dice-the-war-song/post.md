@@ -45,6 +45,6 @@ The last verse is a haunting one–Bruce clearly recognizes the need for those a
 **The War Song**
 **Never recorded**
 **Never released**
-**First performed:** 1968 (unconfirmed)**Last performed:** 1968 (unconfirmed)
+**First performed:** 1968 (unconfirmed)**Last performed:** 1968 (unconfirmed)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

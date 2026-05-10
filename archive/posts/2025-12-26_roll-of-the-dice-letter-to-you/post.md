@@ -139,14 +139,14 @@ Please play “Letter to You,” Bruce. Just play it solo acoustic.
 
 November 18-22, 2019
 (2020)
- December 21, 2020 (Colts Neck, NJ)
- May 14, 2025 (Manchester, England)
+December 21, 2020 (Colts Neck, NJ)
+May 14, 2025 (Manchester, England)
 
 **Letter to You**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Letter to You*   
-**First performed:**  
-**Last performed:**
+**Released:** *Letter to You* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © January 5, 2021

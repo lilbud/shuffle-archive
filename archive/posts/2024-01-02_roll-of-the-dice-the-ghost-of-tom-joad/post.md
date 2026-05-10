@@ -195,16 +195,15 @@ By now, it should be clear just how central “The Ghost of Tom Joad” has been
 
 May 23, 1995 (1st version), August 2006 (2nd version), 2009 (3rd version), March 2013 (4th version)
 1995), (2003), (2007), (2009), (2014), (2016)
- October 28, 1995 (Mountain View, CA)
- May 13, 2021 (Colts Neck, NJ)
+October 28, 1995 (Mountain View, CA)
+May 13, 2021 (Colts Neck, NJ)
 
 **The Ghost of Tom Joad**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** [(](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad* *The Essential Bruce Springsteen* *Sowing the Seeds**The People Speak* *High Hopes* *Chapter and Verse*  
-**First performed:**  
-**Last performed:**
+**Released:** [(](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad* *The Essential Bruce Springsteen* *Sowing the Seeds**The People Speak* *High Hopes* *Chapter and Verse*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

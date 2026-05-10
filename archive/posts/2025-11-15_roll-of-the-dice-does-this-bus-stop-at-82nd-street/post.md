@@ -150,15 +150,15 @@ So until we catch that bus again, here’s one more performance to enjoy–the l
 [https://www.youtube.com/embed/isGuAxRlZ-w?feature=oembed](https://www.youtube.com/embed/isGuAxRlZ-w?feature=oembed)
 
 June 27-July 12, 1972
- (1972), (demo, 1998)
- August 10, 1972 (New York City, NY)
- November 9, 2024 (Ottawa, Ontario)
+(1972), (demo, 1998)
+August 10, 1972 (New York City, NY)
+November 9, 2024 (Ottawa, Ontario)
 
 **Does This Bus Stop at 82nd Street?**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:**[](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings From Asbury Park, N.J.* *Tracks*  
-**First performed:**  
-**Last performed:**
+**Released:**[](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings From Asbury Park, N.J.* *Tracks*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © March 30, 2020

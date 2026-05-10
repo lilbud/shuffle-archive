@@ -20,12 +20,12 @@ So why the “sort of” qualification? Because even though the 1972 and 1975 ve
 
 N/A
 N/A
- July 23, 1975 (Lenox, MA)
- August 8, 1975 (Akron, OH)
+July 23, 1975 (Lenox, MA)
+August 8, 1975 (Akron, OH)
 
 **Funk Song**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:**   
-**First performed:**  
-**Last performed:**
+**Released:** <br>
+**First performed:**<br>
+**Last performed:**<br>

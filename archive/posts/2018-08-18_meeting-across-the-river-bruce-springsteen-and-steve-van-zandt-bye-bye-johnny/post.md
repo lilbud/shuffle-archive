@@ -13,5 +13,5 @@ Considering it inspired a song in his catalog, it's surprising that Bruce has on
 [Watch on Youtube: Little Steven & the Disciples of Soul w/Bruce Springsteen, Asbury Park, NJ 04/22/2017](https://www.youtube.com/watch?v=GDOEFWUmXUU?start=277)
 
 **Bye Bye Johnny**
-**First performed:** July 17, 1982 (Red Bank, NJ)
-**Last performed:** April 22, 2017 (Red Bank, NJ)
+**First performed:** July 17, 1982 (Red Bank, NJ)<br>
+**Last performed:** April 22, 2017 (Red Bank, NJ)<br>

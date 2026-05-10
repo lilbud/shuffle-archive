@@ -151,20 +151,19 @@ The first song they played as members of the Rock and Roll Hall of Fame? The onl
 
 [https://videopress.com/embed/lBlztKb7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lBlztKb7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
- 
+
 
 June-September 1973
 (1973)
- June 6, 1973 (Philadelphia, PA)
- September 1, 2023 (East Rutherford, NJ)
+June 6, 1973 (Philadelphia, PA)
+September 1, 2023 (East Rutherford, NJ)
 
 **The E Street Shuffle**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Wild, The Innocent & The E Street Shuffle*   
-**First performed:**  
-**Last performed:**
+**Released:** *The Wild, The Innocent & The E Street Shuffle* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

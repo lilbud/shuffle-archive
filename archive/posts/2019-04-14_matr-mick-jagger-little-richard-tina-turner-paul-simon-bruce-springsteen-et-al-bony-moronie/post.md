@@ -11,9 +11,9 @@ It’s a more frenetic performance than the Larry Williams performance; see belo
 [https://www.youtube.com/embed/mdmuqYCf5Ik?feature=oembed](https://www.youtube.com/embed/mdmuqYCf5Ik?feature=oembed)
 
 January 18, 1989 (New York City, NY)
- July 2, 1989 (Long Branch, NJ)
+July 2, 1989 (Long Branch, NJ)
 
 **Bony Maronie**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

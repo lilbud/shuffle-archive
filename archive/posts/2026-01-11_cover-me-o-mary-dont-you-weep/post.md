@@ -90,14 +90,14 @@ Bruce even performed it at a mini-reunion of the Sessions Band in 2015. (In actu
 
 March 19, 2005
 (2006)
- April 20, 2006 (Asbury Park, NJ)
- May 16, 2015 (New York City, NY)
+April 20, 2006 (Asbury Park, NJ)
+May 16, 2015 (New York City, NY)
 
 **O Mary Don’t You Weep**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *We Shall Overcome: The Seeger Sessions*   
-**First performed:**  
-**Last performed:**
+**Released:** *We Shall Overcome: The Seeger Sessions* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © July 15, 2022

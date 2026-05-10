@@ -34,9 +34,9 @@ That's indeed what it all boils down to: trust or distrust. Which angel does the
 Here's hoping we see an encore performance soon!
 
 **Seven Angels**
-**Recorded:** June 29, 1990
-**Released:** *Tracks* (1998)
-**First performed:** May 18, 2014 (Uncasville, CT)
-**Last performed:** May 18, 2014 (Uncasville, CT)
+**Recorded:** June 29, 1990<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** May 18, 2014 (Uncasville, CT)<br>
+**Last performed:** May 18, 2014 (Uncasville, CT)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

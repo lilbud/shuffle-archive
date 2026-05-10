@@ -40,41 +40,25 @@ If I didn’t know better, I’d peg this version of “Whitetown” as an outta
 *From a passing car she hears the music play*  
 *Beneath the El she starts to sway*
 
-
-
 *Down in Whitetown*
-
-
 
 *Johnny’s just trying to make his way*  
 *He’s got a job but mister it don’t pay*  
 *He sits and counts the scars*  
 *On a stool down the end of a Whitetown bar*
 
-
-
 *And the old men here piss their lives away*  
 *Drinking and joking about their cop-fighting days*  
 *Ain’t no answers here, just the past and fear*  
 *Of spending the rest of your days*
 
-
-
 *Down in Whitetown*
 
-So color me surprised. And delighted: Bruce turned “Whitetown” into a wonderful song that would have been a delightful addition to . It’s easily one of my favorite tracks in the box set.
-
-*Working on a Dream**River*
-
-?
- (2015)
+So color me surprised. And delighted: Bruce turned “Whitetown” into a wonderful song that would have been a delightful addition to *Working on a Dream*. It’s easily one of my favorite tracks in the *River* box set.
 
 **Whitetown**
-**Recorded:**  
-
-**Released:** *The Ties That Bind: The River Collection*  
+**Recorded:** ?<br>
+**Released:** *The Ties That Bind: The River Collection* (2015)<br>
 **Never Performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

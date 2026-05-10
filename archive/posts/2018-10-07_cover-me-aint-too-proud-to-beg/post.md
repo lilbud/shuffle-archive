@@ -19,5 +19,5 @@ But if you hoped to catch it on an actual tour, you'd have to wait all the way u
 [Watch on Youtube: Bruce Springsteen - Ain't too proud to beg (Temptations cover) HD (Thomond Park,Limerick 16.7.13)](https://www.youtube.com/watch?v=wtwIatGvFP4)
 
 **Ain't Too Proud to Beg**
-**First performed:** October 4, 1975 (Detroit, MI)
-**Last performed:** July 16, 2013 (Limerick, Ireland)
+**First performed:** October 4, 1975 (Detroit, MI)<br>
+**Last performed:** July 16, 2013 (Limerick, Ireland)<br>

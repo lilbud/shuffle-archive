@@ -44,11 +44,11 @@ The result is a much better version (IMO) of Ronnie Spector and the E Street Ban
 
 January 1977
 (April 1977)
- February 17, 1977 (Richfield, OH)
- May 13, 1977 (Red Bank, NJ)
+February 17, 1977 (Richfield, OH)
+May 13, 1977 (Red Bank, NJ)
 
 **Say Goodbye to Hollywood**  
-**Recorded:**  
-**Released:** *Say Goodbye to Hollywood (single)*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Say Goodbye to Hollywood (single)* <br>
+**First performed:**<br>
+**Last performed:**<br>

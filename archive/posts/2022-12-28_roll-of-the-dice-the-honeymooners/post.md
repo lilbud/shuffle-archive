@@ -55,11 +55,10 @@ The Honeymooners shares one other trait with “County Fair:” the crickets in 
 February 22, 1987 (1998)
 
 **The Honeymooners**
-**Recorded:**   
- **Released:**   
+**Recorded:** <br>
+**Released:** <br>
 *Tracks*  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -2,7 +2,7 @@
 
 The father comes to be near his son. He digs through the smoking steel with a small Army pick and shovel. ”Where are you, boy?” he asks. It has been the same routine for months.
 
- 
+
 
 — Charlie Leduff, “Still Digging for Lost Sons After a Million Tons of Pain,” *New York Times*, January 8, 2002
 
@@ -78,14 +78,14 @@ Regardless of the reason, it’s effective–it keeps us at a distance and then 
 *Down in the hole*
 
 2002, 2013
- (2014)
+(2014)
 
 **Down in the Hole**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***High Hopes*   
+**Released:***High Hopes* <br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

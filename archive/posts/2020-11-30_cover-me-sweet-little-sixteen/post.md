@@ -13,8 +13,8 @@ We’re also fortunate enough to have a great video of Chuck Berry performing hi
 [https://www.youtube.com/embed/ZLV4NGpoy_E?feature=oembed](https://www.youtube.com/embed/ZLV4NGpoy_E?feature=oembed)
 
 April 28, 1973 (College Park, MD)
- December 17, 1989 (Ventura, CA)
+December 17, 1989 (Ventura, CA)
 
 **Sweet Little Sixteen**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

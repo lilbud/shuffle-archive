@@ -109,16 +109,15 @@ Although certainly still considered a rarity, “Save My Love” has made a hand
 So while it may never be a staple of any tour’s setlist, I doubt it’s ever going to disappear again either. Here’s hoping for the chance to hear it again on the next tour.
 
 July 22, 2010
- (2010)
- November 4, 2010 (Pittsburgh, PA)
- September 5, 2016 (Virginia Beach, VA)
+(2010)
+November 4, 2010 (Pittsburgh, PA)
+September 5, 2016 (Virginia Beach, VA)
 
 **Save My Love**  
-**Recorded:**  
-**Released:***The Promise*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***The Promise*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

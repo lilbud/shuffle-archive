@@ -109,16 +109,15 @@ It’s a beautiful performance, but it doesn’t quite measure up to the album t
 [https://www.youtube.com/embed/Pctwuj8s2l0?feature=oembed](https://www.youtube.com/embed/Pctwuj8s2l0?feature=oembed)
 
 Unknown (2019)
- April 2019 (Colts Neck, NJ)
- April 2019 (Colts Neck, NJ)
+April 2019 (Colts Neck, NJ)
+April 2019 (Colts Neck, NJ)
 
 **Tucson Train**
-**Recorded:**   
- **Released:**  
+**Recorded:** <br>
+**Released:**<br>
 *Western Stars*   
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

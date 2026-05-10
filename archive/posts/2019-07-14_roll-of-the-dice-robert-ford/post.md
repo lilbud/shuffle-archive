@@ -69,7 +69,7 @@ Fascinatingly, even though we know "Robert Ford" never made it to *Nebraska*, su
 [Watch on Youtube: Bruce Springsteen Jesse James #2 harmonies](https://www.youtube.com/watch?v=-0wiyoQIBYg)
 
 **Robert Ford**
-**Recorded:** September 1981 – April 1982
+**Recorded:** September 1981 – April 1982<br>
 **Never released**
 **Never performed**
 

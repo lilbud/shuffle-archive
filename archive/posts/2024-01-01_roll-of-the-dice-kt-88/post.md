@@ -9,13 +9,11 @@ Here’s one of the band’s final performances, from the summer of 1970.
 <https://estreetshuffle.com/wp-content/uploads/2018/03/03-KT-88.mp3>
 
 September 20, 1969 (Richmond, VA)
- August 14, 1970 (Richmond, VA)
+August 14, 1970 (Richmond, VA)
 
 **KT-88**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

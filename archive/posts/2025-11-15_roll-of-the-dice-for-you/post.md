@@ -127,7 +127,7 @@ Because “For You” isn’t a love story. It’s not even a story at all. It�
 
 It’s not a song that resonates with everyone. But if you’ve been there, it resonates deeply.
 
- 
+
 
 ---
 
@@ -152,15 +152,15 @@ That misstep aside, “For You” is one of Bruce’s oldest fan-favorites, and 
 
 June 27 – October 28, 1972
 (1973)
- February 14, 1972 (New York City, NY)
- September 5, 2016 (Virginia Beach, VA)
+February 14, 1972 (New York City, NY)
+September 5, 2016 (Virginia Beach, VA)
 
 **For You**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** [](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.*   
-**First performed:**  
-**Last performed:**
+**Released:** [](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © January 8, 2022
 Photo credit: Barry Schneier

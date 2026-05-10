@@ -9,5 +9,5 @@ The Castiles' take is faster, more percussive and guitar-forward, but it's an ot
 [Watch on Youtube: Leonard Cohen - Suzanne (Audio)](https://www.youtube.com/watch?v=svitEEpI07E)
 
 **Suzanne**
-**First performed:** September 16, 1967 (Freehold, NJ)
-**Last performed:** September 16, 1967 (Freehold, NJ)
+**First performed:** September 16, 1967 (Freehold, NJ)<br>
+**Last performed:** September 16, 1967 (Freehold, NJ)<br>

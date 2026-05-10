@@ -69,17 +69,15 @@ In concert, “Better Days” was a staple of the 1992 and 1993 tours, but it’
 [https://videopress.com/embed/OBaFOsgK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/OBaFOsgK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 1991-1992
- (1992), (1995), (2003)
- May 6, 1992 (New York City, NY)
- February 14, 2017 (Brisbane, Australia)
+(1992), (1995), (2003)
+May 6, 1992 (New York City, NY)
+February 14, 2017 (Brisbane, Australia)
 
 **Better Days**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***Lucky Town**Greatest Hits**The Essential Bruce Springsteen*   
-**First performed:**  
-**Last performed:**
+**Released:***Lucky Town**Greatest Hits**The Essential Bruce Springsteen* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

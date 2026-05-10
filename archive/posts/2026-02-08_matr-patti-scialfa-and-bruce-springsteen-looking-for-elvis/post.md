@@ -46,15 +46,15 @@ And that live performance is very worth watching–it’s even stronger than the
 [https://videopress.com/embed/l9Jujnvp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/l9Jujnvp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 Unknown
- (2007)
- August 2007 (exact date unknown)
- August 2007 (exact date unknown)
+(2007)
+August 2007 (exact date unknown)
+August 2007 (exact date unknown)
 
 **Play It As It Lays**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***Play It As It Lays*   
-**First performed:**  
-**Last performed:**
+**Released:***Play It As It Lays* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © June 6, 2021

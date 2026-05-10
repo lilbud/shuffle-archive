@@ -54,9 +54,9 @@ During the key bridge, Bruce catches the camera and his gaze meets ours just as 
 [Watch on Youtube: Somewhere North of Nashville - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=QFYy08tkdIk)
 
 **Somewhere North of Nashville**
-**Recorded:** Unknown
-**Released:** *Western Stars* (2019)
-**First performed:** April 2019 (Colts Neck, NJ)
-**Last performed:** April 2019 (Colts Neck, NJ)
+**Recorded:** Unknown<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

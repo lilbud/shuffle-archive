@@ -40,9 +40,9 @@ Perhaps that’s reading too much into it. Regardless, both the studio and 2011 
 [https://www.youtube.com/embed/ucy_O9lXdh8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/ucy_O9lXdh8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Broken Radio**  
-**Recorded:** August 2006 (audio), April 18, 2007 (video)  
-**Released:** *Glitter in the Gutter* (2007)  
-**First performed:** January 16, 2010 (Asbury Park, NJ)  
-**Last performed:** January 18, 2025 (Red Bank, NJ)
+**Recorded:** August 2006 (audio), April 18, 2007 (video)<br>
+**Released:** *Glitter in the Gutter* (2007)<br>
+**First performed:** January 16, 2010 (Asbury Park, NJ)<br>
+**Last performed:** January 18, 2025 (Red Bank, NJ)<br>
 
 © August 17, 2019

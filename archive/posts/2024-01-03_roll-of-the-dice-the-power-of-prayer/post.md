@@ -94,17 +94,17 @@ Bruce finally debuted “The Power of Prayer” at Stand Up For Heroes last Nove
 [https://www.youtube.com/embed/otO5hkhocZE?feature=oembed](https://www.youtube.com/embed/otO5hkhocZE?feature=oembed)
 
 November 2019
- (2020)
+(2020)
 November 6, 2023(New York City, NY)
- November 6, 2023 (New York City, NY)
+November 6, 2023 (New York City, NY)
 
 **The Power of Prayer**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Letter to You*   
-**First performed:**   
-**Last performed:**
+**Released:***Letter to You* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

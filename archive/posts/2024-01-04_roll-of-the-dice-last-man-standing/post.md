@@ -171,17 +171,17 @@ With World Tour 2023 behind us, we now know that of course â€œLast Man Standingâ
 [https://www.youtube.com/embed/loLoscZVRzI?feature=oembed](https://www.youtube.com/embed/loLoscZVRzI?feature=oembed)
 
 November 18-22, 2019
- (2020)
- October 27, 2020 (Colts Neck, NJ)
- September 3, 2023 (East Rutherford, NJ)
+(2020)
+October 27, 2020 (Colts Neck, NJ)
+September 3, 2023 (East Rutherford, NJ)
 
 **Last Man Standing**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Letter to You*   
-**First performed:**  
-**Last performed:**
+**Released:***Letter to You* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -49,11 +49,11 @@ It’s years later, and the son hints that his father may not be around any more
 
 Each episode of the Daddy Trilogy builds in power and culminates in a killer couplet. Traced across time, they form an arc that we all play out with our parents and our children.
 
- 
+
 
 **Adam Raised a Cain:***Daddy worked his whole life for nothing but the pain; Now he walks these empty rooms looking for something to blame.*
 
- 
+
 
 **Independence Day:***Papa, now I know the things you wanted that you could not say; I swear I never meant to take those things away.*
 
@@ -84,14 +84,14 @@ In a brilliant stroke, Bruce switches mid-song from the electric to acoustic pia
 [https://www.youtube.com/embed/LwNPvRvFhKg?feature=oembed](https://www.youtube.com/embed/LwNPvRvFhKg?feature=oembed)
 
 January 20, 1987
- (1987)
- February 25, 1987 (Worcester, MA)
- August 1, 2005 (Cincinnati, OH)
+(1987)
+February 25, 1987 (Worcester, MA)
+August 1, 2005 (Cincinnati, OH)
 
 **Walk Like a Man**  
-**Recorded:**  
-**Released:**[](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:**[](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) July 21, 2018

@@ -39,14 +39,13 @@ But in the end, everyone knew that Bruce would bring it back around to acknowled
 It was a touching way for Bruce to honor the man who’d brought him (and so many other Yankees fans) joy and pride.
 
 November 7, 2007
- November 7, 2007
+November 7, 2007
 
 **Yankees Win**  
 **Never recorded**  
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

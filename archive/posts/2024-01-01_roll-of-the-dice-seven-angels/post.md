@@ -39,16 +39,15 @@ That’s indeed what it all boils down to: trust or distrust. Which angel does t
 Here’s hoping we see an encore performance soon!
 
 June 29, 1990
- (1998)
- May 18, 2014 (Uncasville, CT)
- May 18, 2014 (Uncasville, CT)
+(1998)
+May 18, 2014 (Uncasville, CT)
+May 18, 2014 (Uncasville, CT)
 
 **Seven Angels**  
-**Recorded:**  
-**Released:** *Tracks*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Tracks*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

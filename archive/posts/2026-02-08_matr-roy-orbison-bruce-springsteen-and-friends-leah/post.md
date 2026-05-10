@@ -17,11 +17,11 @@ Enjoy this gorgeous one-time-only assemblage of talent performing “Leah” at 
 [https://www.youtube.com/embed/ZusfsE4F5SE?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/ZusfsE4F5SE?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 September 30, 1987 (Los Angeles, CA)
- September 30, 1987 (Los Angeles, CA)
+September 30, 1987 (Los Angeles, CA)
 
 **Leah**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © April 8, 2019

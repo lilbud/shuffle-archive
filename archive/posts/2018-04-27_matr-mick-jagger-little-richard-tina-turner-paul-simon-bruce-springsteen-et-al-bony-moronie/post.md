@@ -9,5 +9,5 @@ It's a more frenetic performance than the Larry Williams performance; see below 
 [Watch on Youtube: Larry Williams - Bony Maronie](https://www.youtube.com/watch?v=mdmuqYCf5Ik)
 
 **Bony Maronie**
-**First performed:** January 18, 1989 (New York City, NY)
-**Last performed:** July 2, 1989 (Long Branch, NJ)
+**First performed:** January 18, 1989 (New York City, NY)<br>
+**Last performed:** July 2, 1989 (Long Branch, NJ)<br>

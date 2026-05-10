@@ -42,18 +42,10 @@ Yeah, this is one rarity I don’t need to hear in concert.
 
 Just rolled the dice again and got something from the HT/LT era that’s much easier to work with. Look for it soon.
 
-N/A
- N/A
-April 18, 1970 (Toms River, NJ)
- June 13, 1970 (Bricktown, NJ)
-
 **Black Sun Rising**
-**Recorded:**   
+**Recorded:** N/A<br>
+**Released:** N/A<br>
+**First Performed:** April 18, 1970 (Toms River, NJ)<br>
+**Last Performed:** June 13, 1970 (Bricktown, NJ)<br>
 
-**Released:**  
-**First Performed:**   
-**Last Performed:**
-
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

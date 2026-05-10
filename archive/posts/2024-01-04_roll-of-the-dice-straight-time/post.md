@@ -106,17 +106,17 @@ Since the conclusion of the Joad Tour, “Straight Time” has made only a singl
 Bruce hasn’t played “Straight Time” in public since, and perhaps that’s for the best. It’s a gem of a song, but one that shines best in its original setting.
 
 April-June 1995
- (1995)
- November 21, 1995 (New Brunswick, NJ)
- June 22, 2005 (Copenhagen, Denmark)
+(1995)
+November 21, 1995 (New Brunswick, NJ)
+June 22, 2005 (Copenhagen, Denmark)
 
 **Straight Time**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***The Ghost of Tom Joad*   
-**First performed:**  
-**Last performed:**
+**Released:***The Ghost of Tom Joad* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

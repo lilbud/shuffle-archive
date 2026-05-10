@@ -153,17 +153,17 @@ As for the incident that inspired the song, over the next six months anti-nuclea
 Bruce headlined two of those concerts, but despite his continued concern for the cause, the new song that signaled his support didn’t make its debut that night. It would still be a few years before Bruce would seem comfortable performing such topical material. That time was coming, though, and it would mark an inflection point in his career.
 
 April 1979
- (B-side, 1988),(1998), (2015)
- February 25, 1988 (Worcester, MA)
- July 5, 2016 (Milan, Italy)
+(B-side, 1988),(1998), (2015)
+February 25, 1988 (Worcester, MA)
+July 5, 2016 (Milan, Italy)
 
 **Roulette**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***One Step Up* *Tracks* *The River: Outtakes*  
-**First performed:**  
-**Last performed:**
+**Released:***One Step Up* *Tracks* *The River: Outtakes*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

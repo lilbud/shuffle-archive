@@ -106,16 +106,15 @@ It’s too great a song to remain missing forever, though. “The Wrestler” fi
 
 2008
 (2009), (2015)
- March 23, 2009 (Asbury Park, NJ)
- June 4, 2009 (Stockholm, Sweden)
+March 23, 2009 (Asbury Park, NJ)
+June 4, 2009 (Stockholm, Sweden)
 
 **The Wrestler**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Working on a Dream* *The Essential Bruce Springsteen*   
-**First performed:**  
-**Last performed:**
+**Released:** *Working on a Dream* *The Essential Bruce Springsteen* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

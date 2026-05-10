@@ -29,9 +29,9 @@ If anything, Sam’s voice and charisma were even stronger that night than in th
 Today, Sam Moore is 83 years old, still recording music, still performing live, still sounding great, and still commanding the stage. Consider yourself lucky if you’ve had the chance to see him, and leap at the opportunity if one comes along.
 
 August 10, 1996 (Whitefish, MT)
- March 9, 2012 (New York City, NY)
+March 9, 2012 (New York City, NY)
 
 **Hold On, I’m Comin’**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

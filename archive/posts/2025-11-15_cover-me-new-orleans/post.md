@@ -23,11 +23,11 @@ Even if it was a local pander, it was still an inspired choice. Check out the au
 Bruce went on to cover “New Orleans” four more times over the years, all at small clubs. It’s been thirty years since the last time he played it, but a well-placed sign on the next tour could change that in a heartbeat.
 
 May 13, 1976 (New Orleans, LA)
- August 16, 1989 (Long Branch, NJ)
+August 16, 1989 (Long Branch, NJ)
 
 **New Orleans**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) July 31, 2019

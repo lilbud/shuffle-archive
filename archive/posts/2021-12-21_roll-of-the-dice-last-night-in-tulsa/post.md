@@ -67,13 +67,13 @@ See what I mean? “Last Night in Tulsa” is pleasant enough, and I suspect tha
 But it’s not likely to make any fan’s favorite list, and even if Bruce seems to be rediscovering his pre-label music of late, I wouldn’t count on Bruce acknowledging “Last Night in Tulsa” any time soon (if ever).
 
 July 10, 1971 (Lincroft, NJ)
- July 29, 1971 (South Amboy, NJ)
+July 29, 1971 (South Amboy, NJ)
 
 **Last Night in Tulsa**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

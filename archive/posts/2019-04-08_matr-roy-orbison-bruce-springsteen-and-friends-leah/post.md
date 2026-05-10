@@ -13,5 +13,5 @@ Enjoy this gorgeous one-time-only assemblage of talent performing "Leah" at the 
 [Watch on Youtube: Roy Orbison - "Leah" from Black and White Night](https://www.youtube.com/watch?v=_mG_sSxVdfU)
 
 **Leah**
-**First performed:** September 30, 1987 (Los Angeles, CA)
-**Last performed:** September 30, 1987 (Los Angeles, CA)
+**First performed:** September 30, 1987 (Los Angeles, CA)<br>
+**Last performed:** September 30, 1987 (Los Angeles, CA)<br>

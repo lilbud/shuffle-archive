@@ -25,7 +25,7 @@ But the band's smokingest performance of "Little Queenie" was its last (to date,
 Bruce has played "Little Queenie" at least once a decade since the 1970s, so it's due for a return... just as soon as Bruce gets back on the road.
 
 **Little Queenie**
-**First performed:** September 1, 1971 (Long Branch, NJ)
-**Last performed:** August 23, 2008 (St. Louis, MO)
+**First performed:** September 1, 1971 (Long Branch, NJ)<br>
+**Last performed:** August 23, 2008 (St. Louis, MO)<br>
 
 (c) December 11, 2018

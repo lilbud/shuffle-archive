@@ -92,9 +92,9 @@ I'll leave you with a terrific video of that performance of "Don't Look Back" �
 [Watch Video Highlight](https://videopress.com/embed/L5e9SzQt)
 
 **Don't Look Back**
-**Recorded:** July 2, 1977 – March 2, 1978
-**Released:** *Tracks* (1998)
-**First performed:** March 10, 1977 (Toledo, OH)
-**Last performed:** May 18, 2014 (Uncasville, CT)
+**Recorded:** July 2, 1977 – March 2, 1978<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** March 10, 1977 (Toledo, OH)<br>
+**Last performed:** May 18, 2014 (Uncasville, CT)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

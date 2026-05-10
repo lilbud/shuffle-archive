@@ -25,6 +25,6 @@ That rehearsal performance remains the only time Bruce is known to have covered 
 May 19, 1978 (Asbury Park, NJ)
 May 19, 1978 (Asbury Park, NJ)
 
-**King Tut** **First performed:**  
+**King Tut** **First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

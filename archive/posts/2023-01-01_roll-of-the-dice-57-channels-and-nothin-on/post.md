@@ -147,17 +147,15 @@ Bruce’s next tour was his Reunion Tour with the E Street Band, but by then the
 TV was now a part of life rather than apart from it, and Bruce would shortly have more pressing concerns to write about.
 
 Early December 1990
- (1992)
- November 16, 1990 (Los Angeles, CA)
- June 26, 1993 (New York City, NY)
+(1992)
+November 16, 1990 (Los Angeles, CA)
+June 26, 1993 (New York City, NY)
 
 **57 Channels (And Nothin’ On)**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***Human Touch*   
-**First performed:**  
-**Last performed:**
+**Released:***Human Touch* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

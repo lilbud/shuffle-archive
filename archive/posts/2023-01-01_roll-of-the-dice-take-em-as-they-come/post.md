@@ -124,16 +124,14 @@ For years before the release of , a bootleg version of “Take ’em as They Com
 **Bonus:** *Tracks*<https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3>
 
 December 5, 1979 (backing track), April 10, 1980 (vocals)
- (1998)
- June 15, 1999 (Offenbach, Germany)
- July 14, 2012 (London, England)
+(1998)
+June 15, 1999 (Offenbach, Germany)
+July 14, 2012 (London, England)
 
 **Take ’em as They Come**  
-**Recorded:**  
-**Released:** *Tracks*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Tracks*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -17,10 +17,10 @@ And as always, here’s the original for comparison.
 [https://www.youtube.com/embed/tRVkS6Owp9Q?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/tRVkS6Owp9Q?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 July 22, 1976 (Los Angeles, CA)
- December 14, 2025 (Asbury Park, NJ)
+December 14, 2025 (Asbury Park, NJ)
 
 **I Don’t Want to Go Home**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © March 30, 2018

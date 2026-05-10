@@ -129,9 +129,9 @@ Even with a crowd of perfect-pitch singers, the modern E Street Band is too tigh
 And really, who can blame them? It's guaranteed fun at the very least, and a reminder of the band's long and storied history. "Thundercrack" may rightfully belong to the original E Street Band, but it's influence can be felt on Bruce's stage to this day.
 
 **Thundercrack**
-**Recorded:** 1973-1974, 1997
-**Released:** *Tracks* (1998)
-**First performed:** October 29, 1972 (Long Branch, NJ)
-**Last performed:** September 7, 2016 (Philadelphia, PA)
+**Recorded:** 1973-1974, 1997<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** October 29, 1972 (Long Branch, NJ)<br>
+**Last performed:** September 7, 2016 (Philadelphia, PA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -117,16 +117,15 @@ One more–this one solo, but remarkable for how heartfelt it is, and for how yo
 
 1980
 
- October 6, 1980 (Richfield, OH)
- September 3, 2023 (East Rutherford, NJ)
+October 6, 1980 (Richfield, OH)
+September 3, 2023 (East Rutherford, NJ)
 
 **Two Hearts**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *The River (1980), Live in New York City (2001)*  
-**First performed:**  
-**Last performed:**
+**Released:** *The River (1980), Live in New York City (2001)*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -59,14 +59,14 @@ By now, I should know not to make absolute statements–after all, “If I Was t
 
 May-June 1972
 
- February 5, 1972 (Richmond, VA)
- February 17, 1972 (Freehold, NJ)
+February 5, 1972 (Richmond, VA)
+February 17, 1972 (Freehold, NJ)
 
 **Southern Sun**
-**Recorded:**  
+**Recorded:**<br>
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © September 7, 2021

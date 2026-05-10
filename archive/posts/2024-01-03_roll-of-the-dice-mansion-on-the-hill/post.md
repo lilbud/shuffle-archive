@@ -2,7 +2,7 @@
 
 “This is a song about when I was a kid. My father was always transfixed… he used to drive me outside of town, there was this nice white house, used to sit up on this hill. Later on, when I thought back on it… as I got older, [the house] took on a lot of meaning for me. It became very mystical, like a touchstone.
 
- 
+
 
 Now when I dream, sometimes I’m outside the gates looking in, and sometimes I’m the man inside.” — *Bruce Springsteen, June 29, 1984*
 
@@ -135,16 +135,16 @@ And as for the original Mansion on the Hill, it still stands in its original loc
 
 December 1981-January 1982
 (1982)
- June 29, 1984 (St. Paul, MN)
- February 7, 2016 (Hollywood, FL)
+June 29, 1984 (St. Paul, MN)
+February 7, 2016 (Hollywood, FL)
 
 **Mansion on the Hill**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Nebraska*   
-**First performed:**  
-**Last performed:**
+**Released:** *Nebraska* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

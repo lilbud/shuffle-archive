@@ -162,9 +162,9 @@ But despite a handful of terrific E Street Band concert performances, it's at th
 [Watch Video Highlight](https://videopress.com/embed/bL4Mc0Lt)
 
 **Pink Cadillac**
-**Recorded:** May 31, 1983 – original, November 2003 – Jerry Lee Lewis cover
-**Released:** *Dancing in the Dark* (1984)*, Tracks* (1998), *18 Tracks* (1999) – original, *Last Man Standing* (2006) – Jerry Lee Lewis cover
-**First performed:** July 1, 1984 (St. Paul, MN)
-**Last performed:** December 13, 2021 (New York City, NY)
+**Recorded:** May 31, 1983 – original, November 2003 – Jerry Lee Lewis cover<br>
+**Released:** *Dancing in the Dark* (1984)*, Tracks* (1998), *18 Tracks* (1999) – original, *Last Man Standing* (2006) – Jerry Lee Lewis cover<br>
+**First performed:** July 1, 1984 (St. Paul, MN)<br>
+**Last performed:** December 13, 2021 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

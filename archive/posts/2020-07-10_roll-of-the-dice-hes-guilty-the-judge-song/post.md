@@ -65,9 +65,9 @@ In 2005, however, original Steel Mill (and E Street Band) drummer Vini Lopez for
 https://www.youtube.com/watch?v=ElFaxyfclRc
 
 **He's Guilty (The Judge Song)**
-**Recorded:** February 22, 1970
-**Released:** *Chapter and Verse* (2016)
-**First performed:** January 13, 1970 (San Francisco, CA)
-**Last performed:** January 23, 1971 (Asbury Park, NJ)
+**Recorded:** February 22, 1970<br>
+**Released:** *Chapter and Verse* (2016)<br>
+**First performed:** January 13, 1970 (San Francisco, CA)<br>
+**Last performed:** January 23, 1971 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

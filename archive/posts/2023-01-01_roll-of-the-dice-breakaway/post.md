@@ -106,14 +106,13 @@ If there’s a message to be found at all in “Breakaway,” it’s that no mat
 And if you turn to the wrong cure, you may find it more final than the disease.
 
 June 1, 1977 (core track)
- (2010)
+(2010)
 
 **Breakaway**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Promise*  
+**Released:** *The Promise*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

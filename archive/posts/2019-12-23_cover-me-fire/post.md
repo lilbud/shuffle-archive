@@ -15,5 +15,5 @@ As for the Hendrix original, the funk and soul song was released on *Are You Exp
 [https://estreetshuffle.com/wp-content/uploads/2019/12/Jimi-Hendrix-Let-Me-Light-Your-Fire.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2019/12/Jimi-Hendrix-Let-Me-Light-Your-Fire.mp3?_=3)
 
 **Fire**
-**First performed:** September 16, 1967 (Freehold, NJ)
-**Last performed:** September 16, 1967 (Freehold, NJ)
+**First performed:** September 16, 1967 (Freehold, NJ)<br>
+**Last performed:** September 16, 1967 (Freehold, NJ)<br>

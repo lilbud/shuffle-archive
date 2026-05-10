@@ -18,7 +18,7 @@ Perhaps that’s for the best, because The Temptations’ original 1970 recordin
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dQHUAJTZqF0)
 
- 
+
 
 Starr was a relative unknown at the time, which is exactly what Motown was looking for. Starr gave them a way to release the song under the radar, and if the song kicked up controversy, at least it couldn’t threaten a revenue stream from an artist who lacked one altogether.
 
@@ -50,9 +50,9 @@ Springsteen played the song for the last time that year on March 26th in Brisban
 
 Followed by its classic hard segue into “Born in the U.S.A.”, Starr’s sadly still relevant hit continues to open every show as of this writing.
 
-**War****Recorded:** September 30, 1985  
-**Released:** *Live 1975-85* (1986)  
-**First performed:** September 27, 1985 (Los Angeles, CA)  
-**Last performed:** April 23, 2003 (Sunrise, FL)
+**War****Recorded:** September 30, 1985<br>
+**Released:** *Live 1975-85* (1986)<br>
+**First performed:** September 27, 1985 (Los Angeles, CA)<br>
+**Last performed:** April 23, 2003 (Sunrise, FL)<br>
 
 © May 27, 2019 / April 25, 2026

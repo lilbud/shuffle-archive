@@ -135,9 +135,9 @@ Bruce has been off the road ever since, but I have to imagine that if the rumore
 We certainly need the reminder.
 
 **American Land**
-**Recorded:** ?  
-**Released:** *We Shall Overcome: The Seeger Sessions: American Land Edition* (2006);*Wrecking Ball* (2011)  
-**First performed:** June 22, 2006 (New York City, NY)  
-**Last performed:** May 29, 2020 (Boston, MA)
+**Recorded:** ?<br>
+**Released:** *We Shall Overcome: The Seeger Sessions: American Land Edition* (2006);*Wrecking Ball* (2011)<br>
+**First performed:** June 22, 2006 (New York City, NY)<br>
+**Last performed:** May 29, 2020 (Boston, MA)<br>
 
 © January 10, 2020

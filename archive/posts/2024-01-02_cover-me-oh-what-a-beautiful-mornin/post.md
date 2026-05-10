@@ -27,9 +27,9 @@ In 1998, Bruce was still very much performing in his Tom Joad style, and it’s 
 Bruce pulls it off with sincerity and aplomb; nevertheless, it’s likely to remain a genuine one-off.
 
 April 4, 1998 (Sag Harbor, NY)
- April 4, 1998 (Sag Harbor, NY)
+April 4, 1998 (Sag Harbor, NY)
 
 **Oh, What a Beautiful Mornin’**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

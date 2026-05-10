@@ -1,6 +1,6 @@
 
 
- *No updates***New for 2025:**
+*No updates***New for 2025:**
 
 The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 

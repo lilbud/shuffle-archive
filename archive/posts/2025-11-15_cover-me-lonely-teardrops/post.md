@@ -23,11 +23,11 @@ The second of those two performances (with Jon Landau joining the band on guitar
 Bruce took full advantage of the band’s horn section in a bright arrangement that’s perhaps just a bit too slow and at least a minute too long to rank among his best covers (they came at the end of long shows, after all). Still, it’s a faithful and respectful performance of one of rock’s more important songs, deserving of its official release.
 
 May 22, 1988 (New York City, NY)
- July 10, 1988 (Sheffield, England)
+July 10, 1988 (Sheffield, England)
 
 **Lonely Teardrops**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) January 22, 2021

@@ -81,9 +81,9 @@ Happy Thanksgiving.
 [Watch on Youtube: September 11, 2021](https://www.youtube.com/watch?v=xJum7B1KnkA)
 
 **I'll See You in My Dreams**
-**Recorded:** November 2019
-**Released:** *Letter to You* (2020)
-**First performed:** November 18, 2020 (Colts Neck, NJ)
-**Last performed:** September 11, 2021 (New York City, NY)
+**Recorded:** November 2019<br>
+**Released:** *Letter to You* (2020)<br>
+**First performed:** November 18, 2020 (Colts Neck, NJ)<br>
+**Last performed:** September 11, 2021 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

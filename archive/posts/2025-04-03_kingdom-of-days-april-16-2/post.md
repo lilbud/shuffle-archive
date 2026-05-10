@@ -88,7 +88,7 @@ Albany’s Wrecking Ball show includes a rare, solo acoustic “” played by re
 
 [https://videopress.com/embed/c0DmZePn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/c0DmZePn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G1-scaled.jpg?resize=758%2C1666&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/Poughkeepsie_Journal_2012_04_29_Page_G3.jpg?resize=758%2C1228&amp;ssl=1)
 

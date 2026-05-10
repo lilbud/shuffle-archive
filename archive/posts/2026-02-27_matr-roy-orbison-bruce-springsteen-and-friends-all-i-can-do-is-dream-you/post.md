@@ -21,7 +21,7 @@ Unfortunately, Bruce wasn’t center stage for this song, though–to spot him, 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4uBj5TwUsq0)
 
 **(All I Can Do Is) Dream You**
-**First performed:** September 30, 1987 (Los Angeles, CA)  
-**Last performed:** September 30, 1987 (Los Angeles, CA)
+**First performed:** September 30, 1987 (Los Angeles, CA)<br>
+**Last performed:** September 30, 1987 (Los Angeles, CA)<br>
 
 © April 3, 2021

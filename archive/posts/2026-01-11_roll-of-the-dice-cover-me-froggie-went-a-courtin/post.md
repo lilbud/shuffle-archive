@@ -37,15 +37,15 @@ He did play it a half-dozen times in 2006, though, and one of those (in Santande
 [https://www.youtube.com/embed/Q2SEQyn7-FU?feature=oembed](https://www.youtube.com/embed/Q2SEQyn7-FU?feature=oembed)
 
 March 19, 2005
- (2006)
- May 31, 2006 (Noblesville, IN)
- November 14, 2006 (Sheffield, England)
+(2006)
+May 31, 2006 (Noblesville, IN)
+November 14, 2006 (Sheffield, England)
 
 **Froggie Went A-Courtin’**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *We Shall Overcome: The Seeger Sessions*  
-**First performed:**  
-**Last performed:**
+**Released:** *We Shall Overcome: The Seeger Sessions*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © January 26, 2021

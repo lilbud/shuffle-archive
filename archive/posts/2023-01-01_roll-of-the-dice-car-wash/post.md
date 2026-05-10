@@ -72,16 +72,15 @@ Let’s hope for it on the next E Street Band tour!
 
 May 31, 1983
 (1998)
- June 13, 1999 (Leipzig, Germany)
- June 13, 1999 (Leipzig, Germany)
+June 13, 1999 (Leipzig, Germany)
+June 13, 1999 (Leipzig, Germany)
 
 **Car Wash**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tracks*   
-**First performed:**  
-**Last performed:**
+**Released:** *Tracks* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

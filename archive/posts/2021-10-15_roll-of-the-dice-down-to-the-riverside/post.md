@@ -115,7 +115,7 @@ For me, at least, it was worth the wait.
 **Down to the Riverside**
 Never recorded**
 **Never released**
-**First performed:** February 5, 1972 (Richmond, VA)
-**Last performed:** April 1972 (Freehold, NJ)
+**First performed:** February 5, 1972 (Richmond, VA)<br>
+**Last performed:** April 1972 (Freehold, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

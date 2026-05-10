@@ -35,8 +35,8 @@ Bruce and Joe would reprise it many times over the years that followed–althoug
 [https://www.youtube.com/embed/5TrjyioI4IQ?feature=oembed](https://www.youtube.com/embed/5TrjyioI4IQ?feature=oembed)
 
 July 22, 1995 (Sea Bright, NJ)
- January 18, 2020 (Asbury Park, NJ)
+January 18, 2020 (Asbury Park, NJ)
 
 **Pumping Iron**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

@@ -27,9 +27,9 @@ Bruce and U2 performed two songs together: “” which they’d played together
 This time the band’s performance of “Streets” went off without a hint of disruption, and the crowd-pleasing performance proved to be the highlight of an event full of them.
 
 December 1, 2014 (New York City, NY)
- December 1, 2014 (New York City, NY)
+December 1, 2014 (New York City, NY)
 
 **Where the Streets Have No Name**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -15,8 +15,8 @@ Take a listen to one of my favorite under-the-radar covers:
 Bruce teased fans with “You Sexy Thing” snippets more than a dozen times in the decade that followed, but these two special nights remain the only two times Bruce has ever played it in full.
 
 December 7, 2001 (Asbury Park, NJ)
- December 8, 2001 (Asbury Park, NJ)
+December 8, 2001 (Asbury Park, NJ)
 
 **You Sexy Thing**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

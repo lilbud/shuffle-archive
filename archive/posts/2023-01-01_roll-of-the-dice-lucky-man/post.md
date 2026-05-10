@@ -104,14 +104,13 @@ Perhaps he’ll spend the rest of his life alone, or maybe the one he’d settle
 Especially at that moment, Bruce probably very much needed to believe that.
 
 April 4, 1987
- (single B-side, 1987), (1998)
+(single B-side, 1987), (1998)
 
 **Lucky Man**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Brilliant Disguise* *Tracks*  
+**Released:***Brilliant Disguise* *Tracks*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

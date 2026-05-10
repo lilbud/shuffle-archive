@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**After I chronicled the events of August 20th in Springsteen history a year ago, Attorney and Jersey Shore Music Scene Aficionado, Terry Camp reached out to me to provide a LOT of first-hand additional detail about the events of (and leading up to) that unexpectedly amazing night of August 20, 1994).*
 

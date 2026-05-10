@@ -212,13 +212,13 @@ Here’s Bruce’s very first live performance of “My Hometown,” a rarely he
 
 June 29, 1983
 (1984), (1995), (2025)
- June 8, 1984 (Asbury Park, NJ)
- July 11, 2023 (Copenhagen, Denmark)
+June 8, 1984 (Asbury Park, NJ)
+July 11, 2023 (Copenhagen, Denmark)
 
 **My Hometown**  
-**Recorded:**  
-**Released:** *Born in the U.S.A.* *Greatest Hits**L.A. Garage Sessions ’83*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Born in the U.S.A.* *Greatest Hits**L.A. Garage Sessions ’83* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © April 9, 2020 / December 21, 2025

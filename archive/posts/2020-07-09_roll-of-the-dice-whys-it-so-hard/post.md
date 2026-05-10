@@ -56,15 +56,14 @@ If “Why’s It So Hard” is notable for any other reason, it’s because it�
 [She’s Leaving](http://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/)
 
 January 21, 1972 (Neptune, NJ)
- January 21, 1972 (Neptune, NJ)
+January 21, 1972 (Neptune, NJ)
 
 **Why’s It So Hard?**
 Never Recorded**  
 
 **Never Released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

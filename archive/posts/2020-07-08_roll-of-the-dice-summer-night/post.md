@@ -7,7 +7,7 @@ There's a narrator singing to his love interest, but all we learn about her is t
 "Summer Night" is clearly an ode to, well, summer, but at least based on this recording (which is the only record we have) it doesn't sound like Bruce ever made it past the stage-setting.
 
 **Summer Night**
-**Recorded:** March-April 1982 (demo only)
+**Recorded:** March-April 1982 (demo only)<br>
 **Never released**
 **Never performed**
 

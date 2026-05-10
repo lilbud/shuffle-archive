@@ -19,9 +19,9 @@ But at least Bruce’s first time covering “Blowin’ in the Wind’ was a hig
 Bruce performed “Blowin’ in the Wind” once more, just a few months later on the aforementioned Human Rights Now Tour. This time, though, he was a guest artist during Joan Baez’s set, and to my knowledge there’s no circulating recording of their duet.
 
 June 18, 1988 (Paris, France)
- September 23, 1988 (Oakland, CA)
+September 23, 1988 (Oakland, CA)
 
 **Blowin’ in the Wind**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

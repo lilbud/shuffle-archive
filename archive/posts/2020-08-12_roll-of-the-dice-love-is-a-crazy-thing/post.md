@@ -61,7 +61,7 @@ So maybe we can cut him a little slack for writing an entire song about a girl w
 **Love Is a Crazy Thing**
 Never recorded**
 **Never released**
-**First performed:** February 4, 1972 (Richmond, VA)
-**Last performed:** February 4, 1972 (Richmond, VA)
+**First performed:** February 4, 1972 (Richmond, VA)<br>
+**Last performed:** February 4, 1972 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

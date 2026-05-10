@@ -59,9 +59,9 @@ But one lone performance is all we've been given, so we're fortunate that it was
 Let's hope for it on the next E Street Band tour!
 
 **Car Wash**
-**Recorded:** May 31, 1983
-**Released:** *Tracks* (1998)
-**First performed:** June 13, 1999 (Leipzig, Germany)
-**Last performed:** June 13, 1999 (Leipzig, Germany)
+**Recorded:** May 31, 1983<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** June 13, 1999 (Leipzig, Germany)<br>
+**Last performed:** June 13, 1999 (Leipzig, Germany)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -45,20 +45,11 @@ In Bruce’s typical “I had a job, I had a girl” fashion (in fact, the first
 
 By showing his sorrow on the outside, he prompts the people he encounters to ask him what’s behind it. And that’s precisely by design: our narrator’s punishment is his penitence. Unable to forgive himself or move on, he ensure that he’s forced to relive his love and retell his loss every day.
 
-“Seven Tears” is a masterful example of economy in songwriting, a complete tale with an emotional wallop in ninety seconds. It deserves and official release; let’s hope Bruce includes it on that rumored box set.
-
-*Born in the U.S.A.*
-
-February 15, 1983
-
-
+“Seven Tears” is a masterful example of economy in songwriting, a complete tale with an emotional wallop in ninety seconds. It deserves and official release; let’s hope Bruce includes it on that rumored *Born in the U.S.A.* box set.
 
 **Seven Tears**
-**Recorded:**  
-
+**Recorded:** February 15, 1983<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

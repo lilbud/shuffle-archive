@@ -45,9 +45,9 @@ Other than a couple of private parties and a Hall of Fame jam session, Bruce onl
 Bruce may have been born to rock, but when he wants to, that pair of bookend performances–forty years apart–reminds us that he can always groove.
 
 July 10, 1971 (Lincroft, NJ)
- April 2, 2011 (Asbury Park, NJ)
+April 2, 2011 (Asbury Park, NJ)
 
 **C.C. Rider**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

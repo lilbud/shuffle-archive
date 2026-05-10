@@ -31,8 +31,8 @@ Pond asked Patti a follow-up question to her previous answer…
 …which doesn’t have anything to do with “Talk to Me Like the Rain.” I just needed to share, because I’m still giggling over it. Dusty Springsteen… that would have been some name to live up to!
 
 **Talk to Me Like the Rain**
-**Recorded:**   
-**Released:** *Rumble Doll* (1993)  
+**Recorded:** <br>
+**Released:** *Rumble Doll* (1993)<br>
 **Never performed**
 
 © September 9, 2021

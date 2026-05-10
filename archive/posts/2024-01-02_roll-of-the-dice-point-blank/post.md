@@ -203,16 +203,15 @@ In 2005, Bruce debuted yet another arrangement for “Point Blank,” this time 
 
 Late 1979 – Early 1980
 (1980)
- July 7, 1978 (West Hollywood, CA)
- July 28, 2016 (Oslo, Norway)
+July 7, 1978 (West Hollywood, CA)
+July 28, 2016 (Oslo, Norway)
 
 **Point Blank**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The River*   
-**First performed:**  
-**Last performed:**
+**Released:** *The River* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

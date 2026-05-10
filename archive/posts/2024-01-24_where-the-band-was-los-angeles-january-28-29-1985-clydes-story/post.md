@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**Today’s guest blogger is Clyde Kaplan, former music and television audio mixer, former television associate director–now happily retired.* *In 1985, though, Clyde was an assistant engineer at A&M Studios in Hollywood, a gig that placed him behind the scenes at one of the most exclusive and star-studded Springsteen appearances ever.*
 

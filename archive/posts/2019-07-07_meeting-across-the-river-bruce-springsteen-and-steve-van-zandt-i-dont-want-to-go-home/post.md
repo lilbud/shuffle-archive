@@ -17,8 +17,8 @@ And as always, here’s the original for comparison.
 [https://www.youtube.com/embed/tRVkS6Owp9Q?feature=oembed](https://www.youtube.com/embed/tRVkS6Owp9Q?feature=oembed)
 
 July 22, 1976 (Los Angeles, CA)
- July 6, 2019 (Asbury Park, NJ)
+July 6, 2019 (Asbury Park, NJ)
 
 **I Don’t Want to Go Home**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

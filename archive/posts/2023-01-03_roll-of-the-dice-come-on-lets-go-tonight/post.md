@@ -86,17 +86,17 @@ Still, “Factory” remains the better-known song, and it would probably only c
 “Come On (Let’s Go Tonight)” is likely to remain a deep cut obscurity, deserving of more consideration than it receives.
 
 Late 1977
- (2010)
- December 7, 2010 (Asbury Park, NJ)
- December 7, 2010 (Asbury Park, NJ)
+(2010)
+December 7, 2010 (Asbury Park, NJ)
+December 7, 2010 (Asbury Park, NJ)
 
 **Come On (Let’s Go Tonight)**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***The Promise*   
-**First performed:**  
-**Last performed:**
+**Released:***The Promise* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

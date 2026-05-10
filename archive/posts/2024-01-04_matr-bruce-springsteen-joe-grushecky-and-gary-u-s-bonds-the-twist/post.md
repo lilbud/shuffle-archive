@@ -75,12 +75,12 @@ Their 1961 original recording attracted little notice, but when it was re-worked
 But that’s an entry for another day.
 
 November 2, 2002 (Sea Bright, NJ)
- November 2, 2002 (Sea Bright, NJ)
+November 2, 2002 (Sea Bright, NJ)
 
 **The Twist**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (For more information on “The Twist,” see of an invaluable resource for me in general and for this entry specifically.)
 

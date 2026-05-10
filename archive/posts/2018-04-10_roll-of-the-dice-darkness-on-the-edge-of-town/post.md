@@ -51,9 +51,9 @@ I realize that I have a somewhat contrary view of this song than most fans do, b
 What's yours?
 
 **Darkness on the Edge of Town**
-**Recorded:** 1977-1978
-**Released:** *Darkness on the Edge of Town* (1978), *The Essential Bruce Springsteen* (2003), *Greatest Hits* (2009)
-**First performed:** May 23, 1978 (Buffalo, NY)
-**Last performed:** September 1, 2023 (East Rutherford, NJ)
+**Recorded:** 1977-1978<br>
+**Released:** *Darkness on the Edge of Town* (1978), *The Essential Bruce Springsteen* (2003), *Greatest Hits* (2009)<br>
+**First performed:** May 23, 1978 (Buffalo, NY)<br>
+**Last performed:** September 1, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

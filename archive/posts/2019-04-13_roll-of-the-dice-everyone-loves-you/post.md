@@ -19,12 +19,10 @@ If you can make out anything more or different, please let me know.
 
 (unfinished and unreleased)
 : 1979 (demo)
- Never
+Never
 
 **Everyone Loves You**  
 **Recorded**  
 **Performed:**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

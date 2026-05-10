@@ -85,7 +85,7 @@ Actually, we don't have to imagine–while Bruce has never performed "Preacher's
 
 "Preacher's Daughter" still resides in that legendary vault of Bruce's, so maybe we'll see an official release someday in that mythical *Tracks II*.
 
-**Preacher's Daughter****Recorded:** October 27, 1977
+**Preacher's Daughter****Recorded:** October 27, 1977<br>
 **Never Released**
 Never** **Performed** (in full, at least)
 

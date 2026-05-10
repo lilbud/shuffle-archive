@@ -80,13 +80,12 @@ Taken as a whole, it presents a snapshot of an artist truly coming to terms with
 “Tomorrow Never Knows” and “Kingdom of Days” contain words to live by, for those of us fortunate enough to be in a position to follow them.
 
 2007-2008
- (2009)
+(2009)
 
 **Tomorrow Never Knows**  
-**Recorded:**  
-**Released:***Working on a Dream*   
+**Recorded:**<br>
+**Released:***Working on a Dream* <br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

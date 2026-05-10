@@ -27,7 +27,7 @@ In the modern era, Bruce and the E Street Band tackled "Little Latin Lupe" two e
 [Watch on Youtube: Bruce Springsteen - Little Latin Lupe Lu / Hava Nagila - Washington D.C. 05/18](https://www.youtube.com/watch?v=8f15jpsBTjk)
 
 **Little Latin Lupe Lu**
-**First performed:** March 23, 1977 (Boston, MA)
-**Last performed:** May 18, 2009 (Washington, DC)
+**First performed:** March 23, 1977 (Boston, MA)<br>
+**Last performed:** May 18, 2009 (Washington, DC)<br>
 
 (c) April 21, 2019

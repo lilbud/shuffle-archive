@@ -105,17 +105,16 @@ The first is an electric piano performance from 2005:
 But it holds the distinction of kickstarting a new era in Bruce’s career and captures the artist at a point were he’s only beginning to reconcile his internal emotional struggle, betting on himself and his partner, and allowing himself to love and be loved. For that, “Roll of the Dice” hold a special place in Bruce’s catalog.
 
 December 1989
- (1992)
- May 6, 1992 (New York City, NY)
- February 16, 2017 (Brisbane, Australia)
+(1992)
+May 6, 1992 (New York City, NY)
+February 16, 2017 (Brisbane, Australia)
 
 **Roll of the Dice**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Human Touch*  
-**First performed:**  
-**Last performed:**
+**Released:** *Human Touch*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

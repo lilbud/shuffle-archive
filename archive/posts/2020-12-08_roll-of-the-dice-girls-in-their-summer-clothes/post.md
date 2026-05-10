@@ -172,12 +172,11 @@ September 24, 2007 (Asbury Park, NJ)
 February 7, 2014 (Perth, Australia)
 
 **Girls in Their Summer Clothes**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *Magic* *Girls in Their Summer Clothes*   
-**First performed:**   
-**Last performed:**
+**Released:** *Magic* *Girls in Their Summer Clothes* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

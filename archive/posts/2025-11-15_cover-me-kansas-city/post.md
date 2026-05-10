@@ -59,11 +59,11 @@ But one night in 1987, Bruce (and most of the E Street Band) joined Cats on a Sm
 [https://www.youtube.com/embed/idDI0dCmH_k?feature=oembed](https://www.youtube.com/embed/idDI0dCmH_k?feature=oembed)
 
 January 11, 1979 (Fair Haven, NJ)
- June 7, 2025 (Liverpool, England)
+June 7, 2025 (Liverpool, England)
 
 **Kansas City**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) January 11, 2021

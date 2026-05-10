@@ -21,8 +21,8 @@ Fortunately, the venue was intimate enough that several filmers were able to pre
 [https://www.youtube.com/embed/fdQK_ivIgLw?feature=oembed](https://www.youtube.com/embed/fdQK_ivIgLw?feature=oembed)
 
 March 15, 2012 (Austin, TX)
- March 15, 2012 (Austin, TX)
+March 15, 2012 (Austin, TX)
 
 **The Harder They Come**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

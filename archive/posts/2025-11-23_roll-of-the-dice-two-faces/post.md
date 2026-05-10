@@ -133,14 +133,14 @@ After all, Bruce warned us about his other face:
 
 January-April 1987
 (1987)
- October 31, 1987 (Sea Bright, NJ)
- October 9, 2005 (Uniondale, NY)
+October 31, 1987 (Sea Bright, NJ)
+October 9, 2005 (Uniondale, NY)
 
 **Two Faces**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tunnel of Love*   
-**First performed:**  
-**Last performed:**
+**Released:** *Tunnel of Love* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) May 26, 2022

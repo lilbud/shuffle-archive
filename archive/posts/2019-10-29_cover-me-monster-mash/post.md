@@ -23,5 +23,5 @@ Still, it was great fun–and isn't that the point of a novelty song? And when i
 Let's just hope he chooses a different arrangement.
 
 **Monster Mash**
-**First performed:** October 31, 2012 (Rochester, NY)
-**Last performed:** October 31, 2012 (Rochester, NY)
+**First performed:** October 31, 2012 (Rochester, NY)<br>
+**Last performed:** October 31, 2012 (Rochester, NY)<br>

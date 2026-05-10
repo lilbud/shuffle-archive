@@ -23,10 +23,10 @@ Although the 1994 performance above is the only one in which Bruce’s vocals ca
 [https://www.youtube.com/embed/yXHBxZVvT5E?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/yXHBxZVvT5E?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 July 16, 1994 (Asbury Park, NJ)
- January 31, 1998 (Red Bank, NJ)
+January 31, 1998 (Red Bank, NJ)
 
 **I Played the Fool**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © April 4, 2019

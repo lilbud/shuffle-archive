@@ -21,6 +21,6 @@ The sound quality is terrible, but it’s the only document we have of Bruce per
 June 15, 1981 (San Francisco, CA)
 June 15, 1981 (San Francisco, CA)
 
-**School Is Out** **First performed:**  
+**School Is Out** **First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -146,11 +146,11 @@ That evening, Bruce and Patti perform “” at the first annual Albie Awards, s
 
 [The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
 
- 
+
 
 View this post on Instagram
 
- 
+
 
 [A post shared by covenant- alex (@borntorunboss1)](https://www.instagram.com/tv/CjTHuJAtR9O/?utm_source=ig_embed&utm_campaign=loading)
 

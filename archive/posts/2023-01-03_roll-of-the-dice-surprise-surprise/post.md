@@ -73,15 +73,15 @@ So let’s hope Bruce can turn his brain off at night and sleep peacefully. He d
 
 2007-2008
 (2009)
- March 23, 2009 (Asbury Park, NJ)
- May 14, 2014 (Hershey, PA)
+March 23, 2009 (Asbury Park, NJ)
+May 14, 2014 (Hershey, PA)
 
 **Surprise, Surprise**  
-**Recorded:**  
-**Released:** *Working on a Dream*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Working on a Dream* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

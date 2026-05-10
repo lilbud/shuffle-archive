@@ -41,9 +41,9 @@ returns to print this fall as a deluxe two-disc anniversary re-issue, complete w
 *American Babylon* [order this special anniversary edition](https://orcd.co/JoeGrusheckyAmericanBabylon25)
 
 July 1994
- (1995)
+(1995)
 
 **Comin’ Down Maria**  
-**Recorded:**  
-**Released:** *American Babylon*  
+**Recorded:**<br>
+**Released:** *American Babylon*<br>
 **Never performed live**

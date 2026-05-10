@@ -19,9 +19,9 @@ It’s unclear which version Bruce Springsteen and The Castiles had in mind when
 But we at least have a pretty good idea why they chose to cover it at all: Bruce and the band had just seen The Blues Magoos perform it live in concert at Asbury Park’s Convention Hall just a few weeks earlier.
 
 September 30, 1967 (Freehold, NJ)
- September 30, 1967 (Freehold, NJ)
+September 30, 1967 (Freehold, NJ)
 
 **One By One**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

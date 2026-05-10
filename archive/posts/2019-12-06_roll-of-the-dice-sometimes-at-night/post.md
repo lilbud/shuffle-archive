@@ -47,14 +47,12 @@ But that’s a picked nit. The lyrics above are still a great set-up for a song 
 *Nebraska*
 
 July 22, 1971 (South Amboy, NJ)
- July 22, 1971 (South Amboy, NJ)
+July 22, 1971 (South Amboy, NJ)
 
 **Sometimes at Night**  
 **Never Recorded**  
 **Never Released**   
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

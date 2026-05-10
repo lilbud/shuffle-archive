@@ -60,13 +60,13 @@ The other was remarkable for both the location–Cape Town, South Africa, where 
 
 November 2, 1997
 (1998), (2006), (2006)
- April 20, 2006 (Asbury Park, NJ)
- January 28, 2014 (Cape Town, South Africa)
+April 20, 2006 (Asbury Park, NJ)
+January 28, 2014 (Cape Town, South Africa)
 
 **We Shall Overcome**  
-**Recorded:**  
-**Released:** *Where Have All the Flowers Gone: The Songs of Pete Seeger* *We Shall Overcome: The Seeger Sessions* *We Shall Overcome: The Seeger Sessions – American Land Edition*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Where Have All the Flowers Gone: The Songs of Pete Seeger* *We Shall Overcome: The Seeger Sessions* *We Shall Overcome: The Seeger Sessions – American Land Edition* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © August 15, 2018

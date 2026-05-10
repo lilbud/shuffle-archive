@@ -19,9 +19,9 @@ It’s more than a bit loose and messy, but that’s part of the charm. Take a l
 [https://www.youtube.com/embed/4Nbuk-j3VLw?feature=oembed](https://www.youtube.com/embed/4Nbuk-j3VLw?feature=oembed)
 
 December 18, 2000 (Asbury Park, NJ)
- December 18, 2000 (Asbury Park, NJ)
+December 18, 2000 (Asbury Park, NJ)
 
 **Hey, Good Lookin’**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -45,9 +45,9 @@ He actually did perform it twice, though–with Burgess himself at the Alliance 
 [Watch on Youtube: Tiger rose - sonny burgess & bruce springsteen](https://www.youtube.com/watch?v=zPY4nX3nWLY)
 
 **Tiger Rose**
-**Recorded:** Summer 1995
+**Recorded:** Summer 1995<br>
 **Never released**
-**First performed:** October 18, 2001 (Red Bank, NJ)
+**First performed:** October 18, 2001 (Red Bank, NJ)<br>
 **Last performed** October 19, 2001 (Red Bank, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

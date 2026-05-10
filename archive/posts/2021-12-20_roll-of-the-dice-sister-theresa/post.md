@@ -62,15 +62,14 @@ Never recorded and rarely performed, “Sister Theresa” is too atypical of Bru
 [Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)[If I Was the Priest](http://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)
 
 September 20, 1969 (Richmond, VA)
- 1970 (exact date uncertain)
+1970 (exact date uncertain)
 
 **Sister Theresa**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

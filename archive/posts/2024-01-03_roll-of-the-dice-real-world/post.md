@@ -2,7 +2,7 @@
 
 “This is a song I cut in the early ’90s. It was on but we didn’t quite get it right… I kind of screwed it up when I recorded it… It kind of got away from me… didn’t get a good version of it, but it was a good song.”*Human Touch,*
 
- 
+
 
 — Bruce Springsteen, various on-stage confessions in 2005
 
@@ -140,17 +140,17 @@ Bruce seems to have surrendered “Real World” to its original incarnation, a 
 We may yet hear it again when Bruce steps back out into the real world.
 
 December 1989 – January 1990
- (1992)
- November 16, 1990 (Los Angeles, CA)
- July 18, 2013 (Cork, Ireland)
+(1992)
+November 16, 1990 (Los Angeles, CA)
+July 18, 2013 (Cork, Ireland)
 
 **Real World**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Human Touch*  
-**First performed:**  
-**Last performed:**
+**Released:** *Human Touch*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

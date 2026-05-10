@@ -27,9 +27,9 @@ Almost a decade later, Bruce opened another Denver show with “Get Out of Denve
 [Little Queenie](http://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)
 
 April 13, 2002 (Asbury Park, NJ)
- November 19, 2012 (Denver, CO)
+November 19, 2012 (Denver, CO)
 
 **Get Out of Denver**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

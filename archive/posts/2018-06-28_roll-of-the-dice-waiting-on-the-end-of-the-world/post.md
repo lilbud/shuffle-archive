@@ -59,7 +59,7 @@ The similarities in language and imagery sways me toward believing that "Waiting
 What do you think?
 
 **Waiting on the End of the World**
-**Recorded:** January 1995
+**Recorded:** January 1995<br>
 **Never Released**
 **Never Performed**
 

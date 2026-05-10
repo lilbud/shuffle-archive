@@ -36,14 +36,14 @@ Start your Valentine’s Day with this wonderfully filmed, beautifully performed
 
 January 2004
 (2004)
- December 3, 2001 (Asbury Park, NJ)
- October 13, 2004 (East Rutherford, NJ)
+December 3, 2001 (Asbury Park, NJ)
+October 13, 2004 (East Rutherford, NJ)
 
 **Love (Stand Up)**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *23rd Street Lullaby*   
-**First performed:**  
-**Last performed:**
+**Released:** *23rd Street Lullaby* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © February 14, 2021

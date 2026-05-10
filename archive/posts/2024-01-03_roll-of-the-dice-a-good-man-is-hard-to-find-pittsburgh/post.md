@@ -115,17 +115,17 @@ Both performances were serviceable, but neither captured the poignancy of the st
 It isn’t hard to find a great performance of “Good Man”; we just have to look to the studio rather than the stage.
 
 May 5-6, 1982
- (1998)
- May 10, 2005 (St. Paul, MN)
- November 4, 2010 (Pittsburgh, PA)
+(1998)
+May 10, 2005 (St. Paul, MN)
+November 4, 2010 (Pittsburgh, PA)
 
 **A Good Man Is Hard to Find (Pittsburgh)**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Tracks*  
-**First performed:**  
-**Last performed:**
+**Released:***Tracks* (1998)<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

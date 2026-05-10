@@ -112,17 +112,17 @@ Since then, “Hearts of Stone” has made a few more appearances at benefit per
 
 October 14, 1977, 1998
 (1978) (Southside Johnny vocal); (1998) (Bruce Springsteen vocal)
- November 26, 1988 (San Francisco, CA)
- January 17, 2015 (Asbury Park, NJ)
+November 26, 1988 (San Francisco, CA)
+January 17, 2015 (Asbury Park, NJ)
 
 **Hearts of Stone**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Hearts of Stone* *Tracks*   
-**First performed:**  
-**Last performed:**
+**Released:** *Hearts of Stone* *Tracks* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
 

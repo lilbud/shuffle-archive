@@ -9,5 +9,5 @@ Amazingly, Billy never released "New York State of Mind" as a single, but the 19
 [Watch on Youtube: Billy Joel - New York State of Mind (Audio)](https://www.youtube.com/watch?v=F5LkGKJDc3Q)
 
 **New York State of Mind**
-**First performed:** October 16, 2008 (New York City, NY)
-**Last performed:** October 29, 2009 (New York City, NY)
+**First performed:** October 16, 2008 (New York City, NY)<br>
+**Last performed:** October 29, 2009 (New York City, NY)<br>

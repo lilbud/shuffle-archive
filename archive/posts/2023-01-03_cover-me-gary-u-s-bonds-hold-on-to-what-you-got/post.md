@@ -81,14 +81,14 @@ For my money, it’s impossible to tell, so the answer must be: it’s all of th
 Someone bring a sign for this one to the next tour, please.
 
 Early 1982
- (1982)
+(1982)
 
 **Hold On (To What You Got)**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *On the Line*  
+**Released:** *On the Line*<br>
 **Never performed live**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

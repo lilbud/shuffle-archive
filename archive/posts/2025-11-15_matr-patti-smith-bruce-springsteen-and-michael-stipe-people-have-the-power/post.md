@@ -27,11 +27,11 @@ There’s a lot that I love about their performance that night, but I think my f
 [https://www.youtube.com/embed/FDu8kQOEDa4?feature=oembed](https://www.youtube.com/embed/FDu8kQOEDa4?feature=oembed)
 
 October 1, 2004 (Philadelphia, PA)
- April 23, 2008 (New York City, NY)
+April 23, 2008 (New York City, NY)
 
 **People Have the Power**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) January 9, 2020

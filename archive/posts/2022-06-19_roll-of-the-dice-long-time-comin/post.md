@@ -148,9 +148,9 @@ May we not fuck it up this time.
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Long Time Comin' [Brisbane, AUS - 16.FEB.2017]](https://www.youtube.com/watch?v=yWf4r7G3mX8)
 
 **Long Time Comin'**
-**Recorded:** 1997-2004
-**Released:** *Devils & Dust* (2005), *The Essential Bruce Springsteen* (2015), *Chapter and Verse* (2016)
-**First performed:** October 16, 1996 (Denver, CO)
-**Last performed:** December 5, 2018 (New York City, NY)
+**Recorded:** 1997-2004<br>
+**Released:** *Devils & Dust* (2005), *The Essential Bruce Springsteen* (2015), *Chapter and Verse* (2016)<br>
+**First performed:** October 16, 1996 (Denver, CO)<br>
+**Last performed:** December 5, 2018 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

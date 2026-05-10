@@ -47,8 +47,8 @@ Holly’s version debuted only two months later, and his version would be the on
 [https://www.youtube.com/embed/0IUV-QxwlRM?feature=oembed](https://www.youtube.com/embed/0IUV-QxwlRM?feature=oembed)
 
 July 7, 1978 (Los Angeles, CA)
- September 7, 1984 (Hartford, CT)
+September 7, 1984 (Hartford, CT)
 
 **Rave On**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

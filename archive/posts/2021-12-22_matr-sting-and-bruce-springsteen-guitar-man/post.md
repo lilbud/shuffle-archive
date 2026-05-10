@@ -25,9 +25,9 @@ That event tends to be remembered for Bruce’s duets with James Taylor on “�
 [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)[I’m Turning Into Elvis](https://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/)
 
 April 12, 1995 (New York City, NY)
- April 12, 1995 (New York City, NY)
+April 12, 1995 (New York City, NY)
 
 **Guitar Man**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

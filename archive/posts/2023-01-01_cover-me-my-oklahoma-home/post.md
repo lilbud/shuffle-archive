@@ -45,17 +45,16 @@ The Gotham Playboys (the core and inspiration of the Sessions Band) were the eve
 [https://www.youtube.com/embed/etXiP7Xcf90?feature=oembed](https://www.youtube.com/embed/etXiP7Xcf90?feature=oembed)
 
 November 2, 1997
- (2006)
- April 20, 2006 (Asbury Park, NJ)
- May 16, 2015 (New York City, NY)
+(2006)
+April 20, 2006 (Asbury Park, NJ)
+May 16, 2015 (New York City, NY)
 
 **My Oklahoma Home**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *We Shall Overcome: The Seeger Sessions*  
-**First performed:**  
-**Last performed:**
+**Released:** *We Shall Overcome: The Seeger Sessions*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -91,8 +91,8 @@ It's a beautiful performance, but it doesn't quite measure up to the album track
 [Watch on Youtube: Bruce Springsteen - Tucson Train (From The Film Western Stars)](https://www.youtube.com/watch?v=Pctwuj8s2l0)
 
 **Tucson Train**
-**Recorded:** Unknown**Released:** *Western Stars* (2019)
-**First performed:** April 2019 (Colts Neck, NJ)
-**Last performed:** April 2019 (Colts Neck, NJ)
+**Recorded:** Unknown**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

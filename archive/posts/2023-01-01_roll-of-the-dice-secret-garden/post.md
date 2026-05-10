@@ -131,17 +131,15 @@ I’ll leave you with one more, and it’s a special one: a dedication from Bruc
 Now I’m going to Tony Roma’s.
 
 January 1995
- (1995), (1996)
- April 5, 1995 (New York City, NY)
- February 14, 2017 (Brisbane, Australia)
+(1995), (1996)
+April 5, 1995 (New York City, NY)
+February 14, 2017 (Brisbane, Australia)
 
 **Secret Garden**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Greatest Hits**Blood Brothers*  
-**First performed:**  
-**Last performed:**
+**Released:***Greatest Hits**Blood Brothers*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

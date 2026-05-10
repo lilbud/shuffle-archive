@@ -37,8 +37,8 @@ It seems Bruce is always at the ready for “Long Tall Sally,” and how could h
 “Long Tall Sally” has to be imprinted on Bruce’s musical DNA by now, and if you’re lucky enough to catch him at an impromptu guest appearance, there’s a decent chance you’ll get to see why.
 
 April 11, 1982 (Red Bank, NJ)
- February 7, 2017 (Sydney, Australia)
+February 7, 2017 (Sydney, Australia)
 
 **Long Tall Sally**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

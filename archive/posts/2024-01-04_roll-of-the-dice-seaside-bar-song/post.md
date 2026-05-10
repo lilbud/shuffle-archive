@@ -115,17 +115,17 @@ But on a summer night at the shore, if you don’t let the daylight steal your s
 [https://uw-media.app.com/embed/video/7856334001?placement=snow-embed](https://uw-media.app.com/embed/video/7856334001?placement=snow-embed)
 
 June 28 – July 24, 1973
- (1998), (1999)
- June 13, 1973 (Binghamton, NY)
- May 13, 2014 (Albany, NY)
+(1998), (1999)
+June 13, 1973 (Binghamton, NY)
+May 13, 2014 (Albany, NY)
 
 **Seaside Bar Song**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Tracks* *18 Tracks*   
-**First performed:**  
-**Last performed:**
+**Released:***Tracks* *18 Tracks* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

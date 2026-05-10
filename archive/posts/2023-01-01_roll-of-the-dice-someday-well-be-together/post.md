@@ -55,14 +55,13 @@ Bruce has never performed it in concert, and I wouldn’t lay odds of him doing 
 *The Promise*
 
 September 26-30, 1977 (backing track), 2010 (vocals and modern elements)
- (2010)
+(2010)
 
 **Someday (We’ll Be Together)**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Promise*   
+**Released:** *The Promise* <br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

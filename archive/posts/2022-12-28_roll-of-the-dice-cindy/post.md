@@ -76,13 +76,12 @@ So yeah, we’re in full-on creep mode now.
 “Cindy” has never been performed live, and even though Bruce makes no attempts to justify or redeem his point-of-view character, in the post-#metoo era, it’s unlikely it ever will.
 
 July 16, 1979
- (2015)
+(2015)
 
 **Cindy**  
-**Recorded:**  
-**Released:***The Ties That Bind: The River Collection*  
+**Recorded:**<br>
+**Released:***The Ties That Bind: The River Collection*<br>
 **Never performed live**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

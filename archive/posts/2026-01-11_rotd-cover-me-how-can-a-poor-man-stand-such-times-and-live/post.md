@@ -84,14 +84,14 @@ Bruce gave a fiercely impassioned vocal performance of “How Can a Poor Man Sta
 The problem with writing a song so timely and topical, though, is that it quickly becomes dated. As both Katrina and President Bystander faded in the rear view mirror, so did the relevancy of “How Can a Poor Man Stand Such Times and Live?” Bruce brought it back only three times after the Seeger Sessions Tour, two of which were encore Jazz Fest appearances. At this point, it’s likely to remain in the past, although Reed’s original lyrics might make for an all-too-relevant set list addition today.
 
 (2006)
- April 20, 2006 (Asbury Park, NJ)
- May 6, 2014 (Houston, TX)
+April 20, 2006 (Asbury Park, NJ)
+May 6, 2014 (Houston, TX)
 
 **How Can a Poor Man Stand Such Times and Live?**
 Never recorded**  
 
 **Released (live):***We Shall Overcome: The Seeger Sessions (American Land Edition)*   
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © December 8, 2021

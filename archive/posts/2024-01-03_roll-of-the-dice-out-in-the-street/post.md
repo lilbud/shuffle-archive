@@ -117,16 +117,16 @@ We’ll be meeting out in the street for a long time to come.
 
 March 21, 1980
 (1980), (2015)
- October 3, 1980 (Ann Arbor, MI)
- August 30, 2023 (East Rutherford, NJ)
+October 3, 1980 (Ann Arbor, MI)
+August 30, 2023 (East Rutherford, NJ)
 
 **Out in the Street**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The River* *The Essential Bruce Springsteen*   
-**First performed:**  
-**Last performed:**
+**Released:** *The River* *The Essential Bruce Springsteen* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

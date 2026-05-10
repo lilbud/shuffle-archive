@@ -71,9 +71,9 @@ If only he'd realized that when recording the album.
 [Watch on Youtube: Bruce Springsteen - Soul Driver (rehearsal)](https://www.youtube.com/watch?v=ziVw8itIXVU)
 
 **Soul Driver**
-**Recorded:** January 1990
-**Released:** *Human Touch* (1992)
-**First performed:** November 17, 1990 (Los Angeles, CA)
-**Last performed:** August 10, 2005 (Portland, OR)
+**Recorded:** January 1990<br>
+**Released:** *Human Touch* (1992)<br>
+**First performed:** November 17, 1990 (Los Angeles, CA)<br>
+**Last performed:** August 10, 2005 (Portland, OR)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

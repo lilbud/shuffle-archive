@@ -17,11 +17,11 @@ Bruce and Willie reprised their Light of Day “One Guitar” duet last week in 
 [https://www.youtube.com/embed/DWKZzyuYC1U?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/DWKZzyuYC1U?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 January 14, 2012 (Asbury Park, NJ)
- January 18, 2020 (Asbury Park, NJ)
+January 18, 2020 (Asbury Park, NJ)
 
 **One Guitar**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © May 16, 2018

@@ -90,16 +90,16 @@ Bruce even performed it at a mini-reunion of the Sessions Band in 2015. (In actu
 
 March 19, 2005
 (2006)
- April 20, 2006 (Asbury Park, NJ)
- May 16, 2015 (New York City, NY)
+April 20, 2006 (Asbury Park, NJ)
+May 16, 2015 (New York City, NY)
 
 **O Mary Don’t You Weep**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** [We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)  
-**First performed:**  
-**Last performed:**
+**Released:** [We Shall Overcome: The Seeger Sessions](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

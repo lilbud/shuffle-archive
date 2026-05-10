@@ -83,6 +83,5 @@ Bruce gets no answers to his questions, though, and he returns to his alienation
 
 “For Never Asking” is a stark, sobering song–we don’t know what it would have sounded like, but it seems that it was intended as a solo acoustic song. Bruce may never have released it, but it’s a theme and a battle he would revisit throughout his life and career.
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

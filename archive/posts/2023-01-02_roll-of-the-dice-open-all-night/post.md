@@ -134,16 +134,15 @@ Bruce brought “Open All Night” (in its new arrangement) back for nineteen ou
 
 January 3, 1982
 (1982)
- October 3, 1982 (Asbury Park, NJ)
- February 8, 2014 (Perth, Australia)
+October 3, 1982 (Asbury Park, NJ)
+February 8, 2014 (Perth, Australia)
 
 **Open All Night**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Nebraska*   
-**First performed:**  
-**Last performed:**
+**Released:** *Nebraska* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

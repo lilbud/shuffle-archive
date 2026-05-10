@@ -34,7 +34,7 @@ There's no resolution, here, just observation. The song ends with the narrator s
 **It's Time to Go Home**
 **Recorded**: N/A
 **Released**: N/A
-**First performed:** September 1, 1971 (Long Branch, NJ)
-**Last performed:** September 1, 1971 (Long Branch, NJ)
+**First performed:** September 1, 1971 (Long Branch, NJ)<br>
+**Last performed:** September 1, 1971 (Long Branch, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

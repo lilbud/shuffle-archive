@@ -37,5 +37,5 @@ That last performance (to date) was arguably the best, with the song's lush arra
 "When You Walk in the Room" is a rarity, but it's also clearly a song that Bruce has affection for–so don't count this one out for a future appearance.
 
 **When You Walk in the Room**
-**First performed:** August 13, 1975 (New York City, NY)
-**Last performed:** July 28, 2013 (Kilkenny, Ireland)
+**First performed:** August 13, 1975 (New York City, NY)<br>
+**Last performed:** July 28, 2013 (Kilkenny, Ireland)<br>

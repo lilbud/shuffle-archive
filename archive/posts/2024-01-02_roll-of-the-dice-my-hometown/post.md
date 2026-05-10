@@ -204,15 +204,14 @@ Here’s Bruce’s very first live performance of “My Hometown,” a rarely he
 
 June 29, 1983
 (1984), (1995)
- June 8, 1984 (Asbury Park, NJ)
- July 11, 2023 (Copenhagen, Denmark)
+June 8, 1984 (Asbury Park, NJ)
+July 11, 2023 (Copenhagen, Denmark)
 
 **My Hometown**  
-**Recorded:**  
-**Released:** *Born in the U.S.A.* *Greatest Hits*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Born in the U.S.A.* *Greatest Hits*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

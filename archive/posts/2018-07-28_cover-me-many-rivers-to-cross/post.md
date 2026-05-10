@@ -19,5 +19,5 @@ Regardless, it remains a World Tour 1993 highlight. Bruce played it only one tim
 [Watch on Youtube: Bruce Springsteen and Jimmy Cliff - Many Rivers to Cross 03/15/2012](https://www.youtube.com/watch?v=zEMwQVGIcW0)
 
 **Many Rivers to Cross**
-**First performed:** April 3, 1994 (Dortmund, German)
-**Last performed:** March 15, 2012 (Austin, TX)
+**First performed:** April 3, 1994 (Dortmund, German)<br>
+**Last performed:** March 15, 2012 (Austin, TX)<br>

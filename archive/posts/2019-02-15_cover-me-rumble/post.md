@@ -17,5 +17,5 @@ Watch and listen below. (Bruce is in the shadows most of the time, but isn't tha
 [Watch on Youtube: Bruce Springsteen - Rumble](https://www.youtube.com/watch?v=0j1xapvKBx8)
 
 **Rumble**
-**First performed:** November 21, 2005 (Trenton, NJ)
-**Last performed:** November 22, 2005 (Trenton, NJ)
+**First performed:** November 21, 2005 (Trenton, NJ)<br>
+**Last performed:** November 22, 2005 (Trenton, NJ)<br>

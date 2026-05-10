@@ -2,19 +2,19 @@
 
 “Well, I tell you,” I drawled. “I tell you the way I look at it, a man doesn’t get any more out of life than what he puts into it.”
 
- 
+
 
 “Umm,” he said, fidgeting. “I guess you’re right, Lou.”
 
- 
+
 
 “I was thinking the other day, Max; and all of a sudden I had the doggondest thought. It came to me out of a clear sky–the boy is the father to the man. Just like that. The boy is the father to the man.”
 
- 
+
 
 The smile on his face was getting strained. I could hear his shoes creak as he squirmed. If there’s anything worse than a bore, it’s a corny bore. But how can you brush off a nice friendly fellow who’d give you his shirt if you asked for it?
 
- 
+
 
 — *Jim Thompson, The Killer Inside Me*
 
@@ -92,17 +92,17 @@ Still waters run deep.
 [https://www.youtube.com/embed/TqJeHXifgLk?feature=oembed](https://www.youtube.com/embed/TqJeHXifgLk?feature=oembed)
 
 March – August 1995
- (1995)
- November 21, 1995 (New Brunswick, NJ)
- November 16, 2005 (East Rutherford, NJ)
+(1995)
+November 21, 1995 (New Brunswick, NJ)
+November 16, 2005 (East Rutherford, NJ)
 
 **My Best Was Never Good Enough**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Ghost of Tom Joad*  
-**First performed:**  
-**Last performed:**
+**Released:** *The Ghost of Tom Joad*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

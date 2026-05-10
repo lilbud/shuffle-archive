@@ -20,14 +20,8 @@ Although “Eye Catcher” is a studio track, Bruce’s contribution was capture
 
 *almost*[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
 
-Unknown (live excerpt from 9/30/88)
- (1989)
- September 30, 1988 (New Delhi, India)
- September 30, 1988 (New Delhi, India)
-
-**Up to You**
-**Recorded:**  
-
-**Released:***Eye Catcher*   
-**First performed:**  
-**Last performed:**
+**Up to You**<br>
+**Recorded:** Unknown (live excerpt from 9/30/88)<br>
+**Released:** *Eye Catcher*  (1989)<br>
+**First performed:** September 30, 1988 (New Delhi, India)<br>
+**Last performed:** September 30, 1988 (New Delhi, India)<br>

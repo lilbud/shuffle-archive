@@ -93,5 +93,5 @@ When they finished, Bruce went directly into "[We Are Alive.](https://estreetshu
 He couldn't have picked a more perfect segue.
 
 **Manifesto**
-**First performed:** September 12, 2013 (Santiago, Chile)
-**Last performed:** September 12, 2013 (Santiago, Chile)
+**First performed:** September 12, 2013 (Santiago, Chile)<br>
+**Last performed:** September 12, 2013 (Santiago, Chile)<br>

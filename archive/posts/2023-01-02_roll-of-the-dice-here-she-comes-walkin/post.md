@@ -58,15 +58,14 @@ How much either live version of “Here She Comes Walkin'” has in common with 
 Let’s hope.
 
 October 11, 1980 (Chicago, IL)
- July 28, 2016 (Oslo, Norway)
+July 28, 2016 (Oslo, Norway)
 
 **Here She Comes Walkin’**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

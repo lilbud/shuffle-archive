@@ -201,17 +201,17 @@ But when Maharidge asked Marshall if he’d ever consider returning to the Democ
 Joe Marshall Jr. passed away a year later. Youngstown still waits for those jobs.
 
 June 16, 1995
- (1995)
- November 21, 1995 (New Brunswick, NJ)
- February 25, 2017 (Auckland, New Zealand)
+(1995)
+November 21, 1995 (New Brunswick, NJ)
+February 25, 2017 (Auckland, New Zealand)
 
 **Youngstown**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***The Ghost of Tom Joad*   
-**First performed:**  
-**Last performed:**
+**Released:***The Ghost of Tom Joad* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

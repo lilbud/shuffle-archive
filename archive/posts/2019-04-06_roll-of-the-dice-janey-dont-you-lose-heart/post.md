@@ -111,9 +111,9 @@ Whatever form she takes, a setlist appearance by "Janey, Don't You Lose Heart" i
 [Watch on Youtube: Bruce Springsteen True Love Is Hard To Come By #3](https://www.youtube.com/watch?v=XhDDJqIJGBQ)
 
 **Janey, Don't You Lose Heart**
-**Recorded:** June 16, 1983
-**Released:** *I'm Goin' Down* (single, 1985),*Tracks* (1998), *18 Tracks* (1999)
-**First performed:** September 27, 1985 (Los Angeles, CA)
-**Last performed:** February 14, 2017 (Brisbane, Australia)
+**Recorded:** June 16, 1983<br>
+**Released:** *I'm Goin' Down* (single, 1985),*Tracks* (1998), *18 Tracks* (1999)<br>
+**First performed:** September 27, 1985 (Los Angeles, CA)<br>
+**Last performed:** February 14, 2017 (Brisbane, Australia)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

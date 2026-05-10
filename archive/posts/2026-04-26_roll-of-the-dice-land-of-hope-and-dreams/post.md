@@ -60,7 +60,7 @@ What happens next is one of those unpredictable magic Springsteen moments: witho
 
 While mostly absent from his set lists in recent years, “Land of Hope and Dreams” makes regular reappearances when times are dire–whether during the original Trump presidential years where liberty and our social contract started to fray…
 
- 
+
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L50sqx9fYjg)
 
@@ -81,7 +81,7 @@ Now more than ever, “Land of Hope and Dreams” is (in my opinion, at least) t
 It’s a national anthem for our times.
 
 **Land of Hope and Dreams  
-**Recorded:** July 1, 2000 (live), unknown (studio)**Released:** *Live in New York City* (2002), *Wrecking Ball* (2011)**First performed:** March 18, 1999 (Asbury Park, NJ)  
-**Last performed:** April 23, 2026 (Sunrise, FL)
+**Recorded:** July 1, 2000 (live), unknown (studio)**Released:** *Live in New York City* (2002), *Wrecking Ball* (2011)**First performed:** March 18, 1999 (Asbury Park, NJ)<br>
+**Last performed:** April 23, 2026 (Sunrise, FL)<br>
 
 © January 5, 2018 / April 26, 2026

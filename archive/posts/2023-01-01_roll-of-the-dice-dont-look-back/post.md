@@ -116,17 +116,15 @@ The lyrics for “Don’t Look Back” may have been constantly evolving, but th
 [https://videopress.com/embed/L5e9SzQt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/L5e9SzQt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 July 2, 1977 – March 2, 1978
- (1998)
- March 10, 1977 (Toledo, OH)
- May 18, 2014 (Uncasville, CT)
+(1998)
+March 10, 1977 (Toledo, OH)
+May 18, 2014 (Uncasville, CT)
 
 **Don’t Look Back**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tracks*  
-**First performed:**  
-**Last performed:**
+**Released:** *Tracks*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -56,7 +56,7 @@ March 24, 1977 (Boston, MA)
 January 17, 2015 (Asbury Park, NJ)
 
 **(Your Love Keeps Lifting Me) Higher and Higher**   
-**First performed:**   
-**Last performed:**
+**First performed:** <br>
+**Last performed:**<br>
 
 (c) September 23, 2018

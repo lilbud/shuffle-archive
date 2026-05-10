@@ -176,17 +176,16 @@ But regardless of whether it takes its ’77 form or ’78 one, “Prove It All 
 [https://www.youtube.com/embed/5dHKuImHsI0?feature=oembed](https://www.youtube.com/embed/5dHKuImHsI0?feature=oembed)
 
 September 12-16, 1977
- (1977), (2003)
- May 23, 1978 (Buffalo, NY)
- September 3, 2023 (East Rutherford, NJ)
+(1977), (2003)
+May 23, 1978 (Buffalo, NY)
+September 3, 2023 (East Rutherford, NJ)
 
 **Prove It All Night**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Darkness on the Edge of Town**The Essential Bruce Springsteen*   
-**First performed:**  
-**Last performed:**
+**Released:** *Darkness on the Edge of Town**The Essential Bruce Springsteen* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

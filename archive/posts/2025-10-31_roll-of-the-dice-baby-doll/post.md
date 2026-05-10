@@ -79,14 +79,14 @@ But just like “,” “,” and the other songs Bruce recorded during those or
 
 April 1972
 
- November 4, 1971 (New York City, NY)
- November 4, 1971 (New York City, NY)
+November 4, 1971 (New York City, NY)
+November 4, 1971 (New York City, NY)
 
 **Baby Doll**
-**Recorded:**  
+**Recorded:**<br>
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 © October 13 2019 by Ken Rosen

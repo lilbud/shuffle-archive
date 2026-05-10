@@ -17,5 +17,5 @@ Performed throughout the early months of the tour, here's a video clip of Bruce 
 [Watch on Youtube: Bruce Springsteen | Love Me Tender | April 2, 1988](https://www.youtube.com/watch?v=9wopuObCeV0)
 
 **Love Me Tender**
-**First performed:** February 29, 1988 (Worcester, MA)
-**Last performed:** June 26, 1988 (London, England)
+**First performed:** February 29, 1988 (Worcester, MA)<br>
+**Last performed:** June 26, 1988 (London, England)<br>

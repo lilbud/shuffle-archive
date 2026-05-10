@@ -15,5 +15,5 @@ Bruce would cover it once more a few years later, but this 1991 performance is t
 [Watch on Youtube: Bruce Springsteen, Max Weinberg, Tim McLoone - "Tobacco Road" - Sea Bright, 1991-01-20](https://www.youtube.com/watch?v=x_4ldqSuqNg)
 
 **Tobacco Road**
-**First performed:** January 20, 1991 (Sea Bright, NJ)
-**Last performed:** June 27, 1994 (West Hollywood, CA)
+**First performed:** January 20, 1991 (Sea Bright, NJ)<br>
+**Last performed:** June 27, 1994 (West Hollywood, CA)<br>

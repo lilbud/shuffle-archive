@@ -13,8 +13,8 @@ Blink and you’ll miss it, but at about the 2:10 mark, listen closely and you�
 So yeah, it’s fleeting, but it’s a cool moment in the only collaboration between Bruce Springsteen and The Dictators.
 
 **Faster and Louder**
-**Recorded:** March 1978  
-**Released:** *Bloodbrothers* (1978)  
+**Recorded:** March 1978<br>
+**Released:** *Bloodbrothers* (1978)<br>
 **Never performed**
 
 © March 27, 2019

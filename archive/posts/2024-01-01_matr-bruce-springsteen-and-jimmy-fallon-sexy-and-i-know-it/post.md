@@ -10,12 +10,12 @@ Here’s that brilliantly silly performance:
 
 [https://videopress.com/embed/9ki7nHat?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9ki7nHat?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
- 
+
 
 March 2, 2012 (New York City, NY)
- March 2, 2012 (New York City, NY)
+March 2, 2012 (New York City, NY)
 
 **Sexy and I Know It**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

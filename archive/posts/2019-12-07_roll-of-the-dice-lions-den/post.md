@@ -123,18 +123,10 @@ Here’s an early work-in-progress outtake of “Lion’s Den.” It’s unrecog
 
 [https://videopress.com/embed/NISWyTEK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NISWyTEK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-January 25, 1982 (core recording), 1998 (horns)
- (1998), (1999)
- June 3, 1999 (Paris, France)
- November 1, 2012 (University Park, PA)
-
 **Lion’s Den**
-**Recorded:**  
+**Recorded:** January 25, 1982 (core recording), 1998 (horns)<br>
+**Released:** *Tracks* (1998), *18 Tracks* (1999)<br>
+**First performed:** June 3, 1999 (Paris, France)<br>
+**Last performed:** November 1, 2012 (University Park, PA)<br>
 
-**Released:***Tracks**18 Tracks*   
-**First performed:**  
-**Last performed:**
-
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

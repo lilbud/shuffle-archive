@@ -148,9 +148,9 @@ You can listen to the live recording below, but I honestly think you're better o
 [Watch on Youtube: Bruce Springsteen - Western Stars (From The Film Western Stars)](https://www.youtube.com/watch?v=GBRPo6lQRBg)
 
 **Western Stars**
-**Recorded:** Unknown
-**Released:** *Western Stars* (2019)
-**First performed:** April 2019 (Colts Neck, NJ)
-**Last performed:** April 2019 (Colts Neck, NJ)
+**Recorded:** Unknown<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

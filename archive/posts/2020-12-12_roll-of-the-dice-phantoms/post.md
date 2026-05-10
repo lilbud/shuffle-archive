@@ -63,7 +63,7 @@ Let’s continue:
 
 I’m not exactly sure what to make of the “negroes” reference, especially since it’s absent from earlier versions; the uncertain historical and geographical setting makes it difficult to pin down what Bruce intended here. So let’s instead just focus on the fact that Jamey is getting a little road-crazy, possibly with some heat stroke layered on top. In the rhythmic work of the rock-splitters, he thinks he hears his girl calling out to him.
 
- *Oh listen to ’em work (oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*  
+*Oh listen to ’em work (oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*  
 *Oh busting rocks (oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*  
 *Oh busting those rocks (oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*  
 *(Oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*  
@@ -75,17 +75,10 @@ Does Jamey ever make it back to Jessie? We never find out, but I’d wager the a
 
 Miles to go is miles away.
 
-June 1973
-
- June 13, 1973 (Binghamton, NY)
- June 13, 1973 (Binghamton, NY)
-
 **Phantoms**  
-**Recorded:**  
+**Recorded:** June 1973<br>
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:** June 13, 1973 (Binghamton, NY)<br>
+**Last performed:** June 13, 1973 (Binghamton, NY)<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

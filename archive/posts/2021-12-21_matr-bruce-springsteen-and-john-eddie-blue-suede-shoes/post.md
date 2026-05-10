@@ -35,9 +35,9 @@ Toward the end of “All Shook Up,” Nick deftly (and gutsily) segues the band 
 [https://www.youtube.com/embed/XyJgPQRw4JA?feature=oembed](https://www.youtube.com/embed/XyJgPQRw4JA?feature=oembed)
 
 August 19, 1983 (Long Branch, NJ)
- August 19, 1983 (Long Branch, NJ)
+August 19, 1983 (Long Branch, NJ)
 
 **Blue Suede Shoes**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

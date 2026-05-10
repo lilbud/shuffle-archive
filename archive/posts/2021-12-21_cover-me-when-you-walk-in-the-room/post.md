@@ -41,9 +41,9 @@ That last performance (to date) was arguably the best, with the song’s lush ar
 “When You Walk in the Room” is a rarity, but it’s also clearly a song that Bruce has affection for–so don’t count this one out for a future appearance.
 
 August 13, 1975 (New York City, NY)
- July 28, 2013 (Kilkenny, Ireland)
+July 28, 2013 (Kilkenny, Ireland)
 
 **When You Walk in the Room**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -15,5 +15,5 @@ A couple of those new lyrics would turn up later in the year in a new song Bruce
 But that's a story for another time.
 
 **Run Through the Jungle**
-**First performed:** April 29, 1981 (Rotterdam, The Netherlands)
-**Last performed:** May 8, 1981 (Stockholm, Sweden)
+**First performed:** April 29, 1981 (Rotterdam, The Netherlands)<br>
+**Last performed:** May 8, 1981 (Stockholm, Sweden)<br>

@@ -88,9 +88,9 @@ Enjoy the official video (yes, there is one) for "The Big Muddy."
 [Watch on Youtube: Bruce Springsteen - The Big Muddy (MTV Plugged - Official HD Video)](https://www.youtube.com/watch?v=nkSoGDQ09M8)
 
 **The Big Muddy**
-**Recorded:** Late 1991
-**Released:** *Lucky Town* (1992)
-**First performed:** May 6, 1992 (New York City, NY)
-**Last performed:** December 17, 1992 (Lexington, KY)
+**Recorded:** Late 1991<br>
+**Released:** *Lucky Town* (1992)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** December 17, 1992 (Lexington, KY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

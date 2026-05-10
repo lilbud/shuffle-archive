@@ -45,8 +45,8 @@ I bring that last one up because the one other time that Bruce performed “Ring
 [https://www.youtube.com/embed/MKWlQy9d2Ug?feature=oembed](https://www.youtube.com/embed/MKWlQy9d2Ug?feature=oembed)
 
 March 13, 1973 (Boston, MA)
- September 30, 2018 (Asbury Park, NJ)
+September 30, 2018 (Asbury Park, NJ)
 
 **Ring of Fire**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

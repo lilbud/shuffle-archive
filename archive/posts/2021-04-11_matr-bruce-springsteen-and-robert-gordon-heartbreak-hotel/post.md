@@ -39,5 +39,5 @@ Bruce continued to perform "Heartbreak Hotel" throughout the Darkness Tour, and 
 Almost forty years down the road, Bruce has yet to revisit "Heartbreak Hotel."
 
 **Heartbreak Hotel**
-**First performed:** December 2, 1977 (New York City, NY)
-**Last performed:** June 13, 1982 (Asbury Park, NJ)
+**First performed:** December 2, 1977 (New York City, NY)<br>
+**Last performed:** June 13, 1982 (Asbury Park, NJ)<br>

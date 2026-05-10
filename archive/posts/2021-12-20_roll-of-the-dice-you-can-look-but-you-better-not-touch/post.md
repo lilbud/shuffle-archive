@@ -125,16 +125,15 @@ You can bet “You Can Look” will be around for a long time to come.
 
 August 24-25 1979 (rockabilly version), February 17-23, 1980 (album version)
 (1980, album version), (2015, rockabilly version)
- October 7, 1980 (Richfield, OH)
- February 18, 2017 (Hunter Valley, Australia)
+October 7, 1980 (Richfield, OH)
+February 18, 2017 (Hunter Valley, Australia)
 
 **You Can Look (But You Better Not Touch)**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The River* *The River: Single Album*   
-**First performed:**  
-**Last performed:**
+**Released:** *The River* *The River: Single Album* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

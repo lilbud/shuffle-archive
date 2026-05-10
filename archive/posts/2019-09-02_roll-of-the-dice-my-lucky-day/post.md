@@ -79,9 +79,9 @@ But even that great performance is rivaled by one other very different one: On J
 Bring this one back on the next tour, Bruce. Please bring it back.
 
 **My Lucky Day**
-**Recorded:** early 2008
-**Released:** *My Lucky Day* (single, 2008), *Working on a Dream* (2009), *The Essential Bruce Springsteen, 2nd Edition* (2015)
-**First performed:** March 23, 2009 (Asbury Park, NJ)
-**Last performed:** June 25, 2016 (Gothenburg, Sweden)
+**Recorded:** early 2008<br>
+**Released:** *My Lucky Day* (single, 2008), *Working on a Dream* (2009), *The Essential Bruce Springsteen, 2nd Edition* (2015)<br>
+**First performed:** March 23, 2009 (Asbury Park, NJ)<br>
+**Last performed:** June 25, 2016 (Gothenburg, Sweden)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

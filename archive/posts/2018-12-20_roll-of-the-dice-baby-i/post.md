@@ -40,9 +40,9 @@ Although it's believed that The Castiles performed the song often over the next 
 [Watch Video Highlight](https://videopress.com/embed/UmOLrDkm)
 
 **Baby I**
-**Recorded:** May 18, 1966
-**Released:** *Chapter & Verse* (2016)
-**First performed:** November 2019 (Colts Neck, NJ)
-**Last performed:** November 2019 (Colts Neck, NJ)
+**Recorded:** May 18, 1966<br>
+**Released:** *Chapter & Verse* (2016)<br>
+**First performed:** November 2019 (Colts Neck, NJ)<br>
+**Last performed:** November 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

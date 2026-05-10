@@ -9,8 +9,8 @@ It’s hard to find a more perfectly suited pairing for Bruce than the very-Spri
 [https://www.youtube.com/embed/G1lq40tR72Q?feature=oembed](https://www.youtube.com/embed/G1lq40tR72Q?feature=oembed)
 
 June 27, 2009 (Pilton, England)
- June 28, 2009 (London, England)
+June 28, 2009 (London, England)
 
 **The ’59****Sound**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

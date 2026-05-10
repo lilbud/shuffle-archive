@@ -35,20 +35,11 @@ If you care to take a run at it yourself and can pick out any lyrics, you’d be
 
 It’s hard to believe there might still be unreleased tracks left over from the River sessions, but it’s equally hard to imagine Bruce and the band never memorialized their great performance in these rehearsal glimpses.
 
-Fingers crossed for a welcome surprise in that long-awaited …
-
-*Tracks 2*
-
-February 5, 1980 (rehearsals only)
-
-
+Fingers crossed for a welcome surprise in that long-awaited…*Tracks 2*
 
 **Slow Fade**
-**Recorded:**  
-
+**Recorded:** February 5, 1980 (rehearsals only)<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

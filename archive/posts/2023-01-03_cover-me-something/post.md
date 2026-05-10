@@ -25,9 +25,9 @@ It was a beautiful arrangement, one that captured the emotion of both the song a
 To this day, it remains the only time Bruce has covered “Something” in concert.
 
 December 3, 2001 (Asbury Park, NJ)
- December 3, 2001 (Asbury Park, NJ)
+December 3, 2001 (Asbury Park, NJ)
 
 **Something**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

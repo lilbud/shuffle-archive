@@ -46,8 +46,8 @@ Since it technically counts as an official release, I'm tempted to rank it dead 
 So I'll give Mr. Outside a pass. As has Bruce: he's never once performed it or mentioned it.
 
 **Mr. Outside**
-**Recorded:** Late 1979
-**Released:** *The Ties That Bind: The River Collection*
+**Recorded:** Late 1979<br>
+**Released:** *The Ties That Bind: The River Collection*<br>
 **Never performed**
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

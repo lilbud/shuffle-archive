@@ -107,9 +107,9 @@ https://www.youtube.com/watch?v=S1oagD7dv_Q
 Still, "Fire" remains a fan favorite for those able to look past its content, or at least recognize that we don't have to admire a song's point-of-view character to appreciate a great performance.
 
 **Fire**
-**Recorded:** 1977 and 2010
-**Released:** *The Promise* (2010)
-**First performed:** May 23, 1978 (Buffalo, NY)
-**Last performed:** September 4, 2021 (New York City, NY)
+**Recorded:** 1977 and 2010<br>
+**Released:** *The Promise* (2010)<br>
+**First performed:** May 23, 1978 (Buffalo, NY)<br>
+**Last performed:** September 4, 2021 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

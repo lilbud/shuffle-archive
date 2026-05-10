@@ -59,9 +59,9 @@ The next and last time Bruce played "Gotta Get That Feeling" in public to date (
 If Bruce and the band never play "Gotta Get That Feeling" again, at least they finally nailed a perfect performance, summoning both the passion of youth and the artistry of age.
 
 **Gotta Get That Feeling**
-**Recorded:** August 1977 (backing track), 2010 (vocals and horns)
-**Released:** *The Promise* (2010)
-**First performed:** December 7, 2010 (Asbury Park, NJ)
-**Last performed:** July 24, 2013 (Leeds, England)
+**Recorded:** August 1977 (backing track), 2010 (vocals and horns)<br>
+**Released:** *The Promise* (2010)<br>
+**First performed:** December 7, 2010 (Asbury Park, NJ)<br>
+**Last performed:** July 24, 2013 (Leeds, England)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

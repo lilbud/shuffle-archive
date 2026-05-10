@@ -155,14 +155,13 @@ In any arrangement, in any setting, “Atlantic City” remains one of Bruce’s
 : December 1981 – January 1982
 : (1982), (1993), (1995), (2001), (2003), (2007)
 : June 29, 1984 (St. Louis, MO)
- September 3, 2023 (East Rutherford, NJ)
+September 3, 2023 (East Rutherford, NJ)
 
 **Atlantic City**  
 **Recorded**  
 **Released***Nebraska**In Concert/MTV Plugged**Greatest Hits**Live in New York City**The Essential Bruce Springsteen**Live in Dublin*  
 **First performed**  
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

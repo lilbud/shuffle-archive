@@ -25,9 +25,9 @@ But it was the third selection that raised eyebrows at that first holiday show: 
 And if the final minute-and-a-half–with Southside, Steve, and Bruce weaving a coda effortlessly as only musicians with a lifetime of performing together can do–doesn’t bring joy to your ears, I don’t know what will.
 
 December 17, 2000 (Asbury Park, NJ)
- December 18, 2000 (Asbury Park, NJ)
+December 18, 2000 (Asbury Park, NJ)
 
 **All I Needed Was You**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

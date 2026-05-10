@@ -68,11 +68,10 @@ May 14, 1971 (Asbury Park, NJ)
 September 1, 1971 (Long Branch, NJ)
 
 **Jumbeliah** **Never recorded
-**First performed:**   
+**First performed:** <br>
 
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

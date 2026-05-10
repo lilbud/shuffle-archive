@@ -107,9 +107,9 @@ For what are we without hope in our hearts?
 [Watch on Youtube: Springsteen- Across The Border- Woody Guthrie Center Award](https://www.youtube.com/watch?v=xX1NMiVJD-E)
 
 **Across the Border**
-**Recorded:** April -June 1995
-**Released:** *The Ghost of Tom Joad* (1995)
-**First performed:** November 21, 1995 (New Brunswick, NJ)
-**Last performed:** May 13, 2021 (Colts Neck, NJ)
+**Recorded:** April -June 1995<br>
+**Released:** *The Ghost of Tom Joad* (1995)<br>
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** May 13, 2021 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

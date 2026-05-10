@@ -9,6 +9,6 @@ But we can go even farther back still: Here's a home demo that goes all the way 
 We'll call it "Every Day and Every Night," because those are the only lyrics in the entire song. But it's not the lyrics we're interested in here–it's the melody. For those of us who love Bruce's 1985 "Janey" B-side, this early work in progress should sound *very* familiar.
 
 **Every Day and Every Night**
-**Recorded:** Early 1979 (demo only)
+**Recorded:** Early 1979 (demo only)<br>
 **Never released**
 **Never performed**

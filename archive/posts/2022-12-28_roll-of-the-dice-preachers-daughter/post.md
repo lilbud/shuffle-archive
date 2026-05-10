@@ -93,14 +93,13 @@ Actually, we don’t have to imagine–while Bruce has never performed “Preach
 *Tracks II*
 
 October 27, 1977
- (in full, at least)
+(in full, at least)
 
-**Preacher’s Daughter** **Recorded:**   
+**Preacher’s Daughter** **Recorded:** <br>
 
 **Never Released**
 Never**  
 **Performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

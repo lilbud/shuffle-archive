@@ -13,9 +13,9 @@ See my post on “” for another great performance from this show.
 [Zip a Dee Doo Dah](http://estreetshuffle.com/index.php/2018/08/28/meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/)
 
 March 14, 2011 (New York City, NY)
- March 14, 2011 (New York City, NY)
+March 14, 2011 (New York City, NY)
 
 **Today I Met the Boy I’m Gonna Marry**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

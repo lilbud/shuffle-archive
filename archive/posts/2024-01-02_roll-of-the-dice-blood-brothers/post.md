@@ -39,7 +39,7 @@ Remember, this is the man who only a few years earlier wrote one of the other de
 *We swore we’d travel darlin’ side by side*  
 *We’d help each other stay in stride*
 
- 
+
 
 Granted, “” is a romantic song and “Blood Brothers” a fraternal one, but the narrator of the latter seems to have lost the heart of the former.
 
@@ -50,7 +50,7 @@ Granted, “” is a romantic song and “Blood Brothers” a fraternal one, but
 *And what once seemed black and white turns to so many shades of gray*   
 *We lose ourselves in work to do, work to do and bills to pay*
 
- 
+
 
 If there’s an emotional core to “Blood Brothers,” this is it: that the passion and promise of youth inevitably comes under siege by the pressures of age.
 
@@ -155,17 +155,16 @@ Perhaps he felt the original lyrics best suited the contemplative acoustic arran
 In any arrangement, “Blood Brothers” continues to be an emotional rarity, long and fondly remembered by those present to hear it.
 
 January 1995
- (1995), (1996)
- April 4, 1995 (New York City, NY)
- January 22, 2017 (Perth, Australia)
+(1995), (1996)
+April 4, 1995 (New York City, NY)
+January 22, 2017 (Perth, Australia)
 
 **Blood Brothers**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Greatest Hits* *Blood Brothers*  
-**First performed:**  
-**Last performed:**
+**Released:***Greatest Hits* *Blood Brothers*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

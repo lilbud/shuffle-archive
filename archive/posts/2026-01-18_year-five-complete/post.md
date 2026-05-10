@@ -102,15 +102,15 @@ While fans would have to wait until 2025 to hear the official studio recording, 
 [https://www.youtube.com/embed/fJNqfH_m7EM?feature=oembed](https://www.youtube.com/embed/fJNqfH_m7EM?feature=oembed)
 
 January 30, 1983
- (2025)
- April 19, 1981 (Paris, France)
- February 16, 2017 (Brisbane, Australia)
+(2025)
+April 19, 1981 (Paris, France)
+February 16, 2017 (Brisbane, Australia)
 
 **Follow That Dream**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***L.A. Garage Sessions ’83*   
-**First performed:**  
-**Last performed:**
+**Released:***L.A. Garage Sessions ’83* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © January 18, 2026

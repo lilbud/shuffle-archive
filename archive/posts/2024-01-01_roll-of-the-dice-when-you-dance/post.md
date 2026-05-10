@@ -62,11 +62,10 @@ October 23, 1971 (Richmond, VA)
 , 1977 (Red Bank, NJ)
 
 **When You Dance** **Never Recorded
-**First performed:**   
+**First performed:** <br>
 
 
-**Last performed:** [May 13](http://estreetshuffle.com/index.php/2018/05/13/kingdom-of-days-may-13/)
+**Last performed:** [May 13](http://estreetshuffle.com/index.php/2018/05/13/kingdom-of-days-may-13/)<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

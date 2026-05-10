@@ -34,6 +34,6 @@ October 21, 1995 (Pittsburgh, PA)
 October 21, 1995 (Pittsburgh, PA)
 
 **Gimme Shelter**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

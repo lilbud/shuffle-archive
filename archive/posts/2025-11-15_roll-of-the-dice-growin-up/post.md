@@ -140,14 +140,14 @@ Don’t forget to pull up.
 
 une 27, 1972
 (1972), (2015), (2016)
- May 2, 1972 (New York City, NY)
- June 24, 2025 (San Sebastián, Spain)
+May 2, 1972 (New York City, NY)
+June 24, 2025 (San Sebastián, Spain)
 
 **Growin’ Up**
 Recorded: J**  
 
-**Released:** *Greetings from Asbury Park, N.J.* *The Essential Bruce Springsteen* *Chapter and Verse*   
-**First performed:**  
-**Last performed:**
+**Released:** *Greetings from Asbury Park, N.J.* *The Essential Bruce Springsteen* *Chapter and Verse* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © September 29, 2022

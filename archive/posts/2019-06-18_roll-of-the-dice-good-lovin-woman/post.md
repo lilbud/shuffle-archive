@@ -17,13 +17,11 @@ But it sure like something a heterosexual teenage boy would write. I can’t mak
 Ah, but that guitar solo just past the three-minute mark… that’s another story. Bruce had a reputation even then as one of the fastest guitarists on the Jersey Shore, and he reminds us why in this performance. It’s worth listening to just for that.
 
 August 14, 1970 (Richmond, VA)
- August 14, 1970 (Richmond, VA)
+August 14, 1970 (Richmond, VA)
 
 **Good Lovin’ Woman**  
 **Never recorded**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -139,12 +139,11 @@ December 7, 2010 (Asbury Park, NJ)
 July 5, 2013 (Monchengladbach, Germany)
 
 **One Way Street**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Promise*   
-**First performed:**   
-**Last performed:**
+**Released:** *The Promise* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

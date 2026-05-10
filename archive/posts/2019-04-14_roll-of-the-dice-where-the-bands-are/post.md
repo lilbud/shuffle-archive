@@ -83,17 +83,10 @@ The sole exception: a dedication from Bruce to his fans during his Wrecking Ball
 
 [https://www.youtube.com/embed/aKE8uUZIWkM?feature=oembed](https://www.youtube.com/embed/aKE8uUZIWkM?feature=oembed)
 
-October 9, 1979
-(1998)
- April 19, 1999 (Milan, Italy)
- July 12, 2012 (Gothenburg, Sweden)
+**Where the Bands Are**
+**Recorded:** October 9, 1979<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** April 19, 1999 (Milan, Italy)<br>
+**Last performed:** July 12, 2012 (Gothenburg, Sweden)<br>
 
-**Where the Bands Are** **Recorded:**  
-
-**Released:** *Tracks*   
-**First performed:**  
-**Last performed:**
-
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

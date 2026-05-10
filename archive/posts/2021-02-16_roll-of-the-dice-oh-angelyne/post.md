@@ -97,7 +97,7 @@ We'll take a deep listen to that song and admire it in detail... soon.
 (To be continued in *Roll of the Dice:* "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)")
 
 **Oh Angelyne**
-**Recorded:** February-May 1979 (demos only)
+**Recorded:** February-May 1979 (demos only)<br>
 **Never released**
 **Never performed**
 

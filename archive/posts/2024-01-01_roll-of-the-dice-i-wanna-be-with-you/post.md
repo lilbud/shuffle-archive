@@ -68,12 +68,11 @@ May 31, 1979
 : May 14, 2016 (Barcelona)
 
 **I Wanna Be With You**
-**Recorded:**   
+**Recorded:** <br>
 
 **Released***Tracks* *18 Tracks*   
 **First Performed**  
 **Last Performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

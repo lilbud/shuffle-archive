@@ -15,7 +15,7 @@ Too bad they’ve never performed it together live.
 (2010)
 
 **The Moulin Rouge**  
-**Released:***Beautiful Behavior*  
+**Released:***Beautiful Behavior*<br>
 **Never performed live**
 
 © December 12, 2018

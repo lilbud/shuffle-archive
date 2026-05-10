@@ -47,6 +47,6 @@ March 23, 1988 (Atlanta, GA) – soundcheck only
 March 23, 1988 (Atlanta, GA) – soundcheck only
 
 **Don’t Let Me Be Misunderstood**
-**First Performed:**   
+**First Performed:** <br>
 
-**Last Performed:**
+**Last Performed:**<br>

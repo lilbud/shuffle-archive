@@ -74,6 +74,5 @@ But lyrically, “Death of a Good Man” offers us perhaps the earliest insight 
 **Never Recorded**  
 **Never Performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -84,10 +84,9 @@ Sigh. The tribulations of being an obsessed fan.
 June 13, 1979 (instrumental track) (vocal track probably 2014-2015)
 
 **Night Fire**  
-**Recorded:**   
-**Released:** *The Ties That Bind: The River Collection*   
+**Recorded:** <br>
+**Released:** *The Ties That Bind: The River Collection* <br>
 **Never Performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -17,8 +17,8 @@ Maybe someday the Hall of Fame will release a wider-angle clip and we’ll be ab
 January 17, 1990 (New York City, NY)
 January 17, 1990 (New York City, NY)
 
-**I Can’t Help Myself (Sugar Pie Honey Bunch)** **First performed:**   
+**I Can’t Help Myself (Sugar Pie Honey Bunch)** **First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © September 30, 2018

@@ -43,7 +43,7 @@ Walking in the street with nowhere to go.*
 So give a listen to this never-released, never-performed classic, lost somewhere with Billy and Cherry, forever walking in the street with nowhere to go.
 
 **Walking in the Street**
-**Recorded:** August-September 1974
+**Recorded:** August-September 1974<br>
 **Never released**
 **Never performed**
 

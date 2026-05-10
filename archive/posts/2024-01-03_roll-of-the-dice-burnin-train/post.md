@@ -105,12 +105,12 @@ February 1, 2023 (Tampa, FL)
 March 7, 2023 (Milwaukee, WI)
 
 **Burnin’ Train**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Letter to You*   
-**First performed:**   
-**Last performed:**
+**Released:** *Letter to You* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -42,7 +42,7 @@ So let's keep our fingers crossed for a cleaner, clearer recording someday–it 
 **Temporarily Out of Order**
 Never recorded**
 **Never released**
-**First performed:** May 23, 1970 (Richmond, VA)
-**Last performed:** May 23, 1970 (Richmond, VA)
+**First performed:** May 23, 1970 (Richmond, VA)<br>
+**Last performed:** May 23, 1970 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

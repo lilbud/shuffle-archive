@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**I wasn’t planning on having another guest blogger so soon, but a funny thing happened after I published from Bruce’s “Dancing in the Dark” video shoot and opening Born in the U.S.A. Tour shows the other day: Another fan who was there for both the shoot and those opening shows read Sandi’s article and reached out to me with more detail about the video shoot and some absolutely stunning photos from those shows.*[Sandi Pederson’s Where the Band Was report](http://estreetshuffle.com/index.php/2019/06/28/where-the-band-was-st-paul-june-28-1984/)
 

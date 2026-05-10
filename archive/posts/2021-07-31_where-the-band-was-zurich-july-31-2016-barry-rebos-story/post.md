@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**Today’s guest blogger is friend of the blog and long-time Springsteen fan Barry Rebo. Even if you don’t know his name (and many of you certainly do), if you read this blog I guarantee you’re familiar with his work.*
 
@@ -50,7 +50,7 @@ To me, especially that evening, it’s about the fans. There’s little hope to 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/zurich1-231x300.jpg?resize=758%2C984)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/sa-225x300.jpg?resize=225%2C300)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/tattoo-225x300.jpg?resize=225%2C300)
 

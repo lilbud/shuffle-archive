@@ -185,16 +185,16 @@ May we not fuck it up this time.
 
 1997-2004
 (2005), (2015), (2016)
- October 16, 1996 (Denver, CO)
- December 5, 2018 (New York City, NY)
+October 16, 1996 (Denver, CO)
+December 5, 2018 (New York City, NY)
 
 **Long Time Comin’**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *Devils & Dust* *The Essential Bruce Springsteen**Chapter and Verse*  
-**First performed:**  
-**Last performed:**
+**Released:** *Devils & Dust* *The Essential Bruce Springsteen**Chapter and Verse*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

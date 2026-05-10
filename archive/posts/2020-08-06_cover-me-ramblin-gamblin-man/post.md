@@ -25,9 +25,9 @@ Although these weren’t the only times Bruce has played “Ramblin’ Gamblin�
 But once we make it to the other side of this pandemic, there’s always a strong possibility we’ll hear it again the next time the E Street Band rolls into Detroit.
 
 August 18, 1992 (Auburn Hills, MI)
- November 13, 2009 (Auburn Hills, MI)
+November 13, 2009 (Auburn Hills, MI)
 
 **Ramblin’ Gamblin’ Man**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

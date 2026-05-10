@@ -79,16 +79,15 @@ But in 1972, was still burning ten years down the road.
 
 March 14, 1972
 
- October 23, 1971 (Richmond, VA)
- February 25, 1972 (Richmond, VA)
+October 23, 1971 (Richmond, VA)
+February 25, 1972 (Richmond, VA)
 
 **Coming Home**
-**Recorded:**  
+**Recorded:**<br>
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

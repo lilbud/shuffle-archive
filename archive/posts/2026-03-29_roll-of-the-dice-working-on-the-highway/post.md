@@ -66,7 +66,7 @@ Bruce recorded it on April 30, 1982, more than two weeks after he’d begun shap
 **Working on the Highway**  
 **Recorded** (final version): May 6, 1982  
 **Released**: *Born in the U.S.A.* (1984)  
-**First Performed:** June 29, 1984 (St. Paul, MN)  
-**Last Performed:** June 24, 2025 (San Sebastian, Spain)
+**First Performed:** June 29, 1984 (St. Paul, MN)<br>
+**Last Performed:** June 24, 2025 (San Sebastian, Spain)<br>
 
 © Jan 11, 2018 / March 29, 2026

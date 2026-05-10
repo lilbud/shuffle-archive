@@ -13,9 +13,9 @@ And just because we all need to be reminded from time to time that rock stars us
 [https://www.youtube.com/embed/KrZHPOeOxQQ?feature=oembed](https://www.youtube.com/embed/KrZHPOeOxQQ?feature=oembed)
 
 January 31, 1998 (Red Bank, NJ)
- January 31, 1998 (Red Bank, NJ)
+January 31, 1998 (Red Bank, NJ)
 
 **You Give Love a Bad Name**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

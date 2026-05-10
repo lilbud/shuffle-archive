@@ -74,9 +74,9 @@ Bruce figured that out early on, and that's why we connect to his music on such 
 [Watch on Youtube: Power of Prayer @brucespringsteen](https://www.youtube.com/watch?v=otO5hkhocZE)
 
 **The Power of Prayer**
-**Recorded:** November 2019
-**Released:** *Letter to You* (2020)
-**First performed:** November 6, 2023(New York City, NY)
-**Last performed:** November 6, 2023 (New York City, NY)
+**Recorded:** November 2019<br>
+**Released:** *Letter to You* (2020)<br>
+**First performed:** November 6, 2023(New York City, NY)<br>
+**Last performed:** November 6, 2023 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

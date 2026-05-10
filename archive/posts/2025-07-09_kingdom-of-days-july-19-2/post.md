@@ -46,7 +46,7 @@ Bruce and the band bring the Darkness Tour to Ellis Auditorium in Memphis.
 
 **1978:**
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/07/1978-07-19b.jpg?resize=758%2C1400&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/07/1978-07-19a.jpg?resize=758%2C1306&amp;ssl=1)
 

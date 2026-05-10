@@ -35,11 +35,9 @@ Like the narrator, we’re destined to never know where Mary’s gone to, but we
 2007 (2014)
 
 **Mary Mary**
-**Recorded:**   
- **Released:**   
+**Recorded:** <br>
+**Released:** <br>
 *American Beauty*  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

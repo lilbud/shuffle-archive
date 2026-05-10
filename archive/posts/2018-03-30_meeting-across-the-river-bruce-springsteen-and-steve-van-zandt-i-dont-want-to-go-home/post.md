@@ -15,5 +15,5 @@ And as always, here's the original for comparison.
 [Watch on Youtube: Southside Johnny and The Asbury Jukes - I don' t want to go home](https://www.youtube.com/watch?v=tRVkS6Owp9Q)
 
 **I Don't Want to Go Home**
-**First performed:** July 22, 1976 (Los Angeles, CA)
-**Last performed:** July 6, 2019 (Asbury Park, NJ)
+**First performed:** July 22, 1976 (Los Angeles, CA)<br>
+**Last performed:** July 6, 2019 (Asbury Park, NJ)<br>

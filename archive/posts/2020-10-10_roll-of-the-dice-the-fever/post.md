@@ -164,18 +164,10 @@ I’ll leave you with a rare solo electric piano performance of “The Fever” 
 
 [https://videopress.com/embed/iEdaryZ4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iEdaryZ4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-May 16, 1973
- (1999)
- March 15, 1973 (Boston, MA)
- July 6, 2019 (Asbury Park, NJ)
-
 **The Fever**
-**Recorded:**  
+**Recorded:** May 16, 1973<br>
+**Released:** *18 Tracks* (1999)<br>
+**First performed:** March 15, 1973 (Boston, MA)<br>
+**Last performed:** July 6, 2019 (Asbury Park, NJ)<br>
 
-**Released:** *18 Tracks*  
-**First performed:**  
-**Last performed:**
-
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

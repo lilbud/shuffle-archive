@@ -82,16 +82,16 @@ If Bruce and the band never play “Gotta Get That Feeling” again, at least th
 
 August 1977 (backing track), 2010 (vocals and horns)
 (2010)
- December 7, 2010 (Asbury Park, NJ)
- July 24, 2013 (Leeds, England)
+December 7, 2010 (Asbury Park, NJ)
+July 24, 2013 (Leeds, England)
 
 **Gotta Get That Feeling**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Promise*   
-**First performed:**  
-**Last performed:**
+**Released:** *The Promise* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

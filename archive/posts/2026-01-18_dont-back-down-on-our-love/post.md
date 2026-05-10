@@ -63,11 +63,11 @@ Black Mountain? Mystery River? Bruce is obviously writing in dream metaphor (the
 Every close and distant relative to “Don’t Back Down on Our Love” improves on the DNA it inherited, so we can consider this early track a gift to those of us fascinated by Bruce’s artistic process.
 
 January-March 1983
- (2025)
+(2025)
 
 **Don’t Back Down on Our Love**  
-**Recorded:**  
-**Released:***L.A. Garage Sessions ’83*   
+**Recorded:**<br>
+**Released:***L.A. Garage Sessions ’83* <br>
 **Never performed**
 
 © January 18, 2026

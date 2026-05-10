@@ -118,15 +118,13 @@ That’s not to say the song doesn’t translate well to the stage, though. Besi
 
 February 19-20, 1973 (solo), November 2019 (band)
 (2020)
- December 7, 1972 (New York City, NY)
- November 22, 2005 (Trenton, NJ)
+December 7, 1972 (New York City, NY)
+November 22, 2005 (Trenton, NJ)
 
 **Song for Orphans**  
-**Recorded:**  
-**Released:** *Letter to You*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Letter to You* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

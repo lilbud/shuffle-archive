@@ -83,14 +83,9 @@ To date, Bruce has never performed “I’ll Stand By You” in concert.
 
 Please, for the love of Clarence: nobody bring a sign.
 
-2001
-(2019)
-
 **I’ll Stand By You**  
-**Recorded:**  
-**Released:** *Blinded by the Light (Original Motion Picture Soundtrack)*   
+**Recorded:** 2001<br>
+**Released:** *Blinded by the Light (Original Motion Picture Soundtrack)* (2019)<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

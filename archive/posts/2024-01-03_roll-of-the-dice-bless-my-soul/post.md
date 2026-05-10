@@ -25,13 +25,13 @@ Of particular delight is the middle section (skip to the five-minute mark if you
 If you enjoyed this track, stay tuned for more Bruce Springsteen Band performances through the summer. (And if not, don’t worry: modern programming resumes on Monday.)
 
 November 13, 1971 (Asbury Park, NJ)
- February 26, 1972 (Richmond, VA)
+February 26, 1972 (Richmond, VA)
 
 **Bless My Soul**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

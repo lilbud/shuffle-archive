@@ -74,16 +74,16 @@ That’s too bad, because “Easy Money” was both a crowd- and artist-pleaser,
 [https://www.youtube.com/embed/7lzRDbg_6IQ?feature=oembed](https://www.youtube.com/embed/7lzRDbg_6IQ?feature=oembed)
 
 2011
- (2011)
- March 18, 2012 (Atlanta, GA)
- September 19, 2012 (East Rutherford, NJ)
+(2011)
+March 18, 2012 (Atlanta, GA)
+September 19, 2012 (East Rutherford, NJ)
 
 **Easy Money**   
-**Recorded:**   
-**Released:***Wrecking Ball*  
-**First performed:**  
-**Last performed:**
+**Recorded:** <br>
+**Released:***Wrecking Ball*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

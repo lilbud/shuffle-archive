@@ -133,17 +133,10 @@ So I’ll leave you to listen to it. Turn up the volume and enjoy. I will as wel
 
 [https://www.youtube.com/embed/PiDrdW64Vs8?feature=oembed](https://www.youtube.com/embed/PiDrdW64Vs8?feature=oembed)
 
-July 1991 (Southside Johnny version), 2004 (Bruce version)
- (1991), (2005)
- July 30, 1992 (East Rutherford, NJ)
- October 25, 2006 (Santander, Spain)
-
 **All the Way Home**  
-**Recorded:**  
-**Released:***Better Days**Devils & Dust*   
-**First performed:**  
-**Last performed:**
+**Recorded:** July 1991 (Southside Johnny version), 2004 (Bruce version)<br>
+**Released:***Better Days* (1991), *Devils & Dust* (2005)<br>
+**First performed:** July 30, 1992 (East Rutherford, NJ)<br>
+**Last performed:** October 25, 2006 (Santander, Spain)<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -154,7 +154,7 @@ Instead of scraping and saving honestly as in the earlier version, here Jimmy is
 
 And while Syl’s introduction still serves as the song’s inciting incident, Jimmy and Syl are portrayed here as criminally inept rather than sinister.
 
- *Was on a job down in Oxford, we woke that farm boy from his bed*  
+*Was on a job down in Oxford, we woke that farm boy from his bed*  
 *We took off running, Syl dropped his rifle and shot himself in the leg*  
 *Well they caught up with us out on Highway 61*  
 *Yeah when we seen ’em coming we didn’t even run*
@@ -180,7 +180,7 @@ We’ll pick up the story of Jim Deer in “Richfield Whistle.”
 **James Lincoln Deere**
 Recorded**  
 
-**Released:** *L.A. Garage Sessions ’83*   
+**Released:** *L.A. Garage Sessions ’83* <br>
 **Never performed**
 
 © November 29, 2022 / January 25, 2026

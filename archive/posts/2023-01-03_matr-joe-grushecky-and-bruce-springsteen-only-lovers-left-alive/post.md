@@ -2,7 +2,7 @@
 
 I was sitting on that title for years and years. I actually had a book called when I was in high school, because I read that the Rolling Stones had licensed that book to make a movie. This is early, like when the Stones first hit. I had the book for years and years. It probably just fell apart, it was a little paperback, and I always liked the title of it: . So I fashioned a story.*Only Lovers Left Alive**Only Lovers Left Alive*
 
- 
+
 
 — *Joe Grushecky, July 2020*
 
@@ -38,7 +38,7 @@ July 1994
 (1995)
 
 **Only Lovers Left Alive**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *American Babylon*   
+**Released:** *American Babylon* <br>
 **Never performed**

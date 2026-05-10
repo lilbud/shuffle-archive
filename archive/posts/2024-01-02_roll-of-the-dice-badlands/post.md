@@ -140,19 +140,18 @@ All of this, of course, is just to serve as a build-up for the song’s climax. 
 *I wanna find one place, I wanna spit in the face of these…*
 
 Late 1977
- (1978), (1995), (2003), (2016)
- May 19, 1978 (Asbury Park, NJ)
- September 3, 2023 (East Rutherford, NJ)
+(1978), (1995), (2003), (2016)
+May 19, 1978 (Asbury Park, NJ)
+September 3, 2023 (East Rutherford, NJ)
 
 **Badlands**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:**[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Greatest Hits* *The Essential Bruce Springsteen* *Chapter and Verse*   
-**First performed:**  
-**Last performed:**
+**Released:**[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Greatest Hits* *The Essential Bruce Springsteen* *Chapter and Verse* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
 
 [https://www.youtube.com/embed/-LL_VBOy7r8?feature=oembed](https://www.youtube.com/embed/-LL_VBOy7r8?feature=oembed)

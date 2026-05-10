@@ -40,7 +40,7 @@ The approaching runway is a brilliant metaphor to open the song with, both liter
 
 It’s also important to note the details Bruceinclude: no family or friends are there to greet Johnny when he lands. He is alone, and he remains alone throughout the verse, retreating into a dark corner of a bar rather than engage with anyone.
 
- *doesn’t*
+*doesn’t*
 
 The action shifts now, and Johnny’s wife (or at least his girlfriend) briefly becomes our point-of-view character.
 
@@ -139,14 +139,14 @@ Here’s Bruce’s last performance of “Shut Out the Light” to date, a sombe
 
 January 19, 1983
 (1998) “Born in the U.S.A.” (B-side, 1984); (2025)
- October 22, 1984 (Oakland, CA)
- August 7, 2005 (Milwaukee, WI)
+October 22, 1984 (Oakland, CA)
+August 7, 2005 (Milwaukee, WI)
 
 **Shut Out the Light**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tracks* *L.A. Garage Sessions ’83*   
-**First performed:**  
-**Last performed:**
+**Released:** *Tracks* *L.A. Garage Sessions ’83* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © October 14, 2020 / December 21, 2025

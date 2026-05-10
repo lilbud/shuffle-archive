@@ -55,7 +55,7 @@ That's too bad, because the E Street version is gloriously gritty and features s
 [Watch on Youtube: A Town Called Heartbreak](https://www.youtube.com/watch?v=1J8a884WInk)
 
 **Town Called Heartbreak**
-**Recorded:** Early 2007
-**Released:** *Play It As It Lays* (2007)
-**First performed:** September 25, 2007 (Asbury Park, NJ)
-**Last performed:** November 12, 2007 (Washington, DC)
+**Recorded:** Early 2007<br>
+**Released:** *Play It As It Lays* (2007)<br>
+**First performed:** September 25, 2007 (Asbury Park, NJ)<br>
+**Last performed:** November 12, 2007 (Washington, DC)<br>

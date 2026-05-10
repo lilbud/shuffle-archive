@@ -65,16 +65,16 @@ To this day, “Paradise by the ‘C'” remains Bruce’s only officially relea
 Bruce doesn’t need to (and almost certainly won’t) bring this one back in concert; The Big Man awaits his moment whenever we replay it.
 
 (2015)
- May 23, 1978 (Buffalo, NY)
- August 2, 1988 (Madrid, Spain)
+May 23, 1978 (Buffalo, NY)
+August 2, 1988 (Madrid, Spain)
 
 **Paradise by the “C”**
 Never recorded**  
 
-**Released:** *The River: Outtakes*  
-**First performed:**  
-**Last performed:**
+**Released:** *The River: Outtakes*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

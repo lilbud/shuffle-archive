@@ -64,17 +64,17 @@ Like much of Bruce’s River-era material “Held Up Without a Gun” started ou
 **Bonus:**<https://estreetshuffle.com/wp-content/uploads/2021/10/114-Held-Up-Without-A-Gun.mp3>
 
 February 23 – April 1, 1980
- (2015)
- December 31, 1980 (Uniondale, NY)
- October 25, 2012 (Hartford, CT)
+(2015)
+December 31, 1980 (Uniondale, NY)
+October 25, 2012 (Hartford, CT)
 
 **Held Up Without a Gun**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***The River: Outtakes*  
-**First performed:**  
-**Last performed:**
+**Released:***The River: Outtakes*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

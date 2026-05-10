@@ -42,8 +42,8 @@ The bigger mystery is why the band has yet to break it out in concert, because i
 Perhaps one day we'll get to crash this party, too.
 
 **Without You**
-**Recorded:** January 1995
-**Released:** *Blood Brothers* (1996)
+**Recorded:** January 1995<br>
+**Released:** *Blood Brothers* (1996)<br>
 **Never performed live**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

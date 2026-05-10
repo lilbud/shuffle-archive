@@ -13,9 +13,9 @@ Not bad, but IMO, it doesn’t hold a candle to the original:
 [https://www.youtube.com/embed/3RzBZsOeqOQ?feature=oembed](https://www.youtube.com/embed/3RzBZsOeqOQ?feature=oembed)
 
 November 2, 2002 (Sea Bright, NJ)
- January 14, 2012 (Asbury Park, NJ)
+January 14, 2012 (Asbury Park, NJ)
 
 **Wild in the Streets**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

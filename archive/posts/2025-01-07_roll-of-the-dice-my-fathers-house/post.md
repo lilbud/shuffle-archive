@@ -128,17 +128,17 @@ I am my father’s house now, and as long as I’m here, he has a home.
 (I’m going to take a short break while I join my family in remembering my father. I’ll be back in a week.)
 
 May 25, 1982
- (1982), (2016)
- July 26, 1984 (Toronto, ON)
- September 4, 2021 (New York City, NY)
+(1982), (2016)
+July 26, 1984 (Toronto, ON)
+September 4, 2021 (New York City, NY)
 
 **My Father’s House**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Nebraska* *Chapter and Verse*  
-**First performed:**  
-**Last performed:**
+**Released:***Nebraska* *Chapter and Verse*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -115,16 +115,14 @@ On the River Tour, “The Ties That Bind” was a setlist staple, but it disappe
 [https://www.youtube.com/embed/q83NktVFUD0?feature=oembed](https://www.youtube.com/embed/q83NktVFUD0?feature=oembed)
 
 April 10-11, 1979; April 10, 1980
- (1980), (alternate version) (2015)
- November 1, 1978 (Princeton, NJ)
- June 24, 2023 (Gothenburg, Sweden)
+(1980), (alternate version) (2015)
+November 1, 1978 (Princeton, NJ)
+June 24, 2023 (Gothenburg, Sweden)
 
 **The Ties That Bind**  
-**Recorded:**  
-**Released:** *The River**The Ties That Bind: The River Collection*  
-**First Performed:**  
-**Last Performed:**
+**Recorded:**<br>
+**Released:** *The River**The Ties That Bind: The River Collection*<br>
+**First Performed:**<br>
+**Last Performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -98,7 +98,7 @@ Bruce and the E Street Band take the Magic Tour into its final week with a show 
 
 [https://www.youtube.com/embed/3NNS7DrhHv0?feature=oembed](https://www.youtube.com/embed/3NNS7DrhHv0?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/08/Richmond_Times_Dispatch_2008_08_19_B1.jpg?resize=758%2C807&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/08/Richmond_Times_Dispatch_2008_08_19_B3.jpg?resize=758%2C417&amp;ssl=1)
 

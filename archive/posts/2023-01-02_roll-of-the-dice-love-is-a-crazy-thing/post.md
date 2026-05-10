@@ -71,15 +71,14 @@ So maybe we can cut him a little slack for writing an entire song about a girl w
 “Love Is a Crazy Thing” isn’t one of Bruce’s stronger songs from that period, but it was a signpost pointing to greater things to come.
 
 February 4, 1972 (Richmond, VA)
- February 4, 1972 (Richmond, VA)
+February 4, 1972 (Richmond, VA)
 
 **Love Is a Crazy Thing**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

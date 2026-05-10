@@ -25,5 +25,5 @@ So let's take a moment to watch, remember, and celebrate the life and work of Bi
 [Watch Video Highlight](https://videopress.com/embed/TFgr9lEf)
 
 **Lean on Me**
-**First performed:** June 9, 1989 (Asbury Park, NJ)
-**Last performed:** June 9, 1989 (Asbury Park, NJ)
+**First performed:** June 9, 1989 (Asbury Park, NJ)<br>
+**Last performed:** June 9, 1989 (Asbury Park, NJ)<br>

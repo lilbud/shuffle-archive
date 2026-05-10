@@ -60,9 +60,9 @@ I’ll leave you with Bruce and Joe performing “Talking to the King” at Ligh
 [https://www.youtube.com/embed/JnFv1WiWmeo?feature=oembed](https://www.youtube.com/embed/JnFv1WiWmeo?feature=oembed)
 
 October 17, 1995 (Asbury Park, NJ)
- January 18, 2020 (Asbury Park, NJ)
+January 18, 2020 (Asbury Park, NJ)
 
 **Talking to the King**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

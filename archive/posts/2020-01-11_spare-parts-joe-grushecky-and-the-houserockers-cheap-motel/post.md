@@ -13,5 +13,5 @@ And at the same time, it's neither–It's Joe's song (the lyrics at least) and h
 But Bruce's stamp is on the song through his music and his influence, so it gets an entry on the Shuffle. Plus it's a great song, so enjoy.
 
 **Cheap Motel**
-**Released:** *Coming Home* (1997)
+**Released:** *Coming Home* (1997)<br>
 **Never performed live**

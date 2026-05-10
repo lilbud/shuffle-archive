@@ -97,16 +97,16 @@ If we’re only ever going to get one performance, at least it was a great one, 
 
 June 30, 1977; 2010
 (2010)
- June 17, 2012 (Madrid, Spain)
- June 17, 2012 (Madrid, Spain)
+June 17, 2012 (Madrid, Spain)
+June 17, 2012 (Madrid, Spain)
 
 **Spanish Eyes**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Promise*   
-**First performed:**  
-**Last performed:**
+**Released:** *The Promise* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

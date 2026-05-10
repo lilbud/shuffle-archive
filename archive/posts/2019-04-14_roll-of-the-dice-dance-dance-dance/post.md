@@ -23,16 +23,10 @@ There’s no lyrical depth here, nor should there be, so it doesn’t require or
 
 Bruce performed “Dance, Dance, Dance” with The Bruce Springsteen Band a small handful of times in the summer of 1971, but no studio recordings are known to exist.
 
-N/A
- July 10, 1971 (Lincroft, NJ)
- September 1, 1971 (Long Branch, NJ)
-
 **Dance, Dance, Dance**
-**Recorded:**  
+**Recorded:** N/A<br>
 
-**First performed:**  
-**Last performed:**
+**First performed:** July 10, 1971 (Lincroft, NJ)<br>
+**Last performed:** September 1, 1971 (Long Branch, NJ)<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

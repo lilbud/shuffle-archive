@@ -162,17 +162,16 @@ Unfortunately, by the time Bruce recorded and filmed his Broadway show for offic
 [https://videopress.com/embed/nKNDHlSR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nKNDHlSR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 March-April 2007
- (2007)
- November 11, 2006 (London, England)
- November 18, 2020 (Colts Neck, NJ)
+(2007)
+November 11, 2006 (London, England)
+November 18, 2020 (Colts Neck, NJ)
 
 **Long Walk Home**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Magic*  
-**First performed:**  
-**Last performed:**
+**Released:***Magic*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

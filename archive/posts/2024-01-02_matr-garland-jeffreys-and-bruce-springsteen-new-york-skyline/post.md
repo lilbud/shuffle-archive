@@ -16,5 +16,5 @@ So ignore the boorish fans and give a listen to the beautiful performance belowâ
 
 December 3, 2001 (Asbury Park, NJ)December 8, 2001 (Asbury Park, NJ)
 
-**New York Skyline** **First performed:**   
- **Last performed:**
+**New York Skyline** **First performed:** <br>
+**Last performed:**<br>

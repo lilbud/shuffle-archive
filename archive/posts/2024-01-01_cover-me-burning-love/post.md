@@ -15,9 +15,9 @@ The “hunka hunka’s” are dead giveaways that Bruce has Elvis’ version in 
 [https://www.youtube.com/embed/fKDF5AM3O4k?feature=oembed](https://www.youtube.com/embed/fKDF5AM3O4k?feature=oembed)
 
 April 12, 1995 (New York City, NY)
- April 17, 2014 (Nashville, TN)
+April 17, 2014 (Nashville, TN)
 
 **Burning Love**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

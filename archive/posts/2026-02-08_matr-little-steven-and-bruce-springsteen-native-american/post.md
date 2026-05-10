@@ -33,15 +33,15 @@ Both performances were received generously by the audience, and come across much
 Still, Bruce hasn’t performed “Native American” with Steve in the 30+ years since.
 
 February 1987
- (1987)
- August 21, 1987 (Asbury Park, NJ)
- October 8, 1987 (New York City, NY)
+(1987)
+August 21, 1987 (Asbury Park, NJ)
+October 8, 1987 (New York City, NY)
 
 **Native American**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Freedom–No Compromise*  
-**First performed:**  
-**Last performed:**
+**Released:** *Freedom–No Compromise*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © October 25, 2019

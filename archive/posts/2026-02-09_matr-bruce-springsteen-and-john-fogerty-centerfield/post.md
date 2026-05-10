@@ -29,11 +29,11 @@ When asked for his reaction to the news in an interview at the time, Fogerty dea
 “It came out of left field.”
 
 October 1, 2004 (Philadelphia, PA)
- October 13, 2004 (East Rutherford, NJ)
+October 13, 2004 (East Rutherford, NJ)
 
 **Centerfield**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © June 22, 2021

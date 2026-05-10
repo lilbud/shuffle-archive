@@ -84,6 +84,6 @@ Bruce and former President Barack Obama debut their new podcast: on Spotify. Two
 
 [https://open.spotify.com/embed/episode/7tXg9vz5UMcgWauAqOlQVv?si=7b18ba5445034a95&amp;utm_source=oembed](https://open.spotify.com/embed/episode/7tXg9vz5UMcgWauAqOlQVv?si=7b18ba5445034a95&amp;utm_source=oembed)
 
- 
+
 
 [https://open.spotify.com/embed/episode/1CDiH5BkB1AyZ2q4SWbxG3?si=722e16a8f3904cd3&amp;utm_source=oembed](https://open.spotify.com/embed/episode/1CDiH5BkB1AyZ2q4SWbxG3?si=722e16a8f3904cd3&amp;utm_source=oembed)

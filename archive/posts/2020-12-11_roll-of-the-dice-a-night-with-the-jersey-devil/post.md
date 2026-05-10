@@ -91,17 +91,10 @@ Pretty clever, all in all, but it’s hard to imagine an album that it would fit
 
 [https://www.youtube.com/embed/I-cRhE4diyk?feature=oembed](https://www.youtube.com/embed/I-cRhE4diyk?feature=oembed)
 
-2007-2008
-Digital Download (2008), (b-side, 2009)
-October 31, 2012 (Rochester, NY)
- October 31, 2012 (Rochester, NY)
+**A Night With the Jersey Devil**
+**Recorded:** 2007-2008<br>
+**Released:** *What Love Can Do* Digital Download (2008), (b-side, 2009)<br>
+**First performed:** October 31, 2012 (Rochester, NY)<br>
+**Last performed:** October 31, 2012 (Rochester, NY)<br>
 
-**A Night With the Jersey Devil** **Recorded:**  
-
-**Released:** *What Love Can Do*   
-**First performed:**   
-**Last performed:**
-
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,11 +2,11 @@
 
 “Every chance I got, I returned to stay with my grandparents. It was my true home and they felt like my real parents. I could and would not leave… This was where I needed to be to feel at home, safe, loved…
 
- 
+
 
 It was a place where I felt an ultimate security, full license and a horrible unforgettable boundary-less love… It made me in the sense that it would set me off on a lifelong pursuit of a “singular” place of my own, giving me a raw hunger that drove me, hell-bent, in my music. It was a desperate, lifelong effort to rebuild, on embers of memory and longing, my temple of safety.”
 
- 
+
 
 *–Bruce Springsteen, Born to Run* (2016)
 
@@ -145,15 +145,15 @@ And there we have it: the only known recording of Bruce’s breathtakingly intim
 For me, at least, it was worth the wait.
 
 February 5, 1972 (Richmond, VA)
- April 1972 (Freehold, NJ)
+April 1972 (Freehold, NJ)
 
 **Down to the Riverside**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

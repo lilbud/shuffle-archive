@@ -59,13 +59,12 @@ Where did “Cardi B. backyard” come from?
 
 (1983, Clarence Clemons & The Red Bank Rockers)
 August 14, 1987 (Asbury Park, NJ)
- January 18, 2020 (Asbury Park, NJ)
+January 18, 2020 (Asbury Park, NJ)
 
 **Savin’ Up**  
-**Released:***Rescue*   
-**First Performed:**   
-**Last performed:**
+**Released:***Rescue* <br>
+**First Performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

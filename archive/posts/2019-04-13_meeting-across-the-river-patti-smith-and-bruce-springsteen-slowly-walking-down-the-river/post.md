@@ -7,9 +7,9 @@ Patti performed two shows that night, and Bruce made was on stage for much of bo
 [https://www.youtube.com/embed/EKCxYQ-Ssvw?feature=oembed](https://www.youtube.com/embed/EKCxYQ-Ssvw?feature=oembed)
 
 November 26, 1976 (New York City, NY)
- November 26, 1976 (New York City, NY)
+November 26, 1976 (New York City, NY)
 
 **Slowly Walking Down the River**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

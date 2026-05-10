@@ -140,7 +140,7 @@ Bruce and the E Street Band play their final stateside Wrecking Ball show in Gle
 
 [https://www.youtube.com/embed/w6PPxuE-gL0?feature=oembed](https://www.youtube.com/embed/w6PPxuE-gL0?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/El_Paso_Times_Tue__Dec_11__2012_-scaled.jpg?resize=488%2C2560&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/El_Paso_Times_Tue__Dec_11__2012_-1.jpg?resize=758%2C589&amp;ssl=1)
 

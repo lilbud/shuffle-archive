@@ -94,9 +94,9 @@ Let's just enjoy the song as a light-hearted romp and laugh at the goofy self-mo
 [Watch on Youtube: Southside Johnny & Bruce Springsteen - Talk To Me 2003](https://www.youtube.com/watch?v=xabSr3O3zfo)
 
 **Talk to Me**
-**Recorded:** July-October 1977
-**Released:** *The Promise* (2010)
-**First performed:** September 26, 1991 (Asbury Park, NJ)
-**Last performed:** November 16, 2019 (Asbury Park, NJ)
+**Recorded:** July-October 1977<br>
+**Released:** *The Promise* (2010)<br>
+**First performed:** September 26, 1991 (Asbury Park, NJ)<br>
+**Last performed:** November 16, 2019 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -29,7 +29,7 @@ Not exactly Bruce's most profound songwriting, but "Sax Song" obviously isn't me
 I'm still hoping a finished outtake of this will surface one day.
 
 **Sax Song**
-**Recorded:** September 27, 1977
+**Recorded:** September 27, 1977<br>
 **Never released**
 **Never performed**
 

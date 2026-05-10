@@ -137,16 +137,14 @@ Bruce was working his way towards “Janey, Don’t You Lose Heart” for years 
 [https://www.youtube.com/embed/XhDDJqIJGBQ?feature=oembed](https://www.youtube.com/embed/XhDDJqIJGBQ?feature=oembed)
 
 June 16, 1983
- (single, 1985), (1998), (1999)
- September 27, 1985 (Los Angeles, CA)
- February 14, 2017 (Brisbane, Australia)
+(single, 1985), (1998), (1999)
+September 27, 1985 (Los Angeles, CA)
+February 14, 2017 (Brisbane, Australia)
 
 **Janey, Don’t You Lose Heart**  
-**Recorded:**  
-**Released:***I’m Goin’ Down* *Tracks**18 Tracks*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***I’m Goin’ Down* *Tracks**18 Tracks*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

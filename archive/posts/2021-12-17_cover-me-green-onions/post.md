@@ -17,9 +17,9 @@ How’d they do? You can listen for yourself below, but just remember: you may n
 [https://videopress.com/embed/oaPS4mj6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oaPS4mj6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 November 20, 2009 (Baltimore, MD)
- September 2, 2012 (Philadelphia, PA)
+September 2, 2012 (Philadelphia, PA)
 
 **Green Onions**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

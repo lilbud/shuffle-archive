@@ -104,9 +104,9 @@ And that last time, at Hyde Park–they *nailed* it (even if Bruce truncated the
 [https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/03/D2Track12-Take-Em-As-They-Come.mp3?_=2)
 
 **Take 'em as They Come**
-**Recorded:** December 5, 1979 (backing track), April 10, 1980 (vocals)
-**Released:** *Tracks* (1998)
-**First performed:** June 15, 1999 (Offenbach, Germany)
-**Last performed:** July 14, 2012 (London, England)
+**Recorded:** December 5, 1979 (backing track), April 10, 1980 (vocals)<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** June 15, 1999 (Offenbach, Germany)<br>
+**Last performed:** July 14, 2012 (London, England)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

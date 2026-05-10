@@ -74,8 +74,8 @@ In a sense, "Fugitive's Dream" presaged the style of songwriting that would feat
 Bruce has never performed it , but shockingly it did turn up–once–in a War on Drugs setlist in 2018, proving that band's boss bona fides and seriously impressing Bruce fans who caught the bands' performance in person or on YouTube.
 
 **Unsatisfied Heart**
-**Recorded:** June 13, 1983
-**Released:** *L.A. Garage Sessions '83* (2025), *Lost and Found* (2025)
+**Recorded:** June 13, 1983<br>
+**Released:** *L.A. Garage Sessions '83* (2025), *Lost and Found* (2025)<br>
 **Never performed**
 
 © September 12, 2018 / December 21, 2025

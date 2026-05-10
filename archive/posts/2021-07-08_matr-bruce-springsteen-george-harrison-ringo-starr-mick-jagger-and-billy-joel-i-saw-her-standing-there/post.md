@@ -23,8 +23,8 @@ Just try to watch this without breaking into a goofy grin when Bruce takes the m
 [https://www.youtube.com/embed/oxwAB3SECtc?feature=oembed](https://www.youtube.com/embed/oxwAB3SECtc?feature=oembed)
 
 January 20, 1988 (New York City, NY)
- September 15, 2017 (New York City, NY)
+September 15, 2017 (New York City, NY)
 
 **I Saw Her Standing There**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

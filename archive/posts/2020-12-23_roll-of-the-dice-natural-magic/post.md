@@ -45,15 +45,13 @@ And yet, despite wearing its influences on its sleeve, “Natural Magic” is sw
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/naturalmagic_lyrics-240x300.jpg?resize=758%2C948)
 
 July 10, 1971 (Lincroft, NJ)
- July 29, 1971 (South Amboy, NJ)
+July 29, 1971 (South Amboy, NJ)
 
 **Natural Magic**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

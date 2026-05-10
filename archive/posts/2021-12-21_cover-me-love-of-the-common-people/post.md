@@ -27,9 +27,9 @@ After a couple of performances, the arrangement was solid enough and the band’
 It may have been a late addition to the set list, but “Love of the Common People” proved a perfect complement for a wonderful stretch of shows that don’t get nearly the amount of attention they deserve.
 
 October 21, 2006 (Valencia, Spain)
- October 30, 2006 (Stockholm, Sweden)
+October 30, 2006 (Stockholm, Sweden)
 
 **Love of the Common People**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

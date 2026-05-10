@@ -76,9 +76,9 @@ Yet Bruce has only performed "Angelyne" once in concert, duetting with Bonds at 
 And look how they turned out.
 
 **Angelyne**
-**Recorded:** February 1, 1980 (backing track); 1982 (Bonds and Van Zandt lead vocals)
-**Released:** *On the Line* (1982)
-**First performed:** July 2, 1989 (Long Branch, NJ)
-**Last performed:** July 2, 1989 (Long Branch, NJ)
+**Recorded:** February 1, 1980 (backing track); 1982 (Bonds and Van Zandt lead vocals)<br>
+**Released:** *On the Line* (1982)<br>
+**First performed:** July 2, 1989 (Long Branch, NJ)<br>
+**Last performed:** July 2, 1989 (Long Branch, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

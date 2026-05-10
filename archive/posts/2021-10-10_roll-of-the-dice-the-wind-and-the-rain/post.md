@@ -84,7 +84,7 @@ Imagine if Bruce had dedicated himself to the guitar with the same single-minded
 **The Wind and The Rain**
 Never recorded**
 **Never released**
-**First performed:** April 24, 1970 (West Long Branch, NJ)
-**Last performed:** August 14, 1970 (Richmond, VA)
+**First performed:** April 24, 1970 (West Long Branch, NJ)<br>
+**Last performed:** August 14, 1970 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -75,8 +75,8 @@ The last line of the song implies that our hero has finally joined the brotherho
 **To be continued in Roll of the Dice: [Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)**
 
 **Brothers Under the Bridges**
-**Recorded:** September 14 – October 10, 1983
-**Released:** *Tracks* (1998)
+**Recorded:** September 14 – October 10, 1983<br>
+**Released:** *Tracks* (1998)<br>
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

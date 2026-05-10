@@ -6,7 +6,7 @@ Bruce and his band open for Chicago at the Civic Center in Springfield.
 
 **1973:**
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/06/The_Morning_Union_1973_06_11_4.jpg?resize=758%2C367&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/06/The_Republican_1973_06_11_11.jpg?w=758&amp;ssl=1)
 

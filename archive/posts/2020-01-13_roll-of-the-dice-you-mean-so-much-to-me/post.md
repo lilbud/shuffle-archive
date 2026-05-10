@@ -60,7 +60,7 @@ Look for that story coming soon.
 **You Mean So Much to Me**
 Never recorded**
 **Never released**
-**First performed:** July 10, 1971 (Lincroft, NJ)
-**Last performed:** May 13, 1977 (Red Bank, NJ)
+**First performed:** July 10, 1971 (Lincroft, NJ)<br>
+**Last performed:** May 13, 1977 (Red Bank, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

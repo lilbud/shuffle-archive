@@ -22,5 +22,5 @@ And while Bruce never recorded a cover of it in the studio, we can at least get 
 
 [Watch on Youtube: Bruce Springstone, Take Me Out to the Ball Game](https://www.youtube.com/watch?v=8D3PqhHx5eM)
 
-**Take Me Out to the Ball Game****First performed:** June 13, 1973 (Binghamton, NY)
-**Last performed:** June 13, 1973 (Binghamton, NY)
+**Take Me Out to the Ball Game****First performed:** June 13, 1973 (Binghamton, NY)<br>
+**Last performed:** June 13, 1973 (Binghamton, NY)<br>

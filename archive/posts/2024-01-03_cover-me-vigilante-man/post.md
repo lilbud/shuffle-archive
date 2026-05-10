@@ -88,17 +88,17 @@ But other than a one-off in the UK a month later, we haven’t heard from “Vig
 [https://www.youtube.com/embed/YemLdhH1Ev8?feature=oembed](https://www.youtube.com/embed/YemLdhH1Ev8?feature=oembed)
 
 Late 1987 – Early 1988
- (1988)
- May 19, 1988 (New York, NY)
- June 21, 1988 (Birmingham, England)
+
+May 19, 1988 (New York, NY)
+June 21, 1988 (Birmingham, England)
 
 **Vigilante Man**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***Folkways: A Vision Shared: A Tribute To Woody Guthrie And Leadbelly*   
-**First performed:**  
-**Last performed:**
+**Released:***Folkways: A Vision Shared: A Tribute To Woody Guthrie And Leadbelly* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

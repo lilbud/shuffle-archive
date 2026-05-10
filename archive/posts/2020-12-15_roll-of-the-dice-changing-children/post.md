@@ -102,15 +102,14 @@ But only almost. At least in this performance, Bruce and the band walk a fine li
 That particular super power was still years away.
 
 October 17, 1970 (West Long Branch, NJ)
- January 22, 1971 (Asbury Park, NJ)
+January 22, 1971 (Asbury Park, NJ)
 
 **Change It**
 Never recorded**  
 
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -13,8 +13,8 @@ If you pay close attention at the end, you’ll notice the boys get out of the s
 [https://www.youtube.com/embed/pBaV-gpRnOg?feature=oembed](https://www.youtube.com/embed/pBaV-gpRnOg?feature=oembed)
 
 October 13, 1977 (Asbury Park, NJ)
- October 13, 1977 (Asbury Park, NJ)
+October 13, 1977 (Asbury Park, NJ)
 
-**Down in the Valley** **First performed:**  
+**Down in the Valley** **First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -24,11 +24,10 @@ Bruce performed “Lady Walking Down by the River” with Steel Mill only twice�
 N/AJanuary 13, 1970 (San Francisco, CA)February 28, 1970 (Richmond, VA)
 
 **Lady Walking Down by the River**
-**Recorded:**   
- **First performed:**   
- **Last performed:**   
+**Recorded:** <br>
+**First performed:** <br>
+**Last performed:** <br>
 
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

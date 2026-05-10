@@ -201,17 +201,16 @@ I’ll leave you with one of Bruce’s most recent performances, from the show w
 [https://www.youtube.com/embed/Ez2tGloaHXk?feature=oembed](https://www.youtube.com/embed/Ez2tGloaHXk?feature=oembed)
 
 September 23, 1973
- (1973)
- October 13, 1973 (Washington, DC)
- January 22, 2017 (Perth, Australia)
+(1973)
+October 13, 1973 (Washington, DC)
+January 22, 2017 (Perth, Australia)
 
 **Incident on 57th Street**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *The Wild, The Innocent & The E Street Shuffle*  
-**First performed:**  
-**Last performed:**
+**Released:** *The Wild, The Innocent & The E Street Shuffle*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

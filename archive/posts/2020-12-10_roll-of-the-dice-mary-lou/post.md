@@ -69,13 +69,11 @@ As for “Mary Lou,” she would see the light of day on , almost two decades af
 *Tracks*
 
 May 30, 1979
- (1998), (2015)
+(1998), (2015)
 
 **Mary Lou**   
-**Recorded:**   
-**Released:***Tracks**The River: Outtakes*  
+**Recorded:** <br>
+**Released:***Tracks**The River: Outtakes*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -48,16 +48,16 @@ Will we hear it performed live again someday? Well, this past year would have be
 
 Unknown
 (1997) (Joe’s version); Unreleased (Bruce’s version)
- March 2, 1998 (Pittsburgh, PA)
- October 28, 2005 (Boston, MA)
+March 2, 1998 (Pittsburgh, PA)
+October 28, 2005 (Boston, MA)
 
 **Idiot’s Delight**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Coming Home*   
-**First performed:**  
-**Last performed:**
+**Released:** *Coming Home* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

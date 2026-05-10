@@ -66,9 +66,9 @@ The problem's in the execution.
 [Watch on Youtube: Steel Mill - The Train Song (Live At The Matrix 1970)](https://www.youtube.com/watch?v=BM7k_WmzfIM)
 
 **The Train Song**
-**Recorded:** February 22, 1970
+**Recorded:** February 22, 1970<br>
 **Never released**
-**First performed:** January 13, 1970 (San Francisco, CA)
-**Last performed:** January 13, 1970 (San Francisco, CA)
+**First performed:** January 13, 1970 (San Francisco, CA)<br>
+**Last performed:** January 13, 1970 (San Francisco, CA)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

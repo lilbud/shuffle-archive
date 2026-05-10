@@ -46,7 +46,7 @@ But “Cover Me” rings of paranoia (““) and desperation, especially in the
 
 
 
- *Outside’s the rain, the driving snow*  
+*Outside’s the rain, the driving snow*  
 *I can hear the wild wind blowing*  
 *Turn out the light, bolt the door*  
 *I ain’t going out there no more*
@@ -87,11 +87,10 @@ May 31 – June 2, 1983
 
 
 **Drop on Down and Cover Me**
-**Recorded:**  
+**Recorded:**<br>
 
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

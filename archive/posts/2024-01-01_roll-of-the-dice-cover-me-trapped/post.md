@@ -79,9 +79,8 @@ Never recorded in-studio
 Released (live):**   
 
 *We Are the World* *The Essential Bruce Springsteen*   
-**First performed:** [May 29](http://estreetshuffle.com/index.php/2018/05/29/kingdom-of-days-may-29/)  
-**Last performed:**
+**First performed:** [May 29](http://estreetshuffle.com/index.php/2018/05/29/kingdom-of-days-may-29/)<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

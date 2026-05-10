@@ -29,5 +29,5 @@ The love-fest continued most recently in 2015, when Bruce made a surprise appear
 [Watch on Youtube: U2 & Bruce Springsteen - (HD) I Still Haven't Found What I'm Looking For - July 31, 2015](https://www.youtube.com/watch?v=IR2y_Hjzmy8)
 
 **I Still Haven't Found What I'm Looking For**
-**First performed:** March 14, 2005 (New York City, NY)
-**Last performed:** July 31, 2015 (New York City, NY)
+**First performed:** March 14, 2005 (New York City, NY)<br>
+**Last performed:** July 31, 2015 (New York City, NY)<br>

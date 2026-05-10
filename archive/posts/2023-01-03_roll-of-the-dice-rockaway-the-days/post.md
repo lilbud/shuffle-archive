@@ -117,14 +117,14 @@ Bruce gave no explanation for the one-off arrangement, and he never played the s
 [https://www.youtube.com/embed/eCdCbD6iA7g?feature=oembed](https://www.youtube.com/embed/eCdCbD6iA7g?feature=oembed)
 
 January 12, 1984
- (1998)
+(1998)
 
 **Rockaway the Days**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tracks*  
+**Released:** *Tracks*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

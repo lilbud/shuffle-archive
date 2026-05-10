@@ -88,8 +88,8 @@ I'm still listening for that Top 40 hook, though.
 
 **Bishop Danced**
 Never recorded**
-**Released:** *Tracks* (1998) (live version)
-**First performed:** December 7, 1972 (New York City, NY)
-**Last performed:** November 19, 2012 (Denver, CO)
+**Released:** *Tracks* (1998) (live version)<br>
+**First performed:** December 7, 1972 (New York City, NY)<br>
+**Last performed:** November 19, 2012 (Denver, CO)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

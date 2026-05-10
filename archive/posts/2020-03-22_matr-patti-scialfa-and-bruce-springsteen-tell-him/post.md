@@ -25,5 +25,5 @@ And as for that fateful performance back in 1984... well, nothing came of it tha
 The rest is well-documented history.
 
 **Tell Him**
-**First performed:** April 13, 2002 (Asbury Park, NJ)
-**Last performed:** May 30, 2015 (Oakland, NJ)
+**First performed:** April 13, 2002 (Asbury Park, NJ)<br>
+**Last performed:** May 30, 2015 (Oakland, NJ)<br>

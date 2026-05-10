@@ -74,6 +74,6 @@ Bruce and the E Street Band bring their World Tour to Saint Paul, where they tou
 
 [https://www.youtube.com/embed/_1zgH3SsaT0?feature=oembed](https://www.youtube.com/embed/_1zgH3SsaT0?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Star_Tribune_Mon__Mar_6__2023_.jpg?resize=758%2C970&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/Star_Tribune_Mon__Mar_6__2023_-1.jpg?resize=758%2C936&amp;ssl=1)

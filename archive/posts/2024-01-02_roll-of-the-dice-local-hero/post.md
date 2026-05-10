@@ -109,16 +109,15 @@ It was almost a full decade before Bruce tried again, this time by request on th
 [https://www.youtube.com/embed/ELEGhf7dMJw?feature=oembed](https://www.youtube.com/embed/ELEGhf7dMJw?feature=oembed)
 
 Late 1991
- (1992), (1993)
- May 6, 1992 (New York City, NY)
- April 14, 2023 (Newark, NJ)
+(1992), (1993)
+May 6, 1992 (New York City, NY)
+April 14, 2023 (Newark, NJ)
 
 **Local Hero**  
-**Recorded:**  
-**Released:***Lucky Town**In Concert/MTV Plugged*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Lucky Town**In Concert/MTV Plugged*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

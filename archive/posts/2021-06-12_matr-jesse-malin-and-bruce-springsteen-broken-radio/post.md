@@ -44,12 +44,12 @@ Bruce seemed to be really feeling the lyrics that night, in a way he hadn’t ju
 Perhaps that’s reading too much into it. Regardless, both the studio and 2011 live performance of “Broken Radio” remain among my all-time favorite Springsteen collaborations.
 
 August 2006 (audio), April 18, 2007 (video)
- (2007)
- January 16, 2010 (Asbury Park, NJ)
- January 18, 2020 (Asbury Park, NJ)
+(2007)
+January 16, 2010 (Asbury Park, NJ)
+January 18, 2020 (Asbury Park, NJ)
 
 **Broken Radio**  
-**Recorded:**  
-**Released:***Glitter in the Gutter*   
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Glitter in the Gutter* <br>
+**First performed:**<br>
+**Last performed:**<br>

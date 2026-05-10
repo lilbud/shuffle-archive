@@ -15,5 +15,5 @@ But most importantly, it was a killer performance, one that still holds up today
 [Watch on Youtube: The Wallflowers - One Headlight (Official Music Video)](https://www.youtube.com/watch?v=Zzyfcys1aLM)
 
 **One Headlight**
-**First performed:** September 4, 1997 (New York City, NY)
-**Last performed:** September 4, 1997 (New York City, NY)
+**First performed:** September 4, 1997 (New York City, NY)<br>
+**Last performed:** September 4, 1997 (New York City, NY)<br>

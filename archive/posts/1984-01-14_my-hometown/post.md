@@ -185,9 +185,9 @@ Today Bruce lives ten minutes from his hometown, which tells us all we need to k
 [https://videopress.com/embed/Hl3yZQHU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Hl3yZQHU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 **My Hometown**  
-**Recorded:** June 29, 1983  
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *L.A. Garage Sessions ’83* (2025)  
-**First performed:** June 8, 1984 (Asbury Park, NJ)  
-**Last performed:** July 3, 2025 (Milan, Italy)
+**Recorded:** June 29, 1983<br>
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *L.A. Garage Sessions ’83* (2025)<br>
+**First performed:** June 8, 1984 (Asbury Park, NJ)<br>
+**Last performed:** July 3, 2025 (Milan, Italy)<br>
 
 © April 9, 2020 / December 21, 2025

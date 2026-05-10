@@ -45,12 +45,12 @@ But it was only a matter of weeks between those smoky Back Door performances and
 [It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)
 
 February 4, 1972 (Richmond, VA)*
- February 4, 1972 (Richmond, VA)
+February 4, 1972 (Richmond, VA)
 
 **Sitting on Top of the World**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 
 

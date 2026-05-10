@@ -152,9 +152,9 @@ February 25, 1988 (Worcester, MA)
 May 14, 2014 (Houston, TX)
 
 **One Step Up**  
-**Recorded:**  
-**Released:** [Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*The Essential Bruce Springsteen*  
-**First performed:**   
-**Last performed:**
+**Recorded:**<br>
+**Released:** [Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*The Essential Bruce Springsteen*<br>
+**First performed:** <br>
+**Last performed:**<br>
 
 (c) August 17, 2018

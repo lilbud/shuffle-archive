@@ -190,17 +190,17 @@ The 2020 official video for “The Rising” wasn’t the first video for the so
 [https://www.youtube.com/embed/6i-fiRgbpr4?feature=oembed](https://www.youtube.com/embed/6i-fiRgbpr4?feature=oembed)
 
 February-March 2002
- (2002), (2003), (2016)
- July 25, 2002 (Asbury Park, NJ)
- September 3, 2023 (East Rutherford, NJ)
+(2002), (2003), (2016)
+July 25, 2002 (Asbury Park, NJ)
+September 3, 2023 (East Rutherford, NJ)
 
 **The Rising**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***The Rising**The Essential Bruce Springsteen**Chapter and Verse*  
-**First performed:**  
-**Last performed:**
+**Released:***The Rising**The Essential Bruce Springsteen**Chapter and Verse*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

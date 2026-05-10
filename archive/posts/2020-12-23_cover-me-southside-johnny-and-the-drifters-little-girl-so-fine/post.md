@@ -85,14 +85,9 @@ It was a highlight of Steve’s Summer of Sorcery tour to hear “Little Girl So
 
 [https://www.youtube.com/embed/l1IiErAx2P8?feature=oembed](https://www.youtube.com/embed/l1IiErAx2P8?feature=oembed)
 
-December 1976 or early 1977
- (1977)
-
 **Little Girl So Fine**  
-**Recorded:**  
-**Released:** *This Time It’s For Real*  
+**Recorded:** December 1976 or early 1977<br>
+**Released:** *This Time It’s For Real* (1977)<br>
 **Never performed live**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

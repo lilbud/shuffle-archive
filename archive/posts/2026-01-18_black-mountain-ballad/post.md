@@ -46,8 +46,8 @@ I believe Bruce was searching for a way to contrast the words we utter when newl
 Early 1983(2025)
 
 **Black Mountain Ballad**
-**Recorded:**   
- **Released:**   
+**Recorded:** <br>
+**Released:** <br>
 *L.A. Garage Sessions ’83*  **Never performed**  
 
 

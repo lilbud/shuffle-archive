@@ -49,9 +49,9 @@ You can vote and vote often–once a day through April 30th.
 Let’s do this.
 
 January 18, 1989 (New York City, NY)
- January 18, 1989 (New York City, NY)
+January 18, 1989 (New York City, NY)
 
 **River Deep-Mountain High**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

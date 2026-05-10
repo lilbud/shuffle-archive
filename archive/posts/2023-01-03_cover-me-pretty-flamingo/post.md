@@ -53,9 +53,9 @@ But what if they did?
 [https://www.youtube.com/embed/kPcul80-FMc?feature=oembed](https://www.youtube.com/embed/kPcul80-FMc?feature=oembed)
 
 September 13, 1975 (Houston, TX)
- August 30, 2016 (East Rutherford, NJ)
+August 30, 2016 (East Rutherford, NJ)
 
 **Pretty Flamingo**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -124,7 +124,7 @@ View this post on Instagram
 
 
 
- 
+
 
 Upon returning to Dublin later in the day, Bruce pays a visit to the late Shane MacGowan, former lead singer of The Pogues.
 

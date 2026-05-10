@@ -13,7 +13,7 @@ We don’t have a recording from that night, but we do have one from a few weeks
 [https://www.youtube.com/embed/OIaKy1vM9hs?feature=oembed](https://www.youtube.com/embed/OIaKy1vM9hs?feature=oembed)
 
 March 4, 1988 (Chapel Hill, NC)
- April 4, 1988 (Largo, MD)
+April 4, 1988 (Largo, MD)
 
 **Crazy Love**  
 **Never performed live**  

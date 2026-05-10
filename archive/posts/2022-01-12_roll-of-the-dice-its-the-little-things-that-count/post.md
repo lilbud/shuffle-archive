@@ -50,9 +50,9 @@ Still, Bruce recorded it not once but *twice* in the studio–first in 1995 for 
 It may be little known, but it counts.
 
 **It's the Little Things That Count**
-**Recorded:** 1995, 2004
+**Recorded:** 1995, 2004<br>
 **Never released**
-**First performed:** November 27, 1995 (Los Angeles, CA)
-**Last performed:** February 20, 2003 (Somerville, MA)
+**First performed:** November 27, 1995 (Los Angeles, CA)<br>
+**Last performed:** February 20, 2003 (Somerville, MA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

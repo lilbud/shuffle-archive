@@ -26,18 +26,11 @@ Bruce hasn’t performed the song since 1988, but he actually did perform it onc
 
 [https://videopress.com/embed/6l3WlkHI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6l3WlkHI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-July 3, 1988
- (1988)
- September 1, 1978 (Detroit, MI)
- October 15, 1988 (Buenos Aires, Argentina)
-
 **Chimes of Freedom**
-**Recorded:**  
+**Recorded:** July 3, 1988<br>
+**Released:** *Chimes of Freedom* (1988)<br>
+**First performed:** September 1, 1978 (Detroit, MI)<br>
+**Last performed:** October 15, 1988 (Buenos Aires, Argentina)<br>
 
-**Released:***Chimes of Freedom*  
-**First performed:**  
-**Last performed:**
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

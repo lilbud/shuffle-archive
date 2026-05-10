@@ -9,9 +9,9 @@ It was a pretty faithful cover–judge for yourself by comparing with the origin
 [https://www.youtube.com/embed/W77Kwh6f0TE?feature=oembed](https://www.youtube.com/embed/W77Kwh6f0TE?feature=oembed)
 
 February 23, 2014 (Hunter Valley, Australia)
- February 23, 2014 (Hunter Valley, Australia)
+February 23, 2014 (Hunter Valley, Australia)
 
 **Spill the Wine**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

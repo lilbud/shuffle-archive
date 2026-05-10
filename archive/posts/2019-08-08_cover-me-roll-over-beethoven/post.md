@@ -13,5 +13,5 @@ Berry's 1956 original wasn't a huge hit upon initial release–it didn't even cr
 Nevertheless, besides a 2017 Asbury Park jam session mash-up appearance, that 2009 performance is our only opportunity to hear Bruce perform it.
 
 **Roll Over Beethoven**
-**First performed:** May 14, 1971 (Asbury Park, NJ)
-**Last performed:** April 21, 2017 (Asbury Park, NJ)
+**First performed:** May 14, 1971 (Asbury Park, NJ)<br>
+**Last performed:** April 21, 2017 (Asbury Park, NJ)<br>

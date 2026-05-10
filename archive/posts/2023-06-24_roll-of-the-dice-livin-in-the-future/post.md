@@ -122,9 +122,9 @@ There were hints of unrest to come, of course: a polarized electorate, a nascent
 Looking back from today, we can clearly see the breadcrumbs. But back then.... well, none of this had happened yet.
 
 **Livin' in the Future**
-**Recorded:** March 2007
-**Released:** *Magic* (2007)
-**First performed:** September 24, 2007 (Asbury Park, NJ)
-**Last performed:** August 30, 2008 (Milwaukee, WI)
+**Recorded:** March 2007<br>
+**Released:** *Magic* (2007)<br>
+**First performed:** September 24, 2007 (Asbury Park, NJ)<br>
+**Last performed:** August 30, 2008 (Milwaukee, WI)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every month!

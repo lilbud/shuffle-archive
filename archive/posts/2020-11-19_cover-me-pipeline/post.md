@@ -15,5 +15,5 @@ Did I say rehearsal? If that was a rehearsal, imagine what a concert performance
 I'm not often one to proclaim a cover to be stronger than the original (especially for an acknowledged classic), but Bruce Springsteen and the E Street Band absolutely owned "Pipeline" in this brief performance–the only time they are known to have played this surf rock landmark.
 
 **Pipeline**
-**First performed:** February 22, 1980 (Holmdel, New Jersey)
-**Last performed:** February 22, 1980 (Holmdel, New Jersey)
+**First performed:** February 22, 1980 (Holmdel, New Jersey)<br>
+**Last performed:** February 22, 1980 (Holmdel, New Jersey)<br>

@@ -25,9 +25,9 @@ Yeah, I admit: it’s probably a stretch to label this a Springsteen performance
 And yes: that’s Patti you see providing backing vocals surrounded by Jagger, Dylan, and Harrison, while Bruce looks on from far stage right. That may be in part because Bruce was accompanied that evening by his wife, Julianne, providing an ironic subtext in retrospect.
 
 January 20, 1988 (New York City, NY)
- January 20, 1988 (New York City, NY)
+January 20, 1988 (New York City, NY)
 
 **Stop! In the Name of Love**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -84,9 +84,9 @@ In the same promotional interview, Bruce says that was trying to say that "hey, 
 Have a different or personal take on "Paradise?" Share your thoughts below!
 
 **Paradise**
-**Recorded:** February-March, 2002
-**Released:** *The Rising* (2002)
-**First performed:** July 30, 2002 (Asbury Park, NJ)
-**Last performed:** August 13, 2005 (Vancouver, BC)
+**Recorded:** February-March, 2002<br>
+**Released:** *The Rising* (2002)<br>
+**First performed:** July 30, 2002 (Asbury Park, NJ)<br>
+**Last performed:** August 13, 2005 (Vancouver, BC)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -82,16 +82,15 @@ He also gave it the Seeger Sessions treatment on the EP, but again it lacked the
 “Bobby Jean” is simply one of those songs born perfect. Played in its original arrangement (but with less synth), it’s a powerful encore statement of eternal friendship and community that will probably never leave Bruce’s setlist for long. It’s one of the few songs that has never missed a tour since its debut.
 
 January 1982-February 1984
- (1984), (2007)
- June 29, 1984 (St. Paul, MN)
- July 25, 2023 (Monza, Italy)
+(1984), (2007)
+June 29, 1984 (St. Paul, MN)
+July 25, 2023 (Monza, Italy)
 
 **Bobby Jean**  
-**Recorded:**  
-**Released:***Born in the U.S.A.**Bruce Springsteen with the Sessions Band PBS Exclusive*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Born in the U.S.A.**Bruce Springsteen with the Sessions Band PBS Exclusive*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

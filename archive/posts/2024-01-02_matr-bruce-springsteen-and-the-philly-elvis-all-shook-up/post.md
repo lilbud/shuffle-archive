@@ -21,8 +21,8 @@ And yeah… the original 1957 version is pretty great, too.
 [https://www.youtube.com/embed/23zLefwiii4?feature=oembed](https://www.youtube.com/embed/23zLefwiii4?feature=oembed)
 
 October 19, 2009 (Philadelphia, PA)
- October 19, 2009 (Philadelphia, PA)
+October 19, 2009 (Philadelphia, PA)
 
 **All Shook Up**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

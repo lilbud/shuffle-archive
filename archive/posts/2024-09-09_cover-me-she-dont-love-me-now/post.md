@@ -53,9 +53,9 @@ Besides Springsteen, the album features covers by Bleachers, Counting Crows, Elv
 Don’t miss it.
 
 2024
- (2024)
+(2024)
 
 **She Don’t Love Me Now**  
-**Recorded:**  
-**Released:***Silver Patron Saints: The Songs of Jesse Malin*  
+**Recorded:**<br>
+**Released:***Silver Patron Saints: The Songs of Jesse Malin*<br>
 **Never performed**

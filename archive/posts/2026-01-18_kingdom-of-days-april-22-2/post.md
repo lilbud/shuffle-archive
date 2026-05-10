@@ -84,7 +84,7 @@ Bruce soundchecks a new song, “American Skin (41 Shots),” before the Reunion
 
 [https://videopress.com/embed/0Yx6HV13?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0Yx6HV13?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
- 
+
 
 At a second public rehearsal/benefit show (held in the afternoon) at Asbury Park’s Paramount Theater for his upcoming solo tour, Bruce premieres “Reno” and surprises fans with the return of the Christic arrangement of “Real World.” The bullet mic makes its debut on “Reason to Believe” and will remain a fixture on both this tour as well as the Magic Tour (albeit with very different arrangements).
 

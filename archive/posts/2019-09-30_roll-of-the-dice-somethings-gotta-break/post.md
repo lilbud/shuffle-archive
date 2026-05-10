@@ -66,5 +66,5 @@ Any takers?
 **Something's Gotta Break**
 Never recorded**
 **Never released**
-**First performed:** May 23, 1970 (Richmond, VA)
-**Last performed:** June 13, 1970 (Bricktown, NJ)
+**First performed:** May 23, 1970 (Richmond, VA)<br>
+**Last performed:** June 13, 1970 (Bricktown, NJ)<br>

@@ -15,5 +15,5 @@ Fortunately, the venue was intimate enough that several filmers were able to pre
 [Watch on Youtube: Bruce Springsteen & Jimmy Cliff "Harder They Come" at Austin City Limits (SxSW 2012)](https://www.youtube.com/watch?v=fdQK_ivIgLw)
 
 **The Harder They Come**
-**First performed:** March 15, 2012 (Austin, TX)
-**Last performed:** March 15, 2012 (Austin, TX)
+**First performed:** March 15, 2012 (Austin, TX)<br>
+**Last performed:** March 15, 2012 (Austin, TX)<br>

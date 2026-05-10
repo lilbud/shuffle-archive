@@ -112,9 +112,9 @@ A deep cut in every sense, “House of a Thousand Guitars” is the letter in *L
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=c-W_0R1V4TA)
 
 **House of a Thousand Guitars  
-**Recorded:** November 2019  
-**Released:** *Letter to You* (2020)  
-**First performed:** November 18, 2020 (Colts Neck, NJ)  
-**Last performed:** April 23, 2026 (Sunrise, FL)
+**Recorded:** November 2019<br>
+**Released:** *Letter to You* (2020)<br>
+**First performed:** November 18, 2020 (Colts Neck, NJ)<br>
+**Last performed:** April 23, 2026 (Sunrise, FL)<br>
 
 © April 23, 2021

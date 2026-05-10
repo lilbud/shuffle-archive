@@ -15,13 +15,12 @@ The song actually grew by a couple of lines over the three weeks and seven ralli
 Somehow, I don’t think we’re going to see this one included in a box set any time soon.
 
 October 18, 2012 (Parma, OH)
- November 5, 2012 (Columbus, OH)
+November 5, 2012 (Columbus, OH)
 
 **Forward!**  
 **Never recorded or released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

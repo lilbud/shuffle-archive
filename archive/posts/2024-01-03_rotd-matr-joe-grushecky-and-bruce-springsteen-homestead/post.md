@@ -102,16 +102,16 @@ It’s been more than a decade since we’ve last seen them perform it together 
 
 November 1993 (Grushecky version), Unknown (Springsteen version)
 (1995) (Grushecky version)
- October 17, 1995 (Asbury Park, NJ)
- November 3, 2011 (Pittsburgh, PA)
+October 17, 1995 (Asbury Park, NJ)
+November 3, 2011 (Pittsburgh, PA)
 
 **Homestead**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *American Babylon*   
-**First performed:**  
-**Last performed:**
+**Released:** *American Babylon* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

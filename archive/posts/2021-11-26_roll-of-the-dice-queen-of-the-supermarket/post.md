@@ -135,12 +135,11 @@ I’m in love with “Queen of the Supermarket.”
 May 6, 2009 (Stockholm, Sweden)May 7, 2013 (Turku, Finland)
 
 **Queen of the Supermarket**
-**Recorded:**   
- **Released:**   
+**Recorded:** <br>
+**Released:** <br>
 *Working on a Dream*   
-**First performed:**  **Last performed:**   
+**First performed:**  **Last performed:** <br>
 
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

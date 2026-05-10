@@ -137,12 +137,11 @@ Chalk up its continuing absence from the E Street stage as just anther of the my
 March 10, 2005 (Asbury Park, NJ) July 20, 2013 (Belfast, Northern Ireland)
 
 **Maria’s Bed**
-**Recorded:**   
- **Released:**   
+**Recorded:** <br>
+**Released:** <br>
 *Devils & Dust*   
-**First performed:**  **Last performed:**  
+**First performed:**  **Last performed:**<br>
 
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -124,9 +124,9 @@ April 24, 1983
 (2025)
 
 **Richfield Whistle**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *L.A. Garage Sessions ’83*   
+**Released:** *L.A. Garage Sessions ’83* <br>
 **Never performed**
 
 © December 1, 2022

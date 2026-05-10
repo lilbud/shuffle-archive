@@ -31,9 +31,9 @@ Luckily, we’ve got the one performance where Bruce absolutely nailed the balan
 [https://www.youtube.com/embed/JWaQUBrs_sU?feature=oembed](https://www.youtube.com/embed/JWaQUBrs_sU?feature=oembed)
 
 September 9, 1978 (South Bend, IN)
- April 19, 2014 (Charlotte, NC)
+April 19, 2014 (Charlotte, NC)
 
 **Louie Louie**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

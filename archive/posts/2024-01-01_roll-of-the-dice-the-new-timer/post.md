@@ -120,17 +120,16 @@ On the 2005 tour, however, Bruce took a crack at it, arranging it for the autoha
 “The New Timer” is based on a book written in the mid-eighties; Bruce wrote the song in the mid-nineties. It was still relevant and resonant when he performed it live ten years later, and it’s still timely more than a decade on still. We can but hope and work toward a day when it will sound as dated as it ought to.
 
 (1995)
- November 30, 1995 (Berkely, CA)
- November 19, 2005 (Hollywood, FL)
+November 30, 1995 (Berkely, CA)
+November 19, 2005 (Hollywood, FL)
 
 **The New Timer**
 Recorded: March-August, 1995
-**Released:**   
+**Released:** <br>
 
 *The Ghost of Tom Joad*   
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -55,7 +55,7 @@ Watch Bruce spontaneously decide to keep it going when Joe tries to end it at ar
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=IgNDpFCzDvA)
 
 **Great Balls of Fire**
-**First performed:** October 29, 1990 (San Fernando Valley, CA)  
-**Last performed:** November 5, 2022 (Los Angeles, CA)
+**First performed:** October 29, 1990 (San Fernando Valley, CA)<br>
+**Last performed:** November 5, 2022 (Los Angeles, CA)<br>
 
 © August 10, 2022

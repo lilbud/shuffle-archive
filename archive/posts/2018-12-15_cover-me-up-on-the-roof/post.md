@@ -15,5 +15,5 @@ Unfortunately, of the seven times Bruce performed the song that summer, not a on
 Bruce's performances of "Up on the Roof" were sweet and tender, unlikely candidates for translation into today's arenas and stadiums. We've likely heard the last of "Up on the Roof" from Bruce in concert. Fortunately, we can listen to these documents and conjure the magic of those performances.
 
 **Up on the Roof**
-**First performed:** July 30, 1975 (Washington, DC)
-**Last performed:** August 16, 1975 (New York City, NY)
+**First performed:** July 30, 1975 (Washington, DC)<br>
+**Last performed:** August 16, 1975 (New York City, NY)<br>

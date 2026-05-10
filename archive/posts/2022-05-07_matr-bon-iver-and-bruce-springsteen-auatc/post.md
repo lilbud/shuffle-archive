@@ -26,7 +26,7 @@ Presumably that’s by intent, in keeping with the song’s theme. But for hardc
 (single) (August 5, 2020)
 
 **AUATC**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *AUATC*   
+**Released:** *AUATC* <br>
 **Never performed**

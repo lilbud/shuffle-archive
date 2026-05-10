@@ -17,11 +17,11 @@ A few years later, Joan Osborne rescued the song from obscurity and included a m
 [https://www.youtube.com/embed/HGCEF9wUgxI?feature=oembed](https://www.youtube.com/embed/HGCEF9wUgxI?feature=oembed)
 
 December 3, 2001 (Asbury Park, NJ)
- December 3, 2001 (Asbury Park, NJ)
+December 3, 2001 (Asbury Park, NJ)
 
 **Santa Claus Baby**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) November 29, 2019 by Ken Rosen

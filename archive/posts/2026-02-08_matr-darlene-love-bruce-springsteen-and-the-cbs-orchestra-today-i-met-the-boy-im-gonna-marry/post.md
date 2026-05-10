@@ -9,11 +9,11 @@ Only parts of the song were broadcast, but it documented the only time Bruce is 
 [https://videopress.com/embed/6fI9NRMy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6fI9NRMy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 March 14, 2011 (New York City, NY)
- March 14, 2011 (New York City, NY)
+March 14, 2011 (New York City, NY)
 
 **Today I Met the Boy I’m Gonna Marry**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © November 12, 2018

@@ -37,7 +37,7 @@ Yet Bruce has only performed one post-1985 "Do You Love Me" in all the years sin
 By that time, though, he no longer needed to ask.
 
 **Do You Love Me**
-**First performed:** July 18, 1984 (Rosemont, IL)
-**Last performed:** July 17, 1988 (Munich, West Germany)
+**First performed:** July 18, 1984 (Rosemont, IL)<br>
+**Last performed:** July 17, 1988 (Munich, West Germany)<br>
 
 (c) December 1, 2021

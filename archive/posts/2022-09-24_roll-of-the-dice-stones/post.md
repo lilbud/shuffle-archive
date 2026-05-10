@@ -88,9 +88,9 @@ It's only a minor misstep, though, and the studio track still outshines its live
 Like the rest of *Western Stars*, "Stones" wasn't meant to be reproduced on the stage. I'm not saying we'll never hear Bruce play it live, but I don't believe we'll ever hear a live performance that surpasses the studio version. When you've crafted a jewel box of a record, it's pretty darn hard to top it in concert.
 
 **Stones**
-**Recorded:** 2010-2019
-**Released:** *Western Stars* (2019)
-**First performed:** April 2019 (Colts Neck, NJ)
-**Last performed:** April 2019 (Colts Neck, NJ)
+**Recorded:** 2010-2019<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

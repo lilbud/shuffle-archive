@@ -59,11 +59,11 @@ The song loses some of its power when performed as a duet, however, and even tho
 [https://www.youtube.com/embed/oCTK3Rl0yms?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/oCTK3Rl0yms?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
 October 5, 2006 (Verona, Italy)
- October 5, 2006 (Verona, Italy)
+October 5, 2006 (Verona, Italy)
 
 **Valerie**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © December 13, 2020

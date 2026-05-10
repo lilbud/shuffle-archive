@@ -84,8 +84,8 @@ Until then, we're left to choose our own adventure.
 ![](https://estreetshuffle.com/wp-content/uploads/2019/12/loosechange_lyrics-sheet-1.jpg)
 
 **Loose Change**
-**Recorded:** January 31, 1991
-**Released:** *Tracks* (1998)
+**Recorded:** January 31, 1991<br>
+**Released:** *Tracks* (1998)<br>
 **Never Performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

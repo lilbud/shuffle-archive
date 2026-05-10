@@ -24,13 +24,8 @@ It took twelve years for them to play it again, this time at Right to Rock 2012 
 
 [https://www.youtube.com/embed/0oGpSh8gvig?feature=oembed](https://www.youtube.com/embed/0oGpSh8gvig?feature=oembed)
 
-November 1981
-(1982)
-January 31, 1998 (Red Bank, NJ)
-October 16, 2012 (New York City, NY)
-
-**Until the Good is Gone** **Recorded:**  
-
-**Released:** *Men Without Women*   
-**First performed:**   
-**Last performed:**
+**Until the Good is Gone**
+**Recorded:** November 1981<br>
+**Released:** *Men Without Women* (1982)<br>
+**First performed:** January 31, 1998 (Red Bank, NJ)<br>
+**Last performed:** October 16, 2012 (New York City, NY)<br>

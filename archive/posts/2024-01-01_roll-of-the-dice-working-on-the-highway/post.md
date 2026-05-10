@@ -66,19 +66,18 @@ Pretty amazing how the slower melody lets the meaning of the lyrics leap out at 
 You’re welcome.
 
 (“Child Bride” version): Dec 1981/Jan 1982
- (final version): May 1982
+(final version): May 1982
 : (1984)
- June 29, 1984 (St. Paul, MN)
- November 6, 2023 (New York City, NY)
+June 29, 1984 (St. Paul, MN)
+November 6, 2023 (New York City, NY)
 
 **Working on the Highway**
 Recorded**  
 
 **Recorded**  
 **Released***Born in the U.S.A.*   
-**First Performed:**  
-**Last Performed:**
+**First Performed:**<br>
+**Last Performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

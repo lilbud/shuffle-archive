@@ -25,7 +25,7 @@ But we can still relive both his 1988 and 1998 performances thanks to official r
 [Spotify Embed: Get Up, Stand Up - Live](https://open.spotify.com/embed/track/0oU46mS0BO7QxHYEQKKRCX?utm_source=oembed)
 
 **Get Up, Stand Up**
-**First performed:** September 2, 1988 (London, England)
-**Last performed:** December 10, 1998 (Paris, France)
+**First performed:** September 2, 1988 (London, England)<br>
+**Last performed:** December 10, 1998 (Paris, France)<br>
 
 (c) November 13, 2020

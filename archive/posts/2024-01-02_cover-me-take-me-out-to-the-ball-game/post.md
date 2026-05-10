@@ -29,8 +29,8 @@ And while Bruce never recorded a cover of it in the studio, we can at least get 
 [https://www.youtube.com/embed/8D3PqhHx5eM?feature=oembed](https://www.youtube.com/embed/8D3PqhHx5eM?feature=oembed)
 
 June 13, 1973 (Binghamton, NY)
- June 13, 1973 (Binghamton, NY)
+June 13, 1973 (Binghamton, NY)
 
-**Take Me Out to the Ball Game** **First performed:**  
+**Take Me Out to the Ball Game** **First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

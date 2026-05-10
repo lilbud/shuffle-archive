@@ -49,17 +49,10 @@ But here’s one of my favorites–from one of the very last Steel Mill concerts
 
 [https://www.youtube.com/embed/KY5oUCPdx14?feature=oembed](https://www.youtube.com/embed/KY5oUCPdx14?feature=oembed)
 
-February 22, 1970
-
- February 28, 1970 (Richmond, VA) (and probably earlier, although we lack documentation)
- October 23, 1971 (Richmond, VA)
-
 **Goin’ Back to Georgia**  
-**Recorded:**  
+**Recorded:** February 22, 1970<br>
 **Never released**  
-**First performed:**  
-**Last performed:**
+**First performed:** February 28, 1970 (Richmond, VA) (and probably earlier, although we lack documentation)<br>
+**Last performed:** October 23, 1971 (Richmond, VA)<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -9,8 +9,8 @@ Bon Jovi’s original 2000 single peaked at #33 in the U.S., but it topped the c
 [https://www.youtube.com/embed/vx2u5uUu3DE?feature=oembed](https://www.youtube.com/embed/vx2u5uUu3DE?feature=oembed)
 
 December 7, 2003 (Asbury Park, NJ)
- December 7, 2003 (Asbury Park, NJ)
+December 7, 2003 (Asbury Park, NJ)
 
 **It’s My Life**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

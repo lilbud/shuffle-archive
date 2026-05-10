@@ -42,10 +42,10 @@ Bruce read the lyrics, agreed, and recorded his contribution in two takes. The r
 
 Autumn 1977
 (1978)
- (by Bruce)
+(by Bruce)
 
 **Street****Hassle
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Street Hassle*   
+**Released:** *Street Hassle* <br>
 **Never performed**

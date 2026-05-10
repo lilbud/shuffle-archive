@@ -17,7 +17,7 @@ But that wasn’t the first time Bruce played that song with Pete and Roger–th
 [https://www.youtube.com/embed/SHhrZgojY1Q?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/SHhrZgojY1Q?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Won’t Get Fooled Again**  
-**First performed:** January 17, 1990 (New York City, NY)  
-**Last performed:** May 28, 2015 (New York City, NY)
+**First performed:** January 17, 1990 (New York City, NY)<br>
+**Last performed:** May 28, 2015 (New York City, NY)<br>
 
 © August 30, 2018

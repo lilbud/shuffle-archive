@@ -130,16 +130,16 @@ But in a nice bit of circle closure, shortly before his death Johnny Cash record
 
 May 11, 1982
 (1984)
- June 29, 1984 (Saint Paul, MN)
- July 2, 2023 (Oslo, Norway)
+June 29, 1984 (Saint Paul, MN)
+July 2, 2023 (Oslo, Norway)
 
 **I’m on Fire**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *Born in the U.S.A.*   
-**First performed:**  
-**Last performed:**
+**Released:** *Born in the U.S.A.* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -41,10 +41,10 @@ It’s a tender reading, and it’s one of my favorite moments of the 2013 tour.
 [https://www.youtube.com/embed/u9U8Le7hz5Q?feature=oembed](https://www.youtube.com/embed/u9U8Le7hz5Q?feature=oembed)
 
 August 20, 1984 (East Rutherford, NJ)
- May 28, 2013 (Hannover, Germany)
+May 28, 2013 (Hannover, Germany)
 
 **Drift Away**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) June 14, 2019

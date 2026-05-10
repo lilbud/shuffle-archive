@@ -72,17 +72,17 @@ Bruce was wise to leave it off of but equally wise to dust it off three decades 
 *Darkness* *The Promise*
 
 September 27, 1977
- (2010)
- December 7, 2010 (Asbury Park, NJ)
- December 7, 2010 (Asbury Park, NJ)
+(2010)
+December 7, 2010 (Asbury Park, NJ)
+December 7, 2010 (Asbury Park, NJ)
 
 **Outside Looking In**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *The Promise*  
-**First performed:**  
-**Last performed:**
+**Released:** *The Promise*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

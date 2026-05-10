@@ -116,16 +116,15 @@ No surprise that Bruce opened his first U.S. reunion show with the E Street Band
 [https://www.youtube.com/embed/i0gycxFYxiA?feature=oembed](https://www.youtube.com/embed/i0gycxFYxiA?feature=oembed)
 
 May 5, 1982
- (1998), (1999), (2001)
- March 18, 1999 (Asbury Park, NJ)
- July 13, 2023 (Copenhagen, Denmark)
+(1998), (1999), (2001)
+March 18, 1999 (Asbury Park, NJ)
+July 13, 2023 (Copenhagen, Denmark)
 
 **My Love Will Not Let You Down**  
-**Recorded:**  
-**Released:***Tracks**18 Tracks**Live in New York City*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Tracks**18 Tracks**Live in New York City*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

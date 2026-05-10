@@ -25,7 +25,7 @@ Bruce's cover was warm, bright, and merry, setting the tone for the festive show
 Other than a one-off cover at a private holiday party the following year (for which no recording circulates), Bruce hasn't performed "Jingle Bell Rock" since.
 
 **Jingle Bell Rock**
-**First performed:** December 3, 2001 (Asbury Park, NJ)
-**Last performed:** December 22, 2002 (Asbury Park, NJ)
+**First performed:** December 3, 2001 (Asbury Park, NJ)<br>
+**Last performed:** December 22, 2002 (Asbury Park, NJ)<br>
 
 (c) December 16, 2020 by Ken Rosen

@@ -103,17 +103,17 @@ Will we ever hear from “Leavin’ Train” again?
 I suspect not. That particular train has left the station, and with luck there’s a burnin’ one on the way.
 
 February 27, 1990
- (1998)
- May 22, 2014 (Pittsburgh, PA)
- May 23, 2014 (Pittsburgh, PA)
+(1998)
+May 22, 2014 (Pittsburgh, PA)
+May 23, 2014 (Pittsburgh, PA)
 
 **Leavin’ Train**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tracks*  
-**First performed:**  
-**Last performed:**
+**Released:** *Tracks*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -143,14 +143,14 @@ In the years since “Spare Parts” has been completely absent from Bruce’s s
 *Devils & Dust,*
 
 January 20, 1987
- (1988)
- February 25, 1988 (Worcester, MA)
- November 21, 2005 (Trenton, NJ)
+
+February 25, 1988 (Worcester, MA)
+November 21, 2005 (Trenton, NJ)
 
 **Spare Parts**  
-**Recorded:**  
-**Released:** *Tunnel of Love*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Tunnel of Love*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) January 8, 2019

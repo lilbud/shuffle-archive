@@ -206,17 +206,16 @@ Bruce’s vocals are more gruff in the filmed version as well. Some might like t
 [https://www.youtube.com/embed/k3N6IxnkW1k?feature=oembed](https://www.youtube.com/embed/k3N6IxnkW1k?feature=oembed)
 
 Unknown
- (2019)
- April 2019
- April 2019
+(2019)
+April 2019
+April 2019
 
 **Moonlight Motel**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Western Stars*  
-**First performed:**  
-**Last performed:**
+**Released:** *Western Stars*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

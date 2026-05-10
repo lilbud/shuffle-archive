@@ -38,7 +38,7 @@ We’ll break it down in a moment, but as with every track on , we need to first
 
 The introduction features Bruce plucking idly at his acoustic guitar, while a viola establishes a scene that quickly fades into the background as Bruce’s vocals draw us into his narrator’s deceptively ambivalent musing.
 
- *Guess it was something I shouldn’t have done*  
+*Guess it was something I shouldn’t have done*  
 *Guess I regret it now*  
 *Ever since I was a kid*  
 *Trying to keep my temper down is like*  
@@ -145,17 +145,16 @@ Bruce has been coy when asked whether we’ll ever hear any of the songs played 
 “Chasin’ Wild Horses” is in the latter category. It’s a perfect song, perfectly situated on a perfect album, and perhaps that’s where it should remain.
 
 Unknown
- (2019)
- April 2019 (exact date unknown) (Colts Neck, NJ)
- April 2019 (exact date unknown) (Colts Neck, NJ)
+(2019)
+April 2019 (exact date unknown) (Colts Neck, NJ)
+April 2019 (exact date unknown) (Colts Neck, NJ)
 
 **Chasin’ Wild Horses**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Western Stars*   
-**First performed:**  
-**Last performed:**
+**Released:***Western Stars* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

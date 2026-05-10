@@ -16,4 +16,4 @@ For that story, listen to the interview with the man who recorded it [here](http
 
 **Omaha**
 **First performed**: September 16, 1967 (Freehold, NJ)
-**Last performed:** September 30, 1967 (Freehold, NJ)
+**Last performed:** September 30, 1967 (Freehold, NJ)<br>

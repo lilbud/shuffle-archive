@@ -177,9 +177,9 @@ Although the 1973 single went nowhere chart-wise, "Spirit in the Night" remains 
 Regardless of whether it was inspired by The Bard, The Band, the poet, or the girlfriend, its magic belongs to The Boss.
 
 **Spirit in the Night**
-**Recorded:** September 11, 1972 – October 26, 1972
-**Released:** *Greetings from Asbury Park, N.J.* (1973), *The Essential Bruce Springsteen* (2003)
-**First performed:** January 31, 1973 (New York City, NY)
-**Last performed:** November 22, 2024 (Vancouver, BC)
+**Recorded:** September 11, 1972 – October 26, 1972<br>
+**Released:** *Greetings from Asbury Park, N.J.* (1973), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** January 31, 1973 (New York City, NY)<br>
+**Last performed:** November 22, 2024 (Vancouver, BC)<br>
 
 © March 1, 2020

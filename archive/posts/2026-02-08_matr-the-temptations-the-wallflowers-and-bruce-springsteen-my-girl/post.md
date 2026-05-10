@@ -39,11 +39,11 @@ He never attempted it on stage again.
 Maybe it just works better at home?
 
 June 3, 1979 (West Hollywood, CA)
- December 22, 2002 (Asbury Park, NJ)
+December 22, 2002 (Asbury Park, NJ)
 
 **My Girl**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © October 26, 2022

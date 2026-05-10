@@ -2,7 +2,7 @@
 
 “I remember when I was nine years old and my mother had on and Elvis came on. I sat there and I said, ‘When I grow up, I wanna be just like that.’ I remember I was sitting at home when somebody called me up and told me that he died. It´s something I still think about all the time… how somebody that had so much and was so alive inside could end up losing so bad and seeming so lonely.”*The Ed Sullivan Show*
 
- 
+
 
 — Bruce Springsteen, September 2, 1981
 
@@ -134,17 +134,17 @@ Bruce replied: “I don’t know… Everybody makes their maps, and people will 
 He paused and added: “And everybody struggles.”
 
 January 1983
- (1985), (1998)
- May 13, 1981 (Manchester, England)
- April 3, 1985 (Melbourne, Australia)
+(1985), (1998)
+May 13, 1981 (Manchester, England)
+April 3, 1985 (Melbourne, Australia)
 
 **Johnny Bye-Bye**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *I’m on Fire**Tracks*  
-**First performed:**  
-**Last performed:**
+**Released:** *I’m on Fire**Tracks*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

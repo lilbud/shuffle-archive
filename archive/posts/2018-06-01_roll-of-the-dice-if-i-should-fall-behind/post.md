@@ -90,9 +90,9 @@ Five years after the performance above, and five months after I originally publi
 [Watch on Youtube: ''If I Should Fall Behind'' - Bruce Springsteen & Patti Scialfa - New York City, NY - Nov. 5th, 2018](https://www.youtube.com/watch?v=JkZ7FCpeJWk)
 
 **If I Should Fall Behind**
-**Recorded:** September 1991 – January 1992
-**Released:** *Lucky Town* (1992), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007).
-**First performed:** June 8, 1991 (Beverly Hills, CA)
-**Last performed:** November 5, 2018 (New York City, NY)
+**Recorded:** September 1991 – January 1992<br>
+**Released:** *Lucky Town* (1992), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007).<br>
+**First performed:** June 8, 1991 (Beverly Hills, CA)<br>
+**Last performed:** November 5, 2018 (New York City, NY)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

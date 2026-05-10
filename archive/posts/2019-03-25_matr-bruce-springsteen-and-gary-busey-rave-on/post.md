@@ -37,5 +37,5 @@ Holly's version debuted only two months later, and his version would be the one 
 [Watch on Youtube: Buddy Holly - Rave on!](https://www.youtube.com/watch?v=0IUV-QxwlRM)
 
 **Rave On**
-**First performed:** July 7, 1978 (Los Angeles, CA)
-**Last performed:** September 7, 1984 (Hartford, CT)
+**First performed:** July 7, 1978 (Los Angeles, CA)<br>
+**Last performed:** September 7, 1984 (Hartford, CT)<br>

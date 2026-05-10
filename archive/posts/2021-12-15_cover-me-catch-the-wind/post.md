@@ -13,9 +13,9 @@ Fortunately, their performance was captured on tape, so we can listen to the onl
 [https://www.youtube.com/embed/cWHSJa5fpZ8?feature=oembed](https://www.youtube.com/embed/cWHSJa5fpZ8?feature=oembed)
 
 September 16, 1967 (Freehold, NJ)
- September 16, 1967 (Freehold, NJ)
+September 16, 1967 (Freehold, NJ)
 
 **Catch the Wind**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

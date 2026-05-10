@@ -64,7 +64,7 @@ Got a theory about the hidden meaning of "Sure Can Feel the Pain?" I'd love to h
 **Sure Can Feel the Pain**
 Never Recorded
 Never Released
-**First performed:** December 3, 1971 (Asbury Park, NJ)
-**Last performed:** December 3, 1971 (Asbury Park, NJ)
+**First performed:** December 3, 1971 (Asbury Park, NJ)<br>
+**Last performed:** December 3, 1971 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -51,16 +51,15 @@ Well, knock me down with a feather: we finally have a document of Bruce playing 
 [https://videopress.com/embed/UmOLrDkm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UmOLrDkm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 May 18, 1966
- (2016)
+(2016)
 November 2019 (Colts Neck, NJ)
- November 2019 (Colts Neck, NJ)
+November 2019 (Colts Neck, NJ)
 
 **Baby I**  
-**Recorded:**   
-**Released:** *Chapter & Verse*  
-**First performed:**   
-**Last performed:**
+**Recorded:** <br>
+**Released:** *Chapter & Verse*<br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

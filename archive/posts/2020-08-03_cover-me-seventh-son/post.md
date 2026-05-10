@@ -21,9 +21,9 @@ But he was also tickled, and never one to back away from a challenge, Bruce game
 [Where the Band Was report](http://estreetshuffle.com/index.php/2018/05/02/where-the-band-was-greensboro-may-2-2009/)
 
 May 2, 2009 (Greensboro, NC)
- May 2, 2009 (Greensboro, NC)
+May 2, 2009 (Greensboro, NC)
 
 **Seventh Son**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

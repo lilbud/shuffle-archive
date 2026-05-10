@@ -141,16 +141,15 @@ Here’s three minutes of Patti and Nils rehearsing their backing vocals in 1995
 
 May 3-4, 1982
 (1995), (2003)
- February 21, 1995 (New York City, NY)
- February 2, 2017 (Melbourne, Australia)
+February 21, 1995 (New York City, NY)
+February 2, 2017 (Melbourne, Australia)
 
 **Murder Incorporated**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Greatest Hits* *The Essential Bruce Springsteen*  
-**First performed:**  
-**Last performed:**
+**Released:** *Greatest Hits* *The Essential Bruce Springsteen*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -2,11 +2,11 @@
 
 “I was with my parents in Amarillo, and there was this blinding dust storm–you couldn’t even see across the street. Everybody had bandannas across their faces to keep the dust out. We were at a Pontiac dealership, and this guy was selling cars. Suddenly, he said, ‘And now we’ve got a kid up here that’s gonna play a little piano for you.’ And it was Jerry Lee Lewis–just him and a piano, flailing away.
 
- 
+
 
 “The wind was blowing so hard, it was knocking the microphone stand over, and you couldn’t hardly see the stage through all the dust. Jerry Lee would play a couple songs, then the guy would sell his Pontiacs, and he gave away hot dogs all covered in dirt from the storm. It was just surreal, and my little 7- or 8-year-old mind was saying, ‘Damn–that’s what I want to do when grow up!’”*I*
 
- 
+
 
 –Joe Ely, November 17, 1992*Los Angeles Times,*
 
@@ -71,9 +71,9 @@ At the Rock and Roll Hall of Fame induction ceremony in 2022, attendees (includi
 [https://www.youtube.com/embed/x5T_Jgxew0o?feature=oembed](https://www.youtube.com/embed/x5T_Jgxew0o?feature=oembed)
 
 October 29, 1990 (San Fernando Valley, CA)
- November 5, 2022 (Los Angeles, CA)
+November 5, 2022 (Los Angeles, CA)
 
 **Great Balls of Fire**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

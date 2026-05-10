@@ -9,9 +9,9 @@ This was Bruce’s one and only performance to date of “Sweet Virginia.” Her
 [https://www.youtube.com/embed/5R3xFy85fVE?feature=oembed](https://www.youtube.com/embed/5R3xFy85fVE?feature=oembed)
 
 February 6, 1998 (Sea Bright, NJ)
- February 6, 1998 (Sea Bright, NJ)
+February 6, 1998 (Sea Bright, NJ)
 
 **Sweet Virginia**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

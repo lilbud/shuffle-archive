@@ -51,7 +51,7 @@ Summer's only just beginning, though, and we'll have some stronger Bruce Springs
 **Last Night in Texas**
 Never recorded**
 **Never released**
-**First performed:** May 15, 1971 (Union, NJ)
-**Last performed:** May 15, 1971 (Union, NJ)
+**First performed:** May 15, 1971 (Union, NJ)<br>
+**Last performed:** May 15, 1971 (Union, NJ)<br>
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

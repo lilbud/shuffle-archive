@@ -79,8 +79,8 @@ So don't ask me which is the stronger song–at least not yet. We'll pick up thi
 [Watch on Youtube: Bruce Springsteen Candy's Boy Darkness Session Outtake](https://www.youtube.com/watch?v=RxpYXYO-heQ)
 
 **Candy's Boy**
-**Recorded:** June 1977
-**Released:** *The Promise* (2010)
+**Recorded:** June 1977<br>
+**Released:** *The Promise* (2010)<br>
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

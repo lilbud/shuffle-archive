@@ -23,9 +23,9 @@ Bruce’s guitar couldn’t quite synthesize the sitar effect; the vocals are mu
 Still, it was a valiant effort that no doubt stretched the young band to new heights. Bruce would start vaulting over increasingly higher bars soon enough.
 
 September 16, 1967 (Freehold, NJ)
- September 16, 1967 (Freehold, NJ)
+September 16, 1967 (Freehold, NJ)
 
 **See My Friends**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

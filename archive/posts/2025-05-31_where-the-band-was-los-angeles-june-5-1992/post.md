@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**Today’s guest blogger is friend of the blog TJ Jones, who was one of the very few fans in attendance at a very special show: Bruce’s first and only rehearsal show with his full eleven-person 1992-93 touring band, just ten days before the tour kicked off in Stockholm.*
 

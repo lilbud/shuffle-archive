@@ -99,14 +99,13 @@ There are several studio outtakes of “Candy’s Boy” floating around out the
 [https://www.youtube.com/embed/RxpYXYO-heQ?feature=oembed](https://www.youtube.com/embed/RxpYXYO-heQ?feature=oembed)
 
 June 1977
- (2010)
+(2010)
 
 **Candy’s Boy**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Promise*  
+**Released:** *The Promise*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

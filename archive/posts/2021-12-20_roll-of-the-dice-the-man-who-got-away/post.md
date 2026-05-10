@@ -95,14 +95,13 @@ Although it took more than 35 years for us to get an official release of “The 
 [https://www.youtube.com/embed/XNBuiArqUzQ?feature=oembed](https://www.youtube.com/embed/XNBuiArqUzQ?feature=oembed)
 
 June 13-July 5, 1979
- (2015)
+(2015)
 
 **The Man Who Got Away**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Ties That Bind: The River Collection*  
+**Released:** *The Ties That Bind: The River Collection*<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

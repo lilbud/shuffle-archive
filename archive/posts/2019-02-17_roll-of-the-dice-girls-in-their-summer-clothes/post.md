@@ -138,9 +138,9 @@ By request (my thanks to the fan who made the sign), Bruce played an impromptu v
 If we're fortunate enough to get at least one more solo acoustic tour, this is one song that I hope becomes a setlist staple. It's too beautiful to ignore, and it's one song that Bruce can only grow into, never out of.
 
 **Girls in Their Summer Clothes**
-**Recorded:** March-May 2007
-**Released:** *Magic* (2007), *Girls in Their Summer Clothes* (2008, winter mix)
-**First performed:** September 24, 2007 (Asbury Park, NJ)
-**Last performed:** February 7, 2014 (Perth, Australia)
+**Recorded:** March-May 2007<br>
+**Released:** *Magic* (2007), *Girls in Their Summer Clothes* (2008, winter mix)<br>
+**First performed:** September 24, 2007 (Asbury Park, NJ)<br>
+**Last performed:** February 7, 2014 (Perth, Australia)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

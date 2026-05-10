@@ -22,7 +22,7 @@ Bruce and the band cancel a scheduled show at Butler University when the school 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-02b.jpg?resize=752%2C337&amp;ssl=1)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01d.jpg?resize=437%2C689&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/04/1976-04-01c.jpg?resize=622%2C663&amp;ssl=1)
 
@@ -90,6 +90,6 @@ Bruce tour debuts “Jungleland” at Madison Square Garden when the reprise of 
 
 [https://www.youtube.com/embed/9mqNMGFafbI?feature=oembed](https://www.youtube.com/embed/9mqNMGFafbI?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Asbury_Park_Press_Tue__Apr_4__2023_-scaled.jpg?resize=758%2C234&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Asbury_Park_Press_Tue__Apr_4__2023_-1-scaled.jpg?resize=758%2C180&amp;ssl=1)

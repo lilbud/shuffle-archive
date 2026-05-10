@@ -28,10 +28,10 @@ So it’s no surprise to learn that Bruce covers it frequently during cover sets
 [Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)<http://estreetshuffle.com/wp-content/uploads/2018/11/Bruce-Springsteen-16-Carol-Lucille-online-audio-converter.com_.mp3>
 
 August 2, 1978 (Charlotte, NC)
- September 14, 2024 (Asbury Park, NJ)
+September 14, 2024 (Asbury Park, NJ)
 
 **Lucille**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) November 29, 2018

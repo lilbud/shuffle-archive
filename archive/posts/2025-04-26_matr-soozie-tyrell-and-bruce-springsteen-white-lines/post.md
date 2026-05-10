@@ -28,7 +28,7 @@ May 2002
 (2003)
 
 **White Lines**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *White Lines*   
+**Released:** *White Lines* <br>
 **Never performed**

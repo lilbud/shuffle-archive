@@ -50,16 +50,16 @@ Curiously, though, while several Seeger Sessions songs have re-appeared in the y
 
 March 19, 2005
 
- April 20, 2006 (Asbury Park, NJ)
- November 21, 2006 (Belfast, Northern Ireland)
+April 20, 2006 (Asbury Park, NJ)
+November 21, 2006 (Belfast, Northern Ireland)
 
 **Old Dan Tucker**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** [(2006)](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*We Shall Overcome: The Seeger Sessions*  
-**First performed:**  
-**Last performed:**
+**Released:** [(2006)](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*We Shall Overcome: The Seeger Sessions*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -13,8 +13,8 @@ Amazingly, Billy never released “New York State of Mind” as a single, but th
 [https://www.youtube.com/embed/F5LkGKJDc3Q?feature=oembed](https://www.youtube.com/embed/F5LkGKJDc3Q?feature=oembed)
 
 October 16, 2008 (New York City, NY)
- October 29, 2009 (New York City, NY)
+October 29, 2009 (New York City, NY)
 
 **New York State of Mind**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

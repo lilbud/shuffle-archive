@@ -134,17 +134,17 @@ In a stripped-down arrangement with warm vocals, the full plaintive power of the
 [https://www.youtube.com/embed/NDNZ2Unv4Mg?feature=oembed](https://www.youtube.com/embed/NDNZ2Unv4Mg?feature=oembed)
 
 2011
- (2012)
- February 10, 2012 (Los Angeles, CA)
- June 22, 2016 (Copenhagen, Denmark)
+(2012)
+February 10, 2012 (Los Angeles, CA)
+June 22, 2016 (Copenhagen, Denmark)
 
 **We Take Care of Our Own**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Wrecking Ball*  
-**First performed:**  
-**Last performed:**
+**Released:** *Wrecking Ball*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

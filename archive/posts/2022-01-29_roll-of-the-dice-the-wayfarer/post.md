@@ -64,9 +64,9 @@ That's *Western Stars.*
 [Watch on Youtube: The Wayfarer - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=y_JLo3dl_9c)
 
 **The Wayfarer**
-**Recorded:** March 18, 2010 – early 2019
-**Released:** *Western Stars* (2019)
-**First performed:** April 2019 (Colts Neck, NJ)
-**Last performed:** April 2019 (Colts Neck, NJ)
+**Recorded:** March 18, 2010 – early 2019<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

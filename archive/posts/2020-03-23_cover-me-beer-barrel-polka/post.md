@@ -25,9 +25,9 @@ Could Danny pull it off? Of course he could. Watch and see:
 That fleeting minute accounts for the only time that Bruce Springsteen and the E Street Band have covered “Beer Barrel Polka” in public. I wouldn’t advise holding your breath waiting for another.
 
 September 27, 2003 (Milwaukee, WI)
- September 27, 2003 (Milwaukee, WI)
+September 27, 2003 (Milwaukee, WI)
 
 **Beer Barrel Polka**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

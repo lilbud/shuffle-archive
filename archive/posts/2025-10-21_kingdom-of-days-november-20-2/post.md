@@ -24,7 +24,7 @@ Bruce and the E Street Band bring the Darkness Tour to the University of Illinoi
 
 [https://www.youtube.com/embed/yhJqumucMCY?feature=oembed](https://www.youtube.com/embed/yhJqumucMCY?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Illini_Tue__Nov_28__1978_.jpg?resize=758%2C705&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Illini_Thu__Nov_30__1978_.jpg?resize=758%2C542&amp;ssl=1)
 

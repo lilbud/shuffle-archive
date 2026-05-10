@@ -114,17 +114,17 @@ Following that solo debut, Bruce played it twice more with the E Street Band, on
 With only three performances ever, “Iceman” remains a rarity–too misunderstood to be fully appreciated and too stately-sounding to sustain the momentum of an E Street Band concert. It’s likely to remain one of Bruce’s most under-the-radar and underappreciated tracks.
 
 October 27, 1977
- (1998)
- May 17, 2005 (Philadelphia, PA)
- July 13, 2016 (Paris, France)
+(1998)
+May 17, 2005 (Philadelphia, PA)
+July 13, 2016 (Paris, France)
 
 **Iceman**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Tracks*   
-**First performed:**  
-**Last performed:**
+**Released:***Tracks* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

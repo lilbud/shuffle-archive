@@ -72,17 +72,16 @@ It took 14 years for “Fade Away” to make a return appearance to Bruce’s se
 When Bruce dropped the full album concept after the U.S. leg, “Fade Away” lived up to its name. Except for the three rare European full-album shows, “Fade Away” hasn’t been seen since.
 
 March-June 1980
- (1980)
+(1980)
 November 1, 1980 (Los Angeles, CA)
 July 28, 2016 (Oslo, Norway)
 
 **Fade Away**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:** *The River*  
-**First performed:**   
-**Last performed:**
+**Released:** *The River*<br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

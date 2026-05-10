@@ -24,6 +24,7 @@ In any event, as far as we know, Bruce never recorded “Precious Memories” in
 
 September-December 1981 (demo only)
 
-**Precious Memories** **Recorded:**  
+**Precious Memories**
+**Recorded:**<br>
 
 **Never performed live**

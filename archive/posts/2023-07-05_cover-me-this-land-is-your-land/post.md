@@ -124,14 +124,14 @@ Looking back on that day years later, Bruce marveled:
 *So on that day, Pete and myself and generations of young and old Americans – all colors, religious beliefs – I realized that sometimes things that come from the outside, they make their way in, to become a part of the beating heart of the nation. And on that day, when we sung that song, Americans – young and old, black and white, of all religious and political beliefs – were united, for a brief moment, by Woody’s poetry.*
 
 December 28, 1980 (live)(1986) December 28, 1980 (Uniondale, NY)
- June 3, 2013 (Milan, Italy)
+June 3, 2013 (Milan, Italy)
 
 **This Land Is Your Land**
-**Recorded:**   
- **Released:**   
-*Live 1975-85*  **First performed:**  
+**Recorded:** <br>
+**Released:** <br>
+*Live 1975-85*  **First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our . New entries every month!
 

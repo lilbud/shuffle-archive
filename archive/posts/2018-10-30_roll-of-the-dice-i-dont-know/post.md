@@ -15,7 +15,7 @@ Might there be a finished version of the song somewhere in the vault?
 Perhaps, but baby...
 
 **I Don't Know**
-**Recorded:** Autumn 1979 (early demo only)
+**Recorded:** Autumn 1979 (early demo only)<br>
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

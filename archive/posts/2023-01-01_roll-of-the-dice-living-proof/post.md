@@ -157,17 +157,16 @@ Of the 98 times Bruce has played “Living Proof” to date, only once has he pl
 [https://videopress.com/embed/uJ7EeWz5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uJ7EeWz5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 July-December 1991
- (1992), (2003), (2016)
- May 6, 1992 (New York City, NY)
- August 30, 2016 (East Rutherford, NJ)
+(1992), (2003), (2016)
+May 6, 1992 (New York City, NY)
+August 30, 2016 (East Rutherford, NJ)
 
 **Living Proof**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Lucky Town**The Essential Bruce Springsteen* *Chapter and Verse*   
-**First performed:**  
-**Last performed:**
+**Released:***Lucky Town**The Essential Bruce Springsteen* *Chapter and Verse* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

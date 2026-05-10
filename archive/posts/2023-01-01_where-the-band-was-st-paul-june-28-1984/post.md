@@ -2,7 +2,7 @@
 
 Editor's Note
 
- 
+
 
 *Editor’s Note:**My* [Where the Band Was](http://estreetshuffle.com/index.php/category/where-the-band-was/) *series started out as a way to share my own personal stories from the Springsteen shows I’ve seen, but now that we’re more than a full year in and in between tours, my stories have pretty much all been told.*
 

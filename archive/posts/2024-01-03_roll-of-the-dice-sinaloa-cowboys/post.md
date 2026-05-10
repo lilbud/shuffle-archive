@@ -2,11 +2,11 @@
 
 “The cookers themselves–recruited from the fields–sometimes are not aware of the dangers. Hydriodic acid… eats through not only skin but concrete. If inhaled, its fumes cause chemical pneumonia, which can bring a quick, painful death.
 
- 
+
 
 “‘We have no idea how may dead Mexicans we find in the desert died from breathing in meth fumes,’ one DEA agent said.”
 
- 
+
 
 — Mark Arax and Tom Gorman, March 13, 1995*Los Angeles Times,*
 
@@ -120,16 +120,16 @@ The Sinaloa Cartel remains the most dominant drug cartel in Mexico to this day.
 
 March-August, 1995
 (1995)
- October 28, 1995 (Mountain View, CA)
- October 20, 2005 (Worcester, MA)
+October 28, 1995 (Mountain View, CA)
+October 20, 2005 (Worcester, MA)
 
 **Sinaloa Cowboys**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Ghost of Tom Joad*   
-**First performed:**  
-**Last performed:**
+**Released:** *The Ghost of Tom Joad* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

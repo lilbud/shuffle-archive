@@ -23,9 +23,9 @@ Here’s that one-time-only performance, clearly influenced more by The Rivieras
 [https://www.youtube.com/embed/DIukXYvEQPc?feature=oembed](https://www.youtube.com/embed/DIukXYvEQPc?feature=oembed)
 
 November 9, 2007 (New York City, NY)
- April 26, 2012 (Los Angeles, CA)
+April 26, 2012 (Los Angeles, CA)
 
 **California Sun**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

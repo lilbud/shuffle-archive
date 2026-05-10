@@ -62,9 +62,9 @@ Bruce hasn’t performed “Crying” in public since that 1989 salute, but Orbi
 *Rolling Stone’s*
 
 September 30, 1987 (Los Angeles, CA)
- January 18, 1989 (New York City, NY)
+January 18, 1989 (New York City, NY)
 
 **Crying**
-**First performed:**   
+**First performed:** <br>
 
-**Last performed:**
+**Last performed:**<br>

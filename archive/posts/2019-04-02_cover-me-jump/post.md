@@ -16,5 +16,5 @@ That show was essentially the rehearsal for the U.S. leg of the *High Hopes* Tou
 
 [Watch Video Highlight](https://videopress.com/embed/GpTncJij)
 
-**Jump****First performed:** April 6, 2014 (Dallas, TX)
-**Last performed:** May 19, 2014 (Uncasville, CT)
+**Jump****First performed:** April 6, 2014 (Dallas, TX)<br>
+**Last performed:** May 19, 2014 (Uncasville, CT)<br>

@@ -41,9 +41,9 @@ Three months later, Gibb would return the favor. Check out his of Bruce’s “�
 [cover](http://estreetshuffle.com/index.php/2019/07/05/cover-me-barry-gibb-im-on-fire/)[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
 February 26, 2014 (Brisbane, Australia)
- May 17, 2014 (Uncasville, CT)
+May 17, 2014 (Uncasville, CT)
 
 **Stayin’ Alive**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>

@@ -19,5 +19,5 @@ That night in 2003 was the first and only time Bruce has played "Tell Me Why" in
 [Watch Video Highlight](https://videopress.com/embed/EahETezG)
 
 **Tell Me Why**
-**First performed:** April 13, 2002 (Asbury Park, NJ)
-**Last performed:** April 30, 2003 (Asbury Park, NJ)
+**First performed:** April 13, 2002 (Asbury Park, NJ)<br>
+**Last performed:** April 30, 2003 (Asbury Park, NJ)<br>

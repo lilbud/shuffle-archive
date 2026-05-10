@@ -126,17 +126,17 @@ The song they came to play that night was the song that truly showcases the amaz
 [https://www.youtube.com/embed/ZS93U0TJd-c?feature=oembed](https://www.youtube.com/embed/ZS93U0TJd-c?feature=oembed)
 
 June 28, 1973 – September 23, 1973
- (1973)
- July 20, 1973 (New York City, NY)
- September 3, 2023 (East Rutherford, NJ)
+(1973)
+July 20, 1973 (New York City, NY)
+September 3, 2023 (East Rutherford, NJ)
 
 **Kitty’s Back**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***The Wild, The Innocent & The E Street Shuffle*  
-**First performed:**  
-**Last performed:**
+**Released:***The Wild, The Innocent & The E Street Shuffle*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

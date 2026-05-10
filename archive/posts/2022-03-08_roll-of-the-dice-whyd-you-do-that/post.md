@@ -26,7 +26,7 @@ But let's not hold that against him. Written and performed at the tender age of 
 **Why'd You Do That?**
 Never recorded
 Never released
-**First performed:** July 17, 1970 (Asbury Park, NJ)
-**Last performed:** October 11, 1970 (Richmond, VA)
+**First performed:** July 17, 1970 (Asbury Park, NJ)<br>
+**Last performed:** October 11, 1970 (Richmond, VA)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -82,14 +82,13 @@ Bruce has yet to perform “City of Night” in concert (although he soundchecke
 “City of Night” will likely remain on its late-night ride, forever closing (it could never be anything other than a closer) a vintage album that never was.
 
 October 14, 1977
- (2010)
+(2010)
 
 **City of Night**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***The Promise*   
+**Released:***The Promise* <br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -158,9 +158,9 @@ Joe Marshall Jr. passed away a year later. Youngstown still waits for those jobs
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jmpBkoXfpww)
 
 **Youngstown  
-**Recorded:** June 16, 1995  
-**Released:** *The Ghost of Tom Joad* (1995)  
-**First performed:** November 21, 1995 (New Brunswick, NJ)  
-**Last performed:** April 23, 2026 (Sunrise, FL)
+**Recorded:** June 16, 1995<br>
+**Released:** *The Ghost of Tom Joad* (1995)<br>
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** April 23, 2026 (Sunrise, FL)<br>
 
 © May 1, 2023

@@ -95,7 +95,7 @@ June 27, 1972
 
 
 **Jazz Musician**
-**Recorded:**   
+**Recorded:** <br>
 
 **Never released**  
 **Never performed**

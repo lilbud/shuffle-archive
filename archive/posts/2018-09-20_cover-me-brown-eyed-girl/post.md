@@ -17,5 +17,5 @@ But even though Bruce has performed it a dozen times over the years, only three 
 [Watch on Youtube: Bruce Springsteen Brown Eyed Girl w/Official Audio Adelaide 2017](https://www.youtube.com/watch?v=Bhktk0Qj4gc)
 
 **Brown Eyed Girl**
-**First performed:** August 20, 1994 (Long Branch, NJ)
-**Last performed:** January 30, 2017 (Adelaide, Australia)
+**First performed:** August 20, 1994 (Long Branch, NJ)<br>
+**Last performed:** January 30, 2017 (Adelaide, Australia)<br>

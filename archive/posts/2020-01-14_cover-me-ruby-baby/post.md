@@ -23,5 +23,5 @@ Exactly one week later, they took another run at it–but this time in a slower,
 Although neither recording is as clear as we'd like, it's still easy to hear just how much fun the band has with the classic R&B track–why this one hasn't shown up in Bruce's set lists since is hard to fathom.
 
 **Ruby Baby**
-**First performed:** August 2, 1987 (Asbury Park, NJ)
-**Last performed:** August 9, 1987 (Asbury Park, NJ)
+**First performed:** August 2, 1987 (Asbury Park, NJ)<br>
+**Last performed:** August 9, 1987 (Asbury Park, NJ)<br>

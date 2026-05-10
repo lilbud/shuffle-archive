@@ -95,11 +95,10 @@ June 22 – July 11, 1973
 
 
 **Evacuation of the West**
-**Recorded:**  
+**Recorded:**<br>
 
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -121,15 +121,15 @@ It’s almost impossible to predict whether she’ll make a return appearance–
 I suspect he still holds her in higher esteem than most of his listeners do.
 
 June 26-27, 1972
- (1973)
- May 2, 1972 (New York City, NY)
- May 22, 2014 (Pittsburgh, PA)
+(1973)
+May 2, 1972 (New York City, NY)
+May 22, 2014 (Pittsburgh, PA)
 
 **Mary Queen of Arkansas**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Greetings From Asbury Park, N.J.*  
-**First performed:**  
-**Last performed:**
+**Released:** *Greetings From Asbury Park, N.J.*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 © May 12, 2021

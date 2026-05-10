@@ -27,8 +27,8 @@ And as for that fateful performance back in 1984… well, nothing came of it tha
 The rest is well-documented history.
 
 April 13, 2002 (Asbury Park, NJ)
- May 30, 2015 (Oakland, NJ)
+May 30, 2015 (Oakland, NJ)
 
 **Tell Him**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

@@ -114,9 +114,9 @@ Here's one of them, from nine months earlier in August 1974:
 Both have minor lyrical differences (including some bluffing in the earlier version) and some minor musical variations as well. But both reveal just how clear Bruce's vision was for the song almost a year before he officially recorded it in the studio.
 
 **Night**
-**Recorded:** May 10, 1975
-**Released:** *Born to Run* (1975)
-**First performed:** August 13, 1975 (New York City, NY)
-**Last performed:** September 3, 2023 (East Rutherford, NJ)
+**Recorded:** May 10, 1975<br>
+**Released:** *Born to Run* (1975)<br>
+**First performed:** August 13, 1975 (New York City, NY)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

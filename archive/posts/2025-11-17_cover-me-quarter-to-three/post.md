@@ -85,11 +85,11 @@ Now 95 years old, Daddy G still performs from time to time, and when he does, he
 [https://www.youtube.com/embed/H3jWn4e60ZE?feature=oembed](https://www.youtube.com/embed/H3jWn4e60ZE?feature=oembed)
 
 October 4, 1974 (New York City, NY)
- May 17, 2014 (Uncasville, CT)
+May 17, 2014 (Uncasville, CT)
 
 **Quarter to Three**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 (c) August 21, 2021

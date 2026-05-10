@@ -13,9 +13,9 @@ He did not disappoint. Here’s Bruce and Alejandro playing their one and only p
 [https://www.youtube.com/embed/gpxr8gVpnpg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/gpxr8gVpnpg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
 **Faith**
-**Recorded:** 2010  
-**Released:** *Street Songs of Love* (2010)  
-**First performed:** July 23, 2010 (Asbury Park, NJ)  
-**Last performed:** July 23, 2010 (Asbury Park, NJ)
+**Recorded:** 2010<br>
+**Released:** *Street Songs of Love* (2010)<br>
+**First performed:** July 23, 2010 (Asbury Park, NJ)<br>
+**Last performed:** July 23, 2010 (Asbury Park, NJ)<br>
 
 © November 4, 2019

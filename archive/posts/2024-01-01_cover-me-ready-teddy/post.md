@@ -9,8 +9,8 @@ It’s a great opener, so it’s a surprise that this was a true one-off–Bruce
 [https://www.youtube.com/embed/tpMaCUh569I?feature=oembed](https://www.youtube.com/embed/tpMaCUh569I?feature=oembed)
 
 November 16, 1978 (Toronto, ON)
- January 20, 1991 (Sea Bright, NJ)
+January 20, 1991 (Sea Bright, NJ)
 
 **Ready Teddy**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

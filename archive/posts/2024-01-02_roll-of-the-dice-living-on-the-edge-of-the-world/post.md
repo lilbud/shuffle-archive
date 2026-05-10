@@ -113,16 +113,15 @@ Listen carefully to the performance, especially around the 3:40 mark, and you’
 
 World
 December 7, 1979
- (1998), (2015)
+(1998), (2015)
 September 21, 2012
- September 21, 2012
+September 21, 2012
 
 **Living on the Edge of the**  
-**Recorded:**   
-**Released:** *Tracks**The Ties That Bind: The River Collection*   
-**First performed:**   
-**Last performed:**
+**Recorded:** <br>
+**Released:** *Tracks**The Ties That Bind: The River Collection* <br>
+**First performed:** <br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

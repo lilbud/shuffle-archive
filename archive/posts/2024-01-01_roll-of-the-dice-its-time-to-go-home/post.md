@@ -39,15 +39,14 @@ There’s no resolution, here, just observation. The song ends with the narrator
 
 : N/A
 : N/A
- September 1, 1971 (Long Branch, NJ)
- September 1, 1971 (Long Branch, NJ)
+September 1, 1971 (Long Branch, NJ)
+September 1, 1971 (Long Branch, NJ)
 
 **It’s Time to Go Home**  
 **Recorded**  
 **Released**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

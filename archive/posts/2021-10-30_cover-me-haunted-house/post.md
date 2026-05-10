@@ -19,5 +19,5 @@ A one-time-only cover, "Haunted House" was an unusual choice to open an E Street
 Have a spooky holiday and eat lots of candy!
 
 **Haunted House**
-**First performed:** October 31, 1980 (Los Angeles, CA)
-**Last performed:** October 31, 1980 (Los Angeles, CA)
+**First performed:** October 31, 1980 (Los Angeles, CA)<br>
+**Last performed:** October 31, 1980 (Los Angeles, CA)<br>

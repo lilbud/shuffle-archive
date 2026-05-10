@@ -54,7 +54,7 @@ In the final verse, the boy–no longer so little–joins the street scene and i
 *Hey, now my contessa, in your juke joint rags you always bring candy for the kids*  
 *Come waltz with me tonight senorita ’cause only fools are alone on a night like this, oh!*
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/santa-ana-lyricsheet-1-196x300.jpg?resize=543%2C831)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/santa-ana-lyricsheet-2-196x300.jpg?resize=543%2C832)
 
@@ -77,16 +77,14 @@ In concert, “Santa Ana” has been performed very few times–that we know of.
 Bruce rescued “Santa Ana” from obscurity in 2005 for five performances, and then promptly returned it from whence it came. It hasn’t been seen since.
 
 June 28, 1973
- (1998)
- January 3, 1973 (Bryn Mawr, PA)
- November 21, 2005 (Trenton, NJ)
+(1998)
+January 3, 1973 (Bryn Mawr, PA)
+November 21, 2005 (Trenton, NJ)
 
 **Santa Ana**  
-**Recorded:**  
-**Released:***Tracks*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Tracks* (1998)<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
-
-[here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

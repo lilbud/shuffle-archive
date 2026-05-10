@@ -55,14 +55,9 @@ The reference to a brother who didn’t come back, to a father who was killed at
 
 [Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
-2017
- (2017)
-
 **Freedom Cadence**  
-**Recorded:**  
-**Released:***Thank You For Your Service*  
+**Recorded:** 2017<br>
+**Released:** *Thank You For Your Service* (2017)<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
-
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

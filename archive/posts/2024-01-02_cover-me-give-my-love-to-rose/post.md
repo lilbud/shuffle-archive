@@ -33,10 +33,10 @@ Bruce actually recorded and self-produced “Give My Love to Rose” at his home
 Long out of print, “Give My Love to Rose” remains one of the rarer officially released Springsteen recordings to chase down in physical form, but it can be easily found on most streaming services for your listening pleasure.
 
 February 12, 1999
- (2002)
+(2002)
 
 **Give My Love to Rose**
-**Recorded:**   
+**Recorded:** <br>
 
-**Released:***Kindred Spirits*   
+**Released:***Kindred Spirits* <br>
 **Never performed**

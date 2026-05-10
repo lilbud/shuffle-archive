@@ -143,14 +143,14 @@ Here’s an alternate, rarely seen cut of Meiert Avis’ award-winning video wit
 
 June-July, 1987
 (1987), (2003)
- February 25, 1988 (Worcester, MA)
- June 25, 2016 (Gothenburg, Sweden)
+February 25, 1988 (Worcester, MA)
+June 25, 2016 (Gothenburg, Sweden)
 
 **Tunnel of Love**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *Tunnel of Love* *The Essential Bruce Springsteen*  
-**First performed:**  
-**Last performed:**
+**Released:** *Tunnel of Love* *The Essential Bruce Springsteen*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
 (c) June 15, 2021

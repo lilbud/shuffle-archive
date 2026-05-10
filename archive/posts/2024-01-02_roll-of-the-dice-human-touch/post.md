@@ -154,15 +154,14 @@ I’ll leave you with one of my favorite performances of “Human Touch,” from
 
 Spring 1990
 (1992) (edited versions appear on and as well)
- May 6, 1992 (New York City, NY)
- April 28, 2023 (Barcelona, Spain)
+May 6, 1992 (New York City, NY)
+April 28, 2023 (Barcelona, Spain)
 
 **Human Touch**  
-**Recorded:**  
-**Released:** *Human Touch* *Greatest Hits* *The Essential Bruce Springsteen*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:** *Human Touch* *Greatest Hits* *The Essential Bruce Springsteen*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

@@ -17,8 +17,8 @@ I’m a huge fan of The Bruce Springsteen Band. If I could travel back in time t
 And I’d hold up a sign for “It’s All Over Now, Baby Blue.”
 
 October 23, 1971 (Richmond, VA)
- March 14, 1972 (Highlands, NJ)
+March 14, 1972 (Highlands, NJ)
 
 **It’s All Over Now, Baby Blue**  
-**First performed:**  
-**Last performed:**
+**First performed:**<br>
+**Last performed:**<br>

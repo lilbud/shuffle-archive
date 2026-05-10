@@ -31,11 +31,11 @@ That experience stayed with Murphy. A few years later he wrote another one of th
 Bruce accepted, and their recording of “Everything I Do (Leads Me Back to You)” became the only studio recording by the New Dylan class of ’74.
 
 June 30, 1992 (Paris, France)
- June 30, 1992 (Paris, France)
+June 30, 1992 (Paris, France)
 
 **Rock Ballad**
-**First performed:**  
+**First performed:**<br>
 
-**Last performed:**
+**Last performed:**<br>
 
 © August 24, 2021

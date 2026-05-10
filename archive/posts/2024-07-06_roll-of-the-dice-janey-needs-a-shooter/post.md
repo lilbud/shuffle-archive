@@ -188,14 +188,13 @@ During his home demo recording sessions for (probably not long before the band r
 [https://www.youtube.com/embed/eWb7tjESLzY?feature=oembed](https://www.youtube.com/embed/eWb7tjESLzY?feature=oembed)
 
 January 29, 1973 (solo), November 2019 (band)
- (2020)
+(2020)
 
 **Janey Needs a Shooter**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:***Letter to You*   
+**Released:***Letter to You* <br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

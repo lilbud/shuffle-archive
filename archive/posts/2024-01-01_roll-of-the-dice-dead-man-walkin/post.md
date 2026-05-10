@@ -72,16 +72,15 @@ The film debuted in December 1995, and Bruce was already in the middle of his so
 [https://videopress.com/embed/0yw1bB0y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0yw1bB0y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 April-May 1995
- (1996), (2003)
- November 21, 1995 (New Brunswick, NJ)
- June 23, 2000 (New York City, NY)
+(1996), (2003)
+November 21, 1995 (New Brunswick, NJ)
+June 23, 2000 (New York City, NY)
 
 **Dead Man Walkin’**  
-**Recorded:**  
-**Released:***Dead Man Walking* *The Essential Bruce Springsteen*  
-**First performed:**  
-**Last performed:**
+**Recorded:**<br>
+**Released:***Dead Man Walking* *The Essential Bruce Springsteen*<br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

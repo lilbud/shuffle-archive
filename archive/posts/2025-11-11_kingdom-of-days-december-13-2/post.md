@@ -38,7 +38,7 @@ Bruce and the band play their first of two Born in the U.S.A. shows at the Mid-S
 
 [https://www.youtube.com/embed/UzMaKpyptz4?feature=oembed](https://www.youtube.com/embed/UzMaKpyptz4?feature=oembed)
 
- 
+
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Commercial_Appeal_1984_12_14_25.jpg?resize=758%2C651&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Commercial_Appeal_1984_12_14_26.jpg?resize=758%2C722&amp;ssl=1)
 

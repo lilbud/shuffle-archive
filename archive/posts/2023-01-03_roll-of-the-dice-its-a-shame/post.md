@@ -65,11 +65,11 @@ June 14, 1977 (with 2010 horn and vocal overdubs)
 (2010)
 
 **It’s a Shame**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The Promise*   
+**Released:** *The Promise* <br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our . New entries every week!
+Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)

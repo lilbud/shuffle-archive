@@ -2,7 +2,7 @@
 
 “This guy, he’s there, but he’s really there no more. He’s the guy in ‘‘–either guy, actually. But he’s also the guy, in the end, who says, ‘I’ll give you the word, now, sugar, we’ll go ramrodding forever more.’ I don’t know, that’s a real sad line to me, sometimes.”*not*[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)
 
- 
+
 
 — Bruce Springsteen to Dave Marsh, , February 1981*Musician*
 
@@ -98,16 +98,16 @@ Widely considered to be a River-era song due to its inclusion on that album, “
 
 June 1979 – April 1980
 (1980)
- December 28, 1978 (Pittsburgh, PA)
- May 27, 2023 (Amsterdam, The Netherlands)
+December 28, 1978 (Pittsburgh, PA)
+May 27, 2023 (Amsterdam, The Netherlands)
 
 **Ramrod**
-**Recorded:**  
+**Recorded:**<br>
 
-**Released:** *The River*   
-**First performed:**  
-**Last performed:**
+**Released:** *The River* <br>
+**First performed:**<br>
+**Last performed:**<br>
 
-Looking for your favorite Bruce song? Check our full index . New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
