@@ -1,3 +1,4 @@
 httpx
 user-agent
 html_to_markdown
+ftfy
