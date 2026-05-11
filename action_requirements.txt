@@ -2,3 +2,6 @@ httpx
 user-agent
 html_to_markdown
 ftfy
+beautifulsoup4
+lxml
+markdown
