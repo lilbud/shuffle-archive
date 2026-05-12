@@ -18,10 +18,10 @@ The narrator of “Valerie” followed her lover on a great adventure, only to f
 
 The second verse of “Valerie” may be the most artful lyric Patti has ever written:
 
-*Sixteen days since I left Corona*  
-*And I traveled to this carnival town near Alberndeel*  
-*And I rode the coaster there on the fairground*  
-*Twisted backbone of a beast that never heels*  
+*Sixteen days since I left Corona*
+*And I traveled to this carnival town near Alberndeel*
+*And I rode the coaster there on the fairground*
+*Twisted backbone of a beast that never heels*
 *And I left some skin on fortune’s wheel*
 
 I mean, come on: whose jaw *wouldn’t* drop when hearing that verse for the first time?
@@ -40,7 +40,7 @@ Enjoy Patti Scialfa, backed by Bruce Springsteen and The Sessions Band, performi
 
 [https://videopress.com/embed/VEBgViEj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VEBgViEj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-**Bonus:** Patti’s catalog hasn’t been covered nearly as much as Bruce’s has, but in 1999 Emmylou Harris and Linda Ronstadt chose “Valerie” for their duet album, *Western Wall: The Tucson Sessions.”* 
+**Bonus:** Patti’s catalog hasn’t been covered nearly as much as Bruce’s has, but in 1999 Emmylou Harris and Linda Ronstadt chose “Valerie” for their duet album, *Western Wall: The Tucson Sessions.”*
 
 The song loses some of its power when performed as a duet, however, and even though Harris and Ronstadt are both superb vocalists, neither quite manage to summon the brave vulnerability that “Valerie” (like much of Patti’s catalog) requires.
 

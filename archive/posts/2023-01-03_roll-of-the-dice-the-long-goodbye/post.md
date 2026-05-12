@@ -14,12 +14,12 @@ Yes, the timing works out nicely: Bruce recorded “The Long Goodbye” shortly 
 
 There’s a lot more going on in “The Long Goodbye” than a cross-country move.
 
-*My soul went walking but I stayed here*  
-*Feel like I been working for a thousand years*  
-*Chipping away at this chain of my own lies*  
-*Climbing a wall a hundred thousand miles high*  
-*Well I woke up this morning on the other side*  
-*Yeah yeah this is the long goodbye*  
+*My soul went walking but I stayed here*
+*Feel like I been working for a thousand years*
+*Chipping away at this chain of my own lies*
+*Climbing a wall a hundred thousand miles high*
+*Well I woke up this morning on the other side*
+*Yeah yeah this is the long goodbye*
 *Hey yeah this is the long goodbye*
 
 Bruce’s narrator is trapped in a situation of his own making. It’s possible to read this verse as attachment to a place, but the “chain of my own lies” is a big clue that Bruce is singing about a relationship more personal than geographical.
@@ -28,19 +28,19 @@ This is a dysfunctional relationship song. Like “[Trouble in Paradise,](https:
 
 Emotionally, our narrator left his relationship long ago. Physically, however, he’s still there–unable to admit to his partner that he’s had enough, and unwilling to admit it to himself. Until one day he wakes up and realizes he’s done.
 
-*Same old faces it’s the same old town*  
-*What once was laughs is dragging me now*  
-*Waiting on rain hanging on for love*  
-*Words of forgiveness from some God above*  
-*Ain’t no words of mercy coming from on high*  
-*Oh no just a long goodbye*  
+*Same old faces it’s the same old town*
+*What once was laughs is dragging me now*
+*Waiting on rain hanging on for love*
+*Words of forgiveness from some God above*
+*Ain’t no words of mercy coming from on high*
+*Oh no just a long goodbye*
 *Yeah yeah just one long goodbye*
 
 An emotionally distant relationship can be harder to escape than a toxic one. What do you do when things are flat enough to leave you empty but not hostile enough to force your hand? You wait on rain, and you hang on for love.
 
-*Well I went to leave twenty years ago*  
-*Since then I guess I been packing kinda slow*  
-*Sure did like that admiring touch*  
+*Well I went to leave twenty years ago*
+*Since then I guess I been packing kinda slow*
+*Sure did like that admiring touch*
 *Guess I liked it a little too much*
 
 It’s the bridge, I think, that ropes most critics into a narrow interpretation. Working backwards two decades from *Human Touch,* we arrive at the beginning of Bruce’s career, when he was ready to leave his boardwalk life behind and quit that scene. (Although if we work back from when he recorded “The Long Goodbye” we overshoot a bit.)
@@ -49,14 +49,14 @@ More likely, Bruce writes from the perspective of someone who has well overstaye
 
 But today’s the day he owns up to it, and maybe even the day he does something about it.
 
-*The moon is high and here I am*  
-*Sitting here with this hammer in hand*  
-*One more drink oughta ease the pain*  
-*Staring at that last link in the chain*  
-*Well let’s raise our glass and let the hammer fly*  
-*Hey yeah this is the long goodbye*  
-*Hey yeah this is the long goodbye*  
-*Kiss me baby and we’re gonna fly*  
+*The moon is high and here I am*
+*Sitting here with this hammer in hand*
+*One more drink oughta ease the pain*
+*Staring at that last link in the chain*
+*Well let’s raise our glass and let the hammer fly*
+*Hey yeah this is the long goodbye*
+*Hey yeah this is the long goodbye*
+*Kiss me baby and we’re gonna fly*
 *Hey yeah this is the long goodbye*
 
 Maybe. All he has to do is say “it’s over.” Those two words are the hammer in his hand, but the fact that he’s looking to liquid strength to face the moment leaves us a little uncertain about the outcome. The hard-rocking backing track belies his ambivalence, but that’s a card Bruce often plays in his songwriting.
@@ -74,7 +74,7 @@ Bruce dropped it a few months into the tour and never attempted it with the E St
 
 [Watch on Youtube: The Long Goodbye Bruce Springsteen June 26,1992 Frankfurt, GER](https://www.youtube.com/watch?v=AuLvzIM27aE)
 
-**The Long Goodbye**  
+**The Long Goodbye**
 **Recorded:** April-May, 1990<br>
 **Released:** *Human Touch* (1992)<br>
 **First performed:** June 26, 1992 (Frankfurt, Germany)<br>

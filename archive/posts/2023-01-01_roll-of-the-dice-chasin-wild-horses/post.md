@@ -22,11 +22,11 @@ We’ll break it down in a moment, but as with every track on *Western Stars*, w
 
 The introduction features Bruce plucking idly at his acoustic guitar, while a viola establishes a scene that quickly fades into the background as Bruce’s vocals draw us into his narrator’s deceptively ambivalent musing.
 
- *Guess it was something I shouldn’t have done*  
-*Guess I regret it now*  
-*Ever since I was a kid*  
-*Trying to keep my temper down is like*  
-*Chasing wild horses, chasing wild horses*  
+ *Guess it was something I shouldn’t have done*
+*Guess I regret it now*
+*Ever since I was a kid*
+*Trying to keep my temper down is like*
+*Chasing wild horses, chasing wild horses*
 *Chasing wild horses*
 
 There’s a lot of information packed into this introductory verse, the most significant of which is that our narrator possesses a fair amount of self-awareness and yet hasn’t yet come to terms with his self-knowledge.
@@ -37,21 +37,21 @@ What exactly was it that he did but shouldn’t have? We never learn, but we get
 
 In the next verse, we learn that whatever our narrator’s running from, it brought him to Montana, where he works for the Bureau of Land Management literally chasing and corralling wild horses, a job so physically taxing that it successfully keeps him from dwelling on his past… for the most part.
 
-*I left my home, left my friends*  
-*I didn’t say goodbye*  
-*I contract out to the BLM*  
-*Up on the Montana line*  
+*I left my home, left my friends*
+*I didn’t say goodbye*
+*I contract out to the BLM*
+*Up on the Montana line*
 *Chasing wild horses, chasing wild horses*
 
 There’s a musical structure at work so far: each verse begins on an up note (with a melody reminiscent of “[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)“), but each subsequent line ends on a downer. By the end of the second verse, Marc Muller’s pedal steel enters, painting the exterior scene and drawing us out of the narrator’s reverie across a deliberately monotonous bridge that represents the physical tedium that serves as a substitute for solace:
 
-*We’re out before sunup*  
-*We’re in after sundown*  
-*There’s two men in the chopper*  
-*Two under saddle on the ground*  
-*In the evenings we hop in the pickup*  
-*Head into town for a drink*  
-*I make sure I work till I’m so damn tired*  
+*We’re out before sunup*
+*We’re in after sundown*
+*There’s two men in the chopper*
+*Two under saddle on the ground*
+*In the evenings we hop in the pickup*
+*Head into town for a drink*
+*I make sure I work till I’m so damn tired*
 *Yeah way too tired to think*
 
 That last couplet is important–notice that Bruce says “*I make sure* I work till I’m so damn tired.” That’s the giveaway that he uses his work as a drug, a way of numbing himself from facing the pain he’s caused to himself and others.
@@ -60,11 +60,11 @@ And if “Chasin’ Wild Horses” is skillful to this point, this is the point 
 
 Notice how Bruce holds the moment after the “way too tired to think” line. It immediately draws us back into the narrator’s psyche, and when the full orchestra enters a beat or two later, the musicians represent the past come crashing into the present. Now, finally (and ironically given the lead-in), we glimpse the woman at the center of his lost love.
 
-*You lose track of time*  
-*It’s all just storms blowing through*  
-*You come rolling ‘cross my mind*  
-*Your hair flashing in the blue*  
-*Like wild horses, just like wild horses*  
+*You lose track of time*
+*It’s all just storms blowing through*
+*You come rolling ‘cross my mind*
+*Your hair flashing in the blue*
+*Like wild horses, just like wild horses*
 *Just like wild horses*
 
 We only see her hair, but to the narrator it stands out against the blue sky like the manes of the horses he spends the day with–and instantly, we know that whatever effectiveness his day job has offered in suppressing his regret, it’s vanished forever more. (The use of equestrian imagery in particular strongly suggests that “Chasin’ Wild Horses” is a sequel to “[Dry Lightning](https://estreetshuffle.com/index.php/2020/10/16/roll-of-the-dice-dry-lightning/),” so similar are its narrators.)
@@ -73,18 +73,18 @@ The orchestra swells now, anchored by repetitive piano riff (presumably Ron Anie
 
 My favorite part of the song comes next, as past merges with present in a way that’s very reminiscent of “[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/),” another Springsteen masterpiece.
 
-*A fingernail moon in a twilight sky*  
-*I’m riding in the high grass of the switchback*  
-*I shout your name into the canyon*  
+*A fingernail moon in a twilight sky*
+*I’m riding in the high grass of the switchback*
+*I shout your name into the canyon*
 *The echo throws it back*
 
 Go back and listen to this part of the song again. Put your headphones on, and turn the volume up as loud as you can stand, and when the narrator shouts his love’s name into the canyon, listen… listen, as the echo throws it back. “Back…. back…” It’s so faint that I have to believe that Bruce knew that 99% of his listeners would completely miss it, and yet it’s *such* a lovely moment. Bruce allows it to breathe before he brings us crashing back to the present.
 
-*The winter snow whites out the plains*  
-*Till it can turn you blind*  
-*The only thing up here I’ve found*  
-*Is trying to get you off my mind*  
-*Chasing wild horses, chasing wild horses*  
+*The winter snow whites out the plains*
+*Till it can turn you blind*
+*The only thing up here I’ve found*
+*Is trying to get you off my mind*
+*Chasing wild horses, chasing wild horses*
 *Chasing wild horses, chasing wild horses*
 
 In this last verse, Bruce drives home both the titular metaphor and the narrator’s quixotic futility. The winter weather literally snow blinds him, and the work itself keeps his mind from drifting back to his lost love, but as we learn through the simple word “you,” his love is never far from his thoughts.

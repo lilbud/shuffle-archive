@@ -32,40 +32,40 @@ In one of the most ironic successes in rock history, “Dancing in the Dark” b
 
 His opening verse takes its inspiration from John Prine’s 1971 classic, “Angel From Montgomery.” In Prine’s song about a middle-aged woman intensely dissatisfied with her life, her marriage, and her unrealized dreams, she voices her frustration about her husband, a “child who’s grown old”:
 
-*How the hell can a person*  
-*Go to work in the morning*  
-*Then come home in the evening*  
+*How the hell can a person*
+*Go to work in the morning*
+*Then come home in the evening*
 *And have nothing to say?*
 
 [Watch on Youtube: Angel from Montgomery](https://www.youtube.com/watch?v=U6cagWYTGCY)
 
 Bruce started with Prine’s lyrics about life passing you by while you sit around getting older, but quickly realized they didn’t ring true. He was a rock star, after all, and rock stars do *not* go to work in the morning. They go to work at night. So he inverted the conceit, and he was off to the races.
 
-*I get up in the evening and I ain’t got nothing to say*  
-*I come home in the morning, I go to bed feeling the same way*  
-*I ain’t nothing but tired, man I’m just tired and bored with myself*  
+*I get up in the evening and I ain’t got nothing to say*
+*I come home in the morning, I go to bed feeling the same way*
+*I ain’t nothing but tired, man I’m just tired and bored with myself*
 *Hey there baby, I could use just a little help*
 
 Bruce takes Prine’s notion a step further. It’s not just that he has nothing to say at home; he’s got nothing to say at work, either. He’s blocked, jaded, bored, tired. (Let’s not even pretend we’re listening to a fictional narrator here; this is straight up Bruce.) And like Prine’s protagonist, he’s resentful for being stuck in a trap of his own making. He’d written dozens of songs, and his well is dry.
 
 He’s just *done*.
 
-*You can’t start a fire, you can’t start a fire without a spark*  
+*You can’t start a fire, you can’t start a fire without a spark*
 *This gun’s for hire even if we’re just dancing in the dark*
 
 This is a dark chorus. Channeling his inner frustration, Bruce casts about looking for inspiration. Won’t anybody give him some?
 
 But it’s also a stroke of brilliance, because as personal as the song is, its title metaphor makes the song universally relatable: “Dancing in the dark” is an idiom for sex, and pairing it with a phallic gun-for-hire makes the song resonate about a different kind of frustration. Who hasn’t felt that need for connection, even if it’s just fleeting and physical?
 
-It’s a neat trick, and for what I’m sure was at least 99% of Bruce’s audience, it managed to mask the alienation that had taken root within him. *This gun’s for hire even if we’re just dancing in the dark. Sure, Jon, I’ll write whatever the hell you tell me to. Doesn’t mean anything anyway.* 
+It’s a neat trick, and for what I’m sure was at least 99% of Bruce’s audience, it managed to mask the alienation that had taken root within him. *This gun’s for hire even if we’re just dancing in the dark. Sure, Jon, I’ll write whatever the hell you tell me to. Doesn’t mean anything anyway.*
 
 “Making a record tends to be a lot of mind work,” Bruce told Flanagan in that same interview. “Sometimes I like that, but I’m also oriented toward doing things and playing. How many times can you look at the same thing from a different angle? On one hand, the analytical side of my personality has been very helpful in learning, because I always question what I’m doing and look at it from every possible position, and then I change it. I’ll do that for a long time and then I’ll swing toward a tour that’ll go for a year and a half and I’m out there going crazy every night, and then I’ll swing way back. I’ve never really balanced those things in a natural fashion.”
 
 Bruce was ready to swing toward a tour when he wrote “Dancing in the Dark.” The action wasn’t in his head anymore, it was out there… *somewhere*. And he was going stir crazy trying to get there.
 
-*Message just keep getting clearer, radio’s on and I’m moving ’round my place*  
-*I check my look in the mirror, I wanna change my clothes, my hair, my face*  
-*Man, I ain’t getting nowhere, I’m just living in a dump like this*  
+*Message just keep getting clearer, radio’s on and I’m moving ’round my place*
+*I check my look in the mirror, I wanna change my clothes, my hair, my face*
+*Man, I ain’t getting nowhere, I’m just living in a dump like this*
 *There’s something happening somewhere, baby I just know that there is*
 
 Many if not most critics read those lines as Bruce revealing insecurities about his appearance. I think that’s too shallow a read, although I certainly think Bruce chose that metaphor deliberately.
@@ -74,22 +74,22 @@ This verse is about a rock star trying to finish an album while pop culture move
 
 He was getting nowhere with his endless tinkering. He needed to finish the job and get out on the road, where at least something was happening.
 
-*You sit around getting older, there’s a joke here somewhere and it’s on me*  
+*You sit around getting older, there’s a joke here somewhere and it’s on me*
 *I’ll shake this world off my shoulders, come on baby this laugh’s on me*
 
 The bridge holds the song’s turning point: fully aware that the world is moving on without him while he waffles with his album, he summons the will to… let it go. He shakes it it off his shoulders and accepts that it’s long past time for him to have done so.
 
 From this point forward, “Dancing in the Dark” is about action rather than inaction.
 
-*Stay on the streets of this town and they’ll be carving you up alright*  
-*They say you gotta stay hungry, hey baby, I’m just about starving tonight*  
-*I’m dying for some action, I’m sick of sitting ’round here trying to write this book*  
+*Stay on the streets of this town and they’ll be carving you up alright*
+*They say you gotta stay hungry, hey baby, I’m just about starving tonight*
+*I’m dying for some action, I’m sick of sitting ’round here trying to write this book*
 *I need a love reaction, come on now baby gimme just one look*
 
-*You can’t start a fire sitting ’round crying over a broken heart*  
-*This gun’s for hire even if we’re just dancing in the dark*  
-*You can’t start a fire worrying about your little world falling apart*  
-*This gun’s for hire even if we’re just dancing in the dark*  
+*You can’t start a fire sitting ’round crying over a broken heart*
+*This gun’s for hire even if we’re just dancing in the dark*
+*You can’t start a fire worrying about your little world falling apart*
+*This gun’s for hire even if we’re just dancing in the dark*
 *Even if we’re just dancing in the dark*
 
 It was time for Bruce to move forward. The album was done. He had no appetite for any more work on that “book.” What he did hunger for was some action. A love reaction: the stage, the arena.

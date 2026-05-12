@@ -24,22 +24,22 @@ Bruce sings the entire song in a falsetto–something Bruce had experimented wit
 
 The lyrics are classic romantic Bruce: a pledge of and request for unconditional love, without any promise or prediction for what may come. Interestingly, it seems the object of the narrator’s affection may already be promised to another:
 
-*I don’t need your answered prayers*  
-*Or the chains your lover wears*  
-*I don’t need your rings of gold*  
+*I don’t need your answered prayers*
+*Or the chains your lover wears*
+*I don’t need your rings of gold*
 *Or the secrets that you hold*
 
 
 
-*Lift me up, darling*  
-*Lift me up and I’ll fall with you lift me up*  
+*Lift me up, darling*
+*Lift me up and I’ll fall with you lift me up*
 *Let your love lift me up*
 
 The chains and rings may be metaphor, but they may also be literal–a wedding ring. Indeed, the second verse implies that the narrator doesn’t care about the marital state of his love, so long as she doesn’t abandon him:
 
-*I don’t need your sacred vow*  
-*Or the promise tomorrow brings*  
-*Veiled behind the morning clouds*  
+*I don’t need your sacred vow*
+*Or the promise tomorrow brings*
+*Veiled behind the morning clouds*
 *I’ll take the fate the daylight brings*
 
 The final verse has echoes of “,” with the narrator savoring every detail, every sensation, in case they never come again:
@@ -48,9 +48,9 @@ The final verse has echoes of “,” with the narrator savoring every detail, e
 
 
 
-*Your skin, your hand upon my neck*  
-*This skin, your fingers on my skin*  
-*This kiss, this heartbeat, this breath*  
+*Your skin, your hand upon my neck*
+*This skin, your fingers on my skin*
+*This kiss, this heartbeat, this breath*
 *This heart, this heart, this wilderness*
 
 After a final chorus, the songs drifts leisurely into the sky, lifted by Bruce’s wordless promise, with the fate of the song’s central characters very much in… limbo.

@@ -22,36 +22,36 @@ Lyrically, we’re listening to Bruce at his braggadocious best. (I laugh out lo
 
 Like much of The Bruce Springsteen Band’s repertoire, “You Better Be Nice to Me, Baby” doesn’t require any lyrical analysis; this song is one hundred percent swagger. It’s also so rare that there’s not even an entry for it (yet) on Springsteenlyrics.com, so here are what I’m 98% certain are Bruce’s lyrics:
 
-*Got a good woman, yeah she was looking pretty fine*  
-*Yeah, we’re gonna sing the same song, mama, if we’re gonna get along*  
+*Got a good woman, yeah she was looking pretty fine*
+*Yeah, we’re gonna sing the same song, mama, if we’re gonna get along*
 *There’s just one thing I gotta say…*
 
 
 
-*I can make rain fall from a cloudless sky*  
-*I can make a bluebird forget how to fly*  
-*I can call up a river to flood your home*  
+*I can make rain fall from a cloudless sky*
+*I can make a bluebird forget how to fly*
+*I can call up a river to flood your home*
 *I can make a good girl go wrong*
 
 
 
-*So you better be nice to me baby*  
-*You better be nice to me baby*  
-*You better be nice to me baby*  
+*So you better be nice to me baby*
+*You better be nice to me baby*
+*You better be nice to me baby*
 *So I’ll be nice to you*
 
 
 
-*I can kill at a distance of forty feet*  
-*I can steal the honey from a honeybee*  
-*I can stop a train dead with a look in my eye*  
+*I can kill at a distance of forty feet*
+*I can steal the honey from a honeybee*
+*I can stop a train dead with a look in my eye*
 *I can make a grown man fall to his knees and cry*
 
 
 
-*So you better be nice to me baby*  
-*You better be nice to me baby*  
-*You better be nice to me baby*  
+*So you better be nice to me baby*
+*You better be nice to me baby*
+*You better be nice to me baby*
 *So I’ll be nice to you*
 
 
@@ -64,37 +64,37 @@ Like much of The Bruce Springsteen Band’s repertoire, “You Better Be Nice to
 
 
 
-*I can turn desert land into a paradise*  
-*I can take a thorny girl and I can make her nice*  
-*I can steal all the lightning from the sky above*  
+*I can turn desert land into a paradise*
+*I can take a thorny girl and I can make her nice*
+*I can steal all the lightning from the sky above*
 *I can make anyone fall right in love*
 
 
 
-*I can swim the ocean in one week flat*  
-*I can climb a mountain with a hand behind my back*  
-*I can make a millionaire throw his money away*  
+*I can swim the ocean in one week flat*
+*I can climb a mountain with a hand behind my back*
+*I can make a millionaire throw his money away*
 *I can hide that cargo to Bombay*
 
 
 
-*I’ll put you out on an eagle into outer space*  
-*I’m one man and I won the human race*  
-*I can shake you with love right down to your soul*  
+*I’ll put you out on an eagle into outer space*
+*I’m one man and I won the human race*
+*I can shake you with love right down to your soul*
 *I can make Lawrence Welk go rock and roll*
 
 
 
-*I can make a whole army turn around and run*  
-*I can bend the barrel of my dad’s shotgun*  
-*I can do most anything I set my mind to*  
+*I can make a whole army turn around and run*
+*I can bend the barrel of my dad’s shotgun*
+*I can do most anything I set my mind to*
 *And honey, I’m setting my mind to you*
 
 
 
-*So you better be nice to me baby*  
-*You better be nice to me baby*  
-*You better be nice to me baby*  
+*So you better be nice to me baby*
+*You better be nice to me baby*
+*You better be nice to me baby*
 *So I’ll be nice to you*
 
 (That’s probably the most fun I’ve ever had deciphering and transcribing lyrics from one of Bruce’s early songs.)

@@ -34,7 +34,7 @@ The result is a much better version (IMO) of Ronnie Spector and the E Street Ban
 
 [Watch Video Highlight](https://videopress.com/embed/O6eF1MI9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Say Goodbye to Hollywood**  
+**Say Goodbye to Hollywood**
 **Recorded:** January 1977<br>
 **Released:** *Say Goodbye to Hollywood (single)* (April 1977)<br>
 **First performed:** February 17, 1977 (Richfield, OH)<br>

@@ -12,16 +12,16 @@ Watch and see:
 
 The city in “My City of Ruins” is a metaphor for the death of the American experiment, the American dream, and the American ideal. Its lyrics paint a grim scene of a post-apocalyptic country deserted by its defenders and turned against its own citizens.
 
-*There’s a blood red circle on the cold dark ground*  
-*And the rain is falling down*  
-*The church door’s thrown open, I can hear the organ’s song*  
-*But the congregation’s gone*  
+*There’s a blood red circle on the cold dark ground*
+*And the rain is falling down*
+*The church door’s thrown open, I can hear the organ’s song*
+*But the congregation’s gone*
 *My city of ruins*
 
-*Now the sweet bells of mercy drift through the evening trees*  
-*Young men on the corner like scattered leaves*  
-*The boarded up windows, the empty streets*  
-*While my brother’s down on his knees*  
+*Now the sweet bells of mercy drift through the evening trees*
+*Young men on the corner like scattered leaves*
+*The boarded up windows, the empty streets*
+*While my brother’s down on his knees*
 *My city of ruins*
 
 There’s blood on the street, spilled during a winter of raids, detentions, deportations and murders. No one defends or protects the citizens forced to their knees by an unaccountable gestapo.
@@ -30,22 +30,22 @@ The federal government wraps itself in religion, abandoning any pretense of chur
 
 The houses reflect the economic devastation spreading throughout the land.
 
-*Now there’s tears on the pillow, darling, where we slept*  
-*And you took my heart when you left*  
-*Without your sweet kiss my soul is lost, my friend*  
-*Tell me how do I begin again*  
+*Now there’s tears on the pillow, darling, where we slept*
+*And you took my heart when you left*
+*Without your sweet kiss my soul is lost, my friend*
+*Tell me how do I begin again*
 *My city’s in ruins*
 
 There’s a lover in the song, too. She represents liberty, freedom, and the social contract at the heart of America’s foundation. She’s gone now. We took for granted that she’d always be here, and we despair at her loss. How do we move on from here?
 
 The answer: by digging in and rebuilding.
 
-*Now with these hands, with these hands*  
-*With these hands, with these hands*  
-*I pray, Lord*  
-*I pray for the strength, Lord*  
-*I pray for the faith, Lord*  
-*I pray for your love, Lord*  
+*Now with these hands, with these hands*
+*With these hands, with these hands*
+*I pray, Lord*
+*I pray for the strength, Lord*
+*I pray for the faith, Lord*
+*I pray for your love, Lord*
 *Come on rise up*
 
 Rebuilding is hard, manual work. We ask God for the strength to do it, and for the faith and love to sustain us when the finish line seems so very far away.

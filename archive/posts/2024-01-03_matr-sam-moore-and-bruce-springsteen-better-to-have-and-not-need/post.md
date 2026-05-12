@@ -29,7 +29,7 @@ Fun fact: there’s another connection here, too: was produced by Randy Jackson,
 February 2006
 (2006)
 
-**Better to Have and Not Need**  
+**Better to Have and Not Need**
 **Recorded:** <br>
 **Released:** *Overnight Sensational* <br>
 **Never performed**

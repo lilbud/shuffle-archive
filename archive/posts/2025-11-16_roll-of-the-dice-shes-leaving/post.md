@@ -12,37 +12,37 @@ Let’s take a listen.
 
 Man, this cat has the blues *bad*. He’s been dumped–actually, he sings to us in the very process of being dumped–and she did it in public, too:
 
-*She’s leaving, she’s leaving, everybody knows*  
-*She’s leaving, she’s leaving, and I feel like such a fool*  
-*She left me standing here just two foot tall*  
-*I don’t see how she could do it in front of our friends and all*  
-*She had better things to do and bigger plans*  
-*I thought we could make it with just us two but I guess we can’t*  
+*She’s leaving, she’s leaving, everybody knows*
+*She’s leaving, she’s leaving, and I feel like such a fool*
+*She left me standing here just two foot tall*
+*I don’t see how she could do it in front of our friends and all*
+*She had better things to do and bigger plans*
+*I thought we could make it with just us two but I guess we can’t*
 *‘Cause she can’t, and I’m only one man but I love her*
 
 That’s a lovely first verse. The second takes a turn toward melodrama, but it reveals an interesting twist along the way:
 
-*It’s winter, suddenly it’s winter, and I’m feeling cold inside*  
-*It’s different, it could’ve been so different, if only she didn’t feel that need to lie*  
-*Did you really think I would not understand*  
-*If you said you had a thing to do for a night or two with another man*  
-*And how could you believe that I would not know*  
+*It’s winter, suddenly it’s winter, and I’m feeling cold inside*
+*It’s different, it could’ve been so different, if only she didn’t feel that need to lie*
+*Did you really think I would not understand*
+*If you said you had a thing to do for a night or two with another man*
+*And how could you believe that I would not know*
 *When you came up to say goodbye, look me in the eye, you let it all show*
 
 Now it’s not so clear who’s really leaving whom. We’ve learned that the singer’s girl cheated on him and then denied it when confronted. The singer has a harder time with the lie than with the deed. It’s a shocking line when he says he’d understand a casual fling, if only she hadn’t lied about it. But she did, and now he’s leading with his wounded pride rather than his heart.
 
-*Oh and baby, yes you hurt me, oh you hurt me deep inside*  
+*Oh and baby, yes you hurt me, oh you hurt me deep inside*
 *Yes darling and you hurt me, ’cause I’m just a foolish boy with his foolish pride*
 
-*I asked you, I asked you, baby you think I’d be enough*  
-*And what you told me, and what you showed me*  
+*I asked you, I asked you, baby you think I’d be enough*
+*And what you told me, and what you showed me*
 *Oh now you want me to believe your loving but don’t you think you make that kinda tough*
 
 It seems his girl wants to stay and make it work, but he just can’t bring himself to believe her. He sums it up in the last verse, with a brilliant final couplet that presages ones he would write years later.
 
-*When you didn’t even think that I was that strong*  
-*That you could really tell me what was going on*  
-*The truth hurts, girl, yes I believe that but still*  
+*When you didn’t even think that I was that strong*
+*That you could really tell me what was going on*
+*The truth hurts, girl, yes I believe that but still*
 *If the truth hurts, honey, the lies they kill me*
 
 So yes, she screwed up, and yes, she’s leaving. But it’s the singer who sent her away.
@@ -70,7 +70,7 @@ But it’s a song I’d love to hear included if we ever get that fabled *Tracks
 [Watch on Youtube: Bruce Springsteen - "She's Leaving" Version 1](https://www.youtube.com/watch?v=rLLo2vppHqw)
 
 **She’s Leaving****Recorded:** May-June 1972<br>
-**Never released**  
+**Never released**
 **First performed:** December 3, 1971 (Asbury Park, NJ)<br>
 **Last performed:** December 3, 1971 (Asbury Park, NJ)
 

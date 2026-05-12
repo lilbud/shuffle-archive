@@ -30,6 +30,6 @@ Take a listen:
 October 23, 1971 (Richmond, VA)
 August 1, 2015 (Asbury Park, NJ)
 
-**Key to the Highway**  
+**Key to the Highway**
 **First performed:**<br>
 **Last performed:**<br>

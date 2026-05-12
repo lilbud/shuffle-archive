@@ -19,8 +19,8 @@ Ah, but that guitar solo just past the three-minute mark… that’s another sto
 August 14, 1970 (Richmond, VA)
 August 14, 1970 (Richmond, VA)
 
-**Good Lovin’ Woman**  
-**Never recorded**  
+**Good Lovin’ Woman**
+**Never recorded**
 **First performed:**<br>
 **Last performed:**<br>
 

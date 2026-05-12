@@ -20,7 +20,7 @@ The tour finale was in Buenos Aires, and it was filmed for television broadcast.
 
 Bruce and Sting have remained close friends, and they’ve performed with or for each other several times over the decades since. But to me, their finest on-stage moment will always be that October night in Argentina.
 
-**Every Breath You Take**  
+**Every Breath You Take**
 **First performed:** September 17, 1988 (Montreal, Canada)<br>
 **Last performed:** October 1, 2011 (New York City, NY)<br>
 

@@ -10,16 +10,16 @@ Buried in the middle of the set was this haunting song, performed virtually as a
 
 We’re covering walking a dark, lonely road here: the narrator, like Bruce, is a musician, describing the moments immediately following the end of a concert festival. When the music stops, the communal connection is broken, and the introverted artist who just entertained thousands is now isolated and withdrawn from the crowd he so recently commanded:
 
-*Empty tin cans cover the ground*  
-*Empty love bands bled the last chords down*  
-*Stoned out people running wild*  
+*Empty tin cans cover the ground*
+*Empty love bands bled the last chords down*
+*Stoned out people running wild*
 *Someone announces they lost that night*
 
 
 
-*Then you know, then you know*  
-*Oh, how you know*  
-*When you’re standing in the middle of a crowd and you feel so alone*  
+*Then you know, then you know*
+*Oh, how you know*
+*When you’re standing in the middle of a crowd and you feel so alone*
 *The party’s over, it’s time to go home*
 
 Is Bruce singing from his imagination, or is this how he truly experiences coming down from his on-stage high? We don’t know, but .
@@ -28,9 +28,9 @@ Is Bruce singing from his imagination, or is this how he truly experiences comin
 
 There’s also a particularly revealing bridge that Bruce sings with such power and feeling that it’s easy to believe it’s personal:
 
-*Sometimes I think I was born too late*  
-*To be what I wanna be*  
-*Because when I look around me I can’t relate*  
+*Sometimes I think I was born too late*
+*To be what I wanna be*
+*Because when I look around me I can’t relate*
 *There’s no room, there’s no place for me*
 
 Bruce has said on more than one occasion that when he started out as an artist, he feared that he was already too late–that rock and roll had already reached its peak and there was nothing new that he could add to it. So this verse resonates with personal truth.
@@ -42,9 +42,9 @@ There’s no resolution, here, just observation. The song ends with the narrator
 September 1, 1971 (Long Branch, NJ)
 September 1, 1971 (Long Branch, NJ)
 
-**It’s Time to Go Home**  
-**Recorded**  
-**Released**  
+**It’s Time to Go Home**
+**Recorded**
+**Released**
 **First performed:**<br>
 **Last performed:**<br>
 

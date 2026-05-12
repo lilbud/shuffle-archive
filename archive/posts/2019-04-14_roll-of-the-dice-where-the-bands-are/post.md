@@ -18,20 +18,20 @@ Amazing, isn’t it? It’s hard to think of a song on (or any other album) that
 
 Lyrically, there’s no subtext here. Bruce lays it all out nakedly: “Where the Bands Are” is all about the joy of rock and roll, of losing yourself in the music and power of a hot band. The only times Bruce uses metaphor is to drive home the power of the music: it delivers both freedom and heartbreak, and it blows minds:
 
-*I hear the guitars ringing out there*  
-*Ringing out down Union Street*  
-*I hear the lead singer shouting out, girl*  
-*Now I wanna be a slave to the beat*  
-*Yeah tonight I wanna break my chains*  
-*Somebody break my heart, somebody shake my brains*  
-*Downtown there’s something that I wanna hear*  
+*I hear the guitars ringing out there*
+*Ringing out down Union Street*
+*I hear the lead singer shouting out, girl*
+*Now I wanna be a slave to the beat*
+*Yeah tonight I wanna break my chains*
+*Somebody break my heart, somebody shake my brains*
+*Downtown there’s something that I wanna hear*
 *There’s a sound, little girl, keeps ringing in my ear*
 
 
 
-*I wanna be where the bands are*  
-*I wanna be where the bands are*   
-*Where the bands are*  
+*I wanna be where the bands are*
+*I wanna be where the bands are*
+*Where the bands are*
 *I wanna be where the bands are*
 
 When that chorus kicks in, it’s a declaration, and Bruce wisely leaves it unadorned. It resonates with any fan of live music, and we instantly wrap ourselves in it. It’s our anthem, and my money says that even the first time you heard it, were singing the chorus, too.
@@ -40,15 +40,15 @@ When that chorus kicks in, it’s a declaration, and Bruce wisely leaves it unad
 
 The second verse makes it clear that this song isn’t just about the music, though–it’s also about the other thing that drives us to experience live music: connection.
 
-*Get off from work and I grab something to eat*  
-*I turn the corner and I drive down your street*  
-*Little gray houses darling looks like nowhere*  
-*But hey I know you’re hiding in there*  
-*Come on out for just a little while*  
-*You know that heart of stone, girl, it just ain’t your style*  
-*Tonight I wanna feel the beat of the crowd*  
-*And when I tell you that I love you (tell you that I love you)*  
-*I wanna have to shout it out loud (shout it out loud)*  
+*Get off from work and I grab something to eat*
+*I turn the corner and I drive down your street*
+*Little gray houses darling looks like nowhere*
+*But hey I know you’re hiding in there*
+*Come on out for just a little while*
+*You know that heart of stone, girl, it just ain’t your style*
+*Tonight I wanna feel the beat of the crowd*
+*And when I tell you that I love you (tell you that I love you)*
+*I wanna have to shout it out loud (shout it out loud)*
 *Shout it out loud*
 
 That “heart of stone” isn’t a throwaway metaphor–it’s verbatim link to a song that make it on that’s also about connection: ““

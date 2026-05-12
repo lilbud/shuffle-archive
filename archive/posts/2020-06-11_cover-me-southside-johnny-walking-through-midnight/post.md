@@ -12,7 +12,7 @@ Still, any Lyon/Springsteen collaboration is worth at least one listen, even one
 
 (1988)
 
-**Walking Through Midnight**  
+**Walking Through Midnight**
 **Released:***Slow Dance*<br>
 **Never performed**
 

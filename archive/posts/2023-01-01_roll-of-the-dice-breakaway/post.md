@@ -32,12 +32,12 @@ A gambler gets in too deep and loses everything; a bartender turns a trick in a 
 
 That’s the song.
 
-*Sonny abandoned his car last night*  
-*Had a meeting on the docks with a light blue Monterrey*  
+*Sonny abandoned his car last night*
+*Had a meeting on the docks with a light blue Monterrey*
 *To breakaway*
 
-*Sonny was playing all his cards last night*  
-*In a hotel room he dealt his life away*  
+*Sonny was playing all his cards last night*
+*In a hotel room he dealt his life away*
 *To breakaway*
 
 Perhaps Sonny got off lucky by signing away his car as a gambling loss, but it sure seems likely (given the rest of the song) that the meeting on the docks was a more sinister one–unable to pay his debts, Sonny is thrown off the pier and drowned.
@@ -46,19 +46,19 @@ Hoping to break away from whatever metaphorical chains bound him, he ended up br
 
 (Sonny will return in “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/).”)
 
-*Now the promises and the lies they demand it*  
-*Let the hearts that have been broken stand as the price you pay*  
-*To breakaway, oh, breakaway, oh Ronde, Ronde, Ronde, Ronde Ray*  
+*Now the promises and the lies they demand it*
+*Let the hearts that have been broken stand as the price you pay*
+*To breakaway, oh, breakaway, oh Ronde, Ronde, Ronde, Ronde Ray*
 *To breakaway*
 
 Yes, that’s the chorus for “[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)” you spotted there. Although Bruce was working on “Badlands” at the same time he recorded “Breakaway,” that iconic line (“let the broken hearts stand as the price you’ve gotta pay”) wouldn’t migrate to “Badlands” until several months later. Bruce isn’t one to let a great line go to waste.
 
-*Janie slipped from behind the bar last night*  
-*Cashed out and walked onto streets rainy and grey*  
+*Janie slipped from behind the bar last night*
+*Cashed out and walked onto streets rainy and grey*
 *To breakaway*
 
-*Janie slid into a car last night*  
-*In a parking lot she gave her soul away*  
+*Janie slid into a car last night*
+*In a parking lot she gave her soul away*
 *To breakaway*
 
 Whatever ambiguity we find in Sonny’s vignette, there’s a lot less in Janie’s. Dissatisfied with her lot, she turns to sex as a means to escape it. Her fate may not be as final as Sonny’s, but Bruce implies that she dies a death of a different kind.
@@ -71,13 +71,13 @@ We also hear the E Street Horn, a modern addition that unfortunately sounds exac
 
 Finally, there’s Bobby, who we meet in his final moments.
 
-*Bobby lay ‘neath a sheet of stars last night*  
-*His back on blacktop still warm from the heat of the day*  
+*Bobby lay ‘neath a sheet of stars last night*
+*His back on blacktop still warm from the heat of the day*
 *From breakaway*
 
-*Bobby went down hard last night*   
-*Saw a shooting star as the evening light slipped away*   
-*From breakaway* 
+*Bobby went down hard last night*
+*Saw a shooting star as the evening light slipped away*
+*From breakaway*
 
 We have no idea what led to Bobby’s demise (although the fact that he “went down hard” implies some kind of violence), but it’s clear from the “sheet of stars” metaphor that he’s gone, gone, gone. But in his final moments, he sees a shooting star–a rare and fleeting glimpse of beauty that momentarily breaks through and ultimately away.
 

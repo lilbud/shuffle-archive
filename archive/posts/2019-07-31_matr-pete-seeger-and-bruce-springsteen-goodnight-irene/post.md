@@ -31,6 +31,6 @@ Because the power had been cut, only those near the stage (or the engineers moni
 May 3, 2009 (New York City, NY)
 July 14, 2012 (London, England)
 
-**Goodnight, Irene**  
+**Goodnight, Irene**
 **First performed:**<br>
 **Last performed:**<br>

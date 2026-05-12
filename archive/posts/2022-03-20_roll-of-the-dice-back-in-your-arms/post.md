@@ -44,26 +44,26 @@ If you’ve watched all of the above clips, then by now at least one thing shoul
 
 The lyrics themselves paint a picture of a desolate landscape with a sole inhabitant: a forlorn ex-lover desperate to recapture his lost grace.
 
-*In my dream our love was lost, I lived by luck and fate*  
-*I carried you inside of me, prayed it wouldn’t be too late*  
-*Now I’m standin’ on this empty road where nothin’ moves but the wind*  
-*And honey I just wanna be back in your arms*  
+*In my dream our love was lost, I lived by luck and fate*
+*I carried you inside of me, prayed it wouldn’t be too late*
+*Now I’m standin’ on this empty road where nothin’ moves but the wind*
+*And honey I just wanna be back in your arms*
 *Back in your arms again*
 
 What’s fascinating to me about Bruce’s lyrics for “Back in Your Arms” is how much they bend to the will of the performer. Pretend you haven’t heard the song before, and then read the verses above and below. One could easily imagine the narrator as pitiful and needy rather than rueful and tormented.
 
-*Once I was your treasure and I saw your face in every star*  
-*But these promises we make at night, oh that’s all they are*  
-*Unless we fill them with faith and love, they’re empty as the howlin’ wind*  
-*And honey I just wanna be back in your arms*  
+*Once I was your treasure and I saw your face in every star*
+*But these promises we make at night, oh that’s all they are*
+*Unless we fill them with faith and love, they’re empty as the howlin’ wind*
+*And honey I just wanna be back in your arms*
 *Back in your arms again*
 
 See what I mean?
 
 There is one key lyrical moment in “Back in Your Arms,” however, and as is the case with many of Bruce’s songs, it comes in the form of the bridge:
 
-*You came to me with love and kindness*  
-*But all my life I’ve been a prisoner of my own blindness*  
+*You came to me with love and kindness*
+*But all my life I’ve been a prisoner of my own blindness*
 *I met you with indifference and I don’t know why*
 
 I’ve seen analysis and conjecture positing that Bruce is singing to the E Street Band here–apologizing in a way for breaking up the band years prior. (“Back in Your Arms” was recorded by the E Street Band during the great diaspora of the 1990s, at a moment when it seemed like Bruce was flirting with reuniting them.)
@@ -80,10 +80,10 @@ Perhaps it’s not a coincidence that Bruce’s performances of “Back in Your 
 
 The final verse of the song returns to form. Nothing has changed, other than the singer’s self-awareness:
 
-*Now I wake from my dream, I wake from my dream to this world*  
-*Where all is shadow and darkness and above me a dark sky unfurls*  
-*And all the love I’ve thrown away and lost I’m longin’ for again*  
-*Now darlin’ I just wanna be back in your arms*  
+*Now I wake from my dream, I wake from my dream to this world*
+*Where all is shadow and darkness and above me a dark sky unfurls*
+*And all the love I’ve thrown away and lost I’m longin’ for again*
+*Now darlin’ I just wanna be back in your arms*
 *Back in your arms again*
 
 He’s still alone, and he still wishes he wasn’t.

@@ -19,6 +19,6 @@ Wondering how you follow up a show opener like that? If you’re Bruce, you give
 February 19, 2014 (Sydney, Australia)
 February 22, 2014 (Hunter Valley, Australia)
 
-**Friday on My Mind**   
+**Friday on My Mind**
 **First performed:**<br>
 **Last performed:**<br>

@@ -14,14 +14,14 @@ It sure makes a great bookend to his previous album, though. [*Tunnel of Love*](
 
 The later song takes place if not in the aftermath of a marriage at least in the aftermath of a betrayal. Like he does in “Brilliant Disguise,” Bruce writes from the perspective of a distanced lover in a relationship, in this case one rocked by infidelity–but as to whether our narrator is the cheater or the cheated on, Bruce is deliberately inscrutable.
 
-*You do the drying, I’ll do the dishes*  
-*Who’ll do the crying when all the wishes don’t come true*  
-*You do the washing, I’ll do the folding*  
-*Whose heart is breaking when whose arms are holding someone new*  
-*Sitting on a peaceful lake sunning*  
-*Didn’t hear the roar of the waterfall coming*  
-*When it’s all a storybook story*  
-*When it’s all so easy and nice*  
+*You do the drying, I’ll do the dishes*
+*Who’ll do the crying when all the wishes don’t come true*
+*You do the washing, I’ll do the folding*
+*Whose heart is breaking when whose arms are holding someone new*
+*Sitting on a peaceful lake sunning*
+*Didn’t hear the roar of the waterfall coming*
+*When it’s all a storybook story*
+*When it’s all so easy and nice*
 *Here comes trouble in paradise*
 
 Bruce introduces us to a couple going through the motions of a marriage. They do the dishes together, and the laundry. They do the dusting and the sweeping.
@@ -30,12 +30,12 @@ What they don’t do is *talk*. There’s a cold emotional distance and disconne
 
 “Trouble in Paradise” isn’t about the effects of adultery, though. It’s about the roots of it, the missed signals, and our blindness to it. How could we be in trouble, when everything about us seems perfect?
 
-*You did the dusting, I did the sweeping*  
-*You did the driving and I did the sleeping a little too long*  
-*On a picnic ‘neath the sky so blue*  
-*We didn’t see the rain and heartache coming through*  
-*When it’s all an old black and white movie*  
-*And you’re sure you’ve seen the ending twice*  
+*You did the dusting, I did the sweeping*
+*You did the driving and I did the sleeping a little too long*
+*On a picnic ‘neath the sky so blue*
+*We didn’t see the rain and heartache coming through*
+*When it’s all an old black and white movie*
+*And you’re sure you’ve seen the ending twice*
 *Here comes trouble in paradise*
 
 In the second verse, the narrator hints that he missed the signs, although it’s still unclear whether he failed to pay attention to his own heart or his spouse’s. Is he the betrayer or the betrayed? Did he fail to see his partner straying or not recognize his own restlessness and dissatisfaction?
@@ -44,11 +44,11 @@ Either way, Bruce ends the verse with a clever meta-metaphor, comparing their ma
 
 Like many of Bruce’s best songs, the heart of “Trouble in Paradise” can be found in its bridge, which features Bruce voicing a suddenly vulnerable narrator in a vocal so heightened, anguished and soulful that it would make Sam and Dave proud.
 
-*You said everything was fine*  
-*I’m sorry baby I didn’t see the signs*  
-*Oh so beautifully you read your lines*  
-*In a play where the hero has no vice*  
-*And love comes without a price*  
+*You said everything was fine*
+*I’m sorry baby I didn’t see the signs*
+*Oh so beautifully you read your lines*
+*In a play where the hero has no vice*
+*And love comes without a price*
 *So does trouble in paradise*
 
 And it’s those last lines that pack the song’s power: *in a play where the hero has no vice and love comes without a price, so does trouble in paradise.*
@@ -57,26 +57,26 @@ We all have flaws, and love takes work to sustain. When we’re blind to the for
 
 These lyrics reference key lines from “Brilliant Disguise:”
 
-*Now you play the loving woman, I'll play the faithful man*  
+*Now you play the loving woman, I'll play the faithful man*
 *But just don't look too close into the palm of my hand*
 
 In both songs, Bruce writes of the long-term dangers of presenting yourself inauthentically, even if done so out of the best of motives–to be who we think our partner wants us to be.
 
 Bruce’s earlier narrator knew this:
 
-*So when you look at me you better look hard and look twice*  
+*So when you look at me you better look hard and look twice*
 *Is that me baby or just a brilliant disguise*
 
 *Am I the person you think I am,* he asks. *Do I let you see my true self? Do I shield you from my fears and doubts? Or am I protecting myself?* The earlier narrator asks these questions, and the later one answers them.
 
 Bruce still hasn’t hinted at who’s the betrayer in the relationship, though, and in the last verse he tells us why:
 
-*Don’t matter who did the dusting, who did the sweeping*  
-*Who did the trusting or who did the cheating when it’s all gone*  
-*Laying in a field on a summer’s day*  
-*Waiting for those gray skies to clear away*  
-*Knowing all love’s glory and beauty*  
-*Can vanish before you think twice*  
+*Don’t matter who did the dusting, who did the sweeping*
+*Who did the trusting or who did the cheating when it’s all gone*
+*Laying in a field on a summer’s day*
+*Waiting for those gray skies to clear away*
+*Knowing all love’s glory and beauty*
+*Can vanish before you think twice*
 *Leaving trouble in paradise*
 
 Bruce is deliberately vague because (he argues) blame doesn’t matter. Passivity can be as much at fault as action. Blind trust can be indistinguishable from complacency, and it can keep us from holding up our end of a relationship.
@@ -85,7 +85,7 @@ When we take our wedding vows, we promise to love and cherish, honor and hold, t
 
 In “Brilliant Disguise” the narrator is a ball of hot-wire insecurities trapped in his own head because he can’t bring himself to talk to his partner; in “Trouble in Paradise,” we might be listening to the same character, now paying the price for his failure to communicate. And as if to drive home the connection, Bruce ends “Trouble in Paradise” with a coda that echoes one of his most memorable song endings:
 
-*Now we share the laughing, we share the joking*  
+*Now we share the laughing, we share the joking*
 *Oh we do the sleeping with one eye open*
 
 Our couple hasn’t split yet, but they’re definitely broken. They *may* be healing, though, because for the first time, they aren’t dividing their duties to each other– they’re sharing them.

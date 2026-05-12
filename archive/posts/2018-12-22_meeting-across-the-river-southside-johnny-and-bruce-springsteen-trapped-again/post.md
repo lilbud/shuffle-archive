@@ -15,6 +15,6 @@ Listen to that performance here, from Bruce’s guest appearance at Southside’
 May 27, 2001 (Asbury Park, NJ)
 May 27, 2001 (Asbury Park, NJ)
 
-**Trapped Again**  
+**Trapped Again**
 **First performed:** <br>
 **Last performed:**<br>

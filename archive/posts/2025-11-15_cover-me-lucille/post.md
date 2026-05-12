@@ -30,7 +30,7 @@ So it’s no surprise to learn that Bruce covers it frequently during cover sets
 August 2, 1978 (Charlotte, NC)
 September 14, 2024 (Asbury Park, NJ)
 
-**Lucille**  
+**Lucille**
 **First performed:**<br>
 **Last performed:**<br>
 

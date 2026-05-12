@@ -24,45 +24,45 @@ Accompanied by a martial drumbeat supplied by either Bruce or Ron Aniello (both 
 
 But then Bruce enters with gentle, almost plaintive vocals against a tender guitar line, and we instantly recognize that this is a song of neither resentment or despair, but of acceptance and persistence.
 
-*Rise up shepherd, rise up*  
-*Your flock has roamed far from the hills*  
-*The stars have faded, the sky is still*  
+*Rise up shepherd, rise up*
+*Your flock has roamed far from the hills*
+*The stars have faded, the sky is still*
 *The angels are shouting “Glory hallelujah”*
 
-*Forty days and nights of rain have washed this land*  
-*Jesus said the money changers in this temple will not stand*  
-*Find your flock, get them to higher ground*  
+*Forty days and nights of rain have washed this land*
+*Jesus said the money changers in this temple will not stand*
+*Find your flock, get them to higher ground*
 *The floodwater’s rising, we’re Canaan bound*
 
 The first verse begins with what sounds like a call to arms, one that Bruce has issued before: *Rise up!*
 
 Here, however, it’s a warning rather than a command. Throughout the song, the shepherd symbolizes the parent, and the flock reflects the family. “Rocky Ground” is about the challenge of raising a family in a world without a safety net, where societal welfare takes a backseat to corporate profiteering, capitalism trumps community, and systemic inequality makes safe and secure child-rearing a lonely and uphill undertaking.
 
-Bruce’s vocals warn the shepherd: *Get up. Do you know where you children are? Make sure you do, and that they’re on the right path, because judgment is coming. It’s a cold, hard world out there, and it cannot stand.* 
+Bruce’s vocals warn the shepherd: *Get up. Do you know where you children are? Make sure you do, and that they’re on the right path, because judgment is coming. It’s a cold, hard world out there, and it cannot stand.*
 
-*Tend to your flock or they will stray*  
-*We’ll be called for our service come judgment day*  
-*Before we cross that river wide*  
+*Tend to your flock or they will stray*
+*We’ll be called for our service come judgment day*
+*Before we cross that river wide*
 *The blood on our hands will come back on us twice*
 
 *They need you*, Bruce tells the shepherd. *Your kids need you, and they need your guidance. The good they do will be rewarded; the bad will be revisited.*
 
-*Rise up shepherd, rise up*  
-*Your flock has roamed far from the hills*  
-*Stars have faded, the sky is still*  
+*Rise up shepherd, rise up*
+*Your flock has roamed far from the hills*
+*Stars have faded, the sky is still*
 *Sun’s in the heavens and a new day’s rising*
 
 *A new day is rising*. Those sound like words of hope, but they’re not.
 
 Until this point, “Rocky Ground” urges faith and action, but in Moore’s spoken-word bridge (some call it a rap, but I’m not sure it fits the definition), faith falls away along with biblical metaphor. Elegance gives way to prosaicness, and a street-level cadence grounds us in harsh reality.
 
-*You use your muscle and your mind and you pray your best*  
-*That your best is good enough, the Lord will do the rest*  
-*You raise your children and you teach them to walk straight and sure*  
-*You pray that hard times, hard times come no more*  
-*You try to sleep, you toss and turn, the bottom’s dropping out*  
-*Where you once had faith now there’s only doubt*  
-*You pray for guidance, only silence now meets your prayers*  
+*You use your muscle and your mind and you pray your best*
+*That your best is good enough, the Lord will do the rest*
+*You raise your children and you teach them to walk straight and sure*
+*You pray that hard times, hard times come no more*
+*You try to sleep, you toss and turn, the bottom’s dropping out*
+*Where you once had faith now there’s only doubt*
+*You pray for guidance, only silence now meets your prayers*
 *The morning breaks, you awake but no one’s there*
 
 *A new day is rising*. There’s no hope here in those words; they’re nothing but an alarm clock.

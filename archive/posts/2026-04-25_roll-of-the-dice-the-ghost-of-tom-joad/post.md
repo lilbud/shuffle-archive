@@ -10,18 +10,18 @@ The result was the most widely known version of the song, the one that appeared 
 
 For a song that wears its lyrical influences on its sleeves, “The Ghost of Tom Joad” is surprisingly elusive to pin down. On first listen, it seems straightforward: the song is nothing more (or less) than a painted street scene, the way Bruce used to do frequently in his earliest work. But the people in this painting have nowhere else to go. But go they must–because they have no place to stay, and nowhere to return.
 
-*Men walking ‘long the railroad tracks*  
-*Going someplace and there’s no going back*  
-*Highway patrol choppers coming up over the ridge*  
-*Hot soup on a campfire under the bridge*  
-*Shelter line stretching ’round the corner*  
-*Welcome to the new world order*  
-*Families sleeping in their cars in the southwest*  
+*Men walking ‘long the railroad tracks*
+*Going someplace and there’s no going back*
+*Highway patrol choppers coming up over the ridge*
+*Hot soup on a campfire under the bridge*
+*Shelter line stretching ’round the corner*
+*Welcome to the new world order*
+*Families sleeping in their cars in the southwest*
 *No home, no job, no peace, no rest*
 
-*Well the highway is alive tonight*  
-*But nobody’s kidding nobody about where it goes*  
-*I’m sitting down here in the campfire light*  
+*Well the highway is alive tonight*
+*But nobody’s kidding nobody about where it goes*
+*I’m sitting down here in the campfire light*
 *Searching for the ghost of Tom Joad*
 
 Much is made of the line “The highway is alive tonight,” because of the prominence of the open road as a metaphor for opportunity and escape in Bruce’s early work. In “The Ghost of Tom Joad,” the line simply serves to contrast the stillness of the homeless with the motion of the moneyed, to make us wonder the next time we’re driving late at night who we might be passing along the roadside bed. The follow-up line, “nobody’s kidding nobody about where it goes” acknowledges the inescapable reality of these people’s existence.
@@ -30,18 +30,18 @@ If it seems like nothing really happens in “The Ghost of Tom Joad,” that’s
 
 But there’s also a nagging ambiguity in “The Ghost of Tom Joad.” Who is the narrator, exactly? Is he one of the characters in the painting, sleeping in his car, waiting in a shelter line? Or is he merely an observer, unable to look away from his fellow man but unable to summon the strength and will to try to change things?
 
-*He pulls a prayer book out of his sleeping bag*  
-*Preacher lights up a butt and he takes a drag*  
-*Waiting for when the last shall be first and the first shall be last*  
-*In a cardboard box ‘neath the underpass*  
-*You got a one-way ticket to the promised land*  
-*You got a hole in your belly and a gun in your hand*  
-*Sleeping on a pillow of solid rock*  
+*He pulls a prayer book out of his sleeping bag*
+*Preacher lights up a butt and he takes a drag*
+*Waiting for when the last shall be first and the first shall be last*
+*In a cardboard box ‘neath the underpass*
+*You got a one-way ticket to the promised land*
+*You got a hole in your belly and a gun in your hand*
+*Sleeping on a pillow of solid rock*
 *Bathing in the city aqueduct*
 
-*And the highway is alive tonight*  
-*Where it’s headed everybody knows*  
-*I’m sitting down here in the campfire light*  
+*And the highway is alive tonight*
+*Where it’s headed everybody knows*
+*I’m sitting down here in the campfire light*
 *Waiting on the ghost of Tom Joad*
 
 I tend toward the latter–I think if Bruce had intended us to empathize with the preacher bathing in the aqueduct, or with the men walking along the railroad tracks, he’d have taken pains to clearly establish his narrator as one of them. No, the point of “The Ghost of Tom Joad” isn’t for us to put ourselves in the place of the dislocated, but rather for us to take a good hard look at who we actually are.
@@ -52,18 +52,18 @@ Like many of Bruce’s best songs, “The Ghost of Tom Joad” works either way.
 
 Or maybe we’re just a bystander, tormented by the scene to which we bear witness, trying to summon the fortitude that Joad promised would be with us when we needed it.
 
-*Tom said, “Mom, wherever there’s a cop beating a guy*  
-*Wherever a hungry newborn baby cries*  
-*Where there’s a fight against the blood and hatred in the air*  
-*Look for me, Mom, I’ll be there*  
-*Where there’s somebody fighting for a place to stand*  
-*Or a decent job or a helping hand*  
-*Wherever somebody’s struggling to be free*  
+*Tom said, “Mom, wherever there’s a cop beating a guy*
+*Wherever a hungry newborn baby cries*
+*Where there’s a fight against the blood and hatred in the air*
+*Look for me, Mom, I’ll be there*
+*Where there’s somebody fighting for a place to stand*
+*Or a decent job or a helping hand*
+*Wherever somebody’s struggling to be free*
 *Look in their eyes, Mom, you’ll see me”*
 
-*The highway is alive tonight*  
-*But nobody’s kidding nobody about where it goes*  
-*I’m sitting down here in the campfire light*  
+*The highway is alive tonight*
+*But nobody’s kidding nobody about where it goes*
+*I’m sitting down here in the campfire light*
 *With the ghost of old Tom Joad*
 
 Bruce’s allusions to *The Grapes of Wrath* are many–and the most important ones lie much deeper than the title and the last verse. For one, Bruce’s decision to make the central character of the second verse a preacher isn’t an accident–that’s a direct reference to Jim Casy, the doomed preacher, moral center, and Jesus Christ stand-in (note the character’s initials) in Steinbeck’s novel that inspires Tom to be a better man.

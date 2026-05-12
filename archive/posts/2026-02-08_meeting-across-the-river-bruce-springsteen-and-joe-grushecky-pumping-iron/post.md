@@ -37,7 +37,7 @@ Bruce and Joe would reprise it many times over the years that followed–althoug
 July 22, 1995 (Sea Bright, NJ)
 January 17, 2026 (Red Bank, NJ)
 
-**Pumping Iron**  
+**Pumping Iron**
 **First performed:**<br>
 **Last performed:**<br>
 

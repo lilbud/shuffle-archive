@@ -29,6 +29,6 @@ PS/PSA: is keeping the music of The Soul Survivors and other Philly legends aliv
 May 4, 2009 (Uniondale, NY)
 May 4, 2009 (Uniondale, NY)
 
-**Expressway to Your Heart**   
+**Expressway to Your Heart**
 **First performed:** <br>
 **Last performed:**<br>

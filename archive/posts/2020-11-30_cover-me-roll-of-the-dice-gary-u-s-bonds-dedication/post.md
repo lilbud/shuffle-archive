@@ -29,58 +29,58 @@ Anyway, let’s check out the song, because it’s pretty darn great and a whole
 
 This is Bruce in pure pop mode, using historical vignettes in clever comparison to his romantic promises:
 
-*Well way back, baby, in the Bible time*  
-*A cat named Noah built an ocean liner*  
-*Everybody laughed when he told them why*  
+*Well way back, baby, in the Bible time*
+*A cat named Noah built an ocean liner*
+*Everybody laughed when he told them why*
 *But when the rain came, Noah, he was high and dry*
 
 
 
-*‘Cause he had dedication, baby, through and through*  
-*Dedication like I give to you*  
-*Dedication, girl, every way*  
+*‘Cause he had dedication, baby, through and through*
+*Dedication like I give to you*
+*Dedication, girl, every way*
 *Dedication, girl, every day*
 
 
 
-*Well Admiral Byrd and some Eskimos*  
-*They took a little trip to the old North Pole*  
-*Well they said it was a miracle when they made it back*  
+*Well Admiral Byrd and some Eskimos*
+*They took a little trip to the old North Pole*
+*Well they said it was a miracle when they made it back*
 *But he said that wasn’t any miracle, Jack*
 
 
 
-*Man, it took dedication baby through and through*  
-*Dedication like I give to you*  
-*Dedication, girl, in every way*  
+*Man, it took dedication baby through and through*
+*Dedication like I give to you*
+*Dedication, girl, in every way*
 *Dedication, girl, every day*
 
 
 
-*Well now there was a movie star out in Hollywood*  
-*He met a little girl, they got along real good*  
-*He tried to split but the chick she told him, “Not so fast*  
+*Well now there was a movie star out in Hollywood*
+*He met a little girl, they got along real good*
+*He tried to split but the chick she told him, “Not so fast*
 *Ain’t gonna wrap me in your arms, then wrap me in some cash”*
 
 
 
-*Now it was on TV, every word they said*  
-*If you didn’t see it, man, you must have been dead*  
-*She got on the witness stand, sighed without a care*  
+*Now it was on TV, every word they said*
+*If you didn’t see it, man, you must have been dead*
+*She got on the witness stand, sighed without a care*
 *She turned to the judge and this is what she said:*
 
 
 
-*I gave him dedication, judge, every day*  
-*Dedication, judge, in every way*  
-*I need some dedication, judge, that can be spent*  
+*I gave him dedication, judge, every day*
+*Dedication, judge, in every way*
+*I need some dedication, judge, that can be spent*
 *A little dedication, judge, to pay the rent*
 
 
 
-*Dedication baby through and through*  
-*Dedication like I give to you*  
-*Dedication, girl, every way*  
+*Dedication baby through and through*
+*Dedication like I give to you*
+*Dedication, girl, every way*
 *Dedication, girl, every day*
 
 They’re not Bruce’s deepest lyrics, but they would have been right at home on alongside a song like “.” (The two songs even share similar “frat rock” introductions.)

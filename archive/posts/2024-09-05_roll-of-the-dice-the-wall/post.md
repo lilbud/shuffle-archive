@@ -40,22 +40,22 @@ Neither of them abandoned the idea, however. In 2002, Joe released “On The Wal
 
 In the article, the reporter asked Ranger Black if he’d ever been particularly affected by any of the items he’d collected. The article is decades out of print, and the current incarnation of *USA Today* doesn’t have an on-line archive of their 20th century issues. But Joe’s lyrics in “On the Wall” memorialized Ranger Black’s response.
 
-*Mr. Black works as a park ranger*  
-*Every night at 10:00 he makes all his rounds*  
-*He gathers up all the photos and the flowers*  
+*Mr. Black works as a park ranger*
+*Every night at 10:00 he makes all his rounds*
+*He gathers up all the photos and the flowers*
 *And the memories left on the ground*
 
-*There was a picture that he will always remember*  
-*One that sticks in his mind the most*  
-*There were two friends so young and so handsome*  
+*There was a picture that he will always remember*
+*One that sticks in his mind the most*
+*There were two friends so young and so handsome*
 *So full of life they were drinking a toast*
 
-*There was a picture of them in their barracks*  
-*And they were just laughing and fooling around*  
-*There’s an ID and the date on the back*  
+*There was a picture of them in their barracks*
+*And they were just laughing and fooling around*
+*There’s an ID and the date on the back*
 *Ranger Black was curious so he looked on the wall and then he found*
 
-*That the names were written*   
+*That the names were written*
 *Their names were written on The Wall.*
 
 As for Bruce, he took a quieter, pensive, almost muted approach. He wrote “The Wall” in the voice of a visitor trying to make sense of his long-ago loss. While Bruce fictionalizes the name of his childhood friend, Billy is clearly a stand-in for Walter, as anyone who has read *Born to Run* or attended *Springsteen on Broadway* will recognize.
@@ -88,14 +88,14 @@ Although he had only performed the song acoustically to that point, Bruce cut �
 
 “The Wall” remained pretty much intact in its journey from stage to disc. Bruce altered a few lyrical details (a striped t-shirt instead of a black one, the day goes on instead of life, dog tags instead of high school pictures, etc.) but nothing remotely substantial enough to change the meaning or power of the song on the listener.
 
-*Cigarettes and a bottle of beer, this poem that I wrote for you*  
-*This black stone and these hard tears are all I got left now of you*  
-*I remember you in your Marine uniform laughing, laughing at your ship out party*  
+*Cigarettes and a bottle of beer, this poem that I wrote for you*
+*This black stone and these hard tears are all I got left now of you*
+*I remember you in your Marine uniform laughing, laughing at your ship out party*
 *I read Robert McNamara says he’s sorry*
 
-*Your high boots and striped t-shirt, ah, Billy you looked so bad*  
-*Yeah you and your rock and roll band, you were the best thing this shit town ever had*  
-*Now the men that put you here eat with their families in rich dining halls*  
+*Your high boots and striped t-shirt, ah, Billy you looked so bad*
+*Yeah you and your rock and roll band, you were the best thing this shit town ever had*
+*Now the men that put you here eat with their families in rich dining halls*
 *And apology and forgiveness got no place here at all, here at the wall*
 
 What makes “The Wall” so powerful isn’t so much the lyrics as Bruce’s delivery. His narrator is quiet, pensive, restrained. If it were a poem rather than a song, we’d perceive lines like ” I read Robert McNamara says he’s sorry” as bitterly sarcastic, and “Now the men that put you here eat with their families in rich dining halls” as indicting recrimination.
@@ -104,14 +104,14 @@ But instead, Bruce quietly ruminates, imbuing his lyrics with greater nuance tha
 
 *Apology and forgiveness got no place here at all, here at the wall.* Like many of Bruce’s best songs, the essence of “The Wall” can be found in a single, powerful line. The Wall isn’t a place for forgiving or for seeking it. It’s a place for a remembering, something innately understood by its never ending procession of visitors.
 
-*Well I’m sorry I missed you last year, I couldn’t find no one to drive me*  
-*If your eyes could cut through that black stone, tell me would they recognize me*  
-*For the living time it must be served as the day goes on*  
+*Well I’m sorry I missed you last year, I couldn’t find no one to drive me*
+*If your eyes could cut through that black stone, tell me would they recognize me*
+*For the living time it must be served as the day goes on*
 *Cigarettes and a bottle of beer, skin on black stone*
 
-*On the ground dog tags and wreaths of flowers, with the ribbons red as the blood*  
-*Red as the blood you spilled in the Central Highlands mud*  
-*Limousines rush down Pennsylvania Avenue, rustling the leaves as they fall*  
+*On the ground dog tags and wreaths of flowers, with the ribbons red as the blood*
+*Red as the blood you spilled in the Central Highlands mud*
+*Limousines rush down Pennsylvania Avenue, rustling the leaves as they fall*
 *And apology and forgiveness got no place here at all, here at the wall*
 
 If there’s a second line that captures the soul of “The Wall,” it’s this one: *For the living time it must be served as the day goes on.* The curse of remembering is never forgetting.

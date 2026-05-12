@@ -22,33 +22,33 @@ Whenever Bruce refers to a Cadillac, he speaks of Death. (In this song, at least
 
 So when Bruce sings…
 
-*Well there she sits, buddy, just a-gleaming in the sun*  
+*Well there she sits, buddy, just a-gleaming in the sun*
 *There to greet a working man when his day is done*
 
 …he’s saying: Death is always nearby, waiting patiently for the end of your working day (i.e. your life).
 
-*I’m gonna pack my pa and I’m gonna pack my aunt*  
+*I’m gonna pack my pa and I’m gonna pack my aunt*
 *I’m gonna take them down to the Cadillac Ranch*
 
 My dad’s dead. My aunt’s dead, too. I’m burying them both.
 
 (Bruce sometimes changes the line to “I *wanna* pack my aunt” which makes the line much funnier.)
 
-*Eldorado fins, whitewalls and skirts*  
-*Rides just like a little bit of heaven here on earth*  
-*Well buddy when I die throw my body in the back*  
+*Eldorado fins, whitewalls and skirts*
+*Rides just like a little bit of heaven here on earth*
+*Well buddy when I die throw my body in the back*
 *Drive me to the junkyard in my Cadillac*
 
 Heaven on earth, get it? Clever jokes aside, what Bruce is really saying in this verse and in the chorus that follows is: Life is a road trip, and death is the destination. If you don’t make an effort to enjoy the ride, then what’s the point of driving at all?
 
-*Cadillac, Cadillac*  
-*Long and dark, shiny and black*  
-*Open up your engines let ’em roar*  
+*Cadillac, Cadillac*
+*Long and dark, shiny and black*
+*Open up your engines let ’em roar*
 *Tearing up the highway like a big old dinosaur*
 
-*James Dean in that Mercury ’49*  
-*Junior Johnson running through the woods of Caroline*  
-*Even Burt Reynolds in that black Trans Am*  
+*James Dean in that Mercury ’49*
+*Junior Johnson running through the woods of Caroline*
+*Even Burt Reynolds in that black Trans Am*
 *All gonna meet down at the Cadillac Ranch*
 
 James Dean died young; Junior Johnson and Burt Reynolds lived well into their eighties. But they all drove fast–both literally and figuratively.
@@ -57,18 +57,18 @@ Bruce couldn’t have known when he wrote the song that Johnson and Reynolds wou
 
 All this time, by the way, the E Street Band plays with barely restrained abandon, as if in desperation to distract us from our inevitable demise–which of course is the intent. But in the song’s final verse, things take an unexpectedly tragic turn.
 
-*Hey little girlie in the blue jeans so tight*  
-*Driving alone through the Wisconsin night*  
-*You’re my last love, baby, you’re my last chance*  
+*Hey little girlie in the blue jeans so tight*
+*Driving alone through the Wisconsin night*
+*You’re my last love, baby, you’re my last chance*
 *Don’t let ’em take me to the Cadillac Ranch*
 
 I love this verse, because we can read it in different ways: if we’re romantically inclined, the little girlie is a fellow life traveler–pairing up can help us both live better and maybe even longer. If we’re more self-absorbed, our little girlie represents youth, sex, a May/December mid-life crisis as we find ourselves no longer able to ignore our advancing age.
 
 Either way, it doesn’t end well. In an ironic twist, it’s not our mortality-obsessed narrator who Death claims in “Cadillac Ranch.”
 
-*Cadillac, Cadillac*  
-*Long and dark, shiny and black*  
-*Pulled up to my house today*  
+*Cadillac, Cadillac*
+*Long and dark, shiny and black*
+*Pulled up to my house today*
 *Came and took my little girl away*
 
 Wow! We didn’t see *that* coming, did we? I think we can safely assume that by “little girl,” our narrator refers to the aforementioned lady love, although it’s possible that he has a daughter.

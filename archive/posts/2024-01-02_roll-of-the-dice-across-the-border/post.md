@@ -16,62 +16,62 @@ For most of its lyrical length, “Across the Border” leads us to believe the 
 
 Musically, “Across the Border” feels like a lullaby, too, with Bruce gently accompanying himself on acoustic guitar before his small band (Danny Federici on keys and accordion, Marty Rifkin on pedal steel, Jennifer Condos on bass (in her sole Springsteen catalog appearance), and Garry Mallaber on drums) quietly carries us to dreamland.
 
-*Tonight my bag is packed*  
-*Tomorrow I’ll walk these tracks*  
+*Tonight my bag is packed*
+*Tomorrow I’ll walk these tracks*
 *That’ll lead me across the border*
 
-*Tomorrow my love and I*  
-*Will sleep ‘neath auburn skies*  
+*Tomorrow my love and I*
+*Will sleep ‘neath auburn skies*
 *Somewhere across the border*
 
-*We’ll leave behind, my dear*  
-*Pain and sadness we found here*  
+*We’ll leave behind, my dear*
+*Pain and sadness we found here*
 *And we’ll drink from the Bravo’s muddy waters*
 
-*Where the sky grows gray and wide*  
-*We’ll meet on the other side*  
+*Where the sky grows gray and wide*
+*We’ll meet on the other side*
 *There across the border*
 
 Notice the craft with which Bruce paints the scene: the first stanza (like most of *The Ghost of Tom Joad*, “Across the Border” does not follow a verse/chorus format) is the narrator’s mission statement; the second begins to paint a vision with the first selection from an entire palette of colors–earth tones at first (auburn, muddy brown, gray) then pastoral (grassy green and gold) as the band kicks in and we drift off to slumber.
 
-*For you I’ll build a house*  
-*High up on a grassy hill*  
+*For you I’ll build a house*
+*High up on a grassy hill*
 *Somewhere across the border*
 
-*Where pain and memory*  
-*Pain and memory have been stilled*  
+*Where pain and memory*
+*Pain and memory have been stilled*
 *There across the border*
 
-*And sweet blossoms fill the air*  
-*Pastures of gold and green*  
+*And sweet blossoms fill the air*
+*Pastures of gold and green*
 *Roll down into cool clear waters*
 
-*And in your arms ‘neath open skies*  
-*I’ll kiss the sorrow from your eyes*  
+*And in your arms ‘neath open skies*
+*I’ll kiss the sorrow from your eyes*
 *There across the border*
 
 We’re reminded of the moment in *The Wizard of Oz* when Dorothy surrenders to her dream: the waters are no longer muddy but cool and clear, the skies blue and open rather than gray and wide. Even the dry pastures are golden rather than brown.
 
 But there’s a recurrence of *pain* as well that suggests that our narrator isn’t just dreaming of a better life–he’s dreaming of escape from a hard one. Bruce’s harmonica solo here is a wistful one, our first hint that perhaps the singer’s dream isn’t as within reach as we’d hope. But our narrator redoubles his resolve, filling the following stanzas with his longing.
 
-*Tonight we’ll sing the songs*  
-*I’ll dream of you my corazon*  
+*Tonight we’ll sing the songs*
+*I’ll dream of you my corazon*
 *And tomorrow my heart will be strong*
 
-*And may the saints’ blessings and grace*  
-*Carry me safely into your arms*  
+*And may the saints’ blessings and grace*
+*Carry me safely into your arms*
 *There across the border*
 
 From this point forward, “Across the Border” takes flight, our hero’s resolute faith carried skyward by Soozie Tyrell’s violin (recorded in multiple takes, all of which Bruce uses, interweaving them to dreamlike effect).
 
 And then comes the final stanzas, featuring what is surely one of Bruce’s finest lyrics: *for what are we without hope in our hearts?*
 
-*For what are we*  
-*Without hope in our hearts*  
+*For what are we*
+*Without hope in our hearts*
 *That someday we’ll drink from God’s blessed waters*
 
-*And eat the fruit from the vine*  
-*I know love and fortune will be mine*  
+*And eat the fruit from the vine*
+*I know love and fortune will be mine*
 *Somewhere across the border*
 
 Bruce’s final words are heartbreaking: *somewhere* across the border. Note the change from the definitive *there* he uses to close each AABA stanza pattern until this point. The songwriter’s deliberate switch from *there* to *somewhere* betrays a crack in the narrator’s emotional armor–not enough to weaken the song’s power, but enough to remind us that faith isn’t the same thing as naivete and that hope rhymes with bravery. These notions are important–both here and especially in the song’s sequel, “[Matamoros Banks](https://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/).”

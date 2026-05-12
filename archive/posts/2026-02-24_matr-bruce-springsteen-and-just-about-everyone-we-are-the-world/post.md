@@ -42,7 +42,7 @@ Bruce’s contributions were both memorable and spontaneous. He enters with thun
 
 “We Are The World” featured the talents and contributions of dozens of artists and raised awareness and resources to fight hunger not just in Africa but in the U.S.A. as well. Bruce was just one of many who gave their time and talent that night, but without him the song wouldn’t have been the same.
 
-**We Are The World**  
+**We Are The World**
 **Recorded:** January 28-29, 1985<br>
 **Released:** *We Are The World* (1985)<br>
 **Never performed live**

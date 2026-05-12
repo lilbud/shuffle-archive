@@ -34,7 +34,7 @@ Her most memorable E Street stage appearance may have been the evening of Novemb
 
 They weren’t alone. Ronnie Spector passed away this evening (as I write this) after losing her battle with cancer. If there’s an Internet in the afterlife, perhaps she’ll see the tributes pouring in from around the globe and realize how much she meant to a world touched by her inimitable voice.
 
-**Ronnie Spector**  
+**Ronnie Spector**
 **August 10, 1943 – January 12, 2022**
 
 **Walking in the Rain**

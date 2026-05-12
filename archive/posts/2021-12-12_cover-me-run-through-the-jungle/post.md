@@ -21,6 +21,6 @@ But that’s a story for another time.
 April 29, 1981 (Rotterdam, The Netherlands)
 May 8, 1981 (Stockholm, Sweden)
 
-**Run Through the Jungle**  
+**Run Through the Jungle**
 **First performed:**<br>
 **Last performed:**<br>

@@ -66,7 +66,7 @@ Even the songwriter was forced to admit there’s not a lot of substance here:
 
 (“I just liked .”)
 
-*Don’t trust men who walk with canes*  
+*Don’t trust men who walk with canes*
 *Drink this and you’ll grow wings on your feet* *that*
 
 (“Those New York City girls…”)
@@ -111,7 +111,7 @@ Even the songwriter was forced to admit there’s not a lot of substance here:
 
 
 
-*The Daily News asks her for the dope*  
+*The Daily News asks her for the dope*
 *She says, “Man, the dope’s that there’s still hope”*
 
 “That’s the song. The song that you get on the album… I don’t have it. I got to it, but I didn’t have it. But somebody once said that a good rock song is really only one good line, you just need one good line that takes you where you want to go and the other stuff is like, kinda getting there, you know, and I think that’s true. As long as you find that one good one, that takes it and puts it on the record.”
@@ -128,7 +128,7 @@ But wait: we’re not quite done. Remember that “third part” Bruce referred 
 
 
 
-*wipes her eyes and blows her nose*  
+*wipes her eyes and blows her nose*
 *Uptown in Harlem she throws a rose to some lucky young matador*
 
 (“That’s love, kisses, some fancy I got of myself as some spankin’ uptown dude and just… good things. All the joy in life.”)

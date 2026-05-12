@@ -31,6 +31,6 @@ Bruce and Sting have remained close friends, and they’ve performed with or for
 September 17, 1988 (Montreal, Canada)
 October 1, 2011 (New York City, NY)
 
-**Every Breath You Take**  
+**Every Breath You Take**
 **First performed:**<br>
 **Last performed:**<br>

@@ -18,22 +18,22 @@ He certainly succeeded–the modern version is even more lush (and almost statel
 
 It’s just too bad Bruce didn’t put more effort into the lyrics. I certainly don’t believe that every song needs depth and meaning; some of my favorite Springsteen songs are his pop cast-offs. But when I read or listen to the lyrics I can’t help but feel like Bruce phoned this one in–there’s barely even a hint of metaphor, and whatever passion and longing the narrator feels is communicated only by the music, not the words.
 
-*Your voice comes calling through the mist*  
-*I awake from a dream and my heart begins to drift*  
-*Tonight we’re on our own*  
-*Tonight we’re all alone*  
+*Your voice comes calling through the mist*
+*I awake from a dream and my heart begins to drift*
+*Tonight we’re on our own*
+*Tonight we’re all alone*
 *Oh, tonight…*
 
-*Someday we’ll be together*  
-*And the night will fall around us*  
-*This love will last forever*  
-*Someday we’ll be together*  
+*Someday we’ll be together*
+*And the night will fall around us*
+*This love will last forever*
+*Someday we’ll be together*
 *Together…*
 
-*I can’t sleep so I lie awake listenin’ to the sounds of the city below*  
-*I get dressed and walk the streets but I got nowhere to go*  
-*Tonight it’s you I miss*  
-*Tonight my only wish is*  
+*I can’t sleep so I lie awake listenin’ to the sounds of the city below*
+*I get dressed and walk the streets but I got nowhere to go*
+*Tonight it’s you I miss*
+*Tonight my only wish is*
 *Oh, tonight*
 
 Bruce has never performed it in concert, and I wouldn’t lay odds of him doing so anytime soon. But “Someday (We’ll Be Together”) is still a perfectly serviceable if unremarkable deep cut and curiosity on *The Promise*.

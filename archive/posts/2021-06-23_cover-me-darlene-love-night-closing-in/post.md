@@ -14,25 +14,25 @@ Bruce contributed two original songs to the project, one of which is the *very* 
 
 The day provides its distractions, but the clock counts down to the night–and the night brings it all back home in a steamy final verse.
 
-*The morning light greets me when I wake*  
-*And for just one moment I forget my heartache*  
-*And the lonely lonely hours start wearing me thin*  
-*Baby I can feel the night*  
-*Baby I can feel the night*  
+*The morning light greets me when I wake*
+*And for just one moment I forget my heartache*
+*And the lonely lonely hours start wearing me thin*
+*Baby I can feel the night*
+*Baby I can feel the night*
 *Baby I can feel the night, closing in*
 
-*Get out of bed, put on my stockings and my skirt*  
-*Day by day and step by step I make it through work*  
-*Then there’s the sun, sinks down, that’s when the blues began*  
-*Baby I can feel the night*  
-*And baby I can feel the night*  
+*Get out of bed, put on my stockings and my skirt*
+*Day by day and step by step I make it through work*
+*Then there’s the sun, sinks down, that’s when the blues began*
+*Baby I can feel the night*
+*And baby I can feel the night*
 *Baby I can feel the night, closing in*
 
-*And into bed, naked under the sheets*  
-*I try not to think about you but I can feel the heat*  
-*And in the midnight hour, that’s when the blues began*  
-*And baby I can feel the night*  
-*Baby I can feel the night*  
+*And into bed, naked under the sheets*
+*I try not to think about you but I can feel the heat*
+*And in the midnight hour, that’s when the blues began*
+*And baby I can feel the night*
+*Baby I can feel the night*
 *Baby I can feel the night, closing in*
 
 We don’t know exactly when Bruce wrote “Night Closing In,” or whether he’s ever recorded it for himself (the song certainly seems written for a woman to sing, but Bruce has recorded songs from a female point of view before), but I can’t help but notice the musical similarity to “Loose Ends” in the opening sax solo, bridge, and coda.

@@ -10,40 +10,40 @@ At a 1973 show in Bryn Mawr, PA, Bruce recounted the origin of the song, born ou
 
 The lyrics are a series of streetscapes–the first from above, as a boy watches a parade featuring Daniel Webster, Robert Oppenheimer, Sam Houston, and more–but wonders whence Santa Anna.
 
-*From the tin rooftop the little boy did watch the procession down through town*  
-*Through the museum where Daniel whupped the Devil with them boys from the underground*  
-*Where the Giants of Science fight for tight control over the wildlands of New Mexico*  
-*Sam Houston’s ghost’s in Texas fighting for his soul*  
-*And the townsfolk rest uneasy beneath the guns of Kid Cole (ahhhh)*  
-*And the kid says, “Hey, where is Santa Ana?”*  
-*He who could romance the dumb into talking*  
-*Take a chance with me tonight, my contessa*  
+*From the tin rooftop the little boy did watch the procession down through town*
+*Through the museum where Daniel whupped the Devil with them boys from the underground*
+*Where the Giants of Science fight for tight control over the wildlands of New Mexico*
+*Sam Houston’s ghost’s in Texas fighting for his soul*
+*And the townsfolk rest uneasy beneath the guns of Kid Cole (ahhhh)*
+*And the kid says, “Hey, where is Santa Ana?”*
+*He who could romance the dumb into talking*
+*Take a chance with me tonight, my contessa*
 *If it don’t work out I ain’t lame, I can walk, hey!*
 
 The second verse is grittier and streetier, with imagery reminiscent of “[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)” from the same period. It also features a lyric pairing too good to languish in obscurity:
 
-*Now some folks think cancer’s taken to the streets of this town*  
-*But Sandy eats her candy and then lays her money down*  
-*Them cats are in from the canyons to strut their stuff in town*  
-*But there’s only secret sinners here, Lord, there’s only secret thieves*  
-*Only a fool would try to save what the desert chose to leave*  
-*And now, hey there, senorita, with your playboys in their Spanish bandanas*  
-***French cream won’t soften those boots, baby***  
+*Now some folks think cancer’s taken to the streets of this town*
+*But Sandy eats her candy and then lays her money down*
+*Them cats are in from the canyons to strut their stuff in town*
+*But there’s only secret sinners here, Lord, there’s only secret thieves*
+*Only a fool would try to save what the desert chose to leave*
+*And now, hey there, senorita, with your playboys in their Spanish bandanas*
+***French cream won’t soften those boots, baby***
 ***French kisses will not break your heart, oh!***
 
 (Those last two lines would reappear slightly morphed in “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)” a few years later.)
 
 In the final verse, the boy–no longer so little–joins the street scene and imagines himself as Santa Anna, the Napoleon of the West reduced to a cartoon as he “matches braces” with a Spanish lady, enjoying the night and spurning the Giants of Science to live in the moment.
 
-*Oh, painted night set free with light glows outside the Rainbow Saloon*  
-*Matching braces with a Spanish lady ‘neath a graduation moon*  
-*No more colleges, no more coronations, some punk’s idea of a teenage nation*  
-*Has forced Santa Ana to change his station from soldier to cartoon*  
-*And the Giants of Science spend their days and nights*  
-*Not with wives, not with lovers, but searching for the lights*  
-*They spotted in the desert on their helicopter flights*  
-*Just to be lost in the dust and the night*  
-*Hey, now my contessa, in your juke joint rags you always bring candy for the kids*  
+*Oh, painted night set free with light glows outside the Rainbow Saloon*
+*Matching braces with a Spanish lady ‘neath a graduation moon*
+*No more colleges, no more coronations, some punk’s idea of a teenage nation*
+*Has forced Santa Ana to change his station from soldier to cartoon*
+*And the Giants of Science spend their days and nights*
+*Not with wives, not with lovers, but searching for the lights*
+*They spotted in the desert on their helicopter flights*
+*Just to be lost in the dust and the night*
+*Hey, now my contessa, in your juke joint rags you always bring candy for the kids*
 *Come waltz with me tonight senorita ’cause only fools are alone on a night like this, oh!*
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/santa-ana-lyricsheet-1.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2018/03/santa-ana-lyricsheet-2.jpg)
@@ -62,7 +62,7 @@ In concert, “Santa Ana” has been performed very few times–that we know of.
 
 Bruce rescued “Santa Ana” from obscurity in 2005 for five performances, and then promptly returned it from whence it came. It hasn’t been seen since.
 
-**Santa Ana**  
+**Santa Ana**
 **Recorded:** June 28, 1973<br>
 **Released:** *Tracks* (1998)<br>
 **First performed:** January 3, 1973 (Bryn Mawr, PA)<br>

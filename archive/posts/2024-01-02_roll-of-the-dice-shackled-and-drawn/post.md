@@ -18,7 +18,7 @@ I mean, come on: is there any more fitting way to kick off a Springsteen show th
 
 When those house lights went on, that audience was locked and primed for a long, communal evening.
 
-And that stomp… “Shackled and Drawn” is *all* about the stomp. It’s about the satisfaction of honest work. It’s about a living well earned. It’s about righteous indignation tempered by pride and integrity (or maybe it’s the other way around). It’s one of the most sincere songs in Bruce’s catalog, and one of the most Springsteenian*.* 
+And that stomp… “Shackled and Drawn” is *all* about the stomp. It’s about the satisfaction of honest work. It’s about a living well earned. It’s about righteous indignation tempered by pride and integrity (or maybe it’s the other way around). It’s one of the most sincere songs in Bruce’s catalog, and one of the most Springsteenian*.*
 
 And at the end of the song, when the E Street Band is arrayed across the stage in all their power and glory…. I’m sorry, but I defy anyone to name a more powerful and effective opening performance than that one.
 
@@ -36,28 +36,28 @@ If we’re looking for a song that exemplifies Bruce’s reputation as a bard fo
 
 There’s no color, no brightness in this song, only earth tones:
 
-*Gray morning light spits through the shade*  
-*Another day older, closer to the grave*  
-*Closer to the grave and come the dawn*  
+*Gray morning light spits through the shade*
+*Another day older, closer to the grave*
+*Closer to the grave and come the dawn*
 *I woke up this morning shackled and drawn*
 
-*Shackled and drawn, shackled and drawn*  
-*Pick up the rock, son, carry it on*  
-*I’m trudging through the dark in a world gone wrong*  
+*Shackled and drawn, shackled and drawn*
+*Pick up the rock, son, carry it on*
+*I’m trudging through the dark in a world gone wrong*
 *I woke up this morning shackled and drawn*
 
 Based on the first verse and chorus alone, we might think that “Shackled and Drawn” is a song of resentment, of bitterness–the plaint of a worker stuck in a rut, shackled to a thankless job, never enjoying the fruits of his labor, and toiling endlessly toward his own demise.
 
 But Bruce quickly disabuses us of that notion in the second verse:
 
-*I always loved the feel of sweat on my shirt*  
-*Stand back, son, and let a man work*  
-*Let a man work, is that so wrong*  
+*I always loved the feel of sweat on my shirt*
+*Stand back, son, and let a man work*
+*Let a man work, is that so wrong*
 *I woke up this morning shackled and drawn*
 
-*Shackled and drawn, shackled and drawn*  
-*Pick up the rock, son, carry it on*  
-*What’s a poor boy to do in a world gone wrong*  
+*Shackled and drawn, shackled and drawn*
+*Pick up the rock, son, carry it on*
+*What’s a poor boy to do in a world gone wrong*
 *Woke up this morning shackled and drawn*
 
 Our protagonist is more sympathetic now, and neither bitter nor resentful–he just wants to take satisfaction in his own labor.
@@ -66,35 +66,35 @@ But he can’t even do that: in this recession era, our hero is denied even the 
 
 As is often the case with Bruce’s best songs, the heart of “Shackled and Drawn” can be found in a single line: “Freedom, son, is a dirty shirt.”
 
-*Freedom, son, is a dirty shirt*  
-*The sun on my face and my shovel in the dirt*  
-*A shovel in the dirt keeps the devil gone*  
+*Freedom, son, is a dirty shirt*
+*The sun on my face and my shovel in the dirt*
+*A shovel in the dirt keeps the devil gone*
 *I woke up this morning shackled and drawn*
 
-*Shackled and drawn, shackled and drawn*  
-*Pick up the rock, son, carry it on*  
-*What’s a poor boy to do but keep singing his song*  
+*Shackled and drawn, shackled and drawn*
+*Pick up the rock, son, carry it on*
+*What’s a poor boy to do but keep singing his song*
 *I woke up this morning shackled and drawn*
 
 Good, honest, hard labor not only allows him to earn a living, it also keeps temptation at bay. What kind of temptation? Well…
 
-*Gambling man rolls the dice, working man pays the bill*  
-*It’s still fat and easy up on banker’s hill*  
-*Up on banker’s hill the party’s going strong*  
+*Gambling man rolls the dice, working man pays the bill*
+*It’s still fat and easy up on banker’s hill*
+*Up on banker’s hill the party’s going strong*
 *Down here below we’re shackled and drawn*
 
 And here we arrive at the crux of the song: honest workers toil away at manual labor, the sheer effort of which keeps them on the straight and narrow. Meanwhile, the rich bankers shoulder no such burden. They speculate and deviate, and when they’re wrong, the cost is paid in livelihoods while the bankers party on.
 
 There’s no song in Bruce’s catalog that more aptly captures the emotional impact of the collapse of the financial market as “Shackled and Drawn.”
 
-*Shackled and drawn, shackled and drawn*  
-*Pick up the rock, son, carry it on*  
-*Trudging through the dark in a world gone wrong*  
+*Shackled and drawn, shackled and drawn*
+*Pick up the rock, son, carry it on*
+*Trudging through the dark in a world gone wrong*
 *I woke up this morning shackled and drawn*
 
-*Shackled and drawn, shackled and drawn*  
-*Pick up the rock, son, carry it on*  
-*What’s a poor boy to do but keep singing his song*  
+*Shackled and drawn, shackled and drawn*
+*Pick up the rock, son, carry it on*
+*What’s a poor boy to do but keep singing his song*
 *I woke up this morning shackled and drawn*
 
 Oh, and we can’t let that “poor boy” reference pass us by for a third time without noting Bruce’s homage to The Rolling Stones’ “[Street Fighting Man](https://estreetshuffle.com/index.php/2019/08/19/cover-me-street-fighting-man/).” Bruce cited “What can a poor boy do but sing in a rock and roll band” as one of the greatest lyrics of all time; it’s fitting that Bruce borrows it for his own call to revolution.
@@ -107,20 +107,20 @@ As if to erase any doubt of that, Bruce ends the song with a spotlight on Cindy 
 
 Bruce’s lyrics quote the opening of Collins’ 1972 single–
 
-*I want everybody to stand up*  
-*I want everybody to stand up and be counted tonight*  
-*You know we got to pray together*  
-*I want you to stand up*  
+*I want everybody to stand up*
+*I want everybody to stand up and be counted tonight*
+*You know we got to pray together*
+*I want you to stand up*
 *I want everybody to stand up and be counted tonight*
 
 But Bruce trusts our familiarity with the original song in order for us to register the full import of Cindy’s vocals. At the heart of the original, Collins sings:
 
-*Gimme a man who can pay my dues*  
+*Gimme a man who can pay my dues*
 *Cause I don’t wanna die*
 
-*Sisters who work hard*  
-*To help their man, yeah*  
-*But the man need to do*  
+*Sisters who work hard*
+*To help their man, yeah*
+*But the man need to do*
 *Need to do what he can, hey*
 
 So when Cindy sings, “I want everybody to stand up and be counted tonight,” it’s a dash of salt in the narrator’s wounded pride. How can he help his family without the opportunity to do what he can?

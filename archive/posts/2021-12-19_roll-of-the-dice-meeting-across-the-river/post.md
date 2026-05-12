@@ -18,26 +18,26 @@ The brilliance of “Meeting Across the River” is how Bruce crafts the song wi
 
 “Meeting Across the River” is in the form of a monologue–or more precisely, one-half of a dialogue. Almost certainly Eddie is holding up his end of the conversation, but what he says doesn’t really matter. Our narrator is so lost in his own delusions that he isn’t really paying attention to Eddie anyway.
 
-*Hey Eddie, can you lend me a few bucks, tonight can you get us a ride*  
+*Hey Eddie, can you lend me a few bucks, tonight can you get us a ride*
 *Got to make it through the tunnel, got a meeting with a man on the other side*
 
 Right off the bat, we know this guy’s a loser: he’s broke and car-less and needs to call on a friend to find them a ride for a mysterious meeting.
 
-*Hey Eddie, this guy he’s the real thing*  
-*So if you wanna come along you gotta promise you won’t say anything*  
-*‘Cause this guy don’t dance*  
+*Hey Eddie, this guy he’s the real thing*
+*So if you wanna come along you gotta promise you won’t say anything*
+*‘Cause this guy don’t dance*
 *And the word’s been passed, this is our last chance*
 
 And now we know (thanks to the 1940s gangster language) that this meeting isn’t for anything legal. We also know that this isn’t Eddie and friend’s first rodeo–they have earned themselves a reputation, and it’s not a complimentary one.
 
-*We gotta stay cool tonight Eddie ’cause man we got ourselves out on that line*  
+*We gotta stay cool tonight Eddie ’cause man we got ourselves out on that line*
 *And if we blow this one they ain’t gonna be looking for just me this time*
 
 Hey, now *that’s* a great way to recruit a partner in crime: remind them of how you’re already marked and how they’re likely to join you.
 
-*And all we gotta do is hold up our end*  
-*Here stuff this in your pocket, it’ll look like you’re carrying a friend*  
-*And remember, just don’t smile*  
+*And all we gotta do is hold up our end*
+*Here stuff this in your pocket, it’ll look like you’re carrying a friend*
+*And remember, just don’t smile*
 *Change your shirt, ’cause tonight we got style*
 
 This is probably my favorite part of the song. It cracks me up every time I hear it, because I can’t help but momentarily leave the song to wonder, *what’s he stuffing in his pocket?* A banana? A hairbrush? A hose spray nozzle? A Wii controller? The possibilities are endless.
@@ -46,12 +46,12 @@ I also love the notion that as long as you wear a nice shirt and don’t smile, 
 
 Next, Bruce reveals our hero’s true motivation:
 
-*Well Cherry says she’s gonna walk because she found I took her radio and hocked it*  
+*Well Cherry says she’s gonna walk because she found I took her radio and hocked it*
 *But Eddie man she don’t understand that two grands practically sitting here in my pocket*
 
-*And tonight’s gonna be everything that I said*  
-*And when I walk through that door I’m just gonna throw that money on the bed*  
-*She’ll see this time I wasn’t just talking*  
+*And tonight’s gonna be everything that I said*
+*And when I walk through that door I’m just gonna throw that money on the bed*
+*She’ll see this time I wasn’t just talking*
 *Then I’m gonna go out walking*
 
 Ah. Of course.
@@ -120,7 +120,7 @@ In 2008 (and again for an encore a year and a half later), Richard Davis reprise
 
 “Meeting Across the River” has never been a setlist staple, even on the *Born to Run* tour. But other than its notable absence during the twenty-year stretch from 1979-1998, it’s never been fully gone either. Fans can usually depend on a few outings per tour–these days, paired more often than not with “Jungleland.” Consider yourself lucky if you catch either of them–they both rank among the best of Bruce’s catalog.
 
-**Meeting Across the River**  
+**Meeting Across the River**
 **Recorded:** May 28, 1975<br>
 **Released:** *Born to Run* (1975)<br>
 **First performed:** September 26, 1975 (Iowa City, IA)<br>

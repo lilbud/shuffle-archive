@@ -11,6 +11,6 @@ It’s a great opener, so it’s a surprise that this was a true one-off–Bruce
 November 16, 1978 (Toronto, ON)
 January 20, 1991 (Sea Bright, NJ)
 
-**Ready Teddy**  
+**Ready Teddy**
 **First performed:**<br>
 **Last performed:**<br>

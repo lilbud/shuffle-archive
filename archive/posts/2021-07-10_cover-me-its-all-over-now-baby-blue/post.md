@@ -19,6 +19,6 @@ And I’d hold up a sign for “It’s All Over Now, Baby Blue.”
 October 23, 1971 (Richmond, VA)
 March 14, 1972 (Highlands, NJ)
 
-**It’s All Over Now, Baby Blue**  
+**It’s All Over Now, Baby Blue**
 **First performed:**<br>
 **Last performed:**<br>

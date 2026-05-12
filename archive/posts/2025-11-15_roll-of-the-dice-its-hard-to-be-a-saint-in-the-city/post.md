@@ -12,11 +12,11 @@ So let’s start off by listening to the original mix, and turn the volume way u
 
 Yeah, that’s Bruce rapping his way out of the song as the music fades:
 
-*Walking down some side street*  
-*With your back flat jacked up against some wall*  
-*A-cutting down the corner with the wind*  
-*She cuts your car, she cuts your car, the wind, she cuts your car*  
-*Well the way the black ash flow through*  
+*Walking down some side street*
+*With your back flat jacked up against some wall*
+*A-cutting down the corner with the wind*
+*She cuts your car, she cuts your car, the wind, she cuts your car*
+*Well the way the black ash flow through*
 *Well can you, the black ash flow through*
 
 Is it significant? Does it change the meaning of the song? Nah–it’s just cool, and this song is nothing if not a celebration of and a struggle to be (or maybe keep) cool.
@@ -37,10 +37,10 @@ Holy cow, that’s some hotshot writing!
 
 And then one day, he gambles in a street game over a steam vent and loses–but then something miraculous happens:
 
-*And when the heat came down and it was left on the ground*  
-*Devil appeared like Jesus through the steam in the street*  
-*Showin’ me a hand I knew even the cops couldn’t beat*  
-*I felt his hot breath on my neck as I dove into the heat*  
+*And when the heat came down and it was left on the ground*
+*Devil appeared like Jesus through the steam in the street*
+*Showin’ me a hand I knew even the cops couldn’t beat*
+*I felt his hot breath on my neck as I dove into the heat*
 *It’s so hard to be a saint when you’re just a boy out on the street*
 
 The police arrive on the scene, and the players scatter, abandoning their cards and their cash. And through the chaos, our “hero” sees his opportunity–he dives for the cash, feeling the Devil’s breath in the steam from the vent, and makes a run for it.
@@ -69,30 +69,30 @@ The lyrics are also subtly different between the two versions. For the first hal
 
 But about two thirds of the way through, the small changes start having a bigger impact. Let’s pick up the story where we left off:
 
-*It’s too hot in these tunnels, you can get hit up by the heat*  
-*I get up to get out at the next stop but they push me down in the seat*  
-*My heart starts beatin’ faster as I struggle to my feet*  
+*It’s too hot in these tunnels, you can get hit up by the heat*
+*I get up to get out at the next stop but they push me down in the seat*
+*My heart starts beatin’ faster as I struggle to my feet*
 *And I get out of that hole and I’m back up on the street*
 
 
 
-*And them south side sisters sure look pretty*  
-*Oh, and the cripple on the corner knows I don’t pay for no pity*  
-*And them gasoline boys, yeah, they sure talk gritty*  
+*And them south side sisters sure look pretty*
+*Oh, and the cripple on the corner knows I don’t pay for no pity*
+*And them gasoline boys, yeah, they sure talk gritty*
 *It’s so hard to be a saint in the city*
 
 …becomes:
 
-*But it’s too hot in these tunnels, you can get hit up by the heat*  
-*get up to get out at next stop but they push back down in seat* **You** **your** **you** **your**  
-*heart starts beatin’ faster as struggle to feet* **Your** **you** **your**  
+*But it’s too hot in these tunnels, you can get hit up by the heat*
+*get up to get out at next stop but they push back down in seat* **You** **your** **you** **your**
+*heart starts beatin’ faster as struggle to feet* **Your** **you** **your**
 *And out of that hole, back up on the street* **you’re**
 
 
 
-*And them south side sisters sure look pretty*  
+*And them south side sisters sure look pretty*
 *The cripple on the corner cries out, ““*Nickels for your pity  
-*Them downtown boys, they sure talk gritty*  
+*Them downtown boys, they sure talk gritty*
 *It’s so hard to be a saint in the city*
 
 In other words, Bruce took an intensely personal song and made it more inclusive by changing the perspective mid-song from first- to second-person. It’s a deliberate technique that Bruce uses from time to time to trick us into identifying with the main character of the song. It’s sneaky, and it almost always works.

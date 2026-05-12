@@ -44,31 +44,31 @@ No, what makes “Your Own Worst Enemy” rank so high (in my estimation) in Bru
 
 Bruce’s first verse is intriguingly vague, planting us (through the use of second-person narration) in the shoes of a protagonist with a guilty conscience:
 
-*You can’t sleep at night*  
-*You can’t dream your dream*  
-*Your fingerprints on file*  
+*You can’t sleep at night*
+*You can’t dream your dream*
+*Your fingerprints on file*
 *Left clumsily at the scene*
 
 
 
-*Your own worst enemy has come to town*  
+*Your own worst enemy has come to town*
 *Your own worst enemy has come to town*
 
 We don’t know why yet, but it’s clear that we did something wrong, and we’re terrified of being found out. Like in “Stolen Car,” we wait to get caught.
 
 In the second verse, we start to get an inkling of what we did, and the “Stolen Car” comparison may be an apt one:
 
-*Yesterday the people were at ease*  
-*Baby slept in peace*  
-*You closed your eyes and saw her*  
+*Yesterday the people were at ease*
+*Baby slept in peace*
+*You closed your eyes and saw her*
 *You knew who you were*
 
 
 
-*Now your own worst enemy has come to town*  
-*Your own worst enemy has come*  
-*Your world keeps turnin’ ’round and ’round*  
-*But everything is upside down*  
+*Now your own worst enemy has come to town*
+*Your own worst enemy has come*
+*Your world keeps turnin’ ’round and ’round*
+*But everything is upside down*
 *Your own worst enemy has come to town*
 
 It appears we may have been unfaithful, and it’s haunting us. Even at night, asleep in our own bed, we see our temptress rather than our partner.
@@ -81,16 +81,16 @@ By the time the bridge arrives—which, by the way, seems like it’s shared wit
 
 
 
-*There’s a face you know*  
-*Staring back from the shop window*  
-*The condition you’re in*  
+*There’s a face you know*
+*Staring back from the shop window*
+*The condition you’re in*
 *Now you just can’t get out of this skin*
 
 By this point in the song, we’re pretty sure we know what it’s about and where it’s going. But here comes the magic trick:
 
-*The times they got too clear*  
-*So you removed all the mirrors*  
-*Once the family felt secure*  
+*The times they got too clear*
+*So you removed all the mirrors*
+*Once the family felt secure*
 *Now no one’s very sure*
 
 Yes, this verse still functions in a personal context, but there’s something about that first line: “
@@ -109,17 +109,17 @@ We’d become something we weren’t ever supposed to be, and facing that uncomf
 
 Now that the true meaning of the song’s title is clear, the final, longest chorus knocks us off balance, setting us up for a knockout punch in the form of one of Bruce’s trademark devastating final couplets:
 
-*Your own worst enemy has come to town*  
-*Your own worst enemy has come*  
-*Everything is falling down*  
-*Your own worst enemy has come to town*  
-*Your own worst enemy has come*  
-*Everything is falling down*  
+*Your own worst enemy has come to town*
+*Your own worst enemy has come*
+*Everything is falling down*
+*Your own worst enemy has come to town*
+*Your own worst enemy has come*
+*Everything is falling down*
 *Your own worst enemy has come to town*
 
 
 
-*Your flag it flew so high*  
+*Your flag it flew so high*
 *It drifted into the sky*
 
 That final couplet is one of Bruce’s best ever, certainly in its use of metaphor. All pretense of any context other than political is abandoned, and the true theme of “Your Own Worst Enemy” is laid bare: in our post-9/11 embrace of nationalism, we let go of the nation we were supposed to be.

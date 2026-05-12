@@ -22,16 +22,16 @@ And lyrically, a late verse sounds similar to “Wings for Wheels,” which was 
 
 **Oh baby, I can’t lay the stars at your feet,**
 Oh but I think we could take it all , just you and me
-Oh come on and see there’s a lot of room for you baby in this front seat.*  
+Oh come on and see there’s a lot of room for you baby in this front seat.*
 
 **…to “Wings for Wheels…”**
 
 
 
 **Maybe I can’t lay the stars at your feet,**
-But I got this old car and she’s pretty tough to beat*  
+But I got this old car and she’s pretty tough to beat*
 
-*There’s plenty of room in my front seat*  
+*There’s plenty of room in my front seat*
 *If you think you can make it, climb in.*
 
 
@@ -40,8 +40,8 @@ But I got this old car and she’s pretty tough to beat*
 
 
 
-*Well, I ain’t no hero, that’s understood.*   
-*All the redemption I can offer, girl, is beneath this dirty hood*   
+*Well, I ain’t no hero, that’s understood.*
+*All the redemption I can offer, girl, is beneath this dirty hood*
 *With a chance to make it good some how… hey, what else can we do now?*
 
 But thematically, “Walking in the Street” (sometimes called “Lovers in the Cold”) is a very different song from “Thunder Road.” The latter is a classic expression of desperation, yearning, and escape. The former is a fatalistic tale of Billy and Cherry, who seem reconciled to their lot.
@@ -55,7 +55,7 @@ They sound more like the lovers in “” or “” than in “Thunder Road.” 
 The chorus pairs a soaring melody with gorgeous but grounded imagery:
 
 **Tonight we’re lovers in the cold, running past the graveyards in the snow**
-Walking in the street with nowhere to go.*  
+Walking in the street with nowhere to go.*
 
 
 …and even though there’s a hint of hope in the line “I think we could take it all, just you and me,” the song returns and ends on the chorus, and it’s clear that Billy and Cherry won’t ever be pulling out of there to win.
@@ -64,7 +64,7 @@ So give a listen to this never-released, never-performed classic, lost somewhere
 
 **Walking in the Street**
 **Recorded:** August-September 1974<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

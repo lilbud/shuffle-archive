@@ -17,8 +17,8 @@ Somehow, I don’t think we’re going to see this one included in a box set any
 October 18, 2012 (Parma, OH)
 November 5, 2012 (Columbus, OH)
 
-**Forward!**  
-**Never recorded or released**  
+**Forward!**
+**Never recorded or released**
 **First performed:**<br>
 **Last performed:**<br>
 

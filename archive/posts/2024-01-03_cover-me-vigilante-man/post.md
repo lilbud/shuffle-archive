@@ -16,57 +16,57 @@ As Guthrie originally conceived it, “Vigilante Man” was set in the same peri
 
 It’s a fearful song bordering on paranoia. The song’s narrator keeps constant watch against an unseen threat, and any less than-friendly reception might become more sinister in the dead of night, like the man who slew Preacher Casey in Steinbeck’s novel.
 
-*Have you seen that vigilante man?*  
-*Have you seen that vigilante man?*  
-*Have you seen that vigilante man?*  
+*Have you seen that vigilante man?*
+*Have you seen that vigilante man?*
+*Have you seen that vigilante man?*
 *I’ve been hearin’ his name all over the land*
 
 
 
-*Well what is a vigilante man?*  
-*Tell me, what is a vigilante man?*  
-*Has he got a gun and a club in his hand?*  
+*Well what is a vigilante man?*
+*Tell me, what is a vigilante man?*
+*Has he got a gun and a club in his hand?*
 *Is that a vigilante man?*
 
 
 
-*Rainy night down in the engine house*  
-*Sleepin’ just as still as a mouse*  
-*Man come along and he chased us out in the rain*  
+*Rainy night down in the engine house*
+*Sleepin’ just as still as a mouse*
+*Man come along and he chased us out in the rain*
 *Was that a vigilante man?*
 
 
 
-*Stormy days, we pass the time away*  
-*Sleeping in some good warm place*  
-*Man come along and we give him a little race*  
+*Stormy days, we pass the time away*
+*Sleeping in some good warm place*
+*Man come along and we give him a little race*
 *Was that a vigilante man?*
 
 
 
-*Preacher Casey was just a working man*  
-*And he said, “Unite, all you working men”*  
-*Killed him in the river, some strange man*  
+*Preacher Casey was just a working man*
+*And he said, “Unite, all you working men”*
+*Killed him in the river, some strange man*
 *Was that a vigilante man?*
 
 
 
-*Oh why does a vigilante man*  
-*Why does a vigilante man*  
-*Carry that sawed-off shotgun in his hand?*  
+*Oh why does a vigilante man*
+*Why does a vigilante man*
+*Carry that sawed-off shotgun in his hand?*
 *Would he shoot his brother and sister down?*
 
 
 
-*I rambled ’round from town to town*  
-*I rambled ’round from town to town*  
-*And they herded us around like a wild herd of cattle*  
+*I rambled ’round from town to town*
+*I rambled ’round from town to town*
+*And they herded us around like a wild herd of cattle*
 *Was that the vigilante men?*
 
 
 
-*Have you seen that vigilante man?*  
-*Have you seen that vigilante man?*  
+*Have you seen that vigilante man?*
+*Have you seen that vigilante man?*
 *I’ve heard his name all over the land*
 
 Years before Bruce recorded , he was taken enough with Guthrie’s sequel (side-quel?) to record it with the E Street Band sometime between completing his album and embarking on the tour.

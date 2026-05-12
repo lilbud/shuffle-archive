@@ -25,6 +25,6 @@ Just try to watch this without breaking into a goofy grin when Bruce takes the m
 January 20, 1988 (New York City, NY)
 September 15, 2017 (New York City, NY)
 
-**I Saw Her Standing There**  
+**I Saw Her Standing There**
 **First performed:**<br>
 **Last performed:**<br>

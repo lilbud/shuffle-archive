@@ -16,9 +16,9 @@ However: this is a Springsteen song, and in Springsteen songs happiness may be *
 
 What do you do when life hands you everything you’ve ever wanted on a silver platter, and you’re *still* not satisfied? You keep seeking.
 
-*Well I sought gold and diamond rings*  
-*My own drug to ease the pain that living brings*  
-*Walked from the mountain to the valley floor*  
+*Well I sought gold and diamond rings*
+*My own drug to ease the pain that living brings*
+*Walked from the mountain to the valley floor*
 *Searching for my beautiful reward*
 
 Although they couldn’t be more different musically, Bruce constructs “My Beautiful Reward” and “Aint Got You” with lyrical parallelism. Both songs refer to diamonds and gold in their first line*,* but while the younger man crows of his wealth *(I got the fortunes of heaven in diamonds and gold…)*, the older and wiser man recognizes his material riches as a drug to numb the daily pain of a life lacking in meaning.
@@ -27,27 +27,27 @@ The narrator’s trek from the mountaintop to the valley floor is a metaphor for
 
 The second verses are parallel as well, with both songs focusing on homes full of possessions *(I got a house full of Rembrandt and priceless art)* but devoid of presence.
 
-*From a house on a hill a sacred light shines*  
-*I walk through these rooms but none of them are mine*  
-*Down empty hallways I went from door to door*  
+*From a house on a hill a sacred light shines*
+*I walk through these rooms but none of them are mine*
+*Down empty hallways I went from door to door*
 *Searching for my beautiful reward*
 
 (It’s no coincidence that Bruce sets his character’s house upon a hill–that’s a callback to the powerful symbolism such homes have had for him at least as far back as *Nebraska* and most likely back to his childhood.)
 
 Both songs segue into their bridges at this point. In “Ain’t Got You,” our narrator makes a deal with the devil to win his love. In “My Beautiful Reward,” we are reminded that such deals often don’t bring the lasting satisfaction we expect them to.
 
-*Well your hair shone in the sun*  
-*I was so high and I was the lucky one*  
-*Then I came crashing down like a drunk on a barroom floor*  
+*Well your hair shone in the sun*
+*I was so high and I was the lucky one*
+*Then I came crashing down like a drunk on a barroom floor*
 *Searching for my beautiful reward*
 
 Our narrator had his lover’s affections for a time, but he lost them–and it’s implied by the metaphor (one that Bruce re-uses in “All the Way Home”) that it’s the result of his own actions and temptations. When fame and wealth don’t bring satisfaction, it makes sense to assume love will. So when it doesn’t, what do you do?
 
 You keep searching.
 
-*Tonight I can feel the cold wind at my back*  
-*I’m flying high over gray fields, my feathers long and black*  
-*Down along the river’s silent edge I soar*  
+*Tonight I can feel the cold wind at my back*
+*I’m flying high over gray fields, my feathers long and black*
+*Down along the river’s silent edge I soar*
 *Searching for my beautiful reward*
 
 In this final, ethereal and dreamlike verse, our narrator is transformed into a raven–a symbol in many cultures of insight, wisdom and knowledge, but also of darkness and destruction. Bruce’s selection of it as his avatar is deliberate and significant. It reveals a self-awareness combined with a certain powerlessness. Our narrator is destined to forever wander the world searching for something he knows he’s missing… something hidden in the one place where he’ll never find it: himself.

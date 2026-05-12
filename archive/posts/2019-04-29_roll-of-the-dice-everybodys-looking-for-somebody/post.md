@@ -16,7 +16,7 @@ So please give it a shot, and then you tell me. Take a listen below, and leave a
 
 **Everybody’s Looking for ???**
 **Recorded:** September-December 1979<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

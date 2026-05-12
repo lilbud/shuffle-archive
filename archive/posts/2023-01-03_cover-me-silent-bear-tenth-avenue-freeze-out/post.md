@@ -36,9 +36,9 @@ When I asked him what inspired him to make the connection, Silent Bear took me i
 
 
 
-*The Big Man dressed in blue, shot my brother down*  
-*Right in front of his mother*  
-*Right by the Tenth Ave street line*  
+*The Big Man dressed in blue, shot my brother down*
+*Right in front of his mother*
+*Right by the Tenth Ave street line*
 *Lights flashing, sirens blaring*
 
 

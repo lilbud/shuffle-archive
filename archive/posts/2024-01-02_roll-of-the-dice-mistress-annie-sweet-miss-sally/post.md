@@ -23,8 +23,8 @@ Enjoy the jam instead.
 December 3, 1971 (Asbury Park, NJ)
 January 21, 1972 (Neptune, NJ)
 
-**Sweet Miss Sally/Mistress Annie**   
-**Never recorded or released**   
+**Sweet Miss Sally/Mistress Annie**
+**Never recorded or released**
 **First performed:** <br>
 **Last performed:**<br>
 

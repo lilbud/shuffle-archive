@@ -25,6 +25,6 @@ Although the 1994 performance above is the only one in which Bruce’s vocals ca
 July 16, 1994 (Asbury Park, NJ)
 January 31, 1998 (Red Bank, NJ)
 
-**I Played the Fool**  
+**I Played the Fool**
 **First performed:**<br>
 **Last performed:**<br>

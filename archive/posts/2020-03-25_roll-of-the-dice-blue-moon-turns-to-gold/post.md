@@ -28,22 +28,22 @@ Unfortunately, the first half is hard to make out. The good folks at brucelyrics
 
 
 
-*In high school ??? her hair*  
-*What you got baby under there*  
-*Something hot for when the night turns cold*  
+*In high school ??? her hair*
+*What you got baby under there*
+*Something hot for when the night turns cold*
 *I’d want you till … [presumably the chorus “the blue moon turns to gold” goes here]*
 
 
 
-*When the school days was done*  
-*marry me baby, we’ll have a lot of fun*  
-*All I heard was no no no no*  
+*When the school days was done*
+*marry me baby, we’ll have a lot of fun*
+*All I heard was no no no no*
 *I’ll be cryin’ till the blue moon turns to gold*
 
 
 
-*So you wanna leave our little town*  
-*Someday all that’s this world won’t be nothin but ice and cold*  
+*So you wanna leave our little town*
+*Someday all that’s this world won’t be nothin but ice and cold*
 *My love will burn inside till the blue moon…*
 
 So, um, yeah–not exactly Bruce’s deepest (or even coherent) lyrics.
@@ -51,9 +51,9 @@ So, um, yeah–not exactly Bruce’s deepest (or even coherent) lyrics.
 I can understand why this one hasn’t seen the light of day. But it makes you wonder, doesn’t it: what else is hidden on the flip sides of those notebook pages?
 
 **Blue Moon Turns to Gold**
-Never recorded**  
+Never recorded**
 
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

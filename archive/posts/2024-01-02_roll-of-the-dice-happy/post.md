@@ -14,30 +14,30 @@ Let’s take a listen.
 
 The first verse of “Happy” leads us to expect a traditional love song–it sounds very much like the words of someone newly in love.
 
-*Some need gold and some need diamond rings*  
-*Or a drug to take away the pain that living brings*  
-*A promise of a better world to come*  
-*When whatever here is done*  
-*I don’t need that sky of blue babe*  
-*All I know’s since I found you*  
-*I’m happy when I’m in your arms*  
-*Happy, darling, come the dark*  
-*Happy when I taste your kiss*  
+*Some need gold and some need diamond rings*
+*Or a drug to take away the pain that living brings*
+*A promise of a better world to come*
+*When whatever here is done*
+*I don’t need that sky of blue babe*
+*All I know’s since I found you*
+*I’m happy when I’m in your arms*
+*Happy, darling, come the dark*
+*Happy when I taste your kiss*
 *I’m happy in a love like this*
 
 In fact, the words should seem very familiar to us, because the opening lines are drawn directly from “[My Beautiful Reward,](https://estreetshuffle.com/index.php/2023/02/19/roll-of-the-dice-my-beautiful-reward/)” but while the narrator in that song is restive and rueful, in “Happy,” Bruce couldn’t be more content.
 
 And in the second verse, we realize why:
 
-*There’s a house upon a distant hill*  
-*Where you can hear the laughter of children ring*  
-*Guardian angels, they watch from above*  
-*Watching over the love that they bring*  
-*But at night I feel the darkness near*  
-*And I awake, I find you near, yeah*  
-*I’m happy with you in my arms*  
-*Happy with you in my heart*  
-*Happy when I taste your kiss*  
+*There’s a house upon a distant hill*
+*Where you can hear the laughter of children ring*
+*Guardian angels, they watch from above*
+*Watching over the love that they bring*
+*But at night I feel the darkness near*
+*And I awake, I find you near, yeah*
+*I’m happy with you in my arms*
+*Happy with you in my heart*
+*Happy when I taste your kiss*
 *I’m happy in a love like this*
 
 There’s a lot of meaning packed into this one verse. On the surface, it’s still a paean to Patti, but it’s significant that the only scene that Bruce has sketched over more than half the song is one of familial tranquility. The narrator of “Happy” (in this case, it’s probably safe to assume it’s Bruce himself) finds great pride, satisfaction, and love in the living proof of his marital bond.
@@ -46,20 +46,20 @@ We also, in retrospect, find surprisingly direct reference to Bruce’s depressi
 
 The ethereal melody of “Happy” hints that the darkness may only temporarily be at bay, that it’s always lying in wait to reclaim him. Only the bridge takes flight before returning to a final verse, but even there Bruce echoes “[If I Should Fall Behind,](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” making it clear that he knows what this world can do.
 
-*In a world of doubt and fear*  
-*I wake at night and reach to find you near*  
+*In a world of doubt and fear*
+*I wake at night and reach to find you near*
 *Lost in a dream, you caught me as I fell  
 Now I want more than just a dream to tell*
 
-*Born in this world, darling, with few days*  
-*And trouble never far behind*  
-*Man, woman circle each other in a cage*  
-*A cage that’s been handed down the line*  
-*Lost and running ‘neath a million dead stars*  
-*Tonight let’s shed our skins and slip these bars*  
-*Happy in each other’s arms*  
-*Happy, baby, come the dark*  
-*Happy in each other’s kiss*  
+*Born in this world, darling, with few days*
+*And trouble never far behind*
+*Man, woman circle each other in a cage*
+*A cage that’s been handed down the line*
+*Lost and running ‘neath a million dead stars*
+*Tonight let’s shed our skins and slip these bars*
+*Happy in each other’s arms*
+*Happy, baby, come the dark*
+*Happy in each other’s kiss*
 *I’m happy in a love like this*
 
 There’s one last turn of phrase that’s worth noting here. The notion of shedding one’s skin shows up not only here, but also in “[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)” (recorded in late 1991) and “[Trouble River](https://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/)” (record in early 1990)–suggesting that during this post-E Street, early marriage and family period, Bruce was focused on finding and remaking himself, leaving behind the persona that had come to define him and embracing new roles as husband and father to people he knew would truly see and know him.
@@ -72,7 +72,7 @@ Regardless of whether “Happy” ever receives a live outing, though, it’s ni
 
 I suspect Bruce wrote “Happy” more for himself and his family than for his audience, and I’m fine evaluating it in that light. Everyone should get to feel that kind of contentment at least once.
 
-**Happy**  
+**Happy**
 **Recorded:** January 18, 1992<br>
 **Released:** *Tracks* (1998)<br>
 **Never performed**

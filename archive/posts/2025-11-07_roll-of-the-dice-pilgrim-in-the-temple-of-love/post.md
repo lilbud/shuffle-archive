@@ -58,33 +58,33 @@ The notion that we have different identities depending on who we’re with and w
 
 Now you might be thinking: perhaps this is a song that doesn’t warrant deep analysis, but bear with me. Our story begins on Christmas Eve, as our hero pulls up to a favorite local haunt:
 
-*It was Christmas Eve, I was standing in the parking lot*  
-*of “Fabulous Girls: Nude, Nude, Nude!”*  
-*In the car next to me there was a young lady*  
-*Givin’ a blow job to a man in a Santa Claus suit*  
-*His beard was crooked, his hat askew*  
-*Embarrassed, I turned to go*  
-*When from the back seat of that Mazda I heard somebody shout, “Oh baby, don’t stop!”*  
+*It was Christmas Eve, I was standing in the parking lot*
+*of “Fabulous Girls: Nude, Nude, Nude!”*
+*In the car next to me there was a young lady*
+*Givin’ a blow job to a man in a Santa Claus suit*
+*His beard was crooked, his hat askew*
+*Embarrassed, I turned to go*
+*When from the back seat of that Mazda I heard somebody shout, “Oh baby, don’t stop!”*
 *And a merry “ho ho ho”*
 
 Before we go any further, let’s pause here to give Bruce his due, because he must have been mighty pleased with himself at being able to sneak such a clever double entendre into a song that’s otherwise very, um, in your face. Ho ho ho, indeed.
 
 Let’s continue:
 
-*Well I walked inside, ordered a beer and a double shot of whiskey*  
-*And in three minutes I’d fallen in love*  
-*The DJ announced, “Ladies and gentlemen, from Fort Worth, Texas: Lady Godiva!”*  
-*And I sat and worshipped ‘neath the angel above*  
-*At the end of her set, she brushed her hair came and sat on the stool to my right*  
-*And said, “Will you buy me a drink?”*  
-*My heart beat fast, my trousers grew tight, and wittily I replied*  
+*Well I walked inside, ordered a beer and a double shot of whiskey*
+*And in three minutes I’d fallen in love*
+*The DJ announced, “Ladies and gentlemen, from Fort Worth, Texas: Lady Godiva!”*
+*And I sat and worshipped ‘neath the angel above*
+*At the end of her set, she brushed her hair came and sat on the stool to my right*
+*And said, “Will you buy me a drink?”*
+*My heart beat fast, my trousers grew tight, and wittily I replied*
 *“Uhhhhh….”*
 
 Breaking the rhyme scheme that way is just the first of several ways Bruce attempts to puncture his cool public image in this song. He goes on to establish a moment of personal connection with Lady Godiva, who clearly does not recognize her famous customer.
 
-*She showed me a picture of her kid*  
-*Said during the day she was a commercial art student*  
-*But five nights a week she dances for slobs and idiots like this*  
+*She showed me a picture of her kid*
+*Said during the day she was a commercial art student*
+*But five nights a week she dances for slobs and idiots like this*
 *Uh, present company excluded*
 
 We arrive at our first chorus now, but this is also an opportune time to point out what fans of The Ghost of Tom Joad Tour probably already realize: “Pilgrim in the Temple of Love” shares its melody with another song Bruce wrote and performed on that tour, “.” Bruce alternated between the two songs for much of the tour, treating them both as trifles. “Pilgrim,” however is the stronger song. (Bruce would actually graft the melody onto a song in 2007, but was a true one-off.)
@@ -93,21 +93,21 @@ We arrive at our first chorus now, but this is also an opportune time to point o
 
 
 
-*On Donner, on Dancer, on Comet, on Blitzen*  
-*I’m lost in the valley of the super-vixens*  
-*Worshippin’ at the feet of the goddess above*  
-*I’m a pilgrim in the temple of love, ma*  
+*On Donner, on Dancer, on Comet, on Blitzen*
+*I’m lost in the valley of the super-vixens*
+*Worshippin’ at the feet of the goddess above*
+*I’m a pilgrim in the temple of love, ma*
 *I’m a pilgrim in the temple of love*
 
 Bruce addressing the chorus to “ma” probably warrants some analysis all its own, but let’s set that aside for a bit, because with the scene now vividly set, the heart of our story truly begins.
 
-*Well, then Santa came stumblin’ in and somebody shouted*  
-*“Hey Santa, where’s your elves?”*  
-*He sat down on the stool to my left*  
-*And the bartender took a vodka bottle off the shelf*  
-*He asked if Mrs. Claus had called and to tell her he’d worked the late shift at the mall*  
-*He was sorry, he just got through*  
-*So I turned and asked, “How’s the kids this year, Santa?”*  
+*Well, then Santa came stumblin’ in and somebody shouted*
+*“Hey Santa, where’s your elves?”*
+*He sat down on the stool to my left*
+*And the bartender took a vodka bottle off the shelf*
+*He asked if Mrs. Claus had called and to tell her he’d worked the late shift at the mall*
+*He was sorry, he just got through*
+*So I turned and asked, “How’s the kids this year, Santa?”*
 *He downed a shot, and beneath his breath he whispered, a merry “Fuck you!”*
 
 In case there was any doubt as to Santa’s inauthenticity, Bruce devotes this verse to making it painfully clear that this is merely a “mall Santa,” a working joe trying to make ends meet in search of a little escapism (ironic, given his job) at the end of a long work day.
@@ -116,13 +116,13 @@ Bruce, however, won’t let “Santa” shed his public face, and his good-natur
 
 The plot thickens: Bruce is recognized by the owner, and suddenly neither Santa nor the dancers are the center of attention at the club.
 
-*Well, then the owner came over, and he was a short, fat, ugly guy*  
-*With a pushed-in face*  
-*He shook my hand and said it was the first time*  
-*They ever had a real superstar in this place*  
-*Lady Godiva bought me a few drinks and words came out of my mouth*  
-*What they were I couldn’t guess*  
-*Something about: “showgirls,” “lapdance,” “Motley Crue…”*  
+*Well, then the owner came over, and he was a short, fat, ugly guy*
+*With a pushed-in face*
+*He shook my hand and said it was the first time*
+*They ever had a real superstar in this place*
+*Lady Godiva bought me a few drinks and words came out of my mouth*
+*What they were I couldn’t guess*
+*Something about: “showgirls,” “lapdance,” “Motley Crue…”*
 *You can guess the rest*
 
 The tables have turned. Even the showgirl now buys drinks for her customer. Santa, we notice, is completely absent from this verse. He’s faded completely into the background, made nondescript by the famous rock star sitting next to him.
@@ -131,13 +131,13 @@ Bruce doesn’t share any more of the scene inside the club, but like he says: w
 
 But there’s one final twist coming, a surprise ending as Bruce leaves the club:
 
-*Well, I walked outside, snow was fallin’*  
-*It was Christmas time*  
-*Santa followed me into the parking lot*  
-*And threw up on the hood of the car next to mine*  
-*I gave him my handkerchief, pulled out onto the highway*  
-*And as I sat at the light*  
-*I swear I saw a sleigh with twelve reindeer pull up out of that parking lot and go cuttin’ across the moon*  
+*Well, I walked outside, snow was fallin’*
+*It was Christmas time*
+*Santa followed me into the parking lot*
+*And threw up on the hood of the car next to mine*
+*I gave him my handkerchief, pulled out onto the highway*
+*And as I sat at the light*
+*I swear I saw a sleigh with twelve reindeer pull up out of that parking lot and go cuttin’ across the moon*
 *And I heard a voice shout, “Merry Christmas to all you assholes, and to all–a good fuckin’ night!”*
 
 Turns out Santa was the real thing after all! And here we find the lesson buried within “Pilgrim at the Temple of Love”: Santa is a lot smarter than Bruce.
@@ -156,10 +156,10 @@ But he chooses not to, and each time he acknowledges his identity and puts on hi
 
 Oh, and about that chorus and title:
 
-*On Donner, on Dancer, on Comet, on Blitzen*  
-*I’m lost in the valley of the super-vixens*  
-*Worshippin’ at the feet of the goddess above*  
-*I’m a pilgrim in the temple of love, ma*  
+*On Donner, on Dancer, on Comet, on Blitzen*
+*I’m lost in the valley of the super-vixens*
+*Worshippin’ at the feet of the goddess above*
+*I’m a pilgrim in the temple of love, ma*
 *Just a pilgrim in the temple of love*
 
 “Just a pilgrim” — That’s Bruce expressing his desire to lose himself, to be just another customer in a nightclub where attention is not likely to be focused anywhere in his direction. (That may be a reason (besides the obvious one) why Bruce enjoyed strip clubs: his audience is mostly male, and a strip club is probably the easiest public place to escape notice by other men.
@@ -183,9 +183,9 @@ April 16, 1996 (London, England)
 February 8, 1997 (Sydney, Australia)
 
 **Pilgrim in the Temple of Love**
-Never recorded**  
+Never recorded**
 
-**Never released**  
+**Never released**
 **First performed:**<br>
 **Last performed:**<br>
 

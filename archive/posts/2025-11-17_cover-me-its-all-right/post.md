@@ -13,7 +13,7 @@ Bruce pays homage to Mayfield regularly in his encores when he includes “” i
 July 22, 1971 (South Amboy, NJ)
 March 1, 1994 (New York City, NY)
 
-**It’s All Right**  
+**It’s All Right**
 **First performed:**<br>
 **Last performed:**<br>
 

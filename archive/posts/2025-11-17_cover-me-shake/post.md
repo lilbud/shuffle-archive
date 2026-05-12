@@ -19,7 +19,7 @@ Redding’s version was inducted into the Rock and Roll Hall of Fame’s , ensur
 April 14, 1981 (Frankfurt, West Germany)
 July 27, 2013 (Kilkenny, Ireland)
 
-**Shake**  
+**Shake**
 **First performed:**<br>
 **Last performed:**<br>
 

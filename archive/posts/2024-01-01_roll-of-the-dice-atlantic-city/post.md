@@ -1,7 +1,7 @@
 
 
 **Everything dies, baby, that’s a fact.**
-But maybe everything that dies someday comes back.*  
+But maybe everything that dies someday comes back.*
 
 
 That’s one of the finest couplets Bruce has ever written.
@@ -42,46 +42,46 @@ Bruce Springsteen’s “Atlantic City” is set in the early years of the casin
 
 The opening lines of the song set the stage:
 
-*Well they blew up the chicken man in Philly last night*  
+*Well they blew up the chicken man in Philly last night*
 *Now they blew up his house too*
 
 The Chicken Man was Philip Testa, a local Philly mob boss who had indeed been murdered (by a bomb) by an underling in March 1981, shortly before Bruce wrote “Atlantic City,” suggesting that Bruce was catalyzed by the event to write the song. Testa’s death ignited a violent mob war that played out over more than a decade across the metropolitan area.
 
-*Down on the boardwalk they’re getting ready for a fight*  
-*Gonna see what them racket boys can do*  
-*Now there’s trouble busting in from outta state*  
-*And the D.A. can’t get no relief*  
-*Gonna be a rumble out on the promenade*  
+*Down on the boardwalk they’re getting ready for a fight*
+*Gonna see what them racket boys can do*
+*Now there’s trouble busting in from outta state*
+*And the D.A. can’t get no relief*
+*Gonna be a rumble out on the promenade*
 *And the gambling commissions hanging on by the skin of its teeth*
 
 The scene is clearly set–we are contemporaneously in the early casino days, the South Philly mafia proving too strong for the overpowered local law and gaming commissions (the latter of which was itself facing a federal corruption investigation).
 
 And now, the song’s chorus and key theme appears:
 
-*Well now everything dies baby that’s a fact*  
-*But maybe everything that dies someday comes back*  
-*Put your makeup on, fix your hair up pretty*  
+*Well now everything dies baby that’s a fact*
+*But maybe everything that dies someday comes back*
+*Put your makeup on, fix your hair up pretty*
 *And meet me tonight in Atlantic City*
 
 So it’s the city itself that dies and then came back! At this point in the song, it seems that the narrator is referring to the town’s premise and promise that gambling would restore the city’s vitality, and he’s determined and excited to be a part of it. But maybe that’s not all…
 
-*Well I got a job and tried to put my money away*  
-*But I got debts that no honest man can pay*  
-*So I drew what I had from the Central Trust*  
+*Well I got a job and tried to put my money away*
+*But I got debts that no honest man can pay*
+*So I drew what I had from the Central Trust*
 *And I bought us two tickets on that Coast City bus*
 
 
 
-*Now baby everything dies baby that’s a fact*  
-*But maybe everything that dies someday comes back*  
-*Put your makeup on, fix your hair up pretty*  
+*Now baby everything dies baby that’s a fact*
+*But maybe everything that dies someday comes back*
+*Put your makeup on, fix your hair up pretty*
 *And meet me tonight in Atlantic City*
 
 Ah… so it’s not just the town; it’s also our protagonist’s fortunes that have died. His debts that no honest man can pay (a line that sounds like foreshadowing even if you don’t recognize that line from another song about an outlaw) are leading him to Atlantic City, where he hopes he can gamble his way back to life.
 
-*Now our luck may have died and our love may be cold*  
-*But with you forever I’ll stay*  
-*We’re going out where the sand’s turning to gold*  
+*Now our luck may have died and our love may be cold*
+*But with you forever I’ll stay*
+*We’re going out where the sand’s turning to gold*
 *So put on your stockings, baby, ’cause the night’s getting cold*
 
 Wait… so now he’s got romantic problems as well? His relationship has died, but if all goes well where the sand turns to gold (a wonderful line), maybe that will come back to life, too.
@@ -92,16 +92,16 @@ So now we have different layers to death and resurrection. But Bruce isn’t don
 
 
 
-*Now I’ve been looking for a job but it’s hard to find*  
-*Down here it’s just winners and losers and don’t get caught on the wrong side of that line*  
-*Well I’m tired of coming out on this losing end*  
+*Now I’ve been looking for a job but it’s hard to find*
+*Down here it’s just winners and losers and don’t get caught on the wrong side of that line*
+*Well I’m tired of coming out on this losing end*
 *So honey last night I met this guy and I’m gonna do a little favor for him*
 
 Bam! That devastating last line makes everything crystal clear: our hero isn’t going to A.C. to try his luck on the slots; he’s taken a contract from the mob. And he knows full well the danger:
 
-*Well I guess everything dies baby that’s a fact*  
-*But maybe everything that dies someday comes back*  
-*Put your makeup on, fix your hair up pretty*  
+*Well I guess everything dies baby that’s a fact*
+*But maybe everything that dies someday comes back*
+*Put your makeup on, fix your hair up pretty*
 *And meet me tonight in Atlantic City*
 
 He’s accepted his fate. He knows full well the risk he’s taking, but hey–if everything that dies some day comes back, maybe he will, too.
@@ -157,10 +157,10 @@ In any arrangement, in any setting, “Atlantic City” remains one of Bruce’s
 : June 29, 1984 (St. Louis, MO)
 September 3, 2023 (East Rutherford, NJ)
 
-**Atlantic City**  
-**Recorded**  
-**Released***Nebraska**In Concert/MTV Plugged**Greatest Hits**Live in New York City**The Essential Bruce Springsteen**Live in Dublin*  
-**First performed**  
+**Atlantic City**
+**Recorded**
+**Released***Nebraska**In Concert/MTV Plugged**Greatest Hits**Live in New York City**The Essential Bruce Springsteen**Live in Dublin*
+**First performed**
 **Last performed:**<br>
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

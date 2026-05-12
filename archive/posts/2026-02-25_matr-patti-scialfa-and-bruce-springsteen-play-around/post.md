@@ -6,7 +6,7 @@ Toward the end of Patti Scialfa’s third album, *Play It as It Lays*, there’s
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ewTqMZm21LE)
 
-**Play Around**  
+**Play Around**
 **Recorded:** ?<br>
 **Released:** *Play It as It Lays* (2007)<br>
 **Never performed**

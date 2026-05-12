@@ -2,12 +2,12 @@ In early 1982, Bruce recorded a series of demos in his home studios. Some were r
 
 “I Need You” falls into that last camp. One of two work-in-progress songs based on a common melody (“[Ruled by the Gun](https://estreetshuffle.com/index.php/2021/02/23/roll-of-the-dice-ruled-by-the-gun/)” is the other), the existing bootleg take features lyrics that are complete enough to get a sense of what Bruce was aiming for:
 
-*I don’t need no fancy car to drive me around*  
-*I don’t need no pretty face cause that just gets me down*  
+*I don’t need no fancy car to drive me around*
+*I don’t need no pretty face cause that just gets me down*
 *I need you*
 
-*I don’t need your money, baby to spend*  
-*I don’t need your money, I don’t need your friends*  
+*I don’t need your money, baby to spend*
+*I don’t need your money, I don’t need your friends*
 *I need you*
 
 [Watch on Youtube: Bruce Springsteen I Need You #1](https://www.youtube.com/watch?v=EVyGE_UAdMs)
@@ -16,9 +16,9 @@ It’s pretty standard “that’s all right with me” romantic territory for B
 
 [Watch on Youtube: Bruce Sprignsteen I Need You #2 background vocals](https://www.youtube.com/watch?v=VSV3vPoBdFM)
 
-**I Need You**  
+**I Need You**
 **Recorded:** early 1982<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

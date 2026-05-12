@@ -22,7 +22,7 @@ But for students of Bruce’s songwriting process, it’s still interesting to h
 
 **Love is a Gun  
 **Recorded:** January-June 1979 (demos only)<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

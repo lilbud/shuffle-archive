@@ -52,28 +52,28 @@ So maybe it’s the lyrics. Unlike “” and “” (the only songs that previo
 
 It’s almost silly to try and analyze “I’m on Fire,” so blatant are its lyrics.
 
-*Hey little girl is your daddy home*  
-*Did he go away and leave you all alone*  
-*I got a bad desire*  
+*Hey little girl is your daddy home*
+*Did he go away and leave you all alone*
+*I got a bad desire*
 *Oh I’m on fire*
 
 
 
-*Tell me now baby is he good to you*  
-*Can he do to you the things that I do*  
-*I can take you higher*  
+*Tell me now baby is he good to you*
+*Can he do to you the things that I do*
+*I can take you higher*
 *Oh I’m on fire*
 
 
 
-*Sometimes it’s like someone took a knife baby edgy and dull*  
+*Sometimes it’s like someone took a knife baby edgy and dull*
 *And cut a six-inch valley through the middle of my soul*
 
 
 
-*At night I wake up with the sheets soaking wet*  
-*And a freight train running through the middle of my head*  
-*Only you can cool my desire*  
+*At night I wake up with the sheets soaking wet*
+*And a freight train running through the middle of my head*
+*Only you can cool my desire*
 *Oh I’m on fire*
 
 The entire song boils down to:

@@ -69,7 +69,7 @@ May 23, 1978 (Buffalo, NY)
 August 2, 1988 (Madrid, Spain)
 
 **Paradise by the “C”**
-Never recorded**  
+Never recorded**
 
 **Released:** *The River: Outtakes*<br>
 **First performed:**<br>

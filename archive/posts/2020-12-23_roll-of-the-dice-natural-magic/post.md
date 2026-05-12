@@ -16,24 +16,24 @@ Today, we’ll take a listen to one of my favorite original songs from this peri
 
 “Natural Magic” doesn’t tread any new lyrical ground either–mountain high/water wide pairings weren’t exactly original ideas by that time.
 
-*I’d climb a mountain if you want me to*  
-*I’d swim the ocean just to get to you*  
-*I’d do most anything that you ask me to do*  
-*Don’t you know now darling, my loving’s for you*  
-*Oh but don’t take me for a fool*  
-*‘Cause it’d be the wrong thing to do*  
-*In the end it sure would be tragic*  
+*I’d climb a mountain if you want me to*
+*I’d swim the ocean just to get to you*
+*I’d do most anything that you ask me to do*
+*Don’t you know now darling, my loving’s for you*
+*Oh but don’t take me for a fool*
+*‘Cause it’d be the wrong thing to do*
+*In the end it sure would be tragic*
 *Because my baby’s natural magic*
 
 
 
-*I’d steal the moon from the midnight sky*  
-*Sprinkle him with stardust and tie him in butterflies*  
-*I’d buy for you a sailing ship and I’d set out on the sea*  
-*All I ask of you, darling: you let me be free*  
-*And if that is too much to do*  
-*To keep my girl from singing the blues*  
-*In the end it sure would be tragic*  
+*I’d steal the moon from the midnight sky*
+*Sprinkle him with stardust and tie him in butterflies*
+*I’d buy for you a sailing ship and I’d set out on the sea*
+*All I ask of you, darling: you let me be free*
+*And if that is too much to do*
+*To keep my girl from singing the blues*
+*In the end it sure would be tragic*
 *Because my baby’s natural magic*
 
 And yet, despite wearing its influences on its sleeve, “Natural Magic” is sweet and charmingly earnest. Together with songs like “” (played just two songs prior that night) and “,” “Natural Magic” represents the beginning of a soulfully romantic vein that Bruce would mine for many years to come.
@@ -48,9 +48,9 @@ July 10, 1971 (Lincroft, NJ)
 July 29, 1971 (South Amboy, NJ)
 
 **Natural Magic**
-Never recorded**  
+Never recorded**
 
-**Never released**  
+**Never released**
 **First performed:**<br>
 **Last performed:**<br>
 

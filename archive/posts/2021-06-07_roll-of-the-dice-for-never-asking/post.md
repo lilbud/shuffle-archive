@@ -18,67 +18,67 @@ It’s interesting to note that the first page of lyrics are transcribed almost 
 
 Format aside, the lyrics reflect darkness, sadness, isolation, and alienation–not necessarily extraordinary themes for a teenager, but with the benefit of hindsight and our knowledge of Bruce’s lifelong battle with depression, “For Never Asking” screams at us from the past like a cry for help, or at least a young man grappling to understand what’s happening in his mind:
 
-*Grayish skies choked with rain*  
-*cloud my head and turn away*  
-*Even as time passes by*  
-*life goes on, from lie to lie*  
+*Grayish skies choked with rain*
+*cloud my head and turn away*
+*Even as time passes by*
+*life goes on, from lie to lie*
 *but someday I will fly*
 
 
 
-*The darkened room I dwell within*  
-*smiles at me gently – “won’t you please come in?”*  
-*Then binds me in its iron chains*  
-*never to let me go again*  
+*The darkened room I dwell within*
+*smiles at me gently – “won’t you please come in?”*
+*Then binds me in its iron chains*
+*never to let me go again*
 *my tears will have all run dry*
 
 If that’s not an explicit description of a descent into depression, I can’t imagine what one would sound like.
 
-*Then I hear a knock on the door*  
-*open it to find a Union sword*  
-*with a finger pointing straight at me*  
-*when everything just ceased to be*  
+*Then I hear a knock on the door*
+*open it to find a Union sword*
+*with a finger pointing straight at me*
+*when everything just ceased to be*
 *“come kill with us, my friend”*
 
 
 
-*The Great Society jumps and screams*  
-*but its not really what it seems*  
-*it runs down the alley and calls my name*  
-*wants me to play its silly games*  
+*The Great Society jumps and screams*
+*but its not really what it seems*
+*it runs down the alley and calls my name*
+*wants me to play its silly games*
 *but no, no, no, not I*
 
 Bruce calls upon two historical metaphors here, referring first to the U.S. Civil War (being conscripted to fight alongside the Union army) and then to President Johnson’s Great Society, which by 1968 had experienced a Republican backlash and was being pared back by President Nixon.
 
 Both examples are rooted in political, cultural, and class rifts, and Bruce doesn’t so much declare a position as he opts out of having one. He’s struggling to figure out who he is and what he believes, free of influence from one side or the other:
 
-*Let me hear what I have to hear*  
-*Let me see what I have to see*  
-*Let me feel what I have to feel*  
-*Let me be what I have to be*  
+*Let me hear what I have to hear*
+*Let me see what I have to see*
+*Let me feel what I have to feel*
+*Let me be what I have to be*
 *without you*
 
 
 
-*Man clown, up down*  
-*which way am I flowing?*  
-*Man clown, up down*  
+*Man clown, up down*
+*which way am I flowing?*
+*Man clown, up down*
 *which way is my life rowing, rowing?*
 
 Bruce gets no answers to his questions, though, and he returns to his alienation, feeling the clown, unable to escape but determined to someday:
 
-*The circus has arrived in town*  
-*children see the funny clown*  
-*Find the man behind the grin*  
-*he will never let you in*  
+*The circus has arrived in town*
+*children see the funny clown*
+*Find the man behind the grin*
+*he will never let you in*
 *for nothing ever really sinks in to help you*
 
 
 
-*Grayish skies scarred by the sun*  
-*scream in anger and start to run*  
-*ripped by the spear of its own forgotten lies*  
-*it runs for cover but dies, dies, dies*  
+*Grayish skies scarred by the sun*
+*scream in anger and start to run*
+*ripped by the spear of its own forgotten lies*
+*it runs for cover but dies, dies, dies*
 *but someday I will fly*
 
 “For Never Asking” is a stark, sobering song–we don’t know what it would have sounded like, but it seems that it was intended as a solo acoustic song. Bruce may never have released it, but it’s a theme and a battle he would revisit throughout his life and career.

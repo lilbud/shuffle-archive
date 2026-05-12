@@ -18,21 +18,21 @@ We can understand enough of the lyrics to understand why it was left off of –i
 
 
 
-*Hey mister, you see that girl walking down the street*  
-*That little girl, she used to turn’ em on*  
-*Wild kisses and a heart that’s oh-so-sweet*  
+*Hey mister, you see that girl walking down the street*
+*That little girl, she used to turn’ em on*
+*Wild kisses and a heart that’s oh-so-sweet*
 *??? in the middle of the night*
 
 
 
-*And now, wild kisses never seem to settle down*  
-*Afraid to get my feet back on the ground*  
-*Well baby ???*  
+*And now, wild kisses never seem to settle down*
+*Afraid to get my feet back on the ground*
+*Well baby ???*
 *I’m gonna meet her tonight*
 
 
 
-*And now my wild world’s tumblin’ and dancin’*  
+*And now my wild world’s tumblin’ and dancin’*
 *I’m looking for true romancin’*
 
 But it would have been perfectly suited for and a brilliant live addition to the Darkness Tour. Bruce is clearly getting his Buddy Holly on in that rehearsal tape, and with a little polish, “I’m Gonna Treat You Right” would have made a great pairing or alternate for Bruce’s cover of Holly’s “” that frequently graced Bruce’s 1978 set lists.
@@ -49,7 +49,7 @@ October 26, 1978 (Holmdel, NJ) (soundcheck only)
 October 26, 1978 (Holmdel, NJ) (soundcheck only)
 
 **I’m Gonna Treat You Right (Wild Kisses)**
-Never recorded**  
+Never recorded**
 
 **First performed:**<br>
 **Last performed:**<br>

@@ -39,6 +39,6 @@ It seems Bruce is always at the ready for “Long Tall Sally,” and how could h
 April 11, 1982 (Red Bank, NJ)
 February 7, 2017 (Sydney, Australia)
 
-**Long Tall Sally**  
+**Long Tall Sally**
 **First performed:**<br>
 **Last performed:**<br>

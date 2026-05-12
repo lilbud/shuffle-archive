@@ -15,7 +15,7 @@ We don’t have a recording from that night, but we do have one from a few weeks
 March 4, 1988 (Chapel Hill, NC)
 April 4, 1988 (Largo, MD)
 
-**Crazy Love**  
-**Never performed live**  
-**First soundchecked:**  
+**Crazy Love**
+**Never performed live**
+**First soundchecked:**
 **Last soundchecked:**

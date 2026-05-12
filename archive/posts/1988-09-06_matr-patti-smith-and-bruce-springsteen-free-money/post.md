@@ -4,7 +4,7 @@ Bruce and Patti had become fast friends and traded appearances on each other’s
 
 That night, he essentially joined The Patti Smith Group, playing guitar or piano for seven songs at the early show and six at the late show–ten unique songs in all, none of which were Bruce’s.
 
-One of those songs was Patti’s “Free Money,” a poem born on a late-night walk, set to music by Lenny Kaye, and released on *Horses.* 
+One of those songs was Patti’s “Free Money,” a poem born on a late-night walk, set to music by Lenny Kaye, and released on *Horses.*
 
 [https://www.youtube.com/embed/U-ZJGfA0UxY?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/U-ZJGfA0UxY?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 

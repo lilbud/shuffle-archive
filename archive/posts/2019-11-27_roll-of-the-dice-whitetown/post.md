@@ -28,28 +28,28 @@ If I didn’t know better, I’d peg this version of “Whitetown” as an outta
 
 
 
-*Mary Ann on the avenue*  
-*Girl all dressed up in Kensington blue*  
-*Down where the hammer falls*  
+*Mary Ann on the avenue*
+*Girl all dressed up in Kensington blue*
+*Down where the hammer falls*
 *She’s born and bred within Whitetown walls*
 
 
 
-*Each and every thing slowly passes away*  
-*She moves alone along the narrow street*  
-*From a passing car she hears the music play*  
+*Each and every thing slowly passes away*
+*She moves alone along the narrow street*
+*From a passing car she hears the music play*
 *Beneath the El she starts to sway*
 
 *Down in Whitetown*
 
-*Johnny’s just trying to make his way*  
-*He’s got a job but mister it don’t pay*  
-*He sits and counts the scars*  
+*Johnny’s just trying to make his way*
+*He’s got a job but mister it don’t pay*
+*He sits and counts the scars*
 *On a stool down the end of a Whitetown bar*
 
-*And the old men here piss their lives away*  
-*Drinking and joking about their cop-fighting days*  
-*Ain’t no answers here, just the past and fear*  
+*And the old men here piss their lives away*
+*Drinking and joking about their cop-fighting days*
+*Ain’t no answers here, just the past and fear*
 *Of spending the rest of your days*
 
 *Down in Whitetown*

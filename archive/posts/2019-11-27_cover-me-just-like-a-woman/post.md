@@ -13,6 +13,6 @@ As always, Dylan’s original for comparison:
 March 4, 1988 (Chapel Hill, NC – soundcheck only)
 March 23, 1988 (Atlanta, GA – soundcheck only)
 
-**Just Like a Woman**  
+**Just Like a Woman**
 **First performed:**<br>
 **Last performed:**<br>

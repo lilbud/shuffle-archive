@@ -16,9 +16,9 @@ got further than I did figuring out the lyrics–enough to figure out that it’
 
 
 
-*Well there’s a black sun risin’*  
-*Shining darkness on the White House*  
-*Well there’s a black sun risin’*  
+*Well there’s a black sun risin’*
+*Shining darkness on the White House*
+*Well there’s a black sun risin’*
 *Shining darkness on the White House*
 
 
@@ -27,15 +27,15 @@ got further than I did figuring out the lyrics–enough to figure out that it’
 
 
 
-*Now there’s a new day dawn*  
-*When no-one’s gonna pay the cost*  
-*They never ???*  
-*???*  
+*Now there’s a new day dawn*
+*When no-one’s gonna pay the cost*
+*They never ???*
+*???*
 *Oh revolution is ours*
 
 
 
-*Man has told me to propagate love*  
+*Man has told me to propagate love*
 *I’m gonna get you, oh, oh, oh, oh, all right*
 
 Yeah, this is one rarity I don’t need to hear in concert.

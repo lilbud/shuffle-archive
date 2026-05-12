@@ -20,30 +20,30 @@ Whereas “County Fair” takes care to paint a full picture, “The Honeymooner
 
 The first verse hurtles us through the ceremony itself:
 
-*Two kids get married, same old thing*  
-*Folks congratulate you, church bells ring*  
-*Who’s got the ring, who’s gonna pay the priest*  
+*Two kids get married, same old thing*
+*Folks congratulate you, church bells ring*
+*Who’s got the ring, who’s gonna pay the priest*
 *Get your name in the paper, picture or two at least*
 
 …and the second immerses us in the reception, while the enormity of what we just committed to starts to sink in:
 
-*And at the reception all the old records play*  
-*“Where you gonna live, are you gonna taker her away?”*  
-*In a corner my new nephew’s showin’ me his knife*  
+*And at the reception all the old records play*
+*“Where you gonna live, are you gonna taker her away?”*
+*In a corner my new nephew’s showin’ me his knife*
 *You swore that you’d love her for the rest of your life*
 
 In verse three, we’re alone with our new spouse, reliving and laughing about the events of the day:
 
-*Went to kiss you at the altar we bumped heads*  
-*Honeymoon night we figured we best shake on it instead*  
-*Dressed kinda funny, laughin’ we hop in bed*  
+*Went to kiss you at the altar we bumped heads*
+*Honeymoon night we figured we best shake on it instead*
+*Dressed kinda funny, laughin’ we hop in bed*
 *You can wear it on your feet, you can swear it on your head*
 
 …and finally, we wake up the next morning to our new normal:
 
-*Come mornin’ my new famlily’s sitting on the front porch swing*  
-*Smilin’ kinda funny, nobody says a thing*  
-*My new brother-in-law’s throwin’ a football, he tosses me a pass*  
+*Come mornin’ my new famlily’s sitting on the front porch swing*
+*Smilin’ kinda funny, nobody says a thing*
+*My new brother-in-law’s throwin’ a football, he tosses me a pass*
 *We all sit down on the front stoop, everybody happy at last*
 
 It’s a magical moment, full of contentment. Of course, it’s fleeting. Or at least it will be, and the narrator probably knows it. But that’s not the point. The point is that in life, we have moments where everything else–our jobs, our fears, our sources of stress and strife–all fade into the background, and we are gifted with calm, peace, joy, and contentment.
@@ -57,7 +57,7 @@ February 22, 1987 (1998)
 **The Honeymooners**
 **Recorded:** <br>
 **Released:** <br>
-*Tracks*  
+*Tracks*
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

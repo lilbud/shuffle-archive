@@ -22,23 +22,23 @@ Taken by itself, “Delivery Man” is a lark, a farce–it’s the story of two
 
 As our story begins, our unnamed narrator and his friend Wilson are illegally (but just a little) transporting a load of live chickens:
 
-*I’m rumblin’ outta town ‘cross the West side tracks*  
-*Drivin’ my pa’s flat bed with a load of chickens in the back*  
-*I’m a little illegal but I ain’t on fire*  
-*I got them hens tied down with rope and chicken wire*  
-*Up in the cab me and Wilson we gotta shout*  
-*Between the noise from the engine and them chickens squawking all about*  
-*There’s a low bridge comin’ up on 105*  
+*I’m rumblin’ outta town ‘cross the West side tracks*
+*Drivin’ my pa’s flat bed with a load of chickens in the back*
+*I’m a little illegal but I ain’t on fire*
+*I got them hens tied down with rope and chicken wire*
+*Up in the cab me and Wilson we gotta shout*
+*Between the noise from the engine and them chickens squawking all about*
+*There’s a low bridge comin’ up on 105*
 *And if we don’t make it man them feathers gonna fly, yeah*
 
 That’s called foreshadowing right there. We see it again in the second verse, but there’s so much else to take in that we almost miss it:
 
-*Now Wilson ain’t bad lookin’, ‘cept he’s kinda shy*  
-*And I got him a girl in rails tonight*  
-*Well she goes by the name of Beverly Jean*  
-*She got eyes like a jack rabbit starin’ dead in your high beams*  
-*On her bureau the World Trade Centers glow*  
-*When she turns ’em upside down, well they’re covered in snow*  
+*Now Wilson ain’t bad lookin’, ‘cept he’s kinda shy*
+*And I got him a girl in rails tonight*
+*Well she goes by the name of Beverly Jean*
+*She got eyes like a jack rabbit starin’ dead in your high beams*
+*On her bureau the World Trade Centers glow*
+*When she turns ’em upside down, well they’re covered in snow*
 *All Wilson says is, “I don’t know, Wayne, I don’t know”*
 
 Okay, let’s unpack:
@@ -59,22 +59,22 @@ The next thing we notice is the revelation that our narrator’s name is Wayne�
 
 So let’s get back to our story, because it’s about to go exactly where you think it’s going.
 
-*I took a hard turn just South of the Kokomo*  
-*Our rope gave out, my load shifted, we was all over the road*  
-*Pens bustin’ on the blacktop, chickens scatterin’ all about*  
-*Runnin’ hellbent ‘cross the highway, gettin’ turned inside out*  
-*By the local commuters at sixty miles per hour*  
+*I took a hard turn just South of the Kokomo*
+*Our rope gave out, my load shifted, we was all over the road*
+*Pens bustin’ on the blacktop, chickens scatterin’ all about*
+*Runnin’ hellbent ‘cross the highway, gettin’ turned inside out*
+*By the local commuters at sixty miles per hour*
 *In five minutes it was all over, except for the flowers*
 
 Let’s pause for a moment to admire Bruce’s songwriting. Sure, this may not be one of his more profound songs, but it takes talent to paint such a ridiculously chaotic scene so concisely.
 
 Our story concludes with Wayne surveying the wreckage, both mechanical and animal:
 
-*Well that flatbed was sideways in a drainage ditch*  
-*There weren’t no way she was movin’ without a crane and a hitch*  
-*When the highway patrol came in and set up a block*  
-*We was chasin’ some survivors ‘cross the parkin’ lot*  
-*Well I stood up and checked the situation at hand*  
+*Well that flatbed was sideways in a drainage ditch*
+*There weren’t no way she was movin’ without a crane and a hitch*
+*When the highway patrol came in and set up a block*
+*We was chasin’ some survivors ‘cross the parkin’ lot*
+*Well I stood up and checked the situation at hand*
 *Lord don’t let me spend my life as a delivery man*
 
 That’s a terrifically funny last line, and Bruce lets it linger as we survey the scene along with Wayne, presumably waiting for the state troopers to haul them in. But what if they didn’t? What if Wayne and Wilson made a run for it? What if they picked up Wilson’s car and made a break straight for Darlington County?
@@ -87,7 +87,7 @@ Bruce has never performed “Delivery Man,” and he’s obviously never release
 
 Let’s hope, because a live “Delivery Man”/”Darlington County” double-shot would be too much fun to miss out on.
 
-**Delivery Man**  
+**Delivery Man**
 **Recorded:** January 1983<br>
-**Never released**  
+**Never released**
 **Never performed**

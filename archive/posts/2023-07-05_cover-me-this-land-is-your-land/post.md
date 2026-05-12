@@ -14,23 +14,23 @@ As was his habit, Seeger spoon-fed the crowd each line a half-second before they
 
 But towards the end of the song, viewers on the mall and at home appreciated the assist, because the most important lyrics of the song are ones most of us never knew existed.
 
-*As I went walking I saw a sign there*  
-*And on the sign it said “No Trespassing.”*  
-*But on the other side it didn’t say nothing,*  
+*As I went walking I saw a sign there*
+*And on the sign it said “No Trespassing.”*
+*But on the other side it didn’t say nothing,*
 *That side was made for you and me.*
 
 
 
-*In the squares of the city, in the shadow of the steeple,*  
-*By the relief office I seen my people;*  
-*As they stood there hungry, I stood there asking*  
+*In the squares of the city, in the shadow of the steeple,*
+*By the relief office I seen my people;*
+*As they stood there hungry, I stood there asking*
 *Is this land made for you and me?*
 
 
 
-*Nobody living can ever stop me,*  
-*As I go walking that freedom highway;*  
-*Nobody living can ever make me turn back*  
+*Nobody living can ever stop me,*
+*As I go walking that freedom highway;*
+*Nobody living can ever make me turn back*
 *This land was made for you and me.*
 
 Without those verses, Woody Guthrie’s “This Land Is Your Land” is just a poetic travelogue, a paean to the beauty and birthright of the American Land.
@@ -47,9 +47,9 @@ He wrote the song in 1939 with the best of intentions. Ironically, he was inspir
 
 Berlin’s song, like Guthrie’s more well-known verses, is merely a catalog of American natural treasures. However, Berlin also wrote an introduction that didn’t make Kate Smith’s recording but which she performed in concert whenever she sang the song:
 
-*While the storm clouds gather far across the sea*  
-*Let us swear allegiance to a land that’s free*  
-*Let us all be grateful for a land so fair*  
+*While the storm clouds gather far across the sea*
+*Let us swear allegiance to a land that’s free*
+*Let us all be grateful for a land so fair*
 *As we raise our voices in a solemn prayer.*
 
 Yes, it was wartime. (Berlin actually wrote “God Bless America” during World War I.) And there’s nothing wrong with a little patriotic pride even in peacetime. But it irked Guthrie to hear Berlin’s blindly syrupy song coming out of every radio a full decade into the Great Depression while all around him were migrants and homeless struggling to find work and survive. These were his people, and they weren’t feeling particularly blessed.
@@ -62,9 +62,9 @@ Guthrie wrote “This Land Is Your Land” as an answer to “God Bless America,
 
 Lyrically, Guthrie balanced his song by pointing out where America was falling short and failing its citizens. When he first recorded it in 1944, “This Land Is Your Land” included one of his additional verses:
 
-*There was a big high wall there that tried to stop me*  
-*A sign was painted that said Private Property*  
-*But on the back side it didn’t say nothin’*  
+*There was a big high wall there that tried to stop me*
+*A sign was painted that said Private Property*
+*But on the back side it didn’t say nothin’*
 *This land was made for you and me*
 
 [https://www.youtube.com/embed/1my1jn6QHzE?feature=oembed](https://www.youtube.com/embed/1my1jn6QHzE?feature=oembed)

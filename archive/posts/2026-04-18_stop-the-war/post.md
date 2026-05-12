@@ -32,7 +32,7 @@ Logs reveal a studio take was captured a few weeks later, but no trace of the so
 
 **Stop the War**
 **Recorded:** April 15, 1982 (rehearsal); May 5=6, 1982 (studio)<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 © April 15, 2026

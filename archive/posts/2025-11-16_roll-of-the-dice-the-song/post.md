@@ -12,49 +12,49 @@ Regardless of what you call the song, “The Song” is rather typical of Bruce�
 
 [https://www.youtube.com/embed/lLKRhwmJz_U?feature=oembed](https://www.youtube.com/embed/lLKRhwmJz_U?feature=oembed)
 
-*Well you flash your tongue like diamonds*  
-*You tied me to your wildcat schemes*  
-*And you forced me to into a power dive*  
-*And left your mark on my jeans*  
-*And I heard the word on your soldiers*  
-*And I heard the word on Jesus too*  
-*I heard the word on the country*  
+*Well you flash your tongue like diamonds*
+*You tied me to your wildcat schemes*
+*And you forced me to into a power dive*
+*And left your mark on my jeans*
+*And I heard the word on your soldiers*
+*And I heard the word on Jesus too*
+*I heard the word on the country*
 *But I never heard the word on you*
 
 
 
-*Your love was like a machine gun*  
-*I wore your bugle in my belt*  
-*And I was your kid glove lover*  
-*All the cards were yours, you always dealt*  
-*And I stood before your soapbox*  
-*Noiseless and shoeless playing my pantry boy’s games*  
-*You had your raised up, you had your hands raised up*  
-*You were raised up to the sky shouting, “Oh Sunday deity*  
-*Oh Big Daddy Longlegs, come down and bless your sister please”*  
-*You were shouting orders about the construction going on down the highway*  
-*Doing the Virginia reel, you were naming names, blaming blames*  
+*Your love was like a machine gun*
+*I wore your bugle in my belt*
+*And I was your kid glove lover*
+*All the cards were yours, you always dealt*
+*And I stood before your soapbox*
+*Noiseless and shoeless playing my pantry boy’s games*
+*You had your raised up, you had your hands raised up*
+*You were raised up to the sky shouting, “Oh Sunday deity*
+*Oh Big Daddy Longlegs, come down and bless your sister please”*
+*You were shouting orders about the construction going on down the highway*
+*Doing the Virginia reel, you were naming names, blaming blames*
 *And you blamed me*
 
 
 
-*You wore your heart like a challenge*  
-*Far and apart for anyone who came*  
-*Open and wide like the river*  
-*With rocks on both sides to keep the water tame*  
-*But I heard the word on your high tides*  
-*And I felt the pain when I tried to rip your floodgates wide*  
-*And pull your body on over to my side where we both could hide*  
-*But you heard about the freedom ride*  
-*And you heard about the highway crew*  
-*Who could cut the light a little bit faster than you*  
+*You wore your heart like a challenge*
+*Far and apart for anyone who came*
+*Open and wide like the river*
+*With rocks on both sides to keep the water tame*
+*But I heard the word on your high tides*
+*And I felt the pain when I tried to rip your floodgates wide*
+*And pull your body on over to my side where we both could hide*
+*But you heard about the freedom ride*
+*And you heard about the highway crew*
+*Who could cut the light a little bit faster than you*
 *So you left me just your shoes*
 
 
 
-*And I heard the word on Jesus*  
-*And I heard the word on his marching troops*  
-*I heard the word on the country*  
+*And I heard the word on Jesus*
+*And I heard the word on his marching troops*
+*I heard the word on the country*
 *But I never heard the word on you*
 
 It’s not one of Bruce’s strongest songs, even when considered just among his early work. It’s not surprising it was left off of But it’s still a fascinating peek at an artist still developing his voice and his style.
@@ -63,9 +63,9 @@ It’s not one of Bruce’s strongest songs, even when considered just among his
 
 April/May, 1972
 
-**The Song**  
+**The Song**
 **Recorded:** <br>
 **Never Released**
-Never Performed**   
+Never Performed**
 
 ©June 6, 2018

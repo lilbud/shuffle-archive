@@ -16,30 +16,30 @@ Musically, “30 Days Out” suffers from the same overproduction that plagues (
 
 Perhaps the reason Bruce cast this song off is that lyrically, it’s ground well trod for him:
 
-*We fell in love and I made you the world*  
-*I spent all my time trying to satisfy you, girl*  
-*Just one thing that I can’t figure out*  
+*We fell in love and I made you the world*
+*I spent all my time trying to satisfy you, girl*
+*Just one thing that I can’t figure out*
 *Closer I get, farther baby I am out*
 
 
 
-*Thirty days, thirty days out*  
-*Well I’m six days running but I’m thirty days out*  
-*Thirty days, thirty days out*  
+*Thirty days, thirty days out*
+*Well I’m six days running but I’m thirty days out*
+*Thirty days, thirty days out*
 *With every kiss you leave a little shadow of doubt*
 
 
 
-*The roof was leaking honey where we live*  
-*And I’m wondering what’s that something that you won’t give*  
-*I started loving you but I gotta stop*  
+*The roof was leaking honey where we live*
+*And I’m wondering what’s that something that you won’t give*
+*I started loving you but I gotta stop*
 *You got me mostly waiting for that other shoe to drop*
 
 
 
-*Tried to talk about what’s going on*  
-*You just smile and tell me “Baby there ain’t nothing wrong”*  
-*In your smile there’s a sign in red*  
+*Tried to talk about what’s going on*
+*You just smile and tell me “Baby there ain’t nothing wrong”*
+*In your smile there’s a sign in red*
 *It said “Thousand miles of hard road dead ahead”*
 
 The notion of the mysterious girl he can never quite please–who remains just emotionally out of reach even though she professes otherwise–that’s familiar territory in the vein of “,” “” and “.” Even “” compares in its titular hook and its ain’t-burning furnace vs. the leaky roof in “30 Days Out.”
@@ -57,7 +57,7 @@ March-April 1990 promo (1992) (select countries only)
 **30 Days Out**
 **Recorded:** <br>
 **Released:** <br>
-*Leap of Faith*  
+*Leap of Faith*
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

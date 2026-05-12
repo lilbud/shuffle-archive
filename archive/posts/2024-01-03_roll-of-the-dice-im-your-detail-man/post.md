@@ -36,45 +36,45 @@ The song is called–we –“I’m Your Detail Man,” and based on the content
 
 
 
-*Well baby, I’m a hundred percent guaranteed*  
-*Honey, I’m a finisher that you need*  
-*I’m your detail man*  
-*Baby, I’m your detail man*  
-*You want to drive down here any time day or night*  
+*Well baby, I’m a hundred percent guaranteed*
+*Honey, I’m a finisher that you need*
+*I’m your detail man*
+*Baby, I’m your detail man*
+*You want to drive down here any time day or night*
 *Call your detail man*
 
 
 
-*Well I’ll dot all your I’s and I’ll cross all your T’s*  
-*From your ruby red lips down to your knees*  
-*I’m a detail man*  
-*Baby, I’m a detail man*  
-*You want the job done right any time day or night*  
+*Well I’ll dot all your I’s and I’ll cross all your T’s*
+*From your ruby red lips down to your knees*
+*I’m a detail man*
+*Baby, I’m a detail man*
+*You want the job done right any time day or night*
 *Call a detail man*
 
 
 
-*Well, a detail man who never leave you in doubt*  
-*I just go to places other men ain’t even read about*  
-*I’m a detail man*  
-*Sugar, I’m a detail man*  
-*You want to drive, come ’round any time day or night*  
+*Well, a detail man who never leave you in doubt*
+*I just go to places other men ain’t even read about*
+*I’m a detail man*
+*Sugar, I’m a detail man*
+*You want to drive, come ’round any time day or night*
 *Call your detail man*
 
 
 
-*Don’t matter if you’re custom, don’t matter if you’re stock*  
-*Have you purring like a kitty and humming like a clock*  
-*If you want someone to spit and shine*  
+*Don’t matter if you’re custom, don’t matter if you’re stock*
+*Have you purring like a kitty and humming like a clock*
+*If you want someone to spit and shine*
 *Call me little girl and you’re mine*
 
 
 
-*Well it’s as easy as ???*  
-*Come to work professionalism ain’t a dirty word*  
-*I’m a detail man*  
-*I’m a detail man*  
-*You want to drive come ’round any time day or night*  
+*Well it’s as easy as ???*
+*Come to work professionalism ain’t a dirty word*
+*I’m a detail man*
+*I’m a detail man*
+*You want to drive come ’round any time day or night*
 *Call the detail man*
 
 The lyrics are very much in keeping with the playful trifles Bruce tossed off during the early to mid-nineties, and the only thing that gives me even the slightest hesitation in unequivocally declaring it an original song is that the jam band seems a bit too familiar with the song for it to be something Bruce pulled out of his hat at the party. Still, there’s no telling whether and for how long they’d rehearsed, and neither Stamos nor Bruce has ever said anything further about it.

@@ -16,9 +16,9 @@ Over the years, it’s been covered countless times in myriad arrangements and g
 
 Researching the song, Bruce discovered that like much of folk music “The Saints” doesn’t really have an “official” set of lyrics. In fact, its simple structure almost guarantees musical mutation. But Bruce stumbled across an early set of lyrics that he’d never heard before but which spoke to him:
 
-*Oh when the new world is revealed*  
-*Oh when the new world is revealed*  
-*Yeah I want to be there on that morning*  
+*Oh when the new world is revealed*
+*Oh when the new world is revealed*
+*Yeah I want to be there on that morning*
 *When the new world is revealed*
 
 “When The Saints Go Marching In” is fatalistic (if not apocalyptic), but these new lyrics promised redemption and rewarded hope. Bruce embraced these lyrics and worked up a quiet, almost reverent arrangement–and when the band was ready for its last JazzFest encore, this is what they played.

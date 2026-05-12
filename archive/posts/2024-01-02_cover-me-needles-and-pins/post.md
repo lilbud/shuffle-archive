@@ -23,7 +23,7 @@ here’s a clearer recording from a soundcheck earlier in the year: February 23r
 February 23, 1975 (Westbury, NY)
 December 12, 1975 (Greenvale, NY)
 
-**Needles and Pins**  
-**Never performed in concert**  
-**First soundchecked:**  
+**Needles and Pins**
+**Never performed in concert**
+**First soundchecked:**
 **Last soundchecked:**

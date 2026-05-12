@@ -21,6 +21,6 @@ https://youtu.be/ypHOTlvjgxw
 January 17, 1990 (New York City, NY)
 May 28, 2015 (New York City, NY)
 
-**Won’t Get Fooled Again**  
+**Won’t Get Fooled Again**
 **First performed:** <br>
 **Last performed:**<br>

@@ -22,11 +22,11 @@ In that original incarnation, “57 Channels” is a borderline novelty song abo
 
 It’s a fun song, a joke perhaps, but one with a bite that would only become sharper as decades passed.
 
-*I bought a Hollywood house in the bourgeois hills*  
-*For a dump truck of hundred thousand dollar bills*  
-*Man came by to hook up my cable TV*  
-*We settled in for the night my baby and me*  
-*We switched around and round until half-past dawn*  
+*I bought a Hollywood house in the bourgeois hills*
+*For a dump truck of hundred thousand dollar bills*
+*Man came by to hook up my cable TV*
+*We settled in for the night my baby and me*
+*We switched around and round until half-past dawn*
 *But there were fifty-seven channels man and nothing on*
 
 Like many of us, Bruce grew up in a time when television offered only a few choices. In a major market, you might be able to count your channel choices on two hands; in minor markets, only one. By 1990, cable television brought with it a proliferation of specialty channels, and Americans marveled at the availability of dozens of channels–so much so that Bruce wrote a song about it, not realizing just how quickly the number he settled on would be rendered quaint.
@@ -37,51 +37,51 @@ Quantity, however, didn’t necessarily correlate with quality, as viewers soon 
 
 The night after Bruce debuted “57 Channels,” he played it again, this time admitting the song is “more about my actual life.” At best, he was only half-joking: Bruce had indeed purchased a Hollywood home with his success, and two years off the road with an infant (his first) at home, it’s not a stretch to imagine that Bruce and Patti were spending much of their days and nights in front of the television.
 
-*Now home entertainment was my baby’s wish*  
-*So I hopped into town for a satellite dish*  
-*Came home, tied it to my Japanese car*  
-*Stuck it in the backyard, aimed it at the stars*  
-*A message came back from the great beyond*  
+*Now home entertainment was my baby’s wish*
+*So I hopped into town for a satellite dish*
+*Came home, tied it to my Japanese car*
+*Stuck it in the backyard, aimed it at the stars*
+*A message came back from the great beyond*
 *Son, there’s fifty-seven channels and nothing on*
 
 The second verse is probably the song’s cleverest: “home entertainment” is clearly a double entendre. The humor and tragedy of the rest of the song stems from the clueless narrator missing his lover’s cues as he stubbornly quests for something on-screen more interesting than what’s around him.
 
-*Well like a wheel of fortune we were spinning that wishing*  
-*All night to the morning with our eyes gone fishing*  
-*We sat there on that couch ’till just about dawn*  
+*Well like a wheel of fortune we were spinning that wishing*
+*All night to the morning with our eyes gone fishing*
+*We sat there on that couch ’till just about dawn*
 *Fifty-seven channels and nothing on*
 
 The bridge is terrific, too. Sadly, Bruce would excise it from the studio track, but the notion of a TV channel dial as “wheel of fortune” is a brilliant metaphor on two levels. It’s a turn of phrase that deserved to be heard.
 
 Bruce goes on to hammer home the song’s point in the second half of the bridge:
 
-*Well we might’a made some friends with some billionaires*  
-*We might’a got all hot and horny if we’d made it upstairs*  
-*All I got was a note that said “Good-bye John*  
+*Well we might’a made some friends with some billionaires*
+*We might’a got all hot and horny if we’d made it upstairs*
+*All I got was a note that said “Good-bye John*
 *Our love is fifty-seven channels and nothing on”*
 
 In other words, life was already good. They lived in a vibrantly upscale community and they had each other for sexual entertainment. But our hero can’t tear himself away from his screen until his love leaves him a Dear John letter with an apt metaphor: their relationship is free of hardship but devoid of substance. She wants more.
 
 Perhaps John realizes and regrets his mistake, because he destroys his electronic siren:
 
-*Well I bought a .44 magnum, it was solid steel cast*  
-*In the blessed name of Elvis well I let it blast*  
-*‘Til my TV was in pieces there at my feet*  
-*And they busted me for disturbing the almighty peace*  
-*Judge said “What you got in your defense son?”*  
-*I shouted “Fifty-seven channels*  
-*There was fifty-seven channels*  
+*Well I bought a .44 magnum, it was solid steel cast*
+*In the blessed name of Elvis well I let it blast*
+*‘Til my TV was in pieces there at my feet*
+*And they busted me for disturbing the almighty peace*
+*Judge said “What you got in your defense son?”*
+*I shouted “Fifty-seven channels*
+*There was fifty-seven channels*
 *There’s fifty-seven channels and nothing on”*
 
 The final lines of the song reveal one last joke: does John obliterate his television because it ended his relationship? Or is it simply frustration at not finding anything worthwhile to watch? The song ends unresolved, leaving us to decide for ourselves, with a few dark lines that suggest John may be heading down a path of darkness.
 
-*Whoa I keep switching*  
-*My mind’s twitching*  
+*Whoa I keep switching*
+*My mind’s twitching*
 *My finger trigger’s itching*
 
 (yeah, Bruce screwed that line up–he was clearly nervous all night long, but he trips over his lyrics several times on this song.)
 
-*I can see by your eyes friend you’re just about gone*  
+*I can see by your eyes friend you’re just about gone*
 *You’re fifty-seven channels and nothing on*
 
 It’s those final lines that point the way to the version that ended up on a year and a half later. Bruce actually recorded “57 Channels” in the studio just a few weeks after those Christic shows, but in those intervening weeks he completely recast the song into an ominous-sounding bass-driven arrangement, with Roy Bittan’s spectral keyboards providing an eerie, alien sonic landscape.

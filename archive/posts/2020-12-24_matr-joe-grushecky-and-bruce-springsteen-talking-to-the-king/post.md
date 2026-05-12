@@ -24,13 +24,13 @@ Of course, they jam.
 
 But the silly set-up is just that: a set-up for a surprisingly sweet second half. Elvis warns Joe to be careful what he wishes for–success doesn’t necessarily bring happiness, and it almost certainly brings its own problems.
 
-*You better be careful or you’ll lose everything*  
-*It ain’t no fun being a king*  
-*You make me mad when you start to complain*  
-*You should be glad nobody who knows your name*  
-*You got two lovely kids and a wife at home*  
-*And I died alone on my throne*  
-*Sometimes I think I sold my soul*  
+*You better be careful or you’ll lose everything*
+*It ain’t no fun being a king*
+*You make me mad when you start to complain*
+*You should be glad nobody who knows your name*
+*You got two lovely kids and a wife at home*
+*And I died alone on my throne*
+*Sometimes I think I sold my soul*
 *To become the king of rock and roll*
 
 At its big heart, “Talking to the King” is a song of acceptance and appreciation of a good life, with only a good-natured nod to what might have been.

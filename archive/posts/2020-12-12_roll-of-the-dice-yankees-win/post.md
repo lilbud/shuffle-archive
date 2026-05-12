@@ -24,16 +24,16 @@ In the clip above, presumably after setting expectations with a few verses that 
 
 
 
-*It’s the end of the last tour, E Street Band looking for a place to play*  
-*We went to Yankee Stadium, but the boss man turned us away*  
-*We went up north to Fenway and those kind folks let us in*  
+*It’s the end of the last tour, E Street Band looking for a place to play*
+*We went to Yankee Stadium, but the boss man turned us away*
+*We went up north to Fenway and those kind folks let us in*
 *Oh, lord, Yankees lose*
 
 But in the end, everyone knew that Bruce would bring it back around to acknowledge Torre’s contributions to baseball and to his community.
 
-*Well, Joe, we wish you plenty of luck and good fortune, and*  
-*We don’t know when we’ll be seeing the likes of you again*  
-*You could teach a master class in class, and so, my good friend*  
+*Well, Joe, we wish you plenty of luck and good fortune, and*
+*We don’t know when we’ll be seeing the likes of you again*
+*You could teach a master class in class, and so, my good friend*
 *Thanks for all those thrills and chills and all those Yankee wins*
 
 It was a touching way for Bruce to honor the man who’d brought him (and so many other Yankees fans) joy and pride.
@@ -41,9 +41,9 @@ It was a touching way for Bruce to honor the man who’d brought him (and so man
 November 7, 2007
 November 7, 2007
 
-**Yankees Win**  
-**Never recorded**  
-**Never released**  
+**Yankees Win**
+**Never recorded**
+**Never released**
 **First performed:**<br>
 **Last performed:**<br>
 

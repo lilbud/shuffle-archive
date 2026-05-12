@@ -32,11 +32,11 @@ All of this informed “Adam Raised a Cain,” the first in a years-long series 
 
 When Bruce recorded “Adam Raised a Cain,” he was a month or two shy of his 28th birthday and still very close to the situation he’d written about. On its surface, “Adam Raised a Cain” reads like recognition and rebellion: Bruce spends the first verse establishing the bond between son and father, employing Biblical imagery to imply a timeless generational cycle that’s impossible to break.
 
-*In the summer that I was baptized, my father held me to his side*  
-*As they put me to the water, he said how on that day I cried*  
-*We were prisoners of love, a love in chains*  
-*He was standing in the door, I was standing in the rain*  
-*With the same hot blood burning in our veins*  
+*In the summer that I was baptized, my father held me to his side*
+*As they put me to the water, he said how on that day I cried*
+*We were prisoners of love, a love in chains*
+*He was standing in the door, I was standing in the rain*
+*With the same hot blood burning in our veins*
 *Adam raised a Cain*
 
 There’s a closeness and an intimacy suggested in the first three lines, offset by distance and alienation in the final three. Through it all, our narrator rages–from his moment of baptism to his exile in the elements while his father looks on from warm safety.
@@ -45,11 +45,11 @@ Bruce is subtly illustrating his narrator’s desire for his father’s acceptan
 
 In the second verse, we gain more insight into our narrator’s state of mind.
 
-*All of the old faces ask you why you’re back*  
-*They fit you with position and the keys to your daddy’s Cadillac*  
-*In the darkness of your room your mother calls you by your true name*  
-*You remember the faces, the places, the names*  
-*You know it’s never over, it’s relentless as the rain*  
+*All of the old faces ask you why you’re back*
+*They fit you with position and the keys to your daddy’s Cadillac*
+*In the darkness of your room your mother calls you by your true name*
+*You remember the faces, the places, the names*
+*You know it’s never over, it’s relentless as the rain*
 *Adam raised a Cain*
 
 Although Bruce wouldn’t release the song until his next album, our narrator had already had his “[Independence Day.](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” He’d left home to make his way in the world, only to return home (presumably in failure) and take up the life and the work of his father, a life he’d desperately tried to avoid. “Adam Raised a Cain” works as a direct sequel to “Independence Day” and our appreciation of one is heightened by an understanding of the other. (In fact, “Independence Day” was actually written and recorded *before* “Adam Raised a Cain,” and had he included both on *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/),* each would likely have offset the emotional impact of the other.)
@@ -60,8 +60,8 @@ To know and to speak someone’s true name gives the speaker power over its owne
 
 To figure out someone’s true name, you must completely understand them. With this one line, Bruce reveals that his mother sees him and groks him–perhaps even beyond his own self-awareness–and as such exercises a power over him, suggesting that as much as “Adam Raised a Cain” is about a father/son relationship, our narrator’s return may be in large part due to his mother’s off-screen influence. In fact, in an early outtake of the song from late 1977, Bruce sings an altered version of this verse which shines a little more light on his mother’s insight:
 
-*Well in the darkness of your own room your mother calls you by your true name*  
-*She knows you didn’t come back to join their little game*  
+*Well in the darkness of your own room your mother calls you by your true name*
+*She knows you didn’t come back to join their little game*
 *You remember the faces, you remember the names*
 
 [https://estreetshuffle.com/wp-content/uploads/2022/05/Bruce-Springsteen-02-Adam-Raised-A-Cain.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/05/Bruce-Springsteen-02-Adam-Raised-A-Cain.mp3?_=7)
@@ -72,14 +72,14 @@ The irony of “Adam Raised a Cain” comes in the third verse, in which our nar
 
 But of course, blaming others for his own situation is exactly what our narrator is doing in this verse as well.
 
-*In the Bible, mamma, Cain slew Abel and east of Eden, mamma, he was cast*  
-*You’re born into this life paying for the sins of somebody else’s past*  
-*Well Daddy worked his whole life for nothing but the pain*  
-*Now he walks these empty rooms looking for something to blame*  
-*But you inherit the sins, you inherit the flames*  
+*In the Bible, mamma, Cain slew Abel and east of Eden, mamma, he was cast*
+*You’re born into this life paying for the sins of somebody else’s past*
+*Well Daddy worked his whole life for nothing but the pain*
+*Now he walks these empty rooms looking for something to blame*
+*But you inherit the sins, you inherit the flames*
 *Adam raised a Cain*
 
-*Lost but not forgotten from the dark heart of a dream*  
+*Lost but not forgotten from the dark heart of a dream*
 *Adam raised a Cain*
 
 From a traditional biblical point of view, this verse is the most problematic to analyze, because it suggests that our narrator is guilty of a mortal sin and exiled accordingly. Our narrator isn’t comparing himself to Cain in deed, however–instead, he’s empathizing with Cain’s exile and estrangement from his family.

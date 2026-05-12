@@ -20,7 +20,7 @@ Bruce’s live arrangement starts slowly. Accompanied only by his acoustic guita
 
 “Shenandoah” works best in its original incarnation, Bruce seemed to realize, and it’s likely that’s the only way we’ll hear it performed from now on–as a proud entry in the deep canon of covers of this American folk classic.
 
-**Shenandoah**  
+**Shenandoah**
 **Recorded:** March 19, 2005<br>
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
 **First performed:** November 18, 2006 (Dublin, Ireland)<br>

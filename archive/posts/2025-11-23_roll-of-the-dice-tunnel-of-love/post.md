@@ -41,23 +41,23 @@ He certainly does so. The introduction to “Tunnel of Love” is a twenty-secon
 
 Which is exactly what our narrator is experiencing as the lyrics begin. In Bruce’s first verse, all is… well, not exactly innocent, but at least simple.
 
-*Fat man sitting on a little stool*  
-*Takes the money from my hand while his eyes take a walk all over you*  
-*Hands me two tickets, smiles and whispers good luck*  
-*Well cuddle up angel, cuddle up my little dove*  
+*Fat man sitting on a little stool*
+*Takes the money from my hand while his eyes take a walk all over you*
+*Hands me two tickets, smiles and whispers good luck*
+*Well cuddle up angel, cuddle up my little dove*
 *We’ll ride down baby into this tunnel of love*
 
 It’s the early days of our narrator’s relationship, all new and exciting. The ride attendant takes his money (and his girl’s measure, in a cleverly constructed line), wishes him luck and sends the lovers on their way.
 
 In the second verse, things get physical as our riders find themselves alone in the dark.
 
-*Well I can feel the soft silk of your blouse*  
+*Well I can feel the soft silk of your blouse*
 *And them soft thrills in our little fun house*
 
 But those early days of physical connection quickly give way to emotional intimacy, and that’s when things get scary.
 
-*Then the lights go out and it’s just the three of us*  
-*Yeah, you me and all that stuff we’re so scared of*  
+*Then the lights go out and it’s just the three of us*
+*Yeah, you me and all that stuff we’re so scared of*
 *Gotta ride down baby into this tunnel of love*
 
 For all of Bruce’s celebrated lyrics, I’d argue that those lines above deserve to rank among them. It’s the most perceptive line in the song (and the second most on the album, behind the closing lines of “Brilliant Disguise”), and with their arrival we finally hear Bruce acknowledge in his writing the fear of intimacy that he would so eloquently describe in his autobiography decades later.
@@ -66,19 +66,19 @@ It’s a fantastic line, and I bet Bruce thinks so too, because if you watch the
 
 In the second half of “Tunnel of Love,” Bruce explores the rest of the carnival, putting the other attractions to brilliant metaphorical use: the funhouse mirrors that distort our images of each other like our own emotional lenses do; the room of shadows that so easily hides parts of us where our partners can’t see; the haunted house that draws our characters together to face their fright as a pair.
 
-*There’s a crazy mirror showing us both in 5-D*  
-*I’m laughing at you, you’re laughing at me*  
-*There’s a room of shadows that gets so dark brother*  
+*There’s a crazy mirror showing us both in 5-D*
+*I’m laughing at you, you’re laughing at me*
+*There’s a room of shadows that gets so dark brother*
 *It’s easy for two people to lose each other in this tunnel of love*
 
 That second line–“I’m laughing at you, you’re laughing at me”–has always tugged at me. Are Bruce’s characters laughing in amusement or in scorn? The line works either way, and I suspect Bruce knew it when he wrote it.
 
 And then there’s that break: enter Patti Scialfa–literally. She makes her first off-screen and on-screen appearance in a Springsteen video at this moment (she doesn’t perform on “Brilliant Disguise” which preceded “Tunnel of Love” as the album’s first single), walking out of the shadows and into Bruce’s life, her passionately wordless vocals underscoring Bruce’s final, hopeful verse:
 
-*Well, it ought to be easy, it ought to be simple enough*  
-*Yeah, man meets woman and they fall in love*  
-*But this house is haunted and the ride gets rough*  
-*You’ve got to learn to live with what you can’t rise above*  
+*Well, it ought to be easy, it ought to be simple enough*
+*Yeah, man meets woman and they fall in love*
+*But this house is haunted and the ride gets rough*
+*You’ve got to learn to live with what you can’t rise above*
 *If you want to ride on down, down through this tunnel of love*
 
 It feels disrespectful to say this given how incredible Patti’s own three albums are, but her backing vocals here are among her best performances on record, just spectacular. And *come on*: could you ask for a more dramatic introduction?

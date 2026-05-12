@@ -16,15 +16,15 @@ It’s also more than a little unjustly ironic, because it’s Joe’s first tra
 
 
 
-*Don’t ever lose your faith in me*  
-*Because I will never let you down*  
-*If I have to work seven days a week*  
+*Don’t ever lose your faith in me*
+*Because I will never let you down*
+*If I have to work seven days a week*
 *And drive myself into the ground*
 
 
 
-*I will always take good care of you*  
-*No matter what I’ll be there*  
+*I will always take good care of you*
+*No matter what I’ll be there*
 *I’ll be there for you and I know that*
 
 “Everything’s Going to Work Out Right” is a song that’s rooted in the personal but resonates universally. There are times when we all need a song like that, especially during a global pandemic–which is why Joe broke it out last summer for his contribution to Feeding America’s Rock for Relief benefit.

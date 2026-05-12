@@ -13,7 +13,7 @@ This was the only time Bruce is known to have performed “Photograph.” Two mo
 August 11, 1989 (Holmdel, NJ)
 August 11, 1989 (Holmdel, NJ)
 
-**Photograph**  
+**Photograph**
 **First performed:**<br>
 **Last performed:**<br>
 

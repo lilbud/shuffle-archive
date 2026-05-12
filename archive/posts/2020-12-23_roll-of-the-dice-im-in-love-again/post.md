@@ -32,28 +32,28 @@ Which brings us to the second thing we notice: Bruce is obviously paying tribute
 
 
 
-*I met him at a party on a lonely Saturday*  
-*I listened to him talking and I liked the things he had to say*  
-*He invited me up to see him, and I knew right from the start*  
-*No use trying to fool myself, I’m in love again, I’m in love again*  
-*No use being cruel to myself, its a hard enough world*  
-*And I ain’t no schoolgirl, I know it’s a sin*  
+*I met him at a party on a lonely Saturday*
+*I listened to him talking and I liked the things he had to say*
+*He invited me up to see him, and I knew right from the start*
+*No use trying to fool myself, I’m in love again, I’m in love again*
+*No use being cruel to myself, its a hard enough world*
+*And I ain’t no schoolgirl, I know it’s a sin*
 *Cause I’m in love again*
 
 
 
-*His name is Joe and he talks real low, and he dance so good*  
-*He looks so fine and I know he’s mine like I knew he would*  
-*He smiles so sweet when he holds my hand, he’s my man*  
-*No use trying to fool myself, I’m in love again, I’m in love again*  
-*No use being cruel to myself, its a hard enough world*  
-*And I ain’t no schoolgirl, I know it’s a sin*  
+*His name is Joe and he talks real low, and he dance so good*
+*He looks so fine and I know he’s mine like I knew he would*
+*He smiles so sweet when he holds my hand, he’s my man*
+*No use trying to fool myself, I’m in love again, I’m in love again*
+*No use being cruel to myself, its a hard enough world*
+*And I ain’t no schoolgirl, I know it’s a sin*
 *Cause I’m in love again*
 
 
 
-*He sees me each and every day, and loves me each and every night*  
-*When we go out to a show, he puts his arm around me and holds me real tight*  
+*He sees me each and every day, and loves me each and every night*
+*When we go out to a show, he puts his arm around me and holds me real tight*
 *And lets me know everything’s alright, everything’s alright, everything’s alright*
 
 And finally, thing we notice #3: Bruce is absolutely smoking on guitar.

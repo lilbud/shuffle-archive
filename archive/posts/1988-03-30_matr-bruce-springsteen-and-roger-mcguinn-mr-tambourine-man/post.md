@@ -18,7 +18,7 @@ That’s because the “Mr. Tambourine Man” was more than twice as long when B
 
 It was the abridged Byrds’ version that became a smash hit, though. In a way, Bruce was covering both Dylan and The Byrds that night, using Dylan’s original lyrics and The Byrds’ arrangement for a one-time-only special performance.
 
-**Mr. Tambourine Man**  
+**Mr. Tambourine Man**
 **First performed:** October 29, 1990 (Encino, CA)<br>
 **Last performed:** April 23, 2008 (Orlando, FL)<br>
 

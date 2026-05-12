@@ -48,29 +48,29 @@ Anyway, I digress. It was the “Held Up” version of “You Can Look” that w
 
 [Watch on Youtube: You Can Look (But You Better Not Touch)](https://www.youtube.com/watch?v=2QFJkYm-kYk)
 
-*Yesterday I went shopping, buddy, down to the mall*  
-*Looking for something pretty I could hang on my wall*  
-*I knocked over a lamp, before it hit the floor I caught it*  
+*Yesterday I went shopping, buddy, down to the mall*
+*Looking for something pretty I could hang on my wall*
+*I knocked over a lamp, before it hit the floor I caught it*
 *A salesman turned around, said, “Boy, you break that thing you bought it”*
 
-*You can look but you better not touch, boy*  
-*You can look but you better not touch*  
-*Mess around and you’ll end up in dutch, boy*  
+*You can look but you better not touch, boy*
+*You can look but you better not touch*
+*Mess around and you’ll end up in dutch, boy*
 *You can look but you better not, no you better not, no you better not touch*
 
-*Well I came home from work and I switched on Channel 5*  
-*There was a pretty little girly looking straight into my eyes*  
-*Well I watched as she wiggled back and forth across the screen*  
+*Well I came home from work and I switched on Channel 5*
+*There was a pretty little girly looking straight into my eyes*
+*Well I watched as she wiggled back and forth across the screen*
 *She didn’t get me excited, she just made me feel mean*
 
-*Well I called up Dirty Annie on the telephone*  
-*I took her out to the drive-in just to get her alone*  
-*I found a lover’s rendezvous, the music low, set to park*  
+*Well I called up Dirty Annie on the telephone*
+*I took her out to the drive-in just to get her alone*
+*I found a lover’s rendezvous, the music low, set to park*
 *I heard a tapping on the window and a voice in the dark*
 
-*You can look but you better not touch, boy*  
-*You can look, better not touch*  
-*Mess around and you’ll end up in dutch, boy*  
+*You can look but you better not touch, boy*
+*You can look, better not touch*
+*Mess around and you’ll end up in dutch, boy*
 *You can look but you better not, no you better not…*
 
 I’ve always felt the album version moves at too breakneck a pace. “You Can Look” is a clever song, but the verses fly by so quickly that it’s comedic potential (especially in the Dirty Annie verse) is never fully realized.

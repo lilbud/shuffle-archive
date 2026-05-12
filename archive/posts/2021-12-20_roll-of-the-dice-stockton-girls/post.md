@@ -14,32 +14,32 @@ The song construction of “Stockton Boys” and “Stockton Girls” is similar
 
 But while the boys aren’t particularly interested in romance (they’re too busy acting tough, making noise), the girls are looking for some dance partners:
 
-*Soon as Friday night comes around, 8 o’clock they roll into town*  
-*Looking for a few good thrills with a paycheck to kill*  
-*Her hands hurt ???*  
-*Baby wants to go out, baby wants to dance*  
-*Baby wants to find a little romance*  
-*To take her away*  
-*Oh Stockton girls, they got no diamonds or pearls*  
-*Running down from the factories*  
-*Oh Stockton girls, diamonds and pearls*  
+*Soon as Friday night comes around, 8 o’clock they roll into town*
+*Looking for a few good thrills with a paycheck to kill*
+*Her hands hurt ???*
+*Baby wants to go out, baby wants to dance*
+*Baby wants to find a little romance*
+*To take her away*
+*Oh Stockton girls, they got no diamonds or pearls*
+*Running down from the factories*
+*Oh Stockton girls, diamonds and pearls*
 *I love those Stockton girls*
 
 Stockton is clearly a blue-collar town. The girls work in the factories, the boys in the mills. Neither have anything to show for it besides the paychecks burning a hole in their pockets.
 
 Even the second verses are parallel, with the Stockton Boys leaving their wives and kids at home while the Girls ditch their kids and fathers for the night:
 
-*Susie worked down at the ???*  
-*She got a kid and an old man*  
-*That she takes care of ???*  
-*They come down when the day is done*  
-*And baby wants to rock, baby wants to roll*  
-*Baby wants to find, but it’s too cold*  
-*Stockton girls, ain’t got no diamonds or pearls*  
-*They come running down from the mill*  
-*Oh Stockton girls*  
-*Stockton girls, they got no diamonds or pearls*  
-*They come running down from the factory*  
+*Susie worked down at the ???*
+*She got a kid and an old man*
+*That she takes care of ???*
+*They come down when the day is done*
+*And baby wants to rock, baby wants to roll*
+*Baby wants to find, but it’s too cold*
+*Stockton girls, ain’t got no diamonds or pearls*
+*They come running down from the mill*
+*Oh Stockton girls*
+*Stockton girls, they got no diamonds or pearls*
+*They come running down from the factory*
 *I love those Stockton girls*
 
 Bruce never finished either song (that we know of), although he would develop a similar theme in “Out on the Street” and repurpose a couple of “Stockton Boys” lyrics for “[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/).”
@@ -48,7 +48,7 @@ In the end, both “Stockton Boys” and “Stockton Girls” are curiosities, s
 
 **Stockton Girls  
 **Recorded:** Autumn 1979 (home demo only)<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

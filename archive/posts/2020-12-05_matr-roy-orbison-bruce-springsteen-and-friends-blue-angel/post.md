@@ -23,6 +23,6 @@ Check out more Orbison/Springsteen highlights from .
 September 30, 1987 (Los Angeles, CA)
 September 30, 1987 (Los Angeles, CA)
 
-**Blue Angel**  
+**Blue Angel**
 **First performed:**<br>
 **Last performed:**<br>

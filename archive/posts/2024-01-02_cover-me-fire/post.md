@@ -21,6 +21,6 @@ As for the Hendrix original, the funk and soul song was released on in 1967, but
 September 16, 1967 (Freehold, NJ)
 September 16, 1967 (Freehold, NJ)
 
-**Fire**  
+**Fire**
 **First performed:**<br>
 **Last performed:**<br>

@@ -24,7 +24,7 @@ Free Redemption’s version of “I’m Goin’ Down” is easily my favorite of
 
 lead vocal, harmonica, guitar guitar, backing vocals bass, backing vocalsdrums, backing vocals
 
-**Nico Mirandola,**   
-**Ivan Sacchi,**  
-**Michele Leoni,**  
+**Nico Mirandola,**
+**Ivan Sacchi,**
+**Michele Leoni,**
 **Gianluca Garavaso,**

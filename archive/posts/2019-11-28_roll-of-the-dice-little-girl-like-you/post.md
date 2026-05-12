@@ -24,47 +24,47 @@ Putting this song on might have been like throwing a match in the proverbial pow
 
 Check out the lyrics:
 
-*I want a little house, on a little hill*  
-*I wanna settle down, yeah, I think I will*  
-*Settle down and find a little love that’s true*  
+*I want a little house, on a little hill*
+*I wanna settle down, yeah, I think I will*
+*Settle down and find a little love that’s true*
 *Settle down with a girl like you*
 
 
 
-*Seen a lot of girls*  
-*Had a lot of fun*  
-*Ran around a lot*  
-*Now my runnin’s done*  
-*Honey, all I wanna, w**anna be runnin’ to*  
+*Seen a lot of girls*
+*Had a lot of fun*
+*Ran around a lot*
+*Now my runnin’s done*
+*Honey, all I wanna, w**anna be runnin’ to*
 *Is the arms of a girl like you*
 
 
 
-*You start livin’ life*  
-*Like you just don’t care*  
-*You done everything*  
-*You been everywhere*  
-*But what I done ain’t nothin’ t**o what I wanna do*  
+*You start livin’ life*
+*Like you just don’t care*
+*You done everything*
+*You been everywhere*
+*But what I done ain’t nothin’ t**o what I wanna do*
 *When I find a little girl like you*
 
 
 
-*We’ll get married*  
-*In a church down a Wynan Bay*  
-*Tell a lotta jokes*  
-*Have a lotta laughs*  
-*Do whatever it is that we wannna do*  
+*We’ll get married*
+*In a church down a Wynan Bay*
+*Tell a lotta jokes*
+*Have a lotta laughs*
+*Do whatever it is that we wannna do*
 *Long as I do it with a girl like you*
 
 
 
-*Hey little stranger*  
-*Walkin’ down the street*  
-*You’re the only one*  
-*You make my life complete*  
-*I got a plan but i**t’s one made for two*  
-*So I need a little girl like you*  
-*Yeah, hey, I need a little girl like you*  
+*Hey little stranger*
+*Walkin’ down the street*
+*You’re the only one*
+*You make my life complete*
+*I got a plan but i**t’s one made for two*
+*So I need a little girl like you*
+*Yeah, hey, I need a little girl like you*
 *Oh Honey, I need a little girl like you.*
 
 It’s not just the repeated “little girl” phrasing that’s problematic–it’s the context of a song about a guy who seems more interested in having someone you rather than you in particular. You could argue that it’s just creative license, and this one I’d ordinarily grant–except that it’s clear in the last verse that he’s addressing a stranger, and in the earlier verses it’s clear that he’s got quite the hookup history and has his mind set on another.
@@ -75,9 +75,9 @@ To a pair of 2018 ears, it’s a little creepy.
 
 So, yeah: probably for the best that Bruce discarded this one. He’s never performed it live, and I doubt he ever will.
 
-**Little Girl (Like You)**  
+**Little Girl (Like You)**
 **Recorded:** January 20, 1983<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

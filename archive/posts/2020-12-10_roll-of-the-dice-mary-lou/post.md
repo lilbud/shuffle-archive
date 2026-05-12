@@ -71,7 +71,7 @@ As for “Mary Lou,” she would see the light of day on , almost two decades af
 May 30, 1979
 (1998), (2015)
 
-**Mary Lou**   
+**Mary Lou**
 **Recorded:** <br>
 **Released:***Tracks**The River: Outtakes*<br>
 **Never performed**

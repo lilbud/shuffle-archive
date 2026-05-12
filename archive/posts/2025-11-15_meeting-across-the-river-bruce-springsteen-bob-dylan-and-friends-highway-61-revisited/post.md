@@ -37,7 +37,7 @@ Just saying.
 November 16, 1990 (Los Angeles, CA)
 October 4, 2003 (New York City, NY)
 
-**Highway 61 Revisited**   
+**Highway 61 Revisited**
 **First performed:** <br>
 **Last performed:**<br>
 

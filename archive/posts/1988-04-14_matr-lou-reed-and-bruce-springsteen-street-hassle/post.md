@@ -1,4 +1,4 @@
-On Memorial Day weekend in 1977, Bruce Springsteen finally settled his long-running legal dispute with Mike Appel that had prevented him from recording a follow up to his 1975 album *Born to Run.* 
+On Memorial Day weekend in 1977, Bruce Springsteen finally settled his long-running legal dispute with Mike Appel that had prevented him from recording a follow up to his 1975 album *Born to Run.*
 
 Road-weary (the band had been on the road for almost two solid years) and with a solid stash of new material, it only took four days for Bruce to return to the studio and begin recording *Darkness on the Edge of Town.*
 

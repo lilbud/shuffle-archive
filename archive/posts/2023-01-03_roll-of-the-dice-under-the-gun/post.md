@@ -44,7 +44,7 @@ That makes it a great candidate for *Tracks 2,* so let’s keep our fingers cros
 
 **Under the Gun  
 **Recorded:** June 14, 1979<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

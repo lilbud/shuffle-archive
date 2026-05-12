@@ -40,13 +40,13 @@ Lyric videos had come into fashion in the years between *Working on a Dream* and
 
 With his lyrics now visually front and center for the first time, Bruce compelled his audience to reckon with his message while they rocked to his music.
 
-*I been knocking on the door that holds the throne*  
-*I been looking for the map that leads me home*  
-*I been stumbling on good hearts turned to stone*  
-*The road of good intentions has gone dry as a bone*  
-*We take care of our own*  
-*We take care of our own*  
-*Wherever this flag’s flown*  
+*I been knocking on the door that holds the throne*
+*I been looking for the map that leads me home*
+*I been stumbling on good hearts turned to stone*
+*The road of good intentions has gone dry as a bone*
+*We take care of our own*
+*We take care of our own*
+*Wherever this flag’s flown*
 *We take care of our own*
 
 There’s nuance in that first verse that might be masked in a first listen: Bruce isn’t condemning his countrymen–he acknowledges that Americans have good hearts and good intentions. *Why aren’t we living up to our ideals*, he asks.
@@ -55,13 +55,13 @@ He speaks truth to power, but power won’t answer the door. In a callback to �
 
 More than anything else, “We Take Care of Our Own” is a song of bewildered frustration: why are our values so disconnected from our actions? The chorus isn’t a statement of who we are but rather an incessant reminder of who we’re supposed to be.
 
-*From Chicago to New Orleans, from the muscle to the bone*  
-*From the shotgun shack to the Superdome*  
-*There ain’t no help, the cavalry stayed home*  
-*There ain’t no one hearing the bugle blowin’*  
-*We take care of our own*  
-*We take care of our own*  
-*Wherever this flag’s flown*  
+*From Chicago to New Orleans, from the muscle to the bone*
+*From the shotgun shack to the Superdome*
+*There ain’t no help, the cavalry stayed home*
+*There ain’t no one hearing the bugle blowin’*
+*We take care of our own*
+*We take care of our own*
+*Wherever this flag’s flown*
 *We take care of our own*
 
 The second verse is the only part of the song that sounds dated. “We Take Care of Our Own” is the oldest song on the album, written circa 2009, only four years after Hurricane Katrina and three years after Bruce emotionally bonded with the city of New Orleans during his memorable Jazz Fest appearance.
@@ -70,14 +70,14 @@ The failure of the United States government to respond to its citizens in their 
 
 But it’s the pleading bridge and final chorus that contain the beating heart of “We Take Care of Our Own.”
 
-*Where’re the eyes, the eyes with the will to see*  
-*Where’re the hearts that run over with mercy*  
-*Where’s the love that has not forsaken me*  
-*Where’s the work that set my hands, my soul free*  
-*Where’s the spirit that’ll reign over me*  
+*Where’re the eyes, the eyes with the will to see*
+*Where’re the hearts that run over with mercy*
+*Where’s the love that has not forsaken me*
+*Where’s the work that set my hands, my soul free*
+*Where’s the spirit that’ll reign over me*
 *Where’s the promise from sea to the shining sea:*
 
-*Wherever this flag is flown*  
+*Wherever this flag is flown*
 *We take care of our own*
 
 Bruce asks: who among us is willing to acknowledge our societal inequality? Who among us will do something about it?

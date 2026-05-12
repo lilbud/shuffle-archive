@@ -18,7 +18,7 @@ Here’s the official studio track, with Bruce on guitar and keyboards:
 
 [https://www.youtube.com/embed/NdnIETu9IaE?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/NdnIETu9IaE?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**Rose**  
+**Rose**
 **First performed:** December 17, 2000 (Asbury Park, NJ)<br>
 **Last performed:** December 18, 2000 (Asbury Park, NJ)<br>
 

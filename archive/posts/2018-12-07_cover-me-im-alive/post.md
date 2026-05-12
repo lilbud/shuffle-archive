@@ -14,5 +14,5 @@ The original 1965 recording by The Hollies was a the band’s first Number One h
 
 (but soundchecked in Passaic, September 20, 1978)
 
-**I’m Alive**  
+**I’m Alive**
 **Never officially performed**

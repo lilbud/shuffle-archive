@@ -16,26 +16,26 @@ The result was the second track on Burgess’ 1996 self-titled release.
 
 The lyrics are clever and straightforward. “Tiger Rose” opens as a simple love song, with a devoted narrator professing his eternal love:
 
-*Tiger Rose let me read some prose to you*  
-*Just as long as it shows my love any verse will do*  
-*Honey, I could make you happy if you’d only let me, heaven knows*  
+*Tiger Rose let me read some prose to you*
+*Just as long as it shows my love any verse will do*
+*Honey, I could make you happy if you’d only let me, heaven knows*
 *My, my Tiger Rose*
 
 …but there’s a heck of a curve ball in the second verse:
 
-*I went to work this morning on the local commuter train*  
-*Stopped back early and I peeked through the window pane*  
-*There was a man eating from my refrigerator dressed up in my clothes*  
+*I went to work this morning on the local commuter train*
+*Stopped back early and I peeked through the window pane*
+*There was a man eating from my refrigerator dressed up in my clothes*
 *Why, why Tiger Rose?*
 
 The song heads down a darker path now, but Bruce keeps it more funny than sad:
 
-*Called out your name and I kicked down the front door*  
-*I grabbed him by my robe and I rassled him across the floor*  
-*I told him “you ain’t any better than all those other so-and-sos”*  
-*He said I wasn’t any different than a thousand other Joe Blows*  
-*Love disappears so quickly, when it goes it goes*  
-*Why, why Tiger Rose?*  
+*Called out your name and I kicked down the front door*
+*I grabbed him by my robe and I rassled him across the floor*
+*I told him “you ain’t any better than all those other so-and-sos”*
+*He said I wasn’t any different than a thousand other Joe Blows*
+*Love disappears so quickly, when it goes it goes*
+*Why, why Tiger Rose?*
 *Bye Bye, Tiger Rose*
 
 It’s a fun song, but hardly essential listening. But the imagery of the protagonist wrestling his rival (wearing his own robe), the late-breaking revelation that he’s not the first gentleman she’s betrayed him for, and the clever rhyme in the final lines of the verses elevates the song from otherwise-forgettable status to a fun trifle–one we might hope to yet see Bruce perform on stage someday.

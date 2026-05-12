@@ -47,6 +47,6 @@ I bring that last one up because the one other time that Bruce performed “Ring
 March 13, 1973 (Boston, MA)
 September 30, 2018 (Asbury Park, NJ)
 
-**Ring of Fire**  
+**Ring of Fire**
 **First performed:**<br>
 **Last performed:**<br>

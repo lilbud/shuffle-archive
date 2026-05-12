@@ -10,37 +10,37 @@ In Bruce’s typical “I had a job, I had a girl” fashion (in fact, the first
 
 
 
-*I had a wife, I had a child*  
-*I had a home up on a hill*  
-*Had a good life for seven years*  
+*I had a wife, I had a child*
+*I had a home up on a hill*
+*Had a good life for seven years*
 *Now all I’ve got is seven tears*
 
 
 
-*Went down to see my gypsy man*  
-*He said, “Now son, I understand”*  
-*When I said, “I want one for every year”*  
+*Went down to see my gypsy man*
+*He said, “Now son, I understand”*
+*When I said, “I want one for every year”*
 *He tattooed on my face, these seven tears*
 
 
 
-*Oh, seven tears, oh, seven tears*  
-*I want one for every happy year*  
-*My baby’s gone, she’s gone, gone, gone*  
+*Oh, seven tears, oh, seven tears*
+*I want one for every happy year*
+*My baby’s gone, she’s gone, gone, gone*
 *And I’ll cry forever, ever on*
 
 
 
-*When I walk out into the lights of town*  
-*People see me comin’ and they gather round*  
-*They wanna know how I ended up here*  
+*When I walk out into the lights of town*
+*People see me comin’ and they gather round*
+*They wanna know how I ended up here*
 *With this tattoo on my face of seven tears*
 
 
 
-*Oh, seven tears, oh, seven tears*  
-*I want one for every happy year*  
-*My baby’s gone, she’s gone, gone, gone*  
+*Oh, seven tears, oh, seven tears*
+*I want one for every happy year*
+*My baby’s gone, she’s gone, gone, gone*
 *And I’ll cry forever, ever on*
 
 By showing his sorrow on the outside, he prompts the people he encounters to ask him what’s behind it. And that’s precisely by design: our narrator’s punishment is his penitence. Unable to forgive himself or move on, he ensure that he’s forced to relive his love and retell his loss every day.
@@ -49,7 +49,7 @@ By showing his sorrow on the outside, he prompts the people he encounters to ask
 
 **Seven Tears**
 **Recorded:** February 15, 1983<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -29,6 +29,6 @@ But if you hoped to catch it on an actual tour, you’d have to wait all the way
 October 4, 1975 (Detroit, MI)
 July 16, 2013 (Limerick, Ireland)
 
-**Ain’t Too Proud to Beg**  
+**Ain’t Too Proud to Beg**
 **First performed:** <br>
 **Last performed:**<br>

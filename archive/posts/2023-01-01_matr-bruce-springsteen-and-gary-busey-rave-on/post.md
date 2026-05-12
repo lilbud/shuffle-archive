@@ -49,6 +49,6 @@ Holly’s version debuted only two months later, and his version would be the on
 July 7, 1978 (Los Angeles, CA)
 September 7, 1984 (Hartford, CT)
 
-**Rave On**  
+**Rave On**
 **First performed:**<br>
 **Last performed:**<br>

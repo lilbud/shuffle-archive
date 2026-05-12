@@ -6,14 +6,14 @@ In the early and mid-twentieth century, Sam Theard made a name and a living for 
 
 Theard’s songs tended toward the blue end of the spectrum. In 1936, for example, he wrote and recorded “New Rubbin’ on That Darn Old Thing” with Oscar’s Chicago Swinger, featuring lyrics like:
 
-*Now she said, “Poppa, don’t you rub so rough*  
-*When you hear me holler, then that’s enough*  
+*Now she said, “Poppa, don’t you rub so rough*
+*When you hear me holler, then that’s enough*
 *So I start rubbin’, rubbin’ on the darned old thing*
 
 
 
-*She said, “I sure likes the way you rub*  
-*You got the best washboard bin in my tub*  
+*She said, “I sure likes the way you rub*
+*You got the best washboard bin in my tub*
 *I start rubbin’, rubbin’ on the darned old thing*
 
 [https://www.youtube.com/embed/EWOaEvjx8q8?feature=oembed](https://www.youtube.com/embed/EWOaEvjx8q8?feature=oembed)
@@ -21,25 +21,25 @@ Theard’s songs tended toward the blue end of the spectrum. In 1936, for exampl
 And in 1947, Theard co-wrote “Hard Ridin’ Mama” for Wynonie Harris with such memorable lines as:
 
 **She don’t use no saddle and she don’t need no guiding lines**
-She’s a rough riding mama and she treats my pony fine*  
+She’s a rough riding mama and she treats my pony fine*
 
 
 
 
 **Can’t find nobody nowhere in this land**
-Who can ride my pony just like my baby can*  
+Who can ride my pony just like my baby can*
 
 
 [https://www.youtube.com/embed/L63Thx25dMQ?feature=oembed](https://www.youtube.com/embed/L63Thx25dMQ?feature=oembed)
 
 And in 1937, he recorded what indirectly became one of his most influential records, “Spo-Dee-O-Dee,” a song about the pleasures of… well let’s just say the title is a euphemism, and the song features lyrics like:
 
-*All you gotta do is beat it out*  
+*All you gotta do is beat it out*
 *Keep on jiving ’til you hear me shout*
 
 
 
-*Keep on diggin’ don’t you stop*  
+*Keep on diggin’ don’t you stop*
 *Get your kicks and blow your top*
 
 [https://www.youtube.com/embed/omdQLxf_J_s?feature=oembed](https://www.youtube.com/embed/omdQLxf_J_s?feature=oembed)
@@ -56,19 +56,19 @@ Granville Henry “Stick” McGhee was a jump blues guitarist from a musical fam
 
 Stick brought his guitar with him in the Army and frequently played to entertain himself and his fellow soldiers. On those occasions when alcohol flowed, so did drinking songs, and one of the soldiers’ drinking songs grabbed his attention in particular:
 
-*Drinkin’ that mess is our delight,*  
-*And when we get drunk, start fightin’ all night.*  
-*Knockin’ out windows and tearin’ down doors,*  
+*Drinkin’ that mess is our delight,*
+*And when we get drunk, start fightin’ all night.*
+*Knockin’ out windows and tearin’ down doors,*
 *Drinkin’ half-gallons and callin’ for more.*
 
 
 
-*Drinkin’ wine motherf***er, drinkin’ wine*  
-*Goddam!*  
-*Drinkin’ wine motherf***er, drinkin’ wine*  
-*Goddam!*  
-*Drinkin’ wine motherf***er, drinkin’ wine*  
-*Goddam!*  
+*Drinkin’ wine motherf***er, drinkin’ wine*
+*Goddam!*
+*Drinkin’ wine motherf***er, drinkin’ wine*
+*Goddam!*
+*Drinkin’ wine motherf***er, drinkin’ wine*
+*Goddam!*
 *Pass that bottle to me*
 
 McGhee was released from the army in 1946, and the following year he recorded and released his own version of his troop’s old drinking song. Obviously, he had to clean up the lyrics a bit, so he borrowed a euphemism from another song about a different adult pastime.

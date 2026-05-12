@@ -20,51 +20,51 @@ This Van Zandt-fronted bluffed rehearsal track from 1976 (under a slightly diffe
 
 The finished lyrics, on the other hand, are almost certainly Bruce’s. Even the title is about as Springsteenian as it gets.
 
-*After the music had stopped I still heard it playing*  
-*I moved a little closer to hear the words she was saying*  
-*She said, “I’d never break your heart, I’d never try to fake it*  
-*My love is here for you all you have to do is take it”*  
-*Kisses sweeter than wine*  
+*After the music had stopped I still heard it playing*
+*I moved a little closer to hear the words she was saying*
+*She said, “I’d never break your heart, I’d never try to fake it*
+*My love is here for you all you have to do is take it”*
+*Kisses sweeter than wine*
 *My little girl so fine*
 
 
 
-*The night seemed to say it was right but could I believe her?*  
-*My heart said it’s time to go but my eyes wouldn’t leave her*  
-*There’s always someone trying to break your heart, somebody trying to take it*  
-*My little girl tries so hard to help me make it*  
-*Kisses sweeter than wine*  
+*The night seemed to say it was right but could I believe her?*
+*My heart said it’s time to go but my eyes wouldn’t leave her*
+*There’s always someone trying to break your heart, somebody trying to take it*
+*My little girl tries so hard to help me make it*
+*Kisses sweeter than wine*
 *My little girl so fine*
 
 
 
-*Oh, oh, oh, oh, sha la la*  
-*Oh, oh, sha la la*  
+*Oh, oh, oh, oh, sha la la*
+*Oh, oh, sha la la*
 *So fine*
 
 
 
-*When we danced*  
-*I forgot everything and whispered*  
-*Hold me tight*  
-*Take a chance on what tomorrow brings*  
-*Won’t you be mine, be mine*  
-*Be mine tonight*  
-*We walked away laughing together into the night*  
+*When we danced*
+*I forgot everything and whispered*
+*Hold me tight*
+*Take a chance on what tomorrow brings*
+*Won’t you be mine, be mine*
+*Be mine tonight*
+*We walked away laughing together into the night*
 *Forever and ever and ever*
 
 
 
-*Now I know*  
-*I’ll never break my baby’s heart*  
-*I’ll never try to fake it*  
-*I’ll give her all my love, all she has to do is take it*  
-*Kisses sweeter than wine*  
-*My little girl so fine*  
-*Kisses sweeter than wine*  
-*My little girl so fine*  
-*Oh, oh, oh, oh*  
-*Kisses sweeter than wine*  
+*Now I know*
+*I’ll never break my baby’s heart*
+*I’ll never try to fake it*
+*I’ll give her all my love, all she has to do is take it*
+*Kisses sweeter than wine*
+*My little girl so fine*
+*Kisses sweeter than wine*
+*My little girl so fine*
+*Oh, oh, oh, oh*
+*Kisses sweeter than wine*
 *My little girl so fine*
 
 Content-wise, “Little Girl So Fine” is a sweet tribute to the classic crooner ballads of the 1950s. There may not be a lot of depth on display, but to search for it is to miss the point.
@@ -85,7 +85,7 @@ It was a highlight of Steve’s Summer of Sorcery tour to hear “Little Girl So
 
 [https://www.youtube.com/embed/l1IiErAx2P8?feature=oembed](https://www.youtube.com/embed/l1IiErAx2P8?feature=oembed)
 
-**Little Girl So Fine**  
+**Little Girl So Fine**
 **Recorded:** December 1976 or early 1977<br>
 **Released:** *This Time It’s For Real* (1977)<br>
 **Never performed live**

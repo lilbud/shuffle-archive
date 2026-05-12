@@ -26,47 +26,47 @@ The two songs are diametrically opposite: “Angelyne” is a fairy tale romance
 
 And yet, the two songs also bear some striking similarities. In fact, it’s almost like “Angelyne” and “The River” are mirror images from parallel universes. Maybe Bill and Angelyne didn’t meet in high school when they were just seventeen, but they’d still find themselves heading down to the river:
 
-*He was a bouncer in a joint called Tony’s Body Shop*  
-*She was a night cashier down at the Stop ‘n’ Shop*  
-*He was kinda good lookin’*  
-*And she was kinda fun*  
-*They met ‘neath that big oak tree*  
+*He was a bouncer in a joint called Tony’s Body Shop*
+*She was a night cashier down at the Stop ‘n’ Shop*
+*He was kinda good lookin’*
+*And she was kinda fun*
+*They met ‘neath that big oak tree*
 *Out where the river runs*
 
-*Little Angelyne, Little Angelyne*  
-*As the sun goes down and the moonlight shines*  
-*Back of a Greyhound bus sit two lovers entwined*  
+*Little Angelyne, Little Angelyne*
+*As the sun goes down and the moonlight shines*
+*Back of a Greyhound bus sit two lovers entwined*
 *Just Big Bill and Little Angelyne*
 
 And maybe the pregnancy didn’t come first, but Bill still finds himself prematurely proposing to Angelyne:
 
-*She was just in from Texas, didn’t know her way around*  
-*So he took her to a roadhouse on the edge of town*  
-*In the beer hall light she looked so fine*  
+*She was just in from Texas, didn’t know her way around*
+*So he took her to a roadhouse on the edge of town*
+*In the beer hall light she looked so fine*
 *And so he popped the question that was on his mind*
 
-*It was a simple affair, only a friend or two*  
-*Preacher asked if they did, they said they do*  
-*She bought two tickets with her daddy’s American Express*  
+*It was a simple affair, only a friend or two*
+*Preacher asked if they did, they said they do*
+*She bought two tickets with her daddy’s American Express*
 *And hopped a Greyhound bus in her wedding dress*
 
 They faced money troubles (self-created and otherwise), but nothing they couldn’t face together:
 
-*In a six dollar motel with the honey bun*  
-*With seven glorious days in the Nevada sun*  
-*He played the tables, she pumped the slots full of dimes*  
+*In a six dollar motel with the honey bun*
+*With seven glorious days in the Nevada sun*
+*He played the tables, she pumped the slots full of dimes*
 *They came back broke but they had a good time*
 
-*Now many fell apart in the years come and gone*  
-*But Big Bill and Little Angel they’d last on and on*  
-*They held together when the times grew thin*  
+*Now many fell apart in the years come and gone*
+*But Big Bill and Little Angel they’d last on and on*
+*They held together when the times grew thin*
 *A little boy that looked like her, and a girl that looked like him*
 
 Their youthful memories seem anything but a curse, because for Bill and Angelyne, their life was a dream that did come true. The song fades out with Bill and Angelyne literally riding off into the sunset:
 
-*So mister don’t you pay it no mind*  
-*If the sun goes down and the moonlight shines*  
-*Back of a Greyhound bus sit two lovers entwined*  
+*So mister don’t you pay it no mind*
+*If the sun goes down and the moonlight shines*
+*Back of a Greyhound bus sit two lovers entwined*
 *It’s Big Bill and Little Angelyne*
 
 But if “Angelyne” is the mirror image of “The River,” that doesn’t mean it’s an inferior song. “Angelyne” succeeds as a light-hearted romp–romantic, infectious, and tailor-made to show off the E Street Band’s chops.
@@ -75,7 +75,7 @@ Yet Bruce has only performed “Angelyne” once in concert, duetting with Bonds
 
 And look how they turned out.
 
-**Angelyne**  
+**Angelyne**
 **Recorded:** February 1, 1980 (backing track); 1982 (Bonds and Van Zandt lead vocals)<br>
 **Released:** *On the Line* (1982)<br>
 **First performed:** July 2, 1989 (Long Branch, NJ)<br>

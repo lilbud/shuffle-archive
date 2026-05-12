@@ -4,35 +4,35 @@ This was the song D’Arby sang, from his 1989 album *Neither Fish Nor Flesh,* g
 
 [https://www.youtube.com/embed/9UMi4JDbMOw?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/9UMi4JDbMOw?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-*I have faith in these desolate times*  
-*A roar down the road of a rumbling war*  
-*I have faith in these desolate times*  
-*A chill from the eyes of*  
-*a man of political skill*  
+*I have faith in these desolate times*
+*A roar down the road of a rumbling war*
+*I have faith in these desolate times*
+*A chill from the eyes of*
+*a man of political skill*
 *I have faith but for how much longer?*
 
-*It seems to me, bitter trees, full of fleas*  
-*Summarily hold the branches*  
-*People we, falling leaves, watching thieves*  
-*Stealing keys, to our ranches*  
-*I have faith in these desolate times*  
-*A score to the sound of the feet*  
-*of a journeyman’s tour*  
-*I have faith in these desolate times*  
-*A feel and a hope and belief*  
-*that man’s peace will be still*  
+*It seems to me, bitter trees, full of fleas*
+*Summarily hold the branches*
+*People we, falling leaves, watching thieves*
+*Stealing keys, to our ranches*
+*I have faith in these desolate times*
+*A score to the sound of the feet*
+*of a journeyman’s tour*
+*I have faith in these desolate times*
+*A feel and a hope and belief*
+*that man’s peace will be still*
 *I have faith but for how much longer?*
 
-*The village green, people seen, full of beans*  
-*Imagining the course of action*  
-*And in between, shopping scenes, plasticine*  
-*Suburban dreams, an empty faction*  
-*I have faith in these desolate times*  
-*Show fear, and the smoke of a gun trigger*  
-*pulling finger pressure comes near*  
-*I have faith in these desolate times*  
-*Before long, the lamb and the lion may lie*  
-*with the lass in the grass at dawn*  
+*The village green, people seen, full of beans*
+*Imagining the course of action*
+*And in between, shopping scenes, plasticine*
+*Suburban dreams, an empty faction*
+*I have faith in these desolate times*
+*Show fear, and the smoke of a gun trigger*
+*pulling finger pressure comes near*
+*I have faith in these desolate times*
+*Before long, the lamb and the lion may lie*
+*with the lass in the grass at dawn*
 *I have faith but for how much longer?*
 
 As you can hear, D’Arby was roundly booed. Nevertheless, he persisted.

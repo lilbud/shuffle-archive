@@ -22,7 +22,7 @@ Bruce joined Joe and The Houserockers throughout their American Babylon Tour (ot
 
 [https://www.youtube.com/embed/5TrjyioI4IQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/5TrjyioI4IQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**Pumping Iron**  
+**Pumping Iron**
 **First performed:** July 22, 1995 (Sea Bright, NJ)<br>
 **Last performed:** January 17, 2026 (Red Bank, NJ)<br>
 

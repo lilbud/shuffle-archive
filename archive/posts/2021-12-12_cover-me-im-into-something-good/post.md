@@ -17,6 +17,6 @@ Bruce only performed it that once, with The Bruce Springsteen Band.
 February 4, 1972 (Richmond, VA)
 February 4, 1972 (Richmond, VA)
 
-**I’m Into Something Good**   
+**I’m Into Something Good**
 **First performed:** <br>
 **Last performed:**<br>

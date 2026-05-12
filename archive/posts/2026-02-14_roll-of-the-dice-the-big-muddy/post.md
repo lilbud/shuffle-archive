@@ -20,13 +20,13 @@ Bruce’s song is focused on more intimate conflicts than Pete’s song, but the
 
 Our muddiest imbroglios often start in relative innocence, as Bruce (via Billy) relates below:
 
-*Billy had a mistress down on A and 12th*  
-*She was that little something that he did for himself*  
-*His own little secret didn’t hurt nobody*  
+*Billy had a mistress down on A and 12th*
+*She was that little something that he did for himself*
+*His own little secret didn’t hurt nobody*
 *Come the afternoon he’d take her wading*
 
-*Waist deep in the big muddy*  
-*Waist deep in the big muddy*  
+*Waist deep in the big muddy*
+*Waist deep in the big muddy*
 *You start out standing but end up crawling, sonny*
 
 Notice how Billy rationalizes his infidelity: his mistress is just a “little something that he did for himself.” He works hard, and presumably takes good care of his family. Doesn’t he deserve a little special treatment? Especially if no one else knows, who does it hurt?
@@ -37,21 +37,21 @@ One verse in, and we’ve got a *triple* entendre–and in a song that’s all a
 
 In the second verse, the scene shifts–similar, in a way, to “[Reason to Believe,](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)” in which Bruce uses vignettes rather than an overarching narrative to illustrate a point.
 
-*Got in some trouble and needed a hand from a friend of mine*  
-*This old friend had a figure in mind*  
-*It was nothing illegal, just a little bit funny*  
-*He said “C’mon don’t tell me that the rich don’t know, sonny*  
+*Got in some trouble and needed a hand from a friend of mine*
+*This old friend had a figure in mind*
+*It was nothing illegal, just a little bit funny*
+*He said “C’mon don’t tell me that the rich don’t know, sonny*
 *Sooner or later it all comes down to money”*
 
-*And you’re waist deep in the big muddy*  
-*Waist deep in the big muddy*  
+*And you’re waist deep in the big muddy*
+*Waist deep in the big muddy*
 *You start on higher ground but end up crawling, sonny*
 
 What kind of trouble did Bruce (now singing in the first person) find himself in? We never learn, but it was dire enough to require some specialized help from a “friend” who knew he had the singer over a barrel. “Sooner or later it all comes down to money,” he says, and if you’ve got it, you can buy your way out of most kinds of trouble. And when you know you can do that, what does that do to your moral rudder?
 
 The crux of the song comes in the bridge:
 
-*Well I had a friend, said “You watch what you do*  
+*Well I had a friend, said “You watch what you do*
 *Poison snake bites you and you’re poison too”*
 
 Most accounts of this song cite this adage as a direct quote from Pete Dexter’s novel *Paris Trout,* and the notion does indeed come from that story. But the original line isn’t about a snake–it’s about a fox, cleverer and therefore far more dangerous than a snake:
@@ -63,13 +63,13 @@ Having the full context of that passage helps us appreciate Bruce’s intent in 
 
 Just in case the song’s message is too subtle, Bruce makes it explicit in the final verse:
 
-*Well how beautiful the river flows and the birds they sing*  
-*But you and I we’re messier things*  
-*There ain’t no one leaving this world buddy*  
+*Well how beautiful the river flows and the birds they sing*
+*But you and I we’re messier things*
+*There ain’t no one leaving this world buddy*
 *Without their shirttail dirty or hands a little bloody*
 
-*Waist deep in the big muddy*  
-*Waist deep in the big muddy*  
+*Waist deep in the big muddy*
+*Waist deep in the big muddy*
 *You start on higher ground but end up somehow crawling, sonny*
 
 In other words, let’s not judge Billy or the singer, because we’re all a little dirty and bloody. We wade through life in a series of compromises, moral and otherwise, and we do our best to keep our head above water.
@@ -87,7 +87,7 @@ Enjoy the official video (yes, there is one) for “The Big Muddy.”
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nkSoGDQ09M8)
 
-**The Big Muddy**  
+**The Big Muddy**
 **Recorded:** Late 1991<br>
 **Released:** *Lucky Town* (1992)<br>
 **First performed:** May 6, 1992 (New York City, NY)<br>

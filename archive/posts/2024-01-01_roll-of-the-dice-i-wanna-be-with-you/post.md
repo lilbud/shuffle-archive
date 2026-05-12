@@ -41,7 +41,7 @@ You’re not pretty at all
 But I come when you whisper
 I run when you call
 When I see you on the street, I fall on my face
-I drop to my knees, I plead my case.*  
+I drop to my knees, I plead my case.*
 
 
 
@@ -70,8 +70,8 @@ May 31, 1979
 **I Wanna Be With You**
 **Recorded:** <br>
 
-**Released***Tracks* *18 Tracks*   
-**First Performed**  
+**Released***Tracks* *18 Tracks*
+**First Performed**
 **Last Performed**
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

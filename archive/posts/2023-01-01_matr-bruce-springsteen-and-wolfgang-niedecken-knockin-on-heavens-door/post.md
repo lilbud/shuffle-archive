@@ -45,6 +45,6 @@ Enjoy.
 July 9, 1995 (Berlin, Germany)
 February 6, 2015 (Los Angeles, CA)
 
-**Knockin’ on Heaven’s Door**   
+**Knockin’ on Heaven’s Door**
 **First performed:** <br>
 **Last performed:**<br>

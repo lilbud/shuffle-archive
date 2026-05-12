@@ -28,7 +28,7 @@ This time, everyone sang along.
 March 27, 2024 (Brooklyn, NY)
 August 7, 2024 (Philadelphia, PA)
 
-**Sandpaper**  
+**Sandpaper**
 **Released:** *The Great American Bar Scene* <br>
 **First performed:**<br>
 **Last performed:**<br>

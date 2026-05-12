@@ -49,6 +49,6 @@ Why did it take so long for Bruce to cover a song he’d quoted, excerpted, and 
 April 12, 1995 (New York City, NY)
 August 1, 2003 (Foxborough, MA)
 
-**Mystery Train**  
+**Mystery Train**
 **First performed:**<br>
 **Last performed:**<br>

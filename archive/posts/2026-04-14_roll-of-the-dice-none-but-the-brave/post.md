@@ -18,65 +18,65 @@ So let’s just lay this out first and foremost: whichever version we’re liste
 
 Its first verse and chorus establish the scene and the situation with Bruce’s by-now trademark verbal economy:
 
-*Tonight down on Union Street*  
-*I’m thinkin’ back baby to you and me*  
-*The way you used to be*  
-*And your words come back to me*  
-*From passing cars, their voices sing out*  
-*In empty bars where guitars ring out*  
-*We’d walk in, talk about*  
+*Tonight down on Union Street*
+*I’m thinkin’ back baby to you and me*
+*The way you used to be*
+*And your words come back to me*
+*From passing cars, their voices sing out*
+*In empty bars where guitars ring out*
+*We’d walk in, talk about*
 *Who’d be the lucky ones to get out*
 
-*You said*  
-*None baby but the brave*  
-*No one baby but the brave*  
-*Those strong enough to save*  
+*You said*
+*None baby but the brave*
+*No one baby but the brave*
+*Those strong enough to save*
 *Something from what they gave*
 
 This is a man rooted almost literally in his past, and haunted by it. Or maybe he’s the one doing the haunting: he drifts through town, as if invisible. He is background now, to the friends and lovers in the bars and their cars, but once he was in the foreground. Once it was his story–their story–and they shared the dreams of escape that all young adults share, but most never realize.
 
 But his girl did–she escaped and left him behind. Because she was brave enough and strong enough to hold on to enough of her dreams and determination to escape the gravitational pull of her home, and more weightily, her circumstances.
 
-*In dreams these nights I see you my friend*  
-*The way you looked back then*  
-*Ah, on a night like this*  
+*In dreams these nights I see you my friend*
+*The way you looked back then*
+*Ah, on a night like this*
 *I know that girl no longer exists*
 
 It’s interesting (and possibly significant) that Bruce addresses his love as “my friend,” creating the momentary possibility that perhaps this song is more universal than it first appeared–an ode to a close friend rather than a lover. That ambiguity is undoubtedly as deliberate here as it is in “Bobby Jean” or “Backstreets,” but subsequent verses make clear that if the two were friends, they were at least friends with benefits.
 
 Whatever their relationship, the singer clearly hasn’t been able to move on. He hold on to his image of her as she was–even though he acknowledges that that particular girl no longer exists. In her new setting and new life, she is a different person and lost to him…
 
-*Except for a moment in some stranger’s eyes*  
-*Or the nameless girls in cars rushin’ by*  
-*That’s where I find you tonight*  
+*Except for a moment in some stranger’s eyes*
+*Or the nameless girls in cars rushin’ by*
+*That’s where I find you tonight*
 *And in my heart you still survive*
 
 Again, he’s haunted: he knows she’s gone, but his image of her is so vivid that he can’t help but catch fleeting glimpses of her in passing strangers. He carries his torch in tribute, and we’re about to realize that he’s not going to move on any time soon.
 
-*Now tonight once more*  
-*I search every face on that crowded floor*  
-*Looking for, I don’t know what for*  
-***Something that ain’t there no more***  
-*There’s a girl standin’ by the band*  
-*She reminds me of you and I asked her to dance*  
-*As the drummer counts away*  
+*Now tonight once more*
+*I search every face on that crowded floor*
+*Looking for, I don’t know what for*
+***Something that ain’t there no more***
+*There’s a girl standin’ by the band*
+*She reminds me of you and I asked her to dance*
+*As the drummer counts away*
 *I take her hand, we move away*
 
 Oof–that verse packs an emotional wallop! At first evoking “My Love Will Not Let You Down,” (another contemporary outtake), the singer searches for connection in some new eyes, hoping to recapture the spark of what he had with his lost love. And then we visit “Reno” (a much later composition that paints a similar scene) as he hooks up with a girl just because she reminds him of his loss. His emotional pain is laid stark before us. (By the way, that bolded line is deliberate. We’ll come back to that later.)
 
 Our protagonist is self-aware, at least. He knows he is defeated, and he pities his friends who are still caught up in the game, even though he knows they are destined to defeat as soon as life or love deals them a hand they’re not strong enough to play:
 
-*And tonight now I see old friends*  
-*Caught in a game they’ve got no chance to win*  
-*Gettin’ beat and then playin’ again*  
+*And tonight now I see old friends*
+*Caught in a game they’ve got no chance to win*
+*Gettin’ beat and then playin’ again*
 *‘Till their strength gives out or their heart gives in*
 
 And finally, he rages:
 
-*Who’s the man who thinks he can decide*  
-*Whose dreams will live and whose shall be pushed aside*  
-*Has he ever walked down these streets at night*  
-*And looked into the eyes of*  
+*Who’s the man who thinks he can decide*
+*Whose dreams will live and whose shall be pushed aside*
+*Has he ever walked down these streets at night*
+*And looked into the eyes of*
 *None baby but the brave*
 
 And in that final line, we understand the one thing he does not–that even though he considers himself one of the brave, robbed of the freedom and life of which he dreamt, the bravery that life demands isn’t the courage to dream but rather the strength, determination, and fortitude to make them real.
@@ -101,16 +101,16 @@ Go back and listen to the first two verses in each recording and compare them. T
 
 But what caught me short when I first listened–really listened–to the Essential version was the one line that Bruce altered. In the original version, he sang:
 
-*Now tonight once more*  
-*I search every face on that crowded floor*  
-*Looking for, I don’t know what for*  
+*Now tonight once more*
+*I search every face on that crowded floor*
+*Looking for, I don’t know what for*
 ***Something that ain’t there no more***
 
 But on the 2003 version, he sings:
 
-*Now tonight once more*  
-*I search every face on that crowded floor*  
-*Looking for, I don’t know what for*  
+*Now tonight once more*
+*I search every face on that crowded floor*
+*Looking for, I don’t know what for*
 ***Just waitin’ to see you come walkin’ through that door***
 
 Now *that* is a significant edit. In the earlier version, the singer is looking for a spark, a hint, the essence of a friendship, a love, a connection he once had but lost. He’s trying to recapture a *feeling*.
@@ -159,7 +159,7 @@ But whether I was in the house or listening on CD or YouTube, in my opinion, non
 
 Am I reading too much into the song? Perhaps–I admitted that possibility at the outset. What’s your take on “None But the Brave?” I’d love to read it.
 
-**None But the Brave**  
+**None But the Brave**
 **Recorded:** June 27, 1983 (and possibly a 2002-ish vocal track)
 **Released:** *The Essential Bruce Springsteen* (2003)<br>
 **First performed:** December 5, 2003 (Asbury Park, NJ)<br>

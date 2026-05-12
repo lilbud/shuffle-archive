@@ -16,18 +16,18 @@ For “State Trooper,” Bruce replaces the synth and drum machine of “Frankie
 
 As for the lyrics, well, Bruce’s narrator might be grounded in a similar life as Frankie Teardrop, working a daily grind but moving backwards rather than forwards, until something just… snaps. Frankie ends up murdering first his infant child, then his wife, and finally himself. We don’t know exactly what lies in store for the “protagonist” of “State Trooper,” but even if we’re not familiar with its inspiration, we can tell that this story isn’t going to end well.
 
-*New Jersey Turnpike riding on a wet night*  
-*‘Neath the refinery’s glow out where the great black rivers flow*  
-*License, registration… I ain’t got none*  
-*But I got a clear conscience ’bout the things that I done*  
+*New Jersey Turnpike riding on a wet night*
+*‘Neath the refinery’s glow out where the great black rivers flow*
+*License, registration… I ain’t got none*
+*But I got a clear conscience ’bout the things that I done*
 *Mister State Trooper, please don’t stop me, please don’t stop me, please don’t stop me…*
 
 Right away, we know something’s wrong. At first, Bruce leads us to suspect that his character may be nothing more than a petty car thief, perhaps a down-on-his luck anti-hero who justifies his theft as something he needs to do to make ends meet (hence the clear conscience).
 
 But it gradually dawns on us that the reason he’s hoping against hope not to meet a state trooper isn’t because of what he’s done… but about what he’s *going to do*.
 
-*Maybe you got a kid, maybe you got a pretty wife*  
-*The only thing that I got been bothering me my whole life*  
+*Maybe you got a kid, maybe you got a pretty wife*
+*The only thing that I got been bothering me my whole life*
 *Mister State Trooper, please don’t stop me, please don’t you stop me, please don’t you stop me…*
 
 Bruce makes sure we know his narrator lacks the social connections that we know (because he’d much later explicitly confess to us) kept the songwriter himself from falling into the abyss.
@@ -36,17 +36,17 @@ Bruce makes sure we know his narrator lacks the social connections that we know 
 
 As the song builds to its climax, the recording levels climb into the red zone. I’ve always wondered whether that was an intentional decision on Bruce’s part, and I’ve chosen to believe so–because the distortion that appears at this point builds throughout the remainder of the song, and it’s a perfect metaphor for the narrator’s rapidly decreasing clarity of thought.
 
-*In the wee, wee hours your mind gets hazy*  
-*Radio relay towers gonna lead me to my baby*  
-*The radio’s jammed up with talk show stations*  
-*It’s just talk, talk, talk, talk, till you lose your patience*  
+*In the wee, wee hours your mind gets hazy*
+*Radio relay towers gonna lead me to my baby*
+*The radio’s jammed up with talk show stations*
+*It’s just talk, talk, talk, talk, till you lose your patience*
 *Mister State Trooper, please don’t stop me*
 
 Notice in that last verse how each couplet now ends with an up-note rather than a down one: this is a man who is quickly losing his self-control, and we know that whatever is bringing him to his baby (and for the first time, as I write this with “Frankie Teardrop” in my recent memory, I’m suddenly unsure whether Bruce’s “baby” is figurative or literal), it isn’t good.
 
 As he nears his fatal destination, Bruce’s night driver sends out one last plea for deliverance from his life:
 
-*Hey, somebody out there–listen to my last prayer:*  
+*Hey, somebody out there–listen to my last prayer:*
 *Hi ho silver-o, deliver me from nowhere*
 
 …but we know that no such relief is coming, until he delivers it for and to himself.
@@ -85,7 +85,7 @@ I’ll leave you with that masterful and nightmarish Vancouver performance, my a
 
 [Watch Video Highlight](https://videopress.com/embed/6LD966KH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**State Trooper**  
+**State Trooper**
 **Recorded:** December 17, 1981 – January 3, 1982<br>
 **Released:** *Nebraska* (1982)<br>
 **First performed:** September 8, 1984 (Hartford, CT)<br>

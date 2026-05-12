@@ -6,26 +6,26 @@ That’s probably because it’s also one of the most malleable holiday classics
 
 Haven Gillespie wrote the lyrics for “Santa Claus is Comin’ to Town” during the height of the Great Depression, and his words reflected the concerns of the day:
 
-*The season is near, the happiest time*  
-*Gotta bring cheer with every last dime*  
+*The season is near, the happiest time*
+*Gotta bring cheer with every last dime*
 *Santa Claus is coming to town!*
 
 
 
-*We’ve gotta dig deep and cover the list*  
-*Gotta see that nobody is missed*  
+*We’ve gotta dig deep and cover the list*
+*Gotta see that nobody is missed*
 *Santa Claus is coming to town!*
 
 
 
-*Let’s keep home fires burning*  
-*Let’s give with out a pause*  
+*Let’s keep home fires burning*
+*Let’s give with out a pause*
 *Let’s prove to those less fortunate that there is a Santa Claus*
 
 
 
-*Oh the joy will be yours , that wonderful day*  
-*Knocking on doors and shouting hurray*  
+*Oh the joy will be yours , that wonderful day*
+*Knocking on doors and shouting hurray*
 *Santa Claus is coming to town!*
 
 It was this version–set to music by J. Fred Coots–that radio star Eddie Cantor performed on his radio show that 1934 holiday season.
@@ -77,9 +77,9 @@ December 20, 1973 (Brsitol, RI) November 22, 2024 (Vancouver, BC)
 
 **Santa Claus Is Comin’ to Town**
 Never recorded
-Released (Live):**  
+Released (Live):**
 
-*In Harmony 2*   
+*In Harmony 2*
 **First performed:**  **Last performed:**<br>
 
 

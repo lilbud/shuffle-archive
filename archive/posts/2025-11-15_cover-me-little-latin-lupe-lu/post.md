@@ -33,7 +33,7 @@ In the modern era, Bruce and the E Street Band tackled “Little Latin Lupe” t
 March 23, 1977 (Boston, MA)
 May 18, 2009 (Washington, DC)
 
-**Little Latin Lupe Lu**  
+**Little Latin Lupe Lu**
 **First performed:**<br>
 **Last performed:**<br>
 

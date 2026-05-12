@@ -14,9 +14,9 @@ In fact, with lyrics like these, “Gulf Coast Highway” would be right at home
 
 
 
-*Gulf coast highway, he worked the rails*  
-*He worked the rice fields with their cold dark wells*  
-*He worked the oil rigs in the Gulf of Mexico*  
+*Gulf coast highway, he worked the rails*
+*He worked the rice fields with their cold dark wells*
+*He worked the oil rigs in the Gulf of Mexico*
 *The only thing we’ve owned is this old house here by the road*
 
 
@@ -25,10 +25,10 @@ In fact, with lyrics like these, “Gulf Coast Highway” would be right at home
 
 
 
-*Highway 90, the jobs are gone*  
-*We kept our garden, we set the sun*  
-*This is the only place on Earth blue bonnets grow*  
-*And once a year they come and go*  
+*Highway 90, the jobs are gone*
+*We kept our garden, we set the sun*
+*This is the only place on Earth blue bonnets grow*
+*And once a year they come and go*
 *At this old house here by the road*
 
 Bruce was apparently taken with the song, because not long after the song’s release, he soundchecked it at least once. The recording below is from a soundcheck sometime during his stand at Madison Square Garden in 1988. Take a listen–it’s a beautiful arrangement featuring Patti’s lovely backing vocals.
@@ -39,5 +39,5 @@ Too bad Bruce bluffs some of the vocals; this is one cover I’d love to have a 
 
 (but soundchecked in 1988)
 
-**Gulf Coast Highway**  
+**Gulf Coast Highway**
 **Never performed live**

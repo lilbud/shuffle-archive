@@ -43,7 +43,7 @@ It’s a tender reading, and it’s one of my favorite moments of the 2013 tour.
 August 20, 1984 (East Rutherford, NJ)
 May 28, 2013 (Hannover, Germany)
 
-**Drift Away**  
+**Drift Away**
 **First performed:**<br>
 **Last performed:**<br>
 

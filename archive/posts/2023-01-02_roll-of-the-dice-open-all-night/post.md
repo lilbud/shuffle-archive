@@ -38,52 +38,52 @@ Honestly, I’m hard-pressed to say whether there’s any real substantive diffe
 
 Bruce described “Open All Night” in a letter to Jon Landau as a song about a hero braving “snow, sleet, rain, and the highway patrol for a kiss from his baby’s lips.” But if anything, the additions to “Open All Night” only serve to add depth and character to the narrator’s car rather than Wanda, which raises a question as to which one is the true love interest.
 
-*Well I had the carburetor baby cleaned and checked*  
-*With her line blown out she’s humming like a turbojet*  
-*Propped her up in the backyard on concrete blocks*  
-*For a new clutch plate and a new set of shocks*  
-*Took her down to the car wash, checked the plugs and points*  
+*Well I had the carburetor baby cleaned and checked*
+*With her line blown out she’s humming like a turbojet*
+*Propped her up in the backyard on concrete blocks*
+*For a new clutch plate and a new set of shocks*
+*Took her down to the car wash, checked the plugs and points*
 *Well I’m going out tonight, I’m gonna rock that joint*
 
-*Early North Jersey industrial skyline*  
-*I’m an all-set cobra jet creeping through the night time*  
-*Gotta find a gas station, gotta find a payphone*  
-*This turnpike sure is spooky at night when you’re all alone*  
-*Gotta hit the gas, baby, I’m running late*  
+*Early North Jersey industrial skyline*
+*I’m an all-set cobra jet creeping through the night time*
+*Gotta find a gas station, gotta find a payphone*
+*This turnpike sure is spooky at night when you’re all alone*
+*Gotta hit the gas, baby, I’m running late*
 *This New Jersey in the morning like a lunar landscape*
 
 He certainly seems to take pride in his car’s ability to outrun the state police:
 
-*Now the boss don’t dig me, so he put me on the night shift*  
-*It takes me two hours to get back to where my baby lives*  
-*In the wee wee hours your mind gets hazy*  
-*Radio relay towers, won’t you lead me to my baby*  
-*Underneath the overpass, trooper hits his party light switch*  
+*Now the boss don’t dig me, so he put me on the night shift*
+*It takes me two hours to get back to where my baby lives*
+*In the wee wee hours your mind gets hazy*
+*Radio relay towers, won’t you lead me to my baby*
+*Underneath the overpass, trooper hits his party light switch*
 *Good night good luck, one two power shift*
 
 We do get a single verse devoted to Wanda, a flashback that tells us little about the attraction other than her eyes:
 
-*I met Wanda when she was employed*  
-*Behind the counter at Route 60 Bob’s Big Boy Fried Chicken*  
-*On the front seat, she’s sitting in my lap*  
-*We’re wiping our fingers on a Texaco road map*  
-*I remember Wanda up on scrap metal hill*  
+*I met Wanda when she was employed*
+*Behind the counter at Route 60 Bob’s Big Boy Fried Chicken*
+*On the front seat, she’s sitting in my lap*
+*We’re wiping our fingers on a Texaco road map*
+*I remember Wanda up on scrap metal hill*
 *With them big brown eyes that make your heart stand still*
 
 But in short order, our narrator’s mind returns to the road and the present as he focuses on staying awake for the long drive still ahead. (Three hours? Wherever Wanda lives, it’s obviously not in New Jersey.)
 
-*Well at 5 a.m. oil pressure’s sinking fast*  
-*I make a pit stop, wipe the windshield, check the gas*  
-*Gotta call my baby on the telephone*  
-*Let her know that her daddy’s coming on home*  
-*Sit tight, little mama, I’m a-coming around*  
+*Well at 5 a.m. oil pressure’s sinking fast*
+*I make a pit stop, wipe the windshield, check the gas*
+*Gotta call my baby on the telephone*
+*Let her know that her daddy’s coming on home*
+*Sit tight, little mama, I’m a-coming around*
 *I got three more hours but I’m covering ground*
 
-*Your eyes get itchy in the wee wee hours*  
-*Sun’s just a red ball rising over them refinery towers*  
-*Radio’s jammed up with gospel stations*  
-*Lost souls calling long distance salvation*  
-*Hey mister deejay won’t you hear my last prayer*  
+*Your eyes get itchy in the wee wee hours*
+*Sun’s just a red ball rising over them refinery towers*
+*Radio’s jammed up with gospel stations*
+*Lost souls calling long distance salvation*
+*Hey mister deejay won’t you hear my last prayer*
 *Hey ho rock ‘n roll deliver me from nowhere*
 
 “Open All Night” sticks out like a sore thumb on *Nebraska–*not only because of Bruce’s electric guitar and his mile-a-minute lyrics (Bruce sounds out of breath throughout much of the song), but also because of its light substance.

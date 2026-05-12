@@ -26,7 +26,7 @@ September 30, 1967 (Freehold, NJ)
 September 30, 1967 (Freehold, NJ)
 
 **Mr. Jones**
-Never recorded or released**  
+Never recorded or released**
 
 **First performed:**<br>
 **Last performed:**<br>

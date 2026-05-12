@@ -14,9 +14,9 @@ Case in point: “Come On.”
 
 If “Come On” is notable for anything at all, it’s for the remarkable quality of this surviving recording (who could have known in 1970 that the young band playing at Asbury Park’s Sunshine In would have such historical significance?) and the power of Bruce’s vocals, particularly as the song shifts into gear in the third line of the song.
 
-*Well come on, are you ready*  
-*Well the temperature’s rising and summer’s coming on*  
-*Well come on, don’t let ’em catch you running ’round here*  
+*Well come on, are you ready*
+*Well the temperature’s rising and summer’s coming on*
+*Well come on, don’t let ’em catch you running ’round here*
 *Well the time has come, let’s get on*
 
 The song itself, however, is a fairly pedestrian call-to-action for young people, inspired by any number of contemporary protest songs–including “,” which Bruce alludes to twice in the song. (Bruce had a penchant even then for wearing his influences on his sleeves–see “” for another example of how young Bruce paid tribute to his influences.)
@@ -25,31 +25,31 @@ The song itself, however, is a fairly pedestrian call-to-action for young people
 
 
 
-*Yeah come on, are you ready*  
-*The bells are ringing and the people are singing their song*  
-*Well come on, come on, don’t you fear it*  
+*Yeah come on, are you ready*
+*The bells are ringing and the people are singing their song*
+*Well come on, come on, don’t you fear it*
 *The world is crying for freedom, can’t you hear it*
 
 
 
-*Well gather up your children*  
-*Bring them down to the riverside*  
-*And teach them well, show them good*  
+*Well gather up your children*
+*Bring them down to the riverside*
+*And teach them well, show them good*
 *They got no reason to hide*
 
 
 
-*Well gather up them children*  
-*Bring them down to the riverside*  
-*And treat them well, wish them good*  
+*Well gather up them children*
+*Bring them down to the riverside*
+*And treat them well, wish them good*
 *They got no reason to hide*
 
 
 
-*Come on, you gotta be a man now*  
-*The time has come, get up and stand now*  
-*Come on, don’t you fear it*  
-*The world is crying for freedom*  
+*Come on, you gotta be a man now*
+*The time has come, get up and stand now*
+*Come on, don’t you fear it*
+*The world is crying for freedom*
 *The world is crying for freedom, don’t you hear it*
 
 “Come On” won’t be remembered as one of Bruce’s best songs, but as a curious postscript, Steel Mill Retro (a modern-day incarnation of Bruce’s early band, led by original member (and E Streeter) Vini Lopez) officially recorded and released it (with Bruce’s blessing) in 2005 on their album–earning “Come On” distinction as a member of Bruce Springsteen’s catalog of officially released compositions.
@@ -59,9 +59,9 @@ The song itself, however, is a fairly pedestrian call-to-action for young people
 May 23, 1970 (Richmond, VA)
 August 14, 1970 (Richmond, VA)
 
-**Come On**   
-**Never recorded**  
-**Never released**  
+**Come On**
+**Never recorded**
+**Never released**
 **First performed:**<br>
 **Last performed:**<br>
 

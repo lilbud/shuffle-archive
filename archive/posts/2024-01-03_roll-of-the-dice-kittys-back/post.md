@@ -34,41 +34,41 @@ Lyrics? Bah. Apart from the endless “ooooh all right” coda. there’s only o
 
 That’s the song. Everything else is just clever feline imagery and wordplay.
 
-*Catlong sighs holding Kitty’s black tooth*  
-*She left to marry some top cat, ain’t it the cold truth*  
-*And there hasn’t been a tally since Sally left the alley*  
-*Since Kitty left with Big Pretty things have got pretty thin*  
+*Catlong sighs holding Kitty’s black tooth*
+*She left to marry some top cat, ain’t it the cold truth*
+*And there hasn’t been a tally since Sally left the alley*
+*Since Kitty left with Big Pretty things have got pretty thin*
 *It’s tight on this fence since them young dudes are muscling in*
 
-*Well, Jack Knife cries ’cause baby’s in a bundle*  
-*She goes running nightly, lightly through the jungle*  
-*And them tin cans are exploding out in the ninety-degree heat*  
-*Cat somehow lost his baby down on Bleecker Street*  
-*It’s sad, but it sure is true*  
-*Cat shrugs his shoulders, sits back and sighs*  
+*Well, Jack Knife cries ’cause baby’s in a bundle*
+*She goes running nightly, lightly through the jungle*
+*And them tin cans are exploding out in the ninety-degree heat*
+*Cat somehow lost his baby down on Bleecker Street*
+*It’s sad, but it sure is true*
+*Cat shrugs his shoulders, sits back and sighs*
 *Ooh what can I do?*
 
-*Catlong lies back bent on a trash can*  
-*Flashing lights cut the night, dude in white says he’s the man*  
-*Well, you better learn to move fast when you’re young or you’re not long around*  
-*Cat somehow lost his Kitty down in the city pound*  
+*Catlong lies back bent on a trash can*
+*Flashing lights cut the night, dude in white says he’s the man*
+*Well, you better learn to move fast when you’re young or you’re not long around*
+*Cat somehow lost his Kitty down in the city pound*
 *So get right, get tight, get down*
 
-*Well, who’s that down at the end of the alley?*  
-*She’s been gone so long*  
+*Well, who’s that down at the end of the alley?*
+*She’s been gone so long*
 *(Here she comes, here she comes, here she comes, here she comes)*
 
-*Kitty’s back in town (here she comes, now)*  
+*Kitty’s back in town (here she comes, now)*
 *Kitty’s back in town (oh, oh, all right)*
 
-*Now, Cat knows his Kitty’s been untrue*  
-*And that she left him for a city dude*  
-*But she’s so soft, she’s so blue*  
-*When he looks into her eyes*  
-*He just sits back and sighs*  
+*Now, Cat knows his Kitty’s been untrue*
+*And that she left him for a city dude*
+*But she’s so soft, she’s so blue*
+*When he looks into her eyes*
+*He just sits back and sighs*
 *Oh what can I do?*
 
-*(Ooh, ooh, ooh, ooh, ooh, all right, ooh, all right)*  
+*(Ooh, ooh, ooh, ooh, ooh, all right, ooh, all right)*
 *(Ooh, ooh, ooh, ooh, ooh, all right, ooh, all right)*
 
 “Kitty’s Back” gelled in the studio. The recording that appears on *The Wild, The Innocent & The E Street Shuffle* provides star turns for every band member–most notably David Sancious, who cuts loose with a virtuosic solo, and Vini Lopez, who doesn’t so much play as *feel* his way through the song (and that’s a good thing). Both Vini and David would depart the band before Bruce recorded his next album, but at least they both have this fine spotlight moment on vinyl.

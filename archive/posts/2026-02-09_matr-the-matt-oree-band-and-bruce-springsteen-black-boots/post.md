@@ -27,7 +27,7 @@ Late 2013 (2016)
 **Black Boots**
 **Recorded:** <br>
 **Released:** <br>
-*Brotherhood*  
+*Brotherhood*
 **Never performed**
 
 © November 8, 2021

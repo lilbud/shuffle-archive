@@ -26,7 +26,7 @@ But I can dream.
 
 **Crazy Rocker  
 **Recorded:** August 1977<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

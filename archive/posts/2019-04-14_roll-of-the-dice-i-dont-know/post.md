@@ -18,7 +18,7 @@ Perhaps, but baby…
 
 Autumn 1979 (early demo only)
 
-**I Don’t Know**  
+**I Don’t Know**
 **Recorded:** <br>
 **Never performed**
 

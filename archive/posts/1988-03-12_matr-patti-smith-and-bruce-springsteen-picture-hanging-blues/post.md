@@ -12,7 +12,7 @@ When I listen to the clip below, I can’t help but think that Bruce is getting 
 
 (Listen to the end of the track: when the song ends, Patti goes off on a hilarious tangent about New Jersey. For more of Patti’s ruminations on New Jersey and why she was late to appreciate Bruce’s music, see “Slowly Walking Down by the River” from that same night.)
 
-**Picture Hanging Blues**  
+**Picture Hanging Blues**
 **First performed:** November 26, 1976 (New York City, NY)<br>
 **Last performed:** November 26, 1976 (New York City, NY)<br>
 

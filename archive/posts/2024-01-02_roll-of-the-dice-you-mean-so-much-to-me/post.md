@@ -48,23 +48,23 @@ It’s easy to forget how much the E Street Band’s sound has changed since the
 
 By this point, you might have noticed that I’ve been focusing on the musicality of “You Mean So Much to Me,” rather than its poetry. That’s not an accident. Lyrically, there’s not a lot here to either admire or dismiss–only two verses and a chorus for a song that approached ten minutes when performed live.
 
-*Well she comes to me like a childhood song*  
-*Or an old time friend I ain’t seen in so long*  
-*When she sings to me she’s like a robin’s song*  
+*Well she comes to me like a childhood song*
+*Or an old time friend I ain’t seen in so long*
+*When she sings to me she’s like a robin’s song*
 *She can be so sweet, she won’t do me no wrong*
 
 
 
-*You mean so much to me baby*  
-*You know you drive me crazy*  
-*You mean so much to me baby*  
+*You mean so much to me baby*
+*You know you drive me crazy*
+*You mean so much to me baby*
 *I want you for my girl*
 
 
 
-*Well sometimes she’s like a baby playing with a toy*  
-*Then she’s so much woman she makes me feel like a little boy*  
-*And when she comes to me, and she’s all alone*  
+*Well sometimes she’s like a baby playing with a toy*
+*Then she’s so much woman she makes me feel like a little boy*
+*And when she comes to me, and she’s all alone*
 *She cries “Oh daddy, oh daddy make me strong”*
 
 Yeah… this isn’t exactly Bruce at his lyrical best, but it’s fairly typical of his early (pre-1972) attempts at writing love songs. The lyrics are basically there for the band to hang their performance on, and that’s probably why Bruce retired the song for good shortly thereafter; he’d already introduced some much stronger material to his catalog and the band didn’t want for substantive songs to sink their teeth into.
@@ -77,9 +77,9 @@ July 10, 1971 (Lincroft, NJ)
 May 13, 1977 (Red Bank, NJ)
 
 **You Mean So Much to Me**
-Never recorded**  
+Never recorded**
 
-**Never released**  
+**Never released**
 **First performed:**<br>
 **Last performed:**<br>
 

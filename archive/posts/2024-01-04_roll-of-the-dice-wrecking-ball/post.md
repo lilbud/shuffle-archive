@@ -58,19 +58,19 @@ Great songs take on meaning to those who listen, and “Wrecking Ball” is a gr
 
 Bruce wrote it on the occasion of his last stand at Giants Stadium, where he’d played two dozen times over the course of his career, and the opening verses are so specific and detailed that it’s hard to imagine the song serving as a metaphor for anything.
 
-*I was raised out of steel here in the swamps of Jersey, some misty years ago*  
-*Through the mud and the beer, and the blood and the cheers, I’ve seen champions come and go*  
-*So if you got the guts mister, yeah, if you got the balls*  
+*I was raised out of steel here in the swamps of Jersey, some misty years ago*
+*Through the mud and the beer, and the blood and the cheers, I’ve seen champions come and go*
+*So if you got the guts mister, yeah, if you got the balls*
 *If you think it’s your time, then step to the line, and bring on your wrecking ball*
 
-*Bring on your wrecking ball*  
-*Bring on your wrecking ball*  
-*Come on and take your best shot, let me see what you got*  
+*Bring on your wrecking ball*
+*Bring on your wrecking ball*
+*Come on and take your best shot, let me see what you got*
 *Bring on your wrecking ball*
 
-*Now my home’s here in these meadowlands where mosquitoes grow big as airplanes*  
-*Here where the blood is spilled, the arena’s filled, and giants played their games*  
-*So raise up your glasses and let me hear your voices call*  
+*Now my home’s here in these meadowlands where mosquitoes grow big as airplanes*
+*Here where the blood is spilled, the arena’s filled, and giants played their games*
+*So raise up your glasses and let me hear your voices call*
 *Because tonight all the dead are here, so bring on your wrecking ball*
 
 Anthropomorphized arenas are not the stuff about which great rock songs are typically written, but Bruce uses evocative imagery and a restrained E Street Band to conjure the image of a past-his-prime prize-fighter who refuses to step aside when his day is done. He dares the next contender to try to unseat him, and he calls upon the ghosts of those who came before to have his back.
@@ -81,20 +81,20 @@ It’s a cocktail of nostalgia, defiance, and solidarity that couldn’t have be
 
 As specific as the first half of the song is, however, the second half is universal. It also holds the powerful message at the core of “Wrecking Ball.”
 
-*Yeah, we know that come tomorrow, none of this will be here*  
-*So hold tight on your anger, you hold tight on your anger*  
+*Yeah, we know that come tomorrow, none of this will be here*
+*So hold tight on your anger, you hold tight on your anger*
 *Hold tight to your anger, don’t fall to your fears*
 
-*Now when all this steel and these stories, they drift away to rust*  
-*And all our youth and beauty, it’s been given to the dust*  
-*When the game has been decided and we’re burning down the clock*  
-*And all our little victories and glories have turned into parking lots*  
-*When your best hopes and desires are scattered through the wind*  
-*And hard times come, and hard times go*  
-*And hard times come, and hard times go*  
-*And hard times come, and hard times go*  
-*And hard times come, and hard times go*  
-*And hard times come, and hard times go*  
+*Now when all this steel and these stories, they drift away to rust*
+*And all our youth and beauty, it’s been given to the dust*
+*When the game has been decided and we’re burning down the clock*
+*And all our little victories and glories have turned into parking lots*
+*When your best hopes and desires are scattered through the wind*
+*And hard times come, and hard times go*
+*And hard times come, and hard times go*
+*And hard times come, and hard times go*
+*And hard times come, and hard times go*
+*And hard times come, and hard times go*
 *Yeah just to come again*
 
 *Bring on your wrecking ball*

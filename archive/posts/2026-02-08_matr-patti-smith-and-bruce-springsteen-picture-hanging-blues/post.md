@@ -19,7 +19,7 @@ When I listen to the clip below, I can’t help but think that Bruce is getting 
 November 26, 1976 (New York City, NY)
 November 26, 1976 (New York City, NY)
 
-**Picture Hanging Blues**  
+**Picture Hanging Blues**
 **First performed:**<br>
 **Last performed:**<br>
 

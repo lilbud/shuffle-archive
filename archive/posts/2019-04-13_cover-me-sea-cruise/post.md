@@ -13,6 +13,6 @@ Originally written and recorded by Huey Smith, it became a hit when Frankie Ford
 May 28, 1976 (Annapolis, MD)
 August 16, 1981 (Morrison, CO)
 
-**Sea Cruise**  
+**Sea Cruise**
 **First performed:**<br>
 **Last performed:**<br>

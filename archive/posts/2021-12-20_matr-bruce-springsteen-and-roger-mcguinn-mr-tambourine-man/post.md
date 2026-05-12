@@ -27,6 +27,6 @@ It was the abridged Byrds’ version that became a smash hit, though. In a way, 
 October 29, 1990 (Encino, CA)
 April 23, 2008 (Orlando, FL)
 
-**Mr. Tambourine Man**  
+**Mr. Tambourine Man**
 **First performed:**<br>
 **Last performed:**<br>

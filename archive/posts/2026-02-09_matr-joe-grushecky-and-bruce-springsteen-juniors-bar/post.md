@@ -20,7 +20,7 @@ Even with a week off to recover and despite a spectacular set list, he seemed le
 (Pittsburgh, PA)
 
 **Junior’s Bar**
-First performed: May 23, 2014**  
+First performed: May 23, 2014**
 
 **Last performed: May 23, 2014**
 

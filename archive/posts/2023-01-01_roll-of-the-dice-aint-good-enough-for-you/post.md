@@ -16,29 +16,29 @@ Bruce wrote literally dozens of songs for the sessions that yielded [*Darkness o
 
 Set against a backing track that features the E Street Band at their most ebullient (Roy in particular gets a workout on this track, Clarence carries the tune on his sauntering sax, and the entire band provides raucous party rock backing vocals a la “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)“), “Ain’t Good Enough For You” is about a shallow a song as we’ll find in Bruce’s catalog. The lyrics essentially amount to: *get off my case, woman.*
 
-*Well you don’t like, don’t like the way I walk*  
-*And you don’t like, don’t like the way I talk*  
-*You criticize about me endlessly*  
-*Logic defies how you get stuck with me*  
-*And you complain about the clothes I wear*  
-*And you explain there’s other boys out there*  
-*You complain my car makes too much noise*  
+*Well you don’t like, don’t like the way I walk*
+*And you don’t like, don’t like the way I talk*
+*You criticize about me endlessly*
+*Logic defies how you get stuck with me*
+*And you complain about the clothes I wear*
+*And you explain there’s other boys out there*
+*You complain my car makes too much noise*
 *And you cry I’m always out with the boys*
 
-*Whoa whoa (whoa whoa whoa whoa)*  
-*I give up little darling (whoa whoa little darling)*  
-*Yeah no matter what I do, girl you know it’s true*  
+*Whoa whoa (whoa whoa whoa whoa)*
+*I give up little darling (whoa whoa little darling)*
+*Yeah no matter what I do, girl you know it’s true*
 *Ain’t good enough for you*
 
 Poor guy: his girl picks on the way he walks, talks, dresses, and drives. For a twenty-something rock star, is it possible to get any closer to the bone? Oh yeah:
 
-*You complain the way I love you at night*  
-*You explain I’m really not your type*  
-*If we go out, you say I’m such a bore*  
-*If we stay in, you say what are we living for*  
-*I don’t understand, there’s nothing I can do*  
-*There ain’t no way I can satisfy you*  
-*End of the night I lean in for a kiss*  
+*You complain the way I love you at night*
+*You explain I’m really not your type*
+*If we go out, you say I’m such a bore*
+*If we stay in, you say what are we living for*
+*I don’t understand, there’s nothing I can do*
+*There ain’t no way I can satisfy you*
+*End of the night I lean in for a kiss*
 *Here comes the pitch: a swing and a miss*
 
 Ouch.
@@ -59,13 +59,13 @@ Yes, it’s funny. And yes, it’s amazing that all these years later, we all kn
 
 Because that ad-libbed verse saves the song. It’s only because of these new lyrics that we can see that our protagonist is a romantic rather than a jerk:
 
-*I tried to change, I got a job in sales*  
-*I bought a shirt uptown in Bloomingdales*  
-*And babe I tried to make the latest scene*  
-*Hitting cool just like Jimmy Iovine*  
-*I bought a record with all the latest grooves*  
-*A book of love with all the latest moves*  
-*I bought some flowers and I waited at your door*  
+*I tried to change, I got a job in sales*
+*I bought a shirt uptown in Bloomingdales*
+*And babe I tried to make the latest scene*
+*Hitting cool just like Jimmy Iovine*
+*I bought a record with all the latest grooves*
+*A book of love with all the latest moves*
+*I bought some flowers and I waited at your door*
 *And you came out, didn’t want to see me no more*
 
 He’s still a loser, mind you, but for the first time in the song, we can at least see that he’s truly fond of his girl, and we sympathize with him even if we’re fortunate enough to never have had the life experience to empathize with him.
@@ -88,7 +88,7 @@ European fans have been a bit more fortunate: Bruce played the song three times 
 
 (but he *still* couldn’t get through the Iovine line without cracking up)
 
-**Ain’t Good Enough For You**  
+**Ain’t Good Enough For You**
 **Recorded:** January 1978<br>
 **Released:** *The Promise* (2010)<br>
 **First performed:** December 7, 2010 (Asbury Park, NJ)<br>

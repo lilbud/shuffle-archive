@@ -24,33 +24,33 @@ Here’s that second, superior performance–although we can’t precisely date 
 
 Gentle and tentative, 19-year-old Bruce Springsteen’s lyrics (the lyrics in the 1970 performance are identical to the earlier one) walk a tightrope between fantasy and worship. He can’t help but see Sister Teresa as a woman, and he can’t reconcile her celibate devotion.
 
-*Sister Theresa, golden hair all tucked away*  
-*Sister Theresa, she’s dressed in black*  
-*With rosary beads strung ’round her neck*  
-*What you need’s a man to love*  
+*Sister Theresa, golden hair all tucked away*
+*Sister Theresa, she’s dressed in black*
+*With rosary beads strung ’round her neck*
+*What you need’s a man to love*
 *Can you tell what I’m thinking of*
 
 
 
-*Sister Theresa, feeling her way back home*  
-*Sister Theresa, up in the morning saying her prayers*  
+*Sister Theresa, feeling her way back home*
+*Sister Theresa, up in the morning saying her prayers*
 *Sister Theresa, revealing herself to the midnight air*
 
 The artistic heart of the song is in the bridge, in which Bruce struggles to comprehend Theresa’s devotional sacrifice of earthly pleasures through a lens that could only belong to a nineteen-year-old boy:
 
-*You say you’re married to Jesus Christ*  
-*And that he’s in your bedroom every night*  
-*Why is he so hard, why does he treat you so cruel*  
+*You say you’re married to Jesus Christ*
+*And that he’s in your bedroom every night*
+*Why is he so hard, why does he treat you so cruel*
 *Is he jealous or just a fool*
 
 And if the payoff is predictable, at least it comes off more sweet than sly. Chalk that up to the earnestness of Bruce’s vocals and the inherent innocence of Vini’s recorder. (I’m not sure it’s possible to make that instrument sound sexy.)
 
-*Sister Theresa, come with me for a while*  
-*I promise I’ll make you smile*  
-*Mother Superior, come and see*  
-*Sister Frances, come and see*  
-*Mother Superior, come and see*  
-*Sister Frances, come and see*  
+*Sister Theresa, come with me for a while*
+*I promise I’ll make you smile*
+*Mother Superior, come and see*
+*Sister Frances, come and see*
+*Mother Superior, come and see*
+*Sister Frances, come and see*
 *She is gone, she is gone*
 
 
@@ -65,9 +65,9 @@ September 20, 1969 (Richmond, VA)
 1970 (exact date uncertain)
 
 **Sister Theresa**
-Never recorded**  
+Never recorded**
 
-**Never released**  
+**Never released**
 **First performed:**<br>
 **Last performed:**<br>
 

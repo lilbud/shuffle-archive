@@ -32,18 +32,18 @@ Let’s take another listen, and this time I’ll point out some of my favorite 
 
 The song’s first two verses are told by our hero’s love on the northern side of the border. This is the only time in the two songs in which we hear from her, and the reason why is immediately made clear.
 
-*For two days, the river keeps you down*  
-*Then you rise to the light without a sound*  
-*Past the playgrounds and empty switching yards*  
+*For two days, the river keeps you down*
+*Then you rise to the light without a sound*
+*Past the playgrounds and empty switching yards*
 *The turtles eat the skin from your eyes, so they lay open to the stars*
 
 Two things to note right off the bat: the first is the way Bruce abandons all metaphor when he wants to ground a song in reality. Bruce has used this device many times before, but here it’s especially effective–not only is the first verse (and the second below) devoid of metaphor, there are barely even any adjectives. This is the simple, stark narration of a mourning lover who–unlike her lost one–harbors no illusions about the nature of dreams.
 
 The second thing to note is my favorite moment in the entire song: the way Bruce tenderly inflects the word “stars” with just a hint of a vocal trill, penetrating our narrator’s stoicism for a fraction of a second to let us know that despite the hard shell of her words, her heart lies unprotected just below. It’s just a fleeting moment, but there’s no question in my mind that it’s a deliberate moment of empathy between songwriter and character.
 
-*Your clothes give way to the current and river stone*  
-*‘Till every trace of who you ever were is gone*  
-*And the things of the earth they make their claim*  
+*Your clothes give way to the current and river stone*
+*‘Till every trace of who you ever were is gone*
+*And the things of the earth they make their claim*
 *That the things of heaven may do the same*
 
 We’re about to leave our narrator behind, but before we do: take note of that last couplet. It’s a gorgeous example of Bruce’s ability to convey spirituality while constrained to plain earthly language. The imagery of turtles eating the eyelids of the deceased should by all rights horrify us; but because the narrator focuses on the way her loved one’s eyes are filled with stars as as result, neither she nor we recoil the way we might be expected to.
@@ -52,25 +52,25 @@ Similarly, she observes the creatures of the earth and the river eating away at 
 
 Our narrator says goodbye to her love (and to us) by thanking God for the time they shared and reprising (we’ll soon learn) their promise to each other to meet again someday on the banks of the river that separates them.
 
-*Goodbye, my darling, for your love I give God thanks*  
-*Meet me on the Matamoros*  
-*Meet me on the Matamoros*  
+*Goodbye, my darling, for your love I give God thanks*
+*Meet me on the Matamoros*
+*Meet me on the Matamoros*
 *Meet me on the Matamoros banks*
 
 And with this introduction of the Matamoros as the metaphorical divide between life and death, we travel two days backward in time, rejoining our hero from “Across the Border” as he crosses the desert to the river, where his love awaits on the other side.
 
-*Over rivers of stone and ancient ocean beds*  
-*I walk on twine and tire tread*  
-*My pockets full of dust, my mouth filled with cool stone*  
+*Over rivers of stone and ancient ocean beds*
+*I walk on twine and tire tread*
+*My pockets full of dust, my mouth filled with cool stone*
 *The pale moon opens the earth to its bones*
 
 
 
-*I long, my darling, for your kiss*  
-*For your sweet love I give God thanks*  
-*The touch of your loving fingertips*  
-*Meet me on the Matamoros*  
-*Meet me on the Matamoros*  
+*I long, my darling, for your kiss*
+*For your sweet love I give God thanks*
+*The touch of your loving fingertips*
+*Meet me on the Matamoros*
+*Meet me on the Matamoros*
 *Meet me on the Matamoros banks*
 
 Notice the transition here. Our narrator notes the grim reality of his surroundings, but he’s buoyed by his love and his dream, and he can’t help but view the arid desert through a lens of beauty.
@@ -79,18 +79,18 @@ Bruce gently introduces strings in this verse to ease us from lonely reality to 
 
 As night falls, our hero is hopeful. His dream is so close he can almost taste it.
 
-*Your sweet memory comes on the evenin’ wind*  
-*I sleep and dream of holding you in my arms again*  
-*The lights of Brownsville, across the river shine*  
+*Your sweet memory comes on the evenin’ wind*
+*I sleep and dream of holding you in my arms again*
+*The lights of Brownsville, across the river shine*
 *A shout rings out and into the silty red river I dive*
 
 With a new life in sight, he sets off into the river to reunite with his love. The strings are prominent now, and their beauty fills and break our heart simultaneously–because we know how this story ends.
 
-*I long, my darling, for your kiss*  
-*For your sweet love I give God thanks*  
-*A touch of your loving fingertips*  
-*Meet me on the Matamoros*  
-*Meet me on the Matamoros*  
+*I long, my darling, for your kiss*
+*For your sweet love I give God thanks*
+*A touch of your loving fingertips*
+*Meet me on the Matamoros*
+*Meet me on the Matamoros*
 *Meet me on the Matamoros banks*
 
 Our lovers will indeed meet again on the river banks one day, but tragically, today’s not that day.

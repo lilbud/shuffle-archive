@@ -16,7 +16,7 @@ Earle invited Bruce to join his band on stage for the encore set, and Bruce ende
 
 That was the only time Bruce has ever performed “Guitar Town.” For more one-time-only Earle/Springsteen performances, check out the other songs they played that night [here](https://estreetshuffle.com/?s=steve+earle).
 
-**Guitar Town**  
+**Guitar Town**
 **First performed:** February 6, 1998 (Sea Bright, NJ)<br>
 **Last performed:** February 6, 1998 (Sea Bright, NJ)<br>
 

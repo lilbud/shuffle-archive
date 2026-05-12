@@ -30,28 +30,28 @@ Bruce still sticks pretty close to that “It’s Gonna Work Out Fine” melody,
 
 The lyrics speak for themselves–not much is required in the way of analysis. This is a pure R&B pop song., with Bruce’s narrator finding all the validation he needs in the love of his girl.
 
-*Some men need riches and lots of money to spend*  
-*Some men need power to hold over other men*  
-*But not me, baby, girl you can believe*  
+*Some men need riches and lots of money to spend*
+*Some men need power to hold over other men*
+*But not me, baby, girl you can believe*
 *I’m telling you my darling*
 
 *You’re all I need in this world, girl*
 
-*Some men need fine clothes, big diamond rings*  
-*To feel like somebody some men need expensive things*  
-*But I feel like somebody, girl, every time you look at me*  
+*Some men need fine clothes, big diamond rings*
+*To feel like somebody some men need expensive things*
+*But I feel like somebody, girl, every time you look at me*
 *I don’t need nothing to remind me that*
 
 *You’re all I need in this world, girl*
 
-*And it’s hard to keep holding on*  
+*And it’s hard to keep holding on*
 *When you put your arms around me, I feel strong*
 
-*Some men need a fine home on a far hillside*  
-*Some men need a big car to show off as they ride*  
-*Some men need a pretty woman just to walk by their side*  
-*And some men need to see the fear in another man’s eyes*  
-*But all I need baby, is all I can see*  
+*Some men need a fine home on a far hillside*
+*Some men need a big car to show off as they ride*
+*Some men need a pretty woman just to walk by their side*
+*And some men need to see the fear in another man’s eyes*
+*But all I need baby, is all I can see*
 *When you wrap your loving arms around me*
 
 *You’re all I need in this world, girl*
@@ -60,7 +60,7 @@ The lyrics speak for themselves–not much is required in the way of analysis. T
 
 Bruce has never performed “All I Need” live, not even with Bonds. But as long as both men keep performing, hope is alive.
 
-**All I Need**  
+**All I Need**
 **Recorded:** Early 1982<br>
 **Released:** *On the Line* (1982)<br>
 **Never performed**

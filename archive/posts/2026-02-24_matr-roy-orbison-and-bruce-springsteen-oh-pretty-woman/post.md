@@ -30,7 +30,7 @@ Here’s their (finally) perfect cover of Roy Orbison’s “Oh, Pretty Woman”
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HDTcWqDCZi8)
 
-**Oh, Pretty Woman**  
+**Oh, Pretty Woman**
 **First performed:** January 21, 1987 (New York City, NY)<br>
 **Last performed:** August 1, 2015 (Asbury Park, NJ)<br>
 

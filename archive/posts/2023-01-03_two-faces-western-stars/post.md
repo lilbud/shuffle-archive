@@ -32,17 +32,17 @@ Editor's Note
 
 
 
-*I am become a name;*   
-*For always roaming with a hungry heart*   
-*Much have I seen and known*   
+*I am become a name;*
+*For always roaming with a hungry heart*
+*Much have I seen and known*
 *— Tennyson, “Ulysses”*
 
 — Tennyson, “Ulysses” (toward the end)
 
-*Push off, and sitting well in order smite*   
-*The sounding furrows; for my purpose holds*   
-*To sail beyond the sunset, and the baths*   
-*Of all the western stars, until I die.*   
+*Push off, and sitting well in order smite*
+*The sounding furrows; for my purpose holds*
+*To sail beyond the sunset, and the baths*
+*Of all the western stars, until I die.*
 
 ---
 
@@ -79,14 +79,14 @@ First stop, the set of a Viagra commercial.
 
 **On the set, the makeup girl brings me two raw eggs and a shot of gin**
 Then I give it all up for that little blue pill
-That promises to bring it all back to you again.*  
+That promises to bring it all back to you again.*
 
 The long-suffering makeup girl brings our star his first drink of the day, a combined breakfast and hangover cure. And then he goes out on the set and shills for Viagra. There’s some cynicism in that last line; he knows he’s selling false promises – of youth, romance, second chances – along with the pills.
 
 The chorus comes in:
 
 **Ride me down easy, ride me down easy, friend**
-Tonight the western stars are shining bright again.*  
+Tonight the western stars are shining bright again.*
 
 
 This is a patchwork chorus, assembled from the classics. The opening line comes from Billy Joe Shaver’s 1973 song “Ride Me Down Easy,” a song that envisions God as a jockey, a rider taking a horse for a gentle ride after a long and tiring race.
@@ -104,7 +104,7 @@ Next stop, the canyons above Sunset, where the song begins to feel cinematic. Th
 Mellowed by whiskey and flirtation, the narrator falls into a reverie about the one part of his life that he still loves: the days when he goes rodeo riding out in the desert. Yet even here, there’s an overwhelming sense of nostalgia.
 
 **East to the desert where the charros, they still ride and rope**
-Our American brothers cross the wire and bring the old ways with them.*  
+Our American brothers cross the wire and bring the old ways with them.*
 
 
 This is another way of trying to relive the past, then: different from Viagra but just as tempting.

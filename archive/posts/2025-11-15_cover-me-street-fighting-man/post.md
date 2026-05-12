@@ -33,7 +33,7 @@ It’s been almost 35 years since that last E Street Band cover of “Street Fig
 June 29, 1984 (St. Paul, MN)
 July 6, 1985 (London, England)
 
-**Street Fighting Man**  
+**Street Fighting Man**
 **First performed:**<br>
 **Last performed:**<br>
 

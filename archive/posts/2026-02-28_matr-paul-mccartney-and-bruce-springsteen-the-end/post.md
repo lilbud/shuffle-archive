@@ -1,4 +1,4 @@
-*And in the end, the love you take*  
+*And in the end, the love you take*
 *Is equal to the love you make*
 
 It’s one of the greatest lyrical couplets in rock history, all the more remarkable because they stand alone as the final lyrics of the final track on the final album the Beatles ever recorded.

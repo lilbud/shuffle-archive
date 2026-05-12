@@ -17,6 +17,6 @@ Bruce teased fans with “You Sexy Thing” snippets more than a dozen times in 
 December 7, 2001 (Asbury Park, NJ)
 December 8, 2001 (Asbury Park, NJ)
 
-**You Sexy Thing**  
+**You Sexy Thing**
 **First performed:**<br>
 **Last performed:**<br>

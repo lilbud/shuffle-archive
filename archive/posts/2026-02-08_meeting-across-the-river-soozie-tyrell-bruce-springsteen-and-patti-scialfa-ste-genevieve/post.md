@@ -12,7 +12,7 @@ In the interview below, Soozie explains how it all came about.
 
 Bruce and Patti reprised their roles at the release party for *White Lines* at the Stone Pony in May 2003. Other than that, Bruce has never performed this song live.
 
-**Ste. Genevieve**  
+**Ste. Genevieve**
 **Recorded:** May 2002<br>
 **Released:** *White Lines* (2003)<br>
 **First performed:** May 2, 2003 (Asbury Park, NJ)<br>

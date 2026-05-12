@@ -24,7 +24,7 @@ Even Bruce’s abandoned experiments often point the way to something better.
 
 **Out on the Run  
 **Recorded:** March 30, 1979 (rehearsals only)<br>
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

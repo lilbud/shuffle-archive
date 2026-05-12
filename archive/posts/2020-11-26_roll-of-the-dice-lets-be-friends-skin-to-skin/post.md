@@ -10,31 +10,31 @@ Fans love to lavish the hate on this song–heck, even Bruce seems embarrassed b
 
 There’s no depth to “Let’s Be Friends.” It’s a seduction song, pure and simple, and the lyrics boil down to: stop pussyfooting and start carpe dieming:
 
-*I been watchin’ you a long time*  
-*Trying to figure out where and when*  
-*We been moving down that same line*  
+*I been watchin’ you a long time*
+*Trying to figure out where and when*
+*We been moving down that same line*
 *Time is now maybe we could get skin to skin*
 
 
 
-*Don’t know when this chance might come again*  
-*Good times got a way of comin’ to an end*  
-*Don’t know when this chance might come again*  
-*Good times got a way of slippin’ away*  
+*Don’t know when this chance might come again*
+*Good times got a way of comin’ to an end*
+*Don’t know when this chance might come again*
+*Good times got a way of slippin’ away*
 *Let’s be friends, baby let’s be friends*
 
 
 
-*I know we’re different, you and me*  
-*Got a different way of walkin’*  
-*The time has come to let the past be history*  
+*I know we’re different, you and me*
+*Got a different way of walkin’*
+*The time has come to let the past be history*
 *Yeah if we could just start talkin’*
 
 
 
-*There’s a lot of talk going ’round you*  
-*Let them talk you know you’re the only one*  
-*There’s a lot of walls need tearing down*  
+*There’s a lot of talk going ’round you*
+*Let them talk you know you’re the only one*
+*There’s a lot of walls need tearing down*
 *Together we could take them down one by one*
 
 It’s easy to speculate that Bruce wrote it about the early days of his and Patti’s relationship, but I believe he was just reaching for a sound, a groove, a feeling–and this is what came out.
@@ -58,7 +58,7 @@ September 16, 2003 (Hartford, CT)
 **Let’s Be Friends (Skin to Skin)**
 **Recorded:** <br>
 **Released:** <br>
-*The Rising*  
+*The Rising*
 **First performed:** <br>
 **Last performed:**<br>
 

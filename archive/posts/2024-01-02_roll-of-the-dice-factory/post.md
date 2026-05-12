@@ -16,9 +16,9 @@ We’ll break it down, but let’s take a listen first:
 
 Let’s state the obvious, first: this is *clearly* an autobiographical song. Bruce is usually coy about how much a given song is drawn from reality, but we certainly know that his dad worked in a factory (among the many gigs Douglas Springsteen held during his life). But the most telling detail is in the second verse: “Factory takes his hearing.” We know that about his dad, too, so it would seem that “Factory” is a naked attempt to come to grips with the role and the impact the factory had on Bruce’s father and family life–despite Bruce’s timid attempt to generalize the song to simply “Man.”
 
-*Early in the morning factory whistle blows*  
-*Man rises from bed and puts on his clothes*  
-*Man takes his lunch, walks out in the morning light*  
+*Early in the morning factory whistle blows*
+*Man rises from bed and puts on his clothes*
+*Man takes his lunch, walks out in the morning light*
 *It’s the working, the working, just the working life*
 
 Or maybe it wasn’t Bruce’s intent to generalize at all. Bruce has spoken, written, and sung about how he formed his views of manhood by observing his dad, both for examples and counter-examples. So when Bruce refers to “Man” in this song, that may very well be the purest distillation of how he sees his father–Bruce’s archetype of manhood.
@@ -27,9 +27,9 @@ Semantics aside, just look at the economy in that verse–there’s not a single
 
 Well, maybe not *all* metaphor:
 
-*Through the mansions of fear, through the mansions of pain*  
-*I see my daddy walking through them factory gates in the rain*  
-*Factory takes his hearing, factory gives him life*  
+*Through the mansions of fear, through the mansions of pain*
+*I see my daddy walking through them factory gates in the rain*
+*Factory takes his hearing, factory gives him life*
 *The working, the working, just the working life*
 
 Let’s talk about those mansions for a moment. They are the only metaphor in the entire song, and I don’t believe that’s by accident.
@@ -38,10 +38,10 @@ Let’s talk about those mansions for a moment. They are the only metaphor in th
 
 When you listen to the two songs side-by-side, it’s hard not to read a note of guilt into Bruce’s subdued “Factory” vocals. His dad doesn’t have the escape of the open road that Bruce writes about (neither did Bruce, actually, when he wrote “Born to Run” — I’d argue that the road imagery of “Born to Run” is a metaphor itself for the release and escape that Bruce found in music, but that’s an essay for another day). The sacrifice that his father made for his family every day when he went to work–losing his hearing, surrendering his dreams, whittling his life even as the factory sustains it–is a theme that recurs in Bruce’s early work as he struggles to come to terms with it, until he finally confronts it head on in “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/).” (“I swear I never meant to take those things away.”)
 
-*End of the day, factory whistle cries*  
-*Men walk through these gates with death in their eyes*  
-*And you just better believe, boy, somebody’s gonna get hurt tonight*  
-*It’s the working, the working, just the working life*  
+*End of the day, factory whistle cries*
+*Men walk through these gates with death in their eyes*
+*And you just better believe, boy, somebody’s gonna get hurt tonight*
+*It’s the working, the working, just the working life*
 *Cause it’s the working, the working, just the working life*
 
 The most chilling line of the song is buried deep within that last verse: for everything the factory gives to families of the men who work within it, it exacts a price in return. For at least some of the men, the death of their dreams and aspirations gives birth to a seething, simmering anger, and Bruce implies that it’s an anger that can’t be indefinitely contained. There’s an undercurrent of abuse in that town–whether physical, verbal, or emotional (perhaps all three), we don’t know. We certainly know that for Bruce, at least, it took the form of some pretty heated late-night arguments that would be recounted on stage years later.

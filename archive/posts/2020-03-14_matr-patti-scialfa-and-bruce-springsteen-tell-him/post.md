@@ -29,6 +29,6 @@ The rest is well-documented history.
 April 13, 2002 (Asbury Park, NJ)
 May 30, 2015 (Oakland, NJ)
 
-**Tell Him**  
+**Tell Him**
 **First performed:**<br>
 **Last performed:**<br>

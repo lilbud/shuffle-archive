@@ -36,13 +36,13 @@ The result was one of the only official tracks where Bruce Springsteen is outshi
 
 Although it was never released as a single, “Man’s Job” became one of the standout tracks of Bruce’s *Human Touch* album in 1992. For its first half, it plays like a straight-up Stax classic, reimagined for a more modern, less macho era.
 
-*Well you can go out with him, play with all of his toys*  
-*But taking care of you darling ain’t for one of the boys*  
-*Oh there’s something in your soul that he’s gonna rob*  
-*And loving you baby, loving you darling*  
+*Well you can go out with him, play with all of his toys*
+*But taking care of you darling ain’t for one of the boys*
+*Oh there’s something in your soul that he’s gonna rob*
+*And loving you baby, loving you darling*
 *Loving you woman is a man’s man’s job*
 
-*Loving you’s a man’s job baby*  
+*Loving you’s a man’s job baby*
 *Loving you’s a man’s job*
 
 The conceit of “Man’s Job” is the play on the title phrase. Bruce liberates a term commonly used to gender stereotype physical labor and instead applies it to the hard emotional work required to forge and maintain a loving, supportive relationship.
@@ -51,27 +51,27 @@ The conceit of “Man’s Job” is the play on the title phrase. Bruce liberate
 
 The second verse travels similar ground as the first:
 
-*Well now his kisses may thrill those other girls that he likes*  
-*But when it comes to treating a real woman right*  
-*Well of all of his tricks no they won’t be enough*  
-*‘Cause loving you baby, loving you woman*  
+*Well now his kisses may thrill those other girls that he likes*
+*But when it comes to treating a real woman right*
+*Well of all of his tricks no they won’t be enough*
+*‘Cause loving you baby, loving you woman*
 *Loving you darling is a man’s man’s job*
 
 But as usual, it’s the bridge that gives away the game.
 
-*You’re dancing with him, he’s holding you tight*  
-*I’m standing here waiting to catch your eye*  
-*Your hand’s on his neck as the music sways*  
+*You’re dancing with him, he’s holding you tight*
+*I’m standing here waiting to catch your eye*
+*Your hand’s on his neck as the music sways*
 *All my illusions slip away*
 
 Notice how Bruce’s warm, smooth vocals slip away as he enters the bridge, along with his narrator’s cool confidence. His voice arches with anxiety as we discover that the entire song until this point has been the narrator’s inner monologue as he watches from the sidelines as his love interest draws close to another.
 
 If he’s trying to psych himself up, it’s not working. Our would-be hero is rooted in place, unable to work up the courage to ask her to dance let alone prove his love.
 
-*Now if you’re looking for a hero, someone to save the day*  
-*Well darling my feet they’re made of clay*  
-*But I’ve got something in my soul I wanna give it up*  
-*But getting up the nerve, getting up the nerve*  
+*Now if you’re looking for a hero, someone to save the day*
+*Well darling my feet they’re made of clay*
+*But I’ve got something in my soul I wanna give it up*
+*But getting up the nerve, getting up the nerve*
 *Getting up the nerve is a man’s man’s job*
 
 The last lines leave us with a cliffhanger: he seems poised to move, but will he? Bruce seems content to let us decide for ourselves.

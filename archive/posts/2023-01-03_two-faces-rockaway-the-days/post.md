@@ -16,7 +16,7 @@ Editor's Note
 
 The 1984 outtake “Rockaway the Days” opens with a poignant little guitar riff, cheerful and reassuring and wistful all at once. Then we hear Springsteen’s voice, telling a grim story with the sing-song cadences of a lullaby:
 
-*Billy got out of prison but he wasn’t right*   
+*Billy got out of prison but he wasn’t right*
 *Some like to drink or gamble; Billy liked to fight*
 
 [https://www.youtube.com/embed/eu5sSFAC5-U?feature=oembed](https://www.youtube.com/embed/eu5sSFAC5-U?feature=oembed)
@@ -29,16 +29,16 @@ Ken has already explored the links between this song and the earlier outtake “
 
 “Rockaway the Days” is one of Springsteen’s rare third-person stories, and the opening drops us abruptly into the middle of a man’s life. There’s no introduction, no backstory, no insight into Billy’s mind, just a concise summary of his problem. Billy has an addiction to fighting, and prison has done nothing to cure it.
 
-*He tracked back to his home state of Maryland*   
+*He tracked back to his home state of Maryland*
 *Went to his ma’s mobile home, where she took him in, all right*
 
 Again, the narration is oddly flat, yet every detail is telling. The mother’s poverty, the absent father, the words “home state” instead of “home,” the plodding solo journey – everything tells us we’re watching someone without many chances in life. We learn that Billy’s mother took him in, which tells us two things: that he had to ask, and that there was a chance she might say no.
 
 Springsteen ends the verse with a casual, soothing “All right,” as if he’s checking in with his listeners, making sure we’re with him. That “all right” leads us into the chorus, where the whole tone of the song changes:
 
-*Rockaway the days, rockaway the nights*   
-*Gimme something to last me, baby, ’til the morning light*   
-*I ain’t lookin’ for trouble, I ain’t looking for a fight*   
+*Rockaway the days, rockaway the nights*
+*Gimme something to last me, baby, ’til the morning light*
+*I ain’t lookin’ for trouble, I ain’t looking for a fight*
 *Honey rockaway these days, rockaway these nights*
 
 We’re no longer in the past; whatever’s happening in the chorus is happening right now. We’re no longer listening to a detached third-person narrative; there’s a real, vulnerable person here now, speaking to us directly, asking for comfort.
@@ -49,14 +49,14 @@ And by “comfort,” of course, I mean sex. This is a song like “Because the 
 
 The singer takes up Billy’s story again, running quickly through the big events of his life, his courtship and marriage. (In what may be Springsteen’s laziest rhyme ever, he names Billy’s wife “Mary Dove” so that her name will rhyme with “love.” Oof.)
 
-*Billy swore to Mary he’d always love her so*   
+*Billy swore to Mary he’d always love her so*
 *They were married in the valley where the river flows, all right*
 
 Once again we get just the bare facts, a year or two of Billy’s life summed up in a few quick lines. A brief glimpse of a rural community, of church picnics and riverside weddings, of Billy trying to fit into domestic life. Once again Springsteen ends the verse with that gentle “all right” that suggests it’s not all right at all.
 
 Another chorus, another appeal for human warmth and protection, and then we’re in the longest stretch of Billy’s story, three verses with nothing to break them up. Billy’s compulsion to fight catches up with him, and “fight” turns out to be a mild word for what he does.
 
-*At a roadside bar Billy argued with a young man*   
+*At a roadside bar Billy argued with a young man*
 *And he settled that argument with a razor in his hand*
 
 Billy flees, but unlike his counterparts in “Highway Patrolman” and “Losin’ Kind” and “” he doesn’t immediately hit the highway. He doesn’t have a car, for one thing, and he’s spent the last few years trying to fit into a community. He turns for refuge not to the open road but to people: his wife, his mother, a neighbor. But it’s too late; all his chances have run out. This time, when he asks to be taken in, no one is going to say yes.
@@ -65,14 +65,14 @@ Billy flees, but unlike his counterparts in “Highway Patrolman” and “Losin
 
 Billy goes first to Mary, and her reaction tells us something of what life with him must have been like.
 
-*With blood on his shirt back to Mary he did run*   
+*With blood on his shirt back to Mary he did run*
 *She sighed “Billy, oh Billy, what have you done?”*
 
 She’s grieved, but not surprised, and she knows immediately that Billy has hurt someone. Billy tries again at his mother’s house, but doesn’t even get in the door.
 
-*He ran to his ma’s trailer but the lights were dim*   
-*He pounded on the door, she wouldn’t let him in*   
-*Up the road to a neighbor’s house he drew near*   
+*He ran to his ma’s trailer but the lights were dim*
+*He pounded on the door, she wouldn’t let him in*
+*Up the road to a neighbor’s house he drew near*
 *They said “Billy go away, we don’t want no trouble ’round here”*
 
 What has Billy done already, how many people has he hurt, that his family and friends see him approaching and assume correctly that he’s done something terrible?
@@ -83,7 +83,7 @@ The chorus comes back, and now, with Billy’s story complete and finished behin
 
 Then something unexpected happens: the song keeps going. For the first time, that insistent guitar riff drops out, and in the hush of its absence, the narrator reflects on the world he lives in.
 
-*Rich man want the power and the seat on the top*   
+*Rich man want the power and the seat on the top*
 *Poor man want the money that the rich man got*
 
 Sound familiar? Six years before, in “,” Springsteen sang confidently,
@@ -92,8 +92,8 @@ Sound familiar? Six years before, in “,” Springsteen sang confidently,
 
 
 
-*Poor man wanna be rich, rich man wanna be king*   
-*And a king ain’t satisfied till he rules everything*   
+*Poor man wanna be rich, rich man wanna be king*
+*And a king ain’t satisfied till he rules everything*
 *I wanna go out tonight, I wanna find out what I got*
 
 [https://www.youtube.com/embed/SDlSCeQXbPo?feature=oembed](https://www.youtube.com/embed/SDlSCeQXbPo?feature=oembed)
@@ -104,7 +104,7 @@ And there’s no better encapsulation of the change from to than these two mirro
 
 What other person? We’re about to find out.
 
-*Honey, tonight I’m feeling so tired and unsure*   
+*Honey, tonight I’m feeling so tired and unsure*
 *Come on in, Mary, shut the light, close the door.*
 
 If “Rockaway the Days” were a movie, this would be the moment when the audience collectively gasps. This is a Big Reveal. The singer, lost in his thoughts, hears a knock and turns to answer the door. Who’s that on the other side? Why, it’s our old friend Mary!
@@ -127,9 +127,9 @@ As a 1984 outtake, “Rockaway the Days” bridges the gap between two albums. W
 
 Springsteen gives us a final chorus:
 
-*Rockaway the days, rockaway the nights*   
-*Gimme something to last me, baby, ’til the morning light*   
-*I ain’t lookin’ for trouble, I ain’t looking for a fight*   
+*Rockaway the days, rockaway the nights*
+*Gimme something to last me, baby, ’til the morning light*
+*I ain’t lookin’ for trouble, I ain’t looking for a fight*
 *Honey rockaway these days, rockaway these nights*
 
 And now that we know who these people are, whose tryst we’re witnessing, we can finally see all the emotional layers to it. It’s partly an instinctive response to tragedy: life asserting itself in the face of death. It’s partly self-protection: the singer turning away from a world in which stories like Billy’s happen and taking refuge in sex. But we’re also watching someone trying his hardest not to be Billy, to stay connected, to get through one day at a time for as long as he can.

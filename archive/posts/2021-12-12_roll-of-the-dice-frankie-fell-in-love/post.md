@@ -1,4 +1,4 @@
-*Good morning, good morning!*  
+*Good morning, good morning!*
 *The church mouse is snoring  
 News is out all over town: Frankie fell in love!*
 
@@ -14,7 +14,7 @@ And then out of the blue came the *High Hopes* album, a grab bag of songs with n
 
 From the January 9, 2014 issue of Rolling Stone:
 
-**Tell me about “Frankie Fell In Love.” That has a very different feel than the rest of the album.**  
+**Tell me about “Frankie Fell In Love.” That has a very different feel than the rest of the album.**
 “That one was one of those songs that's fun to write and might have come out somewhere around *Magic*. Then I recut pieces of it, certainly the drums. Actually, I know what that was: that was a song I had that we cut for *Magic* and didn't use the version that we cut. I also had a great demo of it. I have demos of most of these records that I make on my own, and once in a while you don't beat one. That was one of those. I just loved it lyrically, and I thought that it's a great thing for Steve and myself. It's just a great little Faces-type rock song. I always had it sitting around as one of my favorite straight-up E Street Band rock songs, so we went in and did some new cutting on that with Steve and drums and bass.”
 
 Judging from the promotional footage Bruce put out for the album, I think he mis-remembers: from his appearance and the ski-cap, this looks to be from the *Working on a Dream* sessions (the promo footage from that album clearly shows Bruce recording those songs on the same day (or at least dressed the same way). You can see the original recording session and hear Bruce talk about the song’s origins here:
@@ -25,36 +25,36 @@ Bruce has also said in interviews that he wrote this song to evoke the time he l
 
 Is Frankie either Bruce or Steve? Probably, but only the two of them can say which of them play the title character. Either way, this is a song about what it’s like on the first day you realize you’re in love, and how that new love feels like it’s the most important thing in the world at that moment. Start spreading the news:
 
-*Good morning, good morning!*  
-*The church mouse is snoring*  
+*Good morning, good morning!*
+*The church mouse is snoring*
 *News is out all over town: Frankie fell in love!*
 
-*Wake up, boys, wake up!*  
-*You drunken choir boys, shake it up!*  
+*Wake up, boys, wake up!*
+*You drunken choir boys, shake it up!*
 *Our Juliet says her Romeo’s been found–Frankie fell in love*
 
 *World peace is gonna break out  
-From here on in we’re eating take out*  
-*She ain’t gonna be cooking for the likes of us*  
+From here on in we’re eating take out*
+*She ain’t gonna be cooking for the likes of us*
 *Somebody call mama and just tell her: Frankie fell in love*
 
 But the crux of the song is the second verse, which features Einstein and Shakespeare representing the head and the heart, trying to figure out the secret of happiness through Springsteen arithmetic:
 
-*Einstein and Shakespeare sitting having a beer*  
-*Einstein trying to figure out the number that adds up to bliss*  
+*Einstein and Shakespeare sitting having a beer*
+*Einstein trying to figure out the number that adds up to bliss*
 *Shakespeare says, “Man, it all starts with a kiss”*
 
-*Einstein is scratching numbers on his napkin*  
-*Shakespeare says, “Man, it’s just one and one make three*  
+*Einstein is scratching numbers on his napkin*
+*Shakespeare says, “Man, it’s just one and one make three*
 *That’s why it’s poetry”*
 
 Those are some of my favorite Bruce lyrics right there. The rest of the song simply traces the arc of the day. Nothing eventful happens, and that’s the point: the only thing that matters on Day One of new love is new love.
 
-*Glory, glory, it’s the same old story*  
-*Kid, there ain’t nothing anybody can do*  
+*Glory, glory, it’s the same old story*
+*Kid, there ain’t nothing anybody can do*
 *It’s gonna happen to you, just like: Frankie fell in love*
 
-*Good evening, good evening, the church mouse is sleeping*  
+*Good evening, good evening, the church mouse is sleeping*
 *News is out all over town, Frankie fell in love*
 
 Musically, the E Street band is as buoyant as the lyrics, with a loose melody punctuated by (of course) a cowbell carrying the rhythm even once Max’s drums kick in. For another example of a Bruce melody diverging like two roads in the woods, go and listen to Bruce’s “[American Beauty](https://estreetshuffle.com/index.php/2019/02/21/roll-of-the-dice-american-beauty/)” after listening to “Frankie Fell in Love” and you’ll hear how Bruce took the same basic riff and went in two different directions with it.
@@ -65,7 +65,7 @@ Bruce inevitably introduces the song by referencing its underlying arithmetic. A
 
 [Watch on Youtube: Frankie Fell in Love - Springsteen - Mohegan Sun Arena, CT - May 17, 2014 (Better Audio)](https://www.youtube.com/watch?v=kMND-6X9XzA)
 
-**Frankie Fell in Love**  
+**Frankie Fell in Love**
 **Recorded:** 2008 (probably)<br>
 **Released:** *High Hopes* (2014)<br>
 **First performed:** January 18, 2014 (Asbury Park, NJ)<br>

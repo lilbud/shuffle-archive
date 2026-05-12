@@ -16,7 +16,7 @@ The all-star set kicked off with “I Played the Fool,” and although the sound
 
 [https://www.youtube.com/embed/yXHBxZVvT5E?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/yXHBxZVvT5E?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**I Played the Fool**  
+**I Played the Fool**
 **First performed:** July 16, 1994 (Asbury Park, NJ)<br>
 **Last performed:** January 31, 1998 (Red Bank, NJ)<br>
 

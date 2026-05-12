@@ -26,36 +26,36 @@ And come on: even if you didn’t know Bruce is singing about his character’s 
 
 If we take his word for it, though, we might consider “Ramrod” as much a courtship song as a seduction song (although certainly not a subtle one on either count), because our narrator spends the entire song trying to convince his little dolly/little baby/little sugar/little girl (congratulations if you’ve got your Springsteen Female Infantilizing Bingo card in front of you, don’t forget to fill in that free space!) to have sex with him all night.
 
-*Well hey little dolly with the blue jeans on*  
-*I wanna ramrod with you, honey, till half-past dawn*  
-*Let your hair down, mama, and pick up this beat*  
-*Come on and meet me tonight down on Bluebird Street*  
-*I’ve been working all week, I’m up to my neck in hock*  
+*Well hey little dolly with the blue jeans on*
+*I wanna ramrod with you, honey, till half-past dawn*
+*Let your hair down, mama, and pick up this beat*
+*Come on and meet me tonight down on Bluebird Street*
+*I’ve been working all week, I’m up to my neck in hock*
 *Hey, come Saturday night I let my ramrod rock*
 
 He’s got the moves, and he’s got the words. Who could resist a charmer who tells you he thinks about you while he “unwinds” each night?
 
-*Well she’s a hot stepping hemi with a four on the floor*  
-*And she’s a roadrunner engine in a ’32 Ford*  
-*Yeah late at night when I’m dead on the line*  
-*I swear I think of your pretty face when I let her unwind*  
-*Well look over yonder see them city lights*  
+*Well she’s a hot stepping hemi with a four on the floor*
+*And she’s a roadrunner engine in a ’32 Ford*
+*Yeah late at night when I’m dead on the line*
+*I swear I think of your pretty face when I let her unwind*
+*Well look over yonder see them city lights*
 *Well come on little dolly and go ramrodding tonight*
 
 He spends the bridge pleading with his girl to hop into bed with him…
 
-*Well I said come on, come on, come on little baby*  
-*Come on, come on let’s shake it tonight*  
-*Come on, come on, come on little sugar*  
+*Well I said come on, come on, come on little baby*
+*Come on, come on let’s shake it tonight*
+*Come on, come on, come on little sugar*
 *Dance with your daddy and we’ll go ramrodding tonight*
 
 …and he’s willing to take her directly to the altar if she does.
 
-*Well hey little dolly won’t you say you will*  
-*Meet me tonight up on top of the hill*  
-*Well just a few miles ‘cross the county line*  
-*There’s a cute little chapel nestled down in the pines*  
-*Say you’ll be mine little girl, I’ll put my foot to the floor*  
+*Well hey little dolly won’t you say you will*
+*Meet me tonight up on top of the hill*
+*Well just a few miles ‘cross the county line*
+*There’s a cute little chapel nestled down in the pines*
+*Say you’ll be mine little girl, I’ll put my foot to the floor*
 *Give me the word now, sugar, we’ll go ramrodding forevermore*
 
 And that’s pretty much the whole song, lyrically at least.

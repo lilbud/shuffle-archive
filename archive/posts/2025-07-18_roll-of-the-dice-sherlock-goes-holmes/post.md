@@ -9,7 +9,7 @@ Give a listen to this Steel Mill original instrumental jam (only performed three
 July 17, 1970 (Asbury Park, NJ)
 October 11, 1970 (Richmond, VA)
 
-**Sherlock Goes Home**  
+**Sherlock Goes Home**
 **First performed:** <br>
 **Last performed:**<br>
 

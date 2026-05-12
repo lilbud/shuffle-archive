@@ -38,7 +38,7 @@ We knew Bruce had a particular fondness for “Don’t Play That Song” when he
 
 It’s still early, but “Don’t Play That Song” shows every sign of becoming an ironically welcome addition to Bruce’s set lists from now on.
 
-**Don’t Play That Song**  
+**Don’t Play That Song**
 **Recorded:** 2021<br>
 **Released:** *Only the Strong Survive* (2022)<br>
 **First performed:** November 15, 2022 (New York City, NY)<br>

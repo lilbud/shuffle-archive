@@ -16,22 +16,22 @@ Lyrically, we can make out enough of “She’s a Woman” to get a sense of the
 
 Whoever this woman is, Bruce seems more obsessed by her effect on him rather than on anything about the woman herself. “She’s a Woman” is more about wordplay and guitar jams than it is a tale, romantic or otherwise.
 
-*She brings me down, she sends me down*  
-*She brings me down, she’s my woman*  
-*Now she’ll pick me up, she picks me up on Saturday*  
+*She brings me down, she sends me down*
+*She brings me down, she’s my woman*
+*Now she’ll pick me up, she picks me up on Saturday*
 *She drinks me up, oh but my woman…*
 
 
 
-*She lays me down, she plays me down, she weighs me down*  
+*She lays me down, she plays me down, she weighs me down*
 *She’s my woman, she’s my queen, she’s my woman*
 
 
 
-*She makes me smile, she drives me wild*  
-*She ???, she’s my woman*  
-*She cries “Where you been?”*  
-*She can make you grin*  
+*She makes me smile, she drives me wild*
+*She ???, she’s my woman*
+*She cries “Where you been?”*
+*She can make you grin*
 *She can put you in, I’m her partner*
 
 
@@ -48,9 +48,9 @@ December 17, 1971 (New Brunswick, NJ)
 February 17, 1972 (Freehold, NJ)
 
 **She’s a Woman**
-Never recorded**  
+Never recorded**
 
-**Never released**  
+**Never released**
 **First performed:**<br>
 **Last performed:**<br>
 

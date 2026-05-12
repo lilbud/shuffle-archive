@@ -6,7 +6,7 @@ The original, of course, was by Sting’s former band, The Police. Released in 1
 
 [https://www.youtube.com/embed/nH0vjLwMyc4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/nH0vjLwMyc4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**Can’t Stand Losing You**  
+**Can’t Stand Losing You**
 **First Performed:** October 1, 2011 (New York City, NY)<br>
 **Last Performed:** October 1, 2011 (New York City, NY)<br>
 

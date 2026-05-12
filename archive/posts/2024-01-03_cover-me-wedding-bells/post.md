@@ -31,6 +31,6 @@ We’ll pick up that story in
 December 12, 1975 (Greenvale, NY) – soundcheck only
 September 20, 1978 (Passaic, NJ) – soundcheck only
 
-**Wedding Bells**  
+**Wedding Bells**
 **First performed:** <br>
 **Last performed:**<br>

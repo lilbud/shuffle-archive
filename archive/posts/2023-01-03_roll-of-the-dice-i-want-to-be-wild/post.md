@@ -18,33 +18,33 @@ We can make out enough of the constantly repeated chorus to agree that Bruce is 
 
 What follows is a transcription from the kind folks at springsteenlyrics.com, but don’t ask me to vouch for it–I can’t make out even a fraction of what they purport to. (And what they do transcribe doesn’t make a whole lot of sense to me.)
 
-*I’m staying, I’m staying, but baby you’re killing me*  
-*And you know, you darlin’, you better now make it on time*  
-*And I want a forever and ever with you around*  
-*You’re running with speed and, uh, you better learn to work hard*  
+*I’m staying, I’m staying, but baby you’re killing me*
+*And you know, you darlin’, you better now make it on time*
+*And I want a forever and ever with you around*
+*You’re running with speed and, uh, you better learn to work hard*
 *There’s nothing at all, no one’s like us, no one is there outside*
 
 
 
-*O-oh*  
-*I wanna be wild*  
-*I wanna be wild*  
-*I wanna be wild*  
+*O-oh*
+*I wanna be wild*
+*I wanna be wild*
+*I wanna be wild*
 *I wanna be wild*
 
 
 
-*Hey maybe you’re cool but baby you’re both’rin me*  
-*And only you can put me out of my misery*  
-*And I go out in the street for my love every time*  
-*And I wanna show love swinging round, when you’re around*  
+*Hey maybe you’re cool but baby you’re both’rin me*
+*And only you can put me out of my misery*
+*And I go out in the street for my love every time*
+*And I wanna show love swinging round, when you’re around*
 *I don’t remember, maybe you’ve been feelin’ a motor outside*
 
 
 
-*Oooh wild*  
-*I wanna be wild*  
-*I wanna be wild*  
+*Oooh wild*
+*I wanna be wild*
+*I wanna be wild*
 *I wanna be wild*
 
 
@@ -53,22 +53,22 @@ What follows is a transcription from the kind folks at springsteenlyrics.com, bu
 
 
 
-*Right now I wanna drive wild*  
-*And I wanna drive wild*  
-*And I wanna be wild*  
-*And I wanna go wild*  
-*And I wanna go wild*  
-*And I wanna go wild*  
-*And I wanna go wild*  
-*And I wanna go wild*  
-*Want you to kiss me wild*  
-*And I wanna be wild*  
-*And I wanna go wild*  
-*And I wanna be wild*  
-*And I wanna see wild*  
-*And I wanna feel wild*  
-*And I wanna be wild*  
-*And I wanna be wild*  
+*Right now I wanna drive wild*
+*And I wanna drive wild*
+*And I wanna be wild*
+*And I wanna go wild*
+*And I wanna go wild*
+*And I wanna go wild*
+*And I wanna go wild*
+*And I wanna go wild*
+*Want you to kiss me wild*
+*And I wanna be wild*
+*And I wanna go wild*
+*And I wanna be wild*
+*And I wanna see wild*
+*And I wanna feel wild*
+*And I wanna be wild*
+*And I wanna be wild*
 *It’s up to you, no one knows, no one is there outside*
 
 So, yeah… sure. We’ll go with that.
@@ -86,7 +86,7 @@ November 11, 1977 (demo only)
 **I Want to Be Wild**
 **Recorded:** <br>
 
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -33,7 +33,7 @@ Bruce has played “Little Queenie” at least once a decade since the 1970s, so
 September 1, 1971 (Long Branch, NJ)
 August 23, 2008 (St. Louis, MO)
 
-**Little Queenie**  
+**Little Queenie**
 **First performed:**<br>
 **Last performed:**<br>
 

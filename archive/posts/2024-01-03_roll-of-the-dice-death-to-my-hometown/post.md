@@ -16,45 +16,45 @@ It’s easy to imagine that our “Death to My Hometown” protagonist remembers
 
 Lyrically, “Death to My Hometown” is as straightforward as Bruce ever gets; he takes no chances of anyone mistaking his message. Our first two verses are flashbacks, just as they were in “My Hometown.” There’s no nostalgia on display here, though: both verses dwell on the town’s destruction.
 
-*Well, no cannonballs did fly, no rifles cut us down*  
-*No bombs fell from the sky, no blood soaked the ground*  
-*No powder flash blinded the eye, no deathly thunder sounded*  
-*But just as sure as the hand of God, they brought death to my hometown*  
+*Well, no cannonballs did fly, no rifles cut us down*
+*No bombs fell from the sky, no blood soaked the ground*
+*No powder flash blinded the eye, no deathly thunder sounded*
+*But just as sure as the hand of God, they brought death to my hometown*
 *They brought death to my hometown, boys*
 
-*No shells ripped the evening sky, no cities burning down*  
-*No army stormed the shores for which we’d die, no dictators were crowned*  
-*I awoke from a quiet night, I never heard a sound*  
-*The marauders raided in the dark and brought death to my hometown, boys*  
+*No shells ripped the evening sky, no cities burning down*
+*No army stormed the shores for which we’d die, no dictators were crowned*
+*I awoke from a quiet night, I never heard a sound*
+*The marauders raided in the dark and brought death to my hometown, boys*
 *Death to my hometown*
 
 Our narrator keeps us in the dark for the first half of the song. We know his town was devastated, but we don’t know how or why. We know what it *wasn’t*, though: it wasn’t a war. There were no weapons, no armies, and no signals–just swift, merciless destruction in the metaphorical night by faceless marauders.
 
 Only in the bridge do we get our first clue that the death he speaks of is an economic one–which, we should note, is exactly where “My Hometown” takes its turn as well.
 
-*They destroyed our families, factories, and they took our homes*  
+*They destroyed our families, factories, and they took our homes*
 *They left our bodies on the plains, the vultures picked our bones*
 
 Compare that bridge with the one from 1984:
 
-*Now Main Street’s whitewashed windows and vacant stores*  
+*Now Main Street’s whitewashed windows and vacant stores*
 *Seems like there ain’t nobody wants to come down here no more*
 
 That stark contrast tees up the final verse of “Death to My Hometown,” where the son of “My Hometown” addresses his own son years later. Instead of telling his sons (it appears he has at least two) to take a good long last look around before their family leaves town, he urges them to take up arms–metaphorically at least.
 
-*So listen up, my sonny boy, be ready for when they come*  
-*For they’ll be returning sure as the rising sun*  
-*Now get yourself a song to sing and sing it ’til you’re done*  
-*Yeah, sing it hard and sing it well*  
-*Send the robber barons straight to hell*  
-*The greedy thieves who came around*  
-*And ate the flesh of everything they found*  
-*Whose crimes have gone unpunished now*  
+*So listen up, my sonny boy, be ready for when they come*
+*For they’ll be returning sure as the rising sun*
+*Now get yourself a song to sing and sing it ’til you’re done*
+*Yeah, sing it hard and sing it well*
+*Send the robber barons straight to hell*
+*The greedy thieves who came around*
+*And ate the flesh of everything they found*
+*Whose crimes have gone unpunished now*
 *Who walk the streets as free men now*
 
-*They brought death to our hometown, boys*  
-*Death to our hometown, boys*  
-*Death to our hometown, boys*  
+*They brought death to our hometown, boys*
+*Death to our hometown, boys*
+*Death to our hometown, boys*
 *Death to our hometown*
 
 The winds of change are blowing, and the father senses the same forces that gutted his boyhood hometown returning to attack his new one. Stand firm, he warns his kids. Stand firm, and resist.

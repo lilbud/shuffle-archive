@@ -24,24 +24,24 @@ Eighty years after Brandhoefer sold his heartbreak house, the great American sin
 
 [Watch on Youtube: Hank Williams - Mansion On The Hill (ORIGINAL) - (1947).](https://www.youtube.com/watch?v=pKKSMIwKfvQ)
 
-*Tonight down here in the valley*  
-*I’m lonesome and O how I feel*  
-*As I sit here alone in my cabin*  
+*Tonight down here in the valley*
+*I’m lonesome and O how I feel*
+*As I sit here alone in my cabin*
 *I can see your mansion on the hill*
 
-*Do you recall when we parted*  
-*The story to me you revealed*  
-*You said you could live without loving*  
+*Do you recall when we parted*
+*The story to me you revealed*
+*You said you could live without loving*
 *In your loveless mansion on the hill*
 
-*I’ve waited all through the years love*  
-*To give you a heart true and real*  
-*Cause I know you’re living in sorrow*  
+*I’ve waited all through the years love*
+*To give you a heart true and real*
+*Cause I know you’re living in sorrow*
 *In your loveless mansion on the hill*
 
-*The light shine bright from yer window*  
-*The trees stand so silent and still*  
-*I know you’re alone with your pride dear*  
+*The light shine bright from yer window*
+*The trees stand so silent and still*
+*I know you’re alone with your pride dear*
 *In your loveless mansion on the hill*
 
 If something in your brain tugged at you while reading those lyrics, there’s a good reason for that. While it’s pretty commonly acknowledged that Bruce Springsteen lifted the title from Hank’s 1947 recording for a song he recorded for his 1982 *Nebraska* album, Williams’ influence goes way beyond the song’s name.
@@ -58,28 +58,28 @@ But while Bruce may owe his central conceit and construction to Hank, the story 
 
 In his first two verses, Bruce establishes the metaphor: a grand house surrounded by gates of hardened steel–the symbol of a life off-limits and unattainable to those not born into it.
 
-*There’s a place out on the edge of town, sir*  
-*Rising above the factories and the fields*  
-*Now ever since I was a child I can remember*  
+*There’s a place out on the edge of town, sir*
+*Rising above the factories and the fields*
+*Now ever since I was a child I can remember*
 *That mansion on the hill*
 
-*In the day you can see the children playing*  
-*On the road that leads to those gates of hardened steel*  
-*Steel gates that completely surround, sir*  
+*In the day you can see the children playing*
+*On the road that leads to those gates of hardened steel*
+*Steel gates that completely surround, sir*
 *The mansion on the hill*
 
 The house stands above the factories and the fields, always visible to the workers below. Children play on the road that leads to it, but they’re never allowed inside.
 
 The mansion is a source of mystery and fascination. Behind its gates, inside its walls, there’s music, light, and laughter–the elements of an easy life, free of care and trouble. (The phrase, “people laughing all the time” is key–it’s how we know this vignette strikes a deeper chord with the narrator than he otherwise reveals.) The lively mansion grounds stand in stark contrast to the somber, silent and still streets of the town.
 
-*At night my daddy’d take me and we’d ride*  
-*Through the streets of a town so silent and still*  
-*Park on a back road along the highway side*  
+*At night my daddy’d take me and we’d ride*
+*Through the streets of a town so silent and still*
+*Park on a back road along the highway side*
 *Look up at that mansion on the hill*
 
-*In the summer all the lights would shine*  
-*There’d be music playing, people laughing all the time*  
-*Me and my sister we’d hide out in the tall corn fields*  
+*In the summer all the lights would shine*
+*There’d be music playing, people laughing all the time*
+*Me and my sister we’d hide out in the tall corn fields*
 *Sit and listen to the mansion on the hill*
 
 In a nightly ritual, father and son spend their summer evenings looking up at the mansion, imagining an unimaginable life. There’s an implicit statement here, one that recurs often in Bruce’s work: as it is with the father, so shall it be with the son. (We’ll witness a similar ritual a year or so later in “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/).”) Our narrator is destined to live his life on the outside of those gates, just like his father before him.
@@ -88,9 +88,9 @@ Or is he?
 
 Because in his last verse, the famously specific songwriter introduces just enough ambiguity to make us wonder.
 
-*Tonight down here in Linden Town*  
-*I watch the cars rushing by home from the mill*  
-*There’s a beautiful full moon rising*  
+*Tonight down here in Linden Town*
+*I watch the cars rushing by home from the mill*
+*There’s a beautiful full moon rising*
 *Above the mansion on the hill*
 
 There are two ways to hear this verse. Common to both of them is a flash forward to the present–we’re now listening to the grown narrator at the end of a working day. But is he following in his father’s footsteps, a worker looking up at the mansion from down in the town, dreaming of a life of luxury? Or is he now the man in the mansion, far removed from his beginnings but unable to forget them?

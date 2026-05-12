@@ -45,7 +45,7 @@ At his surprise jam with Clarence the night before, Bruce finds himself captivat
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1998-11-05-165x300.png?resize=758%2C1378)
 
-**2007:** 
+**2007:**
 The Magic Tour stops at The Palace of Auburn Hills, where Bruce plays “[I’ll Work for Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)” for the very first time. He also tour debuts “[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” and “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/).”
 
 [https://www.youtube.com/embed/9o1TbA6s2Ac?feature=oembed](https://www.youtube.com/embed/9o1TbA6s2Ac?feature=oembed)
@@ -59,7 +59,7 @@ Bruce performs three songs at the Stand Up For Heroes benefit at Town Hall in Ne
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/11/motorbike-300x220.jpg?resize=758%2C556)
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2008-11-05-245x300.png?resize=758%2C928)
 
-**2010:** 
+**2010:**
 Bruce joins Joe Grushecky and The Houserockers at Soldiers & Sailors Memorial Hall in Pittsburgh for the second of two 15th anniversary shows for [American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/). Bruce opens the show acoustically with “[Your Own Worst Enemy](http://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/),” and three other numbers before joining Joe and the band for a set that includes both Grushecky and Springsteen originals, including a fun “[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/).”
 
 
@@ -103,7 +103,7 @@ Bruce performs once again at Stand Up for Heroes, playing a five-song acoustic s
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2014-11-05-103x300.png?resize=758%2C2207)
 
-**2018:** 
+**2018:**
 Bruce makes a return appearance at Stand Up For Heroes, now in its twelfth year. In addition to his customary turn as amateur comedian, Bruce performs an acoustic mini-set that includes a fun “[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” duet with Eric Church and a beautiful “[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” with Patti.
 
 [https://www.youtube.com/embed/IuWlu5mym7U?feature=oembed](https://www.youtube.com/embed/IuWlu5mym7U?feature=oembed)

@@ -32,22 +32,22 @@ I realized with surprise that like “[Real World](https://estreetshuffle.com/in
 
 “I Wish I Were Blind” works best (and possibly only) as a solo performance. I mean *of course* it does–just listen to the lyrics:
 
-*I love to see the cottonwood blossom in the early spring*  
-*I love to see the message of love that the bluebird brings*  
-*But when I see you walking with him down along the strand*  
+*I love to see the cottonwood blossom in the early spring*
+*I love to see the message of love that the bluebird brings*
+*But when I see you walking with him down along the strand*
 *I wish I were blind when I see you with your man*
 
-*I love to see your hair shining in the long summer’s light*  
-*I love to watch the stars fill the sky on a summer night*  
-*The music plays, you take his hand, I watch how you touch him as you start to dance*  
+*I love to see your hair shining in the long summer’s light*
+*I love to watch the stars fill the sky on a summer night*
+*The music plays, you take his hand, I watch how you touch him as you start to dance*
 *And I wish I were blind when I see you with your man*
 
-*We struggle here but all our love’s in vain*  
-*Oh these eyes that once filled me with your beauty now fill me with pain*  
-*And the light that once entered here is banished from me*  
+*We struggle here but all our love’s in vain*
+*Oh these eyes that once filled me with your beauty now fill me with pain*
+*And the light that once entered here is banished from me*
 *Oh and this darkness is all baby that my heart sees*
 
-*And though this world is filled with the grace and beauty of God’s hand*  
+*And though this world is filled with the grace and beauty of God’s hand*
 *Oh I wish I were blind when I see you with your man*
 
 We are listening to the torment of a man who found true love, lost true love, and now has to watch true love pair with somebody else. Even when he’s not alone, he’s alone. That loneliness is underscored when this song is performed solo and underplayed when with a band.

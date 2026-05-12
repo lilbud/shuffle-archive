@@ -12,7 +12,7 @@ This recording of “Baby, I Love You” is from Ronnie’s very first on-stage 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jdWqZ3U-e68)
 
-**Baby, I Love You**  
+**Baby, I Love You**
 **First performed:** November 4, 1976 (New York City, NY)<br>
 **Last performed:** May 13, 1977 (Red Bank, NJ)<br>
 

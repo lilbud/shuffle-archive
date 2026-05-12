@@ -42,11 +42,11 @@ Still other early lyrics revolve around Billy and Lou, and sometimes the action 
 
 But the events chronicled within remain largely unchanged:
 
-*Jamey rides in high boots, breaks his drink and wades in the river*  
-*Holds his gun above the water and crosses to the shore*  
-*Now the Christian army awaits you, and Jessie is still waiting to date you*  
-*Those phantoms fly in strict formation over the hills of Saint George*  
-*Now the rebel life is lonely, oh but them mountains are soft with freedom*  
+*Jamey rides in high boots, breaks his drink and wades in the river*
+*Holds his gun above the water and crosses to the shore*
+*Now the Christian army awaits you, and Jessie is still waiting to date you*
+*Those phantoms fly in strict formation over the hills of Saint George*
+*Now the rebel life is lonely, oh but them mountains are soft with freedom*
 *To be free is to be lonely, oh lonely lonely lonely lonely*
 
 Yep, the songwriter is in full Western mode for one last time. Maybe we should call him Steampunk Bruce, though, because “Phantoms” is a strange amalgamation of a Western rider in an 18th century war in Belize with American F-4 fighter jets screaming overhead. So there’s that. Or maybe St. George refers to the Utah town, although that’s doubtful given the St. Croix variants. Best not to think too hard about it.
@@ -55,18 +55,18 @@ And anyway, the key to the song is in the last two lines of the first verse, the
 
 Let’s continue:
 
-*Jamey rides down a broken highway, the heat of the sun tends to bring him down*  
-*His field is full of crazy visions of negroes and white women in evening gowns*  
-*And he hears Jessie calling to him in the hills*  
-*Oh she calls to him from the clouds*  
+*Jamey rides down a broken highway, the heat of the sun tends to bring him down*
+*His field is full of crazy visions of negroes and white women in evening gowns*
+*And he hears Jessie calling to him in the hills*
+*Oh she calls to him from the clouds*
 *And the men are working in the fields*
 
 I’m not exactly sure what to make of the “negroes” reference, especially since it’s absent from earlier versions; the uncertain historical and geographical setting makes it difficult to pin down what Bruce intended here. So let’s instead just focus on the fact that Jamey is getting a little road-crazy, possibly with some heat stroke layered on top. In the rhythmic work of the rock-splitters, he thinks he hears his girl calling out to him.
 
-*Oh listen to ’em work (oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*  
-*Oh busting rocks (oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*  
-*Oh busting those rocks (oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*  
-*(Oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*  
+*Oh listen to ’em work (oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*
+*Oh busting rocks (oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*
+*Oh busting those rocks (oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*
+*(Oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*
 *(Oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-ohhh oh)*
 
 The song goes on from here, but truthfully it doesn’t go anywhere–the verses repeat, the chanting repeats, as Jamey continues riding down that long lonely road and Jessie continues calling him home.
@@ -75,9 +75,9 @@ Does Jamey ever make it back to Jessie? We never find out, but I’d wager the a
 
 Miles to go is miles away.
 
-**Phantoms**  
+**Phantoms**
 **Recorded:** June 1973<br>
-**Never released**  
+**Never released**
 **First performed:** June 13, 1973 (Binghamton, NY)<br>
 **Last performed:** June 13, 1973 (Binghamton, NY)<br>
 

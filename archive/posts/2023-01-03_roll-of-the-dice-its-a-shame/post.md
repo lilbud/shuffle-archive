@@ -12,25 +12,25 @@ Some of the tracks on *The Promise* are vintage, some had some modern elements a
 
 There’s nothing remarkable here lyrically, either. Bruce turns in a fairly pedestrian lament about a guy who just can’t seem to make his girl happy. It’s neither his first nor his best draw from this particular well. It’s not even the best one on that album–“[Ain’t Good Enough For You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)” is basically the same song and far superior.
 
-*Well I walk the way you want me to*  
-*And I’ll talk the way you want me to*  
+*Well I walk the way you want me to*
+*And I’ll talk the way you want me to*
 *And I’ve tried to do all I can just to please you*
 
-*Well I work hard every day for you*  
-*And I brought home all my pay for you*  
+*Well I work hard every day for you*
+*And I brought home all my pay for you*
 *And I’ve cried my tears through the rain, at night and again*
 
-*And oh whoa girl, it’s a shame*  
-*Oh whoa girl, it’s a doggone shame*  
-*We worked so hard, but it’s all in vain*  
+*And oh whoa girl, it’s a shame*
+*Oh whoa girl, it’s a doggone shame*
+*We worked so hard, but it’s all in vain*
 *Oh whoa girl, it’s a shame*
 
-*Now I bought you gold and diamond rings*  
-*And I brought you home your pretty things*  
+*Now I bought you gold and diamond rings*
+*And I brought you home your pretty things*
 *And I thought I’d shown all the love I had for you, yes I did*
 
-*But as hard as I try it all falls through*  
-*Well maybe I was born to be just your fool*  
+*But as hard as I try it all falls through*
+*Well maybe I was born to be just your fool*
 *Trying to satisfy your every desire, each need you require*
 
 If there’s anything historically or artistically significant about “It’s a Shame,” it’s in the riff. Bruce held on to it and evolved it into a full-fledged melody. It took him a while to find the right words to pair with it (in a parallel universe it backs the lyrics for “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)“), but by September [he’d found them](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/).

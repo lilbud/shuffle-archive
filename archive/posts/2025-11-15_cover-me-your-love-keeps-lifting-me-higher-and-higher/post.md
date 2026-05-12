@@ -55,7 +55,7 @@ That was an inspired request, and an inspired performance–and Bruce knew it, b
 March 24, 1977 (Boston, MA)
 January 17, 2015 (Asbury Park, NJ)
 
-**(Your Love Keeps Lifting Me) Higher and Higher**   
+**(Your Love Keeps Lifting Me) Higher and Higher**
 **First performed:** <br>
 **Last performed:**<br>
 

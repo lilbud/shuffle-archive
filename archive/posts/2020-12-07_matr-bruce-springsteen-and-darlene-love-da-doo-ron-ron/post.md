@@ -29,6 +29,6 @@ Over the years, varying accounts have credited Love with lead vocals or backing 
 September 20, 2009 (Chicago, IL)
 October 29, 2009 (New York City, NY)
 
-**Da Doo Ron Ron**  
+**Da Doo Ron Ron**
 **First performed:**<br>
 **Last performed:**<br>

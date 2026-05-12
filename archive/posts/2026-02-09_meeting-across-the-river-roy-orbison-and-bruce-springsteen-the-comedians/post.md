@@ -17,7 +17,7 @@ Roy’s 1987 performance remains the definitive version, however. Bruce takes a 
 September 30, 1987 (Los Angeles, CA)
 September 30 ,1987 (Los Angeles, CA)
 
-**The Comedians**   
+**The Comedians**
 **First performed:** <br>
 **Last performed:**<br>
 

@@ -2,7 +2,7 @@ It’s a funeral dirge and a celebration of life, a church hymn and a social pro
 
 “Will the Circle Be Unbroken” endures in American music in part due to its tremendous versatility.
 
-It began in 1907 as a Christian hymn by Ada R. Habershon and Charles H. Gabriel, who asked: *does a family reunite in heaven?* 
+It began in 1907 as a Christian hymn by Ada R. Habershon and Charles H. Gabriel, who asked: *does a family reunite in heaven?*
 
 
 

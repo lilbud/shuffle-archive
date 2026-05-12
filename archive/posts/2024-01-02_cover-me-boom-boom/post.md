@@ -8,29 +8,29 @@ When it comes to art imitating life, there may be no better metatextual example 
 
 There’s no mistaking what “Boom Boom” is about. Even in its original 1962 version (Bruce modeled his version after a cover by The Animals two years later), Booker’s stop-time classic isn’t exactly subtle:
 
-*Boom, boom, boom, boom*  
-*I’m gonna shoot you right down*  
-*Right off of your feet*  
-*And take you home with me*  
-*Put you in my house*  
+*Boom, boom, boom, boom*
+*I’m gonna shoot you right down*
+*Right off of your feet*
+*And take you home with me*
+*Put you in my house*
 *Boom, boom, boom, boom*
 
-*How how how how*  
-*Hmm hmm hmm hmm*  
-*Hmm hmm hmm hmm*  
-*I love to see you strut*  
-*Up and down the floor*  
-*When you’re talking to me*  
-*That baby talk*  
+*How how how how*
+*Hmm hmm hmm hmm*
+*Hmm hmm hmm hmm*
+*I love to see you strut*
+*Up and down the floor*
+*When you’re talking to me*
+*That baby talk*
 *I like it like that*
 
 Unsurprisingly, “Boom Boom” became a hit almost immediately, peaking at #16 on the Billboard Hot R&B Sides chart and #60 on the Hot 100. The Animals’ version did even better in 1964, peaking at #43 on the Hot 100. Their version put an even finer point on it:
 
-*I need you right now*  
-*I mean right now*  
-*I don’t mean tomorrow*  
-*I mean right now*  
-*Come on, come on*  
+*I need you right now*
+*I mean right now*
+*I don’t mean tomorrow*
+*I mean right now*
+*Come on, come on*
 *Come on, shake it up baby*
 
 [https://www.youtube.com/embed/7oVTRUSz7oI?feature=oembed](https://www.youtube.com/embed/7oVTRUSz7oI?feature=oembed)
