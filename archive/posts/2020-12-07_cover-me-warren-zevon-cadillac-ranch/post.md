@@ -8,4 +8,4 @@ But dang it if this isn’t a hoot to watch anyway. Zevon and his band have so m
 
 [Watch on Youtube: Warren Zevon - Full Concert - 10/01/82 - Capitol Theatre (OFFICIAL)](https://www.youtube.com/watch?v=B3JmtMCJ0ok)
 
- 
+

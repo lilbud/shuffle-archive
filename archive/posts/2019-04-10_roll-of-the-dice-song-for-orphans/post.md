@@ -1,5 +1,5 @@
 > I think "Song to Orphans" is less about the call and more about the dangers, distractions, temptations, and seductions that lie in one's path when answering it. They're good album-mates, these two songs.
-> 
+>
 > — Ken Rosen (@Krosen) [October 21, 2020](https://twitter.com/Krosen/status/1318917363803115520?ref_src=twsrc%5Etfw)
 
 

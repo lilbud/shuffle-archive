@@ -56,7 +56,7 @@ Here’s that performance–its first in 46 years–performed by the original Br
 
 [Watch on Youtube: Ballad of Jesse James](https://www.youtube.com/watch?v=IJ-MMNnX_AE)
 
-**The Ballad of Jesse James  
+**The Ballad of Jesse James**
 **Recorded** March 14, 1972  
 **Released:** *Chapter and Verse* (2016)  
 **First performed:** September 1, 1971 (Long Branch, NJ)  
@@ -64,4 +64,4 @@ Here’s that performance–its first in 46 years–performed by the original Br
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
- 
+

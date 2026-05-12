@@ -59,4 +59,4 @@ Bruce has never performed “Over the Rise” in public. I suspect he never will
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
- 
+

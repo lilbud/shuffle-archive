@@ -50,4 +50,4 @@
 
 **2022:** Bruce celebrates Clive Davis’ 90th birthday by recording a video salute and a performance of “Blinded by the Light.”
 
- 
+

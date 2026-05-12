@@ -14,7 +14,7 @@ This is the first time Bruce was known to have *officially* performed this peren
 
 Happy Holidays, however you celebrate them, and may the holiday season bring you peace and joy.
 
-**Joy to the World  
+**Joy to the World**
 **First performed:** December 14, 2016 (New York City, NY)  
 **Last performed:** December 14, 2016 (New York City, NY)
 

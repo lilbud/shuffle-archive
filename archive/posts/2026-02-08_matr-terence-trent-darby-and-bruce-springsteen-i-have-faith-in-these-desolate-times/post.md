@@ -43,7 +43,7 @@ In these desolate times, have faith.
 
 And persist.
 
-**I Have Faith in These Desolate Times  
+**I Have Faith in These Desolate Times**
 **First performed:** June 26, 1993 (New York City, NY)  
 **Last performed:** June 26, 1993 (New York City, NY)
 

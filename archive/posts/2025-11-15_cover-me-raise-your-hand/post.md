@@ -45,7 +45,7 @@ And while it’s now been more than seven years since Bruce last uttered those i
 
 [Watch Video Highlight](https://videopress.com/embed/GFBm1mrR?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Raise Your Hand  
+**Raise Your Hand**
 **First performed:** March 21, 1976 (Asbury Park, NJ)  
 **Last performed:** October 26, 2025 (Asbury Park, NJ)
 

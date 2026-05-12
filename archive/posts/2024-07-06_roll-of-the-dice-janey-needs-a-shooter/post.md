@@ -153,7 +153,7 @@ Janey has waited in the wings for far too long to be denied some time in the sun
 
 [Watch on Youtube: Bruce Springsteen Jeannie Needs A Shooter #2](https://www.youtube.com/watch?v=eWb7tjESLzY)
 
-**Janey Needs a Shooter  
+**Janey Needs a Shooter**
 **Recorded** January 29, 1973 (solo), November 2019 (band)  
 **Released:** *Letter to You* (2020)  
 **Never performed**

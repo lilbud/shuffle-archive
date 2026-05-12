@@ -14,8 +14,8 @@ Let’s hope their wish comes true and Bruce joins them on stage sometime soon. 
 
 [Watch on Youtube: The Mavericks - "Hungry Heart" (SEC Armadillo, Glasgow, 2019)](https://www.youtube.com/watch?v=x73lHHHlolY)
 
- 
 
- 
 
- 
+
+
+

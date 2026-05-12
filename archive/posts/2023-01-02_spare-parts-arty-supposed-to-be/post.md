@@ -16,6 +16,6 @@ The first thirty seconds of “Supposed to Be” are clearly lifted from “Atla
 
 Still, Arty insisted on (and succeeded at) getting Bruce’s blessing to use his song, and the result is Bruce’s first songwriting credit (co-writer, to be precise) for an EDM song.
 
-**Supposed to Be  
+**Supposed to Be**
 **Released:** 2017  
 **Never performed**

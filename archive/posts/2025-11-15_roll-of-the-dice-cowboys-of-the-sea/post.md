@@ -68,7 +68,7 @@ The full-band version is more noteworthy. It’s one of those Steel Mill holdove
 
 In the end, “Cowboys of the Sea” is little more than a footnote in Bruce’s recording history, but it’s a clever asterisk for a young songwriter honing his craft with what would prove to be a couple of his favorite themes.
 
-**Cowboys of the Sea  
+**Cowboys of the Sea**
 **Recorded** April – July 1972  
 **Never released**
 **First performed:** February 4, 1972 (Richmond, VA)  

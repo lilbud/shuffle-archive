@@ -18,4 +18,4 @@ For most of the shows–including “Got to Get You Off My Mind,” which the Re
 **First performed:** [May 12](https://estreetshuffle.com/index.php/2018/05/12/kingdom-of-days-may-12/), 1977 (Red Bank, NJ)  
 **Last performed:** [May 13](https://estreetshuffle.com/index.php/2018/05/13/kingdom-of-days-may-13/), 1977 (Red Bank, NJ)
 
- 
+

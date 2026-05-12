@@ -26,6 +26,6 @@ Or two-off, I suppose, to be accurate. That clip above is the one most fans have
 
 [Watch Video Highlight](https://videopress.com/embed/ApN9htUF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Ninety-Nine and a Half (Won’t Do)  
+**Ninety-Nine and a Half (Won’t Do)**
 **First performed:** June 5, 1992 (Los Angeles, CA)  
 **Last performed:** July 25, 1992 (East Rutherford, NJ)

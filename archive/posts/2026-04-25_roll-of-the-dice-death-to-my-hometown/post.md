@@ -91,7 +91,7 @@ Get yourself a song to sing, and sing it hard and well.
 
 
 
-**Death to My Hometown  
+**Death to My Hometown**
 **Recorded** 2011  
 **Released:** *Wrecking Ball* (2012)  
 **First performed:** March 2, 2012 (New York City, NY)  

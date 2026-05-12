@@ -14,17 +14,17 @@ Well, sort of. The lyrics are kind of a downer, but that music box was playing a
 
 The chorus of “Plaisir d’Amour” translates to…
 
-*Pleasure of love only lasts a moment*  
+*Pleasure of love only lasts a moment*
 *Heartache lasts a lifetime*
 
 …with verses like:
 
-*I gave up everything for the ungrateful Sylvia  
-She left me for another lover*
+*I gave up everything for the ungrateful Sylvia*
+*She left me for another lover*
 
 So calling it a “European love song” might have been a bit of a stretch.
 
-But there’s no doubt about the song that Elvis sang. Written by Hugo Peretti, Luigi Creatore, and George David Weiss, “Can’t Help Falling in Love” is as romantic a ballad as they come. (Fun fact #3: it was originally written for a woman to sing, which is why there’s that odd non-rhyme (“would it be a sin”)–it was meant to rhyme with “I can’t help falling in love with *him*.”
+But there’s no doubt about the song that Elvis sang. Written by Hugo Peretti, Luigi Creatore, and George David Weiss, “Can’t Help Falling in Love” is as romantic a ballad as they come. (Fun fact #3: it was originally written for a woman to sing, which is why there’s that odd non-rhyme (“would it be a sin”)–it was meant to rhyme with “I can’t help falling in love with *him*.”)
 
 Elvis released the song as a single and it became a smash hit, reaching #2 on the Billboard Hot 100 and inspiring a carafe of covers in across just about every genre, from disco…
 

@@ -112,4 +112,4 @@ I’m glad I did both Fenway shows–even a standard Bruce set is worth catching
 
 Time to relive it once again.
 
- 
+

@@ -20,7 +20,7 @@ Bruce hasn’t performed the song since 1988, but he actually did perform it onc
 
 [Watch Video Highlight](https://videopress.com/embed/6l3WlkHI?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Chimes of Freedom  
+**Chimes of Freedom**
 **Recorded** July 3, 1988  
 **Released:** *Chimes of Freedom* (1988)  
 **First performed:** September 1, 1978 (Detroit, MI)  

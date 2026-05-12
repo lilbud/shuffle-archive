@@ -32,8 +32,8 @@ Since then, “Summertime Blues” can be counted on to make a few cameo appeara
 
 [Watch Video Highlight](https://videopress.com/embed/CZbyGqLp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Summertime Blues  
+**Summertime Blues**
 **First performed:** July 28, 1978 (Miami, FL)  
 **Last performed:** September 1, 2016 (Washington, DC)
 
- 
+

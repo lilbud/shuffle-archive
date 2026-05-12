@@ -20,7 +20,7 @@ Bruce performed “Have Love, Will Travel” pretty regularly for the rest of th
 
 After a few weeks, Bruce dropped the garage rock classic from his set list, and he hasn’t played it since.
 
-**Have Love, Will Travel  
+**Have Love, Will Travel**
 **First performed:** April 23, 1988 (Los Angeles, CA)  
 **Last performed:** June 29, 1988 (Rotterdam, The Netherlands)
 

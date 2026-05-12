@@ -14,7 +14,7 @@ Here’s their poignant, one-time-only performance of “Could Die Young Tonight
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=d9Lw3sUj-Q8)
 
-**Could Die Young Tonight  
+**Could Die Young Tonight**
 **First performed:** February 25, 2012 (Asbury Park, NJ)  
 **Last performed:** February 25, 2012 (Asbury Park, NJ)
 

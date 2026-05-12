@@ -1,7 +1,7 @@
 > “I think it’s one of the finest songs ever written on the subject, but I don’t know what the competition might be. Needless to say, the field is wide open.”
-> 
-> 
-> 
+>
+>
+>
 > — *Bruce Springsteen introducing “Red Headed Woman,” September 25, 1996*
 
 Ladies and gentlemen, the comedy stylings of Mr. Bruce Springsteen:
@@ -100,7 +100,7 @@ Oh, and not just Bonnie, but also Bruce Hornsby, Mary Chapin Carpenter, Shawn Co
 
 [Watch on Youtube: Bruce Springsteen - Red Headed Woman [Washington September 3, 1999]](https://www.youtube.com/watch?v=34cYMiXkFOE)
 
-**Red Headed Woman  
+**Red Headed Woman**
 **Recorded** Late 1990  
 **Never released**
 **Frist performed:** November 16, 1990 (Los Angeles, CA)  

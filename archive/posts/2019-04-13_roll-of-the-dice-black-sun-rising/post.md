@@ -28,7 +28,7 @@ Yeah, this is one rarity I don’t need to hear in concert.
 
 Just rolled the dice again and got something from the HT/LT era that’s much easier to work with. Look for it soon.
 
-**Black Sun Rising  
+**Black Sun Rising**
 **Recorded** N/A  
 **Released:** N/A  
 **First Performed:** April 18, 1970 (Toms River, NJ)  

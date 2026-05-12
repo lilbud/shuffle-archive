@@ -1,5 +1,5 @@
 > “Death’s final and lasting gift to the living is an expanded vision of life itself.”
-> 
+>
 > *–Bruce Springsteen, on stage nightly in 2023*
 
 “Ghosts” is a haunted song.

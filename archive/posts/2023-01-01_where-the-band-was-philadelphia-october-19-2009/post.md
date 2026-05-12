@@ -44,4 +44,4 @@ If the rest of the main set was predictable from there, the encores still held a
 
 What a night–it wasn’t the best, longest, most intense or unpredictable show I’ve ever seen, but it was certainly one of the most fun. And it was my very last concert at The Spectrum, where I’d seen so many shows growing up. For a last memory of a special venue, this will certainly do.
 
- 
+

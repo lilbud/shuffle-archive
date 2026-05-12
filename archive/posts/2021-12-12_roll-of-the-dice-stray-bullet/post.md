@@ -54,7 +54,7 @@ The minute-and-a-half instrumental coda dwells on the memory through Roy Bittan�
 
 Bruce has never performed “Stray Bullet” in concert, and it’s unclear whether it would translate well to a concert setting. It remains a beautiful, haunting and haunted orphan in his expansive catalog.
 
-**Stray Bullet  
+**Stray Bullet**
 **Recorded** February 24, March 9, and April 10, 1980 (it’s unclear from which session this take originates)  
 **Released:** *The River: Outtakes* (2015)  
 **Never Performed**

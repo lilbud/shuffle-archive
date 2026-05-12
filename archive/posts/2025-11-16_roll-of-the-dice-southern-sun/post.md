@@ -53,7 +53,7 @@ Still, Bruce took another crack at recording the song a few weeks later. This is
 
 By now, I should know not to make absolute statements–after all, “If I Was the Priest” eventually saw the light of day–but I’ll go out on a limb and predict we’re not likely to hear any official studio or live recording of “Southern Sun” any time soon.
 
-**Southern Sun  
+**Southern Sun**
 **Recorded** May-June 1972  
 **Never released**
 **First performed:** February 5, 1972 (Richmond, VA)  

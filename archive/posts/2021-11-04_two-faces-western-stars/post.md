@@ -14,7 +14,7 @@ Editor's Note
 
 *Take it away, Katy!*
 
- 
+
 
 *I am become a name;*
 *For always roaming with a hungry heart*
@@ -94,4 +94,4 @@ But then the day ends. Our hero passes out. The music drops to almost nothing, t
 
 *I woke up this morning, just glad my boots were on.*
 
- 
+

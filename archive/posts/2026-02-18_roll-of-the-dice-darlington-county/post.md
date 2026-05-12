@@ -1,7 +1,7 @@
 > Roger Scott to Bruce Springsteen: “*The River*… was full of these sharply contrasting songs, these wild celebrations alongside these hopeless people.”
-> 
-> 
-> 
+>
+>
+>
 > Bruce Springsteen to Roger Scott: “On *The River*, I’d have a song like this and a song like that because I didn’t know how to combine it. By the time I’d got to the *Born in the U.S.A.* album, I kinda combined those two things. Like ‘Darlington County…'” (*Hot Press,* November 2, 1984)
 
 Bruce might have been a bit disingenuous in that 1984 interview, because “Darlington County” dates back to the *Darkness on the Edge of Town* sessions in 1977. Although we can’t be sure the song hadn’t substantially changed in the intervening years (no recording of the Darkness version has ever escaped into the wild, if one even exists), it’s more likely that it took Bruce a while to grow comfortable with the idea of combining farce with fiction, telling a short story as a comedy rather than a drama.
@@ -103,7 +103,7 @@ Something tells me we’ll be celebrating the misadventures of Wayne and Wilson 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dcjjeHtdsLg)
 
-**Darlington County  
+**Darlington County**
 **Recorded** May 13, 1982  
 **Released:** *Born in the U.S.A.* (1984)  
 **First performed:** June 8, 1984 (Asbury Park, NJ)  

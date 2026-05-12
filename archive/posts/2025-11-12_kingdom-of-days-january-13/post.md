@@ -38,4 +38,4 @@ After the interview, Bruce and the E Street Band (+Tom Morello, -Steve Van Zandt
 
 **2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. Today’s session focuses heavily on covers from *Only the Strong Survive*, with multiple run-throughs of “Do I Love You (Indeed I Do)” (which will not be played during the tour), “[Don’t Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)” (which will be dropped after two weeks), and “Nightshift,” which will remain a setlist tentpole throughout.
 
- 
+

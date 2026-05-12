@@ -1,35 +1,35 @@
 > “This next song is kind of a nonsense song. I'll give you a quick rundown:
-> 
-> 
-> 
+>
+>
+>
 > It's about a bishop and his wife and this violin player in West Virginia.
-> 
-> 
-> 
+>
+>
+>
 > It's about how their daughter lost her mother to mathematics while on a business trip in Detroit.
-> 
-> 
-> 
+>
+>
+>
 > It has a Top 40 hook part that if we knew the words, everybody could sing to it.
-> 
-> 
-> 
+>
+>
+>
 > It’s about pancakes and this guy named Muskrat who lives in Richmond, Virginia, who I met when I was playin' down there. (He plays saxophone.)
-> 
-> 
-> 
+>
+>
+>
 > It's about James Garner, when he was very popular years ago in his Brit (Bret? Bert?) Maverick TV shows, and it was a well-known Hollywood secret that he had an affair with a mad woman with one eye.
-> 
-> 
-> 
+>
+>
+>
 > It's about this little boy who told his father that the Indians are still in the woods, only nobody sees 'em.
-> 
-> 
-> 
+>
+>
+>
 > And it's about sexual pathos of elderly choirboys in Butte, Montana.”
-> 
-> 
-> 
+>
+>
+>
 > — *Bruce Springsteen, January 31, 1973*
 
 Yeah, I should probably leave it at that.
@@ -102,7 +102,7 @@ So *you* decide: “Bishop Danced” is either an atypical-for-Bruce nonsense so
 
 I’m still listening for that Top 40 hook, though.
 
-**Bishop Danced  
+**Bishop Danced**
 Never recorded**
 **Released:** *Tracks* (1998) (live version)  
 **First performed:** December 7, 1972 (New York City, NY)  

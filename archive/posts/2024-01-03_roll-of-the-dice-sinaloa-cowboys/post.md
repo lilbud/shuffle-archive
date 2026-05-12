@@ -1,11 +1,11 @@
 > “The cookers themselves–recruited from the fields–sometimes are not aware of the dangers. Hydriodic acid… eats through not only skin but concrete. If inhaled, its fumes cause chemical pneumonia, which can bring a quick, painful death.
-> 
-> 
-> 
+>
+>
+>
 > “‘We have no idea how may dead Mexicans we find in the desert died from breathing in meth fumes,’ one DEA agent said.”
-> 
-> 
-> 
+>
+>
+>
 > — Mark Arax and Tom Gorman, *Los Angeles Times,* March 13, 1995
 
 On March 13, 1995, Bruce Springsteen opened his morning newspaper and read with fascination an expose by reporters Mark Arax and Tom Gorman.
@@ -94,7 +94,7 @@ Bruce wrote and released “Sinaloa Cowboys” not long after the Sinaloa Cartel
 
 The Sinaloa Cartel remains the most dominant drug cartel in Mexico to this day.
 
-**Sinaloa Cowboys  
+**Sinaloa Cowboys**
 **Recorded** March-August, 1995  
 **Released:** *The Ghost of Tom Joad* (1995)  
 **First performed:** October 28, 1995 (Mountain View, CA)  

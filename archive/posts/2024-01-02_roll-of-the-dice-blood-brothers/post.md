@@ -33,7 +33,7 @@ Remember, this is the man who only a few years earlier wrote one of the other de
 *We swore we’d travel darlin’ side by side*
 *We’d help each other stay in stride*
 
- 
+
 
 Granted, “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” is a romantic song and “Blood Brothers” a fraternal one, but the narrator of the latter seems to have lost the heart of the former.
 
@@ -42,7 +42,7 @@ Granted, “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/
 *And what once seemed black and white turns to so many shades of gray*
 *We lose ourselves in work to do, work to do and bills to pay*
 
- 
+
 
 If there’s an emotional core to “Blood Brothers,” this is it: that the passion and promise of youth inevitably comes under siege by the pressures of age.
 
@@ -142,7 +142,7 @@ Perhaps he felt the original lyrics best suited the contemplative acoustic arran
 
 In any arrangement, “Blood Brothers” continues to be an emotional rarity, long and fondly remembered by those present to hear it.
 
-**Blood Brothers  
+**Blood Brothers**
 **Recorded** January 1995  
 **Released:** *Greatest Hits* (1995), *Blood Brothers* (1996)  
 **First performed:** April 4, 1995 (New York City, NY)  

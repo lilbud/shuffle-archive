@@ -58,7 +58,7 @@ When *Tracks II: The Lost Albums* was announced with “One Love” included, I 
 
 The best we can say about “One Love” is that it’s a simple but earnest and bouncy love song that probably wouldn’t have stood the test of time had it been released as a B-side as intended back in the mid-eighties.
 
-**One Love  
+**One Love**
 **Recorded** January 19, 1983  
 **Released:** *L.A. Garage Sessions ’83*
 **Never performed**

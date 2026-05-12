@@ -1,11 +1,11 @@
 > “At certain moments, time is obliterated in the presence of somebody you love; there seems to be a transcendence of time in love.
-> 
-> 
-> 
+>
+>
+>
 > The normal markers of the day, the month, the year, as you get older those very fearsome markers… in the presence of love, they lose some of their power.”
-> 
-> 
-> 
+>
+>
+>
 > — Bruce Springsteen to Mark Hagen, *The Guardian,* January 18, 2009
 
 In the end, we have nothing but time.
@@ -89,7 +89,7 @@ Watch this performance all the way through to hear Bruce channel his inner Orbis
 
 [Watch Video Highlight](https://videopress.com/embed/6UU4PT3e?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Kingdom of Days  
+**Kingdom of Days**
 **Recorded** Early 2008  
 **Released:** *Working on a Dream* (2009)  
 **First performed:** March 24, 2009 (Asbury Park, NJ)  

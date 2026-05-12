@@ -16,6 +16,6 @@ On the album’s liner notes, Barker wrote about how her appreciation for Bruce�
 
 Barker’s experience mirrors that of so many Bruce fans. *Tunnel* is an album that requires life experience in order to fully appreciate.
 
- 
 
- 
+
+

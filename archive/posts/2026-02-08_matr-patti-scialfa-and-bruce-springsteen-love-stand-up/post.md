@@ -26,7 +26,7 @@ Start your Valentine’s Day with this wonderfully filmed, beautifully performed
 
 [Watch Video Highlight](https://videopress.com/embed/UmMKcToe?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Love (Stand Up)
+**Love (Stand Up)**
 **Recorded:** January 2004<br>
 **Released:** *23rd Street Lullaby* (2004)<br>
 **First performed:** December 3, 2001 (Asbury Park, NJ)<br>

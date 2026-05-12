@@ -37,10 +37,10 @@ And that live performance is very worth watching–it’s even stronger than the
 
 [Watch Video Highlight](https://videopress.com/embed/l9Jujnvp?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Play It As It Lays  
+**Play It As It Lays**
 **Recorded** Unknown  
 **Released:** *Play It As It Lays* (2007)  
 **First performed:** August 2007 (exact date unknown)  
 **Last performed:** August 2007 (exact date unknown)
 
- 
+

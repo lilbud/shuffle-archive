@@ -84,7 +84,7 @@ Most listeners would have probably heard it as a sweet romantic pledge that woul
 
 Given Bruce’s distaste for the song, it’s not surprising that he hasn’t played “The Way” in concert. With Bruce, we’ve learned to never say never, but I’d lay very long odds against us hearing this one live.
 
-**The Way  
+**The Way**
 **Recorded** August 1977 – February 1978  
 **Released:** *The Promise* (2010)  
 **Never performed**

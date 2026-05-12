@@ -54,7 +54,7 @@ That’s too bad, because the E Street version is gloriously gritty and features
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1J8a884WInk)
 
- 
+
 
 **Town Called Heartbreak**
 **Recorded:** Early 2007  

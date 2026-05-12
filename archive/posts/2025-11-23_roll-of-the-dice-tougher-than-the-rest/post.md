@@ -102,7 +102,7 @@ Flashing forward to the 21st century now, Bruce and Patti perform “Tougher Tha
 
 Clearly, “Tougher Than the Rest” holds deep meaning and power for Bruce and Patti, and for that we can be grateful–because it means we’ll likely hear them play it for many years to come.
 
-**Tougher Than the Rest  
+**Tougher Than the Rest**
 **Recorded** January – April 1987  
 **Released:** *Tunnel of Love* (1987), *The Essential Bruce Springsteen* (2003)  
 **First performed:** October 31, 1987 (Sea Bright, NJ)  

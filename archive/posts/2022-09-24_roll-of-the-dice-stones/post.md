@@ -1,7 +1,7 @@
 > Lies: they will devour everything you have and everything you will ever have. Faith, hope, trust.. all those things that are hard to come by. That’s what grows your garden of love. Lies will try to make a fool out of all those things. But without them, all you have is stones.
-> 
-> 
-> 
+>
+>
+>
 > — Bruce Springsteen, *Western Stars* (2019)
 
 If you ask me for my favorite Springsteen song on any given day, my answer will vary. There are too many gems from which to choose just one.

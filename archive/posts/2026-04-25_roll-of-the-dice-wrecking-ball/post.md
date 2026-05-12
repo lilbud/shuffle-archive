@@ -123,7 +123,7 @@ The way my dad did, in the last and best lesson he ever taught me.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=05MSCU-yi7U)
 
-**Wrecking Ball  
+**Wrecking Ball**
 **Recorded** 2011  
 **Released:** [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)(2011)  
 **First performed:** September 30, 2009 (East Rutherford, NJ)  

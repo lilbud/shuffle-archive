@@ -34,8 +34,8 @@ Bruce had started using [an instrumental](https://estreetshuffle.com/index.php/2
 
 Bruce paused that practice on the River Tour, but “Out of Limits” proved a fitting one-time exception on that Halloween night.
 
-**Outer Limits  
+**Outer Limits**
 **First performed:** October 31, 1980 (Los Angeles, CA)  
 **Last performed:** October 31, 1980 (Los Angeles, CA)
 
- 
+

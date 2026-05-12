@@ -72,4 +72,4 @@ And in the last hour before Release Day, Apple Music’s Zane Lowe interviews Br
 
 **2024:** Bruce and the E Street Band rehearse at Sirius XM Studio in New York City for their appearance on *The Howard Stern Show* the following day.
 
- 
+

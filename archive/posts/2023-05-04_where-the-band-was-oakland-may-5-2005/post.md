@@ -24,4 +24,4 @@ So of all the shows I’ve attended, this is the one I remember least vividly–
 
 Luckily, I was able to attend three more shows that tour, and those shows I remember perfectly–they were full of riches. But that’s a story for another time.
 
- 
+

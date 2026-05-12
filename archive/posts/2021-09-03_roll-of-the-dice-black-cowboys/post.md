@@ -1,15 +1,15 @@
 > “God bless Mommy. God bless Nanny. God, don’t punish me because I’m black.”
-> 
-> 
-> 
+>
+>
+>
 > “Do they same prayer every night?” I ask their mother after she has tucked them in and closed their door. “Every night,” she answers.
-> 
-> 
-> 
+>
+>
+>
 > “I wish that I could help them to get out of here,” says Mrs. Washington.
-> 
-> 
-> 
+>
+>
+>
 > –Jonathan Kozol, *Amazing Grace: The Lives of Children and the Conscience of a Nation*
 
 In 1995, author/educator/activist Jonathan Kozol published his award-winning, eye-opening, and heartbreaking book, *Amazing Grace: The Lives of Children and the Conscience of a Nation*.
@@ -126,7 +126,7 @@ In the end, through the power of her love and the dreams she instilled in her so
 
 [Watch on Youtube: Bruce Springsteen - BLACK COWBOYS (live 2005)](https://www.youtube.com/watch?v=K3bjY14BQf0)
 
-**Black Cowboys  
+**Black Cowboys**
 **Recorded** 1997-2004  
 **Released:** *Devils & Dust* (2005)  
 **First performed:** April 21, 2005 (Asbury Park, NJ)  

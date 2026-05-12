@@ -1,7 +1,7 @@
 > “We love you, Bruce!” —*a voice from the crowd on November 16, 1990*
-> 
-> 
-> 
+>
+>
+>
 > “But you don’t really know me.” *–Bruce Springsteen’s response, immediately before playing “Reason to Believe”*
 
 Except for a very select few of my readers (you know who you are), we don’t really know him.
@@ -136,7 +136,7 @@ So we best believe that Bruce’s Greenbaum-esque arrangement for “Reason to B
 
 Bruce’s 1982 recording of “Reason to Believe” was a question, but when he performs it today, it’s an answer.
 
-**Reason to Believe  
+**Reason to Believe**
 **Recorded** January 3, 1982  
 **Released:** *Nebraska* (1982)  
 **First performed:** July 1, 1984 (St. Paul, MN)  

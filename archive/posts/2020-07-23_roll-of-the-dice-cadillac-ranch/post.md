@@ -116,7 +116,7 @@ Because the closer we all get to the end of the drive, the more we need to enjoy
 
 [Watch Video Highlight](https://videopress.com/embed/RcbkHi9g?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Cadillac Ranch  
+**Cadillac Ranch**
 **Recorded** February 16-April 26, 1980  
 **Released:** *The River* (1980)  
 **First performed:** October 3, 1980 (Ann Arbor, MI)  

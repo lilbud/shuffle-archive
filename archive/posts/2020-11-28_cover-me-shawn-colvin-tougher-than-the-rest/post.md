@@ -6,4 +6,4 @@ It’s a gorgeous performance that captures the soul of the song. As she said in
 
 [Watch on Youtube: Shawn Colvin - "Tougher Than The Rest" (Live Acoustic)](https://www.youtube.com/watch?v=PceRAJ_K27I)
 
- 
+

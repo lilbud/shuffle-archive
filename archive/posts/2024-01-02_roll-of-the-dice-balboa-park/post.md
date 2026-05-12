@@ -1,31 +1,31 @@
 > *After the Border Patrol van departed carrying the boys who did not run fast enough, Carlitos whistled, the sound echoing in the park beneath sun-glazed downtown office towers.*
-> 
-> 
-> 
+>
+>
+>
 > *"They're gone!" he shouted in Spanish, inhaling a blast of Octane Booster–a gasoline additive and makeshift drug–from a Coke can. "I chased them off."*
-> 
-> 
-> 
+>
+>
+>
 > *A dozen youths emerged warily from the trees: homeless illegal immigrants who earn a living in a verdant corner of Balboa Park where the cars circle day and night. Where the drivers in business suits and BMWs seek out children who survive by prostituting themselves and selling drugs.*
-> 
-> 
-> 
+>
+>
+>
 > *Unfazed by the Border Patrol raid, the diminutive Carlitos, 14, led the way through the brush as he described the suburban home of a man who picked him up recently.*
-> 
-> 
-> 
+>
+>
+>
 > *"He has Super-Nintendo, a video, a big television, a pool," he exclaimed, black hair falling in his eyes. "Like the movies."*
-> 
-> 
-> 
+>
+>
+>
 > *Carlitos reached a freeway interchange that cuts through the park and gestured at a row of blankets in the dirt where he sleeps beneath a concrete bridge. "We're from Tijuana, Sinaloa, Mexico City, Guadalajara, Honduras," he said. "This is our new house."*
-> 
-> 
-> 
+>
+>
+>
 > *Carlitos and his friends are the children of the border.*
-> 
-> 
-> 
+>
+>
+>
 > *–Sebastian Rotella, “[Children of the Border](https://www.latimes.com/archives/la-xpm-1993-04-03-mn-18653-story.html)” — Los Angeles Times, April 3, 1993*
 
 So begins a heartbreaking article by Sebastian Rotella in the Los Angeles Times in the spring of 1993. Bruce was living in California at the time, raising two young children. Like any parent coming across Rotella’s essay, Bruce must have been shaken to his core by it.
@@ -85,7 +85,7 @@ Bruce performed “Balboa Park” nightly throughout the Ghost of Tom Joad Tour,
 
 There were as many as fifty boys in Rotella’s original 1993 article. More than a quarter-century on, who knows where or who those boys are now? We don’t, and that’s just one more haunting aspect of “Balboa Park.”
 
-**Balboa Park  
+**Balboa Park**
 **Recorded** March-August 1995  
 **Released:** *The Ghost of Tom Joad* (1995)  
 **First performed:** November 21, 1995 (New Brunswick, NJ)  

@@ -77,7 +77,7 @@ That performance, too, pales beside the original album version. “Dry Lightning
 
 I haven’t given up hope of hearing one someday.
 
-**Dry Lightning  
+**Dry Lightning**
 **Recorded** April-June 1995  
 **Released:** *The Ghost of Tom Joad* (1995)  
 **First performed:** November 21, 1995 (New Brunswick, NJ)  

@@ -8,6 +8,6 @@ EBTG’s version used to be my favorite of the “[Tougher Than the Rest](https:
 
 [Watch on Youtube: Tougher Than The Rest (Springsteen Cover) - Cosmic Spin [OFFICIAL MUSIC VIDEO]](https://www.youtube.com/watch?v=rSvM4Asm4qs)
 
- 
 
- 
+
+

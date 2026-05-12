@@ -30,6 +30,6 @@ So what do you think? Is Bruce Springsteen an uncredited, unauthorized guest art
 
 I know what I think.
 
-**Soul Deep  
+**Soul Deep**
 **First performed:** April 29, 2003 (Red Bank, NJ)  
 **Last performed:** April 29, 2003 (Red Bank, NJ)

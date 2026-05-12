@@ -16,4 +16,4 @@ Bruce’s lyrics–an invitation for freedom and escape–come across here as da
 
 It may not be something I’d want to listen to repeatedly, but it’s a seriously well-done cover.
 
- 
+

@@ -16,4 +16,4 @@ But *Bruce Brunch* host Tom Cunningham scored a major get in the summer of 2017 
 
 Antonoff gets it, though, and his version lays it bare with yearning, almost heart-breaking vocals that will have you hearing Bruce’s song in a new light.
 
- 
+

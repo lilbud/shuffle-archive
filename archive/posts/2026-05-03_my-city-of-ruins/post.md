@@ -156,7 +156,7 @@ All journeys start the same way: with a first step.
 
 Rise up.
 
-**My City of Ruins  
+**My City of Ruins**
 **Recorded** February-March 2002  
 **Released:** *The Rising* (2002)  
 **First performed:** December 17, 2000  

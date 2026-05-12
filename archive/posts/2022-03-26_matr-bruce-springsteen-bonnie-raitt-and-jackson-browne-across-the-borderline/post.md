@@ -16,7 +16,7 @@ One of Cooder’s songs played over both the opening and end credits: a bittersw
 
 At first listen, “Across the Borderline” sounds like a strange candidate for offering hope and fortitude. A border is just a line, it seems to say, and the grass on the other side may not be any greener until you water it a good long time.
 
- 
+
 
 [Watch on Youtube: Across the Borderline](https://www.youtube.com/watch?v=tECEpWlOWgY)
 
@@ -44,8 +44,8 @@ All three icons were in peak form that night, their voices and instruments blend
 
 [Watch on Youtube: Bruce Springsteen | Across The Borderline - Denver - 19/11/2012](https://www.youtube.com/watch?v=3WqKKf0jfoE)
 
-**Across the Borderline  
+**Across the Borderline**
 **First performed:** April 27, 1988 (Los Angeles, CA)  
 **Last performed:** November 19, 2012 (Denver, CA)
 
- 
+

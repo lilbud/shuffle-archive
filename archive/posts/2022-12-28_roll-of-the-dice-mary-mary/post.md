@@ -28,7 +28,7 @@ Like the narrator, we’re destined to never know where Mary’s gone to, but we
 
 “Mary Mary” trails off, but it does not end.
 
-**Mary Mary  
+**Mary Mary**
 **Recorded** 2007**Released:** *American Beauty* (2014)  
 **Never performed**
 

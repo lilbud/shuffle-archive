@@ -149,7 +149,7 @@ These days, Bruce plays it every night, introducing it as a “prayer for my cou
 
 We’re much further away from the America he sings about than we were when he wrote “Long Walk Home.” But as long as we’re still on that road, we can still walk back.
 
-**Long Walk Home  
+**Long Walk Home**
 **Recorded** March-April 2007  
 **Released:** *Magic* (2007)  
 **First performed:** November 11, 2006 (London, England)  

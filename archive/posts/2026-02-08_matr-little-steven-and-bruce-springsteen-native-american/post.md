@@ -24,7 +24,7 @@ Both performances were received generously by the audience, and come across much
 
 Still, Bruce hasn’t performed “Native American” with Steve in the 30+ years since.
 
-**Native American  
+**Native American**
 **Recorded:** February 1987<br>
 **Released:** *Freedom–No Compromise* (1987)<br>
 **First performed:** August 21, 1987 (Asbury Park, NJ)<br>

@@ -98,4 +98,4 @@ https://www.instagram.com/p/B5wUEfNJHro/?utm_source=ig_web_copy_link
 
 **2023:** Bruce’s scheduled show in Inglewood is postponed to the following April due to his peptic ulcer disease.
 
- 
+

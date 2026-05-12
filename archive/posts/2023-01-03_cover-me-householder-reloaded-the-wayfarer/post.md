@@ -22,7 +22,7 @@ Bruce’s stamp of approval earned the band some well-deserved attention in thei
 
 So there you go: today’s *Cover Me* entry is Boss-approved!
 
- 
+
 
 Editor's Note
 

@@ -50,4 +50,4 @@ The song loses some of its power when performed as a duet, however, and even tho
 **First performed:** October 5, 2006 (Verona, Italy)  
 **Last performed:** October 5, 2006 (Verona, Italy)
 
- 
+

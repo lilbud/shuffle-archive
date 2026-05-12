@@ -57,34 +57,34 @@ What's your story?
 **9/19/12 – MetLife Stadium, NJ**
 
 **Setlist:**
-Shackled and Drawn  
-Prove It All Night (’78 intro)  
-The Ties That Bind  
-Hungry Heart  
-We Take Care of Our Own  
-Wrecking Ball  
-Death to My Hometown  
-My City of Ruins  
-Spirit in the Night  
-E Street Shuffle (with Vini Lopez)  
-Jack of All Trades  
-Human Touch  
-Johnny 99  
-Darlington County  
-Working on the Highway  
-Easy Money  
-The Promised Land  
-Waitin' on a Sunny Day  
-Mansion on the Hill  
-Racing in the Street  
-The Rising  
-Badlands  
-Land of Hope and Dreams  
+Shackled and Drawn
+Prove It All Night (’78 intro)
+The Ties That Bind
+Hungry Heart
+We Take Care of Our Own
+Wrecking Ball
+Death to My Hometown
+My City of Ruins
+Spirit in the Night
+E Street Shuffle (with Vini Lopez)
+Jack of All Trades
+Human Touch
+Johnny 99
+Darlington County
+Working on the Highway
+Easy Money
+The Promised Land
+Waitin' on a Sunny Day
+Mansion on the Hill
+Racing in the Street
+The Rising
+Badlands
+Land of Hope and Dreams
 * * *
-We Are Alive  
-Thunder Road  
-Born to Run  
-Rosalita  
-Dancing in the Dark  
-Tenth Avenue Freeze-out  
+We Are Alive
+Thunder Road
+Born to Run
+Rosalita
+Dancing in the Dark
+Tenth Avenue Freeze-out
 Twist and Shout

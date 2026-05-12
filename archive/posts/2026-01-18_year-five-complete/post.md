@@ -79,7 +79,7 @@ While fans would have to wait until 2025 to hear the official studio recording, 
 
 [Watch on Youtube: Follow That Dream - Bruce Springsteen - Brisbane - 16th February 2017](https://www.youtube.com/watch?v=fJNqfH_m7EM)
 
-**Follow That Dream  
+**Follow That Dream**
 **Recorded** January 30, 1983  
 **Released:** *L.A. Garage Sessions ’83* (2025)  
 **First performed:** April 19, 1981 (Paris, France)  

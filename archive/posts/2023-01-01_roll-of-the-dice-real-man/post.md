@@ -76,7 +76,7 @@ Second: I can’t believe I’m writing these words, but I’d actually kinda li
 
 I’d recommend starting by ditching those synths.
 
-**Real Man  
+**Real Man**
 **Recorded** January-February 1990  
 **Released:** *Human Touch* (1992)  
 **First performed:** June 17, 1992 (Stockholm, Sweden)  
@@ -84,4 +84,4 @@ I’d recommend starting by ditching those synths.
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
- 
+

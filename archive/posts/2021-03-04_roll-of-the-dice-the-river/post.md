@@ -178,7 +178,7 @@ But my favorite arrangement (right up there with the Reunion Tour) is Bruce’s 
 
 [Watch on Youtube: Bruce Springsteen with The Seeger Sessions Band - The River](https://www.youtube.com/watch?v=rvxYiudnnKk)
 
-**The River  
+**The River**
 **Recorded** August 26, 1979 – April 1980  
 **Released:** *The River* (1980), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)  
 **First performed:** September 21, 1979 (New York City, NY)  

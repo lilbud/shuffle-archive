@@ -49,7 +49,7 @@ In fact, when I was twelve and first heard the song, I was positive the song was
 *Oh oh this little girl is mine*  
 *Oh oh this little girl, this little girl, this little girl is mine, mine, mine, mine*
 
-*Hey!*  
+*Hey!*
 *You better watch out*  
 *I’m telling you the score*  
 *Or you’re gonna be sweeping your broken heart up off the floor*  

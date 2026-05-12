@@ -1,7 +1,7 @@
 > “There’s a world of love, a world of beauty, a world of fear and a world of loss and they are the same world and that person is wending his way through that maze and at that moment he’s very in touch with both of those things. [“I Wish I Were Blind”] gets that picture.
-> 
-> 
-> 
+>
+>
+>
 > — Bruce Springsteen to David Hepworth, *Q Magazine,* August 1992
 
 I have a love/hate relationship with *Human Touch*, and “I Wish I Were Blind” epitomizes it.
@@ -66,7 +66,7 @@ Just make sure you turn to the solo version.
 
 [Watch on Youtube: Bruce Springsteen - I Wish I Were Blind (Herning 2013-05-16)](https://www.youtube.com/watch?v=23abo1QRmfo)
 
-**I Wish I Were Blind  
+**I Wish I Were Blind**
 **Recorded** September 1989 – March 1991  
 **Released:** *Human Touch* (1992)  
 **First performed:** May 6, 1992 (New York City, NY)  

@@ -61,7 +61,7 @@ It took 14 years for “Fade Away” to make a return appearance to Bruce’s se
 
 When Bruce dropped the full album concept after the U.S. leg, “Fade Away” lived up to its name. Except for the three rare European full-album shows, “Fade Away” hasn’t been seen since.
 
-**Fade Away  
+**Fade Away**
 **Recorded** March-June 1980  
 **Released:** *The River* (1980)  
 **First performed:** November 1, 1980 (Los Angeles, CA)  

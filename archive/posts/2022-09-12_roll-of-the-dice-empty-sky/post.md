@@ -1,15 +1,15 @@
 > On the morning of September 11, 2001, with the skies so clear that the Twin Towers across the river appeared to be within reach, the very essence of what our country stands for – freedom, tolerance, and the pursuit of happiness – was attacked.
-> 
-> 
-> 
+>
+>
+>
 > This memorial is dedicated to New Jersey's innocent loved ones who were violently and senselessly murdered that day at the World Trade Center, The Pentagon, and in Shanksville, PA.
-> 
-> 
-> 
+>
+>
+>
 > Let this memorial reflect the legacies of those whose lives were lost, that their unfulfilled dreams and hopes may result in a better future for society. Their unique qualities and characteristics enriched our lives immeasurably, and through this memorial their stories shall live on.
-> 
-> 
-> 
+>
+>
+>
 > *Inscribed on Empty Sky, the New Jersey September 11th Memorial*
 
 It’s fitting that New Jersey’s official September 11th Memorial borrows its name from a Bruce Springsteen song, because that song captures the loss and grief of those who lost loved ones on that day better than any other–and it does so in only eight unique lines.
@@ -67,7 +67,7 @@ In the years since, “Empty Sky” has been essentially relegated to the histor
 
 
 
-**Empty Sky  
+**Empty Sky**
 **Recorded** March-April, 2002  
 **Released:** *The Rising* (2002)  
 **First performed:** July 19, 2002 (Colts Neck, NJ)  

@@ -70,4 +70,4 @@ Bruce rescued “Santa Ana” from obscurity in 2005 for five performances, and 
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
- 
+

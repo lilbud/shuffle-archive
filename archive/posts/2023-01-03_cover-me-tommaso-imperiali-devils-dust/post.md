@@ -14,4 +14,4 @@ Tommaso recorded that performance in May. The final live competition was in late
 
 With consecutive third-place finishes to his credit, Tommaso is clearly an artist to watch. I’m looking forward to seeing if he can capture top honors next year!
 
- 
+

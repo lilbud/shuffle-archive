@@ -54,4 +54,4 @@ Finally, Bruce sent us off into the night with an acoustic “Thunder Road.”
 
 What a wild, unpredictable show that was–one of my all-time favorites for so many reasons. I’m so grateful to the folks who filmed so much of this show so I can keep reliving it!
 
- 
+

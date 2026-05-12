@@ -18,7 +18,7 @@ The only known recording is virtually unintelligible, so I’m not even going to
 *Now there’s a new day dawn*  
 *When no-one’s gonna pay the cost*  
 *They never ???*  
-*???*  
+*???*
 *Oh revolution is ours*
 
 *Man has told me to propagate love*  
@@ -28,7 +28,7 @@ Yeah, this is one rarity I don’t need to hear in concert.
 
 Just rolled the dice again and got something from the HT/LT era that’s much easier to work with. Look for it soon.
 
-**Black Sun Rising  
+**Black Sun Rising**
 **Recorded** N/A  
 **Released:** N/A  
 **First Performed:** April 18, 1970 (Toms River, NJ)  

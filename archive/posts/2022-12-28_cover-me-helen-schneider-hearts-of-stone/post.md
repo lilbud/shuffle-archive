@@ -6,4 +6,4 @@ And then there’s her cover of Bruce’s “[Hearts of Stone](https://estreetsh
 
 [Watch on Youtube: Helen Schneider - Hearts of Stone 1980](https://www.youtube.com/watch?v=suTLLHbZgT4)
 
- 
+

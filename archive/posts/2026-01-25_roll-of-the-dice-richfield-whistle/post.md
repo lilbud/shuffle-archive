@@ -114,7 +114,7 @@ It’s an unsettling ending, one that sticks with us much longer than the resolu
 
 We’ll take a listen to that one in a few days.
 
-**Richfield Whistle  
+**Richfield Whistle**
 **Recorded** April 24, 1983  
 **Released:** *L.A. Garage Sessions ’83* (2025)  
 **Never performed**

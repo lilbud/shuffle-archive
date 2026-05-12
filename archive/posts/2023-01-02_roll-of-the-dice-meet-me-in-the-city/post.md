@@ -146,7 +146,7 @@ But when the band traveled to Europe and abandoned the full-album concept, “Me
 
 Will we hear from “Meet Me in the City” again? That remains to be seen–but if we do, I’m betting the album it represents will shortly follow.
 
-**Meet Me in the City  
+**Meet Me in the City**
 **Recorded** June 14, 1979 (backing track), 2015 (vocals)  
 **Released:** *The River: Outtakes* (2015)  
 **First performed:** December 19, 2015 (New York City, NY)  

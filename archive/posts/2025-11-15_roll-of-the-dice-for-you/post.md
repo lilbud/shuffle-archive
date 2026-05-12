@@ -111,7 +111,7 @@ Because “For You” isn’t a love story. It’s not even a story at all. It�
 
 It’s not a song that resonates with everyone. But if you’ve been there, it resonates deeply.
 
- 
+
 
 ---
 
@@ -132,7 +132,7 @@ In recent years, the arrangement seems to be a toss-up depending on Bruce’s mo
 
 That misstep aside, “For You” is one of Bruce’s oldest fan-favorites, and one almost guaranteed to make an appearance or three on any given tour. That’s not likely to change anytime soon; when Bruce finally gets back out on the road someday, we’re likely to hear him play “For You” for us.
 
-**For You  
+**For You**
 **Recorded** June 27 – October 28, 1972  
 **Released:** [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1973)  
 **First performed:** February 14, 1972 (New York City, NY)  

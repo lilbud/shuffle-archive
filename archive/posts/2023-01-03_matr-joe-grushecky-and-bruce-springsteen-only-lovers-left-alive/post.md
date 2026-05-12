@@ -1,7 +1,7 @@
 > I was sitting on that title for years and years. I actually had a book called *Only Lovers Left Alive* when I was in high school, because I read that the Rolling Stones had licensed that book to make a movie. This is early, like when the Stones first hit. I had the book for years and years. It probably just fell apart, it was a little paperback, and I always liked the title of it: *Only Lovers Left Alive*. So I fashioned a story.
-> 
-> 
-> 
+>
+>
+>
 > — *Joe Grushecky, July 2020*
 
 It’s a hell of a story.
@@ -22,9 +22,9 @@ Joe and Bruce have never performed “Only Lovers Left Alive” in concert, but 
 
 [Watch on Youtube: Only Lovers Left Alive (Demo)](https://www.youtube.com/watch?v=XfgXRr0dWyU)
 
-**Only Lovers Left Alive  
+**Only Lovers Left Alive**
 **Recorded:** July 1994<br>
 **Released:** *American Babylon* (1995)<br>
 **Never performed**
 
- 
+

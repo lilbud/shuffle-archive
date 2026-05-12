@@ -12,7 +12,7 @@ Here’s Warren and Bruce’s award-winning performance.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iWElAh8iLWs)
 
-**Disorder in the House  
+**Disorder in the House**
 **Recorded:** December 18, 2002<br>
 **Released:** *The Wind* (2003)<br>
 **Never performed**

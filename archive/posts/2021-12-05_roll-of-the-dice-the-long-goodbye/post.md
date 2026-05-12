@@ -1,7 +1,7 @@
 > "The tragedy of life…is not that the beautiful things die young, but that they grow old and mean. It will not happen to me."
-> 
-> 
-> 
+>
+>
+>
 > *—* Raymond Chandler, *The Long Goodbye*
 
 Conventional wisdom holds that “The Long Goodbye” is Bruce’s confessional about finally cutting the cord with New Jersey and moving to warmer, sunnier climes out west.

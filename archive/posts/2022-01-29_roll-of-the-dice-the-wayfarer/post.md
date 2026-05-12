@@ -63,7 +63,7 @@ That’s *Western Stars.*
 
 [Watch on Youtube: The Wayfarer - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=y_JLo3dl_9c)
 
-**The Wayfarer  
+**The Wayfarer**
 **Recorded** March 18, 2010 – early 2019  
 **Released:** *Western Stars* (2019)  
 **First performed:** April 2019 (Colts Neck, NJ)  

@@ -24,4 +24,4 @@ Bruce and Sting have remained close friends, and they’ve performed with or for
 **First performed:** September 17, 1988 (Montreal, Canada)  
 **Last performed:** October 1, 2011 (New York City, NY)
 
- 
+

@@ -29,7 +29,7 @@ That central line (“I’m lost in the center of your resistance”) almost cer
 
 I would have liked to have seen what this would have developed into.
 
-**Crystal**  
+**Crystal**
 **Never recorded**  
 **Performed:** Possibly May 1968 (Red Bank, NJ)
 

@@ -10,4 +10,4 @@ Interestingly, though, the setlist archive indicates that John opened the show w
 
 Regardless of where it was, though, Jon gave a lovely and faithful performance of the song that night, and it’s a worthy addition to the vast catalog of Springsteen covers.
 
- 
+

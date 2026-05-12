@@ -93,7 +93,7 @@ Only once in the post-Reunion era did “Lion’s Den” get an outing beyond th
 
 [Watch Video Highlight](https://videopress.com/embed/NISWyTEK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Lion’s Den  
+**Lion’s Den**
 **Recorded** January 25, 1982 (core recording), 1998 (horns)  
 **Released:** *Tracks* (1998), *18 Tracks* (1999)  
 **First performed:** June 3, 1999 (Paris, France)  

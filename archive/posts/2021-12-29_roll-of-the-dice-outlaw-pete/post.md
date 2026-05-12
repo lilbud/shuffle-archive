@@ -1,16 +1,16 @@
 > The past is never the past. It is always present. And you better reckon with it in your life and in your daily experience, or it will get you. It will get you really bad. It will come and devour you, it will remove you from the present. It will steal your future and this happens every day…
-> 
-> 
-> 
+>
+>
+>
 > In other words, your past is your past. You carry it with you always. These are your sins. You carry them with you always. You better learn how to live with them, learn the story that they’re telling you. Because they’re whispering your future in your ear, and if you don’t listen, it will be contaminated by the toxicity of your past.
-> 
+>
 > — *Bruce Springsteen to Mark Hagen, The Guardian, January 18, 2009*
 > Well the Maximum Lawman run down Flamingo chasing the Rat and the barefoot girl  And the kids ’round here look just like shadows, always quiet, holding hands
-> 
-> 
-> 
+>
+>
+>
 > In the tunnels uptown, the Rat’s own dream guns him down as shots echo down them hallways in the night  No one watches when the ambulance pulls away or as the girl shuts out the bedroom light…
-> 
+>
 > *—Bruce Springsteen, “Jungleland”*
 
 Epic in length, audacious in arrangement.
@@ -146,7 +146,7 @@ Never but once, that is: at the second of a pair of postscript shows to his High
 
 [Watch on Youtube: Bruce Springsteen - 2014-05-23 Pittsburgh - Outlaw Pete (solo acoustic)](https://www.youtube.com/watch?v=qGXuPFhviRw)
 
-**Outlaw Pete  
+**Outlaw Pete**
 **Recorded** 2007-2008**Released:** *Working on a Dream (2009)***First performed:** March 23, 2009 (Asbury Park, NJ)**Last performed:** May 23, 2014 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

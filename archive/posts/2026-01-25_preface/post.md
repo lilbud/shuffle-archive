@@ -28,4 +28,4 @@ I quickly became mired in confusion and started swapping paragraphs between essa
 
 The upshot is that this book contains more new writing than I ever intended, something I’m not likely to repeat in this year’s remaining volumes.
 
- 
+

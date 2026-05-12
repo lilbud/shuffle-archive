@@ -86,7 +86,7 @@ Although it’s become pretty rare these days, “Stand On It” still makes app
 
 …at the end of the day “Stand On It” isn’t about setting land speed records. It’s about leaving it all out on the field, and the E Street Band still does that night after night.
 
-**Stand On It  
+**Stand On It**
 **Recorded** June 16, 1983  
 **Released:** *Tracks* (1998)  
 **First performed:** August 31, 1985 (East Rutherford, NJ)  

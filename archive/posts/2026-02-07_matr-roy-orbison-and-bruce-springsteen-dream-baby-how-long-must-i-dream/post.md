@@ -16,7 +16,7 @@ Roy’s original 1962 single ranks as one of his greatest hits, both then (it pe
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_NxlyXUVCPU)
 
-**Dream Baby (How Long Must I Dream)  
+**Dream Baby (How Long Must I Dream)**
 **First performed:** September 30, 1987 (Los Angeles, CA)  
 **Last performed:** September 30, 1987 (Los Angeles, CA)
 

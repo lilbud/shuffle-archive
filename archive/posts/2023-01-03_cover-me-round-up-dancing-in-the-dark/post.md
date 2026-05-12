@@ -30,4 +30,4 @@ Their version of “Dancing in the Dark” features stomping boots, rattling key
 
 That’s it for this installment, but there will definitely be more–there are too many great Springsteen covers out there that deserve more attention!
 
- 
+

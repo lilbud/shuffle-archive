@@ -54,7 +54,7 @@ Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce’s u
 
 [Watch Video Highlight](https://videopress.com/embed/0Yx6HV13?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
- 
+
 
 **2005:** At a second public rehearsal/benefit show (held in the afternoon) at Asbury Park’s Paramount Theater for his upcoming solo tour, Bruce premieres “Reno” and surprises fans with the return of the Christic arrangement of “Real World.” The bullet mic makes its debut on “Reason to Believe” and will remain a fixture on both this tour as well as the Magic Tour (albeit with very different arrangements).
 

@@ -58,7 +58,7 @@ It’s also even more overt than the finished version, which you might not have 
 *Can you imagine what would have happened if she’d just stepped back*
 *And showed him her pink Cadillac*
 
- 
+
 
 [Watch on Youtube: RARE! Pink Cadillac-Bruce Springsteen](https://www.youtube.com/watch?v=61R5ECzHMiM)
 
@@ -163,7 +163,7 @@ But despite a handful of terrific E Street Band concert performances, it’s at 
 
 [Watch Video Highlight](https://videopress.com/embed/bL4Mc0Lt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Pink Cadillac  
+**Pink Cadillac**
 **Recorded** May 31, 1983 – original, November 2003 – Jerry Lee Lewis cover  
 **Released:** *Dancing in the Dark* (1984)*, Tracks* (1998), *18 Tracks* (1999) – original, *Last Man Standing* (2006) – Jerry Lee Lewis cover  
 **First performed:** July 1, 1984 (St. Paul, MN)  

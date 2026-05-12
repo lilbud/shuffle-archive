@@ -91,7 +91,7 @@ On this first day of a new year, may you feel that same hope and possibility–a
 
 [Watch on Youtube: Hello Sunshine - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=ItacaaT6Nsk)
 
-**Hello Sunshine  
+**Hello Sunshine**
 **Recorded** 2010, 2019  
 **Released:** *Western Stars* (2019)  
 **First performed:** April 2019 (Colts Neck, NJ)  

@@ -24,4 +24,4 @@ Damn, that took guts. Even Bruce seemed blown away by it.
 
 There, I said it. Bring on the hate mail if you must, but I feel better now.
 
- 
+

@@ -1,7 +1,7 @@
 > “There were trains–passenger and freight–that came through Freehold in the fifties during long summer afternoons. We waited for them to jump and ride from one end of town to the other, or just to lay our pennies down on the rails and pick them up hot and flat. Those trains came and went as sudden as death.
-> 
-> 
-> 
+>
+>
+>
 > “Back home you knelt at home at your bedside and recited [The Lord’s Prayer]. ‘For if I die before I wake…’ I never cared for that part. It impressed upon my young mind that someday we will close our eyes and the gray evening sky will unfold above us, bringing that long and endless sleep.” — *Bruce Springsteen, Letter to You (2020)*
 
 For a good long stretch, Bruce Springsteen was a searcher, starting each new album with a question.
@@ -86,7 +86,7 @@ It’s also a reminder that against the vast reach of the universe and the march
 
 We may be gone in a minute, but this minute we’re here.
 
-**One Minute You’re Here  
+**One Minute You’re Here**
 **Recorded** Unknown (as early as September 2004 for the backing track, and likely 2019 for the vocals)  
 **Released:** *Letter to You (2020)*
 **Never performed**

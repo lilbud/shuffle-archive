@@ -6,7 +6,7 @@ Here’s the first time they played it together, from night one of Bruce’s pos
 
 Joe released “I Still Look Good (For Sixty)” on his 2013 album, *East of Eden.* Even on an eclectic album that crosses styles and genres, this song stands out as a lark.
 
- 
+
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hMLxxgUCpeo)
 
@@ -18,7 +18,7 @@ Both Joe and Bruce are now *well* past sixty, and perhaps that’s why they’ve
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SHIGaBfiLcE)
 
-**I Still Look Good (For Sixty)  
+**I Still Look Good (For Sixty)**
 **First performed:** May 22, 2014 (Pittsburgh, PA)  
 **Last performed:** January 17, 2015 (Asbury Park, NJ)
 

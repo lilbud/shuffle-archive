@@ -6,4 +6,4 @@ For the record though, while the single may have been released in early 1994, th
 
 [Watch on Youtube: Ryan Adams - Streets Of Philadelphia (6 Music Live Room session)](https://www.youtube.com/watch?v=YAmHl-4m3E8)
 
- 
+

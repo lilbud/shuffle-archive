@@ -1,10 +1,10 @@
 > “Sometimes you’ve been too beat up or haven’t healed enough of the fear out of you to know a good thing when you’ve found it. Sometimes you just gravitate to the pain. It’s what you’re used to. It’s how you recognize yourself. It feels like home. It feels more familiar to you than love. So that’s where you go.
-> 
-> 
-> 
+>
+>
+>
 > You don’t know how to hold on to love, but you know how to hold on to hurt.”
-> 
-> 
+>
+>
 > — Bruce Springsteen, *Western Stars* (2019)
 
 “I wrote this song quickly at the kitchen table one morning,” Bruce explained by way of introduction in *Western Stars*. “It’s just about being lost on the highway of life. Lost is something i’m good at writing about.”
@@ -55,7 +55,7 @@ During the key bridge, Bruce catches the camera and his gaze meets ours just as 
 
 [Watch on Youtube: Somewhere North of Nashville - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=QFYy08tkdIk)
 
-**Somewhere North of Nashville  
+**Somewhere North of Nashville**
 **Recorded** Unknown  
 **Released:** *Western Stars* (2019)  
 **First performed:** April 2019 (Colts Neck, NJ)  

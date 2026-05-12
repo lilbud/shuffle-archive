@@ -1,7 +1,7 @@
 > “This is a song I cut in the early ’90s. It was on *Human Touch,* but we didn’t quite get it right… I kind of screwed it up when I recorded it… It kind of got away from me… didn’t get a good version of it, but it was a good song.”
-> 
-> 
-> 
+>
+>
+>
 > — Bruce Springsteen, various on-stage confessions in 2005
 
 Thank goodness he knows.
@@ -117,7 +117,7 @@ Bruce seems to have surrendered “Real World” to its original incarnation, a 
 
 We may yet hear it again when Bruce steps back out into the real world.
 
-**Real World  
+**Real World**
 **Recorded** December 1989 – January 1990  
 **Released:** *Human Touch* (1992)  
 **First performed:** November 16, 1990 (Los Angeles, CA)  

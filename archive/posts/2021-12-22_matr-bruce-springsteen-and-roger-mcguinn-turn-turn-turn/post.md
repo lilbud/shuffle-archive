@@ -1,5 +1,5 @@
 > To every thing there is a season, and a time to every purpose under the heaven:  A time to be born, and a time to die; a time to plant, a time to reap that which is planted;  A time to kill, and a time to heal; a time to break down, and a time to build up;  A time to weep, and a time to laugh; a time to mourn, and a time to dance;  A time to cast away stones, and a time to gather stones together;  A time to embrace, and a time to refrain from embracing;  A time to gain that which is to get, and a time to lose; a time to keep, and a time to cast away;  A time to rend, and a time to sew; a time to keep silence, and a time to speak;  A time of love, and a time of hate; a time of war, and a time of peace.
-> 
+>
 > — *Ecclesiastes 3:1-8*
 
 Pete Seeger took those Bible verses, re-arranged them a bit, set them to music, wrote a half-dozen new words (plus a repeated seventh), and created a timeless international classic.
@@ -54,8 +54,8 @@ Bruce and Roger’s performance of “Turn! Turn! Turn!” with the E Street Ban
 
 Today, “Turn! Turn! Turn!” is regarded as both a folk and jangle rock classic, bearing the imprint of two of Bruce’s influencers. It’s only fitting that it remains one of the few covers that Bruce has issued on an official release.
 
-**Turn! Turn! Turn! (To Everything There Is a Season)”  
+**Turn! Turn! Turn! (To Everything There Is a Season)”**
 **First performed:** April 25, 2006 (Asbury Park, NJ)  
 **Last performed:** April 23, 2008 (Orlando, FL)
 
- 
+

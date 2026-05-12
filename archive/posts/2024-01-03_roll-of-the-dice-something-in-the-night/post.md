@@ -112,7 +112,7 @@ There’s something about the darkness, the emptiness, and of course that album-
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Something in the Night (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=8yYz7ST5ByY)
 
-**Something in the Night  
+**Something in the Night**
 **Recorded** June 1, 1977  
 **Released:** *Darkness on the Edge of Town* (1978)  
 **First performed:** August 1, 1976 (Red Bank, NJ)  

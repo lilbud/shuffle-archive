@@ -73,7 +73,7 @@ Before we leave, there’s something else worth pointing out about “Party Ligh
 
 [Watch Video Highlight](https://videopress.com/embed/C66uAIaH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Party Lights  
+**Party Lights**
 **Recorded** October 8, 1979  
 **Released:** *The Ties That Bind: The River Collection* (2015)  
 **Never performed**

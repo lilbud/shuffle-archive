@@ -20,7 +20,7 @@ These weren’t the first times Bruce joined The Stones on stage, and “Tumblin
 
 These “Tumbling Dice” performances represent the only times Bruce and Mick have commanded the stage together in true duet fashion, and those fortunate enough to witness it in person were present for a truly great moment in rock history.
 
-**Tumbling Dice  
+**Tumbling Dice**
 **First performed:** December 15, 2012 (Newark, NJ)  
 **Last performed:** May 29, 2014 (Lisbon, Portugal)
 

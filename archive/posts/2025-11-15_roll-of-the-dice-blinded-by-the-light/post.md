@@ -1,7 +1,7 @@
 > “It’s basically about sex.” — *Bruce Springsteen, February 20, 2003*
-> 
-> 
-> 
+>
+>
+>
 > “Don’t overthink the whole thing.” — *Bruce Springsteen, April 4, 2005*
 
 What do you do if you’re a hot-shot 22-year-old would-be rock star with big dreams, a recording contract, a wide-open future, and the only thing standing in the way of your voice on vinyl is a record exec who can’t hear a single?
@@ -172,7 +172,7 @@ Bruce did.
 
 [Watch Video Highlight](https://videopress.com/embed/FpUdQtkf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Blinded by the Light  
+**Blinded by the Light**
 **Recorded** September 11, 1972  
 **Released:** *Greetings From Asbury Park, N.J.* (1973), *The Essential Bruce Springsteen* (2003)  
 **First performed:** December 7, 1972 (New York City, NY)  

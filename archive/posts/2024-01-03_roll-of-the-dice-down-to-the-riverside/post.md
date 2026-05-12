@@ -1,11 +1,11 @@
 > “Every chance I got, I returned to stay with my grandparents. It was my true home and they felt like my real parents. I could and would not leave… This was where I needed to be to feel at home, safe, loved…
-> 
-> 
-> 
+>
+>
+>
 > It was a place where I felt an ultimate security, full license and a horrible unforgettable boundary-less love… It made me in the sense that it would set me off on a lifelong pursuit of a “singular” place of my own, giving me a raw hunger that drove me, hell-bent, in my music. It was a desperate, lifelong effort to rebuild, on embers of memory and longing, my temple of safety.”
-> 
-> 
-> 
+>
+>
+>
 > *–Bruce Springsteen, Born to Run* (2016)
 
 You’re about to listen to a song you haven’t heard before, a previously uncirculated, gorgeously captured, emotionally powerful, magnificent 50-year-old Bruce Springsteen song. But it’s worth a little backstory first.
@@ -118,7 +118,7 @@ And there we have it: the only known recording of Bruce’s breathtakingly intim
 
 For me, at least, it was worth the wait.
 
-**Down to the Riverside  
+**Down to the Riverside**
 Never recorded**
 **Never released**
 **First performed:** February 5, 1972 (Richmond, VA)  

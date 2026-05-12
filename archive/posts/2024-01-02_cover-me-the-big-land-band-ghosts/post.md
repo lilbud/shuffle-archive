@@ -12,4 +12,4 @@ In contrast with Bruce’s celebratory original, Goetz’s cover of “Ghosts”
 
 I’m sure we’ll see many more *Letter to You* covers over the coming months, but this is a nice way to kick them off.
 
- 
+

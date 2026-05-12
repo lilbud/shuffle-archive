@@ -19,7 +19,7 @@ Bruce performed “Lady Walking Down by the River” with Steel Mill only twice�
 
 [Watch on Youtube: Steel Mill Retro-Lady walking down by the river,written by Bruce Springsteen](https://www.youtube.com/watch?v=NyuC7CcPmIk)
 
-**Lady Walking Down by the River  
+**Lady Walking Down by the River**
 **Recorded** N/A**First performed:** January 13, 1970 (San Francisco, CA)**Last performed:** February 28, 1970 (Richmond, VA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

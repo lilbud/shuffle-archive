@@ -18,7 +18,7 @@ Bruce’s Marvin Gaye-inspired arrangement was jaw-dropping–when the full powe
 
 As for the original songwriters, Barry Gibb had this to say after witnessing the performance:
 > Dear Bruce [@springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw), just been blown away by your Stayin Alive. You brought it back to life.Thank you!
-> 
+>
 > — Barry Gibb (@GibbBarry) [February 26, 2014](https://twitter.com/GibbBarry/status/438814997020692480?ref_src=twsrc%5Etfw)
 
 
@@ -27,8 +27,8 @@ Many fans (this one included) consider “Stayin’ Alive” to be one of Bruce�
 
 Three months later, Gibb would return the favor. Check out his [cover](https://estreetshuffle.com/index.php/2019/07/05/cover-me-barry-gibb-im-on-fire/) of Bruce’s “[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)“.
 
-**Stayin’ Alive  
+**Stayin’ Alive**
 **First performed:** February 26, 2014 (Brisbane, Australia)  
 **Last performed:** May 17, 2014 (Uncasville, CT)
 
- 
+

@@ -18,7 +18,7 @@ Recorded in late 1977, “BoDo Rocker” never had a prayer of making it onto [*
 
 But I’d consider paying platinum prices to see them play it live on the next tour.
 
-**BoDo Rocker  
+**BoDo Rocker**
 **Recorded:** October 14, 1977<br>
 **Never released**
 **Never performed**

@@ -56,7 +56,7 @@ Joe and Bruce’s performances of “I’m Not Sleeping” are so great, in fact
 
 [Watch Video Highlight](https://videopress.com/embed/bNmTsDJo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**I’m Not Sleeping  
+**I’m Not Sleeping**
 **Released:** *Coming Home* (1998)  
 **First performed:** November 4, 2010 (Pittsburgh, PA)  
 **Last performed:** May 23, 2014 (Pittsburgh, PA)

@@ -36,7 +36,7 @@ The Gotham Playboys (the core and inspiration of the Sessions Band) were the eve
 
 [Watch on Youtube: oklahoma Home Bruce Seeger Sessions Band Tribeca Grill 5-16-15](https://www.youtube.com/watch?v=etXiP7Xcf90)
 
-**My Oklahoma Home  
+**My Oklahoma Home**
 **Recorded:** November 2, 1997<br>
 **Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
 **First performed:** April 20, 2006 (Asbury Park, NJ)<br>

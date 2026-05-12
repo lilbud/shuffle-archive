@@ -107,7 +107,7 @@ A deep cut in every sense, “House of a Thousand Guitars” is the letter in *L
 
 [Watch on Youtube: House of A Thousand Guitars -Bruce Springsteen (1-02-2023 Amalie Arena,Tampa,Florida)(Audio Oficial)](https://www.youtube.com/watch?v=Vlb7J8jwPbU)
 
-**House of a Thousand Guitars  
+**House of a Thousand Guitars**
 **Recorded** November 2019  
 **Released:** *Letter to You* (2020)  
 **First performed:** November 18, 2020 (Colts Neck, NJ)  

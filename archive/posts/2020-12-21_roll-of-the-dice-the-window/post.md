@@ -60,7 +60,7 @@ These are not Bruce’s strongest lyrics (“get on your plastic words and fly�
 
 No recording exists of “The Window” (that I know of, at least), but if Bruce truly did perform it on stage that year, perhaps there’s someone out there who recalls hearing it (or even captured it on tape–as unlikely as that would be, there are even earlier recordings in circulation). If not, this is likely as close as we’ll come to hearing one of Bruce’s earliest original songs.
 
-**The Window  
+**The Window**
 Never recorded**
 **Never released**
 **First performed:** Unknown (but believed to be May 1968, Red Bank, NJ)  

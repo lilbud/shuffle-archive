@@ -62,7 +62,7 @@ He saved the first couplet, aged the narrator a few years, changed the focus fro
 
 No one’s going to put “Oh Mama” on heavy rotation, but it’s a peak into the origins of a much stronger song and a great example of Bruce’s songwriting instincts. A great line waits for its time.
 
-**Oh Mama  
+**Oh Mama**
 **First performed:** November 27, 1970 (Asbury Park, NJ)  
 **Last performed:** January 23, 1971 (Asbury Park, NJ)
 

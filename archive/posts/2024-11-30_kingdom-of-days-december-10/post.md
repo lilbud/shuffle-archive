@@ -76,4 +76,4 @@ Finally, that evening Bruce appears on a television special to announce *Time Ma
 
 **2023:** Bruce’s scheduled show in San Francisco is postponed to the following March due to his peptic ulcer disease.
 
- 
+

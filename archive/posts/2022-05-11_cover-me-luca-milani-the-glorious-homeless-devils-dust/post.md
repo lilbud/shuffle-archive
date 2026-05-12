@@ -12,4 +12,4 @@ The *Cover Me* competition for 2022 is underway, with new entries appearing by t
 
 If this year’s crop of entries are as outstanding as last years, you can expect to be seeing features on contest entrants here throughout the summer. In the meantime, if you like what you heard here, check out Luca Milani’s original music [here](https://www.luca-milani.com/).
 
- 
+

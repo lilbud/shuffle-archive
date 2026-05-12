@@ -1,11 +1,11 @@
 > “I guess there’s just a certain amount of good and bad you get from your parents, and I just got the bad.”
-> 
-> 
-> 
+>
+>
+>
 > “That’s not true. Cal! Listen to me: you can make of yourself anything you want. It’s up to you. A man has a choice.”
-> 
-> 
-> 
+>
+>
+>
 > — Cal and Adam, *East of Eden* (1955)
 
 In 1955, *East of Eden* swept its way through a host of prestigious awards and nominations. Directed by the great Elia Kazan, based loosely on one section of John Steinbeck’s novel of the same name, and featuring James Dean’s debut screen performance, *East of Eden* won the Best Motion Picture (Drama) Golden Globe that year along with nominations for multiple Academy Awards (including a Best Supporting Actress win for Jo Van Fleet) and was eventually inducted into the National Film Registry.
@@ -120,7 +120,7 @@ The other is a jaw-droppingly intense performance before an empty Paramount Thea
 
 When Bruce and the band hit the road again next year, odds are very, very high that “Adam” will be with them, too.
 
-**Adam Raised a Cain  
+**Adam Raised a Cain**
 **Recorded** February 15-17, 1978  
 **Released:** *Darkness on the Edge of Town* (1978)  
 **First performed:** May 23, 1978 (Buffalo, NY)  

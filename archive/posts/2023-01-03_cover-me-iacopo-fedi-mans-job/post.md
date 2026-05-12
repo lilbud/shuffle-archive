@@ -32,4 +32,4 @@ I’ll be featuring several more of my favorite performances over the coming wee
 
 And thank you, Iacopo, for re-inventing Bruce’s song and deepening my appreciation of it. Your live performance that night will likely remain my single favorite performance of “Man’s Job” by anyone, Bruce included.
 
- 
+

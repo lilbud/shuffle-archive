@@ -4,4 +4,4 @@ But capturing Bruce’s original *Nebraska* vibe through his arrangement, home s
 
 [Watch on Youtube: Ryan Bingham Covers Bruce Springsteen's Atlantic City Bootleg #15](https://www.youtube.com/watch?v=pnsmb4SjZVs)
 
- 
+

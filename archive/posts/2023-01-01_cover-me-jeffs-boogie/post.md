@@ -26,8 +26,8 @@ Bruce would try “Jeff’s Boogie” again on at least one other occasion in 19
 
 But thankfully we have that 1967 recording of an aspiring rock star full of spit and fire and nothing at all to fear.
 
-**Jeff’s Boogie  
+**Jeff’s Boogie**
 **First performed:** September 16, 1967 (Freehold, NJ)  
 **Last performed:** November 23, 1971 (Linden, NJ)
 
- 
+

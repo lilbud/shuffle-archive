@@ -26,4 +26,4 @@ He was trapped on a treadmill until he finally collapsed and died in 1977.
 
 Elvis’ death had a profound effect on Bruce Springsteen, whose star was just starting to rise at the moment Presley’s went out. He’d
 
- 
+

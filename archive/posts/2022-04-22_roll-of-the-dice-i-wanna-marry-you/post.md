@@ -103,7 +103,7 @@ What most fans don’t realize, however, is that the version of “I Wanna Marry
 
 [Watch on Youtube: I Wanna Marry You](https://www.youtube.com/watch?v=WtNHmFYtBf8)
 
-**I Wanna Marry You  
+**I Wanna Marry You**
 **Recorded** July 1979 – May 1980  
 **Released:** *The River* (1980), *The River: Single Album* (2015)  
 **First performed:** October 3, 1980 (Ann Arbor, MI)  

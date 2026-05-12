@@ -26,4 +26,4 @@ The album didn’t break through. Neither did their follow-up self-titled album.
 
 The story of Jeff Stevens and the Bullets is a short one, but it earned Bruce an eighth charting single (as songwriter, at least) from his landmark album.
 
- 
+

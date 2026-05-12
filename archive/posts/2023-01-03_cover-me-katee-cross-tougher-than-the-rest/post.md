@@ -10,4 +10,4 @@ It’s a very different take than Bruce’s, and it casts the song in an entirel
 
 “Tougher Than the Rest” may be one of Bruce’s most frequently covered songs, but Katee’s arrangement and performance elevates this cover to the ranks of the very best versions.
 
- 
+

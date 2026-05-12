@@ -20,4 +20,4 @@ But if this one cover is indicative of their musical and interpretive ability, I
 
 This year’s *Cover Me* contest is turning out to have a very high bar.
 
- 
+

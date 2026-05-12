@@ -1,7 +1,7 @@
 > In “Drive Fast,” I had that metaphor of the stuntman (which is always a metaphor of risk) and this idea that we all have our broken pieces. What frightens and what exhilarates and inspires us are often very close together. Those feelings are the essence of what drives us to risk, in life and in love.
-> 
-> 
-> 
+>
+>
+>
 > Everybody’s broken in some way–physically, emotionally, spiritually. In this life, nobody gets away unhurt. I wrote a song about a guy not just finding the fearlessness to do his job, but the fearlessness to risk being with somebody that you love. We’re always trying to find somebody whose broken pieces fit with our broken pieces, and something whole emerges. — Bruce Springsteen, *Western Stars*
 
 This is my sixth *Roll of the Dice* entry for *Western Stars*, and I’m well aware that I’ve already rated three of the previous five among Bruce’s finest songs ever.
@@ -106,7 +106,7 @@ Watch for the moment when our nine-year-old hero climbs his tree. The lighting i
 
 [Watch on Youtube: Drive Fast (The Stuntman) - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=ag-U2K5tWKY)
 
-**Drive Fast (The Stuntman)  
+**Drive Fast (The Stuntman)**
 **Recorded** 2010-2018  
 **Released:** *Western Stars* (2019)  
 **First performed:** April 2019 (Colts Neck, NJ)  

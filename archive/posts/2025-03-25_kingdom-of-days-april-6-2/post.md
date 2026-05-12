@@ -52,4 +52,4 @@
 
 **2022:** Bruce celebrates Clive Davis’ 90th birthday by recording a video salute and a performance of “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/).”
 
- 
+

@@ -64,7 +64,7 @@ About all we can say with some confidence about “The Virgin Flower” is that 
 
 Beyond that, I think we’d need a closer look at clearer lyrics in order to grok what young Bruce was reaching for–and since the notebook is reportedly in the hands of a private collector, maybe we’ll yet get a chance to see it for ourselves someday.
 
-**The Virgin Flower  
+**The Virgin Flower**
 Never recorded**
 **Never released**
 **Never performed**

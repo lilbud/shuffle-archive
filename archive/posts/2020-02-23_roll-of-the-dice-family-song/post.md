@@ -87,7 +87,7 @@ I’m not ashamed to admit that I tear up when I listen to “Family Song.” Br
 
 [Watch Video Highlight](https://videopress.com/embed/fxxfruGh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Family Song  
+**Family Song**
 **Recorded** March 1972  
 **Never released**
 **Never performed**

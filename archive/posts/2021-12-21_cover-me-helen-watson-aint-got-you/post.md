@@ -8,4 +8,4 @@ But cover it she did, on her 1999 album *Doffing,* in an a capella fashion that 
 
 It’s a cool, soulful performance of a rarely covered, under-the-radar Springsteen original. The rest of the album is pretty great too, spanning a rock spectrum from soul to folk in Watson’s own style–it’s worth checking out.
 
- 
+

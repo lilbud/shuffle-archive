@@ -18,4 +18,4 @@ Check out more Orbison/Springsteen highlights from *Black and White Night* [here
 **First performed:** September 30, 1987 (Los Angeles, CA)  
 **Last performed:** September 30, 1987 (Los Angeles, CA)
 
- 
+
