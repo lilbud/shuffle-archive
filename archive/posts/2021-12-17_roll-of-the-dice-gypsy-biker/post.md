@@ -1,20 +1,12 @@
-
-
-“Gypsy Biker” has the soul of Bruce’s classic narrative laments like “Highway Patrolman,” “,” or “”
-
-[The Line](http://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
+“Gypsy Biker” has the soul of Bruce’s classic narrative laments like “Highway Patrolman,” “[The Line](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/),” or “[The River.](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)”
 
 In fact, in its first moments, “Gypsy Biker” almost sounds like a self-homage to “The River.” Seriously: listen to the opening bars of both, and you’ll hear the similarity in the rueful harmonica and acoustic guitar intros.
 
-As the song proceeds lyrically, it sounds almost like a rewrite of “” (the two songs even share a lyric), except that “Gypsy Biker” makes the family in “Shut Out the Light” seem fortunate by comparison.
+As the song proceeds lyrically, it sounds almost like a rewrite of “[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)” (the two songs even share a lyric), except that “Gypsy Biker” makes the family in “Shut Out the Light” seem fortunate by comparison.
 
-[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)
+But where the songs above get lost in contemplative regret, “Gypsy Biker” rages and rocks. It’s an angry song on an angry album, but unlike other *Magic* tracks, Bruce makes no attempt to disguise the point-of-view character’s pain or underline it with political metaphor. “Gypsy Biker” is a song of mourning.
 
-But where the songs above get lost in contemplative regret, “Gypsy Biker” rages and rocks. It’s an angry song on an angry album, but unlike other tracks, Bruce makes no attempt to disguise the point-of-view character’s pain or underline it with political metaphor. “Gypsy Biker” is a song of mourning.
-
-*Magic*
-
-[https://www.youtube.com/embed/uLqNoQpOfms?feature=oembed](https://www.youtube.com/embed/uLqNoQpOfms?feature=oembed)
+[Watch on Youtube: Gypsy Biker](https://www.youtube.com/watch?v=uLqNoQpOfms)
 
 The gypsy biker, of course, isn’t the singer. It’s the singer’s brother, whose death sends the singer spiraling into fury and despair as he struggles to come to grips with his loss.
 
@@ -27,9 +19,7 @@ In Bruce’s typical fashion, he spends the first verse setting the scene, inter
 *We pulled your cycle up back to the garage and polished up the chrome*  
 *Our gypsy biker’s comin’ home*
 
-Another Springsteen trademark is in play: conveying information without directly stating it. Bruce strongly implies that the biker is a soldier (a recurring theme on the album), and although the last line of the verse sounds hopeful, the earlier “sheets up off your bed” line informs us otherwise–the biker is not coming home alive.
-
-*Magic*
+Another Springsteen trademark is in play: conveying information without directly stating it. Bruce strongly implies that the biker is a soldier (a recurring theme on the *Magic* album), and although the last line of the verse sounds hopeful, the earlier “sheets up off your bed” line informs us otherwise–the biker is not coming home alive.
 
 We also know that the singer isn’t blaming whoever pulled the trigger on his brother; instead, he’s condemning the powers that be for concerning themselves with wealth over human lives. And if there’s any doubt about it, Bruce name checks “Jane Street.” Whether that refers to the financial trading firm or the upscale Manhattan neighborhood, the implication is clear.
 
@@ -71,31 +61,22 @@ Listen to it, and feel the bitterness and regret in “I didn’t get it right�
 
 When the song first came out, fans would argue about the “white lines.” Do they refer to cocaine or to highway lane dividers? To argue is to miss the point entirely: either way, the singer is self-medicating, distracting himself either with hard drugs or the soporific highway, unable to move past his loss.
 
-Those lines join “Is a dream a lie if it don’t come true, or is it something worse” and “” in the canon of devastating final Springsteen lyrics.
-
-[God have mercy on the man who doubts what he’s sure of](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)
+Those lines join “Is a dream a lie if it don’t come true, or is it something worse” and “[God have mercy on the man who doubts what he’s sure of](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” in the canon of devastating final Springsteen lyrics.
 
 “Gypsy Biker” was a nightly staple throughout most of the Magic Tour, but following the passing of Danny Federici, Bruce performed it less frequently, dropping it from the setlist for most of the final months of the tour. Perhaps the song’s loss of a dear friend hit too close to home; certainly the song demands a vocal performance that would make it hard to detach oneself from it.
 
 In the clip below, only days after Danny’s passing, you can see and hear the intensity and emotion in Bruce’s delivery. Are those tears or is it sweat the Bruce wipes from his eyes at around the 4:40 mark? Given that performance, it could easily be both.
 
-[https://videopress.com/embed/K0JeVPWW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/K0JeVPWW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/K0JeVPWW?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 “Gypsy Biker” was all but retired after the Magic Tour. Since then, it’s made but one appearance (thanks to a sign request), the following year in Charlottesville on the Working on a Dream Tour. It took a while for Bruce to remember how the song goes, but once it clicked, the performance was as intense as ever.
 
-[https://www.youtube.com/embed/tAQVj9s-oew?feature=oembed](https://www.youtube.com/embed/tAQVj9s-oew?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Gypsy Biker (All) - C'Ville-5/5/09](https://www.youtube.com/watch?v=tAQVj9s-oew)
 
-March-May 2007
-(2007)
-September 27, 2007 (Asbury Park, NJ)
-May 5, 2009 (Charlottesville, VA)
+**Gypsy Biker  
+**Recorded:** March-May 2007<br>
+**Released:** *Magic* (2007)<br>
+**First performed:** September 27, 2007 (Asbury Park, NJ)<br>
+**Last performed:** May 5, 2009 (Charlottesville, VA)
 
-**Gypsy Biker**
-**Recorded:**<br>
-
-**Released:** *Magic* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

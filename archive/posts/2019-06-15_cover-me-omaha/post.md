@@ -15,5 +15,5 @@ Of course the big mystery is: how in the world did a recording of this performan
 For that story, listen to the interview with the man who recorded it [here](https://estreetshuffle.com/index.php/2019/02/01/roll-of-the-dice-mr-jones/).
 
 **Omaha**
-**First performed**: September 16, 1967 (Freehold, NJ)
+**First performed:** September 16, 1967 (Freehold, NJ)
 **Last performed:** September 30, 1967 (Freehold, NJ)<br>

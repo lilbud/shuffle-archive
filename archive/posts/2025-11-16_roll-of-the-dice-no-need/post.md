@@ -1,14 +1,10 @@
-
-
 In April of 1972, Bruce began recording demos with Jim Cretecos. (Bruce would sign on with Cretecos and Mike Appel in May.)
 
 One of those songs–recorded sometime between April and July of that year–was the ironically named “No Need.”
 
-It’s not clear when exactly Bruce wrote “No Need”–the only known instance of him performing it live was just a couple of months earlier in February–but it feels like a less mature piece of songwriting than, say, “,” which was recorded around the same time. Which is not to say it’s without merit–it’s just not as confident and skillful as some of his other contemporary songs.
+It’s not clear when exactly Bruce wrote “No Need”–the only known instance of him performing it live was just a couple of months earlier in February–but it feels like a less mature piece of songwriting than, say, “[Jesse](https://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/),” which was recorded around the same time. Which is not to say it’s without merit–it’s just not as confident and skillful as some of his other contemporary songs.
 
-[Jesse](http://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/)
-
-[https://www.youtube.com/embed/LHYB63VzWd0?feature=oembed](https://www.youtube.com/embed/LHYB63VzWd0?feature=oembed)
+[Watch on Youtube: Bruce Springsteen, "No Need"](https://www.youtube.com/watch?v=LHYB63VzWd0)
 
 Bruce delves into his utility belt of songwriting devices from the get-go, starting with the biblical imagery (angel, Bible, Jesus, Satan) that run rampant throughout the first verse:
 
@@ -28,9 +24,7 @@ Performed on piano (one of Bruce’s earliest recorded piano tracks) and sung at
 *And she’s the only woman I ever knew*  
 *Who could teach me more about me, bind me in chains and still let me be free*
 
-There’s a notion in that last line–being bound but free at the same time–that also surfaces in “:”
-
-[Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/) *I don’t understand how you can hold me so tight and love me so damn loose.*
+There’s a notion in that last line–being bound but free at the same time–that also surfaces in “[Mary, Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/):” *I don’t understand how you can hold me so tight and love me so damn loose.*
 
 Both songs were recorded around the same time, so it’s clear that either Bruce was taken by or struggling with this notion, or (equally likely) that it’s just one of the first examples of one of Bruce’s songwriting trademarks: an element of an earlier song working its way into a later one.
 
@@ -81,16 +75,10 @@ But what is clear is that “No Need” feels more in keeping with some of Bruce
 
 I consider “No Need” to be a stepping stone on Bruce’s songwriting journey, but an important one that offers fascinating insight into the artist at a young and pivotal age.
 
-April-July 1972
-
-February 17, 1972 (Freehold, NJ)
-February 17, 1972 (Freehold, NJ)
-
-**No Need**
-**Recorded:**<br>
-
+**No Need  
+**Recorded:** April-July 1972<br>
 **Never released**  
-**First performed:**<br>
-**Last performed:**<br>
+**First performed:** February 17, 1972 (Freehold, NJ)<br>
+**Last performed:** February 17, 1972 (Freehold, NJ)
 
 © September 8, 2018

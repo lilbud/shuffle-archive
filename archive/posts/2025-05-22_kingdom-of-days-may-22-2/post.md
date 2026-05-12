@@ -6,7 +6,7 @@
 
 **1984:** Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
 
-**1988**: Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of "[Lonely Teardrops](https://estreetshuffle.com/index.php/2021/01/22/cover-me-lonely-teardrops/)" as the final encore.
+**1988:** Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of "[Lonely Teardrops](https://estreetshuffle.com/index.php/2021/01/22/cover-me-lonely-teardrops/)" as the final encore.
 
 [Watch Video Highlight](https://videopress.com/embed/NfdXRn6j)
 
@@ -62,7 +62,7 @@
 
 [Watch on Youtube: Bruce Springsteen Dublin 22/05/2008 Full Concert](https://www.youtube.com/watch?v=EcX1ECHblrU)
 
-**2010**: Bruce and Patti perform at a benefit show (along with Jon Stewart) for Gateway Schools at the Nokia Theater in New York City.
+**2010:** Bruce and Patti perform at a benefit show (along with Jon Stewart) for Gateway Schools at the Nokia Theater in New York City.
 
 **2014:** Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of "[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)," "[Two for the Road](https://estreetshuffle.com/index.php/2020/06/30/roll-of-the-dice-two-for-the-road/)," "[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)," "[The Wall](https://estreetshuffle.com/index.php/2024/09/04/roll-of-the-dice-the-wall/)," and "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)," along with the world premiere of "[Leavin' Train](https://estreetshuffle.com/index.php/2021/04/15/roll-of-the-dice-leavin-train/)."
 

@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen Sugarland #5 rock version](https://www.youtube.com/watch?v=PlACjjEgsmg?list=PLp97J3OSn7IuszyC9fWFqHvBVCCctjy-h)
 
-**1985**: The first of two nights at the Greensboro Coliseum on the Born in the U.S.A. Tour features guest-stars Gary U.S. Bonds and Robbin Thompson on "Twist and Shout" during the encore.
+**1985:** The first of two nights at the Greensboro Coliseum on the Born in the U.S.A. Tour features guest-stars Gary U.S. Bonds and Robbin Thompson on "Twist and Shout" during the encore.
 
 [Watch Video Highlight](https://videopress.com/embed/BK00O8PP)
 
@@ -26,7 +26,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1986-01-18.mp3?_=7)
 
-**1989**: Bruce joins the Rolling Stones, the Temptations, Tina Turner, Stevie Wonder, Pete Townshend, and more on stage for the all-star jam at the fourth annual Rock and Roll Hall of Fame induction ceremony. Bruce takes lead vocals on Roy Orbison's "[Crying](https://estreetshuffle.com/index.php/2022/05/06/cover-me-crying/)" and plays guitar throughout the rest of the jam.
+**1989:** Bruce joins the Rolling Stones, the Temptations, Tina Turner, Stevie Wonder, Pete Townshend, and more on stage for the all-star jam at the fourth annual Rock and Roll Hall of Fame induction ceremony. Bruce takes lead vocals on Roy Orbison's "[Crying](https://estreetshuffle.com/index.php/2022/05/06/cover-me-crying/)" and plays guitar throughout the rest of the jam.
 
 [Watch Video Highlight](https://videopress.com/embed/F1pnPZMx)
 
@@ -48,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/hqPvtH4u)
 
-**2009**: Bruce performs "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)" and "[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)" at the We Are One concert in honor of Barack Obama's inauguration as the 44th President of the United States of America.
+**2009:** Bruce performs "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)" and "[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)" at the We Are One concert in honor of Barack Obama's inauguration as the 44th President of the United States of America.
 
 [Watch on Youtube: the rising - bruce springsteen](https://www.youtube.com/watch?v=f5e1WlOyr1U)
 

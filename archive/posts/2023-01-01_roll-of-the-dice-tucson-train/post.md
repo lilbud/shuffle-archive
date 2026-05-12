@@ -1,24 +1,16 @@
+> I’ve spent my 10,000 hours (and then some) learning my musical craft. But I’ve spent a lot more time than that, some 35 years, trying to learn how to let go of the destructive parts of my character. They did not go easily into that good night. For a long time, if I loved you and if I felt a deep attachment to you, I would hurt you if I could. It was a sin, and I still have days when I struggle with it. But I’ve gotten better. Through the love of my family, my good friends, I’ve learned how to love. And to be compassionate with those close to me, and to try and live with some small honor. “Tucson Train” is about a guy who’s trying to follow his better angels, working in the sun for a new start. He’s trying to change. — Bruce Springsteen, *Western Stars* (2019)
 
-
-I’ve spent my 10,000 hours (and then some) learning my musical craft. But I’ve spent a lot more time than that, some 35 years, trying to learn how to let go of the destructive parts of my character. They did not go easily into that good night. For a long time, if I loved you and if I felt a deep attachment to you, I would hurt you if I could. It was a sin, and I still have days when I struggle with it. But I’ve gotten better. Through the love of my family, my good friends, I’ve learned how to love. And to be compassionate with those close to me, and to try and live with some small honor. “Tucson Train” is about a guy who’s trying to follow his better angels, working in the sun for a new start. He’s trying to change. — Bruce Springsteen, *Western Stars* (2019)
-
-is a career summation featuring Bruce at his very peak as a songwriter, arranger, and even as a vocalist. It’s a deeply felt, nuanced treatise on life and living.
-
-*Western Stars*
+*Western Stars* is a career summation featuring Bruce at his very peak as a songwriter, arranger, and even as a vocalist. It’s a deeply felt, nuanced treatise on life and living.
 
 It’s also–by far–Bruce’s warmest, most optimistic, and most life-affirming album. The entire album is imbued with the musical equivalent of autumn sunlight.
 
-is a collection of late-in-life character studies, and most of the characters have lived quite well. Some continue moving forward (“” ““), while some can’t take their eyes off the past (“” ““). Some are just content to be where they are (“” and the album’s ).
+*Western Stars* is a collection of late-in-life character studies, and most of the characters have lived quite well. Some continue moving forward (“[Hitch Hikin’,](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)” “[The Wayfarer](https://estreetshuffle.com/index.php/2022/01/29/roll-of-the-dice-the-wayfarer/)“), while some can’t take their eyes off the past (“[Moonlight Motel,](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)” “[Chasin’ Wild Horses](https://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/)“). Some are just content to be where they are (“[Drive Fast (The Stuntman)](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/)” and the album’s [title track](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)).
 
-*Western Stars*[Hitch Hikin’,](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)[The Wayfarer](https://estreetshuffle.com/index.php/2022/01/29/roll-of-the-dice-the-wayfarer/)[Moonlight Motel,](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)[Chasin’ Wild Horses](http://estreetshuffle.com/index.php/2020/01/26/roll-of-the-dice-chasin-wild-horses/)[Drive Fast (The Stuntman)](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/)[title track](http://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)
-
-But so finely and lushly realized are these songs and that only after several listens might we realize: . There are no story arcs, and the characters go through no change or transformation. is a collection of internal monologues–every song a first-person musing of a man on the road of , occasionally at an intersection with .
-
-*nothing happens in any of them**Western Stars**now**then*
+But so finely and lushly realized are these songs and that only after several listens might we realize: *nothing happens in any of them*. There are no story arcs, and the characters go through no change or transformation. *Western Stars* is a collection of internal monologues–every song a first-person musing of a man on the road of *now*, occasionally at an intersection with *then*.
 
 And at the emotional center of the album, there is “Tucson Train,” the album’s purest pop song, combining a warm riff, a catchy hook, and a metronomic train gimmick to irresistible effect–and yet there’s some really sophisticated songwriting at work as well.
 
-[https://www.youtube.com/embed/bsH4URIWNRE?feature=oembed](https://www.youtube.com/embed/bsH4URIWNRE?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Tucson Train (Official Video)](https://www.youtube.com/watch?v=bsH4URIWNRE)
 
 “Tucson Train” is about redemption and self-determination, about forgiving oneself and making the most of second chances. More than any song on the album, “Tucson Train” is about moving forward and atoning for past mistakes by letting go of them.
 
@@ -37,9 +29,7 @@ As he dwells on his failure (“I left a good thing behind, seemed all of our lo
 
 Before our brains even have a chance to process why we feel so momentarily low, Bruce lifts us back up with an exultant one-line chorus that matches the B rhyme scheme (cementing the ABAABB pattern that the rest of the song follows) as the melody and the backing orchestra soars. Coming so unexpectedly on the heels of those two down lyrics, that single “Now my baby’s coming in on the Tucson train” drips with joy and anticipation–in part thanks to the grammatically and metrically unnecessary “in” that nevertheless makes all the difference in conveying the narrator’s breathless excitement over his baby’s imminent arrival.
 
-If you’ve never noticed the craftsmanship at work in just this one verse, go back and listen again–it’s an excellent example of why I consider to be a collection of Bruce’s finest songwriting.
-
-*Western Stars*
+If you’ve never noticed the craftsmanship at work in just this one verse, go back and listen again–it’s an excellent example of why I consider *Western Stars* to be a collection of Bruce’s finest songwriting.
 
 In the second verse, Bruce sheds light on why our hero fled. When you don’t love yourself, it’s hard to love another, and when our narrator looked in the mirror, it seems he didn’t see the man he wanted to be. So he moved somewhere that offered a chance to start over in an environment that allowed for him to be his best self. But even among strangers and without judgment, it’s not easy to maintain focus.
 
@@ -72,8 +62,6 @@ We expect a rhyme pairing that never comes; instead the orphan rhyme serves as m
 *Just to show her a man can change*  
 *Now my baby’s coming in on the Tucson train!*
 
-
-
 *On the Tucson train*  
 *On the Tucson train*  
 *Waiting on the five-fifteen*  
@@ -85,39 +73,27 @@ Even the arrival time of the train (5:15pm) is an important detail: it means our
 
 The final “Here she comes!” joins the ranks of “Is a dream a lie if it don’t come true or is it something worse” and “God have mercy on the man who doubts what he’s sure of” on the list of Bruce’s greatest last lines. Is there any other song in Bruce’s catalog that can pack so much joy, love, pride, anticipation, and celebration into just three words? I don’t think so.
 
-In true fashion, Bruce delivers us no resolution–although it’s beside the point, we’re left to our imagination to decide what happens to our reunited lovers.
-
-*Western Stars*
+In true *Western Stars* fashion, Bruce delivers us no resolution–although it’s beside the point, we’re left to our imagination to decide what happens to our reunited lovers.
 
 We can’t help but root for them.
 
 ---
 
 
-In the year since its release, Bruce has only performed “Tucson Train” live once, at a private concert in his barn that was filmed for his film.
-
-*Western Stars*
+In the year since its release, Bruce has only performed “Tucson Train” live once, at a private concert in his barn that was filmed for his *Western Stars* film.
 
 It’s a beautiful performance, but it doesn’t quite measure up to the album track. The strings are a bit too far forward, and the warm french horns a tad too buried. Still, it’s a performance worth owning in both video and audio format.
 
-[https://www.youtube.com/embed/dEB0HZeGYQ8?feature=oembed](https://www.youtube.com/embed/dEB0HZeGYQ8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Tucson Train (Film Version - Official Audio)](https://www.youtube.com/watch?v=dEB0HZeGYQ8)
 
-: While the filmed performance are still working their way through the paid streaming services, Bruce has published a few free excerpts on his YouTube page. Here’s an incomplete clip of his only known (to date) live performance of “Tucson Train.”
+**Bonus**: While the filmed *Western Stars* performance are still working their way through the paid streaming services, Bruce has published a few free excerpts on his YouTube page. Here’s an incomplete clip of his only known (to date) live performance of “Tucson Train.”
 
-**Bonus***Western Stars*
-
-[https://www.youtube.com/embed/Pctwuj8s2l0?feature=oembed](https://www.youtube.com/embed/Pctwuj8s2l0?feature=oembed)
-
-Unknown (2019)
-April 2019 (Colts Neck, NJ)
-April 2019 (Colts Neck, NJ)
+[Watch on Youtube: Bruce Springsteen - Tucson Train (From The Film Western Stars)](https://www.youtube.com/watch?v=Pctwuj8s2l0)
 
 **Tucson Train**
-**Recorded:** <br>
-**Released:**<br>
-*Western Stars*   
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** Unknown
+**Released:** *Western Stars* (2019)
+**First performed:** April 2019 (Colts Neck, NJ)
+**Last performed:** April 2019 (Colts Neck, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

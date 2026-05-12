@@ -18,7 +18,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/02/1977-0216.jpg)
 
-**1981**: Bruce and the boys play their second of two nights at the Lakeland Civic Center on the River Tour.
+**1981:** Bruce and the boys play their second of two nights at the Lakeland Civic Center on the River Tour.
 
 [Watch Video Highlight](https://videopress.com/embed/dNaN6mOU)
 

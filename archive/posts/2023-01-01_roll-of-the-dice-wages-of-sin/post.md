@@ -1,18 +1,12 @@
+I don’t know exactly why this 1982 outtake fascinates me so much. Bruce mined similar earth to more humorous effect both earlier (“[Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)“) and later (“[I’m Goin’ Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)“); he’d write more probing and insightful relationship songs on [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) a few years later.
 
-
-I don’t know exactly why this 1982 outtake fascinates me so much. Bruce mined similar earth to more humorous effect both earlier (““) and later (““); he’d write more probing and insightful relationship songs on a few years later.
-
-[Talk to Me](http://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)[I’m Goin’ Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)[https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*
-
-Lyrically, Bruce would put some of these lines to better use in “.” Metrically, “Wages of Sin” is one of the most awkward songs Bruce has ever written–he stumbles and trips his way through the entire song, at times veering perilously close to a train wreck but never quite leaving the track.
-
-[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)
+Lyrically, Bruce would put some of these lines to better use in “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/).” Metrically, “Wages of Sin” is one of the most awkward songs Bruce has ever written–he stumbles and trips his way through the entire song, at times veering perilously close to a train wreck but never quite leaving the track.
 
 And yet.
 
 “Wages of Sin” worms its way into your brain and takes up residence there, lingering long after the song fades out.
 
-[https://www.youtube.com/embed/U5i69qRqL_0?feature=oembed](https://www.youtube.com/embed/U5i69qRqL_0?feature=oembed)
+[Watch on Youtube: Wages Of Sin (Studio Outtake - 1982)](https://www.youtube.com/watch?v=U5i69qRqL_0)
 
 To whatever degree that “Wages of Sin” works, credit the E Street Band: all of the musicians show remarkable restraint throughout the track: Bruce idly strums the introduction as if he’s lost in thought; Max stands out by staying in the background at a low rumble, sounding for all the world like distant thunder.
 
@@ -68,9 +62,7 @@ Either way, our lovers are caught in a death spiral, unable to let go even as th
 *Wages of sin, well, I keep paying*  
 *Wages of sin, one by one*
 
-Let’s take a moment and acknowledge the familiar lyrics in this dream sequence–familiar, at least, to fans of Springsteen’s album (or viewers of ), because those very vivid first four lines eventually found their way to “,” a superior song that put that scene to much, much more effective use.
-
-*Nebraska* *Springsteen on Broadway*[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)
+Let’s take a moment and acknowledge the familiar lyrics in this dream sequence–familiar, at least, to fans of Springsteen’s *Nebraska* album (or viewers of *Springsteen on Broadway*), because those very vivid first four lines eventually found their way to “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/),” a superior song that put that scene to much, much more effective use.
 
 In “Wages of Sin,” the memory evokes not just the fear of the dark unknown that pervades childhood, but also the distinct suggestion that as a boy, he’d try hard and fruitlessly to please his parents, and that perhaps that futile childhood quest colors his present romantic relationship. It certainly would explain his mounting frustration and despair.
 
@@ -80,11 +72,9 @@ Bruce presents us with no glimmer of hope in “Wages of Sin,” or even a hint 
 
 It didn’t start out that way, though.
 
-In its earliest incarnation (earliest known, at least), besides a different melody, “Wages of Sin” featured a Promethean stand-in for the original sinner:
+In its earliest incarnation (earliest known, at least), besides a *very* different melody, “Wages of Sin” featured a Promethean stand-in for the original sinner:
 
-*very*
-
-[https://www.youtube.com/embed/-9qL_1vYKjA?feature=oembed](https://www.youtube.com/embed/-9qL_1vYKjA?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Wages of Sin #1](https://www.youtube.com/watch?v=-9qL_1vYKjA)
 
 *I seen a man carrying a heavy stone*  
 *On his back out in the hot sun*  
@@ -100,7 +90,7 @@ The chorus seems closer to the final version than the verse–that is until we p
 
 That would soon change: in his next recorded attempt, Bruce has found the final melody, and a more familiar chorus emerges:
 
-[https://www.youtube.com/embed/U1gzTGi56Iw?feature=oembed](https://www.youtube.com/embed/U1gzTGi56Iw?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Wages of Sin #2](https://www.youtube.com/watch?v=U1gzTGi56Iw)
 
 More familiar, but not completely so–there’s a dodge at the end, a pronoun change to “we” that shares the blame with his lover rather than shoulder full accountability:
 
@@ -109,11 +99,11 @@ More familiar, but not completely so–there’s a dodge at the end, a pronoun c
 
 We should also take note of Bruce’s eyebrow-raising comment at the top of the demo–he clearly calls for a boy’s choir, implying that the haunting, wordless refrain in the song may have originally been intended to be sung in a more choral arrangement. We can hear Bruce working on it in the clip below and wonder what might have been had he seen this path through to the final version.
 
-[https://www.youtube.com/embed/70tOjX7SycM?feature=oembed](https://www.youtube.com/embed/70tOjX7SycM?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Wages of Sin #3 harmonies](https://www.youtube.com/watch?v=70tOjX7SycM)
 
 By his fourth attempt, however, the song had pretty much come together; after an uncertain first thirty seconds, the clip below starts to sound very familiar.
 
-[https://www.youtube.com/embed/aE5C-4oWyP0?feature=oembed](https://www.youtube.com/embed/aE5C-4oWyP0?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Wages of Sin #4](https://www.youtube.com/watch?v=aE5C-4oWyP0)
 
 Still, there are some key differences: the narrator can’t quite face the truth of his actions–he still pleads for someone to fill him in:
 
@@ -142,26 +132,20 @@ Nevertheless, Bruce attempted it once and only once–in Turku, Finland on the W
 
 The wider array of musicians and instruments on the stage presented Bruce with the ability to craft an arrangement with even more nuance than on the original studio track, and his vocals were in fine, fine form. This is a must-watch clip, deservedly and professionally filmed and published on Bruce’s official YouTube channel.
 
-[https://www.youtube.com/embed/cVVeytSe2wc?feature=oembed](https://www.youtube.com/embed/cVVeytSe2wc?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - "Wages of Sin" (Turku 05/08/13)](https://www.youtube.com/watch?v=cVVeytSe2wc)
 
-**Bonus:**
+**Bonus:** 
 
 If you’re wondering why Bruce chose to break out such an obscurity that night in Turku, it’s because it was a dedication to a loyal fan–Bruce acknowledged him just before playing the song. And if you’re wondering why that part was cut out of the official video, watch the fan-filmed clip below (thanks, Dan!) and you’ll quickly realize.
 
-[https://www.youtube.com/embed/_1d-NapIGsQ?feature=oembed](https://www.youtube.com/embed/_1d-NapIGsQ?feature=oembed)
+[Watch on Youtube: Bruce Springsteen 2013-05-08 Turku - Wages Of Sin (world debut)](https://www.youtube.com/watch?v=_1d-NapIGsQ)
 
 Sometimes it ain’t glamorous to be in the pit.
 
-May 10, 1982
-(1998)
-May 8, 2013 (Turku, Finland)
-May 8, 2013 (Turku, Finland)
-
 **Wages of Sin**  
-**Recorded:**<br>
-**Released:** *Tracks*<br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** May 10, 1982<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** May 8, 2013 (Turku, Finland)<br>
+**Last performed:** May 8, 2013 (Turku, Finland)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,38 +1,26 @@
-
-
 Bruce wrote “My Lover Man” for Patti Scialfa’s first album, but she decided not to use it.
 
-No wait, that’s not right: “My Lover Man” was originally intended for the movie , which explains its homoerotic theme.
-
-*Philadelphia*
+No wait, that’s not right: “My Lover Man” was originally intended for the movie *Philadelphia*, which explains its homoerotic theme.
 
 Hang on–that’s not right, either.
 
 I’ve heard both of those theories floated several times, and more besides that.
 
-I don’t believe any of them, but more importantly: why must fans search for an explanation as to why Bruce wrote this song? It’s not as if Bruce hasn’t written from the female perspective before: “” is unmistakably sung in the voice of a woman, as is “.”
-
-[Devil’s Arcade](https://estreetshuffle.com/index.php/2021/05/16/roll-of-the-dice-devils-arcade/)[Car Wash](https://estreetshuffle.com/index.php/2020/01/04/roll-of-the-dice-car-wash/)
+I don’t believe any of them, but more importantly: why must fans search for an explanation as to why Bruce wrote this song? It’s not as if Bruce hasn’t written from the female perspective before: “[Devil’s Arcade](https://estreetshuffle.com/index.php/2021/05/16/roll-of-the-dice-devils-arcade/)” is unmistakably sung in the voice of a woman, as is “[Car Wash](https://estreetshuffle.com/index.php/2020/01/04/roll-of-the-dice-car-wash/).”
 
 I suspect it’s the outright romantic nature of the song that makes some fans uncomfortable with it, as well as the explicit title.
 
-I think the more interesting question is: what made him write about the subject matter from perspective. And if there’s controversy to be found, it’s in the debate over the wisdom of a character who shrugs off their partner’s infidelity and chalks it up to “hey, men are just like that.”
-
-*any*
+I think the more interesting question is: what made him write about the subject matter from *any* perspective. And if there’s controversy to be found, it’s in the debate over the wisdom of a character who shrugs off their partner’s infidelity and chalks it up to “hey, men are just like that.”
 
 If Bruce gives us any clue at all as to his motivation for the song, it’s probably found not in the lyrics but rather the music. Take a listen:
 
-[https://www.youtube.com/embed/n-jzr3jSDX0?feature=oembed](https://www.youtube.com/embed/n-jzr3jSDX0?feature=oembed)
+[Watch on Youtube: My Lover Man (Studio Outtake - 1990)](https://www.youtube.com/watch?v=n-jzr3jSDX0)
 
-Sound familiar? Musically, “My Lover Man” is close to “” They have similar percussion tracks, bass lines, and instrumentation, and I don’t think that’s accidental. Listen for yourself:
+Sound familiar? Musically, “My Lover Man” is *darn* close to “[Brilliant Disguise.](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)” They have similar percussion tracks, bass lines, and instrumentation, and I don’t think that’s accidental. Listen for yourself:
 
-*darn*[Brilliant Disguise.](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
-[https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed](https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed)
-
-We don’t know exactly when Bruce wrote “My Lover Man,” but we do know that he recorded it in late 1990, three years after the release of which featured “Brilliant Disguise” as a centerpiece of an album about troubled relationships. That was Bruce’s last album before recording “My Lover Man,” and it doesn’t seem a stretch to wonder if those songs were still top of mind for him.
-
-*,* [Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)
+We don’t know exactly when Bruce wrote “My Lover Man,” but we do know that he recorded it in late 1990, three years after the release of *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/),* which featured “Brilliant Disguise” as a centerpiece of an album about troubled relationships. That was Bruce’s last album before recording “My Lover Man,” and it doesn’t seem a stretch to wonder if those songs were still top of mind for him.
 
 Bruce had also been going to therapy (as he disclosed and discussed publicly mere weeks before recording “My Lover Man”) and had recently become a father, and over the next year-and-a-half he would re-marry and generate an album’s worth of new material that seemed lighter, more self-accepting and self-forgiving than anything he’d written previously.
 
@@ -47,9 +35,7 @@ But the point itself warrants discussion.
 *Well come into my arms and fall*  
 *My lover man*
 
-Like I wrote earlier, that’s a blasé take on infidelity. Here’s a woman who has been abandoned by her man. (And yes, I think we can safely assume the point-of-view character is a woman rather than a gay man, since the “other woman” is explicitly stated to be another woman (Let’s not argue about whether the Lover Man is bisexual; that would be overly specific.)) He ran off with another woman, and when that didn’t work out so well, he asked to be taken back.
-
-*very*
+Like I wrote earlier, that’s a *very* blasé take on infidelity. Here’s a woman who has been abandoned by her man. (And yes, I think we can safely assume the point-of-view character is a woman rather than a gay man, since the “other woman” is explicitly stated to be another woman (Let’s not argue about whether the Lover Man is bisexual; that would be overly specific.)) He ran off with another woman, and when that didn’t work out so well, he asked to be taken back.
 
 So what does our heroine do? She welcomes him back with open arms. Boys will be boys, after all.
 
@@ -90,13 +76,7 @@ And for a songwriter just emerging from a period of intense doubt, that has to b
 
 And who wouldn’t envy that?
 
-December 4, 1990 
+**My Lover Man****Recorded:** December 4, 1990<br>
+**Released:** *Tracks (1998)***Never** **performed**
 
-**My Lover Man**
-**Recorded:**<br>
-
-**Released:** *Tracks (1998)* **Never**<br>
-**performed**
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

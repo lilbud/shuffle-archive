@@ -50,7 +50,7 @@ For the few in attendance, it was a magical throwback to a simpler time–one no
 **Action in the Streets**
 Never recorded**
 **Never released**
-**First performed**: February 7, 1977 (Albany, NY)
+**First performed:** February 7, 1977 (Albany, NY)
 **Last performed:** July 17, 2011 (Asbury Park, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

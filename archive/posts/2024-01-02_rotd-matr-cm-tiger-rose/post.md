@@ -1,26 +1,18 @@
+Today’s entry checks all the boxes: it’s a Springsteen original, a cover, *and* a team-up!
 
-
-Today’s entry checks all the boxes: it’s a Springsteen original, a cover, a team-up!
-
-*and*
-
-In the summer of 1995, Bruce retreated to his home studio to start recording a new album. We know the album he released later that year: But that’s not the album he set out to record.
-
-*.* [The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)
+In the summer of 1995, Bruce retreated to his home studio to start recording a new album. We know the album he released later that year: *[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/).* But that’s not the album he set out to record.
 
 At first, his new compositions trended more toward country and rockabilly, with an appropriate assemblage of backing musicians that included Garry, Danny, Soozie, and Marty Rifkin.
 
 Among the tracks recorded: a wry, country, she-done-me-wrong lament called “Tiger Rose.”
 
-As the album took shape and shifted toward more serious social commentary, “Tiger Rose” was dropped, along with other humorous entries like “” and “.” (What an album that would have been!)
-
-[I’m Turning into Elvis](https://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/)[The Little Things That Count](https://estreetshuffle.com/index.php/2022/01/12/roll-of-the-dice-its-the-little-things-that-count/)
+As the album took shape and shifted toward more serious social commentary, “Tiger Rose” was dropped, along with other humorous entries like “[I’m Turning into Elvis](https://estreetshuffle.com/index.php/2020/03/05/roll-of-the-dice-im-turning-into-elvis/)” and “[The Little Things That Count](https://estreetshuffle.com/index.php/2022/01/12/roll-of-the-dice-its-the-little-things-that-count/).” (What an album that would have been!)
 
 But Garry must have been particularly taken with “Tiger Rose,” because when he produced an album for the late, great rockabilly icon Sonny Burgess later that year, he convinced Bruce to let Burgess record the song for his album.
 
 The result was the second track on Burgess’ 1996 self-titled release.
 
-[https://www.youtube.com/embed/p9bxu3XpK7Y?feature=oembed](https://www.youtube.com/embed/p9bxu3XpK7Y?feature=oembed)
+[Watch on Youtube: Tiger Rose](https://www.youtube.com/watch?v=p9bxu3XpK7Y)
 
 The lyrics are clever and straightforward. “Tiger Rose” opens as a simple love song, with a devoted narrator professing his eternal love:
 
@@ -50,19 +42,12 @@ It’s a fun song, but hardly essential listening. But the imagery of the protag
 
 He actually did perform it twice, though–with Burgess himself at the Alliance of Neighbors Benefit concerts at the Count Basie Theater in Red Bank in late 2001. It’s not the tightest of performances, but it’s certainly a fun one. Take a look.
 
-[https://www.youtube.com/embed/zPY4nX3nWLY?feature=oembed](https://www.youtube.com/embed/zPY4nX3nWLY?feature=oembed)
+[Watch on Youtube: Tiger rose - sonny burgess & bruce springsteen](https://www.youtube.com/watch?v=zPY4nX3nWLY)
 
-Summer 1995
-October 18, 2001 (Red Bank, NJ)
-October 19, 2001 (Red Bank, NJ)
+**Tiger Rose  
+**Recorded:** Summer 1995<br>
+**Never released  
+First performed:** October 18, 2001 (Red Bank, NJ)
+**Last performed** October 19, 2001 (Red Bank, NJ)
 
-**Tiger Rose**
-**Recorded:**<br>
-
-**Never released**
-**First performed:** <br>
-
-**Last performed**
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

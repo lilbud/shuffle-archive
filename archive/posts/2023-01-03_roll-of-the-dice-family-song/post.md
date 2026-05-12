@@ -1,38 +1,24 @@
-
-
-A quarter-century before “,” and almost a half-century before Bruce’s revealing autobiography and Broadway show, there was “Family Song.”
-
-[Freehold](http://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/)
+A quarter-century before “[Freehold](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/),” and almost a half-century before Bruce’s revealing autobiography and Broadway show, there was “Family Song.”
 
 “Family Song” sheds rare light into a brief period of Bruce’s life that’s glossed over not only by biographers but by Bruce himself in his own book: the winter of 1971-72, when Bruce fled New Jersey for the warmer climes of California and his parents’ new home in San Mateo.
 
-For years, the circumstances that inspired Bruce’s flight were unclear, but in his 2016 autobiography , Bruce directly addressed them.
+For years, the circumstances that inspired Bruce’s flight were unclear, but in his 2016 autobiography *Born to Run*, Bruce directly addressed them.
 
-*Born to Run*
-
-Earlier that year, Bruce “fell in obsession” with a surfer girl, “a drug-taking, hell-raising wild child who played by nobody’s rules.” This was the girlfriend Bruce referred to in the one who recruited agents to discover Bruce’s band and then slept with them.
-
-*Springsteen on Broadway,*
+Earlier that year, Bruce “fell in obsession” with a surfer girl, “a drug-taking, hell-raising wild child who played by nobody’s rules.” This was the girlfriend Bruce referred to in *Springsteen on Broadway,* the one who recruited agents to discover Bruce’s band and then slept with them.
 
 When Surfer Girl’s roommate ratted her out to Bruce, he took up with the roommate and formed a temporary family unit with her and her daughter. Unsurprisingly, their unorthodox living and loving circumstances proved too much for the relatively straight-edge Springsteen, and he bolted as far away from New Jersey as he could get.
 
-California wasn’t meant to be for Bruce, though. As he put it in the film version of 
-
-*Western Stars:*
-
-
+California wasn’t meant to be for Bruce, though. As he put it in the film version of *Western Stars:*
 
 *“I had a gal in New Jersey who broke my heart, ripped it to shreds, trampled on it, and sent it to me COD in a paper bag. So I was out of there on the first ride west, no looking back. I was going to build a new life in California, three thousand miles away from the pain. But it didn’t take long before my luck ran out and my money ran out. And it just wasn’t gonna happen.”*
 
 So he returned to where “I was who I was, a son of New Jersey, gunslinger, bar band king, small-town local hero, big fish in a little pond and breadwinner.”
 
-But happened in California that winter. Not only was the weather warmer than in New Jersey, his reunion with his parents after their family’s long separation seem to have thawed his resentment toward them as well.
-
-*something*
+But *something* happened in California that winter. Not only was the weather warmer than in New Jersey, his reunion with his parents after their family’s long separation seem to have thawed his resentment toward them as well.
 
 With a heart on the mend from his recent romance, Bruce was ready to open up about his feelings toward his parents–at least in song–and the result was the simultaneously heart-breaking, heart-healing, and beautifully raw “Family Song.”
 
-[https://www.youtube.com/embed/4ljKCH6y3i8?feature=oembed](https://www.youtube.com/embed/4ljKCH6y3i8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Family Song](https://www.youtube.com/watch?v=4ljKCH6y3i8)
 
 It’s impossible for a Springsteen fan to listen to the range of raw emotion–the hurt and yearning and love and compassion–on display in Bruce’s unreleased 1972 outtake without aching in empathy for the 22-year-old songwriter, because we know that “Family Song” is one hundred percent autobiographical.
 
@@ -45,9 +31,7 @@ Bruce was very much in that window.
 *Papa wants a lawyer and mama, she wants an author*  
 *And all you want is for them to want you*
 
-For long-time fans, that first verse hits with the power of a sledgehammer, because we’re familiar with the tale. Years later, well after he’d made it big, Bruce would tell a mid-song story during “” in which he’d jokingly recount how his father would constantly encourage him to be a lawyer, how his mom would entreat him to become an author, how both just wanted him to “make something of himself.” On stage in front of a roaring, adoring crowd, Bruce would address them (once or twice in person) and tell them they’d just have to settle for a rock and roll star.
-
-[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)
+For long-time fans, that first verse hits with the power of a sledgehammer, because we’re familiar with the tale. Years later, well after he’d made it big, Bruce would tell a mid-song story during “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” in which he’d jokingly recount how his father would constantly encourage him to be a lawyer, how his mom would entreat him to become an author, how both just wanted him to “make something of himself.” On stage in front of a roaring, adoring crowd, Bruce would address them (once or twice in person) and tell them they’d just have to settle for a rock and roll star.
 
 Bruce would chuckle when telling that story in 1978, but in 1972’s “Family Song,” there was no humor in it.
 
@@ -74,11 +58,7 @@ In the next verse, we learn that not only have Bruce and his family drawn closer
 *But I just hope when I grow up and have my own kids*  
 *I’ll love ’em all I can and let ’em make their own minds*
 
-That last couplet rings with familiarity–it’s strikingly similar to a verse Bruce wrote in 1996 for “.”
-
-[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
-
-
+That last couplet rings with familiarity–it’s strikingly similar to a verse Bruce wrote in 1996 for “[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/).”
 
 *Well now down below and pulling on my shirt*  
 *Yeah I got some kids of my own*  
@@ -92,8 +72,6 @@ But it’s the final verses that drip with forgiveness, compassion, and love:
 *And my mama’s love, it don’t ever leave me standing*  
 *And papa’s love just leaves me smiling*
 
-
-
 *Oh, and my mama she’s a rainbow, you oughta see her on Sunday when she’s dressed*  
 *And my papa he’s a good man, he gives me and mama his best*  
 *My mama she’s a rainbow come to give them thunder clouds a rest*  
@@ -105,21 +83,13 @@ I’m not ashamed to admit that I tear up when I listen to “Family Song.” Br
 
 “Family Song” isn’t about the process of reconciliation, it’s about the result.
 
-Here’s a second, earlier version of “Family Song,” considerably slower and less poignant than the later version above. Both were recorded in March 1972 (after Bruce had returned home from California) at Mike Appel’s office in New York City.
+**Bonus:** Here’s a second, earlier version of “Family Song,” considerably slower and less poignant than the later version above. Both were recorded in March 1972 (after Bruce had returned home from California) at Mike Appel’s office in New York City.
 
-**Bonus:**
+[Watch Video Highlight](https://videopress.com/embed/fxxfruGh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/fxxfruGh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fxxfruGh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
-
-March 1972
-
-
-
-**Family Song**
-**Recorded:**<br>
-
+**Family Song  
+**Recorded:** March 1972<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -16,7 +16,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/12/1974-01-12.png)
 
-**1975**: Bruce makes a guest appearance at The Stone Pony in Asbury Park. The headliner is The Blackberry Booze Band, forerunner to Southside Johnny and the Asbury Jukes.
+**1975:** Bruce makes a guest appearance at The Stone Pony in Asbury Park. The headliner is The Blackberry Booze Band, forerunner to Southside Johnny and the Asbury Jukes.
 
 **1982:** Bruce joins Nils Lofgren (who is not yet a member of the E Street Band) on stage at the Royal Manor North in North Brunswick, New Jersey, for covers of "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)" and "[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)." This is the earliest known performance of Bruce and Nils together.
 

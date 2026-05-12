@@ -1,5 +1,3 @@
-
-
 The story goes something like this:
 
 In the summer of 1971, Bruce met a girl named Diane Lozito. Sparks flew, but Lozito was romantically involved with someone else at the time, a lifeguard Bruce knew named Billy Cahill. Billy had a bit of a wild edge to him, so Bruce dubbed him “Wild Billy.”
@@ -8,9 +6,7 @@ Cahill was so wild, in fact, that Bruce thought Lozito had to be a bit off herse
 
 One night that summer, Bruce, Wild Billy, Crazy Diane, Davy Hazlett (a temporary Steel Mill member who Bruce called “Hazy” (according to Hazlett)) and other friends and hangers-on escaped the summer heat at a nearby lake and while Wild Billy took a nocturnal swim, Bruce and Crazy Diane hooked up. Before long, Diane broke up with Wild Billy and took up with Bruce.
 
-A year or so later, when Bruce completed his first album, Clive Davis (President of Columbia Records) felt the album didn’t have any songs with commercial potential and asked Bruce to write another track or two. Bruce went home and wrote “” and “Spirit in the Night,” the latter of which memorialized that first spark between Bruce and his girlfriend.
-
-[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
+A year or so later, when Bruce completed his first album, Clive Davis (President of Columbia Records) felt the album didn’t have any songs with commercial potential and asked Bruce to write another track or two. Bruce went home and wrote “[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)” and “Spirit in the Night,” the latter of which memorialized that first spark between Bruce and his girlfriend.
 
 So the story goes. At least, according to Lozito in her interviews about it. To my knowledge, Bruce has never commented.
 
@@ -37,16 +33,12 @@ Here’s the most well-known of the series, Crazy Jane and the Bishop:
 *Live in a heavenly mansion,*  
 *Not in some foul sty.’*
 
-
-
 *`Fair and foul are near of kin,*  
 *And fair needs foul,’ I cried.*  
 *‘My friends are gone, but that’s a truth*  
 *Nor grave nor bed denied,*  
 *Learned in bodily lowliness*  
 *And in the heart’s pride.*
-
-
 
 *`A woman can be proud and stiff*  
 *When on love intent;*  
@@ -59,9 +51,7 @@ Through Crazy Jane, Yeats argues that age doesn’t require one to give up a sex
 
 Yeats is a bit direct about it (arguing that love resides in the place where excretion happens (Bruce would simply call it “cake”)), but to a young man of a poetic bent himself, I can easily see Bruce becoming fascinated with Crazy Jane.
 
-So when Bruce decided to write a song about youthful nocturnal hedonism, I absolutely believe that centering the song around “Crazy Janey and her mission man” was a direct nod to Crazy Jane and the Bishop. And as for Wild Billy, I suspect that’s author Yates making a cameo appearance.
-
-**W.B.**
+So when Bruce decided to write a song about youthful nocturnal hedonism, I absolutely believe that centering the song around “Crazy Janey and her mission man” was a direct nod to Crazy Jane and the Bishop. And as for Wild Billy, I suspect that’s author **W.B.** Yates making a cameo appearance.
 
 None of this discredits Lozito’s account, however; it’s easy enough for one song to accommodate two muses.
 
@@ -71,9 +61,9 @@ The fact that “Spirit in the Night” swings as much as it does is entirely du
 
 Let’s take a listen.
 
+ 
 
-
-[https://www.youtube.com/embed/hFEeqfqoTSY?feature=oembed](https://www.youtube.com/embed/hFEeqfqoTSY?feature=oembed)
+[Watch on Youtube: Spirit in the Night](https://www.youtube.com/watch?v=hFEeqfqoTSY)
 
 “Spirit in the Night” attracts a lot of discussion among fans trying to dissect it, but it’s actually pretty direct, at least by early Springsteen standards. The setup couldn’t be simpler: Crazy Janey and the bishop–oops, I mean her mission man–are playing cards in the alley when a car pulls up with Wild Billy and G-Man.
 
@@ -113,11 +103,7 @@ Yeah, there’s some, um, pixie dust in the mix, too. Regardless, the kids pile 
 *All night (all night)*  
 *Stand right up and I let her shoot through me*
 
-If there’s another literary influence at play besides Yates, it would have to be Shakespeare. With imagery of midnight revelers dancing to a “soul fairy band,” it’s a scene right out of . As the night reaches toward the dawn, though, the revelers inevitably run out of steam:
-
-*A Midsummer Night’s Dream*
-
-
+If there’s another literary influence at play besides Yates, it would have to be Shakespeare. With imagery of midnight revelers dancing to a “soul fairy band,” it’s a scene right out of *A Midsummer Night’s Dream*. As the night reaches toward the dawn, though, the revelers inevitably run out of steam:
 
 *Now the night was bright and the stars threw light on Billy and Davy*  
 *Dancing in the moonlight*  
@@ -144,72 +130,58 @@ And at this point, Bruce introduces a technique he’ll return to again and agai
 
 And Bruce once told Ed Sciaky that “for some reason I always imagined Joe Cocker doing ‘Spirit in the Night.’ When I wrote the song I had his kind of voice in mind, which is something I rarely do.”
 
-Whatever the recipe, “Spirit in the Night” stands out from the rest of Sure, “Blinded by the Light” has a similar lighter feel to “Spirit” compared to the rest of the somber album, but “Blinded” shares the rhyming dictionary overuse that characterizes much of Bruce’s early work. By contrast, “Spirit” is more restrained, letting the imagery paint the scene and allowing Clarence to carry the listener through it.
+Whatever the recipe, “Spirit in the Night” stands out from the rest of *[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Sure, “Blinded by the Light” has a similar lighter feel to “Spirit” compared to the rest of the somber album, but “Blinded” shares the rhyming dictionary overuse that characterizes much of Bruce’s early work. By contrast, “Spirit” is more restrained, letting the imagery paint the scene and allowing Clarence to carry the listener through it.
 
-[Greetings From Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)
-
-It also provides the first glimpse at what would eventually evolve into the E Street sound. At 572 performances to date, it comes in a very close second to “” as the most frequently played song–and if you don’t count performances of “Growin’ Up,” “Spirit” runs away with the title altogether.
-
-[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)*Greetings**Springsteen on Broadway*
+It also provides the first glimpse at what would eventually evolve into the E Street sound. At 572 performances to date, it comes in a very close second to “[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)” as the most frequently played *Greetings* song–and if you don’t count *Springsteen on Broadway* performances of “Growin’ Up,” “Spirit” runs away with the title altogether.
 
 “Spirit in the Night” made its live debut mere weeks after its vinyl debut. Here’s the earliest known performance, from January 31, 1973.
 
-[https://videopress.com/embed/fJbgXAjP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fJbgXAjP?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fJbgXAjP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 Even in that earliest performance, we can hear Bruce reaching for the drama, milking the late-song pause for effect. Over the years, the song would grow in length and passion, and we are fortunate to have so many professionally filmed, officially released performances from different eras to trace its arc. From the earliest days in 1973…
 
-[https://www.youtube.com/embed/aNNJh1fLRx8?feature=oembed](https://www.youtube.com/embed/aNNJh1fLRx8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Spirit In the Night (Live at the Ahmanson Theater, Los Angeles, 1973)](https://www.youtube.com/watch?v=aNNJh1fLRx8)
 
-…to the just-famous days following the release of where the band now known as E Street created ambiance with a dramatic introduction, and in the late song break… well, just watch.
+…to the just-famous days following the release of *Born to Run,* where the band now known as E Street created ambiance with a dramatic introduction, and in the late song break… well, just watch.
 
-*Born to Run,*
-
-[https://www.youtube.com/embed/dp-aRBV7jLc?feature=oembed](https://www.youtube.com/embed/dp-aRBV7jLc?feature=oembed)
+[Watch on Youtube: Spirit In the Night (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=dp-aRBV7jLc)
 
 From the Darkness Tour…
 
-[https://www.youtube.com/embed/6bXikpoQ6sw?feature=oembed](https://www.youtube.com/embed/6bXikpoQ6sw?feature=oembed)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Spirit In The Night (Live in Houston, 1978)](https://www.youtube.com/watch?v=6bXikpoQ6sw)
 
 …to the Rising Tour (in an unusual acoustic performance, with an uncharacteristic brain fart):
 
-[https://www.youtube.com/embed/gGMSXEQdGL0?feature=oembed](https://www.youtube.com/embed/gGMSXEQdGL0?feature=oembed)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Spirit in the Night (Live In Barcelona)](https://www.youtube.com/watch?v=gGMSXEQdGL0)
 
-…to the modern-day and era, where “Spirit in the Night” became a full-on production number with an introduction that sometimes eclipsed the song itself.
+…to the modern-day [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)and *High Hopes* era, where “Spirit in the Night” became a full-on production number with an introduction that sometimes eclipsed the song itself.
 
-[](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball* *High Hopes*
-
-[https://www.youtube.com/embed/B1Mq-QT5jwI?feature=oembed](https://www.youtube.com/embed/B1Mq-QT5jwI?feature=oembed)
+[Watch on Youtube: Spirit in the night - pro shot dallas - Bruce springsteen](https://www.youtube.com/watch?v=B1Mq-QT5jwI)
 
 Other than its notable absence during the Tunnel of Love Tour, “Spirit in the Night” has never missed a Springsteen tour, even making cameo acoustic appearances during the 1992-93 Tour…
 
-[https://www.youtube.com/embed/8OOZbxKB0dY?feature=oembed](https://www.youtube.com/embed/8OOZbxKB0dY?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Spirit in the night rare version](https://www.youtube.com/watch?v=8OOZbxKB0dY)
 
 …the Ghost of Tom Joad era (in an almost-E Street Band reunion):
 
-[https://videopress.com/embed/uFZCRCRS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/uFZCRCRS?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/uFZCRCRS?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 …and the Devils & Dust Tour:
 
-[https://www.youtube.com/embed/KKVsfrUxWdA?feature=oembed](https://www.youtube.com/embed/KKVsfrUxWdA?feature=oembed)
+[Watch on Youtube: 15. Spirit In The Night (Bruce Springsteen - Live In Copenhagen 6-22-2005)](https://www.youtube.com/watch?v=KKVsfrUxWdA)
 
 Even now, with a tour nowhere on the horizon, catch Bruce at a surprise appearance in Asbury Park, and you might be lucky enough to feel the spirit.
 
-[https://www.youtube.com/embed/n9PfwJZ5aDI?feature=oembed](https://www.youtube.com/embed/n9PfwJZ5aDI?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Spirit In The Night](https://www.youtube.com/watch?v=n9PfwJZ5aDI)
 
 Although the 1973 single went nowhere chart-wise, “Spirit in the Night” remains one of Bruce Springsteen’s most iconic songs, a fan-favorite in every era.
 
 Regardless of whether it was inspired by The Bard, The Band, the poet, or the girlfriend, its magic belongs to The Boss.
 
-September 11, 1972 – October 26, 1972
-(1973), (2003)
-January 31, 1973 (New York City, NY)
-November 22, 2024 (Vancouver, BC)
-
-**Spirit in the Night**
-**Recorded:**<br>
-
-**Released:** *Greetings from Asbury Park, N.J.**The Essential Bruce Springsteen* <br>
-**First performed:**<br>
-**Last performed:**<br>
+**Spirit in the Night  
+**Recorded:** September 11, 1972 – October 26, 1972<br>
+**Released:** *Greetings from Asbury Park, N.J.* (1973), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** January 31, 1973 (New York City, NY)<br>
+**Last performed:** November 22, 2024 (Vancouver, BC)
 
 © March 1, 2020

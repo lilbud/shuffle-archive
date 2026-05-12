@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen - My Hometown](https://www.youtube.com/watch?v=z6LABdHtkUA)
 
-**2009**: Step back from the guacamole dip, put the chicken fingers *down*, and turn your television ALL the way up: Bruce Springsteen and the E Street Band play the Super Bowl XLIII Half-Time Show! This is the full-band premiere of "[Working on a Dream.](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)" Watch Bruce's journal, interview, and full performance below.
+**2009:** Step back from the guacamole dip, put the chicken fingers *down*, and turn your television ALL the way up: Bruce Springsteen and the E Street Band play the Super Bowl XLIII Half-Time Show! This is the full-band premiere of "[Working on a Dream.](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)" Watch Bruce's journal, interview, and full performance below.
 
 [Watch Video Highlight](https://videopress.com/embed/zPb2WwKt)
 

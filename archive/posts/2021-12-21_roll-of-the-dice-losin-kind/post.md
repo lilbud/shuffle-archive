@@ -1,18 +1,10 @@
+If Bruce hadn’t rewritten “Losin’ Kind” as “Highway 29,” this essay would be a lot longer than it is. (I’d also be calling it an artistic crime to keep this beautiful *Nebraska* outtake locked away in the vault.)
 
+But so strong are the lyrical similarities between Bruce’s 1982 outtake and his superior 1995 deep cut that I’m left with little to add after comparing the two songs in my essay on “[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/),” other than the remarkable number of connections to “Losin’ Kind” to be found across Bruce’s catalog.
 
-If Bruce hadn’t rewritten “Losin’ Kind” as “Highway 29,” this essay would be a lot longer than it is. (I’d also be calling it an artistic crime to keep this beautiful outtake locked away in the vault.)
+By Bruce’s 1982 standards, “Losin’ Kind” was every bit as strong as the other songs he recorded for *Nebraska*. I suspect the only reason he didn’t included it on the album is its similarity to “Highway Patrolman” as well, particularly in the first verse.
 
-*Nebraska*
-
-But so strong are the lyrical similarities between Bruce’s 1982 outtake and his superior 1995 deep cut that I’m left with little to add after comparing the two songs in my essay on “,” other than the remarkable number of connections to “Losin’ Kind” to be found across Bruce’s catalog.
-
-[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)
-
-By Bruce’s 1982 standards, “Losin’ Kind” was every bit as strong as the other songs he recorded for . I suspect the only reason he didn’t included it on the album is its similarity to “Highway Patrolman” as well, particularly in the first verse.
-
-*Nebraska*
-
-[https://www.youtube.com/embed/fOM8VkIt0OE?feature=oembed](https://www.youtube.com/embed/fOM8VkIt0OE?feature=oembed)
+[Watch on Youtube: The Losin' Kind by Bruce Springsteen](https://www.youtube.com/watch?v=fOM8VkIt0OE)
 
 Not only does the first verse of “Losin’ Kind” rhyme with “Highway Patrolman,” both songs also feature a character named Frank. In the latter song, Frank is the offscreen ne’er-do-well brother of the narrator, Joe Roberts. Were it not for their different last names, we might suspect this is the very same Frank, so similar are the character portrayals.
 
@@ -25,11 +17,7 @@ Not only does the first verse of “Losin’ Kind” rhyme with “Highway Patro
 
 Unlike “Highway Patrolman” and “Highway 29” (just two of the songs that share DNA with this outtake), “Losin’ Kind” has a bit of a pacing problem. The former two songs are taut, suspenseful short stories, but “Losin’ Kind…” well, let’s just say a LOT happens after Frank picks up the hooker in the first verse.
 
-First, they go drinking and dancing… (Keep an eye out for the “Highway 29” and “” lyric.)
-
-[Loose Change](https://estreetshuffle.com/index.php/2019/11/24/roll-of-the-dice-loose-change/)
-
-
+First, they go drinking and dancing… (Keep an eye out for the “Highway 29” and “[Loose Change](https://estreetshuffle.com/index.php/2019/11/24/roll-of-the-dice-loose-change/)” lyric.)
 
 *Well I knew what we were both doing and I knew that you can’t win*  
 *But when the light turned green, I reached across the seat, popped the lock and she slid in*  
@@ -38,11 +26,7 @@ First, they go drinking and dancing… (Keep an eye out for the “Highway 29”
 *And what I knew kinda slipped my mind*  
 *And I couldn’t resist her messing with the losin’ kind*
 
-…but after a motel hook-up, things go progressively south. In a scene out of “,” an impulsive petty theft at a bar turns into an accidental murder.
-
-[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)
-
-
+…but after a motel hook-up, things go progressively south. In a scene out of “[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/),” an impulsive petty theft at a bar turns into an accidental murder.
 
 *Well we drove around in my Buick, getting drunk and having fun*  
 *Well we ended up at this Best Western out on Highway 101*  
@@ -51,9 +35,7 @@ First, they go drinking and dancing… (Keep an eye out for the “Highway 29”
 *But I knew when I hit him for the second time*  
 *That one attracts the other when you’re the losin’ kind*
 
-By this point, you might be nursing a nagging feeling that there’s yet another song in Bruce’s catalog with similarities to “Losin’ Kind,” and you’d be right: Bruce’s beautiful, delicate instrumentation (not to mention the dancing scene in the previous verse) bear a lot of similarity to “,” which Bruce would write and record over a decade later.
-
-[The Line](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/)
+By this point, you might be nursing a nagging feeling that there’s yet another song in Bruce’s catalog with similarities to “Losin’ Kind,” and you’d be right: Bruce’s beautiful, delicate instrumentation (not to mention the dancing scene in the previous verse) bear a lot of similarity to “[The Line](https://estreetshuffle.com/index.php/2018/08/08/roll-of-the-dice-the-line/),” which Bruce would write and record over a decade later.
 
 If you’re keeping score, we’ve now got links to “Highway 29,” “Highway Patrolman,” “The Line,” “Johnny 99,” and “Loose Change,” but in the home stretch we came back to where we started, as our hapless lovers flee the scene of the crime only to total their getaway car before they get far enough away.
 
@@ -70,37 +52,25 @@ Unlike the tragic, dreamlike climax of “Highway 29,” however, Bruce plays th
 *Well sir, I’ll think that one over if you don’t mind*  
 *Now luck ain’t much good to you when it’s the losing kind*
 
-That clever ending was intentional: in his notes to Jon Landau that accompanied his legendary 1982 demo tape, Bruce said of “Losin Kind,” 
+That clever ending was intentional: in his notes to Jon Landau that accompanied his legendary 1982 demo tape, Bruce said of “Losin Kind,” *I like the verses but I can’t seem to find a better punchline. Kind of like a James M. Cain story.”*
 
-*I like the verses but I can’t seem to find a better punchline. Kind of like a James M. Cain story.”*
-
-He also wrote, “True enough, Bruce did in fact attempt to adapt “Losin’ Kind” for the E Street Band, recording a take with the band on April 30, 1982 that has yet to circulate even as a bootleg.
-
-*Could be done with more of a band arrangement.”*
+He also wrote, “*Could be done with more of a band arrangement.”* True enough, Bruce did in fact attempt to adapt “Losin’ Kind” for the E Street Band, recording a take with the band on April 30, 1982 that has yet to circulate even as a bootleg.
 
 It wasn’t just the “punchline” Bruce had trouble finding, though–he struggled with the title as well. His earliest home demos of “Losin’ Kind” were called, simply (and strangely) “The Answer.” Take a listen below (and notice that originally Frank wasn’t nearly as unscathed after his car accident).
 
-[https://www.youtube.com/embed/VPHQjulZH7I?feature=oembed](https://www.youtube.com/embed/VPHQjulZH7I?feature=oembed)
+[Watch on Youtube: BRUCE SPRINGSTEEN - the answer](https://www.youtube.com/watch?v=VPHQjulZH7I)
 
-[https://www.youtube.com/embed/lj7Ms1yiUb8?feature=oembed](https://www.youtube.com/embed/lj7Ms1yiUb8?feature=oembed)
+[Watch on Youtube: The Answer demo by Bruce](https://www.youtube.com/watch?v=lj7Ms1yiUb8)
 
-Bruce finally found his title in for Gary U.S. Bonds*, just one more in a long list of songs sharing a link to “Losin’ Kind.”
+Bruce finally found his title in [a song he’d written months earlier](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/) for Gary U.S. Bonds*, just one more in a long list of songs sharing a link to “Losin’ Kind.”
 
-[a song he’d written months earlier](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/)
-
-January 3, 1982
-
-
-
-**Losin’ Kind**
-**Recorded:**<br>
-
+**Losin’ Kind  
+**Recorded:** January 3, 1982<br>
 **Never released**  
 **Never performed**
 
-**It’s possible Bruce borrowed the phrase for both “Losin’ Kind” and “” from the Johnny Cash bootleg “The Losing Kind,” which shares a similar dark humor. But I’m not a Cash scholar, so I’ll leave that to others to determine.**
-[Club Soul City](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/)
+*It’s possible Bruce borrowed the phrase for both “Losin’ Kind” and “[Club Soul City](https://estreetshuffle.com/index.php/2019/05/07/cover-me-gary-u-s-bonds-and-the-e-street-band-club-soul-city/)” from the Johnny Cash bootleg “The Losing Kind,” which shares a similar dark humor. But I’m not a Cash scholar, so I’ll leave that to others to determine.
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+ 

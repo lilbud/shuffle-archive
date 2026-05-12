@@ -1,54 +1,34 @@
-
-
 What are we to make of “American Beauty?”
 
-[https://www.youtube.com/embed/4lYz9yibNuA?feature=oembed](https://www.youtube.com/embed/4lYz9yibNuA?feature=oembed)
+[Watch on Youtube: American Beauty](https://www.youtube.com/watch?v=4lYz9yibNuA)
 
-On one hand, it appears to be a musical melange, with a melody lifted from “…”
+On one hand, it appears to be a musical melange, with a melody lifted from “[Frankie Fell in Love](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)…”
 
-[Frankie Fell in Love](http://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)
+[Watch on Youtube: Frankie Fell in Love](https://www.youtube.com/watch?v=u1bqwTMW55Q)
 
-[https://www.youtube.com/embed/u1bqwTMW55Q?feature=oembed](https://www.youtube.com/embed/u1bqwTMW55Q?feature=oembed)
+…layered on the backing track for “[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)…”
 
-…layered on the backing track for “…”
+[Watch on Youtube: My Lucky Day](https://www.youtube.com/watch?v=M9Y7VXtVLeU)
 
-[My Lucky Day](http://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/)
+…with lyrics lifted liberally from “[Down in the Hole](https://estreetshuffle.com/index.php/2022/07/01/roll-of-the-dice-down-in-the-hole/).”
 
-[https://www.youtube.com/embed/M9Y7VXtVLeU?feature=oembed](https://www.youtube.com/embed/M9Y7VXtVLeU?feature=oembed)
+[Watch on Youtube: Down in the Hole](https://www.youtube.com/watch?v=eAS1zdocVwI)
 
-…with lyrics lifted liberally from “.”
+Even its imagery is drawn from Bruce’s recent musical past: the clicking boot heels from “Livin’ in the Future” make an appearance here, and its album-mate “[Gypsy Biker](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)” contributes a recurring “white line” motif.
 
-[Down in the Hole](https://estreetshuffle.com/index.php/2022/07/01/roll-of-the-dice-down-in-the-hole/)
+And then there’s the video for “American Beauty,” a live E Street Band performance filmed in an empty arena before Bruce’s [2014 concert in Charlotte](https://estreetshuffle.com/index.php/2018/04/19/where-the-band-was-charlotte-april-19-2014/) but inexplicably dubbed with the studio recording featuring different musicians. (No live performance audio has ever surfaced.)
 
-[https://www.youtube.com/embed/eAS1zdocVwI?feature=oembed](https://www.youtube.com/embed/eAS1zdocVwI?feature=oembed)
+[Watch on Youtube: American Beauty](https://www.youtube.com/watch?v=JYMc4FkSObM)
 
-Even its imagery is drawn from Bruce’s recent musical past: the clicking boot heels from “Livin’ in the Future” make an appearance here, and its album-mate “” contributes a recurring “white line” motif.
-
-[Gypsy Biker](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)
-
-And then there’s the video for “American Beauty,” a live E Street Band performance filmed in an empty arena before Bruce’s but inexplicably dubbed with the studio recording featuring different musicians. (No live performance audio has ever surfaced.)
-
-[2014 concert in Charlotte](http://estreetshuffle.com/index.php/2018/04/19/where-the-band-was-charlotte-april-19-2014/)
-
-[https://www.youtube.com/embed/JYMc4FkSObM?feature=oembed](https://www.youtube.com/embed/JYMc4FkSObM?feature=oembed)
-
-All this for a song released on an EP grab-bag of outtakes, issued only on a limited vinyl pressing of 7,500 and digitally. If you want to buy it today, you’ll have to choose between paying collector’s prices for the vinyl or accepting the inferior sonics of the mp3 format.
-
-*High Hopes*
+All this for a song released on an EP grab-bag of *High Hopes* outtakes, issued only on a limited vinyl pressing of 7,500 and digitally. If you want to buy it today, you’ll have to choose between paying collector’s prices for the vinyl or accepting the inferior sonics of the mp3 format.
 
 And yet, for a song comprised almost entirely of recycled parts….
 
-There’s something .
+There’s something *there*.
 
-*there*
+“American Beauty” may have been a *High Hopes* outtake, but Bruce is on record citing the song as hailing from his time working with Brendan O’Brien, and it shows.
 
-“American Beauty” may have been a outtake, but Bruce is on record citing the song as hailing from his time working with Brendan O’Brien, and it shows.
-
-*High Hopes*
-
-“American Beauty” sounds and like everything Bruce was reaching for on That album has some wonderful songs that work simultaneously as intimate relationship songs and pointed political commentary. “” is probably the best example from that group of multi-faceted songs.
-
-*feels**Magic.*[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)
+“American Beauty” sounds and *feels* like everything Bruce was reaching for on *Magic.* That album has some wonderful songs that work simultaneously as intimate relationship songs and pointed political commentary. “[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)” is probably the best example from that group of multi-faceted songs.
 
 But “American Beauty” takes it even a step further. Listen to (or read) the lyrics closely:
 
@@ -59,16 +39,12 @@ But “American Beauty” takes it even a step further. Listen to (or read) the 
 *American beauty will you be mine*  
 *Out on this highway counting white lines*
 
-
-
 *Hot and bloody summer, drifting blue eyes*  
 *We’re in the high grass, I finger your hemline*  
 *Boot heels click clacking, honey, when you shine*  
 *Autumn blue skies, hair sweet as the southern pines*  
 *American beauty forever in time*  
 *Out on this highway counting white lines*
-
-
 
 *Your hand cups your breast, pledging your time*  
 *Things we carried, shining skylines*  
@@ -87,13 +63,9 @@ Or is it his travelling companion that he’s so taken by, to whom he pledges hi
 
 “American Beauty” works on all three levels at once–so seamlessly, in fact, that I have all three movies playing in my mind whenever I listen to it. And on all three levels, the are hints that the beauty of America is threatened–never overtly stated, but certainly hinted at through ominous imagery.
 
-“American Beauty” have been a Magic-era composition. In fact, the song works so meticulously well that one wonders if it’s truly a recycled piece or if it’s instead an original organ donor. Perhaps Bruce wrote it first and then farmed its parts to the and songs that bear its DNA.
+“American Beauty” *must* have been a Magic-era composition. In fact, the song works so meticulously well that one wonders if it’s truly a recycled piece or if it’s instead an original organ donor. Perhaps Bruce wrote it first and then farmed its parts to the *Magic, Working on a Dream,* and *High Hopes* songs that bear its DNA.
 
-*must**Magic, Working on a Dream,**High Hopes*
-
-It must also be said: this song .
-
-*rocks*
+It must also be said: this song *rocks*.
 
 Love it or hate it (and it does seem to polarize fans), Bruce’s vocal performance on “American Beauty” ranks among his most distinctive, and the passion and heartache of the narrator drip from every deliberate crack in Bruce’s voice.
 
@@ -103,16 +75,10 @@ And the backing track barrels forward with the power of Bruce’s most ardent an
 
 So come on, Bruce: Bring “American Beauty” to the stage on your next tour. You couldn’t have known it when you wrote it, but it’s more relevant today than ever.
 
-early 2013
-(2014)
-April 19, 2014 (soundcheck only)
-April 19, 2014 (soundcheck only)
-
 **American Beauty**  
-**Recorded:**<br>
-**Released:** *American Beauty*<br>
-**First performed:** <br>
-**Last performed:**<br>
+**Recorded:** early 2013<br>
+**Released:** *American Beauty* (2014)<br>
+**First performed:** April 19, 2014 (soundcheck only)<br>
+**Last performed:** April 19, 2014 (soundcheck only)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

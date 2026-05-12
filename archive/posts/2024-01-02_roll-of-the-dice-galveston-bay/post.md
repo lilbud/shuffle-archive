@@ -1,6 +1,4 @@
-
-
-“That’s a miracle that can happen, that does happen: People get to a certain brink, and they make a good choice instead of a deadly choice.” *–Bruce Springsteen to David Corn, Mother Jones, March/April 1996*
+> “That’s a miracle that can happen, that does happen: People get to a certain brink, and they make a good choice instead of a deadly choice.” *–Bruce Springsteen to David Corn, Mother Jones, March/April 1996*
 
 “Galveston Bay” is barely a song, but it’s a heck of a story.
 
@@ -16,13 +14,13 @@ Things came to a head in a town called Seadrift on the evening of August 3rd, 19
 
 Over the course of that bloody evening, three Vietnamese boats were burned and a house occupied by a Vietnamese family was firebombed.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/galveston79-1-300x84.jpg?resize=758%2C212)
+![](https://estreetshuffle.com/wp-content/uploads/2020/06/galveston79-1.jpg)
 
 The brothers were eventually acquitted and released on the grounds of self-defense, which fanned the flames of racism and resentment even higher. The white locals now turned to the Ku Klux Klan for help.
 
 Although the real-life story continues on from here, this is the point at which Bruce sets “Galveston Bay.”
 
-[https://www.youtube.com/embed/-0hiDCIVbts?feature=oembed](https://www.youtube.com/embed/-0hiDCIVbts?feature=oembed)
+[Watch on Youtube: Galveston Bay](https://www.youtube.com/watch?v=-0hiDCIVbts)
 
 “Galveston Bay” appears to be loosely inspired by the events above, with Le Bin Son standing in for the Nguyen brothers and Billy Sutter playing the role of Billy Joe Aplin.
 
@@ -32,8 +30,6 @@ Bruce structures the opening stanzas of “Galveston Bay” in parallel, introdu
 *In the mountains and deltas of Vietnam*  
 *In ’75 Saigon fell and he left his command*  
 *And brought his family to the promised land*
-
-
 
 *Seabrook, Texas and the small towns in the Gulf of Mexico*  
 *It was delta country and reminded him of home*  
@@ -69,11 +65,7 @@ Now we arrive at our fated confrontation. Bruce is a little unclear about whethe
 
 It’s possible that Billy was the third of the three (presumably Klan) arsonists that night; it’s also possible he simply heard about the events in the town newspaper or gossip. Either way, we’re led to believe that until his neighbors were gunned down, Billy’s resentment stopped short of a desire for physical harm.
 
-“Galveston Bay” now reaches its climax, as Billy lies in wait for Le in the dark of night, knife in hand. Bruce knows his listeners are now invested in both characters, and he deliberately sustains the tension through film noir imagery. Finally, Bruce releases the pause button, and we hold our breath as Le passes Billy. We know what’s about to happen–at least we we do.
-
-*think*
-
-
+“Galveston Bay” now reaches its climax, as Billy lies in wait for Le in the dark of night, knife in hand. Bruce knows his listeners are now invested in both characters, and he deliberately sustains the tension through film noir imagery. Finally, Bruce releases the pause button, and we hold our breath as Le passes Billy. We know what’s about to happen–at least we *think* we do.
 
 *One late summer night Le stood watch along the waterside*  
 *Billy stood in the shadows, his K-bar knife in his hand and the moon slipped behind the clouds*  
@@ -86,39 +78,26 @@ Bruce fakes us out: at the crucial moment, Billy’s conscience gets the better 
 
 Standing at the precipice of darkness, Billy pulls himself back and goes home to his family, his job, and his life. His problems still exist, but he knows that violence won’t solve them.
 
-“Galveston Bay” is a strange candidate for an optimistic song, but in context of the album it appears on (), that’s exactly what it is. On an album cloaked in rage, hopelessness, alienation, and darkness, “Galveston Bay” is a candle.
+“Galveston Bay” is a strange candidate for an optimistic song, but in context of the album it appears on ([*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)), that’s exactly what it is. On an album cloaked in rage, hopelessness, alienation, and darkness, “Galveston Bay” is a candle.
 
-[](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad*
+That’s why Bruce saved it for the encore of his Joad Tour sets, more often than not serving as the penultimate song of the night and a lead-in for the show-closing “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” (which itself takes on new meaning after being namechecked in “Galveston Bay”). Positioned at the end of the night, “Galveston Bay” allowed Bruce to ensure that his audience went home each night on a note of hope and optimism.
 
-That’s why Bruce saved it for the encore of his Joad Tour sets, more often than not serving as the penultimate song of the night and a lead-in for the show-closing “” (which itself takes on new meaning after being namechecked in “Galveston Bay”). Positioned at the end of the night, “Galveston Bay” allowed Bruce to ensure that his audience went home each night on a note of hope and optimism.
-
-[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
-
-[https://www.youtube.com/embed/29W8yzXfB9E?feature=oembed](https://www.youtube.com/embed/29W8yzXfB9E?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Galveston Bay (Live 1996)](https://www.youtube.com/watch?v=29W8yzXfB9E)
 
 “Galveston Bay” is a quiet song that demands focused attention from its listeners–something that arena and stadium crowds aren’t known for. So even though Bruce has performed it more than a hundred times over the years, all of those times were either on his solo acoustic Ghost of Tom Joad Tour or his Devils & Dust Tour.
 
-All but one, that is. In the autumn of 2009, Bruce made an appearance on Elvis Costello’s shortlived television show, Airing in two parts, the two men alternated revealing conversation with performances selected from each other’s catalogs, as well as a few covers.
-
-*Spectacle.*
+All but one, that is. In the autumn of 2009, Bruce made an appearance on Elvis Costello’s shortlived television show, *Spectacle.* Airing in two parts, the two men alternated revealing conversation with performances selected from each other’s catalogs, as well as a few covers.
 
 Most of the set list selections were either obvious or predictable candidates, but there were definitely a couple of wild cards–perhaps none wilder than “Galveston Bay,” played solo by Bruce upon request from Elvis, who cited it as one of his favorites.
 
 Here’s that rarely seen performance–to my knowledge, it’s the only professionally filmed, officially released clip of Bruce performing “Galveston Bay.” (That’s the Professor on keyboards, by the way.)
 
-[https://videopress.com/embed/5Cf6O411?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5Cf6O411?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/5Cf6O411?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-March-August 1995
-(1995)
-November 21, 1995 (New Brunswick, NJ)
-September 25, 2009 (New York City, NY)
+**Galveston Bay  
+**Recorded:** March-August 1995<br>
+**Released:** *The Ghost of Tom Joad* (1995)<br>
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** September 25, 2009 (New York City, NY)
 
-**Galveston Bay**
-**Recorded:**<br>
-
-**Released:***The Ghost of Tom Joad* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

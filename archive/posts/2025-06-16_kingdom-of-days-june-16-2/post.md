@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Stand On It (Single B-Side - 1985)](https://www.youtube.com/watch?v=8CxaXbCEYzE)
 
-**1988**: Bruce and the E Street Band play their second of two nights at Stadio Flaminio in Rome. "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" makes its tour debut, as the Tunnel of Love Tour set lists begin morphing away from the album.
+**1988:** Bruce and the E Street Band play their second of two nights at Stadio Flaminio in Rome. "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" makes its tour debut, as the Tunnel of Love Tour set lists begin morphing away from the album.
 
 [Watch Video Highlight](https://videopress.com/embed/Ec4vKeYf)
 

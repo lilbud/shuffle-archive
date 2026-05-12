@@ -109,9 +109,9 @@ If there's a live performance, I'd recommend, it'd be this one from 1990—the f
 "Brilliant Disguise" is ultimately a very personal song, both for the singer and the listener. Your take may differ from mine, as it very likely should. And if so, I'd love to hear it.
 
 **Brilliant Disguise**
-**Recorded**: Early 1987
-**Released**: [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)(1987), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
-**First Performed**: October 31, 1987 (Sea Bright, NJ)
-**Last** **Performed**: November 22, 2024 (Vancouver, BC)
+**Recorded:** Early 1987
+**Released:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)(1987), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)
+**First Performed:** October 31, 1987 (Sea Bright, NJ)
+**Last** **Performed:** November 22, 2024 (Vancouver, BC)
 
 (c) February 6, 2018

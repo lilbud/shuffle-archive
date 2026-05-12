@@ -1,10 +1,6 @@
+> “Never doubt that a small group of thoughtful, committed citizens can change the world. Indeed, it is the only thing that ever has.” *–Margaret Mead*
 
-
-“Never doubt that a small group of thoughtful, committed citizens can change the world. Indeed, it is the only thing that ever has.” *–Margaret Mead*
-
-This is the only outtake I never got around to writing about for the blog, and that’s probably a good thing.
-
-*Greetings*
+This is the only *Greetings* outtake I never got around to writing about for the blog, and that’s probably a good thing.
 
 Had I written it in any year prior to this one, I might have characterized it as a period piece–a revealing glimpse into the mind of a young poet in the early 1970s, but nothing that offers resonance today.
 
@@ -12,15 +8,13 @@ Instead, I’m writing this in the waning days of 2025, in a country where “Vi
 
 Let’s take a listen.. And if you can, listen in the dark. Close your eyes. Let Bruce’s story wash over you. “Visitation at Fort Horn” is a challenging song to hold in our grasp, and it demands deep, attentive listening if we are to try.
 
-[https://www.youtube.com/embed/XK32rCoebpg?feature=oembed](https://www.youtube.com/embed/XK32rCoebpg?feature=oembed)
+[Watch on Youtube: BRUCE SPRINGSTEEN - visitation at fort horne](https://www.youtube.com/watch?v=XK32rCoebpg)
 
 “Visitation at Fort Horn” was written and recorded around the same time as “Lost in the Flood,” and the parallels are obvious.
 
 Both songs feature apocalyptic imagery and intensely florid–almost to the point of cryptic–language. And both are set against the backdrop of Vietnam War-era America, key to understanding each of them.
 
-Both songs feature powerful storms as metaphors for social unrest, and both represent the military-industrial complex as .
-
-*the fort*
+Both songs feature powerful storms as metaphors for social unrest, and both represent the military-industrial complex as *the fort*.
 
 So closely do they compare that it’s easy to see why only one could make the album. We might argue that Bruce picked the right one, but we should take some time to explore and appreciate the one that got away before deciding.
 
@@ -58,21 +52,13 @@ Now It’s time to meet our main players:
 *The captain says, “Have no fear, boys, for what you hear*  
 *Because danger can’t be spoken”*
 
-represents the rogue elements of a corrupt state, and specifically its enforcement arm: the riot police, officers who operate outside of protocol. (If the song was set in 2025, we would add ICE agents as well.)
+**The Sergeant** represents the rogue elements of a corrupt state, and specifically its enforcement arm: the riot police, officers who operate outside of protocol. (If the song was set in 2025, we would add ICE agents as well.)
 
-**The Sergeant**
+**The Captain** represents contemptuous authority and institutional cruelty. He commands from the safety of his desk and is unable or unwilling to to grok the inevitably irresistible force of resistance. He cares only for protecting his power and believes it is self-reinforcing.
 
-represents contemptuous authority and institutional cruelty. He commands from the safety of his desk and is unable or unwilling to to grok the inevitably irresistible force of resistance. He cares only for protecting his power and believes it is self-reinforcing.
+**The Prisoner** is the embodiment of justice. civic integrity, and American spirit–currently restrained by the brute force of The Sergeant, The Captain, and the unescapable Fort they command.
 
-**The Captain**
-
-is the embodiment of justice. civic integrity, and American spirit–currently restrained by the brute force of The Sergeant, The Captain, and the unescapable Fort they command.
-
-**The Prisoner**
-
-Once we understand who our players are, the story reveals itself: The Sergeant has captured The Prisoner with his brutality but doesn’t know what to with her. The Captain dismisses The Prisoner with disdain: Or put another way, words are just words. The state has institutional authority, legal weaponry, and and brute strength on their side. They have nothing to fear.
-
-*Let her go. Danger can’t be spoken.*
+Once we understand who our players are, the story reveals itself: The Sergeant has captured The Prisoner with his brutality but doesn’t know what to with her. The Captain dismisses The Prisoner with disdain: *Let her go. Danger can’t be spoken.* Or put another way, words are just words. The state has institutional authority, legal weaponry, and and brute strength on their side. They have nothing to fear.
 
 But we have one more character to introduce now.
 
@@ -85,9 +71,7 @@ But we have one more character to introduce now.
 *His spirit rises high into the western sky*  
 *The magician lies an empty token*
 
-is the martyr: the activist jailed or canceled, the whistleblower whose career is destroyed, the university or media outlets sued or starved for refusing to bend a knee. Bruce casts Merlin as a magician, because what other explanation is there for indomitability without any weapon, power, or obvious advantage?
-
-**Merlin**
+**Merlin** is the martyr: the activist jailed or canceled, the whistleblower whose career is destroyed, the university or media outlets sued or starved for refusing to bend a knee. Bruce casts Merlin as a magician, because what other explanation is there for indomitability without any weapon, power, or obvious advantage?
 
 At first it seems like Merlin is easily vanquished, but that’s only his physical form. His essence rises high into the western sky, and here we arrive at Bruce’s central thesis: you can shoot the messenger, but you can’t shoot the message. The message is the magic; the magicians are merely the vessels.
 
@@ -119,9 +103,7 @@ He rages and threatens, but both Captain and Prisoner know that his true power l
 *And the captain ran crazily*  
 *For the first time in his life, in the captain’s heart, fear was born*
 
-, of course, represents the cultural shift toward societal change, now deafening in volume and intensity. Mass resistance has always been and still is the only force that despots fear, and our Captain is now terrified.
-
-**The Storm**
+**The Storm**, of course, represents the cultural shift toward societal change, now deafening in volume and intensity. Mass resistance has always been and still is the only force that despots fear, and our Captain is now terrified.
 
 Bruce’s final lines drive it home:
 
@@ -137,9 +119,7 @@ Bruce’s final lines drive it home:
 
 Merlin is dead, but his magic has been unleashed. Bruce doesn’t bother offering resolution, because we don’t need it. (Also, the song is already almost eight minutes long.)
 
-We know what happens from here. We know what happens when enough people are willing to sacrifice their employment, their financial stability, and even their freedom in the name of justice, fairness, equity, and compassion.
-
-*always*
+We know what happens from here. We know what *always* happens when enough people are willing to sacrifice their employment, their financial stability, and even their freedom in the name of justice, fairness, equity, and compassion.
 
 “Visitation at Fort Horn” offers the listener hope, courage, confidence, and faith in the face of what looks and feels like a system hardwired for fealty and cruelty. It was written at a time when American legal institutions still served as armor and shield for those who adhered to its principles.
 
@@ -149,16 +129,10 @@ We are each The Prisoner, vulnerable and asking ourself: Dare we be Merlin?
 
 The Captain and his Sergeants are doing their best to dissuade us from even considering it.
 
-June 27, 1972
-
-February 1972
-February 1972
-
-**Visitation at Fort Horn**
-**Recorded:**<br>
-
+**Visitation at Fort Horn  
+**Recorded:** June 27, 1972<br>
 **Never released**  
-**First performed:** <br>
-**Last performed:**<br>
+**First performed:** February 1972<br>
+**Last performed:** February 1972
 
 (c) November 16, 2025

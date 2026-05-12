@@ -10,7 +10,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/46881241794_6812cfd98f_o.jpg)
 
-**1981**: Bruce and band take the River Tour to the Civic Center in Lakeland, Florida.
+**1981:** Bruce and band take the River Tour to the Civic Center in Lakeland, Florida.
 
 [Watch Video Highlight](https://videopress.com/embed/XYZd28NA)
 

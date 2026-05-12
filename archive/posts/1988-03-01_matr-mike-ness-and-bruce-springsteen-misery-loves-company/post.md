@@ -27,7 +27,7 @@ Thankfully, that last performance (At Sea. Hear. Now. in September 2018) not onl
 **Misery Loves Company**
 **Recorded:** December 29, 1998<br>
 **Released:** *Cheating at Solitaire* (1999)<br>
-**First performed**: May 17, 2008 (Asbury Park, NJ)  
+**First performed:** May 17, 2008 (Asbury Park, NJ)
 **Last performed:** September 30, 2018 (Asbury Park, NJ)<br>
 
 © January 22, 2020

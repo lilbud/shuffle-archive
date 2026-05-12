@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen - I'm On Fire (Official Video)](https://www.youtube.com/watch?v=lrpXArn3hII)
 
-**1988**: The Tunnel of Love Express Tour rolls on to the University of North Carolina in Chapel Hill for the first of two nights.
+**1988:** The Tunnel of Love Express Tour rolls on to the University of North Carolina in Chapel Hill for the first of two nights.
 
 [Watch Video Highlight](https://videopress.com/embed/blKVO3cW)
 

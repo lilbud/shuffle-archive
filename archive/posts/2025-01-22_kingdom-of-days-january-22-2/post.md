@@ -4,7 +4,7 @@
 
 **1970:** Bruce and Steel Mill open for the Elvin Bishop Band at The Matrix in San Francisco.
 
-**1971**: Steel Mill's last stand, the first of two nights at The Upstage in Asbury Park. Late in the show, the band makes a PSA to support The Upstage, and Bruce talks about how hard it's been finding gigs thanks to the [Clearwater incident](https://estreetshuffle.com/index.php/2018/09/11/kingdom-of-days-september-11/) from last summer.
+**1971:** Steel Mill's last stand, the first of two nights at The Upstage in Asbury Park. Late in the show, the band makes a PSA to support The Upstage, and Bruce talks about how hard it's been finding gigs thanks to the [Clearwater incident](https://estreetshuffle.com/index.php/2018/09/11/kingdom-of-days-september-11/) from last summer.
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/09-PSA.flac?_=2](https://estreetshuffle.com/wp-content/uploads/2018/01/09-PSA.flac?_=2)
 
@@ -24,7 +24,7 @@
 
 [Watch on Youtube: Bruce Springsteen Wins Best Original Song - Golden Globes 1994](https://www.youtube.com/watch?v=En4D3L5EGZc)
 
-**1996**: *CBS Sunday Morning* airs a segment profiling Bruce and his recent performance in Youngstown.
+**1996:** *CBS Sunday Morning* airs a segment profiling Bruce and his recent performance in Youngstown.
 
 [Watch on Youtube: Bruce Springsteen on CBS Sunday Morning - 1996-01-22](https://www.youtube.com/watch?v=_kKjwMysxNk)
 
@@ -32,11 +32,11 @@ That evening, Bruce plays a solo acoustic show at the Saenger Performing Arts Ce
 
 [Watch Video Highlight](https://videopress.com/embed/7yl9qLlX)
 
-**1998**: Bruce, Danny, Jim Hanson, Marty Rifkin, and Gary Mallaber perform "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" and "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)" for a Rolling Stone 30th anniversary special. It won't be aired until May, though.
+**1998:** Bruce, Danny, Jim Hanson, Marty Rifkin, and Gary Mallaber perform "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" and "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)" for a Rolling Stone 30th anniversary special. It won't be aired until May, though.
 
 [Watch on Youtube: Bruce Springsteen Rolling Stone State of the Union](https://www.youtube.com/watch?v=XT0OxAS5wg0)
 
-**2010**: Bruce performs "[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)" at a benefit for Haiti earthquake victims, joined by Charlie Giordano, Patti Scialfa, Soozie Tyrell, Curt Ramm, Curtis King, and Cindy Mizelle.
+**2010:** Bruce performs "[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)" at a benefit for Haiti earthquake victims, joined by Charlie Giordano, Patti Scialfa, Soozie Tyrell, Curt Ramm, Curtis King, and Cindy Mizelle.
 
 [Watch on Youtube: We Shall Overcome Bruce Springsteen Hope For Haiti January 22 2010](https://www.youtube.com/watch?v=HtC_NIBXrH4)
 

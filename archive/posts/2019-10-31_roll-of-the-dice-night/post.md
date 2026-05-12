@@ -101,7 +101,7 @@ But it was on the Rising Tour when Bruce finally brought back "Night" as a semi-
 
 That's a good thing, because "Night" never gets old. It's a shot of classic E Street that immediately electrifies any show where it appears.
 
-**Bonus**: "Night" was famously recorded in a single day–May 10, 1975–although it took several takes before the band landed on one Bruce liked. But well before Bruce captured his bolt of lightning in the studio, he'd laid down some demos.
+**Bonus:** "Night" was famously recorded in a single day–May 10, 1975–although it took several takes before the band landed on one Bruce liked. But well before Bruce captured his bolt of lightning in the studio, he'd laid down some demos.
 
 Here's one of them, from nine months earlier in August 1974:
 

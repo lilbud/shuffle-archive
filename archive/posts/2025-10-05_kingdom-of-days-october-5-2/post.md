@@ -1,6 +1,6 @@
 ***New for 2025:** Video for 2004 and 2006*
 
-**1974**: Bruce and the E Street Band perform their one-time-only cover of "Twistin' the Night Away" at Albright College in Reading, Pennsylvania.
+**1974:** Bruce and the E Street Band perform their one-time-only cover of "Twistin' the Night Away" at Albright College in Reading, Pennsylvania.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/10/1974-1005.jpg)
 

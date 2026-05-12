@@ -1,44 +1,26 @@
-
-
-Most of the reviews I read for mention Bruce’s self-deprecating humor, noting that late in his career, Bruce seems intent on deflating some of his importance, self- or otherwise.
-
-*Springsteen on Broadway*
+Most of the reviews I read for *Springsteen on Broadway* mention Bruce’s self-deprecating humor, noting that late in his career, Bruce seems intent on deflating some of his importance, self- or otherwise.
 
 All of that is true, but if you’re just noticing it now, you haven’t been paying attention for the last quarter-century or so.
 
-When Bruce released his double albums and in 1992, I was just about finished with Bruce, as was much of the listening public. I still loved his music as much as always–in fact, his last album, was and remains my all-time favorite–but it had been four-and-a-half years since we’d heard any new music from him, and time and tastes had moved forward.
+When Bruce released his double albums *Human Touch* and *Lucky Town* in 1992, I was just about finished with Bruce, as was much of the listening public. I still loved his music as much as always–in fact, his last album, [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) was and remains my all-time favorite–but it had been four-and-a-half years since we’d heard any new music from him, and time and tastes had moved forward.
 
-*Human Touch**Lucky Town*[](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*
+For the sake of old times, I picked up the albums (I couldn’t be bothered dealing with the midnight madness at Tower Records, though), and on my first listen I was mostly underwhelmed. With few exceptions (most notably the title track), I didn’t care for the production on *Human Touch*, and while I liked *Lucky Town* just fine, it just didn’t *sound* like Bruce.
 
-For the sake of old times, I picked up the albums (I couldn’t be bothered dealing with the midnight madness at Tower Records, though), and on my first listen I was mostly underwhelmed. With few exceptions (most notably the title track), I didn’t care for the production on , and while I liked just fine, it just didn’t like Bruce.
+Which was precisely Bruce’s intention of course, but I didn’t know that then. All I knew was that his voice sounded different, his subject matter was lighter, and the sound I’d come to know and love was just plain gone. “[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” immediately stood out as a lovely and destined-to-be-timeless ballad, and “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)” was fun, but nothing else lodged in my brain on first listen.
 
-*Human Touch**Lucky Town**sound*
+A day or two later, I listened to *Lucky Town* again. And this time, I must have been paying closer attention, because when I listened to “Local Hero,” I laughed out loud. *There you are*, I thought: “Local Hero” is such a delightfully meta commentary on the downhill side of fame that I still chuckle every time I hear it, even decades later. It also has some of Bruce’s cleverest, most incisive lyrics on record.
 
-Which was precisely Bruce’s intention of course, but I didn’t know that then. All I knew was that his voice sounded different, his subject matter was lighter, and the sound I’d come to know and love was just plain gone. “” immediately stood out as a lovely and destined-to-be-timeless ballad, and “” was fun, but nothing else lodged in my brain on first listen.
+[Watch on Youtube: Local Hero](https://www.youtube.com/watch?v=BExTE1vDhxs)
 
-[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)
-
-A day or two later, I listened to again. And this time, I must have been paying closer attention, because when I listened to “Local Hero,” I laughed out loud. , I thought: “Local Hero” is such a delightfully meta commentary on the downhill side of fame that I still chuckle every time I hear it, even decades later. It also has some of Bruce’s cleverest, most incisive lyrics on record.
-
-*Lucky Town**There you are*
-
-[https://www.youtube.com/embed/BExTE1vDhxs?feature=oembed](https://www.youtube.com/embed/BExTE1vDhxs?feature=oembed)
-
-It’s funny to think about it now, but there actually was a time when it seemed–both to fans and to the artist–that Bruce Springsteen was in his post-stardom period. His fame and popularity peaked during the era, and his critical acclaim crested with his follow-up, . Four years is like a generation in music, and that’s how long it had been since Bruce had released an album. “Local Hero” chronicles what it must have felt like to be Bruce at that time. (The irony, of course, is that Bruce was only in a mid-career lull–he’d go on to even greater heights in terms of stature and ticket sales if not in album sales–but it would take the better part of a decade to reclaim his position.)
-
-*Born in the U.S.A.* *Tunnel of Love*
+It’s funny to think about it now, but there actually was a time when it seemed–both to fans and to the artist–that Bruce Springsteen was in his post-stardom period. His fame and popularity peaked during the *Born in the U.S.A.* era, and his critical acclaim crested with his follow-up, *Tunnel of Love*. Four years is like a generation in music, and that’s how long it had been since Bruce had released an album. “Local Hero” chronicles what it must have felt like to be Bruce at that time. (The irony, of course, is that Bruce was only in a mid-career lull–he’d go on to even greater heights in terms of stature and ticket sales if not in album sales–but it would take the better part of a decade to reclaim his position.)
 
 I’ve read takes on “Local Hero” that interpret the song literally–and certainly it works on that level. But I’ve always felt from my first (well, second) listen that his “town” wasn’t a little burg in New Jersey, but rather the rock and roll pantheon.
 
-Let’s dig into the lyrics, but let’s first take one more listen to the song–this time in one of its earliest live performances, on .
+Let’s dig into the lyrics, but let’s first take one more listen to the song–this time in one of its earliest live performances, on *MTV Unplugged*.
 
-*MTV Unplugged*
+[Watch on Youtube: Bruce Springsteen - Local Hero (MTV Plugged - Official HD Video)](https://www.youtube.com/watch?v=96abVWWm8UA)
 
-[https://www.youtube.com/embed/96abVWWm8UA?feature=oembed](https://www.youtube.com/embed/96abVWWm8UA?feature=oembed)
-
-To me, this live 1992 live performance will always be the definitive version of the song. His new band is firing on all cylinders, and “Local Hero” in particular seems perfectly suited to their sound. While the E Street Band would tackle it in later years, they would never match the lean taut power of the 1992-93 band arrangement, and Bruce in particular seems so carefree and liberated from the audience expectations that he’d carried for so long. There’s a in this performance that seems very much tied to this period in Bruce’s career.
-
-*freedom*
+To me, this live 1992 live performance will always be the definitive version of the song. His new band is firing on all cylinders, and “Local Hero” in particular seems perfectly suited to their sound. While the E Street Band would tackle it in later years, they would never match the lean taut power of the 1992-93 band arrangement, and Bruce in particular seems so carefree and liberated from the audience expectations that he’d carried for so long. There’s a *freedom* in this performance that seems very much tied to this period in Bruce’s career.
 
 It probably had a lot to do with the song, though, as well. It had to be therapeutic to write, much less sing, lyrics like these:
 
@@ -84,9 +66,7 @@ Bruce intentionally uprooted his life and career, and he was happy with his new 
 
 As we do.
 
-Was it courage that led Bruce to put himself back out there before a public that had moved on without him, with an unfamiliar sound and an unfamiliar band? Or was it the desperation of an artist who their attention? Bruce couldn’t tell the difference, and maybe it didn’t matter anyway.
-
-*needed*
+Was it courage that led Bruce to put himself back out there before a public that had moved on without him, with an unfamiliar sound and an unfamiliar band? Or was it the desperation of an artist who *needed* their attention? Bruce couldn’t tell the difference, and maybe it didn’t matter anyway.
 
 Maybe it was both: a calling and an act of bravery.
 
@@ -102,22 +82,16 @@ The first 21st century appearance of “Local Hero” was at the tail end of the
 
 But while Soozie’s violin was a nice addition to the arrangement, the performance was stately, and Bruce seemed disconnected from the spirit of the song. If he was feeling it, it didn’t show.
 
-[https://www.youtube.com/embed/PDHsvzZGpPk?feature=oembed](https://www.youtube.com/embed/PDHsvzZGpPk?feature=oembed)
+[Watch on Youtube: Local Hero Bruce Springsteen 9/21/2003 Detroit](https://www.youtube.com/watch?v=PDHsvzZGpPk)
 
 It was almost a full decade before Bruce tried again, this time by request on the Wrecking Ball Tour in Leeds. Bruce certainly had fun with the arrangement, particularly with the horns, and the pro-shot clip below is a hoot to watch. But by now, firmly cemented in rock and roll immortality, Bruce almost seems sheepish singing it–a cautionary tale that never quite came true in the way he expected it to.
 
-[https://www.youtube.com/embed/ELEGhf7dMJw?feature=oembed](https://www.youtube.com/embed/ELEGhf7dMJw?feature=oembed)
-
-Late 1991
-(1992), (1993)
-May 6, 1992 (New York City, NY)
-April 14, 2023 (Newark, NJ)
+[Watch on Youtube: Local Hero (Leeds 07/24/13)](https://www.youtube.com/watch?v=ELEGhf7dMJw)
 
 **Local Hero**  
-**Recorded:**<br>
-**Released:***Lucky Town**In Concert/MTV Plugged*<br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** Late 1991<br>
+**Released:** *Lucky Town* (1992), *In Concert/MTV Plugged* (1993)<br>
+**First performed:** May 6, 1992 (New York City, NY)<br>
+**Last performed:** April 14, 2023 (Newark, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

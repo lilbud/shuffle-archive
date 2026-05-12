@@ -1,8 +1,4 @@
-
-
-Bart Haynes was the first to fall.
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/11/Barton_E._Haynes.webp?resize=361%2C487&amp;ssl=1)
+Bart Haynes was the first to fall.![](https://estreetshuffle.com/wp-content/uploads/2022/11/Barton_E._Haynes.webp)
 
 He was the band’s original drummer until Halloween 1965, and his house in Freehold served as their rehearsal space.
 
@@ -13,9 +9,7 @@ Bart graduated high school the following spring, joined the Marines in October, 
 ---
 
 
-Paul Popkin was the next man down. 
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/11/popkin.jpg?resize=352%2C195&amp;ssl=1)
+Paul Popkin was the next man down. ![](https://estreetshuffle.com/wp-content/uploads/2022/11/popkin.jpg)
 
 He was the band’s tambourine player and backing vocalist from October 1965 until the band broke up in 1968. He passed away from hepatitis the following year.
 
@@ -24,7 +18,9 @@ He was the band’s tambourine player and backing vocalist from October 1965 unt
 
 Bob Alfano was the last member to join The Castiles. He followed the band’s leader to his next group as well. Although he turned down an offer to play on his bandmate’s first album, Alfano stayed active in the local music scene until his death in 2007.
 
-<http://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3?_=7)
+
+<https://estreetshuffle.com/wp-content/uploads/2019/02/alfano.mp3>
 
 ---
 
@@ -34,9 +30,7 @@ Vinnie Manniello replaced Bart Haynes as the band’s drummer and remained with 
 ---
 
 
-
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/11/Ehzg5ZnXgAEf-nH-3.jpg?resize=407%2C463&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2022/11/Ehzg5ZnXgAEf-nH-3.jpg)
 
 Frank Marziotti was one of the last surviving band members until he passed away in early 2017. He was also the oldest, a full decade older than his high school student bandmates.
 
@@ -58,7 +52,7 @@ They shared a birthday month, born days apart in September 1949. George Theiss f
 
 Bruce remembers George as “kind of a regular guy. He was a carpenter by trade, and I believe that that’s how he made his living through most of his life, and played music on the side. But actually, as a teenager, he was quite charismatic: He was very good looking, attracted a lot of girls and had a great sort of tenor voice, and was really, initially, the frontman for The Castiles — I was simply the guitarist. And so he was a bit of our local star, you know, and he locally maintained that reputation for quite a big part of his life in Asbury Park.” (NPR, October 22, 2020)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/11/Ehzg5ZnXgAEf-nH-4.jpg?resize=452%2C440&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2022/11/Ehzg5ZnXgAEf-nH-4.jpg)
 
 In their post-Castile years, George formed his own eponymous band after stints in various local groups; Bruce earned himself a recording contract with Columbia Records and won over audiences worldwide.
 
@@ -66,19 +60,17 @@ In the summer of 2018, Bruce flew to his bedside to say goodbye to his old frien
 
 Fifty-three years after joining his very first band, Bruce Springsteen found himself the last man standing.
 
-[https://videopress.com/embed/yTlxwBCj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/yTlxwBCj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/yTlxwBCj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 The last surviving member of The Castiles found himself profoundly affected by that realization and keenly aware that his tomorrows were considerably fewer in number than his yesterdays.
 
 As summer turned to autumn turned to winter, Bruce reflected on his loss and his own mortality. His Broadway run was over, no tour was on the horizon, and it had been some time since he’d been visited by a muse. Something tugged at him though, and in the early days of spring, the dam broke.
 
-Over the course of about ten days in April 2019, Bruce wrote the songs that would form the heart of . “I just wandered around the house in different rooms,” he told Brian Hiatt in , “and I wrote a song each day. I wrote a song in the bedroom. I wrote a song in our bar. I wrote a song in the living room.”
-
-[](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*Letter to You**Rolling Stone*
+Over the course of about ten days in April 2019, Bruce wrote the songs that would form the heart of [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/). “I just wandered around the house in different rooms,” he told Brian Hiatt in *Rolling Stone*, “and I wrote a song each day. I wrote a song in the bedroom. I wrote a song in our bar. I wrote a song in the living room.”
 
 The first song–the one that established the theme for the album and inspired all that came after–was “Last Man Standing.”
 
-[https://www.youtube.com/embed/8ldvyBNYqCY?feature=oembed](https://www.youtube.com/embed/8ldvyBNYqCY?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Last Man Standing](https://www.youtube.com/watch?v=8ldvyBNYqCY)
 
 Bruce wrote “Last Man Standing” on an acoustic guitar given to him by an anonymous Italian fan as Bruce exited the Walter Kerr Theater one evening. He was intrigued by the quality of the guitar and its mysterious origin, and he kept it in his living room where it sat neglected until Bruce reached for it as inspiration struck.
 
@@ -98,8 +90,6 @@ Losing himself in the photos and the details they reveal, he finds old memories 
 *Kicking the band in side by side*  
 *You take the crowd on their mystery ride*
 
-
-
 *Knights of Columbus and the Fireman’s Ball*  
 *Friday night at the Union Hall*  
 *Black leather clubs all along Route 9*  
@@ -112,9 +102,7 @@ With that last line, Bruce reveals that our narrator is both past and present. H
 *Somewhere deep into the heart of the crowd*  
 *I’m the last man standing now*
 
-It could have served as the song’s title, too.
-
-*Rock of ages.*
+*Rock of ages.* It could have served as the song’s title, too.
 
 As is his wont, Bruce uses the phrase to symbolize two things at once: the biblical metaphor for everlasting strength, and the literal reference to his life’s work. He calls on both to lift his soul in transcendence, as he attempts to forget the present and immerse himself in the past.
 
@@ -124,8 +112,6 @@ It’s only for the moment, though, and as the lights come up we realize that ou
 *Thrift store jeans and flannel shirt*  
 *The lights go down and we face the crowd*  
 *The last man standing now*
-
-
 
 *Lights come up at the Legion Hall*  
 *Pool cues go back up on the wall*  
@@ -141,47 +127,33 @@ Once again he beseeches the divine spirits of both God and Rock and Roll for the
 *Somewhere deep into the heart of the crowd*  
 *I’m the last man standing now*
 
-For every great band, there’s a last man standing (or there will be), and as long as he stands on stage each night, his band stands with him. Or as Springsteen put it to his audience more than four decades into his career: 
-
-*if you’re here, and we’re here, then they’re here.*
+For every great band, there’s a last man standing (or there will be), and as long as he stands on stage each night, his band stands with him. Or as Springsteen put it to his audience more than four decades into his career: *if you’re here, and we’re here, then they’re here.*
 
 ---
 
 
 Bruce recorded “Last Man Standing” just prior to the pandemic of 2020, and he hasn’t had an opportunity to perform it in public yet. That may change next year, but in the meantime we can hear two brief, live acoustic performances, each performed during an interview.
 
-The first was shortly after the song’s release in October 2020 when Bruce appeared on Malcolm Gladwell and Rick Rubin’s podcast, 
+The first was shortly after the song’s release in October 2020 when Bruce appeared on Malcolm Gladwell and Rick Rubin’s podcast, *Broken Record.*
 
-*Broken Record.*
-
-[https://www.youtube.com/embed/CNsrCkJ_VBc?feature=oembed](https://www.youtube.com/embed/CNsrCkJ_VBc?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Last Man Standing (solo acoustic)](https://www.youtube.com/watch?v=CNsrCkJ_VBc)
 
 The second was just a couple of weeks ago during Bruce’s interview with Howard Stern.
 
+[https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3?_=8)
+
 <https://estreetshuffle.com/wp-content/uploads/2022/11/Stern-LMS.mp3>
 
-As the genesis for , “Last Man Standing” seems like a pretty good bet for at least a few set list appearances on Bruce’s next tour–which as of this writing is only weeks away. So if you’re waiting for a full-band performance, we hopefully won’t have to wait much longer.
+As the genesis for *Letter to You*, “Last Man Standing” seems like a pretty good bet for at least a few set list appearances on Bruce’s next tour–which as of this writing is only weeks away. So if you’re waiting for a full-band performance, we hopefully won’t have to wait much longer.
 
-*Letter to You*
+**Update 1/3/2024:** With World Tour 2023 behind us, we now know that of course “Last Man Standing” did indeed feature nightly–but as an affecting solo performance rather than with the full band (although Curt Ramm played a moving trumpet solo during the bridge).
 
-With World Tour 2023 behind us, we now know that of course “Last Man Standing” did indeed feature nightly–but as an affecting solo performance rather than with the full band (although Curt Ramm played a moving trumpet solo during the bridge).
+[Watch on Youtube: Bruce Springsteen - Last Man Standing - St. Paul, MN - 3/5/2023](https://www.youtube.com/watch?v=loLoscZVRzI)
 
-**Update 1/3/2024:**
+**Last Man Standing  
+**Recorded:** November 18-22, 2019<br>
+**Released:** *Letter to You* (2020)<br>
+**First performed:** October 27, 2020 (Colts Neck, NJ)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-[https://www.youtube.com/embed/loLoscZVRzI?feature=oembed](https://www.youtube.com/embed/loLoscZVRzI?feature=oembed)
-
-November 18-22, 2019
-(2020)
-October 27, 2020 (Colts Neck, NJ)
-September 3, 2023 (East Rutherford, NJ)
-
-**Last Man Standing**
-**Recorded:**<br>
-
-**Released:***Letter to You* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

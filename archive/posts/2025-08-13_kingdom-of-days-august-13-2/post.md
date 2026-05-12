@@ -4,7 +4,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11-1.jpg)
 
-**1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions. Bruce does play a show that evening at the Stone Balloon in Newark, though–his one and only show ever in the state of Delaware.
+**1974:** Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions. Bruce does play a show that evening at the Stone Balloon in Newark, though–his one and only show ever in the state of Delaware.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/08/1974-0813.jpg)
 

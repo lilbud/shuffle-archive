@@ -1,20 +1,14 @@
-
-
 Is a cover still a cover if the original songwriter never recorded it?
 
 I’m gonna go with “yes,” because Darlene Love’s recording of the Springsteen-authored “Night Closing In” is too wonderful to ignore.
 
 Bruce Springsteen and Steve Van Zandt had crossed paths with Love many times since the 1980s (and were fans long before), and Steve was determined to record an album with her. But life has a habit of getting in the way, and despite writing and producing her 1992 holiday song, “All Alone on Christmas,” Steve never quite got around to recording that album with her.
 
-Until 2014, that is, when something stirred Steve into action. Calling in favors with friends like Elvis Costello, Joan Jett, and of course Bruce, Steve collected a group of songs that he arranged into a comeback album called (ironically) .
+Until 2014, that is, when something stirred Steve into action. Calling in favors with friends like Elvis Costello, Joan Jett, and of course Bruce, Steve collected a group of songs that he arranged into a comeback album called (ironically) *Introducing Darlene Love*.
 
-*Introducing Darlene Love*
+Bruce contributed two original songs to the project, one of which is the *very* Spectorish “Night Closing In.”
 
-Bruce contributed two original songs to the project, one of which is the Spectorish “Night Closing In.”
-
-*very*
-
-[https://www.youtube.com/embed/tCBC4IV8GdM?feature=oembed](https://www.youtube.com/embed/tCBC4IV8GdM?feature=oembed)
+[Watch on Youtube: Night closing in - Darlene Love (Composed by Bruce Springsteen)](https://www.youtube.com/watch?v=tCBC4IV8GdM)
 
 “Night Closing In” is a song of heartbreak. It’s about those first few days after a break-up, when you wake up in the morning and all seems right… until you remember.
 
@@ -27,16 +21,12 @@ The day provides its distractions, but the clock counts down to the night–and 
 *Baby I can feel the night*  
 *Baby I can feel the night, closing in*
 
-
-
 *Get out of bed, put on my stockings and my skirt*  
 *Day by day and step by step I make it through work*  
 *Then there’s the sun, sinks down, that’s when the blues began*  
 *Baby I can feel the night*  
 *And baby I can feel the night*  
 *Baby I can feel the night, closing in*
-
-
 
 *And into bed, naked under the sheets*  
 *I try not to think about you but I can feel the heat*  
@@ -51,17 +41,11 @@ I wouldn’t be surprised if the song dates much farther back than 2014. But tha
 
 This one is perfect as is.
 
-Here’s Darlene’s live performance of “Night Closing In” (with Little Steven) from shortly after her record release in 2015.
+**Bonus:** Here’s Darlene’s live performance of “Night Closing In” (with Little Steven) from shortly after her record release in 2015.
 
-**Bonus:**
+[Watch on Youtube: Darlene Love Night Closing In 2015](https://www.youtube.com/watch?v=N-5FXMhnKMg)
 
-[https://www.youtube.com/embed/N-5FXMhnKMg?feature=oembed](https://www.youtube.com/embed/N-5FXMhnKMg?feature=oembed)
-
-2014-2015
-(2015)
-
-**Night Closing In**
-**Recorded:**<br>
-
-**Released:** *Introducing Darlene Love*<br>
+**Night Closing In  
+**Recorded:** 2014-2015<br>
+**Released:** *Introducing Darlene Love* (2015)<br>
 **Never performed live by Bruce**

@@ -1,32 +1,22 @@
-
-
 For Bruce Springsteen, all roads lead west.
 
 His fondness for cinema, his fascination with the American west, his reckoning with age and remembrance of glory days–all those avenues converge in the land of sunsets and arrive at “Western Stars.”
 
-“Western Stars” is magnificent. It’s also inevitable. Bruce’s songwriting has been building toward this ever since “” in 1978 and barreling at full speed since in 1995.
+“Western Stars” is magnificent. It’s also inevitable. Bruce’s songwriting has been building toward this ever since “[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” in 1978 and barreling at full speed since [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)in 1995.
 
-[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad*
+By the time he arrived at his 2005 masterpiece, “[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)“–a song that has so many parallels to “Western Stars” that they’re practically siblings (an essay for another day)–we knew we’d clearly been introduced to a more mature, introspective Bruce Springsteen who was coming to terms with having more sunrises behind him than ahead of him.
 
-By the time he arrived at his 2005 masterpiece, ““–a song that has so many parallels to “Western Stars” that they’re practically siblings (an essay for another day)–we knew we’d clearly been introduced to a more mature, introspective Bruce Springsteen who was coming to terms with having more sunrises behind him than ahead of him.
-
-[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)
-
-It’s not much of a stretch to call Bruce’s magnum opus and its title track one of Bruce’s finest songs. We’ll take a close look at it, but to do it right, we have to take a look at it.
-
-*Western Stars**really*
+It’s not much of a stretch to call *Western Stars* Bruce’s magnum opus and its title track one of Bruce’s finest songs. We’ll take a close look at it, but to do it right, we *really* have to take a look at it.
 
 In general, I’m not a huge fan of on-the-nose music videos. If all you’re doing is literally illustrating the song, why bother? Our imaginations can do that just fine on our own.
 
-But “Western Stars” isn’t an ordinary song. Like “Thunder Road” and ““, “Western Stars” earns its cinematic label–it just like a movie. Heck, it’s virtually a musical score.
-
-[Downbound Train](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)*sounds*
+But “Western Stars” isn’t an ordinary song. Like “Thunder Road” and “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)“, “Western Stars” earns its cinematic label–it just *sounds* like a movie. Heck, it’s virtually a musical score.
 
 In fact, “Western Stars” is such an evocative song that there’s almost no point in watching its official video–odds are the movie we visualize when we hear the song is even more vivid than Thom Zimny’s wonderful five-minute film. And yet, the video is beautifully filmed and features some of Bruce’s very best acting. I find myself unable to separate the song from the video; whenever I listen to “Western Stars,” I see it as well.
 
 Let’s watch together.
 
-[https://www.youtube.com/embed/_IXzAAKrsFE?feature=oembed](https://www.youtube.com/embed/_IXzAAKrsFE?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Western Stars (Official Video)](https://www.youtube.com/watch?v=_IXzAAKrsFE)
 
 Both lyrically and musically, “Western Stars” is (somewhat paradoxically) both meditation and celebration.
 
@@ -34,9 +24,7 @@ I’ve heard many critics voice the opinion that the song’s protagonist is dep
 
 The narrator of “Western Stars” knows his days of glory are behind him, but he refuses to ride off into the sunset. Like many of Bruce’s songs, the theme of “Western Stars” can be found in a single line, the song’s finest: “These days there ain’t no more… now there’s just again.”
 
-“Western Stars” is at it’s core an acknowledgement of the essence of old age: a series of endless endless, that is, until it ends.
-
-*agains,*
+“Western Stars” is at it’s core an acknowledgement of the essence of old age: a series of endless *agains,* endless, that is, until it ends.
 
 Let’s take a closer listen.
 
@@ -50,9 +38,7 @@ The first line of “Western Stars” mirrors the opening line of Bruce’s grea
 
 *I get up in the evenin’, and I ain’t got nothin’ to say*
 
-In 1984, Bruce’s “” narrator bristled and seethed with frustration at his lack of forward momentum. He was tired–tired and bored with himself.
-
-[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
+In 1984, Bruce’s “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” narrator bristled and seethed with frustration at his lack of forward momentum. He was tired–tired and bored with himself.
 
 Our “Western Stars” protagonist, by contrast, is simply happy to be alive. It’s implied that he’s lost many friends already: Forest Lawn is a famous Los Angeles cemetery, known as the final resting place for many of the stars of the Golden Age of Hollywood. The “down the Five” reference is more than a colorful geographical detail–it’s a reminder of how the modern age (Interstate 5, which runs past Forest Lawn) has imprinted itself over the remnants of the past. It’s also a bit of clever foreshadowing–we’ll refer back to this later in the song.
 
@@ -87,9 +73,7 @@ This verse ranks among the best Bruce has ever written–clever, colorful, subtl
 *Hell these days there ain’t no more, now there’s just again*  
 *Tonight the western stars are shining bright again*
 
-And there it is: the song in one line. When do you know you’re old? When there’s no more , when your days are just a series of . And if Bruce had left the line hanging, we might hear that line as profoundly depressing. But he doesn’t–he follows it up with the song’s refrain and makes it clear that is just fine if your inner fire still burns.
-
-*new**again**again*
+And there it is: the song in one line. When do you know you’re old? When there’s no more *new*, when your days are just a series of *again*. And if Bruce had left the line hanging, we might hear that line as profoundly depressing. But he doesn’t–he follows it up with the song’s refrain and makes it clear that *again* is just fine if your inner fire still burns.
 
 Until this point in the song, the camera stays in tight focus on Bruce, lost in his inner world. But as we approach this key line, the lens starts to widen. We see a band behind Bruce, we see the valley in front of him, and the orchestra begins to swell as the musical landscape opens to match the lyrical and cinematic ones.
 
@@ -102,9 +86,7 @@ I’m going to decline to discuss charreada here, because it’s controversial e
 
 As the orchestra swells and blooms, there’s a lovely shot of Bruce noticing his cowboy hat on the seat beside him. He picks it up (but does not put it on) and surrenders to memory during the instrumental bridge that follows.
 
-(It’s worth noting, at this point, that the video appears to have been filmed on the same day as the movie. In addition to Bruce’s barn obviously serving as the bar in the video, Bruce is wearing the same outfit in both films. I don’t think it’s the same performance in both, however, because the video takes pains to show Patti in the audience rather than on stage–an artistic choice, I believe, in service of maintaining the illusion of the narrator is a lonely figure lost in his own introspection.)
-
-*Western Stars,*
+(It’s worth noting, at this point, that the video appears to have been filmed on the same day as *Western Stars,* the movie. In addition to Bruce’s barn obviously serving as the bar in the video, Bruce is wearing the same outfit in both films. I don’t think it’s the same performance in both, however, because the video takes pains to show Patti in the audience rather than on stage–an artistic choice, I believe, in service of maintaining the illusion of the narrator is a lonely figure lost in his own introspection.)
 
 We return to the bar now, as our western star spins another tale of yesteryear.
 
@@ -119,11 +101,7 @@ As we enter the final chorus, we reach my favorite moment in the video. When Bru
 *Tonight the western stars are shining bright again*  
 *And the western stars are shining bright again*
 
-He’s still not going anywhere in particular; there’s no to drive to. But he’s at least in motion, at least living his . One last time, Bruce suggests the present as unable to erase the timeless elements of this particular place (and person):
-
-*more**again*
-
-
+He’s still not going anywhere in particular; there’s no *more* to drive to. But he’s at least in motion, at least living his *again*. One last time, Bruce suggests the present as unable to erase the timeless elements of this particular place (and person):
 
 *Tonight the riders on Sunset are smothered in the Santa Ana winds*  
 *And the western stars are shining bright again*  
@@ -142,25 +120,15 @@ He’s still not going anywhere in particular; there’s no to drive to. But he�
 *Say I’m easy, come easy go*  
 *And easy to love when I stay.*
 
-Bruce leaves us at the place where we began: . Another morning, another day to be grateful to be alive.
-
-*Again*
-
-
+Bruce leaves us at the place where we began: *Again*. Another morning, another day to be grateful to be alive.
 
 *I woke up this morning, just glad my boots were on…*
 
-In the film for , Bruce introduced the title track like this:
-
-*Western Stars*
-
-
+In the film for *Western Stars*, Bruce introduced the title track like this:
 
 *“Western Stars” is the heart of the record. It was my reference point when I was searching for who my character was and where he, I, was headed. You’ve got a fading Western film star watching the world change around him, watching it pass him by… He’s the oldest guy in the room, but he’s still got an inner compass that doesn’t allow him to bullshit himself. He knows exactly who he is, what he’s done, the good, the bad and the ugly of it. It’s his small redemption. And he’s made a relative peace with himself. He’s losing old friends quickly, a lot of empty boots. But he wakes up in the morning, glad that his are still on.*
 
-It’s the opposite of a Freudian slip: Bruce intentionally pauses to let us know that he views the narrator of “Western Stars” as a proxy for himself. He knows he’s a symbol of the past, not the present, and while he’s far from creatively done, he recognizes that he’s fading into the cultural background. (It’s not the first time he’s addressed this in song–see ““)
-
-[Girls in Their Summer Clothes.](http://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)
+It’s the opposite of a Freudian slip: Bruce intentionally pauses to let us know that he views the narrator of “Western Stars” as a proxy for himself. He knows he’s a symbol of the past, not the present, and while he’s far from creatively done, he recognizes that he’s fading into the cultural background. (It’s not the first time he’s addressed this in song–see “[Girls in Their Summer Clothes.](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)“)
 
 But he still wakes up every morning to do what he loves most.
 
@@ -169,33 +137,20 @@ Let’s all be thankful that his boots are still firmly on.
 ---
 
 
-“Western Stars” is one of Bruce’s newest songs, and he hasn’t toured behind the album for which it serves as the title track. He’s performed it live at least once, though. We know because it was captured on film and audio for the film 
+“Western Stars” is one of Bruce’s newest songs, and he hasn’t toured behind the album for which it serves as the title track. He’s performed it live at least once, though. We know because it was captured on film and audio for the film *Western Stars.* 
 
-*Western Stars.*
+You can listen to the live recording below, but I honestly think you’re better off listening to the studio version another time: the studio version is more lush, Bruce’s vocals more pure, and the arrangement identical (both tracks are the same length, to the second). *Western Stars* is perhaps the only album in Bruce’s catalog that can’t be improved upon live.
 
-You can listen to the live recording below, but I honestly think you’re better off listening to the studio version another time: the studio version is more lush, Bruce’s vocals more pure, and the arrangement identical (both tracks are the same length, to the second). is perhaps the only album in Bruce’s catalog that can’t be improved upon live.
+[Watch on Youtube: Bruce Springsteen - Western Stars (Film Version - Official Audio)](https://www.youtube.com/watch?v=WjOIf_Z1c1M)
 
-*Western Stars*
+**Bonus:** Here’s a promotional clip from the movie, *Western Stars*. It’s only a partial performance of the title track, but it’s enough for us to recognize that both the film and the video were probably shot at or around the same time.
 
-[https://www.youtube.com/embed/WjOIf_Z1c1M?feature=oembed](https://www.youtube.com/embed/WjOIf_Z1c1M?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Western Stars (From The Film Western Stars)](https://www.youtube.com/watch?v=GBRPo6lQRBg)
 
-Here’s a promotional clip from the movie, . It’s only a partial performance of the title track, but it’s enough for us to recognize that both the film and the video were probably shot at or around the same time.
+**Western Stars  
+**Recorded:** Unknown<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)
 
-**Bonus:***Western Stars*
-
-[https://www.youtube.com/embed/GBRPo6lQRBg?feature=oembed](https://www.youtube.com/embed/GBRPo6lQRBg?feature=oembed)
-
-Unknown
-(2019)
-April 2019 (Colts Neck, NJ)
-April 2019 (Colts Neck, NJ)
-
-**Western Stars**
-**Recorded:**<br>
-
-**Released:** *Western Stars* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

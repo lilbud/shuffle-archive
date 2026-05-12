@@ -1,32 +1,22 @@
-
-
 How could something so bad come from something so good?
 
 That’s the question at the heart of “Loose End,”* one of the best Springsteen tracks to ever get left off an album.
 
-[https://www.youtube.com/embed/52tXpQId_gY?feature=oembed](https://www.youtube.com/embed/52tXpQId_gY?feature=oembed)
+[Watch on Youtube: Loose Ends (Studio Outtake - 1979)](https://www.youtube.com/watch?v=52tXpQId_gY)
 
-It wasn’t supposed to be that way, though. When Bruce first sent his fifth studio album to his record label, it was only a single disc entitled , and “Loose End” was the closing song.
+It wasn’t supposed to be that way, though. When Bruce first sent his fifth studio album to his record label, it was only a single disc entitled *The Ties That Bind*, and “Loose End” was the closing song.
 
-*The Ties That Bind*
-
-And what a magnificent album closer it would have been: musically lush in the Spectorian girl group mold (even more so than “Born to Run”), but lyrically dark, hopeless and fatalistic. Had Bruce released it as intended, “Loose End” would have become Bruce’s first true relationship song as well as the standard bearer for his trademark juxtaposition of poppy melody with somber lyrics. (” holds that honor instead.)
-
-[“Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
+And what a magnificent album closer it would have been: musically lush in the Spectorian girl group mold (even more so than “Born to Run”), but lyrically dark, hopeless and fatalistic. Had Bruce released it as intended, “Loose End” would have become Bruce’s first true relationship song as well as the standard bearer for his trademark juxtaposition of poppy melody with somber lyrics. ([“Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” holds that honor instead.)
 
 “Loose End” is the story of a relationship turned toxic. Like all great loves, it starts like a storybook, and Bruce employs some of his most romantic lyrics to date to paint the scene.
 
-“
-
 *We met out on open streets when we had no place to go*  
-*I remember how my heart beat when you said “I love you so*
+*I remember how my heart beat when you said “I love you so*“
 
 Which makes the tonal shift in the third line all the more shocking:
 
 *Then little by little we choked out all the life that our love could hold*  
 *No no*
-
-
 
 *It’s like we had a noose and baby without check*  
 *We pulled ’til it grew tighter around our necks*  
@@ -35,9 +25,7 @@ Which makes the tonal shift in the third line all the more shocking:
 
 The titular metaphor is a brutal one: Their relationship is like a noose, and our lovers pull it ever tighter, choking the life out of their love. Both partners are miserable, but neither is willing to flinch–waiting instead for the other to be the one to break it off.
 
-Unable to bring themselves to leave a relationship growing increasingly toxic, they do the only thing they do: meet on the loose end of the noose–the side that keeps shrinking and shrinking.
-
-*can*
+Unable to bring themselves to leave a relationship growing increasingly toxic, they do the only thing they *can* do: meet on the loose end of the noose–the side that keeps shrinking and shrinking.
 
 Honestly, Bruce could have stopped writing at this point. The remaining verses only underline the same sad story without imparting any new information. But that’s the point: just like in their relationship, our narrator is caught up in a cycle and unable to break himself free.
 
@@ -63,38 +51,26 @@ Recorded only a few months shy of Springsteen’s 30th birthday, “Loose End”
 
 “Loose End” takes place primarily in the past–only the last line of each verse hints at the darkness to come (and of course the entire chorus). That’s probably why Bruce wisely chose to root it in retro musical style.
 
-“Loose End” is It’s lush, romantic, swooning. Clarence plays one of his best and longest solos on record, and Bruce layers his own voice for background, turning in one of his warmest vocal performances to date.
+“Loose End” is *big.* It’s lush, romantic, swooning. Clarence plays one of his best and longest solos on record, and Bruce layers his own voice for background, turning in one of his warmest vocal performances to date.
 
-*big.*
+There’s so much going on in “Loose End,” in fact, that it took many attempts to get it right–and even then, Bruce released two distinct versions–one on his 1998 *Tracks* box set, the other in his *The Ties That Bind: The River Collection* box set. Take a listen to the latter below and see if you can pick out the differences. (The most obvious is the coda.)
 
-There’s so much going on in “Loose End,” in fact, that it took many attempts to get it right–and even then, Bruce released two distinct versions–one on his 1998 box set, the other in his box set. Take a listen to the latter below and see if you can pick out the differences. (The most obvious is the coda.)
-
-*Tracks* *The Ties That Bind: The River Collection*
-
-[https://www.youtube.com/embed/7RvmALTXl1Y?feature=oembed](https://www.youtube.com/embed/7RvmALTXl1Y?feature=oembed)
+[Watch on Youtube: Loose Ends](https://www.youtube.com/watch?v=7RvmALTXl1Y)
 
 In concert, “Loose End” has always been a rarity, played less then three dozen times to date, and never prior to the Reunion Tour in 1999. Here’s that debut performance, captured on video in Paris on June 3, 1999.
 
-[https://www.youtube.com/embed/NKBJOMd98Xg?feature=oembed](https://www.youtube.com/embed/NKBJOMd98Xg?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Loose Ends (Live 1999-06-03)](https://www.youtube.com/watch?v=NKBJOMd98Xg)
 
 Since then, “Loose End” has remained elusive, never missing an E Street Band Tour but never making more than a few cameo appearances per tour. With its majestic melody and powerful lyrics, “Loose End” remains on many fans’ chase list and seems likely to return to the E Street stage in 2023.
 
-[https://www.youtube.com/embed/riKDqDaY6RM?feature=oembed](https://www.youtube.com/embed/riKDqDaY6RM?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Loose Ends (Philadelphia, October 20, 2009)](https://www.youtube.com/watch?v=riKDqDaY6RM)
 
-July 18, 1979
-(1998), (2015)
-June 3, 1999 (Paris, France)
-September 9, 2016 (Philadelphia, PA)
+**Loose End  
+**Recorded:** July 18, 1979<br>
+**Released:** *Tracks* (1998), *The River: Single Album* (2015)<br>
+**First performed:** June 3, 1999 (Paris, France)<br>
+**Last performed:** September 9, 2016 (Philadelphia, PA)
 
-**Loose End**
-**Recorded:**<br>
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-**Released:** *Tracks* *The River: Single Album*<br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
-
-**I know the song is officially entitled “Loose Ends.” I’m convinced it’s a typo Bruce has never bothered to correct.**
+*I know the song is officially entitled “Loose Ends.” I’m convinced it’s a typo Bruce has never bothered to correct.

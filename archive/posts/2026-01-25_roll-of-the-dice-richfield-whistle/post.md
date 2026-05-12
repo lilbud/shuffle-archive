@@ -1,5 +1,3 @@
-
-
 Let’s pick up the story.
 
 In “Richfield Whistle,” Bruce Springsteen revisited James Lucas and family, some time after the events of “Jim Deer.” The backdrop is the same, as are the economic circumstances.
@@ -8,7 +6,7 @@ However, by the end of the second verse, “Richfield Whistle” establishes its
 
 Let’s take a listen.
 
-[https://www.youtube.com/embed/5ss92tx_B6s?feature=oembed](https://www.youtube.com/embed/5ss92tx_B6s?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Richfield Whistle (Official Audio)](https://www.youtube.com/watch?v=5ss92tx_B6s)
 
 The early verses are very similar to “Jim Deer,” but the few changes are significant. James is still Remington-born, and he still does a stint in Richfield Prison. But whereas in “Jim Deer” our protagonist ends up behind bars for the cruel crime he commits, in “Richfield Whistle,” James Lucas has already served his sentence.
 
@@ -60,9 +58,7 @@ Inevitably, Jimmy is found out. His boss confronts him but has mercy on him, sim
 *If you needed some extra money, Jim,*  
 *All you had to do was ask.”*
 
-Those words undoubtedly echoed in Jimmy’s head that night. His brother-in-law Syl said the same thing in “Jim Deer,” leading Jimmy astray. The symmetry is ironic. Jimmy landed in prison because he asked for a way to make extra money; now he’s lost his job because he didn’t ask.
-
-*All you had to do was ask.*
+*All you had to do was ask.* Those words undoubtedly echoed in Jimmy’s head that night. His brother-in-law Syl said the same thing in “Jim Deer,” leading Jimmy astray. The symmetry is ironic. Jimmy landed in prison because he asked for a way to make extra money; now he’s lost his job because he didn’t ask.
 
 Jimmy and Pat argue, and Jimmy drives off with only a bottle and ten dollars to his name. He stops at a quiet liquor store along the highway and gets out. Because Bruce is careful to tell us that Jimmy left the motor running, we tense up. Whatever’s about to happen, we know it requires a fast getaway.
 
@@ -88,9 +84,7 @@ But here comes the curveball.
 *I didn’t answer, I just stood there*  
 *Then I turned around and went*
 
-Jimmy walks into the liquor store with every intention of robbing it. Something stops him, though. Perhaps it’s the decency of the proprietor; maybe it’s the voice of his former boss in his head: . Or maybe he simply recognized who he was becoming.
-
-*all you had to do was ask*
+Jimmy walks into the liquor store with every intention of robbing it. Something stops him, though. Perhaps it’s the decency of the proprietor; maybe it’s the voice of his former boss in his head: *all you had to do was ask*. Or maybe he simply recognized who he was becoming.
 
 Whatever the reason, Jimmy turns away from temptation and returns home.
 
@@ -120,13 +114,9 @@ It’s an unsettling ending, one that sticks with us much longer than the resolu
 
 We’ll take a listen to that one in a few days.
 
-April 24, 1983
-(2025)
-
-**Richfield Whistle**
-**Recorded:**<br>
-
-**Released:** *L.A. Garage Sessions ’83* <br>
+**Richfield Whistle  
+**Recorded:** April 24, 1983<br>
+**Released:** *L.A. Garage Sessions ’83* (2025)<br>
 **Never performed**
 
 © December 1, 2022

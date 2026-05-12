@@ -1,40 +1,26 @@
-
-
-The father comes to be near his son. He digs through the smoking steel with a small Army pick and shovel. ”Where are you, boy?” he asks. It has been the same routine for months.
-
-
-
-— Charlie Leduff, “Still Digging for Lost Sons After a Million Tons of Pain,” *New York Times*, January 8, 2002
+> The father comes to be near his son. He digs through the smoking steel with a small Army pick and shovel. ”Where are you, boy?” he asks. It has been the same routine for months.
+> 
+> 
+> 
+> — Charlie Leduff, “Still Digging for Lost Sons After a Million Tons of Pain,” *New York Times*, January 8, 2002
 
 In the aftermath of September 11th, 2001, a community of retired police officers and firefighters spent months on end searching for their friends and family in the rubble of the World Trade Center.
 
 Because they’d spent their careers as first responders, they were afforded the privilege of being the ones to discover the remains of their sons and daughters.
 
-For months, they breathed the ash and smoke and sifted through the smoldering debris, hoping to find some semblance of closure, if not peace. “They say the worst thing in life is having to bury a child,” wrote reporter Charlie Leduff. “Worse, the fathers of ground zero say, is not being able to find that child.”
+For months, they breathed the ash and smoke and sifted through the smoldering debris, hoping to find some semblance of closure, if not peace. “They say the worst thing in life is having to bury a child,” wrote *New York Times* reporter Charlie Leduff. “Worse, the fathers of ground zero say, is not being able to find that child.”
 
-*New York Times*
+Bruce Springsteen undoubtedly read that story, or some of the many others just like it, and he wrote a song about it for his upcoming album *The Rising*.
 
-Bruce Springsteen undoubtedly read that story, or some of the many others just like it, and he wrote a song about it for his upcoming album .
+“Down in the Hole” never made the album, though, because it was too thematically similar to another track he’d written and recorded. “Sometimes you end up with a choice between two things that you like a lot,” Bruce told *Rolling Stone* interviewer Andy Greene, “and I think I had maybe that and ‘[Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/).’ *The Rising* had fifteen songs on it and it felt long enough.”
 
-*The Rising*
+So “Down in the Hole” became one of only two known outtakes from *The Rising,* unknown and unreferenced until Bruce released it without fanfare on his 2014 studio album, *High Hopes*. “That's basically as it was written and mixed at that time by Brendan [O’Brien].” Bruce explained to Greene. “That's sort of very original.”
 
-“Down in the Hole” never made the album, though, because it was too thematically similar to another track he’d written and recorded. “Sometimes you end up with a choice between two things that you like a lot,” Bruce told interviewer Andy Greene, “and I think I had maybe that and ‘.’ had fifteen songs on it and it felt long enough.”
+Original indeed. Other than the addition of some 2013 overdubs, what we hear on the *High Hopes* track is essentially the original 2002 recording, right down to the spectral backing vocals by the entire Springsteen family, including twelve-year-old Evan, eleven-year-old Jessica, and eight-year old Sam.
 
-*Rolling Stone* [Empty Sky](https://estreetshuffle.com/index.php/2022/09/12/roll-of-the-dice-empty-sky/)*The Rising*
+[Watch on Youtube: Down in the Hole](https://www.youtube.com/watch?v=eAS1zdocVwI)
 
-So “Down in the Hole” became one of only two known outtakes from unknown and unreferenced until Bruce released it without fanfare on his 2014 studio album, . “That’s basically as it was written and mixed at that time by Brendan [O’Brien].” Bruce explained to Greene. “That’s sort of very original.”
-
-*The Rising,* *High Hopes*
-
-Original indeed. Other than the addition of some 2013 overdubs, what we hear on the track is essentially the original 2002 recording, right down to the spectral backing vocals by the entire Springsteen family, including twelve-year-old Evan, eleven-year-old Jessica, and eight-year old Sam.
-
-*High Hopes*
-
-[https://www.youtube.com/embed/eAS1zdocVwI?feature=oembed](https://www.youtube.com/embed/eAS1zdocVwI?feature=oembed)
-
-It’s understandable why Bruce decided only one of “Empty Sky” or “Down in the Hole” should appear on . It’s debatable whether he chose the right song. Both are poignant and powerful (we’ll examine “Empty Sky” sometime in the next year), but “Down in the Hole” is downright brutal.
-
-*The Rising*
+It’s understandable why Bruce decided only one of “Empty Sky” or “Down in the Hole” should appear on *The Rising*. It’s debatable whether he chose the right song. Both are poignant and powerful (we’ll examine “Empty Sky” sometime in the next year), but “Down in the Hole” is downright brutal.
 
 Once Max Weinberg’s drums enter in the second verse, the song’s musical skeleton is reminiscent of “I’m on Fire,” but it rides on top of an urban soundscape of simulated heavy machinery and a rural, almost bluegrass-inflected banjo. It’s disorienting and unsettling, intentionally so.
 
@@ -77,15 +63,9 @@ Regardless of the reason, it’s effective–it keeps us at a distance and then 
 *Fires keep on burning, I’m here with you in the cold*  
 *Down in the hole*
 
-2002, 2013
-(2014)
-
-**Down in the Hole**
-**Recorded:**<br>
-
-**Released:***High Hopes* <br>
+**Down in the Hole  
+**Recorded:** 2002, 2013<br>
+**Released:** *High Hopes* (2014)<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

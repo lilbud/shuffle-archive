@@ -1,30 +1,20 @@
-
-
 Bruce wrote, recorded, and released (eventually) two songs that share virtually the same title, and almost every scholarly Springsteen resource I’ve seen states that there’s no relationship between the two.
 
 But I don’t believe that.
 
 An attentive listen reveals that the two songs are linked by far more than their title–they also have the same narrator and serve as prequel/sequel.
 
-The later song is the better known of the two: “” was recorded in 1995 and explores the plight of returning Vietnam vets; we’ll delve into it someday when the dice direct me to write about it. Bruce performed it regularly during his Ghost of Tom Joad solo acoustic tour.
+The later song is the better known of the two: “[Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)” was recorded in 1995 and explores the plight of returning Vietnam vets; we’ll delve into it someday when the dice direct me to write about it. Bruce performed it regularly during his Ghost of Tom Joad solo acoustic tour.
 
-[Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)
+The earlier song is considerably more obscure. Although both were released on Bruce’s 1998 *Tracks* compilation years after they were originally recorded, “Brothers Under the Bridges” (note the plural), unlike its younger sibling, has never been performed live.
 
-The earlier song is considerably more obscure. Although both were released on Bruce’s 1998 compilation years after they were originally recorded, “Brothers Under the Bridges” (note the plural), unlike its younger sibling, has never been performed live.
-
-*Tracks*
-
-Recorded during the sessions, “Brothers Under the Bridges” features the E Street Band at the height of their powers, with a particularly strong sax solo from Clarence Clemons. (Oh, how I wish he’d had a chance to play it live.) It also bears more than a passing resemblance to another track, which may explain why it was left off the album.
-
-*Born in the U.S.A.* *Born in the U.S.A.*
+Recorded during the *Born in the U.S.A.* sessions, “Brothers Under the Bridges” features the E Street Band at the height of their powers, with a particularly strong sax solo from Clarence Clemons. (Oh, how I wish he’d had a chance to play it live.) It also bears more than a passing resemblance to another *Born in the U.S.A.* track, which may explain why it was left off the album.
 
 Let’s take a listen:
 
-[https://www.youtube.com/embed/dthkGZiL1gA?feature=oembed](https://www.youtube.com/embed/dthkGZiL1gA?feature=oembed)
+[Watch on Youtube: Brothers Under The Bridges ('83) (Studio Outtake - 1983)](https://www.youtube.com/watch?v=dthkGZiL1gA)
 
-You probably heard echoes of “” in the “li li li” chorus, and the lyrics have the same wistful yearning of youth for independence. That’s probably not an accident. “Brothers Under the Bridges” was recorded between mid-September and early October of 1983; “No Surrender” was recorded just before Halloween.
-
-[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
+You probably heard echoes of “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)” in the “li li li” chorus, and the lyrics have the same wistful yearning of youth for independence. That’s probably not an accident. “Brothers Under the Bridges” was recorded between mid-September and early October of 1983; “No Surrender” was recorded just before Halloween.
 
 Some have speculated that “Brothers Under the Bridges” should be considered an early prototype of “No Surrender,” but I don’t subscribe to that theory. Bruce has often worked on similar songs in parallel–sometimes instead of choosing between two paths for a song, he chooses both. I think this is one of those instances. Still, it wouldn’t have made sense to put both songs on the album, and it’s hard to argue that Bruce didn’t make the right choice.
 
@@ -64,9 +54,7 @@ If our young hero can’t join the brotherhood, though, he’ll at least watch t
 
 Again, Bruce’s lyrics feature some very nice, subtle detail–this is Bruce at peak songwriting skill. Every line in that bridge rubs salt in the wound–the ignominy of having to hitch a ride because he’s too young to drive; hiding in the tall grass (implying the narrator is small by comparison); having to sneak in to his house because he was out after curfew.
 
-And as Bruce and his brother share their dreams with the night, Clarence paints a scene of tantalizing freedom within arm’s reach, as only Clarence could. But as the E Street Band explodes into the final verse, though, we learn that while adulthood may bring freedom, it may come at a cost.
-
-*almost*
+And as Bruce and his brother share their dreams with the night, Clarence paints a scene of tantalizing freedom *almost* within arm’s reach, as only Clarence could. But as the E Street Band explodes into the final verse, though, we learn that while adulthood may bring freedom, it may come at a cost.
 
 Bruce is careful–so careful–in the final verse to foreshadow the future without outright defining it. In fact, it’s quite likely that we’ve already time-traveled: this narrator sounds older and more thoughtful than the one we’ve been listening to.
 
@@ -84,16 +72,11 @@ This older (wiser?) narrator is still by the highway, but it’s no longer the c
 
 The last line of the song implies that our hero has finally joined the brotherhood–and he’s beginning to suspect that the secrets they share are not as romantic as his younger self imagined. In a dozen years, Bruce would revisit our young hero and his brotherhood and show us just how prescient that last verse was.
 
-**To be continued in Roll of the Dice:** [Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)
+**To be continued in Roll of the Dice: [Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)**
 
-September 14 – October 10, 1983
-(1998)
-
-**Brothers Under the Bridges**
-**Recorded:**<br>
-
-**Released:***Tracks* (1998)<br>
+**Brothers Under the Bridges  
+**Recorded:** September 14 – October 10, 1983<br>
+**Released:** *Tracks* (1998)<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

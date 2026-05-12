@@ -36,7 +36,7 @@ Some surprises were poignant, like the full band premiere (sort of, anyway: Bruc
 
 [https://www.youtube.com/embed/lxumJ3w2EWE?feature=oembed](https://www.youtube.com/embed/lxumJ3w2EWE?feature=oembed)
 
-…and some were intimate: Bruce’s almost-final encore of “” was quiet, soulful, and a genuine love note to E Street Nation… right up to the surprise pay-off, a perfect segue into “.”[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)  
+…and some were intimate: Bruce’s almost-final encore of “” was quiet, soulful, and a genuine love note to E Street Nation… right up to the surprise pay-off, a perfect segue into “.”[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
 
 [https://www.youtube.com/embed/2i9bNACWIE0?feature=oembed](https://www.youtube.com/embed/2i9bNACWIE0?feature=oembed)

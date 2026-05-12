@@ -1,76 +1,49 @@
+> “I remember thinkin’, well I’m a guy. I know how to do one thing. What would happen if you’ve done something for thirty years… What would I say to my kids if I came home at night and I couldn’t feed them, or if they were hurting? I couldn’t help them. I couldn’t make them safe or ensure their health… It strikes to such a central part of who you are.” *–Bruce Springsteen, 1995*
 
-
-“I remember thinkin’, well I’m a guy. I know how to do one thing. What would happen if you’ve done something for thirty years… What would I say to my kids if I came home at night and I couldn’t feed them, or if they were hurting? I couldn’t help them. I couldn’t make them safe or ensure their health… It strikes to such a central part of who you are.” *–Bruce Springsteen, 1995*
-
-In 1982, city editor Bill Moore walked into a bar and met an elderly homeless man. Over a drink, the man told Moore stories of itinerants riding the rails from town to town, searching for work, food, and shelter.
-
-*Sacramento Bee*
+In 1982, *Sacramento Bee* city editor Bill Moore walked into a bar and met an elderly homeless man. Over a drink, the man told Moore stories of itinerants riding the rails from town to town, searching for work, food, and shelter.
 
 This wasn’t Depression-era reminiscing, however. It was happening right then, fifty years post-Depression. These vagabonds were formerly middle-class citizens falling through new and widening cracks in the American safety net. Unable to find work in their hometowns or steady work anywhere, parents were forced to leave their families behind and wander the country in search of employment, and the public was oblivious to it.
 
 Moore was gobsmacked by the man’s stories. His newsman’s nose smelled a story. When he got back to the newspaper, he assigned a young reporter named Dale Maharidge to the story. Maharidge was only 26 at the time, but he’d been working newsrooms since he was a teen. He knew the best way to find a story was to immerse himself in it, so he and photographer Michael Williamson spent a week travelling California by train, collecting stories from the vagabonds he met along the way.
 
-“Within the first 24 hours, we knew it was a big story,” Williamson told columnist Bob Greene in a 1985 interview. “We were wondering if we would be able to find any hobos riding the trains around the country in the 80s. On the first train we hopped onto, there were twenty-five hobos. This was two and a half miles from our office, and we hadn’t even realized it was there.”
-
-*Chicago Tribune*
+“Within the first 24 hours, we knew it was a big story,” Williamson told *Chicago Tribune* columnist Bob Greene in a 1985 interview. “We were wondering if we would be able to find any hobos riding the trains around the country in the 80s. On the first train we hopped onto, there were twenty-five hobos. This was two and a half miles from our office, and we hadn’t even realized it was there.”
 
 Maharidge and Williamson quickly realized a week wasn’t long enough. They knew they had only scratched the surface, so they asked the newspaper for a leave of absence in order to do the story justice. They decided to write a book, and although their publisher warned them it would almost certainly not have any commercial potential, the pair spent six of the next twenty-four months riding the American railways.
 
 “We realized early on that maybe we had been stupid,” said Williamson. “There the two of us were, living in these freight cars in the middle of the country, and there were a lot of thoughts of the office and of home. Things were much more comfortable back there. But we knew that this was what we had gone into journalism for in the first place: to go out and see something that we hadn’t seen before.”
 
-Maharidge and Williamson titled their book , knowing full well that neither their title nor subject matter was likely to attract many readers. “We would think: no one is going to want to read about this,” recalled Williamson. “It’s too depressing. It’s not what people will willingly read.”
+Maharidge and Williamson titled their book *Journey to Nowhere*, knowing full well that neither their title nor subject matter was likely to attract many readers. “We would think: no one is going to want to read about this,” recalled Williamson. “It’s too depressing. It’s not what people will willingly read.”
 
-*Journey to Nowhere*
+The pair persisted, believing in the importance of both their story and their approach. **“**I did something that was very rare in America now,” Maharidge said in a 2011 *Democracy Now!* interview. “I listened. I like listening to people's stories. And when you listen, and you really care, which I do… you can't fake that. And that's what I try to do in the book: I try to show America to Americans, because we've got to start a conversation now about what kind of country we want to be, because it's not going well.”
 
-The pair persisted, believing in the importance of both their story and their approach. I did something that was very rare in America now,” Maharidge said in a 2011 interview. “I listened. I like listening to people’s stories. And when you listen, and you really care, which I do… you can’t fake that. And that’s what I try to do in the book: I try to show America to Americans, because we’ve got to start a conversation now about what kind of country we want to be, because it’s not going well.”
+[Watch on Youtube: 1985-publication of Journey to Nowhere](https://www.youtube.com/watch?v=iPVW89AtCAo)
 
-**“***Democracy Now!*
+Their instincts proved correct on all counts: when it was published, *Journey to Nowhere* marked the beginning of America’s awareness of its emerging underclass and garnered rave reviews. It also bombed commercially, selling only around ten thousand copies in total.
 
-[https://www.youtube.com/embed/iPVW89AtCAo?feature=oembed](https://www.youtube.com/embed/iPVW89AtCAo?feature=oembed)
-
-Their instincts proved correct on all counts: when it was published, marked the beginning of America’s awareness of its emerging underclass and garnered rave reviews. It also bombed commercially, selling only around ten thousand copies in total.
-
-*Journey to Nowhere*
-
-“It didn’t change the world the way we thought it would,” Maharidge told the in 1996. “We were naïve, but at the time it was very sobering.”
-
-*The Hartford Courant*
+“It didn’t change the world the way we thought it would,” Maharidge told the *The Hartford Courant* in 1996. “We were naïve, but at the time it was very sobering.”
 
 But sometimes it doesn’t matter how many books you sell–as long as a copy finds its way into the collection of just one right person.
-
-“I’ve been telling students for five years now that you never know how your work will affect people, how you might change someone else’s life. Now I can point to this experience with Bruce and show that it’s true” — *Dale Maharidge, The Modesto Bee, December 10, 1995*
+> “I’ve been telling students for five years now that you never know how your work will affect people, how you might change someone else’s life. Now I can point to this experience with Bruce and show that it’s true” — *Dale Maharidge, The Modesto Bee, December 10, 1995*
 
 In October 1995, Maharidge checked his answering machine and found his attention arrested by a caller claiming to represent Bruce Springsteen, asking if he would be interested in licensing the rights to part of his book to the New Jersey singer-songwriter.
 
 Maharidge was stunned. “The first thing I asked Bruce was: ‘How did you find the book?’ He said, ‘I bought it when it came out in the store.'”
 
-He may have been one of the book’s original 10,000 purchasers, but collected dust on Springsteen’s bookshelf for a full decade before he finally cracked it open. And then one sleepless night in 1995, Springsteen pulled it off the shelf and started to read.
+He may have been one of the book’s original 10,000 purchasers, but *Journey to Nowhere* collected dust on Springsteen’s bookshelf for a full decade before he finally cracked it open. And then one sleepless night in 1995, Springsteen pulled it off the shelf and started to read.
 
-*Journey to Nowhere*
+“I had completed most of the [[*Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)] record,” Bruce recalled in the introduction he would end up writing for the book’s second edition, “when one night, unable to sleep, I pulled this book down off my living room shelf. I read it in one sitting and lay awake that night disturbed by its power and frightened by its implication.”
 
-“I had completed most of the [] record,” Bruce recalled in the introduction he would end up writing for the book’s second edition, “when one night, unable to sleep, I pulled this book down off my living room shelf. I read it in one sitting and lay awake that night disturbed by its power and frightened by its implication.”
+[Watch on Youtube: BRUCE SPRINGSTEEN--RAW INTERVIEW FOOTAGE](https://www.youtube.com/watch?v=HN6z96fJq44)
 
-[](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*Ghost of Tom Joad*
+Within a week, Springsteen had written two new songs based on the stories told in *Journey to Nowhere,* and he wanted them on the album he thought was otherwise complete. Both songs drew heavily from Marharidge’s text, however, and Bruce felt he needed the author’s permission before releasing them.
 
-[https://www.youtube.com/embed/HN6z96fJq44?start=1&amp;feature=oembed](https://www.youtube.com/embed/HN6z96fJq44?start=1&amp;feature=oembed)
+Maharidge wasn’t comfortable selling. “You can’t copyright inspiration,” he told *The Modesto Bee*, “and the book inspired him. I’m flattered that it had that impact on him. That alone was enough of a thrill to me. If he wanted to take the words from the book verbatim and slap them into his songs, I would have said, ‘fine.'”
 
-Within a week, Springsteen had written two new songs based on the stories told in and he wanted them on the album he thought was otherwise complete. Both songs drew heavily from Marharidge’s text, however, and Bruce felt he needed the author’s permission before releasing them.
+With the author’s permission, Bruce added the two songs to his now-complete album. “[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)” chronicles the dangers faced by the homeless roaming the country by rail, drawing heavily from profiles in the book. It’s a quiet, harrowing song–even by the album’s sober standards–and it remains the least performed track from the album to this day.
 
-*Journey to Nowhere,*
+The second song went on to become the album’s most popular song besides its title track, and along with “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/),” it’s one of the album’s only two tracks to be performed in both contemplative acoustic and ferocious rock arrangements.
 
-Maharidge wasn’t comfortable selling. “You can’t copyright inspiration,” he told , “and the book inspired him. I’m flattered that it had that impact on him. That alone was enough of a thrill to me. If he wanted to take the words from the book verbatim and slap them into his songs, I would have said, ‘fine.'”
-
-*The Modesto Bee*
-
-With the author’s permission, Bruce added the two songs to his now-complete album. “” chronicles the dangers faced by the homeless roaming the country by rail, drawing heavily from profiles in the book. It’s a quiet, harrowing song–even by the album’s sober standards–and it remains the least performed track from the album to this day.
-
-[The New Timer](https://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)
-
-The second song went on to become the album’s most popular song besides its title track, and along with “,” it’s one of the album’s only two tracks to be performed in both contemplative acoustic and ferocious rock arrangements.
-
-[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
-
-[https://www.youtube.com/embed/p-zs4lohmYc?feature=oembed](https://www.youtube.com/embed/p-zs4lohmYc?feature=oembed)
+[Watch on Youtube: Youngstown](https://www.youtube.com/watch?v=p-zs4lohmYc)
 
 “Youngstown” is based on the story of Joe Marshall, a World War II veteran that Maharidge and Williamson met and interviewed during their two-year odyssey, and his son who followed in his footsteps in Vietnam. Wounded in battle in Normandy, the elder Marshall returned to his Ohio home and found work at the Ohio Steel Works.
 
@@ -89,13 +62,9 @@ When the war ended, demand for steel only grew. Bridges, buildings, ships, and c
 
 Although we’re accustomed to glossing over female names in Springsteen’s songs–they rarely seem to hold significance–in the case of “Youngstown,” it’s essential to understand why his narrator sings to Jenny.
 
-Bruce lifted Jenny directly from , but she’s not Marshall’s wife, girlfriend or daughter. In fact, she’s not even a person at all.
+Bruce lifted Jenny directly from *Journey to Nowhere*, but she’s not Marshall’s wife, girlfriend or daughter. In fact, she’s not even a person at all.
 
-*Journey to Nowhere*
-
-
-
-![](https://i0.wp.com/sweetjennylandcompany.com/images/jeanette%20furnace%201.jpg?w=758)
+![](https://sweetjennylandcompany.com/images/jeanette%20furnace%201.jpg)
 
 Jeanette was the name of the $3,000,000 (in 1918 dollars) blast furnace at the Youngstown Sheet and Tube Company. Named after Mary Jeannette Thomas, daughter of Briar Hill Steel’s president, the furnace was 90 feet tall and weighed 500 tons. Before it was decommissioned in 1977, it produced more than eleven million tons of steel. It provided and sustained the livelihood of thousands of workers, until it didn’t.
 
@@ -103,9 +72,9 @@ When we realize that Bruce’s narrator is singing to a blast furnace rather tha
 
 The Jenny furnace was demolished on January 29, 1997. Bruce got to see it in person shortly before its demise, although not by official invitation. On January 12, 1996, Bruce brought his solo acoustic tour to Youngstown itself, and he invited Maharidge to the show.
 
-[https://www.youtube.com/embed/Smddcs5n0H0?feature=oembed](https://www.youtube.com/embed/Smddcs5n0H0?feature=oembed)
+[Watch on Youtube: Bruce Springsteen: YOUNGSTOWN (live in Youngstown!)](https://www.youtube.com/watch?v=Smddcs5n0H0)
 
-Bruce told Dale he really wanted to see Jenny with his own eyes, but Maharidge wasn’t sure that was wise. “I said, ‘Look, Cargill owns it. They’re arresting everybody.’ I knew somebody who was arrested a month before, sneaking in. He said, ‘Let’s go.’ So we snuck into the Jenny blast furnace, spent an hour and a half in there talking about politics and life. And we made it out without getting arrested.”
+Bruce told Dale he really wanted to see Jenny with his own eyes, but Maharidge wasn’t sure that was wise. “I said, ‘Look, Cargill owns it. They're arresting everybody.’ I knew somebody who was arrested a month before, sneaking in. He said, ‘Let's go.’ So we snuck into the Jenny blast furnace, spent an hour and a half in there talking about politics and life. And we made it out without getting arrested.”
 
 *Well my daddy worked the furnaces, kept ’em hotter than hell*  
 *I come home from ‘Nam worked my way to scarfer, a job that’d suit the devil as well*  
@@ -116,7 +85,7 @@ Bruce told Dale he really wanted to see Jenny with his own eyes, but Maharidge w
 
 In his song, the son is a scarfer. If you’re unfamiliar with the job, let’s just say Bruce doesn’t exaggerate much when he described it as a job that would suit the devil. Scarfers remove defects and imperfections from slabs of steel using an oxyacetylene torch. It’s fiery, dangerous work.
 
-[https://www.youtube.com/embed/y1wdxWNuJus?feature=oembed](https://www.youtube.com/embed/y1wdxWNuJus?feature=oembed)
+[Watch on Youtube: Scarfer](https://www.youtube.com/watch?v=y1wdxWNuJus)
 
 Although Youngstown steel found its way into all sorts of products and places, it was particularly in demand for military vehicles, arms, and ammunition. When the Vietnam war finally ended, demand softened and foreign competition increased. Unable to withstand the economic headwinds, thousands of Youngstown steelworkers were laid off when the Campbell Steel Works closed on September 19, 1977, a day that became known locally as Black Monday. The Jenny blast furnace was permanently decommissioned that year, too.
 
@@ -127,7 +96,7 @@ The Ohio Works finally closed in 1980, and both Marshalls found themselves unemp
 *Yeah these mills they built the tanks and bombs that won this country’s wars*  
 *We sent our sons to Korea and Vietnam, now we’re wondering what they were dying for*
 
-[https://videopress.com/embed/I1OlqUWC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/I1OlqUWC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/I1OlqUWC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 Black Monday kicked off a five-year period of economic devastation, with approximately 50,000 jobs vanishing into thin air. At the peak of the steel industry, 150,000 people lived in Youngstown. Today, it’s barely 60,000.
 
@@ -158,60 +127,38 @@ When he dies, he tells us, let him go to hell. It can’t be any hotter then his
 ---
 
 
-Bruce met Maharidge and Williamson for the first time at Neil and Pegi Young’s Bridge School Benefit concert in October 1995, shortly before the release of Springsteen invited the two men to the show and asked them to meet him backstage afterward. Greeting them with a giant hug, Bruce invited them into his dressing room, where Bruce gushed effusively about 
+Bruce met Maharidge and Williamson for the first time at Neil and Pegi Young’s Bridge School Benefit concert in October 1995, shortly before the release of *The Ghost of Tom Joad.* Springsteen invited the two men to the show and asked them to meet him backstage afterward. Greeting them with a giant hug, Bruce invited them into his dressing room, where Bruce gushed effusively about *Journey to Nowhere.*
 
-*The Ghost of Tom Joad.**Journey to Nowhere.*
+![](https://estreetshuffle.com/wp-content/uploads/2023/05/Capture.png)
 
-
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/05/Capture.png?resize=758%2C458&amp;ssl=1)
-
-“He told us he wanted to do what he could to get the book back in print,” Maharidge told the He told Bruce that if he were so inclined to write an introduction for the new edition, they could put his name on the cover. That might prompt more people to pick up the book. Bruce agreed right away; days later, Marharidge secured a publisher for a second edition.
-
-*Bee.*
-
-
+“He told us he wanted to do what he could to get the book back in print,” Maharidge told the *Bee.* He told Bruce that if he were so inclined to write an introduction for the new edition, they could put his name on the cover. That might prompt more people to pick up the book. Bruce agreed right away; days later, Marharidge secured a publisher for a second edition.
 
 ![Journey to Nowhere: The Saga of the New Underclass: Maharidge, Dale, Williamson, Michael, Springsteen, Bruce: 9780786882045: Amazon.com: Books](https://m.media-amazon.com/images/I/A1qKfEa0u-L._AC_UF1000,1000_QL80_.jpg)
 
-The book was re-published in the spring of 1996, when Bruce was in the middle of his marathon, worldwide solo acoustic tour. He’d been performing “Youngstown” at every stop, doing his best through lengthy introductory comments to draw attention to the book and the people who inspired him. He even performed the song on , an unusual song selection for a late night television appearance.
+The book was re-published in the spring of 1996, when Bruce was in the middle of his marathon, worldwide solo acoustic tour. He’d been performing “Youngstown” at every stop, doing his best through lengthy introductory comments to draw attention to the book and the people who inspired him. He even performed the song on *The Late Show with David Letterman*, an unusual song selection for a late night television appearance.
 
-*The Late Show with David Letterman*
+[Watch on Youtube: Youngstown - Bruce Springsteen (live on the Late Show with David Letterman 1995)](https://www.youtube.com/watch?v=InaLZEgy9r4)
 
-[https://www.youtube.com/embed/InaLZEgy9r4?feature=oembed](https://www.youtube.com/embed/InaLZEgy9r4?feature=oembed)
-
-When the E Street Band reunited a few years later, “Youngstown” became the only song from to be performed every single night of the Reunion Tour as the first song of a five-pack that contained the heart of Bruce’s nightly message.
-
-*The Ghost of Tom Joad*
+When the E Street Band reunited a few years later, “Youngstown” became the only song from *The Ghost of Tom Joad* to be performed every single night of the Reunion Tour as the first song of a five-pack that contained the heart of Bruce’s nightly message.
 
 If the original album version is defeated and tragic, this new arrangement of “Youngstown” was fierce and defiant–angry, even. It also featured a scorching Nils Lofgren solo that brought the audience to its feet nightly.
 
-[https://www.youtube.com/embed/w038TQyWRN8?feature=oembed](https://www.youtube.com/embed/w038TQyWRN8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Youngstown (Live in New York City)](https://www.youtube.com/watch?v=w038TQyWRN8)
 
 As for the Marshalls, after the steelworks closed, Marshall Jr. struggled for years. Forced to live with his parents again, he kept his industrial license continually renewed at his father’s urging. “My dad told me right after the mill shut down, ‘Joe, keep the license up. You never know.'” Marshall told Maharidge in 2020. “I said ‘Screw it, I’ll never be an engineer again.’ But he said ‘Never say never.’ And he was right.”
 
 Joe was 67 then and working as a stationary engineer in Columbus, after years of serving as a corrections officer. Like many of his neighbors and colleagues, the formerly dyed-in-the-wool Democrat had become a Trump supporter.
 
-Springsteen told author Brian Hiatt he wasn’t surprised. “I believe there’s a price being paid for not addressing the real cost of the deindustrialization and globalization that has occurred in the United States for the past thirty-five, forty years,” Bruce says in “and how it’s deeply affected people’s lives and deeply hurt people to where they want someone who says they have a solution.”
-
-*Stories Behind the Songs,*
+Springsteen told author Brian Hiatt he wasn’t surprised. “I believe there’s a price being paid for not addressing the real cost of the deindustrialization and globalization that has occurred in the United States for the past thirty-five, forty years,” Bruce says in *Stories Behind the Songs,* “and how it’s deeply affected people’s lives and deeply hurt people to where they want someone who says they have a solution.”
 
 But when Maharidge asked Marshall if he’d ever consider returning to the Democratic Party if they were able to deliver good jobs for the Ohio working class, Marshall quickly and repeatedly answered, “Sure.”
 
 Joe Marshall Jr. passed away a year later. Youngstown still waits for those jobs.
 
-June 16, 1995
-(1995)
-November 21, 1995 (New Brunswick, NJ)
-February 25, 2017 (Auckland, New Zealand)
-
 **Youngstown**
-**Recorded:**<br>
+**Recorded:** June 16, 1995<br>
+**Released:** *The Ghost of Tom Joad* (1995)<br>
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** February 25, 2017 (Auckland, New Zealand)
 
-**Released:***The Ghost of Tom Joad* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

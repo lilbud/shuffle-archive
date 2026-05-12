@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8CxaXbCEYzE)
 
-**1988**: Bruce and the E Street Band play their second of two nights at Stadio Flaminio in Rome. “The River” makes its tour debut, as the Tunnel of Love Tour set lists begin morphing away from the album.
+**1988:** Bruce and the E Street Band play their second of two nights at Stadio Flaminio in Rome. “The River” makes its tour debut, as the Tunnel of Love Tour set lists begin morphing away from the album.
 
 [Watch Video Highlight](https://videopress.com/embed/Ec4vKeYf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 

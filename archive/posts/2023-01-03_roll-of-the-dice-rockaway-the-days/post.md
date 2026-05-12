@@ -1,30 +1,18 @@
-
-
-There’s a strange but genuine tradition in rock and pop music: the .
-
-[car crash song](https://en.wikipedia.org/wiki/List_of_car_crash_songs)
+There’s a strange but genuine tradition in rock and pop music: the [car crash song](https://en.wikipedia.org/wiki/List_of_car_crash_songs).
 
 Its emergence and ascendance roughly paralleled the actual automotive fatality rate as it rose throughout the early decades of rock and roll, but it continues to this day despite safer vehicles and roads.
 
 Bruce Springsteen has made several contributions to this macabre genre, not all of which have yet seen the light of day.
 
-Fittingly, Bruce’s first entry was “” a hat tip to what was perhaps the original car crash song, Roy Acuff’s 1942 song by the same name. (“Thunder Road” gets honorable mention for its title homage to Robert Mitchum’s 1957 car crash single, a choice that makes me question whether Bruce’s narrator was truly pulling out of there to win, but that’s a topic for a future article.)
+Fittingly, Bruce’s first entry was “[Wreck on the Highway,](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)” a hat tip to what was perhaps the original car crash song, Roy Acuff’s 1942 song by the same name. (“Thunder Road” gets honorable mention for its title homage to Robert Mitchum’s 1957 car crash single, a choice that makes me question whether Bruce’s narrator was truly pulling out of there to win, but that’s a topic for a future *Roll of the Dice* article.)
 
-[Wreck on the Highway,](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)*Roll of the Dice*
+But in the *Nebraska/Born in the U.S.A.* era, Bruce seemed particularly fixated on the idea of a fatal car accident while on the run from the law–a counter-metaphor to the way he’d always used the open road to symbolize escape and potential.
 
-But in the era, Bruce seemed particularly fixated on the idea of a fatal car accident while on the run from the law–a counter-metaphor to the way he’d always used the open road to symbolize escape and potential.
+A couple of months ago, we took a look at Bruce’s unreleased *Nebraska* outtake, “[Losin’ Kind,](https://estreetshuffle.com/index.php/2021/01/15/roll-of-the-dice-losin-kind/)” which itself was sort of an early attempt at “[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/),” so remarkably similar are the two songs. “Losin’ Kind” also bears a lot of similarity to “Highway Patrolman”; Bruce’s themes were so strong and fluid during that particular era that entire scenes, characters, metaphors and morals make their way across many of his songs, both released and unreleased.
 
-*Nebraska/Born in the U.S.A.*
+But while “Highway Patrolman” allows Frankie to escape unscathed and “Losin’ Kind” spares its narrator after a *very* close call, Bruce gives no mercy to Billy, the main character in his 1984 *Born in the U.S.A.* outtake, “Rockaway the Days.”
 
-A couple of months ago, we took a look at Bruce’s unreleased outtake, “” which itself was sort of an early attempt at “,” so remarkably similar are the two songs. “Losin’ Kind” also bears a lot of similarity to “Highway Patrolman”; Bruce’s themes were so strong and fluid during that particular era that entire scenes, characters, metaphors and morals make their way across many of his songs, both released and unreleased.
-
-*Nebraska*[Losin’ Kind,](https://estreetshuffle.com/index.php/2021/01/15/roll-of-the-dice-losin-kind/)[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/)
-
-But while “Highway Patrolman” allows Frankie to escape unscathed and “Losin’ Kind” spares its narrator after a close call, Bruce gives no mercy to Billy, the main character in his 1984 outtake, “Rockaway the Days.”
-
-*very* *Born in the U.S.A.*
-
-[https://www.youtube.com/embed/eu5sSFAC5-U?feature=oembed](https://www.youtube.com/embed/eu5sSFAC5-U?feature=oembed)
+[Watch on Youtube: Rockaway The Days (Studio Outtake - 1984)](https://www.youtube.com/watch?v=eu5sSFAC5-U)
 
 “Rockaway the Days” features a lead character who is very much the losin’ kind, but Billy is a much darker character than Frank. We can see his fate coming right from the opening lines.
 
@@ -51,9 +39,7 @@ But if drugs can’t help him quell the best inside him, maybe love can:
 *Billy swore to Mary he’d always love her so*  
 *They were married in the valley where the river flows, alright*
 
-We know this isn’t going to end well, but it’s worth pausing here for a moment to allow Billy his fleeting comfort while we notice Bruce recycling one of his favorite character names and metaphors: Mary and the river. nto the significance of that particular metaphor, so I won’t rehash it here. But Bruce’s selection of Mary as the name of Billy’s love interest is almost certainly a deliberate attempt to call our attention to the river as a wellspring of hope and dreams.
-
-[We just took a deep dive i](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
+We know this isn’t going to end well, but it’s worth pausing here for a moment to allow Billy his fleeting comfort while we notice Bruce recycling one of his favorite character names and metaphors: Mary and the river. [We just took a deep dive i](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)nto the significance of that particular metaphor, so I won’t rehash it here. But Bruce’s selection of Mary as the name of Billy’s love interest is almost certainly a deliberate attempt to call our attention to the river as a wellspring of hope and dreams.
 
 Let’s continue, because Bruce is about to pick up the pace of the action.
 
@@ -62,14 +48,10 @@ Let’s continue, because Bruce is about to pick up the pace of the action.
 *With blood on his shirt, back to Mary he did run*  
 *She sighed, “Billy, oh Billy, what have you done?”*
 
-
-
 *He ran to his ma’s trailer but the lights were dim*  
 *He pounded on the door, she wouldn’t let him in*  
 *Up the road to a neighbor’s house he drew near*  
 *They said, “Billy go away, we don’t want no trouble ’round here”*
-
-
 
 *Billy stole a car and headed out on the road*  
 *Pocketful of pills and his brain on overload*  
@@ -93,11 +75,7 @@ Before we get to the tragic aftermath, though, take notice of another deliberate
 
 After Billy’s ma buries her son, Bruce reintroduces the “alright,” suggesting that there’s some measure of relief that comes with her tragedy. Her son’s troubles and circumstances had obviously been weighing on her psyche for some time. Still, that relief comes at the price of loss and heartbreak, which is why Bruce reintroduces the chorus at this point, as Billy’s mom asks for something to help ease her pain.
 
-Billy’s mom is our point-of-view character for the remainder of the song; it’s her voice we hear waxing philosophical in the final verse (with an opening couplet very similar to Bruce’s lyrics in “” — see what I mean about how fluid Bruce’s lyrics were back then?)
-
-[Man at the Top](https://estreetshuffle.com/index.php/2019/05/10/roll-of-the-dice-man-at-the-top/)
-
-
+Billy’s mom is our point-of-view character for the remainder of the song; it’s her voice we hear waxing philosophical in the final verse (with an opening couplet very similar to Bruce’s lyrics in “[Man at the Top](https://estreetshuffle.com/index.php/2019/05/10/roll-of-the-dice-man-at-the-top/)” — see what I mean about how fluid Bruce’s lyrics were back then?)
 
 *Well rich man want the power and the seat on the top*  
 *Poor man want the money that the rich man got*  
@@ -106,25 +84,15 @@ Billy’s mom is our point-of-view character for the remainder of the song; it�
 
 As we take our leave of our cast, Billy’s mom offers her daughter-in-law shelter and solace. What happens from here we never learn, but we hope they’re able to help each other rock away the days and nights until their mutual pain and loss subsides.
 
-Bruce has never performed “Rockaway the Days” live, but he half-played it once. At his legendary acoustic 1986 Bridge School benefit performance, Bruce played an acoustic version of “” that featured a completely different melody from the officially released version on less angry but more infectious with an irresistible riff.
+**Bonus:** Bruce has never performed “Rockaway the Days” live, but he *sort of* half-played it once. At his legendary acoustic 1986 Bridge School benefit performance, Bruce played an acoustic version of “[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)” that featured a completely different melody from the officially released version on *Live 1975-85,* less angry but more infectious with an irresistible riff.
 
-**Bonus:***sort of*[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)*Live 1975-85,*
+Bruce gave no explanation for the one-off arrangement, and he never played the song that way again. Only after Bruce’s 1984 recording of “Rockaway the Days” was released on *Tracks* in 1998 would the jigsaw pieces fall into in place.
 
-Bruce gave no explanation for the one-off arrangement, and he never played the song that way again. Only after Bruce’s 1984 recording of “Rockaway the Days” was released on in 1998 would the jigsaw pieces fall into in place.
+[Watch on Youtube: Seeds (Live at Shoreline Amphitheatre, Mountain View, CA - 10/13/86 - Official Audio)](https://www.youtube.com/watch?v=eCdCbD6iA7g)
 
-*Tracks*
-
-[https://www.youtube.com/embed/eCdCbD6iA7g?feature=oembed](https://www.youtube.com/embed/eCdCbD6iA7g?feature=oembed)
-
-January 12, 1984
-(1998)
-
-**Rockaway the Days**
-**Recorded:**<br>
-
-**Released:** *Tracks*<br>
+**Rockaway the Days  
+**Recorded:** January 12, 1984<br>
+**Released:** *Tracks* (1998)<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

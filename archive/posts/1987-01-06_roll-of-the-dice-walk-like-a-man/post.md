@@ -47,7 +47,7 @@ Each episode of the Daddy Trilogy builds in power and culminates in a killer cou
 
 **Independence Day:** *Papa, now I know the things you wanted that you could not say; I swear I never meant to take those things away.*
 
-and finally, **Walk Like a Man**: *I was young and I didn't know what to do when I saw your best steps stolen away from you.*
+and finally, **Walk Like a Man:** *I was young and I didn't know what to do when I saw your best steps stolen away from you.*
 
 When we first start to realize that our parents have their own lives and their own dreams–both realized and unattained–it's a frightening and bewildering awakening, particularly if our parents haven't fully come to terms with their choices and sacrifices yet. We sense their anguish and frustration–their search for "something to blame," and we internalize it. We feel guilt, even though we "never meant to take those things away."
 

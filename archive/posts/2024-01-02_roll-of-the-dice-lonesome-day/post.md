@@ -1,54 +1,34 @@
-
-
 Okay, I’m just gonna put this out there, even though I know most of y’all will vehemently disagree with me:
 
-“Lonesome Day” is about 9/11.
+“Lonesome Day” is *not* about 9/11.
 
-*not*
-
-I mean, I suppose it be, if you squint at it a bit. It’s definitely an angry song, and Bruce almost certainly chose it to lead off as a cathartic exercise for the pent-up anger and loss we were all very much feeling at the time of the album’s release in the summer of 2002.
-
-*can* *The Rising*
+I mean, I suppose it *can* be, if you squint at it a bit. It’s definitely an angry song, and Bruce almost certainly chose it to lead off *The Rising* as a cathartic exercise for the pent-up anger and loss we were all very much feeling at the time of the album’s release in the summer of 2002.
 
 At the very least, we certainly hear the imprint of 9/11 because of the context of the album “Lonesome Day” introduces.
 
-But much if not most of consists of songs written prior to that fateful day in the autumn of 2001, and one hallmark of Bruce’s songwriting skill is his ability to write in a way that not only allows but embraces contextual transplant.
-
-*The Rising*
+But much if not most of *The Rising* consists of songs written prior to that fateful day in the autumn of 2001, and one hallmark of Bruce’s songwriting skill is his ability to write in a way that not only allows but embraces contextual transplant.
 
 To my knowledge, we haven’t yet seen or heard any evidence to indicate when Bruce wrote “Lonesome Day,” so I’m just going to stake my claim and argue that it belongs to the re-purposed half of the album rather than the original half.
 
-Bruce himself has been coy about it. In an interview with in September 2002, Bruce told us how the trick works:
-
-*Uncut*
-
-
+Bruce himself has been coy about it. In an interview with *Uncut* in September 2002, Bruce told us how the trick works:
 
 *“If you look at the first verse, it feels like it’s a guy who’s talking to his girl… Then bang, the second verse: I switched right out of this personal thing to this sort of overall emotional mood and the feelings that were in the air here in the States around that time. But it works, because one thing works with the other and the second verse can actually come in on what was said in the first verse.”*
 
-We could take Bruce at his word, but I personally think his explanation is a bit too clever by half. He’s right: it work, but I suspect it was because Bruce writes in a way that allows for re-contextualizing rather than written for a post-9/11 context directly.
-
-*does*
+We could take Bruce at his word, but I personally think his explanation is a bit too clever by half. He’s right: it *does* work, but I suspect it was because Bruce writes in a way that allows for re-contextualizing rather than written for a post-9/11 context directly.
 
 But take a listen with fresh ears, and then decide for yourself.
 
-[https://www.youtube.com/embed/SAMkFVJ-ews?feature=oembed](https://www.youtube.com/embed/SAMkFVJ-ews?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Lonesome Day](https://www.youtube.com/watch?v=SAMkFVJ-ews)
 
-(A note about the video: it’s one of Bruce’s weaker ones, full of Springsteenian tropes and on-the-nose illustrations, but it’s remarkable for the vocal: it’s a different performance than the album track. Bruce performed the song live for take after take for . You can compare it with the official album track below and decide for yourself which version you like best.)
+(A note about the video: it’s one of Bruce’s weaker ones, full of Springsteenian tropes and on-the-nose illustrations, but it’s remarkable for the vocal: it’s a different performance than the album track. Bruce performed the song live for take after take for *sixteen hours*. You can compare it with the official album track below and decide for yourself which version you like best.)
 
-*sixteen hours*
-
-[https://www.youtube.com/embed/VuBRgq6nT7s?feature=oembed](https://www.youtube.com/embed/VuBRgq6nT7s?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Lonesome day (The Rising Album)](https://www.youtube.com/watch?v=VuBRgq6nT7s)
 
 We’ll get back to the lyrics in a minute, but let’s take a moment to talk about the music.
 
-On a first cold listen, you’d be hard pressed to identify the E Street Band as the band we’d known and loved. They still sounded great, but they sounded thanks to Brendan O’Brien’s production: angrier, more powerful, modern yet primal. Roy and Clarence are buried in the mix below a guitar onslaught, and Soozie Tyrell’s violin adds a new element to the modern E Street sound.
+On a first cold listen, you’d be hard pressed to identify the E Street Band as the band we’d known and loved. They still sounded great, but they sounded *different,* thanks to Brendan O’Brien’s production: angrier, more powerful, modern yet primal. Roy and Clarence are buried in the mix below a guitar onslaught, and Soozie Tyrell’s violin adds a new element to the modern E Street sound.
 
-*different,*
-
-“Lonesome Day” was more than just the lead-off track for it was also our reintroduction to the E Street Band 18 years after their last studio album appearance. And my, how they’d grown.
-
-*The Rising;*
+“Lonesome Day” was more than just the lead-off track for *The Rising;* it was also our reintroduction to the E Street Band 18 years after their last studio album appearance. And my, how they’d grown.
 
 If “primal” fits the description of the sound of “Lonesome Day,” it also suits the lyrics.
 
@@ -76,11 +56,7 @@ This is the verse that seems to convince critics that the song is about 9/11. To
 
 Whatever she did to him, he’s going to give in return. Then he’ll be able to let go of his rage, and they’ll both be able to move past it. His lonesome day will last only a day. Or so he tells himself.
 
-He knows it’s a bad move, though. He knows it’s absolutely alright. Which is exactly why he desperately tries to convince himself otherwise in a bridge that sounds for all the world like the narrator is rocking (literally) in a fetal position.
-
-*not*
-
-
+He knows it’s a bad move, though. He knows it’s absolutely *not* alright. Which is exactly why he desperately tries to convince himself otherwise in a bridge that sounds for all the world like the narrator is rocking (literally) in a fetal position.
 
 *It’s alright, it’s alright, it’s alright, yeah*  
 *It’s alright, it’s alright, it’s alright, yeah*  
@@ -103,23 +79,21 @@ Deep down, he knows his act of revenge isn’t going to make things better. It�
 
 So yes, “Lonesome Day” can certainly work in a 9/11 context if we focus on the emotion of the song and don’t sweat every detail of the narrative. We can interpret the final verse as a plea for caution before retaliating and escalating and a warning to avoid betraying our own values in so doing.
 
-But to me, “Lonesome Day” has always felt like a relationship song rather than a political song, one that has more in common with than the rest of .
+But to me, “Lonesome Day” has always felt like a relationship song rather than a political song, one that has more in common with [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) than the rest of *The Rising*.
 
-[](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love**The Rising*
+Nevertheless, “Lonesome Day” has become a set list staple for the modern-day E Street Band, appearing (often nightly) on every single tour since *The Rising.* From the beginning, fans knew what to do when Bruce played it, pumping their fists on every “It’s alright” as if in some kind of rock and roll group therapy.
 
-Nevertheless, “Lonesome Day” has become a set list staple for the modern-day E Street Band, appearing (often nightly) on every single tour since From the beginning, fans knew what to do when Bruce played it, pumping their fists on every “It’s alright” as if in some kind of rock and roll group therapy.
-
-*The Rising.*
-
-[https://www.youtube.com/embed/ejQxbCarUew?feature=oembed](https://www.youtube.com/embed/ejQxbCarUew?feature=oembed)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Lonesome Day (Live In Barcelona)](https://www.youtube.com/watch?v=ejQxbCarUew)
 
 In its 381 appearances to date, Bruce has rarely altered the arrangement for “Lonesome Day,” performing it time and again the way he recorded it on the album.
 
-[https://www.youtube.com/embed/whloscQmwRE?feature=oembed](https://www.youtube.com/embed/whloscQmwRE?feature=oembed)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Lonesome Day (London Calling: Live In Hyde Park, 2009)](https://www.youtube.com/watch?v=whloscQmwRE)
 
 But on his solo tour in 2005, Bruce found an acoustic arrangement that downplayed the rage and dialed up the hurt. Take a listen to Bruce’s performance from August 13, 2005 in Vancouver, British Columbia.
 
-[https://videopress.com/embed/IaSVvsd3?hd=0&amp;cover=1](https://videopress.com/embed/IaSVvsd3?hd=0&amp;cover=1)
+[Watch Video Highlight](https://videopress.com/embed/IaSVvsd3?hd=0&cover=1)
+
+
 
 Even though he’d been performing it acoustically for months, there was something different about “Lonesome Day” that night. Even now, fifteen years later, I’m haunted by the “it’s alright” refrain from that performance. Bruce delivered it in a way he’d never done before, and it’s impossible not to be filled with empathy for the narrator’s inner child.
 
@@ -129,17 +103,10 @@ So no, I don’t think Bruce wrote “Lonesome Day” about or even after 9/11, 
 
 Whether you’ve ever been betrayed by someone you loved or betrayed by the world for taking your love from you, “Lonesome Day” offers both catharsis and caution for those times when we need both simultaneously.
 
-February-March 2002
-(2002), (2003)
-July 25, 2002 (Asbury Park, NJ)
-September 3, 2023 (East Rutherford, NJ)
+**Lonesome Day  
+**Recorded:** February-March 2002<br>
+**Released:** *The Rising* (2002), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** July 25, 2002 (Asbury Park, NJ)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-**Lonesome Day**
-**Recorded:**<br>
-
-**Released:** *The Rising* *The Essential Bruce Springsteen* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

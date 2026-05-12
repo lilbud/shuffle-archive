@@ -1,8 +1,4 @@
-
-
-So the story goes that Bruce Springsteen wrote his album in a ten-day spurt of creativity, crafting nine new songs and supplementing them with three never-released older ones.
-
-[](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*Letter to You*
+So the story goes that Bruce Springsteen wrote his [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)album in a ten-day spurt of creativity, crafting nine new songs and supplementing them with three never-released older ones.
 
 That’s not exactly true, though. In reality, a full half of the album’s twelve songs were extant long before he wrote the other six in early 2019. But at least all twelve songs were recorded during a week-long session with the E Street Band that November, right?
 
@@ -10,43 +6,29 @@ Well… that might be a bit of a stretch also.
 
 Because not only is “Burnin’ Train” almost thirty years old (it was first demoed during Bruce’s Los Angeles residency back in 1993), I’m not sure the official studio track dates entirely from those November 2019 sessions.
 
-For one thing, Toby Scott carries an engineering credit not just on “Burnin’ Train” but also on “” (which dates back to 2003) and “” (2004)–and Toby left Bruce’s employ in 2017.
+For one thing, Toby Scott carries an engineering credit not just on “Burnin’ Train” but also on “[One Minute You’re Here](https://estreetshuffle.com/index.php/2021/05/30/roll-of-the-dice-one-minute-youre-here/)” (which dates back to 2003) and “[Rainmaker](https://estreetshuffle.com/index.php/2021/02/12/roll-of-the-dice-rainmaker/)” (2004)–and Toby left Bruce’s employ in 2017.
 
-[One Minute You’re Here](https://estreetshuffle.com/index.php/2021/05/30/roll-of-the-dice-one-minute-youre-here/)[Rainmaker](https://estreetshuffle.com/index.php/2021/02/12/roll-of-the-dice-rainmaker/)
+And interestingly, there is no footage of “Rainmaker” in the *Letter to You* documentary, and the only video for “One Minute You’re Here” is of Bruce recording his vocals. There’s some footage of band members recording “Burnin’ Train” just before the end credits roll, but it’s carefully edited enough that the sleuth in me suspects these may be hybrids of older recordings with more recent overdubs.
 
-And interestingly, there is no footage of “Rainmaker” in the documentary, and the only video for “One Minute You’re Here” is of Bruce recording his vocals. There’s some footage of band members recording “Burnin’ Train” just before the end credits roll, but it’s carefully edited enough that the sleuth in me suspects these may be hybrids of older recordings with more recent overdubs.
+One thing is certain, though: “Burnin’ Train” certainly doesn’t *sound* like the rest of *Letter to You*. Take a listen and hear for yourself.
 
-*Letter to You*
+[Watch on Youtube: Bruce Springsteen - Burnin' Train (Official Audio)](https://www.youtube.com/watch?v=tTwpR6SCyRw)
 
-One thing is certain, though: “Burnin’ Train” certainly doesn’t like the rest of . Take a listen and hear for yourself.
+A hard-charging, full-on rocker, “Burnin’ Train has a completely unique sound compared to the rest of its album-mates. Although the song reportedly dates back to the immediately post-*Lucky Town* era, it doesn’t sound very nineties, either.
 
-*sound**Letter to You*
+If anything, “Burnin’ Train” seems to be a close musical cousin to “[Gypsy Biker,](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)” so similar are their backing tracks–particularly their guitar solos.
 
-[https://www.youtube.com/embed/tTwpR6SCyRw?feature=oembed](https://www.youtube.com/embed/tTwpR6SCyRw?feature=oembed)
+[Watch on Youtube: Gypsy Biker](https://www.youtube.com/watch?v=uLqNoQpOfms)
 
-A hard-charging, full-on rocker, “Burnin’ Train has a completely unique sound compared to the rest of its album-mates. Although the song reportedly dates back to the immediately post- era, it doesn’t sound very nineties, either.
-
-*Lucky Town*
-
-If anything, “Burnin’ Train” seems to be a close musical cousin to “” so similar are their backing tracks–particularly their guitar solos.
-
-[Gypsy Biker,](https://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)
-
-[https://www.youtube.com/embed/uLqNoQpOfms?feature=oembed](https://www.youtube.com/embed/uLqNoQpOfms?feature=oembed)
-
-Lyrically, though, “Burnin’ Train” is a perfect fit for .
-
-*Letter to You*
+Lyrically, though, “Burnin’ Train” is a perfect fit for *Letter to You*.
 
 Bruce’s most recent album is all about aging and mortality, and “Burnin’ Train” is a song about staving off the inexorable march of time through the most ancient of ways: sex.
 
 All the thematic elements of a classic Springsteen song are here:
 
-✅ Loser narrator
-✅ Religious imagery
+✅ Loser narrator  
+✅ Religious imagery  
 ✅ Train metaphor
-
-
 
 And, of course, the song-length sexual encounter, which Bruce employs with far more frequency than I think most fans realize.
 
@@ -56,15 +38,9 @@ And, of course, the song-length sexual encounter, which Bruce employs with far m
 *We whispered our black prayers and rose up in flames*  
 *Take me on your burning train*
 
-Meet our narrator. In true “I had a job, I had a girl” form, Bruce tells us all we need to know in the first line: –I’m a loserI’m oldLooking for love, he instead finds the rejuvenating power of lust, and it’s almost literally a religious experience.
+Meet our narrator. In true “I had a job, I had a girl” form, Bruce tells us all we need to know in the first line: *Zero’s my number*–I’m a loser*. Time is my hunter–*I’m old*.* Looking for love, he instead finds the rejuvenating power of lust, and it’s almost literally a religious experience.
 
-*Zero’s my number**. Time is my hunter–**.*
-
-(In the interest of propriety, I’ll forego my usual line-by-line analysis, but suffice it to say that Bruce is not the first artist to equate or .)
-
-[holy water with bodily fluids](https://www.youtube.com/watch?v=9APOR1Ls1Bc)[prayers with orgasms](https://www.youtube.com/watch?v=79fzeNUqQbQ)
-
-
+(In the interest of propriety, I’ll forego my usual line-by-line analysis, but suffice it to say that Bruce is not the first artist to equate [holy water with bodily fluids](https://www.youtube.com/watch?v=9APOR1Ls1Bc) or [prayers with orgasms](https://www.youtube.com/watch?v=79fzeNUqQbQ).)
 
 *White sun burning, black wings beating*  
 *I ran my fingers ‘cross the hollow of your stomach as you lay breathing*  
@@ -72,16 +48,10 @@ Meet our narrator. In true “I had a job, I had a girl” form, Bruce tells us 
 *Take me and shake me from this mortal cage*  
 *Take me on your burning train*
 
-The second verse holds the key to the song: . 
-
-*Take me and shake me from this mortal cage**Through sex with you, I am young, I am immortal.*
-
-
+The second verse holds the key to the song: *Take me and shake me from this mortal cage*. *Through sex with you, I am young, I am immortal.*
 
 *Something shining in the light ‘neath your breast*  
 *The thick smell of you on my chest*
-
-
 
 *On your bed of thorns, I brought you shining gifts*  
 *Wiped the sweat from your brow and I touched your lips*  
@@ -97,20 +67,12 @@ But why quibble? Bruce’s message is clear: hot sex = long life.
 
 May you live long and prosper.
 
-[https://www.youtube.com/embed/93LbbdUR3xs?feature=oembed](https://www.youtube.com/embed/93LbbdUR3xs?feature=oembed)
+[Watch on Youtube: ~ Bruce Springsteen - Burnin' Train - Tampa, February 1, 2023 (multicam w/official audio) ~](https://www.youtube.com/watch?v=93LbbdUR3xs)
 
-? – 2019
-(2020)
-February 1, 2023 (Tampa, FL)
-March 7, 2023 (Milwaukee, WI)
+**Burnin’ Train  
+**Recorded:** ? – 2019<br>
+**Released:** *Letter to You* (2020)<br>
+**First performed:** February 1, 2023 (Tampa, FL)<br>
+**Last performed:** March 7, 2023 (Milwaukee, WI)
 
-**Burnin’ Train**
-**Recorded:**<br>
-
-**Released:** *Letter to You* <br>
-**First performed:** <br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

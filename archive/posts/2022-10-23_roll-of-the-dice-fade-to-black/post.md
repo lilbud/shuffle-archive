@@ -1,22 +1,14 @@
-
-
 He’s better known for his encyclopedic knowledge of rock history, but he’s also quite the cinematic connoisseur.
 
-Bruce Springsteen’s catalog is filled with titles borrowed from the films of his youth. As early as “Thunder Road” and as recently as “,” Bruce leavened his songs with cinematic shorthand and stage direction.
+Bruce Springsteen’s catalog is filled with titles borrowed from the films of his youth. As early as “Thunder Road” and as recently as “[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/),” Bruce leavened his songs with cinematic shorthand and stage direction.
 
-[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)
-
-If his penchant had a peak, it came as the late 1970s gave way to the 1980s. From the somber “” to the noirish “” to the dreamlike “,” the influence of Hollywood on Bruce’s songwriting is undeniable. In 1979, he went all in with “,” a song so laden with film imagery and vocabulary that it sounds as if it was written by a film student.
-
-[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)
+If his penchant had a peak, it came as the late 1970s gave way to the 1980s. From the somber “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)” to the noirish “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” to the dreamlike “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/),” the influence of Hollywood on Bruce’s songwriting is undeniable. In 1979, he went all in with “[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/),” a song so laden with film imagery and vocabulary that it sounds as if it was written by a film student.
 
 But there was almost another song even more directorial–one as dark and depressing as “Be True” is bright and romantic.
 
-Bruce wrote “Fade to Black” during his songwriting period, and had he finished it (judging from the demo below, he was very, very close) it would have been perfectly at home on his 1982 album in style, tone, and content.
+Bruce wrote “Fade to Black” during his *Nebraska* songwriting period, and had he finished it (judging from the demo below, he was very, very close) it would have been perfectly at home on his 1982 album in style, tone, and content.
 
-*Nebraska*
-
-[https://www.youtube.com/embed/Qu23vlwF8ZM?feature=oembed](https://www.youtube.com/embed/Qu23vlwF8ZM?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Fade To Black](https://www.youtube.com/watch?v=Qu23vlwF8ZM)
 
 “Fade to Black” begins where “Be True” ends: in a movie theater.
 
@@ -24,8 +16,6 @@ Bruce wrote “Fade to Black” during his songwriting period, and had he finish
 *You’re two seats away, I move two seats down*  
 *Wipe the tears from your eyes, the first kiss I stole*  
 *I walk you home, the credits roll*
-
-
 
 *Fade to black*
 
@@ -41,8 +31,6 @@ Or even a happy middle.
 *Just watching us both running the distance*  
 *Watching us both slowly pull back*
 
-
-
 *Fade to black*
 
 It’s not clear how much time has passed between the first two verses, but the emotional distance between our two lovers is now much greater than two seats. Bruce’s narrator feels removed, absent from his own relationship (a theme he had recently explored in “Stolen Car”), and the camera pulls back so that we might more viscerally feel the growing distance.
@@ -56,14 +44,10 @@ It all comes to a head in the third verse and the half-verse that follows:
 *Is this the one or have I lost track*  
 *Waiting for us to fade to black*
 
-
-
 *A face lit with shame, eyes filled with hurt*  
 *I scream out your name, you rip my shirt*
 
-This is the break-up moment… or is it? It’s obviously not their first go-round; they’ve been here so many times that our characters are like weary actors after dozens of takes before a demanding director, wondering whether this is final cut or just another dress rehearsal. ( is the most devastating line of the song.)
-
-*Baby is this the scene which we’ve been rehearsing*
+This is the break-up moment… or is it? It’s obviously not their first go-round; they’ve been here so many times that our characters are like weary actors after dozens of takes before a demanding director, wondering whether this is final cut or just another dress rehearsal. (*Baby is this the scene which we’ve been rehearsing* is the most devastating line of the song.)
 
 If that wasn’t the break-up moment, it came soon after.
 
@@ -71,8 +55,6 @@ If that wasn’t the break-up moment, it came soon after.
 *The sunlight falls like a bright veil*  
 *A camera pans an empty room*  
 *The picture dissolves and slowly pulls back*
-
-
 
 *Fade to black*
 
@@ -82,20 +64,11 @@ It’s a disquieting note on which to end, and an atypical one too. More often t
 
 “Fade to Black” is masterful in its use of stage direction as a conceit through which to record the disintegration of a relationship. While only an acoustic home demo, it’s a hair’s breadth away from lyrical completion.
 
-Why it didn’t make or a later album is still a mystery, but if Bruce’s session logs (which indicate a studio version was recorded in 1982) are to be believed, we might yet someday get to hear the finished version.
+Why it didn’t make *Nebraska* or a later album is still a mystery, but if Bruce’s session logs (which indicate a studio version was recorded in 1982) are to be believed, we might yet someday get to hear the finished version.
 
-*Nebraska*
-
-Late 1981 (demo only)
-
-
-
-**Fade to Black**
-**Recorded:**<br>
-
+**Fade to Black  
+**Recorded:** Late 1981 (demo only)<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

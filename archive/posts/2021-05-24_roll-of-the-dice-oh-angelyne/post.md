@@ -1,5 +1,3 @@
-
-
 If you’re looking for the inflection point where economic inequality really took off in the United States, the point at which the top one percent started to become the Top One Percent, look to 1979.
 
 Although the U.S. economy didn’t officially enter recession until the early days of 1980, the decline began when Paul Volcker was installed as the head of the Federal Reserve, with a mandate to tame the rampant inflation that was ravaging America at the time.
@@ -22,7 +20,7 @@ In its early incarnations, the characters and backdrop might have been ripped fr
 
 His yearning to escape the girl he’d been saddled with and run off with his fantasy girl consumed him, and in his mind the narrator was always running, running to Angelyne. In this early outtake, in fact, Mary isn’t even mentioned.
 
-[https://www.youtube.com/embed/8eKuVgBuNI0?feature=oembed](https://www.youtube.com/embed/8eKuVgBuNI0?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Angelyne #4 Acoustic Demo](https://www.youtube.com/watch?v=8eKuVgBuNI0)
 
 *I come from down in the valley where mister straight from day number one*  
 *They bring you up to do what your daddy done*  
@@ -30,14 +28,12 @@ His yearning to escape the girl he’d been saddled with and run off with his fa
 *???, don’t need men to put ’em up*  
 *Not by me, not by anyone*
 
-
-
 *Oh Angelyne, I’m running to you, I’m running to you*  
 *Angelyne, you run on the wire, you walk the line*
 
 We meet Mary in this next demo, and this is where it becomes clear that our narrator longs to escape the life he’s made for himself.
 
-[https://www.youtube.com/embed/APldzhXlBIE?feature=oembed](https://www.youtube.com/embed/APldzhXlBIE?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Angelyne #1 Acoustic Demo](https://www.youtube.com/watch?v=APldzhXlBIE)
 
 *Well mister when you’re young*  
 *They bring you up to do, yeah, what your daddy done*  
@@ -46,12 +42,8 @@ We meet Mary in this next demo, and this is where it becomes clear that our narr
 *Man don’t need no buildings, don’t need men to build a home*  
 *Well a man don’t need me, goodbye me*
 
-
-
 *Oh Angelyne, I’m running to you, I’m running to you*  
 *Oh Angelyne, when you’re on the wire you walk the line*
-
-
 
 *I met Mary at ??? High School*  
 *I pick her up in my 413*  
@@ -63,15 +55,13 @@ We meet Mary in this next demo, and this is where it becomes clear that our narr
 
 Bruce continued working on the song, building toward a bitter climax that railed against the cruelty of a dream promised but unfulfilled.
 
-[https://www.youtube.com/embed/nopdtlnNXkM?feature=oembed](https://www.youtube.com/embed/nopdtlnNXkM?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Angelyne #3 Acoustic Demo](https://www.youtube.com/watch?v=nopdtlnNXkM)
 
 *I act like I don’t remember, Mary acts like she don’t care*  
 *I remember running wild in her brother’s car*  
 *Her body tan, tan and dripping wet down at the reservoir*  
 *The plan we made, baby, that all fell through*  
 *We painted ourselves a dream we couldn’t live up to*
-
-
 
 *Baby all those dreams, they haunt me like a curse*  
 *Is a dream a lie if it don’t come true or is it something worse*  
@@ -88,7 +78,7 @@ Bruce worked on “Oh Angelyne” throughout the first half of 1979, crafting an
 
 But then inspiration hit. On tour the previous summer, Bruce had become fascinated to the point of obsession with the music of Hank Williams. In interviews ever after, he would refer to his original inspiration as Hank’s “My Bucket’s Got a Hole In It,” but it’s hard to believe he wasn’t at least subsequently and substantially inspired by another of Williams’ songs, “Long Gone Lonesome Blues.”
 
-[https://www.youtube.com/embed/esIK2-XvHM4?feature=oembed](https://www.youtube.com/embed/esIK2-XvHM4?feature=oembed)
+[Watch on Youtube: Long Gone Lonesome Blues](https://www.youtube.com/watch?v=esIK2-XvHM4)
 
 In particular, there’s a striking familiarity in that song’s first verse…
 
@@ -98,28 +88,17 @@ In particular, there’s a striking familiarity in that song’s first verse…
 
 Regardless of which Hank Williams song we credit, Bruce realized what his own song was missing. By late August, he’d transformed “Oh Angelyne,” keeping its central couple and circumstance, but ditching the other woman and replacing her with a metaphor borrowed from Williams.
 
-(Bruce took pity on Angelyne, though, and introduced her to his friend Gary. .)
-
-[They clicked](https://estreetshuffle.com/index.php/2019/02/04/cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/)
+(Bruce took pity on Angelyne, though, and introduced her to his friend Gary. [They clicked](https://estreetshuffle.com/index.php/2019/02/04/cover-me-gary-u-s-bonds-and-the-e-street-band-angelyne/).)
 
 Now his song was complete and ready for the recording studio. Bruce’s retitled, transformed “Oh Angelyne” would become an instant classic and endure to this day as one of his greatest recordings and songwriting accomplishments.
 
 We’ll take a deep listen to that song and admire it in detail… soon.
 
-(To be continued in ““)
+(To be continued in *Roll of the Dice:* “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)“)
 
-*Roll of the Dice:* [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
-
-February-May 1979 (demos only)
-
-
-
-**Oh Angelyne**
-**Recorded:**<br>
-
+**Oh Angelyne  
+**Recorded:** February-May 1979 (demos only)<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

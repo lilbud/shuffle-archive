@@ -1,8 +1,4 @@
-
-
-Bruce captured “Spare Parts” on the second take of the very first day of recording for the album that would become . Wham, bam, thank you, ma’am.
-
-[](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*
+Bruce captured “Spare Parts” on the second take of the very first day of recording for the album that would become [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/). Wham, bam, thank you, ma’am.
 
 And that’s as apt a metaphor as any for a song that’s otherwise devoid of it.
 
@@ -12,7 +8,7 @@ Despite its biblical imagery, “Spare Parts” is ultimately a song about takin
 
 Let’s take a listen.
 
-[https://www.youtube.com/embed/mkFD8gmBWQc?feature=oembed](https://www.youtube.com/embed/mkFD8gmBWQc?feature=oembed)
+[Watch on Youtube: Spare Parts](https://www.youtube.com/watch?v=mkFD8gmBWQc)
 
 Before we delve into the lyrics, it’s interesting to take note of the backing track. Bruce actually recorded “Spare Parts” as a solo acoustic track in his home studio on January 20, 1987, and what you just listened to above is that same recording–at its core. Over the months that followed, Bruce invited Garry, Max, and Danny–separately–to his home to add their contributions.
 
@@ -20,19 +16,13 @@ And that harmonica you hear is (shockingly) not Bruce. It’s Jimmie Wood from t
 
 So it’s not much of a stretch to say that “Spare Parts” is comprised of… well, spare parts.
 
-Here’s an actual full-band performance (with everyone in the same room) from the Tunnel of Love Express Tour. It’s actually the official video for the song. (“Spare Parts” was actually the fourth single released from the album, although strangely not in the U.S. It didn’t set the world on fire, but it peaked as high as #16 in Sweden.) Bruce’s introductory comments give us a good lens through which to view the lyrics that follow.
+Here’s an actual full-band performance (with everyone in the same room) from the Tunnel of Love Express Tour. It’s actually the official video for the song. (“Spare Parts” was actually the fourth single released from the *Tunnel of Love* album, although strangely not in the U.S. It didn’t set the world on fire, but it peaked as high as #16 in Sweden.) Bruce’s introductory comments give us a good lens through which to view the lyrics that follow.
 
-*Tunnel of Love*
+[Watch on Youtube: Bruce Springsteen - Spare Parts (Official Video - DVD Version)](https://www.youtube.com/watch?v=HKH3C3b2HzU)
 
-[https://www.youtube.com/embed/HKH3C3b2HzU?feature=oembed](https://www.youtube.com/embed/HKH3C3b2HzU?feature=oembed)
+By 1988, Bruce had learned the risk of having his material misinterpreted. (See “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)“)
 
-By 1988, Bruce had learned the risk of having his material misinterpreted. (See ““)
-
-[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
-
-Perhaps that’s why he took the time almost every night on the Tour to introduce “Spare Parts” and explain it.
-
-*Tunnel of Love Express*
+Perhaps that’s why he took the time almost every night on the *Tunnel of Love Express* Tour to introduce “Spare Parts” and explain it.
 
 It’s actually a strange decision, if you think about it: arguably, “Spare Parts” is one of the most straightforward songs Bruce has ever written. There’s no hidden meaning, no cryptic references, not a single metaphor. The language is plain spoken and blunt.
 
@@ -45,9 +35,7 @@ But maybe that’s the problem: we’re so used to hearing Bruce craft his songs
 
 That, dear reader, is a master class in setting up a song. Bruce has just told us that this is a story about Janey, a single mother, but not by choice. She placed her trust in the wrong man, because Bobby not only betrayed her in the heat of the moment, he broke his life promise to her as well, leaving town and leaving Janey behind.
 
-Bruce established all that . Try doing that in prose, let alone in meter.
-
-*in thirty words*
+Bruce established all that *in thirty words*. Try doing that in prose, let alone in meter.
 
 There’s another key piece of information in that verse as well: Bruce takes pains to point out that Janey having the baby wasn’t considered (at least by her) to be a sin. He didn’t do that for the sake of rhyme; nor is it to establish Janey as a victim. Bruce is doing two other things with that one short phrase: 1) he’s subtly introducing a biblical term, setting up the expectation that the story will have a religious climax (it won’t, but Bruce will fake us out before we realize it), and 2) he’s immediately establishing and telegraphing Janey’s strength of character. She’s having a child out of wedlock, and back then (and even now) in certain parts that would be looked down upon. But Janey refuses to accept the notion that she’s done anything wrong, and we’ll see that inner strength carry her even through times of self-doubt.
 
@@ -93,24 +81,16 @@ If there’s a criticism to be laid at Bruce’s feet regarding “Spare Parts,�
 
 But there she is, down by the riverside. This is no idle notion–she’s brought her baby down to the water and waded into it waist deep. She’s clearly seriously considering setting him adrift. And yet… the moment passes. Bruce makes no mention of why Janey changes her mind. The only clue we’re given–the only detail–is the brightness of the sun. Does she take that as an omen? A reminder? Or is it simply Janey’s strong moral core that dissuades her? We don’t know. We only know that she doesn’t go through with it.
 
-The key thing is what happen. God doesn’t intervene. There’s no epiphany. Janey’s faith doesn’t serve her one bit. Even standing waste deep in the water with her child in a scene straight out of a baptism, there’s just silence. She cried til she prayed but ultimately she had to provide her own salvation. And that’s the seditious power of “Spare Parts” — it’s a song about seeking answers from within not from without, about disregarding the notions of society and religion and trusting your own inner compass.
+The key thing is what *doesn’t* happen. God doesn’t intervene. There’s no epiphany. Janey’s faith doesn’t serve her one bit. Even standing waste deep in the water with her child in a scene straight out of a baptism, there’s just silence. She cried til she prayed but ultimately she had to provide her own salvation. And that’s the seditious power of “Spare Parts” — it’s a song about seeking answers from within not from without, about disregarding the notions of society and religion and trusting your own inner compass.
 
-*doesn’t*
-
-But that’s still not the true climax of the song. What the song is about is what comes next:
-
-*really*
-
-
+But that’s still not the true climax of the song. What the song is *really* about is what comes next:
 
 *As he lay sleeping in her bed Janey took a look around at everything*  
 *Went to a drawer in her bureau and got out her old engagement ring*  
 *Took out her wedding dress tied that ring up in its sash*  
 *Went straight down to the pawn shop man and walked out with some good cold cash*
 
-Janey takes “a look around at everything.” Not just at what’s in her small room, but at her life, and what she’s made of it. And she digs up the two physical, material artifacts of her old, would-have-been, should-have-been life, and what she chooses to discard. And now, finally, we truly understand the chorus of the song.
-
-*that’s*
+Janey takes “a look around at everything.” Not just at what’s in her small room, but at her life, and what she’s made of it. And she digs up the two physical, material artifacts of her old, would-have-been, should-have-been life, and *that’s* what she chooses to discard. And now, finally, we truly understand the chorus of the song.
 
 She keeps the baby, discards the symbols of false promises, and takes control of her life. Armed with “good cold cash” from the sale of her spare parts, she moves forward toward a future of her own making.
 
@@ -122,35 +102,24 @@ After all:
 
 In concert, Bruce has performed “Spare Parts” only, um, sparingly.
 
-Actually, that’s not quite true: it was a mainstay of the Tunnel of Love Express Tour when it debuted back in 1988. If you’ve watched the official video above, you’ve experienced that powerful arrangement. To my mind, however, it’s almost powerful. The full band arrangement–complete with horns–only magnifies my issue with the album arrangement: at heart, the song is about an internal dilemma, a quiet test of faith and duty and of right and wrong. The action takes place in solitude and stillness, and it’s easy to overlook the power of the song when you’re being overwhelmed by the power of the band.
+Actually, that’s not quite true: it was a mainstay of the Tunnel of Love Express Tour when it debuted back in 1988. If you’ve watched the official video above, you’ve experienced that powerful arrangement. To my mind, however, it’s almost *too* powerful. The full band arrangement–complete with horns–only magnifies my issue with the album arrangement: at heart, the song is about an internal dilemma, a quiet test of faith and duty and of right and wrong. The action takes place in solitude and stillness, and it’s easy to overlook the power of the song when you’re being overwhelmed by the power of the band.
 
-*too*
-
-In the years since , Bruce has only performed “Spare Parts” on two tours–and both were acoustic. That suggests to me that Bruce understands that the song is more powerful and more effective when it’s quiet.
-
-*Tunnel of Love*
+In the years since *Tunnel of Love*, Bruce has only performed “Spare Parts” on two tours–and both were acoustic. That suggests to me that Bruce understands that the song is more powerful and more effective when it’s quiet.
 
 On the Ghost of Tom Joad Tour, Bruce swung the pendulum hard: his arrangement of “Spare Parts” is dark, pensive, and at times almost spoken-word. It’s as if Bruce wants to make absolutely sure the song is understood. Listen to one of those performances below.
 
-[https://www.youtube.com/embed/hlEKiRlJSdc?feature=oembed](https://www.youtube.com/embed/hlEKiRlJSdc?feature=oembed)
+[Watch on Youtube: Spare Parts (Live at ICC SAAL 1, Berlin, Germany - April 1996)](https://www.youtube.com/watch?v=hlEKiRlJSdc)
 
 On the Devils & Dust Tour a decade later, however, Bruce figured out how to marry his more reflective acoustic version with the original rocker arrangement, and the hybrid result (to my mind) nailed it.
 
-[https://www.youtube.com/embed/quDkCHDvLLk?feature=oembed](https://www.youtube.com/embed/quDkCHDvLLk?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Spare Parts (Acoustic)](https://www.youtube.com/watch?v=quDkCHDvLLk)
 
-In the years since “Spare Parts” has been completely absent from Bruce’s setlists. But we haven’t had a solo tour in that time either. Bruce is about due to do one, and perhaps we’ll see “Spare Parts” return when he does.
-
-*Devils & Dust,*
-
-January 20, 1987
-
-February 25, 1988 (Worcester, MA)
-November 21, 2005 (Trenton, NJ)
+In the years since *Devils & Dust,* “Spare Parts” has been completely absent from Bruce’s setlists. But we haven’t had a solo tour in that time either. Bruce is about due to do one, and perhaps we’ll see “Spare Parts” return when he does.
 
 **Spare Parts**  
-**Recorded:**<br>
-**Released:** *Tunnel of Love*<br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** January 20, 1987<br>
+**Released:** *Tunnel of Love* (1988)<br>
+**First performed:** February 25, 1988 (Worcester, MA)<br>
+**Last performed:** November 21, 2005 (Trenton, NJ)
 
 (c) January 8, 2019

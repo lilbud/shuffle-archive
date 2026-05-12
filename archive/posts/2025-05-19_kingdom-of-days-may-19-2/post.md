@@ -34,7 +34,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/05/1984-05-19.jpg)
 
-**1988**: At Night Three (of five) at Madison Square Garden, Bruce records the videos for "[Vigilante Man](https://estreetshuffle.com/index.php/2021/09/14/cover-me-vigilante-man/)" and "[I Ain't Got No Home.](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)"
+**1988:** At Night Three (of five) at Madison Square Garden, Bruce records the videos for "[Vigilante Man](https://estreetshuffle.com/index.php/2021/09/14/cover-me-vigilante-man/)" and "[I Ain't Got No Home.](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)"
 
 [Watch on Youtube: Bruce Springsteen - Vigilante Man](https://www.youtube.com/watch?v=eKXILNMXxs0)
 

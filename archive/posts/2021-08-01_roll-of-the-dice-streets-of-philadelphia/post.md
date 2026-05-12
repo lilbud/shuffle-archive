@@ -1,52 +1,42 @@
-
-
 Will the real “Streets of Philadelphia” please stand up?
 
-Is it the one that plays over the opening credits of Jonathan Demme’s film, ?
+Is it the one that plays over the opening credits of Jonathan Demme’s film, *Philadelphia*?
 
-*Philadelphia*
-
-[https://videopress.com/embed/L1P2Lcad?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/L1P2Lcad?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/L1P2Lcad?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 Or is it the four-minute-plus track released on the movie’s soundtrack?
 
-[https://www.youtube.com/embed/tKdk97y2Wjg?feature=oembed](https://www.youtube.com/embed/tKdk97y2Wjg?feature=oembed)
+[Watch on Youtube: Streets of Philadelphia](https://www.youtube.com/watch?v=tKdk97y2Wjg)
 
 Or the trimmed-down single?
 
-[https://www.youtube.com/embed/EtnCBZ3Xf50?feature=oembed](https://www.youtube.com/embed/EtnCBZ3Xf50?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Streets of Philadelphia](https://www.youtube.com/watch?v=EtnCBZ3Xf50)
 
-Or the -trimmed down version from ? (It clocks in almost a full minute shorter than the one on the movie soundtrack.)
+Or the *super*-trimmed down version from *Greatest Hits*? (It clocks in almost a full minute shorter than the one on the movie soundtrack.)
 
-*super**Greatest Hits*
-
-[https://www.youtube.com/embed/1Z0jSNaIc4Q?feature=oembed](https://www.youtube.com/embed/1Z0jSNaIc4Q?feature=oembed)
+[Watch on Youtube: Streets of Philadelphia (Single Edit)](https://www.youtube.com/watch?v=1Z0jSNaIc4Q)
 
 Or is it the version from Bruce’s video, featuring a completely different vocal, performed live while Bruce walked the streets of Philly with a hidden microphone?
 
-[https://www.youtube.com/embed/4z2DtNW79sQ?feature=oembed](https://www.youtube.com/embed/4z2DtNW79sQ?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Streets of Philadelphia (Official Video)](https://www.youtube.com/watch?v=4z2DtNW79sQ)
 
 Or could it be the version from the rarely seen video Bruce filmed in 1994?
 
+[https://www.springsteenlyrics.com/lyrics/videos/streetsofphiladelphia_musicvideo1994.mp4?_=1](https://www.springsteenlyrics.com/lyrics/videos/streetsofphiladelphia_musicvideo1994.mp4?_=1)
+
 <https://www.springsteenlyrics.com/lyrics/videos/streetsofphiladelphia_musicvideo1994.mp4>
 
-Oh, and then there’s the legendary version featuring jazz legends Ornette Coleman and Little Jimmy Scott, which remains unreleased to this day, although we can hear it playing during an emotional scene in 
+Oh, and then there’s the legendary version featuring jazz legends Ornette Coleman and Little Jimmy Scott, which remains unreleased to this day, although we can hear it playing during an emotional scene in *Philadelphia.*
 
-*Philadelphia.*
-
-[https://videopress.com/embed/Bvgy1B4q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Bvgy1B4q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Bvgy1B4q?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 That’s a whole lot of versions for a one-off, between-albums single, but “Streets of Philadelphia” is no ordinary song, not even for Bruce.
 
 Almost twenty years later, it’s hard to remember let alone believe that by late 1993, when Bruce’s name came up in casual conversation, it was often appended to “Whatever happened to?”
 
-was now almost a full decade in the rear-view mirror, and Bruce’s latest two albums and accompanying tour failed to set the charts on fire.
+*Born in the U.S.A.* was now almost a full decade in the rear-view mirror, and Bruce’s latest two albums and accompanying tour failed to set the charts on fire.
 
-*Born in the U.S.A.*
-
-His life had changed, too: Bruce was now a family man, and his songwriting for the past six years had been focused on relationships–mostly happy ones. His legendary empathy and finely-drawn character studies seemed to be a thing of the past, as his writing became more personal and intimate. Fans doubted they’d ever hear lyrics in the vein of “” or “Highway Patrolman” ever again.
-
-[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
+His life had changed, too: Bruce was now a family man, and his songwriting for the past six years had been focused on relationships–mostly happy ones. His legendary empathy and finely-drawn character studies seemed to be a thing of the past, as his writing became more personal and intimate. Fans doubted they’d ever hear lyrics in the vein of “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” or “Highway Patrolman” ever again.
 
 Then Jonathan Demme came calling.
 
@@ -63,8 +53,6 @@ The beauty of Bruce’s lyrics lies in the way he simultaneously describes both 
 *Saw my reflection in a window and didn’t know my own face*  
 *So brother are you gonna leave me wasting away*  
 *On the streets of Philadelphia*
-
-
 
 *I walked the avenue ’til my legs felt like stone*  
 *I heard the voices of friends vanished and gone*  
@@ -95,9 +83,7 @@ And here we have what is perhaps the song’s greatest heartbreak: even the narr
 
 We never find out whether the narrator’s brother answers his plea, or even whether he hears it. The song leaves us in the narrator’s purgatory, where we serve as his only company.
 
-Much to Demme’s frustration, Bruce’s tragically poetic lyrics weren’t suited for a rock anthem no matter how hard the songwriter tried. Bruce ended up taking the backing track in a different direction–a different direction. He made a demo with a hip-hop beat and ethereal synths, and in an echo of , he found it hard to improve upon the demo.
-
-*very* *Nebraska*
+Much to Demme’s frustration, Bruce’s tragically poetic lyrics weren’t suited for a rock anthem no matter how hard the songwriter tried. Bruce ended up taking the backing track in a different direction–a *very* different direction. He made a demo with a hip-hop beat and ethereal synths, and in an echo of *Nebraska*, he found it hard to improve upon the demo.
 
 The released versions (most of them, anyway) feature added backing vocals and bass from 1992-93 touring band member Tommy Sims, and the movie features glimpses of Little Jimmy Scott’s vocals. But other than those elements, it’s tough to tell the difference between various versions and mixes without a very deep listen.
 
@@ -109,60 +95,48 @@ She was right. Upon release, “Streets of Philadelphia” became more than just
 
 Combined with gushing critical acclaim, the song’s popularity powered “Streets of Philadelphia’ through awards season, garnering Bruce his first Oscar…
 
-[https://www.youtube.com/embed/362SVFvDuYk?feature=oembed](https://www.youtube.com/embed/362SVFvDuYk?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Streets of Philadelphia Oscars 1994 4K*](https://www.youtube.com/watch?v=362SVFvDuYk)
 
 …a Golden Globe Award…
 
-[https://www.youtube.com/embed/En4D3L5EGZc?start=1&amp;feature=oembed](https://www.youtube.com/embed/En4D3L5EGZc?start=1&amp;feature=oembed)
+[Watch on Youtube: Bruce Springsteen Wins Best Original Song - Golden Globes 1994](https://www.youtube.com/watch?v=En4D3L5EGZc)
 
 …four Grammy Awards…
 
-[https://www.youtube.com/embed/2D1EdYtNqVc?feature=oembed](https://www.youtube.com/embed/2D1EdYtNqVc?feature=oembed)
+[Watch on Youtube: Bruce Springsteen's "Streets of Philadelphia" opens the 37th Annual Grammy Awards](https://www.youtube.com/watch?v=2D1EdYtNqVc)
 
 …and an MTV Video Music Award.
 
-[https://www.youtube.com/embed/hFqswzMmnI4?feature=oembed](https://www.youtube.com/embed/hFqswzMmnI4?feature=oembed)
+[Watch on Youtube: streets of philadelphia (live ) bruce springsteen](https://www.youtube.com/watch?v=hFqswzMmnI4)
 
 Well aware that his image as an All-American Male made him an especially powerful messenger for the theme of the song and movie, Bruce used his podium moments to express his compassion and encourage acceptance.
 
-Bruce wasn’t finished exploring this theme. Well after he released “Streets of Philadelphia,” he recorded a song with the E Street Band called “,” which contains lyrics so similar to “Streets of Philadelphia” that it may actually be a derivative of an early version of it.
+Bruce wasn’t finished exploring this theme. Well after he released “Streets of Philadelphia,” he recorded a song with the E Street Band called “[Waiting on the End of the World](https://estreetshuffle.com/index.php/2018/06/28/roll-of-the-dice-waiting-on-the-end-of-the-world/),” which contains lyrics so similar to “Streets of Philadelphia” that it may actually be a derivative of an early version of it.
 
-[Waiting on the End of the World](https://estreetshuffle.com/index.php/2018/06/28/roll-of-the-dice-waiting-on-the-end-of-the-world/)
-
-[https://www.youtube.com/embed/9VdUYYw6wtA?feature=oembed](https://www.youtube.com/embed/9VdUYYw6wtA?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Waiting On The End Of The World](https://www.youtube.com/watch?v=9VdUYYw6wtA)
 
 A quarter-century on, “Streets of Philadelphia” is not only regarded as one of the greatest songs ever to grace a motion picture, it’s also enshrined in the Rock and Roll Hall of Fame’s 500 Songs That Shaped Rock and Roll. And while it may have marked the end of Bruce’s commercial popularity, it kick-started the next phase of his career and cemented his enduring critical popularity.
 
 With that kind of pedigree, one would think Bruce would perform it more frequently. Yet, “Streets of Philadelphia” remains a relative rarity outside of his acoustic tours. Why doesn’t Bruce play it more often? Perhaps because “Streets of Philadelphia” is too intimate and frail a song to translate well to a muscular band arrangement. I’d certainly argue in favor of his acoustic performances when selecting his best versions.
 
-[https://www.youtube.com/embed/B4QOJN5Ezoc?feature=oembed](https://www.youtube.com/embed/B4QOJN5Ezoc?feature=oembed)
+[Watch on Youtube: Bruce Springsteen ☜❤️☞ Streets of Philadelphia {Solo 🎸} Audio](https://www.youtube.com/watch?v=B4QOJN5Ezoc)
 
-[https://www.youtube.com/embed/5xHfdR5n99w?feature=oembed](https://www.youtube.com/embed/5xHfdR5n99w?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Streets of Philadelphia - Live Piano](https://www.youtube.com/watch?v=5xHfdR5n99w)
 
 Still, “Streets of Philadelphia” is a pretty sure bet when Bruce brings the band to Philly, as it remains a reliable way to please people who like to cheer for their town’s name.
 
-[https://www.youtube.com/embed/qmqYhkmaCIE?feature=oembed](https://www.youtube.com/embed/qmqYhkmaCIE?feature=oembed)
+[Watch on Youtube: Streets of Philadelphia - Springsteen - Philadelphia Sept 9, 2016](https://www.youtube.com/watch?v=qmqYhkmaCIE)
 
 So if “Streets of Philadelphia” is on your chase list, you’ve still got a pretty good chance of catching it live… as long as you make the trip to the City of Brotherly Love.
 
-August 1993
-(1994), (1995), (2003)
-January 27, 1994 (Los Angeles, CA)
-September 9, 2016 (Philadelphia, PA)
+**Streets of Philadelphia  
+**Recorded:** August 1993<br>
+**Released:** *Philadelphia* (1994), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
+**First performed:** January 27, 1994 (Los Angeles, CA)<br>
+**Last performed:** September 9, 2016 (Philadelphia, PA)
 
-**Streets of Philadelphia**
-**Recorded:**<br>
-
-**Released:** *Philadelphia* *Greatest Hits* *The Essential Bruce Springsteen*<br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our full index . New entries return in August!
-
-[here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries return in August!
 
 Editor's Note
 
-
-
-*Editor’s Note:**Our Roll of the Dice series goes on hiatus after today while I take some time off to relax, recharge, and reload the blog’s editorial queue. Roll of the Dice will resume in August–until then, consider checking out our to explore more of Bruce’s catalog, and have a great summer!*[album index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+***Editor’s Note:*** *Our Roll of the Dice series goes on hiatus after today while I take some time off to relax, recharge, and reload the blog’s editorial queue. Roll of the Dice will resume in August–until then, consider checking out our [album index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/) to explore more of Bruce’s catalog, and have a great summer!*

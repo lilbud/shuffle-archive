@@ -16,7 +16,7 @@
 
 **1987:** At his home studio in Holmdel, Bruce records two songs for [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/), neither of which will make it to the finished album. Both "Pretty Baby, Will You Be Mine" and "Things Ain't That Way" remain unreleased to this day.
 
-**1988**: Bruce and the E Street Band rehearse for the Tunnel of Love Express Tour at the Expo Theater in Fort Monmouth, New Jersey.
+**1988:** Bruce and the E Street Band rehearse for the Tunnel of Love Express Tour at the Expo Theater in Fort Monmouth, New Jersey.
 
 **1992:** Bruce announces his first new albums–two of them!–in five years. *Human Touch* and *Lucky Town* will be released to much anticipation in March. (Thanks to friend of the blog Andy Swanson for the scans!)
 
@@ -32,7 +32,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/01/41797036554_ee3b83f054_o.jpg)
 
-**2016**: A rare show postponement due to Winter Storm Jonas. This show is rescheduled to March 28th.
+**2016:** A rare show postponement due to Winter Storm Jonas. This show is rescheduled to March 28th.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/01/26036266794_68f79bc236_o.jpg)
 

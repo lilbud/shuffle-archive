@@ -51,8 +51,8 @@ Nor should they.
 
 Let fury have the hour. Anger can be power. Do you know that you can use it?
 
-**Clampdown  
-First performed:** April 2, 2014 (Pittsburgh, PA)  
+**Clampdown**
+First performed:** April 2, 2014 (Pittsburgh, PA)
 **Last performed:** April 23, 2026 (Sunrise, FL)<br>
 
 © September 10, 2021 / April 25, 2026

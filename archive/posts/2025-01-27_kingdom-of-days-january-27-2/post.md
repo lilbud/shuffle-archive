@@ -34,7 +34,7 @@
 
 [Watch on Youtube: Across the Border - Tokyo, January 27, 1997](https://www.youtube.com/watch?v=wIjVa0j4N68)
 
-**2009**: *Working on a Dream,* Bruce's sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.
+**2009:** *Working on a Dream,* Bruce's sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.
 
 [Watch on Youtube: Working On A Dream](https://www.youtube.com/playlist?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
 

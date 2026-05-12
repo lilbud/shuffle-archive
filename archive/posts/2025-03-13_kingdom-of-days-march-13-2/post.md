@@ -18,7 +18,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/03/1977-0313.jpg)
 
-**1988**: The Tunnel of Love Express Tour moves on to the Coliseum in Richfield, Ohio, where Kid Leo provides a unique introduction.
+**1988:** The Tunnel of Love Express Tour moves on to the Coliseum in Richfield, Ohio, where Kid Leo provides a unique introduction.
 
 [Watch Video Highlight](https://videopress.com/embed/qnlgh7uK)
 
@@ -42,7 +42,7 @@
 
 **2006:** Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park's Paramount Theater.
 
-**2009**: The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg's benefit.
+**2009:** The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg's benefit.
 
 **2016:** The River Tour (2016 Edition) moves on to the Oracle Arena in Oakland. For highlights, see my [*Where the Band Was*](https://estreetshuffle.com/index.php/2018/03/13/where-the-band-was-oakland-march-13-2016/) report for that show.
 

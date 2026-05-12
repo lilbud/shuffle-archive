@@ -1,22 +1,20 @@
-
-
-“[Shortly after Christmas in 1971], My father asked me to accompany him on a trip to Mexico and said he was planning to stop in Long Beach, where the Queen Mary was docked. This was the ocean liner he’d shipped out on for World War II and he wanted to see her one more time… In the spirit of healing old wounds I said yes and off we went.
-
-
-
-From the beginning, the joie de vivre in the car wasn’t what one might’ve hoped for. We were doing our best, but we still got under each other’s skin. Our stop at Long Beach flopped. I was a punk, grumbling my way through the whole Queen Mary tour. My dad’s journey on this ship was probably one of the most meaningful of his life and I couldn’t respect it. I’d pay anything now to be able to walk that ship with my father again. I would treasure every step, want to know every detail, hear every word and memory he’d share, but back then I was still too young to put the past away, too young to recognize my dad as a man and to honor his story.
-
-
-
-We headed south to Mexico, [and] crossed the border…”
-
-
-
-— Bruce Springsteen, Born to Run
+> “[Shortly after Christmas in 1971], My father asked me to accompany him on a trip to Mexico and said he was planning to stop in Long Beach, where the Queen Mary was docked. This was the ocean liner he'd shipped out on for World War II and he wanted to see her one more time… In the spirit of healing old wounds I said yes and off we went.
+> 
+> 
+> 
+> From the beginning, the joie de vivre in the car wasn't what one might've hoped for. We were doing our best, but we still got under each other's skin. Our stop at Long Beach flopped. I was a punk, grumbling my way through the whole Queen Mary tour. My dad's journey on this ship was probably one of the most meaningful of his life and I couldn't respect it. I'd pay anything now to be able to walk that ship with my father again. I would treasure every step, want to know every detail, hear every word and memory he'd share, but back then I was still too young to put the past away, too young to recognize my dad as a man and to honor his story.
+> 
+> 
+> 
+> We headed south to Mexico, [and] crossed the border…”
+> 
+> 
+> 
+> *— Bruce Springsteen, Born to Run*
 
 At first listen, “Border Guard” is an introspective, contemplative musing on the toll taken by an unforgiving job. But there’s more going on here than meets the ear, I think.
 
-[https://www.youtube.com/embed/pGHyIfG-fC8?feature=oembed](https://www.youtube.com/embed/pGHyIfG-fC8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen / Border Guard](https://www.youtube.com/watch?v=pGHyIfG-fC8)
 
 That recording is from April 1972, one of several songs recorded by Mike Appel and Jim Cretecos mere weeks before Bruce’s fateful meeting with John Hammond at CBS Records.
 
@@ -33,12 +31,8 @@ At six-and-a-half minutes long with no instrumental breaks, “Border Guard” w
 *Bless on the border guard so cold and alone*  
 *Bless on the child so far from his home*
 
-
-
 *Pity the border guard who feels like a woman to cry*  
 *Pity the border guard whose life guards the line*
-
-
 
 *A line is a funny thing, a border sometimes*  
 *A line is a hurting thing used only to divide*
@@ -48,13 +42,9 @@ If Bruce intended to hide a personal subtext, he tips his hand in that third cou
 *I pity the refugee whose home lies behind*  
 *I pity the border guard and his border line*
 
-
-
 *He keeps his machine gun nose pointed to the sky*  
 *The night time is his master*  
 *And you know the dawn light brings his captor*
-
-
 
 *I pity the border guard as he walks his own*  
 *The echo of his footsteps is all a friend would know*
@@ -73,12 +63,8 @@ And that empathy blooms into something more in the song’s final lines:
 *Yes, a line is a funny thing, a border sometimes*  
 *A line is a hurting thing used only to divide*
 
-
-
 *He who made the open plains and the world one and all*  
 *Could not have conceived of a barbed wire brace for the building of the wall*
-
-
 
 *And at night I keep my fire bright that I may be safe when I sleep*  
 *Till I wake on that wonderful morning when no more lines will there be*
@@ -87,13 +73,8 @@ That last couplet is heartbreaking: a son’s refusal to surrender to his father
 
 Bruce would revisit the California/Mexico border in song decades later, this time with a true focus on it. As for his reconciliation with his father, that would take a while yet. But his unreleased “Border Guard” reveals he was at least working his way towards it.
 
-April 1972
-
-
-
-**Border Guard**
-**Recorded:**<br>
-
+**Border Guard  
+**Recorded:** April 1972<br>
 **Never released**  
 **Never performed**
 

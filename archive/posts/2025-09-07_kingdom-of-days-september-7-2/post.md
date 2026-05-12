@@ -16,7 +16,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/08/1984-09-07.jpg)
 
-**1988**: At the annual MTV Video Music Awards, "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)" loses in all five of its nominated categories: Video of the Year (to INXS' "Need You Tonight/Mediate"); Best Male Video (to Prince's "U Got the Look"); Best Art Direction (to Squeeze's "Hourglass"); Best Editing (again to INXS); and Viewer's Choice (INXS).
+**1988:** At the annual MTV Video Music Awards, "[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)" loses in all five of its nominated categories: Video of the Year (to INXS' "Need You Tonight/Mediate"); Best Male Video (to Prince's "U Got the Look"); Best Art Direction (to Squeeze's "Hourglass"); Best Editing (again to INXS); and Viewer's Choice (INXS).
 
 [Watch on Youtube: Bruce Springsteen - Tunnel of Love (Official Video)](https://www.youtube.com/watch?v=M4K7XZGeHTE)
 

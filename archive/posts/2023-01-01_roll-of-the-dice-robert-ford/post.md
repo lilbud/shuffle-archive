@@ -1,14 +1,10 @@
-
-
-Let’s see: Bruce has , recorded , and namechecked him in still another unreleased demo.
-
-[written a song about Jesse James](https://estreetshuffle.com/index.php/2020/10/22/roll-of-the-dice-the-ballad-of-jesse-james/)[a second one handed down from the Old West era](http://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/)
+Let’s see: Bruce has [written a song about Jesse James](https://estreetshuffle.com/index.php/2020/10/22/roll-of-the-dice-the-ballad-of-jesse-james/), recorded [a second one handed down from the Old West era](https://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/), and namechecked him in still another unreleased demo.
 
 I think we can safely see that Bruce has a fascination with the man–so much so that he even wrote a song about the man who killed him.
 
 In the early spring of 1981, during what would become known as the Nebraska sessions, Bruce sat down with his guitar and a tape recorder in his home studio in Colts Neck, and he recorded the opening lines of what promised to be a great Western ballad.
 
-[https://www.youtube.com/embed/opRW2ENIKhg?feature=oembed](https://www.youtube.com/embed/opRW2ENIKhg?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Robert Ford / Jesse James : home demo 1](https://www.youtube.com/watch?v=opRW2ENIKhg)
 
 Although we only have the first two lines to consider, it’s not surprising that Bruce started from the notion of two brothers who we know will meet a tragic end.
 
@@ -19,7 +15,7 @@ Towards the end of the year (or possibly early 1982), Bruce returned to the song
 
 Take a listen, and then we’ll take it apart.
 
-[https://www.youtube.com/embed/JyrPP1fo7Cg?feature=oembed](https://www.youtube.com/embed/JyrPP1fo7Cg?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Jesse James #1](https://www.youtube.com/watch?v=JyrPP1fo7Cg)
 
 As he hinted at in the earlier demo above, “Robert Ford” is the tale of two brothers, in spirit if not in blood.
 
@@ -42,8 +38,6 @@ As the song continues, Ford gives way to outrage. Ford becomes a pariah, “bran
 *Everywhere across the land people came*  
 *To meet the man who shot Jesse James*
 
-
-
 *Branded, branded down among the cattle*  
 *He made his bed from a rock on the mountainside*  
 *Stood on the banks of his old world*  
@@ -53,44 +47,30 @@ The final verses are a bit hard to make out at times–the song was still unfini
 
 *He was killed when he lied of all of the ???*  
 *Who was just out to make himself a name*  
-**He lays in the blood dying in the sun**  
+***He lays in the blood dying in the sun***  
 *And in his mind, he dreamed my way again*
-
-
 
 *Well then he lay down ???*  
 *He spoke aloud as if trying every word*  
 *Well then I heard Jesse saying to himself*  
-**I’m sorry for what I’ve done**
+***I’m sorry for what I’ve done***
 
-are too close to a key couplet in “” to be coincidence:
-
-**Those lines**[Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)
-
-
+**Those lines** are too close to a key couplet in “[Outlaw Pete](https://estreetshuffle.com/index.php/2021/12/29/roll-of-the-dice-outlaw-pete/)” to be coincidence:
 
 *Dan smiled as he lay in his own blood dying in the sun*  
 *And whispered in Pete’s ear, “We cannot undo these things we’ve done.”*
 
 It may not have been a conscious recycling choice, but it had to have been at least a subconscious one. The imagery of Ford shooting James in the back, James dying in the sun, and the theme of repentance that comes too late–these are all key elements that obviously registered and resonated deeply with Bruce.
 
-Fascinatingly, even though we know “Robert Ford” never made it to , surviving records indicate that Bruce did record at least one take of a full-band arrangement with the E Street Band in April 1982. If so, it remains securely in the vault without even a hint of an escaped bootleg. Let’s hope we get to hear it someday when Bruce releases his next wave of outtakes.
+Fascinatingly, even though we know “Robert Ford” never made it to *Nebraska*, surviving records indicate that Bruce did record at least one take of a full-band arrangement with the E Street Band in April 1982. If so, it remains securely in the vault without even a hint of an escaped bootleg. Let’s hope we get to hear it someday when Bruce releases his next wave of outtakes.
 
-*Nebraska*
+**Bonus:** here’s one more demo take of “Robert Ford” — no lyrics in this one, though, only harmonies.
 
-here’s one more demo take of “Robert Ford” — no lyrics in this one, though, only harmonies.
-
-**Bonus:**
-
-[https://www.youtube.com/embed/-0wiyoQIBYg?feature=oembed](https://www.youtube.com/embed/-0wiyoQIBYg?feature=oembed)
-
-September 1981 – April 1982
-
-
+[Watch on Youtube: Bruce Springsteen Jesse James #2 harmonies](https://www.youtube.com/watch?v=-0wiyoQIBYg)
 
 **Robert Ford**  
-**Recorded:**<br>
+**Recorded:** September 1981 – April 1982<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

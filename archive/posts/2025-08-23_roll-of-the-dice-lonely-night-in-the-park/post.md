@@ -1,20 +1,16 @@
-
-
 When Sirius first announced its E Street Radio station, fans wondered if it would feature any rare or unheard songs, or if it would stick to released tracks and more mainstream bootleg recordings. We didn’t have to wait long to find out: shortly after the station debuted in 2005, this well-documented but never-heard (by me, at least!) song entered the rotation with absolutely no fanfare. To call me surprised is to put it mildly.
 
-I’d long wondered what this song sounded like. I knew it was an outtake from the sessions, and while there aren’t many of them, the few that exist are genuine gems, lush and romantic songs like “” and “”So Young and in Love.” So once I realized what I was listening to and got over my dumbfoundedness, I paid close attention, and…
-
-*Born to Run*[Linda, Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)
+I’d long wondered what this song sounded like. I knew it was an outtake from the *Born to Run* sessions, and while there aren’t many of them, the few that exist are genuine gems, lush and romantic songs like “[Linda, Let Me Be the One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)” and “”So Young and in Love.” So once I realized what I was listening to and got over my dumbfoundedness, I paid close attention, and…
 
 Well, let’s just say there’s a lot going on here.
 
 Maybe too much, in fact:
 
-[https://www.youtube.com/embed/CzlPd_PZVCM?feature=oembed](https://www.youtube.com/embed/CzlPd_PZVCM?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Lonely Night In The Park](https://www.youtube.com/watch?v=CzlPd_PZVCM)
 
 First, that introduction–it sounds like it’s lifted straight from John Mellencamp’s “I Need a Lover.” (Although that song was released three years after “Lonely Night in the Park” was recorded, so it’s either coincidence or a lift from rather than by Bruce.)
 
-[https://www.youtube.com/embed/uGPP2PbayJc?feature=oembed](https://www.youtube.com/embed/uGPP2PbayJc?feature=oembed)
+[Watch on Youtube: John Mellencamp - I Need A Lover (full version)](https://www.youtube.com/watch?v=uGPP2PbayJc)
 
 Then the lyrics kick in, and the scene is set at a topless bar:
 
@@ -42,13 +38,11 @@ Okay, now we’re cooking! Here comes the chorus, though:
 
 Okay, that’s a pretty silly and pointless chorus. And yet I haven’t been able to get that “lonely, lonely, lonely, lonely night” to stop looping in my head all morning, so, yeah.
 
-What’s next? Ooh, there’s a mini-bridge on the piano, and it sounds maddeningly familiar. Where have I heard before?
-
-*that*
+What’s next? Ooh, there’s a mini-bridge on the piano, and it sounds maddeningly familiar. Where have I heard *that* before?
 
 Oh yeah, here:
 
-[https://www.youtube.com/embed/-IiWtFY-vGE?start=46&amp;feature=oembed](https://www.youtube.com/embed/-IiWtFY-vGE?start=46&amp;feature=oembed)
+[Watch on Youtube: Day After Day (Remastered 2010)](https://www.youtube.com/watch?v=-IiWtFY-vGE)
 
 That song came out four years prior, so who knows if that was intentional not?
 
@@ -65,7 +59,7 @@ That must be funny, because Bruce laughs here.
 
 Wow, that sounds familiar too! Remember this classic?
 
-[https://www.youtube.com/embed/s2a2Nrw_6G0?start=29&amp;feature=oembed](https://www.youtube.com/embed/s2a2Nrw_6G0?start=29&amp;feature=oembed)
+[Watch on Youtube: Chuck Berry - Little Queenie](https://www.youtube.com/watch?v=s2a2Nrw_6G0)
 
 Knowing Bruce’s fondness for that song and its setlist appearances that year, I’m definitely chalking that up as a deliberate homage.
 
@@ -106,8 +100,6 @@ Bruce is really painting quite a picture with this song, isn’t he? Take us hom
 *Sitting on the picket, light by light, line by line*  
 *They got nothing left but time*
 
-
-
 *Lonely night in the park*  
 *Lonely night in the park*  
 *Lonely night in the park*  
@@ -117,11 +109,7 @@ And then out of the blue:
 
 *Hey little stranger, whatcha doing tonight?*
 
-I don’t know where came from, but I like it!
-
-*that*
-
-
+I don’t know where *that* came from, but I like it!
 
 *Lonely lonely lonely lonely night*  
 *Lonely lonely lonely lonely night*  
@@ -140,15 +128,8 @@ Seriously: this song is an absolute mess, but I love it. I can’t explain why s
 
 Lonely lonely lonely night…
 
-Feb-Apr, 1975
-
-
-
-**Lonely Night in the Park**
-**Recorded:**<br>
-
+**Lonely Night in the Park****Recorded:** Feb-Apr, 1975<br>
 **Never Released**  
 **Never Performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

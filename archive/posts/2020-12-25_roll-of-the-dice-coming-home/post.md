@@ -1,5 +1,3 @@
-
-
 Steel Mill played its last gig in the early weeks of 1971.
 
 Six months later (following a brief stint in the Sundance Blues Band), Bruce had formed his own eponymous band with Steel Mill holdovers Vini Lopez and Steve Van Zandt, and new members Garry Tallent and David Sancious.
@@ -14,7 +12,7 @@ Case in point: “Coming Home,” debuted by The Bruce Springsteen Band in the a
 
 Take a listen to the first known performance of “Coming Home,” from the band’s Richmond appearance (Steel Mill had made something of a second home in Richmond, Virginia) on October 23, 1971, and marvel at Bruce’s fleet-fingered guitar solo.
 
-[https://videopress.com/embed/xTCZDRHO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xTCZDRHO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/xTCZDRHO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 “Coming Home” made a couple more appearances that winter (that we know about, at least–few of those early set lists are documented), but it’s the remarkable studio recording that demands our close attention.
 
@@ -24,11 +22,9 @@ Only eight songs from those sessions circulate, but they are wonderfully clear d
 
 One of the final songs recorded at the March 14, 1972 rehearsal session was “Coming Home,” tighter and more lyrically evolved than the band’s earlier live performances. The recording lacks some of the frenetic energy of the ’71 performances, but it more than makes up for it in clarity. Sancious, in particular, makes his presence known here much more so than in the earlier performances.
 
-[https://videopress.com/embed/fBhdBSB6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fBhdBSB6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/fBhdBSB6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce wrote “Coming Home” at a time when the nation and his generation were inescapably influenced by the ongoing conflict in Vietnam, but while most of Bruce’s earlier war songs dripped with pathos, rage, or cynicism, “Coming Home” is much more subtle in its commentary–a listener encountering it for the first time today might mistake it for a ““-style road song.
-
-[Born to Be Wild](https://estreetshuffle.com/index.php/2020/05/20/cover-me-born-to-be-wild/)
+Bruce wrote “Coming Home” at a time when the nation and his generation were inescapably influenced by the ongoing conflict in Vietnam, but while most of Bruce’s earlier war songs dripped with pathos, rage, or cynicism, “Coming Home” is much more subtle in its commentary–a listener encountering it for the first time today might mistake it for a “[Born to Be Wild](https://estreetshuffle.com/index.php/2020/05/20/cover-me-born-to-be-wild/)“-style road song.
 
 Bruce’s narrator in “Coming Home” lives on the poor side of town. Looking for a life of adventure, he falls sway to the army’s recruitment pitch, and before long they put a rifle in his hand and ship him off to a foreign land.
 
@@ -38,8 +34,6 @@ Bruce’s narrator in “Coming Home” lives on the poor side of town. Looking 
 *First they show you the gun and then they show you the lie*  
 *Ah but things are gonna change*  
 *Things are changing every day*
-
-
 
 *I’m just a lone boy on the highway*  
 *I’ll try to make my own*  
@@ -56,8 +50,6 @@ By this point in Bruce’s young musical career, his songwriting was mature and 
 *Ah but things are gonna change*  
 *Things are changing every day*
 
-
-
 *Well I don’t wanna go back*  
 *I don’t think I can ever go back again*  
 *I don’t wanna go back*  
@@ -73,21 +65,12 @@ We never learn whether he makes it home, though–the song leaves our soldier wi
 
 While “Coming Home” never saw the light of day (officially), it wouldn’t be the last time Bruce would write about a returning Vietnam veteran.
 
-But in 1972, was still burning ten years down the road.
-
-[that story](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
-
-March 14, 1972
-
-October 23, 1971 (Richmond, VA)
-February 25, 1972 (Richmond, VA)
+But in 1972, [that story](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/) was still burning ten years down the road.
 
 **Coming Home**
-**Recorded:**<br>
-
+**Recorded:** March 14, 1972<br>
 **Never released**  
-**First performed:**<br>
-**Last performed:**<br>
+**First performed:** October 23, 1971 (Richmond, VA)<br>
+**Last performed:** February 25, 1972 (Richmond, VA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

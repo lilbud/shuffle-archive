@@ -26,7 +26,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/02/1977-0223.jpg)
 
-**1981**: The original River Tour makes a stop at The Omni in Atlanta for one night.
+**1981:** The original River Tour makes a stop at The Omni in Atlanta for one night.
 
 [Watch on Youtube: Hundreds Wait in Line for Bruce Springsteen concert Tickets in Atlanta (January 30, 1981)](https://www.youtube.com/watch?v=adlTiwV7I0Y)
 

@@ -28,7 +28,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/02/Birmingham_Post_Herald_Fri__Feb_13__1981_.jpg)
 
-**1990**: Bruce, Sting, Bruce Hornsby, and others attend and perform at a benefit for the Rainforest Foundation in Beverly Hills. Among the numbers Bruce performs: his only known cover of "Big Yellow Taxi."
+**1990:** Bruce, Sting, Bruce Hornsby, and others attend and perform at a benefit for the Rainforest Foundation in Beverly Hills. Among the numbers Bruce performs: his only known cover of "Big Yellow Taxi."
 
 After the show, Bruce, Sting, Don Henley, Herbie Hancock, Branford Marsalis, and Joe Walsh hit the China Club in Hollywood and jam on stage.
 

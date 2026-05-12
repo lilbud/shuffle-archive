@@ -1,18 +1,12 @@
-
-
-I think "Song to Orphans" is less about the call and more about the dangers, distractions, temptations, and seductions that lie in one's path when answering it. They're good album-mates, these two songs.
-
-— Ken Rosen (@Krosen) 
-
-[October 21, 2020](https://twitter.com/Krosen/status/1318917363803115520?ref_src=twsrc%5Etfw)
+> I think "Song to Orphans" is less about the call and more about the dangers, distractions, temptations, and seductions that lie in one's path when answering it. They're good album-mates, these two songs.
+> 
+> — Ken Rosen (@Krosen) [October 21, 2020](https://twitter.com/Krosen/status/1318917363803115520?ref_src=twsrc%5Etfw)
 
 
 
-Context matters. As of a few minutes ago, we finally have a fully realized official E Street Band recording of “Song for Orphans” via Bruce’s just-released album. And while the song is still as lyrically dense as ever, the subtext that I alluded to in the original essay below (about the temptations facing an aspiring rock star) seem much less sub- and much more primary. As I mused in my Twitter conversation with Anthony above, Bruce seems to pair and place “” and “Song for Orphans” deliberately, as a look back (on multiple levels) to the beginning of his journey from his current location far, far up the road. I’ll let my original essay stand for now; perhaps someday I’ll revise it to reflect the tremendous modern version. But for now, it feels like honoring the spirit of the album to preserve the past alongside the present.
+**Updated 10/23/20:** Context matters. As of a few minutes ago, we finally have a fully realized official E Street Band recording of “Song for Orphans” via Bruce’s just-released [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/) album. And while the song is still as lyrically dense as ever, the subtext that I alluded to in the original essay below (about the temptations facing an aspiring rock star) seem much less sub- and much more primary. As I mused in my Twitter conversation with Anthony above, Bruce seems to pair and place “[If I Was The Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)” and “Song for Orphans” deliberately, as a look back (on multiple levels) to the beginning of his journey from his current location far, far up the road. I’ll let my original essay stand for now; perhaps someday I’ll revise it to reflect the tremendous modern version. But for now, it feels like honoring the spirit of the album to preserve the past alongside the present.
 
-**Updated 10/23/20:**[](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*Letter to You*[If I Was The Priest](http://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)
-
-[https://www.youtube.com/embed/ib96-ytmLDg?feature=oembed](https://www.youtube.com/embed/ib96-ytmLDg?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Song For Orphans (Official Audio)](https://www.youtube.com/watch?v=ib96-ytmLDg)
 
 ---
 
@@ -21,41 +15,29 @@ Deep into the penultimate show of the Devils & Dust Tour in Trenton’s Sovereig
 
 Instead of playing his usual nightly rendition of “The Hitter,” Bruce informed the audience that they were about to hear an outtake from (he thought) his very first album, one that had never been released in any form, not even on bonus discs, box sets, or b-sides.
 
-“You’re not gonna know this bastard,” he warned, and then realizing what had brought the song back to top-of-mind, he added, “Or of you may. Some of you actually may. I that in some of you.” (The following night, he’d explain which “some of you” he was talking about: “those of you who know more about me than I do about myself.”)
-
-*some**like*
+“You’re not gonna know this bastard,” he warned, and then realizing what had brought the song back to top-of-mind, he added, “Or *some* of you may. Some of you actually may. I *like* that in some of you.” (The following night, he’d explain which “some of you” he was talking about: “those of you who know more about me than I do about myself.”)
 
 What followed was Bruce’s first performance of “Song for Orphans” in 32 years.
 
-[https://www.youtube.com/embed/ATM2S2dytPc?feature=oembed](https://www.youtube.com/embed/ATM2S2dytPc?feature=oembed)
+[Watch on Youtube: Bruce Springsteen "Song For Orphans" Trenton, NJ November 22, 2005](https://www.youtube.com/watch?v=ATM2S2dytPc)
 
 If you looked around the room during the performance, you’d have seen jaws drop; if not for Bruce’s playing, you could have heard pins drop.
 
-What brought this forgotten song back to the stage? Apparently, Bruce had been listening to the brand new Sirius satellite radio station, at the exact moment the station was playing the song off of an old bootleg. Bruce was immediately taken by his ancient composition and decided to reclaim it.
+What brought this forgotten song back to the stage? Apparently, Bruce had been listening to the brand new Sirius satellite radio station, *E Street Radio,* at the exact moment the station was playing the song off of an old bootleg. Bruce was immediately taken by his ancient composition and decided to reclaim it.
 
-*E Street Radio,*
+As he often does, he did a bit more than resurrect it–he also re-arranged it, massaging the melody of the verses into something less dirge-y and more [Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)-y and adding piano accompaniment in the form of Alan Fitzgerald. The result was something fresh and new even for hardcore fans well familiar with the song from decades-old bootlegs.
 
-As he often does, he did a bit more than resurrect it–he also re-arranged it, massaging the melody of the verses into something less dirge-y and more -y and adding piano accompaniment in the form of Alan Fitzgerald. The result was something fresh and new even for hardcore fans well familiar with the song from decades-old bootlegs.
+As for the original song, “Song for Orphans” (sometimes referred to as “Song *to* Orphans” or “Song *of the* Orphans”–Bruce seems to have been prepositionally conflicted) does indeed date back to the *Greetings from Asbury Park* era, but Bruce may be mis-remembering it as an outtake from that album.
 
-[Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
-
-As for the original song, “Song for Orphans” (sometimes referred to as “Song Orphans” or “Song Orphans”–Bruce seems to have been prepositionally conflicted) does indeed date back to the era, but Bruce may be mis-remembering it as an outtake from that album.
-
-*to* *of the* *Greetings from Asbury Park*
-
-While he was certainly performing it live prior to his first issue on Columbia Records, all evidence indicates that he didn’t record a demo of it until a month after hit store shelves, making it a candidate for inclusion on instead. Surviving records indicate Bruce was considering it for inclusion on as well, so the song was clearly not one that Bruce intended to abandon easily.
-
-*Greetings**The Wild, The Innocent & The E Street Shuffle**Born to Run*
+While he was certainly performing it live prior to his first issue on Columbia Records, all evidence indicates that he didn’t record a demo of it until a month after *Greetings* hit store shelves, making it a candidate for inclusion on *The Wild, The Innocent & The E Street Shuffle* instead. Surviving records indicate Bruce was considering it for inclusion on *Born to Run* as well, so the song was clearly not one that Bruce intended to abandon easily.
 
 Take a listen to that first recording below–lyrically it’s virtually identical to Bruce’s 2005 version, except for a head-scratching change or two, and interestingly, the chorus uses the same melody as the verses, even though Bruce had already performed the song live using the chorus melody Bruce employed in the 2005 version above.
 
-[https://www.youtube.com/embed/VNxR29-SQlo?feature=oembed](https://www.youtube.com/embed/VNxR29-SQlo?feature=oembed)
+[Watch on Youtube: BRUCE SPRINGSTEEN - song of the orphans](https://www.youtube.com/watch?v=VNxR29-SQlo)
 
 Honestly, if I place “Song for Orphans” in historical context, I can’t second-guess Bruce’s decision to not release it. By 1973, Bruce had written so many musical street scenes populated with colorful characters amidst a drug-riddled backdrop that he was at risk of inventing a genre.
 
-Stylistically, “Song for Orphans” falls somewhere in between the gritty realism of “” and the more accessible “” without surpassing either of those pre-label gems (which makes sense, since evidence indicates that “Song for Orphans” was written in mid-1972, in between those two songs). On vinyl, Bruce already had similar ground covered in “,” and by the end of that year, he’d put the icing on the cake with “.” Although records indicate “Song for Orphans” was at least temporarily considered for inclusion on , it would have been fruitless to try to top “Incident,” and did he really need to include a genre song on three consecutive albums? I’d argue no.
-
-[Hollywood Kids](http://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)[Santa Ana](http://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)[Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)*Born to Run*
+Stylistically, “Song for Orphans” falls somewhere in between the gritty realism of “[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)” and the more accessible “[Santa Ana](https://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)” without surpassing either of those pre-label gems (which makes sense, since evidence indicates that “Song for Orphans” was written in mid-1972, in between those two songs). On vinyl, Bruce already had similar ground covered in “[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/),” and by the end of that year, he’d put the icing on the cake with “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).” Although records indicate “Song for Orphans” was at least temporarily considered for inclusion on *Born to Run*, it would have been fruitless to try to top “Incident,” and did he really need to include a genre song on three consecutive albums? I’d argue no.
 
 But “Song for Orphans” is a beautiful song nonetheless (especially in its resurrected 2005 form), ornamented in fine if typical early Springsteen style:
 
@@ -103,8 +85,6 @@ That subtlety is short-lived, however. Bruce ends the song on an even more bruta
 *And orphans abandoned on silver mountains are jumped in celestial alleyways*  
 *Wait for that old tramp Dog Man Moses ’cause he takes in all the strays*
 
-
-
 *He told me, “don’t grow on empty legends, boy, or lonely cradle songs*  
 *‘Cause Billy the Kid was just a bowery boy who made a living twirlin’ his guns*  
 *And this night she’ll be long and lanky, and she’ll speak in a mother tongue”*  
@@ -114,17 +94,12 @@ It’s a fascinating song, isn’t it? But like I wrote earlier, it just doesn�
 
 That’s not to say the song doesn’t translate well to the stage, though. Besides the pair of 2005 performances, we have a couple contemporaneous recordings from 1973, one of which hails from a live show; through it, we can hear the difference that a live audience makes on Bruce’s delivery. He’s in full-on dramatic storytelling mode here, with Danny Federici adding color in accompaniment. In my opinion, this performance from Max’s Kansas City on January 31, 1973 is the definitive performance of the song.
 
-[https://www.youtube.com/embed/voGU6hwjmiw?feature=oembed](https://www.youtube.com/embed/voGU6hwjmiw?feature=oembed)
-
-February 19-20, 1973 (solo), November 2019 (band)
-(2020)
-December 7, 1972 (New York City, NY)
-November 22, 2005 (Trenton, NJ)
+[Watch on Youtube: 9. Song To The Orphans (Bruce Springsteen - Live In New York City 1-31-1973)](https://www.youtube.com/watch?v=voGU6hwjmiw)
 
 **Song for Orphans**  
-**Recorded:**<br>
-**Released:** *Letter to You* <br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** February 19-20, 1973 (solo), November 2019 (band)<br>
+**Released:** *Letter to You* (2020)<br>
+**First performed:** December 7, 1972 (New York City, NY)<br>
+**Last performed:** November 22, 2005 (Trenton, NJ)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

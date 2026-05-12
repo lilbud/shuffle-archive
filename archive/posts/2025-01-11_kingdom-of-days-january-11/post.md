@@ -28,7 +28,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/2001-01-11b.png)
 
-**2009**: At the 66th Annual Golden Globes, Bruce wins the award for Best Original Song for "[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)" (and wishes Clarence a happy birthday in his acceptance speech).
+**2009:** At the 66th Annual Golden Globes, Bruce wins the award for Best Original Song for "[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)" (and wishes Clarence a happy birthday in his acceptance speech).
 
 [Watch on Youtube: Bruce Springsteen Wins Best Original Song Motion Picture - Golden Globes 2009](https://www.youtube.com/watch?v=uEbhqOPKHdo)
 

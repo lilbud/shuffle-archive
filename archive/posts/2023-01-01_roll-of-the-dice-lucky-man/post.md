@@ -1,22 +1,14 @@
-
-
-To the degree that fans think about “Lucky Man” at all (after all, it was a 1987 B-side that didn’t see an official album release for more than a decade–and even then it was buried as the very last track on Disc 3 of ), we tend to fall on two sides: those who think the title is sincere and those who think it’s ironic.
-
-*Tracks*
+To the degree that fans think about “Lucky Man” at all (after all, it was a 1987 B-side that didn’t see an official album release for more than a decade–and even then it was buried as the very last track on Disc 3 of *Tracks*), we tend to fall on two sides: those who think the title is sincere and those who think it’s ironic.
 
 Consider me on Team Sincere.
 
-Recorded late in the recording sessions, Bruce’s songwriting had already taken a turn from the sweet (“,” “,” “,” and “” were all recorded near the outset) to the sinister (“” and “” were the last to be recorded at the end).
-
-[https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*[Walk Like a Man](http://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)[Two for the Road](https://estreetshuffle.com/index.php/2020/06/30/roll-of-the-dice-two-for-the-road/)[The Honeymooners](http://estreetshuffle.com/index.php/2018/04/04/roll-of-the-dice-the-honeymooners/)[The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)[One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)
+Recorded late in the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)recording sessions, Bruce’s songwriting had already taken a turn from the sweet (“[Walk Like a Man](https://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/),” “[Two for the Road](https://estreetshuffle.com/index.php/2020/06/30/roll-of-the-dice-two-for-the-road/),” “[The Honeymooners](https://estreetshuffle.com/index.php/2018/04/04/roll-of-the-dice-the-honeymooners/),” and “[The Wish](https://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)” were all recorded near the outset) to the sinister (“[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)” and “[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)” were the last to be recorded at the end).
 
 Bruce will probably never make it clear exactly what was going on between him and first wife Julianne Phillips at the time, but the darker turn in his songwriting certainly suggests that something was accelerating. The idea of a rootless, itinerant driver savoring his freedom from romantic ties must have seemed like a pretty potent escape fantasy.
 
-[https://www.youtube.com/embed/eRcqy9kbqmo?feature=oembed](https://www.youtube.com/embed/eRcqy9kbqmo?feature=oembed)
+[Watch on Youtube: Lucky Man (Single B-Side - 1987)](https://www.youtube.com/watch?v=eRcqy9kbqmo)
 
-“Lucky Man” has a lot in common with “” a song Bruce would record decades later (and another song that divides fans in their interpretations). But there’s a key difference between the two songs, besides the obvious one of their instrumentation (“Lucky Man” is lean and bass-driven; “Hitch-Hikin'” is lush and orchestral).
-
-[Hitch Hikin’,](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)
+“Lucky Man” has a lot in common with “[Hitch Hikin’,](https://estreetshuffle.com/index.php/2021/05/22/roll-of-the-dice-hitch-hikin/)” a song Bruce would record decades later (and another song that divides fans in their interpretations). But there’s a key difference between the two songs, besides the obvious one of their instrumentation (“Lucky Man” is lean and bass-driven; “Hitch-Hikin'” is lush and orchestral).
 
 In “Hitch Hikin’,” the narrator truly savors the joy of life on the road, taking in and sharing every detail of his temporary connections and passing scenery; in “Lucky Man,” by contrast, our narrator seems fixated on what’s behind him rather than in front of him.
 
@@ -34,17 +26,11 @@ Listening to the lyrics, Bruce instantly conveys the song’s conceit in three s
 *She looked in my palm, looked me in the eye*  
 *And said “You’re a lucky man”*
 
-
-
 *“Some folks got fortune, some got eyes of blue*  
 *What you got will always see you through*  
 *You’re a lucky man”*
 
-Fortune tellers notoriously tell their customers what they want to hear, but Bruce is telling us something else as well: the gypsy’s fortune implies that our driver does have money or good looks, the typical things that people believe will take them far. What is that thing he’s got that he can always depend on to carry him through life? His car.
-
-*not*
-
-
+Fortune tellers notoriously tell their customers what they want to hear, but Bruce is telling us something else as well: the gypsy’s fortune implies that our driver does *not* have money or good looks, the typical things that people believe will take them far. What is that thing he’s got that he can always depend on to carry him through life? His car.
 
 *Pa went from the army to the factory to the killin’ yard*  
 *I make my living with my hands behind the wheel of this car*  
@@ -69,9 +55,7 @@ What’s he relieved about? Let’s keep listening:
 
 This is the part, I think, that causes controversy among fans. There are those of us who think the narrator simply had a fear of commitment and fled town rather than brave an adult romantic relationship. In other words, this verse reveals that our hero is severely lacking in self-awareness and acting against his own best interests.
 
-Perhaps that’s so. But some people are born to run. They prefer to experience life alone, to see as much of the world and meet as many of its people as possible, and they avoid any kind of encumbrance that would hinder them. I believe the narrator of “Lucky Man” falls into this category. He’s self-aware–enough to have realized that the relationship he’d settled into threatened the life he loved. (The life of a rock star is not unlike the life of a travelling salesman in that regard, a comparison that is perhaps not quite coincidental.)
-
-*genuinely* *very*
+Perhaps that’s so. But some people are *genuinely* born to run. They prefer to experience life alone, to see as much of the world and meet as many of its people as possible, and they avoid any kind of encumbrance that would hinder them. I believe the narrator of “Lucky Man” falls into this category. He’s *very* self-aware–enough to have realized that the relationship he’d settled into threatened the life he loved. (The life of a rock star is not unlike the life of a travelling salesman in that regard, a comparison that is perhaps not quite coincidental.)
 
 And so he left in an act of courage rather than cowardice. Given the timing of the song’s recording, it’s not a stretch to imagine that Bruce fantasized about a similar course of action. (Bruce was so taken with “Lucky Man” that right up until the end of the recording sessions, not only was it slated to be on the album, it held the anchor spot that would eventually be given to the song that displaced it altogether: “Tunnel of Love.”)
 
@@ -80,11 +64,7 @@ The final lines of the song are strikingly familiar:
 *I don’t miss no girl, I don’t miss no home*  
 *He travels fastest who travels alone*
 
-Bruce uses very similar words to very different ends in “” another song from the Tunnel of Love sessions:
-
-[Valentine’s Day,](http://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)
-
-
+Bruce uses very similar words to very different ends in “[Valentine’s Day,](https://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)” another song from the Tunnel of Love sessions:
 
 *They say he travels fastest who travels alone*  
 *But tonight I miss my girl mister tonight I miss my home*
@@ -103,14 +83,9 @@ Perhaps he’ll spend the rest of his life alone, or maybe the one he’d settle
 
 Especially at that moment, Bruce probably very much needed to believe that.
 
-April 4, 1987
-(single B-side, 1987), (1998)
-
-**Lucky Man**
-**Recorded:**<br>
-
-**Released:***Brilliant Disguise* *Tracks*<br>
+**Lucky Man  
+**Recorded:** April 4, 1987<br>
+**Released:** *Brilliant Disguise* (single B-side, 1987), *Tracks* (1998)<br>
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

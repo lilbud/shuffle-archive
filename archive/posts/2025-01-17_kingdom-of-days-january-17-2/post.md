@@ -6,7 +6,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/01/Richmond_Times_Dispatch_Thu__Jan_24__1985_.jpg)
 
-**1990**: At the Rock and Roll Hall of Fame induction ceremony at New York's Waldorf-Astoria Hotel, Bruce joins the all-star jam, trading lead vocals with John Fogerty on "[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)."
+**1990:** At the Rock and Roll Hall of Fame induction ceremony at New York's Waldorf-Astoria Hotel, Bruce joins the all-star jam, trading lead vocals with John Fogerty on "[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)."
 
 [Watch Video Highlight](https://videopress.com/embed/xqFLtRiw)
 

@@ -158,7 +158,7 @@ Believe it or not, though, the first time Bruce played an acoustic "Hungry Heart
 
 
 
-**Bonus #2**: If you listened to that 2005 clip above and wondered "Wolfgang who?" there's a reason why Bruce chose that song for that occasion.
+**Bonus #2:** If you listened to that 2005 clip above and wondered "Wolfgang who?" there's a reason why Bruce chose that song for that occasion.
 
 In one of his stranger career moves, Bruce decided to shoot an official video for "Hungry Heart" fifteen years after it was released as a single. Stranger still, instead of recording it with the E Street Band, he joined German rocker and friend Wolfgang Niedecken's Leopardefellband instead.
 

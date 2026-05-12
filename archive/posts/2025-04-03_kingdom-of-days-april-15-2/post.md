@@ -126,7 +126,7 @@ At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on 
 
 Bruce joins Rosanne Cash on stage at Duke University for a live performance of their duet, “.”
 
-**2010:** [Sea of Heartbreak](http://estreetshuffle.com/index.php/2018/01/12/meeting-across-the-river-bruce-springsteen-and-rosanne-cash/)  
+**2010:** [Sea of Heartbreak](http://estreetshuffle.com/index.php/2018/01/12/meeting-across-the-river-bruce-springsteen-and-rosanne-cash/)
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2010-04-15.jpg?resize=758%2C382&amp;ssl=1)
 
 

@@ -1,36 +1,30 @@
-
-
 “Hearts of Stone” is a hard song to write about.
 
 In part, that’s due to its provenance: there are two very different official studio versions out there, and each can lay claim to being the original Springsteen studio recording.
 
 And also, neither can.
 
-Bruce first recorded “Hearts of Stone” with the E Street Band during the sessions in a less adorned take (Clarence Clemons was the only horn player present) than would ever see official light of day. Upon deeming it unsuitable for the album that was taking shape, Bruce donated the track to his friend Southside Johnny Lyon.
+Bruce first recorded “Hearts of Stone” with the E Street Band during the *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*sessions in a less adorned take (Clarence Clemons was the only horn player present) than would ever see official light of day. Upon deeming it unsuitable for the album that was taking shape, Bruce donated the track to his friend Southside Johnny Lyon.
 
-[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)
-
-Not the song, mind you, but .
-
-*the entire studio track*
+Not the song, mind you, but *the entire studio track*.
 
 The version of “Hearts of Stone” that is widely considered to be one of the finest tracks ever recorded by Southside Johnny and The Asbury Jukes is in reality a performance by Southside Johnny and the E Street Band.
 
-[https://www.youtube.com/embed/6Cqo8LOPDE0?feature=oembed](https://www.youtube.com/embed/6Cqo8LOPDE0?feature=oembed)
+[Watch on Youtube: Hearts of Stone (2013 Remaster)](https://www.youtube.com/watch?v=6Cqo8LOPDE0)
 
 Steven Van Zandt produced that track, subtly layering The Miami Horns beneath the band, and swapping out Bruce’s lead vocal for Southside’s.
 
 And oh, what a vocal! I’m nothing approaching a Southside scholar, but if there’s a more tender, emotional, heartbreaking vocal performance by Lyon anywhere on record, I haven’t heard it.
 
-Lyon’s performance (released as the title track to his seminal 1978 album) was so outstanding that there was really no point in releasing Springsteen’s own version–at least not until Bruce curated the collection of outtakes that would comprise his 1998 box set, .
-
-*Tracks*
+Lyon’s performance (released as the title track to his seminal 1978 album) was so outstanding that there was really no point in releasing Springsteen’s own version–at least not until Bruce curated the collection of outtakes that would comprise his 1998 box set, *Tracks*.
 
 Like Southside and Stevie twenty years earlier, Bruce added a modern horn section to his original recording, with Ed Manion and Richie “La Bamba” Rosenberg having the distinction of performing on both the 1978 and 1998 tracks. The horns are more pronounced in the later version–particularly underneath Clarence’s saxophone solo–but we can still easily discern the identical underlying band recording.
 
-[https://www.youtube.com/embed/jnsi57O3V1o?feature=oembed](https://www.youtube.com/embed/jnsi57O3V1o?feature=oembed)
+[Watch on Youtube: Hearts Of Stone (Studio Outtake - 1977)](https://www.youtube.com/watch?v=jnsi57O3V1o)
 
 For years, fans have debated over which version is the superior one, and it inevitably comes down to a comparison of the lead vocals. Bruce’s haunted, impassioned version stands up well next to Southside’s. So similar are their versions, in fact, that one could mix the two seamlessly to create a faux duet–as one enterprising fan unofficially did. Take a listen below.
+
+[https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3?_=4](https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3?_=4)
 
 <https://estreetshuffle.com/wp-content/uploads/2022/09/01-Hearts-of-Stone.mp3>
 
@@ -48,8 +42,6 @@ But DNA typing isn’t the only challenge we’re presented with when analyzing 
 *Well don’t you know they can’t be that way anymore*  
 *But don’t worry baby*
 
-
-
 *But I can’t talk now, I’m not alone*  
 *So put your ear close to the phone*  
 *‘Cause this is the last dance*  
@@ -59,9 +51,7 @@ We’re given to think that this is not a young couple. The unnamed, offscreen w
 
 She’s lost in the past and in her tears, unable to move forward from their affair, and all Bruce’s narrator has to offer is a “sorry, but that’s the way it is” and a blithely clever Beach Boys callback–even though for the woman at least, it seems that things most assuredly won’t turn out alright.
 
-Even when she just wants to hear his voice, our narrator warns her: 
-
-*Don’t call me again. This is the last time we’ll talk.*
+Even when she just wants to hear his voice, our narrator warns her: *Don’t call me again. This is the last time we’ll talk.*
 
 Hearts of stone, indeed.
 
@@ -81,9 +71,7 @@ I imagine she takes very little comfort from that, but if there’s any to be fo
 
 “Hearts of Stone” doesn’t resolve. There’s no ending or epilogue to be found, happy or otherwise. We’re left at the moment of peak heartache for both participants.
 
-This song is about the armor it requires to move on from a situation that was very likely destined for a painful conclusion from the start. It may be cold in parts, but it’s also honest. Some fans and critics have called it too heartfelt for the dour but I’d argue the reverse: Bruce’s fourth album is a collection of songs rooted in resistance, persistence, and defiance. “Hearts of Stone” delivers a much simpler and starker message: 
-
-*Darkness,* *It’s over.*
+This song is about the armor it requires to move on from a situation that was very likely destined for a painful conclusion from the start. It may be cold in parts, but it’s also honest. Some fans and critics have called it too heartfelt for the dour *Darkness,* but I’d argue the reverse: Bruce’s fourth album is a collection of songs rooted in resistance, persistence, and defiance. “Hearts of Stone” delivers a much simpler and starker message: *It’s over.*
 
 ---
 
@@ -94,36 +82,30 @@ Unfortunately, that debut performance kind of sucked.
 
 The blame can’t be placed with Bruce, though: the fault lies with Southside, who so thoroughly and completely forgets the lyrics that it’s painful to listen to. (I suppose we could blame Bruce for not coming to his buddy’s rescue sooner.)
 
+[https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3?_=5)
+
 <https://estreetshuffle.com/wp-content/uploads/2022/09/1988-11-26-Hearts-of-Stone.mp3>
 
 It would take a full quarter-century after that before Bruce would attempt “Hearts of Stone” on his own. That moment came during a surprise pre-show in Limerick during the Wrecking Ball Tour, when Bruce thrilled early-arriving fans with his first-ever live solo performance (acoustic, too!) of “Hearts of Stone.”
 
-[https://www.youtube.com/embed/qqK_Qg3xoM4?feature=oembed](https://www.youtube.com/embed/qqK_Qg3xoM4?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Hearts Of Stone (HD) Limerick, Ireland 2013-07-16](https://www.youtube.com/watch?v=qqK_Qg3xoM4)
 
 It was a thrilling moment for those in the know enough to understand the history being made, but it lacked the all-important sax solo. Bruce rectified that when he played it for the second time ever, at Light of Day 2014, with Joe Grushecky and The Houserockers as his backing band.
 
-[https://www.youtube.com/embed/2i4J2jEJzkU?feature=oembed](https://www.youtube.com/embed/2i4J2jEJzkU?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Hearts of stone (Light of day benefit 2014)](https://www.youtube.com/watch?v=2i4J2jEJzkU)
 
 Bruce gave “Hearts of Stone” its E Street stage debut the following year on the High Hopes Tour, with a pair of outings in Sunrise and Uncasville, with Ed Manion (who played on both original studio recordings) doing the honors on the saxophone.
 
-[https://www.youtube.com/embed/J12DaVxOzzM?feature=oembed](https://www.youtube.com/embed/J12DaVxOzzM?feature=oembed)
+[Watch on Youtube: Hearts of Stone - Springsteen - BB&T Arena Sunrise, FL - April 29, 2014](https://www.youtube.com/watch?v=J12DaVxOzzM)
 
 Since then, “Hearts of Stone” has made a few more appearances at benefit performances with Joe Grushecky, but it missed the last E Street Band tour entirely. It’s one of the songs I’m hoping to hear again at least once more on the next tour, though, because it’s too strong a song to stay unsung.
 
-October 14, 1977, 1998
-(1978) (Southside Johnny vocal); (1998) (Bruce Springsteen vocal)
-November 26, 1988 (San Francisco, CA)
-January 17, 2015 (Asbury Park, NJ)
+**Hearts of Stone  
+**Recorded:** October 14, 1977, 1998<br>
+**Released:** *Hearts of Stone* (1978) (Southside Johnny vocal); *Tracks* (1998) (Bruce Springsteen vocal)<br>
+**First performed:** November 26, 1988 (San Francisco, CA)<br>
+**Last performed:** January 17, 2015 (Asbury Park, NJ)
 
-**Hearts of Stone**
-**Recorded:**<br>
-
-**Released:** *Hearts of Stone* *Tracks* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
 (Thanks to friend of the blog Joseph Richardson for the setting me straight on the lead guitarist on the Southside version)

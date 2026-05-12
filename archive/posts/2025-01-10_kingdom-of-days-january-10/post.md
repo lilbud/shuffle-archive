@@ -30,7 +30,7 @@ That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/01/2014-01-10-Interview-on-E-Street-Radio-January-10-2014-65-minutes.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/01/2014-01-10-Interview-on-E-Street-Radio-January-10-2014-65-minutes.mp3?_=2)
 
-**2017**: Bob Santelli interviews Bruce on stage at Monmouth University.
+**2017:** Bob Santelli interviews Bruce on stage at Monmouth University.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/01/santelli17.jpg)
 

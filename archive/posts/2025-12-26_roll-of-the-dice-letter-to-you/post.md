@@ -1,5 +1,3 @@
-
-
 I had to completely re-write this essay.
 
 I had it written, prepped and ready to go before the holidays, but I dreaded publishing it. So I punted, hoping I’d feel better about it in a week or two. Or at least less guilty.
@@ -10,15 +8,11 @@ When “Letter to You” debuted as the lead single and title track for Bruce’
 
 “Letter to You” became the first Springsteen track since “Cover Me” to leave me stone cold.
 
-[https://www.youtube.com/embed/4wtHDwDzVtQ?feature=oembed](https://www.youtube.com/embed/4wtHDwDzVtQ?feature=oembed)
+[Watch on Youtube: Letter To You](https://www.youtube.com/watch?v=4wtHDwDzVtQ)
 
-I that realization. And I hated even more having to confess it in writing–especially because:
+I *hated* that realization. And I hated even more having to confess it in writing–especially because:
 
-*hated*
-
-a) I’m incredibly grateful to have new music from Bruce at all right now
-
-*any*
+a) I’m incredibly grateful to have *any* new music from Bruce at all right now
 
 b) I’m genuinely moved by the sentiment he conveys in the song
 
@@ -26,9 +20,7 @@ c) I enjoy the album–it’s just this one track I don’t like. The lazy rhyme
 
 Yeah, I wasn’t kind in my original essay.
 
-But then I caught Bruce’s winter solstice appearance on where he played an acoustic arrangement of “Letter to You.”
-
-*Stand With Teachers,*
+But then I caught Bruce’s winter solstice appearance on *Stand With Teachers,* where he played an acoustic arrangement of “Letter to You.”
 
 And I fell instantly in love.
 
@@ -42,29 +34,19 @@ So I went back and rewrote this essay through a much more appreciative lens, and
 
 But I’m gonna need you to indulge me in order to make this work:
 
-From this point forward, I’m considering “Letter to You” to be an intimate solo acoustic song, not a full-band rocker. To me, Bruce’s performance is the definitive one, and the album track is the alternative version–it’s interesting, but I don’t need to ever hear it performed again that way.
-
-*Stand Up for Heroes*
+From this point forward, I’m considering “Letter to You” to be an intimate solo acoustic song, not a full-band rocker. To me, Bruce’s *Stand Up for Heroes* performance is the definitive one, and the album track is the alternative version–it’s interesting, but I don’t need to ever hear it performed again that way.
 
 Please humor me.
 
 Let’s take a listen (acoustic version!) so we can appreciate Bruce’s heartfelt lyrics together. (Skip to 1:38 to bypass the dirty joke.)
 
-[https://videopress.com/embed/Cor6CHI8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Cor6CHI8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Cor6CHI8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-It’s actually a challenge to analyze most of the new songs on not because they’re laden with metaphor and symbolism, but for the exact opposite reason: Bruce writes so straightforwardly on this album and draws so much from his personal history that the songs call more for annotation than analysis.
+It’s actually a challenge to analyze most of the new songs on *[Letter to You](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)—*not because they’re laden with metaphor and symbolism, but for the exact opposite reason: Bruce writes so straightforwardly on this album and draws so much from his personal history that the songs call more for annotation than analysis.
 
-*—*[Letter to You](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)
+“Letter to You,” the album’s title track, barely even calls for that. The word *summational* can be overused in music journalism and criticism (present blog included), but it truly applies here. Heck, it almost sounds *final.*
 
-“Letter to You,” the album’s title track, barely even calls for that. The word can be overused in music journalism and criticism (present blog included), but it truly applies here. Heck, it almost sounds 
-
-*summational**final.*
-
-If “Letter to You” were to be the last song Bruce ever wrote, it would be a fitting period at the end of a long-running story. As Bruce readily admitted in promotional interviews (not that we needed him to, so obvious is the song’s meaning), are the his letter is addressed to, and that letter is his metaphor for his life’s work.
-
-*we* *you*
-
-
+If “Letter to You” were to be the last song Bruce ever wrote, it would be a fitting period at the end of a long-running story. As Bruce readily admitted in promotional interviews (not that we needed him to, so obvious is the song’s meaning), *we* are the *you* his letter is addressed to, and that letter is his metaphor for his life’s work.
 
 *‘Neath a crowd of mongrel trees I pulled that bothersome thread*  
 *Got down on my knees, grabbed my pen and bowed my head*  
@@ -77,9 +59,7 @@ That opening line seemed to generate a lot of head-scratching discussion among S
 
 In “Letter to You,” the mongrel forest represents all of the many influences and influencers on a very young Bruce Springsteen–musical, political, societal. As a teenage boy in the 1960s, he was buffeted and fascinated by these forces, and they dislodged something deep within him.
 
-Or maybe would be a better word to use here, because when Bruce refers to pulling that bothersome thread, he means that he indulged his muse. He realized that something deep within him was struggling to make itself known to his conscious mind, so he surrendered to it: he grabbed his pen, bowed his head both to write and in submission, and allowed his subconscious to make itself known.
-
-*unraveled*
+Or maybe *unraveled* would be a better word to use here, because when Bruce refers to pulling that bothersome thread, he means that he indulged his muse. He realized that something deep within him was struggling to make itself known to his conscious mind, so he surrendered to it: he grabbed his pen, bowed his head both to write and in submission, and allowed his subconscious to make itself known.
 
 In other words, this is Bruce’s origin story as a songwriter.
 
@@ -90,22 +70,16 @@ Lyrically, this is the only verse that impresses in “Letter to You.” Each re
 *Dug deep in my soul and signed my name true*  
 *And sent it in my letter to you*
 
-
-
 *In my letter to you I took all my fears and doubts*  
 *In my letter to you all the hard things I found out*  
 *In my letter to you all that I’ve found true*  
 *And I sent it in my letter to you*
-
-
 
 *I took all the sunshine and rain*  
 *All my happiness and all my pain*  
 *The dark evening stars and the morning sky of blue*  
 *And I sent it in my letter to you*  
 *And I sent it in my letter to you*
-
-
 
 *In my letter to you I took all my fears and doubts*  
 *In my letter to you all the hard things I found out*  
@@ -119,17 +93,13 @@ Lyrically, “Letter to You” reminds me of “Surprise, Surprise” — a simp
 
 There’s no better point of comparison than the bridges. Take a listen to the album version, and how Brue stretches out “In my l-ehhhhhhhhhh-ter to you…” for no real reason or effect that I can discern. It distracts more than it underlines. (It’s probably the element of the song that turns me off the most.)
 
-[https://www.youtube.com/embed/AQyLEz0qy-g?feature=oembed](https://www.youtube.com/embed/AQyLEz0qy-g?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Letter To You (Official Video)](https://www.youtube.com/watch?v=AQyLEz0qy-g)
 
 Compare with the acoustic version now–see what I mean? Bruce extends the “letter” just a beat shorter than on the album, but it makes all the difference.
 
-It’s not the only example though. There are many such grace notes throughout the acoustic version, and ending the song on that final, tender “letter… <pause> to you” is much more effective than an entire extra minute of the admittedly sublime E Street Band jamming their way toward a fade-out. (I go misty-eyed at the end of that video every time I watch it.)
+It’s not the only example though. There are many such grace notes throughout the acoustic version, and ending the song on that final, tender “letter… <pause> to you” is *so* much more effective than an entire extra minute of the admittedly sublime E Street Band jamming their way toward a fade-out. (I go misty-eyed at the end of that video every time I watch it.)
 
-*so*
-
-Knowing that Bruce wrote the songs on an acoustic guitar and brought them to the band to transform them, I can’t help but think back on the lesson of some songs don’t easily translate to the band.
-
-*Nebraska:*
+Knowing that Bruce wrote the songs on an acoustic guitar and brought them to the band to transform them, I can’t help but think back on the lesson of *Nebraska:* some songs don’t easily translate to the band.
 
 I realize I’m almost certainly in the minority in my assessment of “Letter to You,” and I’m fine with that; I long ago realized that many of my favorites and least favorites in Bruce’s catalog run counter to most of E Street Nation.
 
@@ -137,16 +107,10 @@ But if I had a wish to ask Bruce for on what I hope is an inevitable (but delaye
 
 Please play “Letter to You,” Bruce. Just play it solo acoustic.
 
-November 18-22, 2019
-(2020)
-December 21, 2020 (Colts Neck, NJ)
-May 14, 2025 (Manchester, England)
-
-**Letter to You**
-**Recorded:**<br>
-
-**Released:** *Letter to You* <br>
-**First performed:**<br>
-**Last performed:**<br>
+**Letter to You  
+**Recorded:** November 18-22, 2019<br>
+**Released:** *Letter to You* (2020)<br>
+**First performed:** December 21, 2020 (Colts Neck, NJ)<br>
+**Last performed:** May 14, 2025 (Manchester, England)
 
 © January 5, 2021

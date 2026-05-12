@@ -1,20 +1,12 @@
+No, that’s not a typo in the title: this is the story of *Betty* Jean.
 
-
-No, that’s not a typo in the title: this is the story of Jean.
-
-*Betty*
-
-We all know , of course: ze went away and there was nothing we could have done or said to keep hir from doing otherwise. We didn’t even get to say goodbye.
-
-[Jean’s story](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)*Bobby*
+We all know [*Bobby* Jean’s story](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/), of course: ze went away and there was nothing we could have done or said to keep hir from doing otherwise. We didn’t even get to say goodbye.
 
 Hir older sister, Betty, however… oh, she stayed all right, and she made life a mixed blessing for her man.
 
-Let’s take a listen to “Betty Jean,” Bruce’s unreleased outtake from the sessions, recorded six months earlier than her gender-fluid sibling:
+Let’s take a listen to “Betty Jean,” Bruce’s unreleased outtake from the *Born in the U.S.A.* sessions, recorded six months earlier than her gender-fluid sibling:
 
-*Born in the U.S.A.*
-
-[https://www.youtube.com/embed/5M3i-cVWXKQ?feature=oembed](https://www.youtube.com/embed/5M3i-cVWXKQ?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Betty Jean](https://www.youtube.com/watch?v=5M3i-cVWXKQ)
 
 Well, she’s sure a handful, isn’t she?
 
@@ -46,9 +38,7 @@ Bobby and Betty don’t slow down one bit. Bobby races up the highway while Bett
 *Going up the highway, she was giving me it*  
 *She put her hand on my leg, I drove us in a drainage ditch*
 
-You can’t run forever, though. Sooner or later, life catches up and reality sinks its talons into you. And Bobby learns the lesson of “,” although it’s not clear they ever had the forethought to dream in the first place.
-
-[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
+You can’t run forever, though. Sooner or later, life catches up and reality sinks its talons into you. And Bobby learns the lesson of “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/),” although it’s not clear they ever had the forethought to dream in the first place.
 
 Bruce gives the last verse of “Betty Jean” a final line just as memorable as the one in “The River,” but a lot less poetic:
 
@@ -59,26 +49,17 @@ Bruce gives the last verse of “Betty Jean” a final line just as memorable as
 
 And there we have it: the tale of Betty Jean, who peaked early while her sibling Bobby Jean escaped with the wind at his back.
 
-A final curiosity about the Jeans: they actually have a sibling.
+A final curiosity about the Jeans: they actually have a *third* sibling.
 
-*third*
-
-Jean made her debut in “” another unreleased song from the . You can tell Betty and Beverly are sisters because they both have the same “eyes like a jack rabbit starin’ dead in your high beams.”
-
-*Beverly*[Delivery Man,](http://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/)*Born in the U.S.A. Sessions*
+*Beverly* Jean made her debut in “[Delivery Man,](https://estreetshuffle.com/index.php/2019/08/28/roll-of-the-dice-delivery-man/)” another unreleased song from the *Born in the U.S.A. Sessions*. You can tell Betty and Beverly are sisters because they both have the same “eyes like a jack rabbit starin’ dead in your high beams.”
 
 But Beverly’s story is a tale for another day.
 
 Bobby may have been the only member of the Jean family to make it out into the wide world, but the others still have tales worth telling.
 
-January 20, 1983
-
-
-
 **Betty Jean**  
-**Recorded:**<br>
+**Recorded:** January 20, 1983<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

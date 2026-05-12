@@ -88,7 +88,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/2008-02-28.jpg)
 
-**2018**: *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater in New York City after almost a month-long break. Patti is absent with a back injury, so Bruce plays the B-set ("[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" stand in for the two duets).
+**2018:** *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater in New York City after almost a month-long break. Patti is absent with a back injury, so Bruce plays the B-set ("[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)" and "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)" stand in for the two duets).
 
 **2020:** When a local third-grader profiles Bruce for her biography assignment at school, Bruce surprises her class by attending in person.
 

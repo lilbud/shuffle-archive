@@ -42,6 +42,6 @@ And that time, Americans would vote for change.
 
 **(What's So Funny 'Bout) Peace, Love and Understanding**
 **First performed:** December 5, 2003 (Asbury Park, NJ)<br>
-**Last performed**: December 19, 2004 (Asbury Park, NJ)
+**Last performed:** December 19, 2004 (Asbury Park, NJ)
 
 (c) December 15, 2022

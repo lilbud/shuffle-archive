@@ -1,14 +1,10 @@
-
-
 The first time you hear Bruce Springsteen’s “Night”… well, it’s kind of like this:
 
-[https://www.youtube.com/embed/Wd5TO-WpzqM?feature=oembed](https://www.youtube.com/embed/Wd5TO-WpzqM?feature=oembed)
+[Watch on Youtube: Tesla Launch Reactions INSANE compilation](https://www.youtube.com/watch?v=Wd5TO-WpzqM)
 
-Actually, “Night” is like insane mode in a Tesla–every single darn time.
+Actually, “Night” is *always* like insane mode in a Tesla–every single darn time.
 
-*always*
-
-[https://www.youtube.com/embed/MMuFg-ntDKI?feature=oembed](https://www.youtube.com/embed/MMuFg-ntDKI?feature=oembed)
+[Watch on Youtube: Night](https://www.youtube.com/watch?v=MMuFg-ntDKI)
 
 We can debate where “Night” ranks among Bruce’s catalog in general, but I’ll argue there’s no better opener for a Springsteen show.
 
@@ -36,7 +32,7 @@ Just two years later, Bruce would write a very different song that starts virtua
 *Early in the morning factory whistle blows*  
 *Man rises from bed and puts on his clothes*  
 *Man takes his lunch, walks out in the morning light*  
-*It’s the working, the working, just the working life*
+*It's the working, the working, just the working life*
 
 And of course, just a couple of years later, Bruce would mine that theme yet another time:
 
@@ -47,9 +43,7 @@ And of course, just a couple of years later, Bruce would mine that theme yet ano
 *All day you’ve been working that hard line*  
 *Now tonight you’re gonna have a good time*
 
-“” and “” are far from Bruce’s only songs that focus on or spring from working life, but “Night” is the prototype. In “Factory” Bruce would examine the cost of grueling work; in “Out in the Street” Bruce had found connection and at least had someone to share the night with. But “Night” is a celebration of pure freedom.
-
-[Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)[Out on the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)
+“[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)” and “[Out on the Street](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)” are far from Bruce’s only songs that focus on or spring from working life, but “Night” is the prototype. In “Factory” Bruce would examine the cost of grueling work; in “Out in the Street” Bruce had found connection and at least had someone to share the night with. But “Night” is a celebration of pure freedom.
 
 Our hero–and he certainly sees himself that way–bristles with power and possibility. His fellow night dwellers are merely potential conquests, romantic and otherwise.
 
@@ -57,8 +51,6 @@ Our hero–and he certainly sees himself that way–bristles with power and poss
 *And you’re just a prisoner of your dream*  
 *Holding on for your life, ’cause you work all day*  
 *To blow ’em away in the night*
-
-
 
 *The rat trap’s filled with soul crusaders*  
 *The Circuit’s lined and jammed with chromed invaders*  
@@ -72,8 +64,6 @@ It’s the “otherwise” that Bruce is pre-occupied with, though. It’s never
 *And you’re in love with all the wonder it brings*  
 *And every muscle in your body sings as the highway ignites*  
 *You work nine to five and somehow you survive till the night*
-
-
 
 *Well, all day they’re busting you up on the outside*  
 *But tonight you’re gonna break on through to the inside*  
@@ -93,52 +83,40 @@ But right here, and right now–that’s enough.
 ---
 
 
-Bruce played “Night” for the first time during his legendary 1975 stand at The Bottom Line in New York City. was still a couple of weeks away from being released, so no one had yet heard “Night” in any form. So this audience had no idea what was about to hit them when Bruce modestly introduced a new song:
+Bruce played “Night” for the first time during his legendary 1975 stand at The Bottom Line in New York City. *Born to Run* was still a couple of weeks away from being released, so no one had yet heard “Night” in any form. So this audience had no idea what was about to hit them when Bruce modestly introduced a new song:
 
-*Born to Run*
-
-[https://www.youtube.com/embed/7Jc7DMpXZnM?feature=oembed](https://www.youtube.com/embed/7Jc7DMpXZnM?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - NIGHT 1975 (audio)](https://www.youtube.com/watch?v=7Jc7DMpXZnM)
 
 “Night” remained a reliable setlist staple through the rest of the 1970s, but by the eighties it seemed like Bruce had moved on to more mature working life songs. “Night” made a handful of appearances on the River Tour and a one-off cameo on the Born in the U.S.A. Tour before it disappeared into the… well, you know.
 
 But “Night” is too powerful a song to remain on the shelf, so when Bruce reformed the E Street Band, he brought back his old fan favorite for a couple of outings, including this one–its first outing in fifteen years. Listen to Bruce surprise a hometown crowd by opening his Reunion Show at the Meadowlands with the long-awaited return of “Night.”
 
-[https://videopress.com/embed/Y78DAxC5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Y78DAxC5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Y78DAxC5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-But it was on the Rising Tour when Bruce finally brought back “Night” as a semi-regular staple of his set lists, perhaps to balance the heaviness of the Rising material that formed the spine of the tour. Fortunately one fantastic performance was captured professionally for 
+But it was on the Rising Tour when Bruce finally brought back “Night” as a semi-regular staple of his set lists, perhaps to balance the heaviness of the Rising material that formed the spine of the tour. Fortunately one fantastic performance was captured professionally for *Live in Barcelona.*
 
-*Live in Barcelona.*
-
-[https://www.youtube.com/embed/zBBvw1T94IU?feature=oembed](https://www.youtube.com/embed/zBBvw1T94IU?feature=oembed)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Night (Live In Barcelona)](https://www.youtube.com/watch?v=zBBvw1T94IU)
 
 “Night” has been with us ever since the Rising Tour. It’s far from dependable, but if you see multiple shows on a tour, odds are pretty good you’ll get at least one rendition of it. All told, Bruce has performed “Night” in concert almost 250 times–and he’s almost sure to pass that milestone on the next tour.
 
 That’s a good thing, because “Night” never gets old. It’s a shot of classic E Street that immediately electrifies any show where it appears.
 
-: “Night” was famously recorded in a single day–May 10, 1975–although it took several takes before the band landed on one Bruce liked. But well before Bruce captured his bolt of lightning in the studio, he’d laid down some demos.
-
-**Bonus**
+**Bonus:** “Night” was famously recorded in a single day–May 10, 1975–although it took several takes before the band landed on one Bruce liked. But well before Bruce captured his bolt of lightning in the studio, he’d laid down some demos.
 
 Here’s one of them, from nine months earlier in August 1974:
 
-[https://videopress.com/embed/dUf7SCr3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dUf7SCr3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/dUf7SCr3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 …and another from April, 1975 just weeks before recording the final version.
 
-[https://videopress.com/embed/NjCeY1Dr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NjCeY1Dr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/NjCeY1Dr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 Both have minor lyrical differences (including some bluffing in the earlier version) and some minor musical variations as well. But both reveal just how clear Bruce’s vision was for the song almost a year before he officially recorded it in the studio.
 
-May 10, 1975
-(1975)
-August 13, 1975 (New York City, NY)
-September 3, 2023 (East Rutherford, NJ)
-
 **Night**  
-**Recorded:**<br>
-**Released:***Born to Run* <br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** May 10, 1975<br>
+**Released:** *Born to Run* (1975)<br>
+**First performed:** August 13, 1975 (New York City, NY)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

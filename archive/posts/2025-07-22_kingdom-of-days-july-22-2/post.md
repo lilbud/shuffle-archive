@@ -20,7 +20,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1975-07-22.png)
 
-**1976**: CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)" and "[I Don't Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)."
+**1976:** CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on "[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)" and "[I Don't Want to Go Home](https://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)."
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/07/1976-0722.jpg)
 

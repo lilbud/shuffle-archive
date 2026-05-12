@@ -1,16 +1,10 @@
-
-
-At first, it seems like we’re in “” territory: a sad sack hero doing his best to please his girl, only to find that she sets the bar just a little bit higher than he can clear.
-
-[Ain’t Good Enough For You](http://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)
+At first, it seems like we’re in “[Ain’t Good Enough For You](https://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)” territory: a sad sack hero doing his best to please his girl, only to find that she sets the bar just a little bit higher than he can clear.
 
 But “Cindy” quickly takes a darker turn, and it isn’t long before we realize that our narrator may be more of a stalker than a suitor.
 
-“Cindy” is an outcast from although it was a finalist among the dozens of songs Bruce cut during those recording sessions, and it was actually on the original single-album version that Bruce submitted to the record label. It was ultimately dropped very late in the game, and that’s too bad–because much like “,” it combines the trappings of romantic pop with darker lyrics and undertones. It would have fit very nicely on the album. Let’s take a listen.
+“Cindy” is an outcast from *The River,* although it was a finalist among the dozens of songs Bruce cut during those recording sessions, and it was actually on the original single-album version that Bruce submitted to the record label. It was ultimately dropped very late in the game, and that’s too bad–because much like “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/),” it combines the trappings of romantic pop with darker lyrics and undertones. It would have fit very nicely on the album. Let’s take a listen.
 
-*The River,* [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
-
-[https://www.youtube.com/embed/ZlI-L52KrnY?feature=oembed](https://www.youtube.com/embed/ZlI-L52KrnY?feature=oembed)
+[Watch on Youtube: Cindy](https://www.youtube.com/watch?v=ZlI-L52KrnY)
 
 Bruce doesn’t waste any time–there’s no introduction here, just a cold open into a first verse that immediately establishes our sympathies for the singer:
 
@@ -18,8 +12,6 @@ Bruce doesn’t waste any time–there’s no introduction here, just a cold ope
 *It’s like you don’t even care, it’s like I’m some kind of jerk*  
 *I take you out on a date and then you won’t even kiss me*  
 *Boy, when I ain’t around I’ll bet you don’t even miss me*
-
-
 
 *I don’t know why, I love you like I do*  
 *I try and try, you treat me like a fool*  
@@ -67,21 +59,15 @@ So yeah, we’re in full-on creep mode now.
 
 …and that’s where we leave our characters, with no indication that Cindy will ever be free of her would-be Romeo, despite her consistent signals of disinterest. Bruce has played a clever trick: rather than putting his characters through a story arc, he takes the listener on a ride instead. The song’s characters don’t change, but our perceptions of them do. It’s a neat feat to pull off in two and a half minutes–impressive enough that we’ll forgive Bruce the occasionally clumsy meter (there are several places where Bruce works hard to stretch or compress syllables to fit the melody).
 
-“Cindy” had been floating around for years in bootleg form before it was released on original single-disc version of that accompanied that album’s anniversary box set, and the official version is essentially identical to the bootleg. There is a curious unofficial mix, though, with Clarence providing harmony vocals dialed up way too high in the mix (especially because he flubs the lyrics in a couple of places). It’s an interesting listen, but Bruce made the right decision in submerging Clarence’s vocals in the final mix.
+“Cindy” had been floating around for years in bootleg form before it was released on original single-disc version of *The River* that accompanied that album’s anniversary box set, and the official version is essentially identical to the bootleg. There is a curious unofficial mix, though, with Clarence providing harmony vocals dialed up way too high in the mix (especially because he flubs the lyrics in a couple of places). It’s an interesting listen, but Bruce made the right decision in submerging Clarence’s vocals in the final mix.
 
-*The River*
-
-[https://www.youtube.com/embed/HJF0WbQuKvw?feature=oembed](https://www.youtube.com/embed/HJF0WbQuKvw?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Cindy #2 Alternate Take with Clarence´s harmony vocals](https://www.youtube.com/watch?v=HJF0WbQuKvw)
 
 “Cindy” has never been performed live, and even though Bruce makes no attempts to justify or redeem his point-of-view character, in the post-#metoo era, it’s unlikely it ever will.
 
-July 16, 1979
-(2015)
-
 **Cindy**  
-**Recorded:**<br>
-**Released:***The Ties That Bind: The River Collection*<br>
+**Recorded:** July 16, 1979<br>
+**Released:** *The Ties That Bind: The River Collection* (2015)<br>
 **Never performed live**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

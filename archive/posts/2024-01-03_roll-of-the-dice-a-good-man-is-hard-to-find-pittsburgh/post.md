@@ -1,32 +1,20 @@
-
-
-There was something in those stories of [Flannery O’Connor] that I felt captured a certain part of the American character that I was interested in writing about. They were a big, big revelation. She got to the heart of some part of meanness that she never spelled out, because if she spelled it out you wouldn’t be getting it. It was always at the core of every one of her stories–the way that she’d left that hole there, that hole that’s inside of everybody. *–Bruce Springsteen to Will Percy, DoubleTake, Spring 1998*
+> There was something in those stories of [Flannery O’Connor] that I felt captured a certain part of the American character that I was interested in writing about. They were a big, big revelation. She got to the heart of some part of meanness that she never spelled out, because if she spelled it out you wouldn’t be getting it. It was always at the core of every one of her stories–the way that she’d left that hole there, that hole that’s inside of everybody. *–Bruce Springsteen to Will Percy, DoubleTake, Spring 1998*
 
 It’s easy to overlook a song like “A Good Man Is Hard to Find (Pittsburgh).”
 
-It’s quiet, contemplative, and on first listen what stands out the most are the familiar Springsteenian tropes: the Michigan line, the meanness in this world, not waiting for Romeos or Casanovas. Heck, even Brian Hiatt forgot to include it in his .
+It’s quiet, contemplative, and on first listen what stands out the most are the familiar Springsteenian tropes: the Michigan line, the meanness in this world, not waiting for Romeos or Casanovas. Heck, even Brian Hiatt forgot to include it in his *The Stories Behind the Songs*.
 
-*The Stories Behind the Songs*
+But “A Good Man Is Hard to Find (Pittsburgh)”–let’s just call it “Good Man” for readability–is a song that rewards a close listen. To borrow a phrase Bruce frequently employed to describe *Western Stars*, “Good Man” is a jewel box of a song.
 
-But “A Good Man Is Hard to Find (Pittsburgh)”–let’s just call it “Good Man” for readability–is a song that rewards a close listen. To borrow a phrase Bruce frequently employed to describe , “Good Man” is a jewel box of a song.
-
-*Western Stars*
-
-[https://www.youtube.com/embed/qg1MeZXCIOc?feature=oembed](https://www.youtube.com/embed/qg1MeZXCIOc?feature=oembed)
+[Watch on Youtube: A Good Man Is Hard To Find (Pittsburgh) (Studio Outtake - 1982)](https://www.youtube.com/watch?v=qg1MeZXCIOc)
 
 “A Good Man Is Hard to Find” takes its title from Flannery O’Connor’s short story of the same name, a tale of meanness if ever there was one. While the phrase “meanness in this world” doesn’t actually appear in the story, the Misfit antagonist memorably declares meanness to be life’s sole pleasure.
 
-That statement likely crystalized O’Connor’s frequent theme in Bruce’s mind, and that notion–that there’s a meanness in this world that bores a hole in everyone like the Misfit does with the grandmother (apologies if that’s a spoiler)–wends its way throughout Bruce’s songwriting writing during the period from which “Good Man” hails.
+That statement likely crystalized O’Connor’s frequent theme in Bruce’s mind, and that notion–that there’s a meanness in this world that bores a hole in everyone like the Misfit does with the grandmother (apologies if that’s a spoiler)–wends its way throughout Bruce’s songwriting writing during the *Nebraska* period from which “Good Man” hails.
 
-*Nebraska*
+Bruce’s songs from that period typically focus on the tormented souls who wield that meanness (see “[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)” and “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)“), but in “Good Man” he has us consider the ones on the receiving end, in this case the widow of a soldier felled in Vietnam.
 
-Bruce’s songs from that period typically focus on the tormented souls who wield that meanness (see “” and ““), but in “Good Man” he has us consider the ones on the receiving end, in this case the widow of a soldier felled in Vietnam.
-
-[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)
-
-But “Good Man” stands out for more than its unusual point-of-view character. For one thing, it’s performed in a gentle full-band arrangement (including, curiously, an uncredited player on the bongos–perhaps Clarence, who is otherwise unrepresented on this track), a rarity for esque subject matter. For another, it features a lovely vocal from Bruce, with some atypical trills and flourishes.
-
-*Nebraska-*
+But “Good Man” stands out for more than its unusual point-of-view character. For one thing, it’s performed in a gentle full-band arrangement (including, curiously, an uncredited player on the bongos–perhaps Clarence, who is otherwise unrepresented on this track), a rarity for *Nebraska-*esque subject matter. For another, it features a lovely vocal from Bruce, with some atypical trills and flourishes.
 
 But most impressively, “Good Man” features some of Bruce’s subtlest, most artful, and most economical songwriting. The first verse alone is a marvel:
 
@@ -77,9 +65,7 @@ For the past two verses, we’ve been dwelling in the past. Now, Bruce brings us
 *Just somebody to hold her as the night gets on*  
 *When a good man is so hard to find*
 
-The first line of that verse recalls Bruce’s earlier song “,” which also features a disillusioned character. Our focal character harbors no illusions of ever finding another love who can measure up to her lost one. And it wouldn’t matter anyway–she doesn’t want to risk that kind of loss again. Companionship is enough for her now. As with the radio earlier in the song, she’s just looking for someone to fill the emptiness.
-
-[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
+The first line of that verse recalls Bruce’s earlier song “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/),” which also features a disillusioned character. Our focal character harbors no illusions of ever finding another love who can measure up to her lost one. And it wouldn’t matter anyway–she doesn’t want to risk that kind of loss again. Companionship is enough for her now. As with the radio earlier in the song, she’s just looking for someone to fill the emptiness.
 
 The last verse is as depressing as any final verse Bruce has ever written. Our hero climbs into bed at the end of a meaningless day, with only another empty one to look forward to. Why bother dreaming when she now understands how easily dreams can be swept away?
 
@@ -88,8 +74,6 @@ The last verse is as depressing as any final verse Bruce has ever written. Our h
 *Well she thinks how it was all so wasted*  
 *And how expendable their dreams all were*  
 *When a good man was so hard to find*
-
-
 
 *Well, it’s cloudy out in Pittsburgh…*
 
@@ -102,30 +86,20 @@ Bruce ends the song the way he began it, one last storytelling flourish that tel
 
 The first was in memory of a fallen local police officer during his 2005 solo show in St. Paul.
 
-[https://www.youtube.com/embed/AjEjoHqz4LA?feature=oembed](https://www.youtube.com/embed/AjEjoHqz4LA?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - A GOOD MAN IS HARD TO FIND 2005 (audio)](https://www.youtube.com/watch?v=AjEjoHqz4LA)
 
-Bruce’s second and last performance to date was probably inspired more by its location than by current events. At his 2010 appearance in Pittsburgh with Joe Grushecky to celebrate the 15th anniversary of , Bruce opened the show with three acoustic songs, the first of which was “A Good Man Is Hard to Find (Pittsburgh).”
+Bruce’s second and last performance to date was probably inspired more by its location than by current events. At his 2010 appearance in Pittsburgh with Joe Grushecky to celebrate the 15th anniversary of *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*, Bruce opened the show with three acoustic songs, the first of which was “A Good Man Is Hard to Find (Pittsburgh).”
 
-[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)
-
-[https://www.youtube.com/embed/LeKiXZCt8Z4?feature=oembed](https://www.youtube.com/embed/LeKiXZCt8Z4?feature=oembed)
+[Watch on Youtube: A Good Man is Hard to Find - Bruce Springsteen (4-11-2010 Soldiers & Sailors Memorial Hall & Museum)](https://www.youtube.com/watch?v=LeKiXZCt8Z4)
 
 Both performances were serviceable, but neither captured the poignancy of the studio track–that’s a difficult trick to pull off with a festive crowd.
 
 It isn’t hard to find a great performance of “Good Man”; we just have to look to the studio rather than the stage.
 
-May 5-6, 1982
-(1998)
-May 10, 2005 (St. Paul, MN)
-November 4, 2010 (Pittsburgh, PA)
+**A Good Man Is Hard to Find (Pittsburgh)
+**Recorded:** May 5-6, 1982<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** May 10, 2005 (St. Paul, MN)<br>
+**Last performed:** November 4, 2010 (Pittsburgh, PA)
 
-**A Good Man Is Hard to Find (Pittsburgh)**
-**Recorded:**<br>
-
-**Released:***Tracks* (1998)<br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

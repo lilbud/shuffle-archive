@@ -6,13 +6,13 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/1972-01-21.png)
 
-**1973**: Bruce and the band play their final of four nights at My Father's Place on Long Island.
+**1973:** Bruce and the band play their final of four nights at My Father's Place on Long Island.
 
 **1981:** Night Two in Toronto on the River Tour. Listen to the show below.
 
 [Watch on Youtube: Toronto (1/21/1981)](https://www.youtube.com/playlist?list=PLu8VBPtfGX1CY8lZmxi5bYYm_HCKVCEGQ)
 
-**1987**: At the second Rock and Roll Hall of Fame ceremonies, Bruce inducts Roy Orbison and performs with him on "[Oh, Pretty Woman](https://estreetshuffle.com/index.php/2019/08/25/matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/)."
+**1987:** At the second Rock and Roll Hall of Fame ceremonies, Bruce inducts Roy Orbison and performs with him on "[Oh, Pretty Woman](https://estreetshuffle.com/index.php/2019/08/25/matr-roy-orbison-and-bruce-springsteen-oh-pretty-woman/)."
 
 [Watch on Youtube: Bruce Springsteen inducts Roy Orbison into the Rock and Roll Hall of Fame 1987](https://www.youtube.com/watch?v=NEZ5TRBE49M)
 

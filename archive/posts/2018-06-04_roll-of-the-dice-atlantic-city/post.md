@@ -136,9 +136,9 @@ Bruce wouldn't play "Atlantic City' acoustically in public until 1990, where it 
 In any arrangement, in any setting, "Atlantic City" remains one of Bruce's crowning song-writing achievements. He'd covered similar ground earlier ("[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)") and he'd return to it later ("[Easy Money](https://estreetshuffle.com/index.php/2021/06/10/roll-of-the-dice-easy-money/)" is so close to the let's-go-out-and-be-well-dressed-criminals motif of "Atlantic City" that I wonder why he took the time to revisit it), but for its combination of layered metaphor, real-world setting, atmospheric recording, and clever final reveal, "Atlantic City" remains alone at the top of that mini-genre. Maybe that's why it's had no less than *six* official album releases and is one of his most covered songs.
 
 **Atlantic City**
-**Recorded**: December 1981 – January 1982
-**Released**: *Nebraska* (1982), *In Concert/MTV Plugged* (1993), *Greatest Hits* (1995), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007)
-**First performed**: June 29, 1984 (St. Louis, MO)
+**Recorded:** December 1981 – January 1982
+**Released:** *Nebraska* (1982), *In Concert/MTV Plugged* (1993), *Greatest Hits* (1995), *Live in New York City* (2001), *The Essential Bruce Springsteen* (2003), *Live in Dublin* (2007)
+**First performed:** June 29, 1984 (St. Louis, MO)
 **Last performed:** September 3, 2023 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

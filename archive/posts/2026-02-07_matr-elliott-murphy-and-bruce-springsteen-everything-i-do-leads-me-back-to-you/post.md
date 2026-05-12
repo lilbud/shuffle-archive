@@ -1,18 +1,12 @@
+In 1995, Elliott Murphy was working on his upcoming album *Selling the Gold,* and among the songs he’d written and selected for it was a lovely little ballad called “Everything I Do (Leads Me Back to You).”
 
-
-In 1995, Elliott Murphy was working on his upcoming album and among the songs he’d written and selected for it was a lovely little ballad called “Everything I Do (Leads Me Back to You).”
-
-*Selling the Gold,*
-
-Murphy had written it with Bruce in mind–not from a lyrical point of view (although that second verse Springsteen) but from a vocal perspective.
-
-*screams*
+Murphy had written it with Bruce in mind–not from a lyrical point of view (although that second verse *screams* Springsteen) but from a vocal perspective.
 
 Elliott had joined Bruce on stage in Paris a few years earlier, and in their first-ever performance together even after decades of friendship, Elliott was stunned by how well their voices complemented each other.
 
 Elliott thought “Everything I Do” was a perfect song for Bruce’s register and a great spotlight for their two voices. He was right.
 
-[https://www.youtube.com/embed/pA8itl3nHX8?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/pA8itl3nHX8?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pA8itl3nHX8)
 
 Elliott played a demo of the song for Bruce, who listened intently before saying, “Yeah, I could sing something on that.”
 
@@ -31,13 +25,9 @@ That Murphy is clever like a fox. Put a verse like that in front of Bruce and od
 
 “Everything I Do (Leads Me Back to You)” garnered neither widespread attention nor acclaim upon it’s release, but it remains a lovely under-the-radar track with two beautiful vocal performances.
 
-mid-1995
-(1995)
-
-**Everything I Do (Leads Me Back to You)**
-**Recorded:**<br>
-
-**Released:** *Selling the Gold* <br>
+**Everything I Do (Leads Me Back to You)
+**Recorded:** mid-1995<br>
+**Released:** *Selling the Gold* (1995)<br>
 **Never performed live**
 
 © January 9, 2019

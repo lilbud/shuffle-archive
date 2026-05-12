@@ -56,7 +56,7 @@ You're welcome.
 **Working on the Highway**
 Recorded** ("Child Bride" version): Dec 1981/Jan 1982
 **Recorded** (final version): May 1982
-**Released**: *Born in the U.S.A.* (1984)
+**Released:** *Born in the U.S.A.* (1984)
 **First Performed:** June 29, 1984 (St. Paul, MN)<br>
 **Last Performed:** November 6, 2023 (New York City, NY)<br>
 

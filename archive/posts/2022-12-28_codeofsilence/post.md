@@ -1,24 +1,16 @@
-
-
 Quick, name the only live Springsteen performance to win a Grammy.
 
-Okay, that would probably be harder if you hadn’t already read the title of this post. But yeah, it’s not “” or “” or “” or “American Skin (41 Shots)” or any of the other live recordings you’ll hear on the radio (other then E Street Radio, that is).
+Okay, that would probably be harder if you hadn’t already read the title of this post. But yeah, it’s not “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” or “[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)” or “[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)” or “American Skin (41 Shots)” or any of the other live recordings you’ll hear on the radio (other then E Street Radio, that is).
 
-[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[War](http://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
+In February 2005, the Grammy for Best Solo Rock Vocal Performance went to “Code of Silence,” recorded live on June 29, 2000 and buried deep on the bonus disc included in the first run of *The Essential Bruce Springsteen.*
 
-In February 2005, the Grammy for Best Solo Rock Vocal Performance went to “Code of Silence,” recorded live on June 29, 2000 and buried deep on the bonus disc included in the first run of 
-
-*The Essential Bruce Springsteen.*
-
-[https://www.youtube.com/embed/qmliFFBFQAQ?feature=oembed](https://www.youtube.com/embed/qmliFFBFQAQ?feature=oembed)
+[Watch on Youtube: Code of Silence (Live at Madison Square Garden, New York, NY - June 2000)](https://www.youtube.com/watch?v=qmliFFBFQAQ)
 
 “Code of Silence” also carries another unusual distinction: it’s a rare instance of Bruce co-writing with a song with another artist. Bruce and Joe Grushecky wrote this song together in 1997, although neither of them chose to record or perform it at the time.
 
-When Bruce and the E Street Band were wrapping up their Reunion Tour in June of 2000, Bruce start to premiere some brand new songs, telegraphing to fans that he wasn’t done releasing new music. First came “” and “American Skin (41 Shots)” in Atlanta, and then at the very next show–the opening show of a ten-night closing stand at Madison Square Garden–Bruce opened the show with the debut of “Code of Silence.” (Bruce would debut one more Bruce/Joe collaboration before the tour was done.)
+When Bruce and the E Street Band were wrapping up their Reunion Tour in June of 2000, Bruce start to premiere some brand new songs, telegraphing to fans that he wasn’t done releasing new music. First came “[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)” and “American Skin (41 Shots)” in Atlanta, and then at the very next show–the opening show of a ten-night closing stand at Madison Square Garden–Bruce opened the show with the debut of “Code of Silence.” (Bruce would debut one more Bruce/Joe collaboration before the tour was done.)
 
-[Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)
-
-[https://videopress.com/embed/HOWgJ2Ki?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HOWgJ2Ki?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HOWgJ2Ki?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 The song was received by fans enthusiastically, and Bruce ended up playing it in eight shows of that final ten-night stand.
 
@@ -31,14 +23,10 @@ Bruce brought it back for two outings on the Rising tour (one of them, unsurpris
 *And we keep pretending that there’s nothing wrong*  
 *Man, there’s a code of silence and it can’t go on*
 
-
-
 *Well, s the truth so elusive, so elusive you see*  
 *That it ain’t enough, baby, to bridge the distance between you and me*  
 *There’s a list of grievance a hundred miles long*  
 *There’s a code of silence and it can’t go on*
-
-
 
 *Well you walk with your eyes open*  
 *But your lips they remain sealed*  
@@ -53,22 +41,14 @@ Nothing happens in “Code of Silence,” and nothing is resolved–the song is 
 
 In 2006, after the song won a Grammy, Bruce and Joe finally released a studio version of “Code of Silence” — but it was on one of Joe’s albums rather than one of Bruce’s.
 
-The arrangement is identical, the vocals are clearer, and the song is just as ferocious as ever. Here’s Joe and Bruce together on “Code of Silence” from Joe’s album.
+The arrangement is identical, the vocals are clearer, and the song is just as ferocious as ever. Here’s Joe and Bruce together on “Code of Silence” from Joe’s *A Good Life* album.
 
-*A Good Life*
-
-[https://www.youtube.com/embed/yi4UJ5_Fd6E?feature=oembed](https://www.youtube.com/embed/yi4UJ5_Fd6E?feature=oembed)
-
-June 29, 2000 (live version)
-(2003, live version), (2006, studio version)
-June 12, 2000 (New York City, NY)
-July 18, 2015 (Asbury Park, NJ)
+[Watch on Youtube: Code of Silence](https://www.youtube.com/watch?v=yi4UJ5_Fd6E)
 
 **Code of Silence**  
-**Recorded:**<br>
-**Released:** *The Essential Bruce Springsteen* *A Good Life* <br>
-**First performed:** <br>
-**Last performed:**<br>
+**Recorded:** June 29, 2000 (live version)<br>
+**Released:** *The Essential Bruce Springsteen* (2003, live version), *A Good Life* (2006, studio version)<br>
+**First performed:** June 12, 2000 (New York City, NY)<br>
+**Last performed:** July 18, 2015 (Asbury Park, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

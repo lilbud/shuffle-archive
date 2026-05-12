@@ -28,7 +28,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/2005-05-15.jpg)
 
-**2009**: Jay Weinberg sits in on drums again when the Working on a Dream Tour stops at Hersheypark Stadium in Hershey, Pennsylvania. The highlight: the tour premiere and first performance in a decade of "[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)."
+**2009:** Jay Weinberg sits in on drums again when the Working on a Dream Tour stops at Hersheypark Stadium in Hershey, Pennsylvania. The highlight: the tour premiere and first performance in a decade of "[Give the Girl a Kiss](https://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)."
 
 [Watch on Youtube: Bruce Springsteen ~ Give the Girl a Kiss ~ 5/15/09](https://www.youtube.com/watch?v=hj6zjx3_S0I)
 

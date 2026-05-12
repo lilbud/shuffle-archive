@@ -84,9 +84,9 @@ Fortunately, Tom made more than a few guest appearances on the Wrecking Ball Tou
 Despite a momentary lyrical lapse and some audio difficulties during Nils' solo, it's a powerful performance and a reminder that "This Depression" deserves more frequent outings in the future.
 
 **This Depression**
-Recorded**: Unknown
-**Released**: *Wrecking Ball* (2012)
-**First performed**: July 23, 2012 (Bergen, Norway)
-**Last performed**: July 24, 2013 (Leeds, England)
+Recorded:** Unknown
+**Released:** *Wrecking Ball* (2012)
+**First performed:** July 23, 2012 (Bergen, Norway)
+**Last performed:** July 24, 2013 (Leeds, England)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Bruce Springsteen interview on Lucky Town and Human Touch (1992)](https://www.youtube.com/watch?v=yX9TrkY3IKo)
 
-**1997**: The marathon Ghost of Tom Joad Tour enters its last week with a show at Teatro Verdi in Florence.
+**1997:** The marathon Ghost of Tom Joad Tour enters its last week with a show at Teatro Verdi in Florence.
 
 [Watch Video Highlight](https://videopress.com/embed/Fr7NZ7c2)
 

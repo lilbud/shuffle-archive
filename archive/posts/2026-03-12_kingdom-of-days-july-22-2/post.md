@@ -18,7 +18,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/07/1975-07-22.png)
 
-**1976**: CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on “The Fever” and “I Don’t Want to Go Home.”
+**1976:** CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on “The Fever” and “I Don’t Want to Go Home.”
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/07/1976-0722.jpg)
 

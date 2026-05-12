@@ -1,20 +1,12 @@
-
-
-“What Love Can Do” was the first song written for and the fourth single released from that album. Yet it labors in obscurity, buried deep within an underappreciated album and performed live exactly once.
-
-*Working on a Dream,*
+“What Love Can Do” was the first song written for *Working on a Dream,* and the fourth single released from that album. Yet it labors in obscurity, buried deep within an underappreciated album and performed live exactly once.
 
 What’s to explain the ambivalence from both fans and artist?
 
-Heck if I know. It’s a great pop song–light in substance, dense in orchestration, and uplifting in spirit. It doesn’t carry the heft of Bruce’s more ambitious work, but like much of it isn’t meant to.
+Heck if I know. It’s a great pop song–light in substance, dense in orchestration, and uplifting in spirit. It doesn’t carry the heft of Bruce’s more ambitious work, but like much of *Working on a Dream,* it isn’t meant to.
 
-*Working on a Dream,*
+[Watch on Youtube: What Love Can Do](https://www.youtube.com/watch?v=yiJdnNqK8d4)
 
-[https://www.youtube.com/embed/yiJdnNqK8d4?feature=oembed](https://www.youtube.com/embed/yiJdnNqK8d4?feature=oembed)
-
-is an interesting animal. Lyrically, it’s a meditation on aging, and the wisdom acquired through life experience. Musically, it’s an homage to the lush arrangements of California sixties pop, which was originally the domain of the young.
-
-*Working on a Dream*
+*Working on a Dream* is an interesting animal. Lyrically, it’s a meditation on aging, and the wisdom acquired through life experience. Musically, it’s an homage to the lush arrangements of California sixties pop, which was originally the domain of the young.
 
 Maybe that’s why most fans didn’t know what to make of it. Regardless, “What Love Can Do” is a perfect example of the album’s aspirations and achievements.
 
@@ -47,8 +39,6 @@ In an age where the deck seems stacked against us, in a world where hard work ca
 *Let me show you what love can do*  
 *Let me show you what love can do*
 
-
-
 *Darling we can’t stop this train*  
 *When it comes crashing through*  
 *But let me show you what love can do*  
@@ -62,16 +52,12 @@ Our narrator humbly sings “if any of this matters,” but he knows it does. Lo
 *It’s you and I my friend (you and I my friend)*  
 *You and I now friend*
 
-
-
 *Here our memory lay corrupted and our city lay dry*  
 *Let me make this vow to you*  
 *Here where it’s blood for blood and an eye for an eye*  
 *Let me show you what love can do*
 
-Make no mistake: while the song is written as an intimate conversation, Bruce isn’t speaking to one person–he’s speaking to his country. “What Love Can Do” was written and recorded before was even released, and politics were certainly on his mind as he wrote it.
-
-*Magic*
+Make no mistake: while the song is written as an intimate conversation, Bruce isn’t speaking to one person–he’s speaking to his country. “What Love Can Do” was written and recorded before *Magic* was even released, and politics were certainly on his mind as he wrote it.
 
 The timing is important: especially with the “hope” reference, it’s easy to view “What Love Can Do” as after-the-fact testimony, given that the song debuted after Barack Obama’s election. But the song was written and recorded before anyone knew that was in the cards, which makes Bruce’s faith and resolution much more remarkable. We tend to forget a decade on just how bleak the world seemed back then.
 
@@ -90,24 +76,16 @@ I choose to believe he was simply early.
 
 For now, though, enjoy the one and only time Bruce performed the song live–in Philadelphia, late in the Working on a Dream Tour.
 
-[https://www.youtube.com/embed/S5G0JiAHUIo?feature=oembed](https://www.youtube.com/embed/S5G0JiAHUIo?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - WHAT LOVE CAN DO - SUB ITA](https://www.youtube.com/watch?v=S5G0JiAHUIo)
 
-Here’s some brief footage of Bruce playing an acoustic “What Love Can Do” from the recording sessions.
+**Bonus:** Here’s some brief footage of Bruce playing an acoustic “What Love Can Do” from the *Working on a Dream* recording sessions.
 
-**Bonus:** *Working on a Dream*
-
-[https://videopress.com/embed/peRsvJRB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/peRsvJRB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
-
-mid-2007
-(2009)
-October 14, 2009
-October 14, 2009
+[Watch Video Highlight](https://videopress.com/embed/peRsvJRB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 **What Love Can Do**  
-**Recorded:**<br>
-**Released:***Working on a Dream*<br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** mid-2007<br>
+**Released:** *Working on a Dream* (2009)<br>
+**First performed:** October 14, 2009<br>
+**Last performed:** October 14, 2009
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

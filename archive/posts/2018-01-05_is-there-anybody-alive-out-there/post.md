@@ -10,9 +10,9 @@ It's also an opportunity to open up my vault of rare Springsteen recordings, vid
 
 So what should you expect to see here? To start, there will be three different series of postings:
 
-- **Kingdom of Days**: Published daily, these are brief "On this Day in Bruce History" articles. More than anything else, it's how I'll open up my archives and share some really cool nuggets. Look for rare audio, photos, and articles here.
-- **Roll of the Dice**: Published once or twice weekly (I'll settle on a cadence once I see how much time they take), these are longer history and/or analysis pieces, each dedicated to a single Bruce Springsteen song. Why "Roll of the Dice?" Because after the first one, which I'll post later today, I'll be using a random generator to pick the song. (I'll also entertain requests!)
-- **Cover Me**: Published whenever I feel like it, these are notable covers of Bruce Springsteen songs by other artists, or of other artists by Bruce.
+- **Kingdom of Days:** Published daily, these are brief "On this Day in Bruce History" articles. More than anything else, it's how I'll open up my archives and share some really cool nuggets. Look for rare audio, photos, and articles here.
+- **Roll of the Dice:** Published once or twice weekly (I'll settle on a cadence once I see how much time they take), these are longer history and/or analysis pieces, each dedicated to a single Bruce Springsteen song. Why "Roll of the Dice?" Because after the first one, which I'll post later today, I'll be using a random generator to pick the song. (I'll also entertain requests!)
+- **Cover Me:** Published whenever I feel like it, these are notable covers of Bruce Springsteen songs by other artists, or of other artists by Bruce.
 - **Meeting Across the River:** Published whenever I feel like it, these are rare duets and guest performances with other artists.
 
 

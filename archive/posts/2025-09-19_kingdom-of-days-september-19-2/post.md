@@ -94,7 +94,7 @@ After the show, Bruce sits down for an interview with local TV station WBCN.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/09/Daily_News_2015_09_20_3-scaled.jpg)
 
-**2017**: Bruce holds a private rehearsal for *Springsteen on Broadway* for an intimate group of friends and family at Monmouth University's Pollak Theater.
+**2017:** Bruce holds a private rehearsal for *Springsteen on Broadway* for an intimate group of friends and family at Monmouth University's Pollak Theater.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/09/2017-09-19a.jpg)
 

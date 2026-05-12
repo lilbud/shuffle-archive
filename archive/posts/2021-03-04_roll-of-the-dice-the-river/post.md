@@ -1,4 +1,4 @@
-*(**Updated 3/4/2021**: Friend of the blog Steven Semeraro pointed out that while Mary was 17 when they met, the narrator is likely eighteen by implication. I've updated some timing references accordingly.)*
+*(**Updated 3/4/2021:** Friend of the blog Steven Semeraro pointed out that while Mary was 17 when they met, the narrator is likely eighteen by implication. I've updated some timing references accordingly.)*
 
 What's worse than a lie?
 

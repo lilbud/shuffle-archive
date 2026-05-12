@@ -1,14 +1,10 @@
-
-
 The first track may have lent the album its title, but the second track captures its spirit.
 
-In 2004, Patti Scialfa released her second solo albumShe was fifty years old at the time, and is a very fifty album, filled with layered, beautifully arranged and performed tracks that look back at the songwriter’s youth from a vantage point decades down the road.
-
-*.* *23rd Street Lullaby*
+In 2004, Patti Scialfa released her second solo album*.* She was fifty years old at the time, and *23rd Street Lullaby* is a very fifty album, filled with layered, beautifully arranged and performed tracks that look back at the songwriter’s youth from a vantage point decades down the road.
 
 No song better captures the album’s theme than its second track, “You Can’t Go Back” (which actually would have been a perfect name for the album, too).
 
-[https://www.youtube.com/embed/Hm0XYpT-y90?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/Hm0XYpT-y90?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Hm0XYpT-y90)
 
 In “You Can’t Go Back,” Patti revisits the New York City streets she once haunted, searching for that sense of freedom, adventure, and possibility of youth. Her glasses aren’t rose-colored (there’s a reason she slyly co-ops the chord progression from Lou Reed’s “Walk on the Wild Side”), but it’s significant that she anchors her memory in 1988, leaving no doubt who she’s singing to in the first verse.
 
@@ -16,15 +12,11 @@ In “You Can’t Go Back,” Patti revisits the New York City streets she once 
 
 And while Bruce and Patti have never performed it together in concert, we fortunately have documents of Patti performing it herself. Well, not exactly by herself, but with her own backing band–one that features a few familiar faces.
 
-[https://videopress.com/embed/VKJ2hyKD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VKJ2hyKD?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VKJ2hyKD?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-January 200
-(2004)
-
-**You Can’t Go Back**
-**Recorded:**<br>
-
-**Released:** *23rd Street Lullaby*<br>
+**You Can’t Go Back  
+**Recorded:** January 200<br>
+**Released:** *23rd Street Lullaby* (2004)<br>
 **Never performed**
 
 © October 16, 2021

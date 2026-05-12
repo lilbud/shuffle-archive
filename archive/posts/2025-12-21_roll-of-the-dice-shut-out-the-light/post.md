@@ -1,8 +1,4 @@
-
-
-It’s impossible to discuss the genesis and evolution of “Shut Out the Light” without referencing the two songs with which it’s inseparably intertwined. “Vietnam” has essential backstory for fully appreciating “Shut Out the Light,” and “Born in the U.S.A.” is a fraternal twin to it, developed by the songwriter in parallel. However, those tracks won’t be available in print until later this year, so I apologize for starting this story in the middle.
-
-**Author’s Note:**
+**Author’s Note:** It’s impossible to discuss the genesis and evolution of “Shut Out the Light” without referencing the two songs with which it’s inseparably intertwined. “Vietnam” has essential backstory for fully appreciating “Shut Out the Light,” and “Born in the U.S.A.” is a fraternal twin to it, developed by the songwriter in parallel. However, those tracks won’t be available in print until later this year, so I apologize for starting this story in the middle.
 
 ---
 
@@ -15,11 +11,9 @@ Despite its third-person narration, “Shut Out the Light” takes us deep into 
 
 Let’s take a listen to the under-recognized and under-appreciated “Shut Out the Light,” one of Bruce Springsteen’s most sensitive songs.
 
-[https://www.youtube.com/embed/1w_S4JhQ2lE?feature=oembed](https://www.youtube.com/embed/1w_S4JhQ2lE?feature=oembed)
+[Watch on Youtube: Shut Out The Light](https://www.youtube.com/watch?v=1w_S4JhQ2lE)
 
-“Shut Out the Light” is close to a solo Springsteen recording. Recorded at home shortly after the release of (Bruce was briefly considering a follow-up solo album before his muse led him elsewhere), Bruce plays all the instruments with the exception of the track’s gorgeous violin overdub, provided by Soozie Tyrell as her debut contribution to Bruce’s catalog.
-
-*very**Nebraska*
+“Shut Out the Light” is *very* close to a solo Springsteen recording. Recorded at home shortly after the release of *Nebraska* (Bruce was briefly considering a follow-up solo album before his muse led him elsewhere), Bruce plays all the instruments with the exception of the track’s gorgeous violin overdub, provided by Soozie Tyrell as her debut contribution to Bruce’s catalog.
 
 Although it’s a much quieter song than its better-known A-side, it’s just as powerful, and perhaps even more harrowing. It’s certainly more cinematic, loaded with small details that project a clear scene in our mind’s eye:
 
@@ -34,13 +28,9 @@ The opening verse is lifted almost verbatim from the opening of one of the earli
 
 (In “Vietnam,” the original verse ends with “…got off down on Main Street to see what I could see… watchin’ a stranger pass by, and that stranger was me.” I’ve always thought that discarded verse was one of the strongest lyrics Bruce ever threw away.)
 
-The approaching runway is a brilliant metaphor to open the song with, both literally setting the scene and creating an immediate sense of foreboding: the runway at Johnny, suggesting he’s not quite ready to re-enter his life.
+The approaching runway is a brilliant metaphor to open the song with, both literally setting the scene and creating an immediate sense of foreboding: the runway *rushes* at Johnny, suggesting he’s not quite ready to re-enter his life.
 
-*rushes*
-
-It’s also important to note the details Bruceinclude: no family or friends are there to greet Johnny when he lands. He is alone, and he remains alone throughout the verse, retreating into a dark corner of a bar rather than engage with anyone.
-
-*doesn’t*
+It’s also important to note the details Bruce *doesn’t* include: no family or friends are there to greet Johnny when he lands. He is alone, and he remains alone throughout the verse, retreating into a dark corner of a bar rather than engage with anyone.
 
 The action shifts now, and Johnny’s wife (or at least his girlfriend) briefly becomes our point-of-view character.
 
@@ -82,13 +72,11 @@ If you noticed at this point that Bruce breaks the verse-verse-chorus pattern th
 *Now every evening, well just after supper time*  
 *He’d go into the back bedroom and he’d lock the door behind*  
 *He’d lie with a telephone wire stretched out across a chair*  
-*Just him and a few bad habits he’d brought back from over there*
+*Just him and a few bad habits he’d brought back from over there* 
 
-This earlier version was eventually released decades later on It includes the extra verses but omits Soozie Tyrell’s contribution.
+This earlier version was eventually released decades later on *L.A. Garage Sessions ’83.* It includes the extra verses but omits Soozie Tyrell’s contribution.
 
-*L.A. Garage Sessions ’83.*
-
-[https://www.youtube.com/embed/PJEKYaLO3RU?feature=oembed](https://www.youtube.com/embed/PJEKYaLO3RU?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Shut Out the Light (Official Audio)](https://www.youtube.com/watch?v=PJEKYaLO3RU)
 
 We’re not certain whether the final verse is dream or reality…
 
@@ -97,11 +85,7 @@ We’re not certain whether the final verse is dream or reality…
 *In the cold black water now Johnson Lineir stands*  
 *He stares across the lights of the city and dreams of where he’s been*
 
-…but the message itself is clear: Johnny feels far removed from home, and in the darkness of his dreams, he hasn’t left Vietnam. In the original studio recording released on , there’s another verse that Bruce excised for the final version. In it, the stars try to penetrate the darkness only to be engulfed and extinguished by the void–surely a metaphor for the inability of Johnny’s family and friends to rescue him from the dark emptiness he feels inside.
-
-*L.A. Garage Sessions ’83*
-
-
+…but the message itself is clear: Johnny feels far removed from home, and in the darkness of his dreams, he hasn’t left Vietnam. In the original studio recording released on *L.A. Garage Sessions ’83*, there’s another verse that Bruce excised for the final version. In it, the stars try to penetrate the darkness only to be engulfed and extinguished by the void–surely a metaphor for the inability of Johnny’s family and friends to rescue him from the dark emptiness he feels inside.
 
 *As the grey moon disappears beyond that town hillside*  
 *Stars rise, grow brighter then gone, gone, gone in a black and endless sky*  
@@ -121,7 +105,7 @@ Bruce debuted “Shut Out the Light” relatively early on the Born in the U.S.A
 
 The clip below is the last of these performances, from Paris on June 29, 1985.
 
-[https://www.youtube.com/embed/uAqbN9HO68A?feature=oembed](https://www.youtube.com/embed/uAqbN9HO68A?feature=oembed)
+[Watch on Youtube: Springsteen - Shut Out The Light](https://www.youtube.com/watch?v=uAqbN9HO68A)
 
 It would be more than a decade before anyone would hear Bruce play “Shut Out the Light” again, but on Bruce’s Ghost of Tom Joad Tour, he brought it back for eleven performances.
 
@@ -129,24 +113,18 @@ Here’s one of my favorites, from Bruce’s three-night stand at the Paramount 
 
 But if you listen carefully to the last verse, you’ll hear something else that’s significant: for the first time, Bruce explicitly acknowledges the source of Johnny’s trauma, changing the last line from “dreams of where he’s been” to “dreams of Vietnam.”
 
-[https://www.youtube.com/embed/v87kjkzztEA?feature=oembed](https://www.youtube.com/embed/v87kjkzztEA?feature=oembed)
+[Watch on Youtube: Bruce Springsteen "Shut Out The Light" Asbury Park, NJ Nov. 24, 1996](https://www.youtube.com/watch?v=v87kjkzztEA)
 
 There’s only been one live performance of “Shut Out the Light” since 1996, and it’s from Bruce’s other solo acoustic tour.
 
 Here’s Bruce’s last performance of “Shut Out the Light” to date, a somber pump organ arrangement that opened his show in Milwaukee on August 7, 2005.
 
-[https://www.youtube.com/embed/jq-DS8-CUiI?feature=oembed](https://www.youtube.com/embed/jq-DS8-CUiI?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - SHUT OUT THE LIGHT 2005 (audio)](https://www.youtube.com/watch?v=jq-DS8-CUiI)
 
-January 19, 1983
-(1998) “Born in the U.S.A.” (B-side, 1984); (2025)
-October 22, 1984 (Oakland, CA)
-August 7, 2005 (Milwaukee, WI)
-
-**Shut Out the Light**
-**Recorded:**<br>
-
-**Released:** *Tracks* *L.A. Garage Sessions ’83* <br>
-**First performed:**<br>
-**Last performed:**<br>
+**Shut Out the Light  
+**Recorded:** January 19, 1983<br>
+**Released:** *Tracks* (1998) “Born in the U.S.A.” (B-side, 1984); *L.A. Garage Sessions ’83* (2025)<br>
+**First performed:** October 22, 1984 (Oakland, CA)<br>
+**Last performed:** August 7, 2005 (Milwaukee, WI)
 
 © October 14, 2020 / December 21, 2025

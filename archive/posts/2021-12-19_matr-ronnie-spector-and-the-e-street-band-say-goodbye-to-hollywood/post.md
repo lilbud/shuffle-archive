@@ -1,18 +1,12 @@
-
-
 Call it a meeting of the Mutual Admiration Society.
 
-Billy Joel kicked off his 1976 album with “Say Goodbye to Hollywood,” a song he wrote with Ronnie Spector in mind. Billy’s homage is obvious from the opening bars. Compare his song below…
+Billy Joel kicked off his 1976 *Turnstiles* album with “Say Goodbye to Hollywood,” a song he wrote with Ronnie Spector in mind. Billy’s homage is obvious from the opening bars. Compare his song below…
 
-*Turnstiles*
+[Watch on Youtube: Say Goodbye To Hollywood - Billy Joel](https://www.youtube.com/watch?v=47PtUvHIQpk)
 
-[https://www.youtube.com/embed/47PtUvHIQpk?feature=oembed](https://www.youtube.com/embed/47PtUvHIQpk?feature=oembed)
+…with Spector’s 1963 hit, “[Be My Baby](https://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/).”
 
-…with Spector’s 1963 hit, “.”
-
-[Be My Baby](http://estreetshuffle.com/index.php/2019/06/01/matr-bruce-springsteen-and-ronnie-spector-be-my-baby/)
-
-[https://www.youtube.com/embed/jSPpbOGnFgk?feature=oembed](https://www.youtube.com/embed/jSPpbOGnFgk?feature=oembed)
+[Watch on Youtube: The Ronettes - Be My Baby (Official Audio)](https://www.youtube.com/watch?v=jSPpbOGnFgk)
 
 See what I mean?
 
@@ -26,11 +20,9 @@ It enters right here: in January 1977, Bruce was very much in the midst of his o
 
 By this time, the band was seriously hurting for money, and it was Steve Van Zandt who came to the rescue. Steve and Bruce were both longtime fans of Spector, and Steve had taken a side gig producing Spector’s comeback single. Bruce recruited the entire E Street Band (Bruce included, on guitar) to back Spector, boosting both the single’s visibility as well as the band members’ bank account balances.
 
-Unfortunately, though, Spector’s vocals and the mighty E Street Band were overpowered by the busy arrangement. There’s a going on in this recording.
+Unfortunately, though, Spector’s vocals and the mighty E Street Band were overpowered by the busy arrangement. There’s a *lot* going on in this recording.
 
-*lot*
-
-[https://www.youtube.com/embed/yJ72eejEcTQ?feature=oembed](https://www.youtube.com/embed/yJ72eejEcTQ?feature=oembed)
+[Watch on Youtube: Ronnie Spector & The E Street Band - 14 Say Goodbye To Hollywood (HQ)](https://www.youtube.com/watch?v=yJ72eejEcTQ)
 
 The single was released in April but failed to catch fire; it would be a few years before Spector would record her comeback album. Still, this was the first official recording to credit the E Street Band, and it’s significant to Springsteen fans for at least that reason.
 
@@ -40,15 +32,10 @@ This time, without the excess studio orchestration and production, Bruce and the
 
 The result is a much better version (IMO) of Ronnie Spector and the E Street Band covering Billy Joel’s “Say Goodbye to Hollywood.” Take a listen.
 
-[https://videopress.com/embed/O6eF1MI9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/O6eF1MI9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
-
-January 1977
-(April 1977)
-February 17, 1977 (Richfield, OH)
-May 13, 1977 (Red Bank, NJ)
+[Watch Video Highlight](https://videopress.com/embed/O6eF1MI9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 **Say Goodbye to Hollywood**  
-**Recorded:**<br>
-**Released:** *Say Goodbye to Hollywood (single)* <br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** January 1977<br>
+**Released:** *Say Goodbye to Hollywood (single)* (April 1977)<br>
+**First performed:** February 17, 1977 (Richfield, OH)<br>
+**Last performed:** May 13, 1977 (Red Bank, NJ)

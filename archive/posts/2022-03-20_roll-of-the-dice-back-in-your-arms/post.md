@@ -1,52 +1,44 @@
-
-
-“For a long time, if I loved you or if I felt a deep attachment to you, I’d hurt you if I could.” *–Bruce Springsteen, Western Stars*
+> “For a long time, if I loved you or if I felt a deep attachment to you, I’d hurt you if I could.” *–Bruce Springsteen, Western Stars*
 
 When Bruce Springsteen played “Back in Your Arms” live for the first time way back on the Reunion Tour, here’s how he introduced it:
 
-[https://www.youtube.com/embed/it2AyvSrjdU?feature=oembed](https://www.youtube.com/embed/it2AyvSrjdU?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Back In Your Arms [East Rutherford August 4, 1999]](https://www.youtube.com/watch?v=it2AyvSrjdU)
 
 *“This is a song about blowing a good thing… Everybody’s done that, had some blessing that they didn’t take into account and let it go out the window.”*
 
 It’s twenty years later now, and he still introduces it that way almost every time.
 
-[https://www.youtube.com/embed/6qcZCkNPZW8?feature=oembed](https://www.youtube.com/embed/6qcZCkNPZW8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Back in Your Arms - Leipzig 2013](https://www.youtube.com/watch?v=6qcZCkNPZW8)
 
 But one night in Adelaide on the High Hopes Tour, Bruce went off-script and gave us a little bit more insight into the song’s genesis:
 
-[https://www.youtube.com/embed/NAYO-JAxlgI?feature=oembed](https://www.youtube.com/embed/NAYO-JAxlgI?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Back in Your Arms (subita) - live in Adelaide](https://www.youtube.com/watch?v=NAYO-JAxlgI)
 
 Joe Tex was an astonishingly prolific soul singer whose mix of crooning vocals and impassioned testifying clearly influenced Bruce’s on-stage persona, as he alludes to above.
 
 “Back in Your Arms” is almost certainly an homage to Tex, even if Bruce never quite stuck the landing on his introduction that night. He seemed to have trouble recalling the Tex song he was searching for, until Steve cued him to “Hold On to What You Got.”
 
-[https://www.youtube.com/embed/_GFq-FT1rZM?feature=oembed](https://www.youtube.com/embed/_GFq-FT1rZM?feature=oembed)
+[Watch on Youtube: Joe Tex - Hold On To What You've Got](https://www.youtube.com/watch?v=_GFq-FT1rZM)
 
-But while “Hold On to What You Got” is certainly a thematic ancestor to Bruce’s rapping style (it’s even more of an influence on his 1988 “” performances), I suspect Bruce might have had a different Joe Tex song in mind when he wrote “Back in Your Arms.”
+But while “Hold On to What You Got” is certainly a thematic ancestor to Bruce’s rapping style (it’s even more of an influence on his 1988 “[I’m a Coward](https://estreetshuffle.com/index.php/2018/01/16/roll-of-the-dice-cover-me-im-a-coward/)” performances), I suspect Bruce might have had a different Joe Tex song in mind when he wrote “Back in Your Arms.”
 
-[I’m a Coward](http://estreetshuffle.com/index.php/2018/01/16/roll-of-the-dice-cover-me-im-a-coward/)
-
-[https://www.youtube.com/embed/6M0COSqKGsU?feature=oembed](https://www.youtube.com/embed/6M0COSqKGsU?feature=oembed)
+[Watch on Youtube: Joe Tex - I've Got To Do A Little Bit Better](https://www.youtube.com/watch?v=6M0COSqKGsU)
 
 And of course musically, Bruce was undeniably tipping his hat to Aretha Franklin’s “Without Love.”
 
-[https://www.youtube.com/embed/DSUTLDofTcw?feature=oembed](https://www.youtube.com/embed/DSUTLDofTcw?feature=oembed)
+[Watch on Youtube: Aretha Franklin - Without Love](https://www.youtube.com/watch?v=DSUTLDofTcw)
 
 Regardless of its original inspiration, though, “Back in Your Arms” is clearly a song that achieves its full power and potency when played live.
 
-The studio version has always left me a bit cold by comparison. In the officially released version from , I’d argue that Danny’s organ conveys more passion than Bruce’s vocals.
+The studio version has always left me a bit cold by comparison. In the officially released version from *Tracks*, I’d argue that Danny’s organ conveys more passion than Bruce’s vocals.
 
-*Tracks*
-
-[https://www.youtube.com/embed/9FBVo0LqhYQ?feature=oembed](https://www.youtube.com/embed/9FBVo0LqhYQ?feature=oembed)
+[Watch on Youtube: Back In Your Arms (Studio Outtake - 1995)](https://www.youtube.com/watch?v=9FBVo0LqhYQ)
 
 Don’t get me wrong: Bruce’s vocals are great on “Back in Your Arms,” but torch songs demand passion dialed up to eleven, and Bruce is at about a nine here.
 
-I may be biased, however, because for a few years prior to the release of the only version of “Back in Your Arms” that we knew was a rehearsal take from the documentary. Watch it, and compare Bruce’s vocals with the official take. There’s no doubt in my mind that were it not for the absence of Danny’s organ in the mix, this would be a clearly superior version. (It still may be.)
+I may be biased, however, because for a few years prior to the release of *Tracks,* the only version of “Back in Your Arms” that we knew was a rehearsal take from the *Blood Brothers* documentary. Watch it, and compare Bruce’s vocals with the official take. There’s no doubt in my mind that were it not for the absence of Danny’s organ in the mix, this would be a clearly superior version. (It still may be.)
 
-*Tracks,* *Blood Brothers*
-
-[https://videopress.com/embed/9gTfTB0q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9gTfTB0q?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/9gTfTB0q?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 If you’ve watched all of the above clips, then by now at least one thing should be clear: “Back in Your Arms” is a torch song where both the lyrics and music take a back seat to the passion of the performer.
 
@@ -76,17 +68,11 @@ There is one key lyrical moment in “Back in Your Arms,” however, and as is t
 
 I’ve seen analysis and conjecture positing that Bruce is singing to the E Street Band here–apologizing in a way for breaking up the band years prior. (“Back in Your Arms” was recorded by the E Street Band during the great diaspora of the 1990s, at a moment when it seemed like Bruce was flirting with reuniting them.)
 
-I’ve also seen arguments that Bruce is addressing his audience–apologizing for backing away from his mega-stardom and retreating into semi-private life. (At the time the song was recorded, Bruce had only the simultaneous and album release in almost eight years, and even those were three years in the rear view mirror.)
+I’ve also seen arguments that Bruce is addressing his audience–apologizing for backing away from his mega-stardom and retreating into semi-private life. (At the time the song was recorded, Bruce had only the simultaneous *Human Touch* and *Lucky Town* album release in almost eight years, and even those were three years in the rear view mirror.)
 
-*Human Touch**Lucky Town*
+These arguments seem more wishful than truthful to me, at least from a historical perspective. But both arguments serve to highlight the emotional truth and clarity that rings and resonates from the heart of “Back in Your Arms:” *I had a good thing in my life, but I’ve spent my life unappreciative of good things.*
 
-These arguments seem more wishful than truthful to me, at least from a historical perspective. But both arguments serve to highlight the emotional truth and clarity that rings and resonates from the heart of “Back in Your Arms:” 
-
-*I had a good thing in my life, but I’ve spent my life unappreciative of good things.*
-
-Or as Bruce would phrase it in almost a quarter-century later, 
-
-*Western Stars**“For a long time, if I loved you or felt a deep attachment to you, I’d hurt you if I could.”*
+Or as Bruce would phrase it in *Western Stars* almost a quarter-century later, *“For a long time, if I loved you or felt a deep attachment to you, I’d hurt you if I could.”*
 
 “Back in Your Arms” seems to come from an early place of reckoning for Bruce. Did he have his band in mind when he wrote it? His fans? His family? His friends? My guess–because of course, I do not know Mr. Springsteen–is that based on his literary and cinematic confessions, that bridge applied to everyone significant in his life at one point or another.
 
@@ -107,33 +93,24 @@ Twenty-four years later, we know that Bruce is in a much more emotionally secure
 ---
 
 
-: Here’s a rare acoustic version of “Back in Your Arms, performed only seven times on the Devils & Dust Tour. To me, it doesn’t come close to matching the power of a full-band performance, and I consider it more of a novelty than an essential. (But I wish I could have been there for it nonetheless.)
+**Bonus #1:** Here’s a rare acoustic version of “Back in Your Arms, performed only seven times on the Devils & Dust Tour. To me, it doesn’t come close to matching the power of a full-band performance, and I consider it more of a novelty than an essential. (But I wish I could have been there for it nonetheless.)
 
-**Bonus #1**
+[Watch on Youtube: Bruce Springsteen - Back in Your Arms (live 2005)](https://www.youtube.com/watch?v=Rgn8O2lU7OA)
 
-[https://www.youtube.com/embed/Rgn8O2lU7OA?feature=oembed](https://www.youtube.com/embed/Rgn8O2lU7OA?feature=oembed)
-
-This is one of my all-time favorite performances at a Springsteen show, because it’s one giant sixteen-minute train wreck. Seriously, watch it and try not to cringe–the band absolutely can get it together for the entirety of the song, and what makes matters worse is that Bruce is completely unable to lead them without breaking the spell of the song.
-
-**Bonus #2:***not*
+**Bonus #2:** This is one of my all-time favorite performances at a Springsteen show, because it’s one giant sixteen-minute train wreck. Seriously, watch it and try not to cringe–the band absolutely can *not* get it together for the entirety of the song, and what makes matters worse is that Bruce is completely unable to lead them without breaking the spell of the song.
 
 So why is it one of my favorites? It’s because of Bruce’s unflinching determination to make it through the song through sheer force of will and passion. At times, it feels as if Bruce is literally pulling the entire weight of the band with his vocals.
 
 For a song about an ex-lover carrying a torch he refuses to put down, I can’t think of a better metaphor.
 
-[https://www.youtube.com/embed/oQlkiVC3xis?feature=oembed](https://www.youtube.com/embed/oQlkiVC3xis?feature=oembed)
+[Watch on Youtube: Bruce Springsteen*Get your flowers On! *Back in Your Arms* Brisbane 14/02/17](https://www.youtube.com/watch?v=oQlkiVC3xis)
 
-January 12, 1995
-(1998)
-August 4, 1999 (East Rutherford, NJ)
-February 14, 2017 (Brisbane, Australia)
+**Back in Your Arms  
+**Recorded:** January 12, 1995<br>
+**Released:** *Tracks* (1998)<br>
+**First performed:** August 4, 1999 (East Rutherford, NJ)<br>
+**Last performed:** February 14, 2017 (Brisbane, Australia)
 
-**Back in Your Arms**
-**Recorded:**<br>
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-**Released:** *Tracks* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+ 

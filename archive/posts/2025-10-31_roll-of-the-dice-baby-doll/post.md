@@ -1,6 +1,4 @@
-
-
-“It was a song about dancing with a girl who was deaf, dumb, and blind with a lyric that included, ‘They danced all night to a silent band….’ I didn’t feel the earth moving beneath me. I told him these were the worst two songs I ever heard, utterly devoid of any pop potential… He said, “I’ll write some more songs and come back.”–*Mike Appel to Marc Eliot, Down Thunder Road*
+> “It was a song about dancing with a girl who was deaf, dumb, and blind with a lyric that included, ‘They danced all night to a silent band….’ I didn’t feel the earth moving beneath me. I told him these were the worst two songs I ever heard, utterly devoid of any pop potential… He said, “I’ll write some more songs and come back.”–*Mike Appel to Marc Eliot, Down Thunder Road*
 
 Bruce played “Baby Doll” for future manager Mike Appel at their very first meeting in 1971. Appel was so unimpressed that Bruce almost didn’t get a second chance.
 
@@ -10,11 +8,9 @@ If you listen to “Baby Doll” today, though, it holds up pretty well (except 
 
 Let’s take a listen:
 
-[https://videopress.com/embed/HYkpjTeZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HYkpjTeZ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/HYkpjTeZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Critics often dismiss “Baby Doll” as a rip-off, and they have a point.
-
-*Tommy*
+Critics often dismiss “Baby Doll” as a *Tommy* rip-off, and they have a point.
 
 The Who’s concept album had been out for about two years by the time Bruce first performed “Baby Doll” for Appel, and both featured a central character devoid of their senses. Bruce also hints that his baby doll, like Tommy, may not be truly physiologically disabled–her loss of sight, speech, and hearing may symbolize a retreat from a world that only causes her pain.
 
@@ -22,8 +18,6 @@ The Who’s concept album had been out for about two years by the time Bruce fir
 *They tried to tell me you were deaf and dumb*  
 *But I knew they were wrong*  
 *You were just a silent one*
-
-
 
 *Oh, baby doll*  
 *They tried to tell me you could not feel*  
@@ -45,8 +39,6 @@ If Appel had cut Bruce off by this point, I’d have understood. Even at the tim
 *It was so hard to know you*  
 *I could not tell, I couldn’t show you*  
 *But I didn’t have to ’cause you already knew*
-
-
 
 *Oh, baby doll*  
 *We had to see by touching hands*  
@@ -73,20 +65,12 @@ Bruce finishes the song the way he begins it, reinforcing the notion that Baby D
 
 “Baby Doll” had promise–enough promise that Bruce eventually recorded it as a demo at engineer Jim Cretecos’ apartment shortly after signing with Appel in early 1972. (It’s this version that we listened to above; Bruce’s original “Baby Doll” performance for Appel was on the piano rather than guitar.)
 
-But just like “,” “,” and the other songs Bruce recorded during those original April 1972 demo sessions, “Baby Doll” was never released in any form.
+But just like “[Hollywood Kids](https://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/),” “[Jesse](https://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/),” and the other songs Bruce recorded during those original April 1972 demo sessions, “Baby Doll” was never released in any form.
 
-[Hollywood Kids](http://estreetshuffle.com/index.php/2018/01/09/roll-of-the-dice-hollywood-kids/)[Jesse](http://estreetshuffle.com/index.php/2018/08/31/roll-of-the-dice-jesse/)
-
-April 1972
-
-November 4, 1971 (New York City, NY)
-November 4, 1971 (New York City, NY)
-
-**Baby Doll**
-**Recorded:**<br>
-
+**Baby Doll  
+**Recorded:** April 1972<br>
 **Never released**  
-**First performed:**<br>
-**Last performed:**<br>
+**First performed:** November 4, 1971 (New York City, NY)<br>
+**Last performed:** November 4, 1971 (New York City, NY)
 
 © October 13 2019 by Ken Rosen

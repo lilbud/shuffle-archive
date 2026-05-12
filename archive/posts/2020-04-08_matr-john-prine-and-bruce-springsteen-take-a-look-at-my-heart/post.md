@@ -19,9 +19,6 @@ The song is a note to the narrator’s ex-girlfriend’s new boyfriend, and the 
 
 It’s clever and angry and funny and vulnerable and a great piece of songwriting. Even without Bruce’s participation it would have been a standout track.
 
-(1991)
-
 **Take a Look at My Heart**
-**Released:**<br>
-*The Missing Years*  
+**Released:** *The Missing Years* (1991)<br>
 **Never performed**

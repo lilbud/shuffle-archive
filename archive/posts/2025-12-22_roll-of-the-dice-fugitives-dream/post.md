@@ -1,18 +1,10 @@
-
-
-In early 1983, Bruce was hard at work on the album that would become 
-
-*Born in the U.S.A.*
+In early 1983, Bruce was hard at work on the album that would become *Born in the U.S.A.*
 
 This was a particularly prolific songwriting period for Bruce; in addition to the twelve songs that made the final cut, another twenty were subsequently released on B-sides, box sets, and compilations.
 
-But there are dozens more that are unreleased–officially, that is. Some of the holdbacks have escaped into the wild, though, and one of the most compelling is “Fugitive’s Dream (Ballad).”
+But there are dozens more that are *still* unreleased–officially, that is. Some of the holdbacks have escaped into the wild, though, and one of the most compelling is “Fugitive’s Dream (Ballad).”
 
-*still*
-
-If you haven’t listened to yet, you might assume we’re about to delve into an alternate version of “Fugitive’s Dream,” which appears earlier on the album.
-
-*L.A. Garage Sessions ’83*
+If you haven’t listened to *L.A. Garage Sessions ’83* yet, you might assume we’re about to delve into an alternate version of “Fugitive’s Dream,” which appears earlier on the album.
 
 But curiously, “Fugitive’s Dream (Ballad)” is more closely related to “Unsatisfied Heart,” which Bruce worked on simultaneously. (Check out that entry for more of the backstory and comparison between the two.)
 
@@ -20,11 +12,9 @@ But while “Unsatisfied Heart” may be the catchier and more well-known of the
 
 So go ahead: give it a listen, and then we’ll break it down.
 
-[https://www.youtube.com/embed/wzsyKlSqErI?feature=oembed](https://www.youtube.com/embed/wzsyKlSqErI?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Fugitive's Dream (Ballad) (Official Audio)](https://www.youtube.com/watch?v=wzsyKlSqErI)
 
-“Fugitive’s Dream” is nothing short of stunning. If not for the date stamp on the recording (January 1983), we might assume that the song and the recording hail from Bruce’s period. It’s certainly as dark, brave, and fully realized as any of the classics from Bruce’s 1982 landmark album.
-
-*Nebraska*
+“Fugitive’s Dream” is nothing short of stunning. If not for the date stamp on the recording (January 1983), we might assume that the song and the recording hail from Bruce’s *Nebraska* period. It’s certainly as dark, brave, and fully realized as any of the classics from Bruce’s 1982 landmark album.
 
 Like “Unsatisfied Heart,” we open with a classic Springsteen introduction. In “Downbound Train” and “Dead Man Walkin’,” Bruce would reduce it to “I had a job, I had a girl; I had something going, Mister, in this world.” Here, however, it’s:
 
@@ -52,8 +42,6 @@ Unable to follow through with his urge to kill the threat in his home, he runs. 
 *I tried to understand the life I’ve lived and these things that I’ve felt*  
 *While I walked these streets at night a stranger to myself*
 
-
-
 *Last night the same dream, it keeps coming around*  
 *I’m standing high in the green hills looking ‘cross the outskirts of town*  
 *The night air fills my lungs, the wind sweeps around me so strong*  
@@ -63,12 +51,9 @@ That last verse is identical to “Unsatisfied Heart” as well–at least most 
 
 Here, however, it’s not just the distant past that the narrator must now carry as a burden–it’s the knowledge that he came close to killing a man to keep his secret buried. And while it’s true that he ultimately didn’t go through with it, the songwriter hardly sees that as a victory. The dimming stars symbolize the encroaching darkness in the narrator’s soul and foretell a future that is anything but peaceful.
 
-January-March 1983
-(2025)
-
 **Fugitive’s Dream**  
-**Recorded:**<br>
-**Released:** *L.A. Garage Sessions ’83* <br>
+**Recorded:** January-March 1983<br>
+**Released:** *L.A. Garage Sessions ’83* (2025)<br>
 **Never performed**
 
 © October 19, 2019 / December 21, 2025

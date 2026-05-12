@@ -1,24 +1,18 @@
-
-
-the first time Bruce played “This Is Your Sword” in public, but all I remember about that performance is how unprepared Little Steven was for that selection.
-
-[I was in the pit leaning on the stage](https://estreetshuffle.com/index.php/2018/01/29/where-the-band-was-cape-town-january-29-2014/)
+[I was in the pit leaning on the stage](https://estreetshuffle.com/index.php/2018/01/29/where-the-band-was-cape-town-january-29-2014/) the first time Bruce played “This Is Your Sword” in public, but all I remember about that performance is how unprepared Little Steven was for that selection.
 
 It was clearly an audible, and poor Stevie looked like the student who forgot to do the assignment as the teacher announces a pop quiz. In the video below, you can see Steve spend the first verse in a panic, consulting Garry while Bruce has a microphone brought up front for the two of them to sing at together.
 
 “C’mon Steve, I need some help!” Bruce called, and for the rest of the song Steve either faked his way through his backing vocals or clung to the teleprompter for dear life.
 
-[https://www.youtube.com/embed/PQLUN4h3KpA?feature=oembed](https://www.youtube.com/embed/PQLUN4h3KpA?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - 2014-01-29 - Cape Town Bellville Velodrome - This Is Your Sword - World Premiere](https://www.youtube.com/watch?v=PQLUN4h3KpA)
 
 I’ve never been able to decide whether Bruce was aware of how flatfooted he caught Steve that night, but he had a devilish gleam in his eye that makes me suspect he very much knew and was deliberately messing with his old friend. (The irony is that Steve provided backing vocals on the album track, so we know this isn’t the first time he’s ever been called on for this song.)
 
 It was funny, but it was also endearing–one of those moments when you’re almost painfully aware that the music is being made right in front of you. And it’s probably the only reason I remember that debut at all.
 
-Apart from its Celtic music and medieval lyrics, I don’t find “This Is Your Sword” particularly memorable. It’s not a bad song, mind you–I’d certainly never skip it when I listen to –it’s just ground Bruce has covered before. Let’s take a listen.
+Apart from its Celtic music and medieval lyrics, I don’t find “This Is Your Sword” particularly memorable. It’s not a bad song, mind you–I’d certainly never skip it when I listen to *High Hopes*–it’s just ground Bruce has covered before. Let’s take a listen.
 
-*High Hopes*
-
-[https://www.youtube.com/embed/a0xhkNuhBR8?feature=oembed](https://www.youtube.com/embed/a0xhkNuhBR8?feature=oembed)
+[Watch on Youtube: This is Your Sword](https://www.youtube.com/watch?v=a0xhkNuhBR8)
 
 I’ve read several reviews and accounts that suggest that “This Is Your Sword” is sung by a father to his children, but I don’t subscribe to that interpretation. The song is more universal than that, something Bruce makes clear in the very first line:
 
@@ -26,8 +20,6 @@ I’ve read several reviews and accounts that suggest that “This Is Your Sword
 *These are the few things that I leave to thee*  
 *The sword of our fathers with lessons hard taught*  
 *The shield strong and sturdy from battles well fought*
-
-
 
 *Well this is your sword, this is your shield*  
 *This is the power of love revealed*  
@@ -52,8 +44,6 @@ And we are beset these days more than ever before.
 *If you find yourself staring in the abyss*  
 *Hold tight to your loved ones and remember this*
 
-
-
 *This shield will protect your sacred heart*  
 *The sword will defend from what comes in the dark*  
 *Should you grow weary on the battlefield*  
@@ -65,28 +55,18 @@ There’s something about that last line that lingers in our memory, even if the
 
 Perhaps it’s in part due to the awkward meter and rhyme, but it’s more than that. It’s a reminder that even when the world is at its cruelest, we’re never alone. If we love, we are loved, and that wellspring can provide all the reserve strength and stamina we need to endure.
 
-It’s a beautiful message and a lovely trifle of a song, but stripped of its Arthurian gimmick “This Is Your Sword” is essentially a “” retread–and unlike that earlier classic, the deliberately stilted “This Is Your Sword” is a lot harder to neatly fit into the flow of an E Street Band concert.
-
-[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)
+It’s a beautiful message and a lovely trifle of a song, but stripped of its Arthurian gimmick “This Is Your Sword” is essentially a “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” retread–and unlike that earlier classic, the deliberately stilted “This Is Your Sword” is a lot harder to neatly fit into the flow of an E Street Band concert.
 
 That may be why Bruce only tried it twice more; while the latter two went more smoothly than that first outing in Cape Town, all three performances of “This Is Your Sword” felt out of place in the moment.
 
-[https://www.youtube.com/embed/uuZt3HiRvDg?feature=oembed](https://www.youtube.com/embed/uuZt3HiRvDg?feature=oembed)
+[Watch on Youtube: ~ Bruce Springsteen - This Is Your Sword (Albany, May 13, 2014) ~](https://www.youtube.com/watch?v=uuZt3HiRvDg)
 
 But context is king, and if we’re lucky enough to get at least one more Sessions Band tour out of Bruce, I’d be interested in seeing what they can do with “This Is Your Sword.” With their expansive instrumental range and comfort with this type of arrangement (Sessions Band violinist Sam Bardfeld even plays on the studio track), I suspect it’d be right at home in their sets.
 
-2013
-(2014)
-January 29, 2014 (Cape Town, South Africa)
-May 13, 2014 (Albany, NY)
+**This Is Your Sword  
+**Recorded:** 2013<br>
+**Released:** *High Hopes* (2014)<br>
+**First performed:** January 29, 2014 (Cape Town, South Africa)<br>
+**Last performed:** May 13, 2014 (Albany, NY)
 
-**This Is Your Sword**
-**Recorded:**<br>
-
-**Released:***High Hopes* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

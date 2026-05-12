@@ -1,20 +1,12 @@
-
-
 We know that Bruce has employed biblical imagery in his songs pretty much since he started writing them, but am I the only one who thinks it’s odd that Bruce released songs about Jonah and the whale on two albums in a row?
 
-Okay, maybe “” isn’t about Jonah, but that bonus track certainly uses the myth as metaphor.
+Okay, maybe “[Swallowed Up (In the Belly of the Whale)](https://estreetshuffle.com/index.php/2020/05/07/roll-of-the-dice-swallowed-up-in-the-belly-of-the-whale/)” isn’t *really* about Jonah, but that [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)bonus track certainly uses the myth as metaphor.
 
-[Swallowed Up (In the Belly of the Whale)](https://estreetshuffle.com/index.php/2020/05/07/roll-of-the-dice-swallowed-up-in-the-belly-of-the-whale/)*really*[](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*
+But it’s still made me wonder when I first listened to “Heaven’s Wall” on Bruce’s follow-up *High Hopes* album: Bruce sure seemed to have repentance on his mind for a while.
 
-But it’s still made me wonder when I first listened to “Heaven’s Wall” on Bruce’s follow-up album: Bruce sure seemed to have repentance on his mind for a while.
+We’ll discuss the lyrics in a bit, but let’s take a few minutes to listen to the track. In fact, maybe listen twice, because there’s a *lot* going on in “Heaven’s Wall.”
 
-*High Hopes*
-
-We’ll discuss the lyrics in a bit, but let’s take a few minutes to listen to the track. In fact, maybe listen twice, because there’s a going on in “Heaven’s Wall.”
-
-*lot*
-
-[https://www.youtube.com/embed/uRZbX9dJNU0?feature=oembed](https://www.youtube.com/embed/uRZbX9dJNU0?feature=oembed)
+[Watch on Youtube: Heaven's Wall](https://www.youtube.com/watch?v=uRZbX9dJNU0)
 
 See what I mean? In the first twenty seconds alone, we segue from a cowbell count-off to a samba intro to a gospel choir. The first verse hasn’t even kicked in yet, and I’m already dizzy.
 
@@ -31,14 +23,10 @@ That said, I can’t help but feel that “Heaven’s Wall” is more of a songw
 *Come on sons of Abraham*  
 *Waiting outside heaven’s wall*
 
-
-
 *Raise your hand, raise your hand, raise your hand*  
 *Raise your hand, raise your hand, raise your hand*  
 *And together we’ll walk into Canaan land*  
 *Raise your hand, raise your hand, raise your hand*
-
-
 
 *He saw the watcher at the city gates*  
 *Jonah in the belly of the whale*  
@@ -47,9 +35,7 @@ That said, I can’t help but feel that “Heaven’s Wall” is more of a songw
 
 Most reviews that mentioned “Heaven’s Wall” focused on Tom Morello’s dueling guitar solos: he plays call-and-response solos that alternate between left and right channels–not only a cool technical effect but a clever way of underscoring the song’s gospel spirit.
 
-Morello’s solos may be the flashiest part of the arrangement, but to me the most impressive aspect of “Heaven’s Wall” is the fact that it works at all. If I didn’t know that Bruce has never done drugs in his life, I’d swear he must have been smoking when he came up with the idea to blend a samba rhythm, a middle eastern melody, a gospel choir, a self-guitar duel, and discordant strings into one giant melange.
-
-*something*
+Morello’s solos may be the flashiest part of the arrangement, but to me the most impressive aspect of “Heaven’s Wall” is the fact that it works at all. If I didn’t know that Bruce has never done drugs in his life, I’d swear he must have been smoking *something* when he came up with the idea to blend a samba rhythm, a middle eastern melody, a gospel choir, a self-guitar duel, and discordant strings into one giant melange.
 
 And it does indeed work. I can’t say that “Heaven’s Wall” is one of my favorite songs in Springsteen’s catalog, or even just on that one album, but I can’t help fixating on it every time I hear it.
 
@@ -60,35 +46,24 @@ Keep on experimenting, Bruce!
 ---
 
 
-Bruce played “Heaven’s Wall” live for the first time on the very day the album dropped: January 14, 2014 on Skip ahead to the 24:10 mark below and you can watch the live debut. (Nils plays the role of “Right Ear Tom” during the solos, because it would be weird to watch Tom duel himself.)
+Bruce played “Heaven’s Wall” live for the first time on the very day the *High Hopes* album dropped: January 14, 2014 on *Late Night with Jimmy Fallon.* Skip ahead to the 24:10 mark below and you can watch the live debut. (Nils plays the role of “Right Ear Tom” during the solos, because it would be weird to watch Tom duel himself.)
 
-*High Hopes**Late Night with Jimmy Fallon.*
-
-[https://player.vimeo.com/video/84278263?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/84278263?dnt=1&amp;app_id=122963)
+[www.facebook.com/SpringsteenChile](https://player.vimeo.com/video/84278263?dnt=1&app_id=122963)
 
 Personally, I don’t think the songs ever translated perfectly from studio to stage–the E Street Band can’t quite capture live the alchemy of the studio track.
 
 It’s not for lack of trying, though–they gave it several great tries throughout the High Hopes Tour, and each was a lot of fun for both band and fans, starting with this rehearsal take in Cape Town.
 
-[https://www.youtube.com/embed/-GZ-Vbr01CI?feature=oembed](https://www.youtube.com/embed/-GZ-Vbr01CI?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - "Heaven's Wall" - Cape Town, Bellville Sound Check](https://www.youtube.com/watch?v=-GZ-Vbr01CI)
 
-Despite playing it for almost half of the entire High Hopes Tour, Bruce hasn’t touched “Heaven’s Wall” since, possibly because Morello’s absence would be noticeable during the solos, more likely because the deep cut wouldn’t have fit well on the River Tour (the only tour since ).
-
-*High Hopes*
+Despite playing it for almost half of the entire High Hopes Tour, Bruce hasn’t touched “Heaven’s Wall” since, possibly because Morello’s absence would be noticeable during the solos, more likely because the deep cut wouldn’t have fit well on the River Tour (the only tour since *High Hopes*).
 
 But “Heaven’s Wall” is a fascinating song that explores dominant themes in Bruce’s modern music–it hopefully won’t remain dormant for long.
 
-2007-2013
-(2014)
-January 14, 2014 (New York City, NY)
-April 26, 2014 (Atlanta, GA)
+**Heaven’s Wall  
+**Recorded:** 2007-2013<br>
+**Released:** *High Hopes* (2014)<br>
+**First performed:** January 14, 2014 (New York City, NY)<br>
+**Last performed:** April 26, 2014 (Atlanta, GA)
 
-**Heaven’s Wall**
-**Recorded:**<br>
-
-**Released:** *High Hopes* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

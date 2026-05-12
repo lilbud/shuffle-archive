@@ -22,7 +22,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/02/Citizens__Voice_Thu__Feb_12__1998_-scaled.jpg)
 
-**2006**: Bruce covers James Taylor's "[Millworker](https://estreetshuffle.com/index.php/2020/01/12/cover-me-millworker/)" at the annual MusiCares benefit.
+**2006:** Bruce covers James Taylor's "[Millworker](https://estreetshuffle.com/index.php/2020/01/12/cover-me-millworker/)" at the annual MusiCares benefit.
 
 [Watch on Youtube: MILLWORKER by Bruce Springsteen](https://www.youtube.com/watch?v=1lNNMb_7qcE)
 

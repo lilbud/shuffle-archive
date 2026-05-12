@@ -139,7 +139,7 @@ Over the years, though, it's been Roy Bittan who's emerged as the hero of live p
 
 [Watch on Youtube: Racing In The Street - Philadelphia (Best Version) - 9/9/16](https://www.youtube.com/watch?v=DQc_HLYh_NI)
 
-**Bonus #1**: In 2010, Bruce released an alternate vintage version of "Racing in the Street" on his album *The Promise.*" Commonly known as "Racing in the Street ('78)" (inexplicably, since it was recorded in 1977), the song features lyrics closer to the original solo piano version above, arranged for a more powerful band performance.
+**Bonus #1:** In 2010, Bruce released an alternate vintage version of "Racing in the Street" on his album *The Promise.*" Commonly known as "Racing in the Street ('78)" (inexplicably, since it was recorded in 1977), the song features lyrics closer to the original solo piano version above, arranged for a more powerful band performance.
 
 It's a fascinating insight into the evolution of a classic song, but even though it's a fantastic performance (featuring David Lindley on violin), the arrangement stomps on the song's sadness and robs it of its emotional power.
 

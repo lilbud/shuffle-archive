@@ -1,48 +1,32 @@
-
-
-“We love you, Bruce!” —*a voice from the crowd on November 16, 1990*
-
-
-
-“But you don’t really know me.” *–Bruce Springsteen’s response, immediately before playing “Reason to Believe”*
+> “We love you, Bruce!” —*a voice from the crowd on November 16, 1990*
+> 
+> 
+> 
+> “But you don’t really know me.” *–Bruce Springsteen’s response, immediately before playing “Reason to Believe”*
 
 Except for a very select few of my readers (you know who you are), we don’t really know him.
 
 And in 1982, three decades before he opened up about his lifelong struggle with depression, we knew him even less.
 
-Which may be why “Reason to Believe” was such a Rorshach Test of a song when it was first released on in 1982.
+Which may be why “Reason to Believe” was such a Rorshach Test of a song when it was first released on *Nebraska* in 1982.
 
-*Nebraska*
+*Rolling Stone* said it “offers a ray of hope amid all this sadness.” The Sioux Falls Argus-Leader called it “one of the two most depressing songs on the album, ranking with Paul Simon’s ‘Slip-Slidin’ Away’ for pessimism.”
 
-said it “offers a ray of hope amid all this sadness.” The Sioux Falls Argus-Leader called it “one of the two most depressing songs on the album, ranking with Paul Simon’s ‘Slip-Slidin’ Away’ for pessimism.”
+Robert Hilburn characterized it as “bittersweet humor,” reminiscent of Randy Newman–but the daily paper in Lincoln, Nebraska noted that Bruce sings it “without apparent cynicism or irony.” Bruce Pollock of *The Journal News* cites the song’s “respect for the indomitable spirit of humanity.”
 
-*Rolling Stone*
-
-Robert Hilburn characterized it as “bittersweet humor,” reminiscent of Randy Newman–but the daily paper in Lincoln, Nebraska noted that Bruce sings it “without apparent cynicism or irony.” Bruce Pollock of cites the song’s “respect for the indomitable spirit of humanity.”
-
-*The Journal News*
-
-But the most unsettling take belonged to the : “Facing [the possibility that there are no answers] has driven more than one sensitive soul right up to the edge of the abyss, and over it. One can only hope that Springsteen will either find ‘some reason to believe’ or learn to live without one.”
-
-*New York Times*
+But the most unsettling take belonged to the *New York Times*: “Facing [the possibility that there are no answers] has driven more than one sensitive soul right up to the edge of the abyss, and over it. One can only hope that Springsteen will either find ‘some reason to believe’ or learn to live without one.”
 
 Looking and listening back, it’s impossible not to hear the detachment in Bruce’s voice as he progressively loses himself in the song; by the final verse, he’s almost swallowed up by it.
 
-[https://www.youtube.com/embed/H49obsV6oZ0?feature=oembed](https://www.youtube.com/embed/H49obsV6oZ0?feature=oembed)
+[Watch on Youtube: Reason to Believe](https://www.youtube.com/watch?v=H49obsV6oZ0)
 
-is one of Bruce’s most thematic albums, and its theme is disconnection. Every character suffers from some kind of alienation; severed relationships pervade the album. Alienation from one’s father, from one’s brother, from one’s lover. Disconnection from one’s past, one’s future, the very laws and norms that hold society together.
-
-*Nebraska*
+*Nebraska* is one of Bruce’s most thematic albums, and its theme is disconnection. Every character suffers from some kind of alienation; severed relationships pervade the album. Alienation from one’s father, from one’s brother, from one’s lover. Disconnection from one’s past, one’s future, the very laws and norms that hold society together.
 
 Not every song Bruce wrote during that period is dark, but the fact that he curated that particular subset for his album is hard to view as anything less than a cry for help. And “Reason to Believe” is the exclamation point at the end of it.
 
 And yet even now, it’s possible to read Bruce’s lyrics as hopeful, and when he’s performed it in the modern era, we hear it that way, too.
 
-That’s because “Reason to Believe” hopeful–as hopeful as it is despairing. It works on both levels because anyone who has struggled with depression and is still with us has also grappled with hope. And the distillation of that dichotomy can be found in the most important word in the entire song: .
-
-*is**some*
-
-
+That’s because “Reason to Believe” *is* hopeful–as hopeful as it is despairing. It works on both levels because anyone who has struggled with depression and is still with us has also grappled with hope. And the distillation of that dichotomy can be found in the most important word in the entire song: *some*.
 
 *Seen a man standing over a dead dog by the highway in a ditch*  
 *He’s looking down kinda puzzled, poking that dog with a stick*  
@@ -103,13 +87,9 @@ Seconds pass, and we can’t help but feel that there’s a missing line. It doe
 *Wondering where can his baby be*  
 *Still at the end of every hard earned day people find some reason to believe*
 
-. Bruce mocks his characters for continuing to believe for . But he also envies them, because they’ve found . “Reason to Believe” is almost a dialogue between Bruce and his characters, a plea from songwriter to his creations to please share with him their secret.
+*Some reason to believe*. Bruce mocks his characters for continuing to believe for *some reason*. But he also envies them, because they’ve found *some reason*. “Reason to Believe” is almost a dialogue between Bruce and his characters, a plea from songwriter to his creations to please share with him their secret.
 
-*Some reason to believe**some reason**some reason*
-
-I mentioned earlier that the most important word in the song is . It’s the word that gives away the game. If Bruce’s chorus referred to people finding reason to believe, it would imply that he understood. But when he refers to reason, it’s clear that he doesn’t.
-
-*some**a**some*
+I mentioned earlier that the most important word in the song is *some*. It’s the word that gives away the game. If Bruce’s chorus referred to people finding *a* reason to believe, it would imply that he understood. But when he refers to *some* reason, it’s clear that he doesn’t.
 
 If life is fleeting, why does it matter? If love isn’t permanent, than why love? Why risk pain and disappointment?
 
@@ -120,31 +100,27 @@ Why?
 ---
 
 
-Although Bruce didn’t tour behind “Reason to Believe” came out almost immediately on the Born in the U.S.A. Tour. But it took years before Bruce figured out how to translate the song to the stage.
-
-*Nebraska,*
+Although Bruce didn’t tour behind *Nebraska,* “Reason to Believe” came out almost immediately on the Born in the U.S.A. Tour. But it took years before Bruce figured out how to translate the song to the stage.
 
 In its early outings, Bruce used a minimalist full-band arrangement to create a sense of intimacy in arenas, but it was never very successful. (Bruce dropped it altogether for the stadium leg.)
 
-[https://www.youtube.com/embed/-k2QcB6bV9o?feature=oembed](https://www.youtube.com/embed/-k2QcB6bV9o?feature=oembed)
+[Watch on Youtube: Reason To Believe (Live at Meadowlands Arena, E. Rutherford, NJ - August 1984)](https://www.youtube.com/watch?v=-k2QcB6bV9o)
 
 In 1990, he performed it at his now legendary Christic shows, with a newfound vulnerability in his vocals born of therapy.
 
-[https://www.youtube.com/embed/N_wJB0e0-Qo?feature=oembed](https://www.youtube.com/embed/N_wJB0e0-Qo?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Reason To Believe (Los Angeles, November 16, 1990)](https://www.youtube.com/watch?v=N_wJB0e0-Qo)
 
 But I’d argue that it wasn’t until the 21st century that Bruce successfully channeled the alienation at the core of “Reason to Believe” and unleashed its potential in concert.
 
 Bruce’s first breakthrough came on his 2005 solo acoustic tour, where he used a bullet mic to create an artificial sense of distance and separation between narrator and audience via a stomping blues arrangement.
 
-[https://www.youtube.com/embed/o2GxcTjeu58?feature=oembed](https://www.youtube.com/embed/o2GxcTjeu58?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Archives: "Reason To Believe" Stockholm, Sweden, June 25, 2005](https://www.youtube.com/watch?v=o2GxcTjeu58)
 
 And then came the Magic Tour.
 
-In a stroke of inspired genius, Bruce completely reinvented “Reason to Believe” as a show-stopping rocker in an arrangement lifted straight from Norman Greenbaum’s “Spirit in the Sky” (and as reader Chris points out in the comments below, also more than a little similar to of Bruce’s original).
+In a stroke of inspired genius, Bruce completely reinvented “Reason to Believe” as a show-stopping rocker in an arrangement lifted straight from Norman Greenbaum’s “Spirit in the Sky” (and as reader Chris points out in the comments below, also more than a little similar to [The Beat Farmers’ 1985 cover](https://estreetshuffle.com/index.php/2018/09/10/cover-me-beat-farmers-reason-to-believe/) of Bruce’s original).
 
-[The Beat Farmers’ 1985 cover](https://estreetshuffle.com/index.php/2018/09/10/cover-me-beat-farmers-reason-to-believe/)
-
-[https://www.youtube.com/embed/Ze2-AJ7AF6g?feature=oembed](https://www.youtube.com/embed/Ze2-AJ7AF6g?feature=oembed)
+[Watch on Youtube: ~ Bruce Springsteen - Reason To Believe (Hartford, October 2, 2007) ~](https://www.youtube.com/watch?v=Ze2-AJ7AF6g)
 
 Bruce’s introductory dissonant harmonica blasts hit us like anguished existential screams into the void. And when the band finally kicks in at full power… it’s nothing less than electrifying the first time we hear it (and every time after, too).
 
@@ -154,26 +130,16 @@ Because “Spirit in the Sky” is a song about preparing for death.
 
 But it’s also about being at peace with death, because it’s the gateway to a better place. It’s about embracing faith in the absence of any earthly evidence to support it.
 
-It’s about believing, .
-
-*for some reason*
+It’s about believing, *for some reason*.
 
 So we best believe that Bruce’s Greenbaum-esque arrangement for “Reason to Believe is a deliberate if implicit statement.
 
 Bruce’s 1982 recording of “Reason to Believe” was a question, but when he performs it today, it’s an answer.
 
-January 3, 1982
-(1982)
-July 1, 1984 (St. Paul, MN)
-July 11, 2016 (Paris, France)
+**Reason to Believe  
+**Recorded:** January 3, 1982<br>
+**Released:** *Nebraska* (1982)<br>
+**First performed:** July 1, 1984 (St. Paul, MN)<br>
+**Last performed:** July 11, 2016 (Paris, France)
 
-**Reason to Believe**
-**Recorded:**<br>
-
-**Released:***Nebraska* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

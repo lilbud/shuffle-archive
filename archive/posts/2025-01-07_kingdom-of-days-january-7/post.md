@@ -1,6 +1,6 @@
 **1973:** Bruce and his band finish a four-night, two-shows-nightly stand opening for Travis, Shook and The Club Wow at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1985**: Bruce and the E Street Band play the first of two shows at the Market Square Arena in Indianapolis.
+**1985:** Bruce and the E Street Band play the first of two shows at the Market Square Arena in Indianapolis.
 
 [Watch Video Highlight](https://videopress.com/embed/u6P0Qra6)
 
@@ -24,7 +24,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2022/01/1996-01-07-1.jpg)
 
-**2006**: Bruce attends Jann Wenner's 60th birthday party at Le Bernardin in New York City, and he performs a song he wrote for the occasion. "Jann's Song" will never surface, but it reportedly includes the lyrics, "*I never guessed a man whose magazine once changed my life / Would one day want to have a threesome with my wife!*"
+**2006:** Bruce attends Jann Wenner's 60th birthday party at Le Bernardin in New York City, and he performs a song he wrote for the occasion. "Jann's Song" will never surface, but it reportedly includes the lyrics, "*I never guessed a man whose magazine once changed my life / Would one day want to have a threesome with my wife!*"
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/2006-01-07.png)
 

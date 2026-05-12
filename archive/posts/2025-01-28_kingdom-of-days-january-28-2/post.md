@@ -1,4 +1,4 @@
-**1972**: The Bruce Springsteen Band plays The Captain's Garter in Neptune, New Jersey.
+**1972:** The Bruce Springsteen Band plays The Captain's Garter in Neptune, New Jersey.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/01/1972-0128.jpg)
 

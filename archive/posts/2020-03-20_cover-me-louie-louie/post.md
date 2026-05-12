@@ -1,4 +1,4 @@
-No recording exists of Bruce Springsteen's first known performance of "Louie Louie" on September 9, 1978. (**Update 3/21/20**: I'm wrong, as readers Mark and Suzanne point out below. I have the bootleg from that show but thought it was missing "Louie Louie." Thanks for the correction, guys!)
+No recording exists of Bruce Springsteen's first known performance of "Louie Louie" on September 9, 1978. (**Update 3/21/20:** I'm wrong, as readers Mark and Suzanne point out below. I have the bootleg from that show but thought it was missing "Louie Louie." Thanks for the correction, guys!)
 
 That's okay, though, because it beggars belief to think that an aspiring rock star like Bruce wouldn't have played it long, long before the end of his 29th year on the planet.
 

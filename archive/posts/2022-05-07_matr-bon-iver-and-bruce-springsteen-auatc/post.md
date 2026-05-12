@@ -1,12 +1,10 @@
-
-
 Bruce Springsteen appears in this song.
 
 I think.
 
 He’s credited with providing backing vocals, at least. I’ll be darned if I can pick them out though, and I’m usually pretty good at that.
 
-[https://www.youtube.com/embed/-DusRnF36UA?feature=oembed](https://www.youtube.com/embed/-DusRnF36UA?feature=oembed)
+[Watch on Youtube: Bon Iver - AUATC - Official Video](https://www.youtube.com/watch?v=-DusRnF36UA)
 
 “AUATC” stands for “Ate Up All Their Cake,” and it’s brought to you by Grammy-winning indie-folk band Bon Iver.
 
@@ -22,11 +20,7 @@ Bruce, of course, has been known to speak out against the excesses and abuses of
 
 Presumably that’s by intent, in keeping with the song’s theme. But for hardcore Springsteen fans like us, eager to hear our guy’s contributions stand out, we’ll have to look (and listen) elsewhere.
 
-2020
-(single) (August 5, 2020)
-
 **AUATC**
-**Recorded:**<br>
-
-**Released:** *AUATC* <br>
+**Recorded:** 2020<br>
+**Released:** *AUATC* (single) (August 5, 2020)<br>
 **Never performed**

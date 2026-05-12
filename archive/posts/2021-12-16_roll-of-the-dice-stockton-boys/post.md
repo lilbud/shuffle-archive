@@ -1,38 +1,24 @@
+In the early months of 1980, Bruce was still writing and tinkering with material for his upcoming album, *The River.* He often retreated into his home studio in Holmdel, New Jersey, where alone with his guitar and tape recorder, he’d work and re-work lyrics, test different arrangements, and occasionally even [graft lyrics onto completely different melodies](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/).
 
+“[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” was written and finessed during this time, as was “[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/).” A song called “[Whitetown](https://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/)” wouldn’t see the light of day until it was officially released in the album’s anniversary box set in 2015; other songs like “[Everybody Wants My Baby](https://estreetshuffle.com/index.php/2018/11/15/roll-of-the-dice-everybody-wants-my-baby/)” and “[You Gotta Be Kind](https://estreetshuffle.com/index.php/2018/02/23/roll-of-the-dice-you-gotta-be-kind/)” were relatively far along but remain unreleased to this day.
 
-In the early months of 1980, Bruce was still writing and tinkering with material for his upcoming album, He often retreated into his home studio in Holmdel, New Jersey, where alone with his guitar and tape recorder, he’d work and re-work lyrics, test different arrangements, and occasionally even .
+And then there was “Stockton Boys” (and its twin sister, “[Stockton Girls](https://estreetshuffle.com/index.php/2020/02/27/roll-of-the-dice-stockton-girls/),” which we’ll discuss another day). The most underdeveloped of the songs Bruce grappled with during these sessions, “Stockton Boys” was discarded somewhere along the way to *The River* (although some of its lyrics would show up a few years down the road on *Born in the U.S.A.).*
 
-*The River.* [graft lyrics onto completely different melodies](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)
+However, not just one but *four* home-recorded outtakes of a very work-in-progress “Stockton Boys” escaped into the wild, and it’s fascinating not just to hear this unreleased song, but also to listen in on Bruce’s songwriting process. Let’s eavesdrop…
 
-“” was written and finessed during this time, as was “.” A song called “” wouldn’t see the light of day until it was officially released in the album’s anniversary box set in 2015; other songs like “” and “” were relatively far along but remain unreleased to this day.
-
-[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)[Whitetown](http://estreetshuffle.com/index.php/2018/04/19/roll-of-the-dice-whitetown/)[Everybody Wants My Baby](http://estreetshuffle.com/index.php/2018/11/15/roll-of-the-dice-everybody-wants-my-baby/)[You Gotta Be Kind](http://estreetshuffle.com/index.php/2018/02/23/roll-of-the-dice-you-gotta-be-kind/)
-
-And then there was “Stockton Boys” (and its twin sister, “,” which we’ll discuss another day). The most underdeveloped of the songs Bruce grappled with during these sessions, “Stockton Boys” was discarded somewhere along the way to (although some of its lyrics would show up a few years down the road on 
-
-[Stockton Girls](https://estreetshuffle.com/index.php/2020/02/27/roll-of-the-dice-stockton-girls/)*The River* *Born in the U.S.A.).*
-
-However, not just one but home-recorded outtakes of a very work-in-progress “Stockton Boys” escaped into the wild, and it’s fascinating not just to hear this unreleased song, but also to listen in on Bruce’s songwriting process. Let’s eavesdrop…
-
-*four*
-
-[https://www.youtube.com/embed/E66vPl0zvLA?feature=oembed](https://www.youtube.com/embed/E66vPl0zvLA?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Stockton Boys #1](https://www.youtube.com/watch?v=E66vPl0zvLA)
 
 As I mentioned, the song isn’t fully developed. A lot of the lyrics are bluffed, but there’s enough there to figure out what Bruce was aiming for. And those first lines should sound at least a bit familiar–and the second verse variation even more so:
 
 *They wear it in their eyes, they wear it on their shirts*  
 *They come down here looking to get hurt*
 
-…because a few years later:
-
-[they’d show up in somewhat altered form](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
-
-
+…because [they’d show up in somewhat altered form](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/) a few years later:
 
 *Friday night’s pay night guys fresh out of work*  
 *Talking about the weekend scrubbing off the dirt*  
-*Some heading home to their families,* **some are looking to get hurt**  
-*Some going down to Stovell* **wearing trouble on their shirts**
+*Some heading home to their families, **some are looking to get hurt***  
+*Some going down to Stovell **wearing trouble on their shirts***
 
 The chorus is the only part of the song with fully intelligible lyrics, and it’s here where the song comes into focus:
 
@@ -46,7 +32,7 @@ The Stockton boys are hooligans, come to town to cause trouble. It’s unclear f
 
 A later take provides more evidence for the last interpretation. In this version, the boys come to town every Friday night (fresh out of work). In fact, that first verse of “Working on the Highway” feels very much like it grew out of this particular take of “Stockton Boys.”
 
-[https://www.youtube.com/embed/3oP4FUeH1C8?feature=oembed](https://www.youtube.com/embed/3oP4FUeH1C8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Stockton Boys #2](https://www.youtube.com/watch?v=3oP4FUeH1C8)
 
 These boys are looking for release and reprieve. They “leave their little girls at home” and “come looking for a kiss.”
 
@@ -54,7 +40,7 @@ These boys are looking for release and reprieve. They “leave their little girl
 
 In a third version, Bruce puts a fine point on the Stockton boys:
 
-[https://www.youtube.com/embed/6rY67dsXmnU?feature=oembed](https://www.youtube.com/embed/6rY67dsXmnU?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Stockton Boys #3](https://www.youtube.com/watch?v=6rY67dsXmnU)
 
 *Oh Stockton Boys, too young to figure it out*  
 *Just too dumb to pack it up and get out*  
@@ -65,7 +51,7 @@ Well, that’s pretty direct, isn’t it?
 
 Finally, a fourth outtake almost feels like a reversion. Bruce dips into his trusty book of stock character names to humanize and garner more sympathy for the song’s protagonists:
 
-[https://www.youtube.com/embed/T4JL2egZvk8?feature=oembed](https://www.youtube.com/embed/T4JL2egZvk8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Stockton Boys #4](https://www.youtube.com/watch?v=T4JL2egZvk8)
 
 *Oh Jenny’s still got money in her car*  
 *And Eddie stills begging fights in Queenstown bars*  
@@ -74,14 +60,9 @@ Finally, a fourth outtake almost feels like a reversion. Bruce dips into his tru
 
 There’s no evidence to suggest that any version of “Stockton Boys” ever made it past the home demo stage. Other than some shared DNA with “Working on the Highway,” this one appears to be truly lost in time.
 
-January – February 1980 (home demos only)
-
-
-
 **Stockton Boys**  
-**Recorded:**<br>
+**Recorded:** January – February 1980 (home demos only)<br>
 **Never released**  
 **Never performed live**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

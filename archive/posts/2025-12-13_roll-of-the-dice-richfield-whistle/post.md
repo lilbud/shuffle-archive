@@ -1,8 +1,4 @@
-
-
-Earlier this week, we took a listen to Bruce Springsteen’s unreleased -era work-in-progress, “Jim Deer.”
-
-*Nebraska*
+Earlier this week, we took a listen to Bruce Springsteen’s unreleased *Nebraska*-era work-in-progress, “Jim Deer.”
 
 Springsteen’s 1982 acoustic home demo featured a protagonist driven to cold-blooded murder by unemployment and a brutal economy. “Jim Deer” was too heavy-handed to earn an official release (at the time, at least), but Bruce wasn’t ready to give up on his protagonist just yet.
 
@@ -12,7 +8,7 @@ However, by the end of the second verse, “Richfield Whistle” establishes its
 
 Let’s take a listen.
 
-[https://www.youtube.com/embed/5ss92tx_B6s?feature=oembed](https://www.youtube.com/embed/5ss92tx_B6s?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Richfield Whistle (Official Audio)](https://www.youtube.com/watch?v=5ss92tx_B6s)
 
 The early verses are very similar to “Jim Deer,” but the few changes are significant. James is still Remington-born, and he still finds himself in Richfield Prison. But whereas James Lincoln ends up behind bars for the cruel crime he commits late in the song, James Lucas has already served his sentence by the time we meet him.
 
@@ -88,9 +84,7 @@ But here comes the curveball.
 *I didn’t answer, I just stood there*  
 *Then I turned around and went*
 
-Jimmy walks into the liquor store with every intention of robbing it. Something stops him, though. Perhaps it’s the decency of the proprietor; maybe it’s the voice of his former boss in his head: . Or maybe he simply recognized who he was becoming.
-
-*all you had to do was ask*
+Jimmy walks into the liquor store with every intention of robbing it. Something stops him, though. Perhaps it’s the decency of the proprietor; maybe it’s the voice of his former boss in his head: *all you had to do was ask*. Or maybe he simply recognized who he was becoming.
 
 Whatever the reason, Jimmy turns away from temptation and returns home.
 
@@ -120,13 +114,9 @@ It’s an unsettling ending, one that sticks with us much longer than the resolu
 
 We’ll take a listen to that one in a few days.
 
-April 24, 1983
-(2025)
-
-**Richfield Whistle**
-**Recorded:**<br>
-
-**Released:** *L.A. Garage Sessions ’83* <br>
+**Richfield Whistle  
+**Recorded:** April 24, 1983<br>
+**Released:** *L.A. Garage Sessions ’83* (2025)<br>
 **Never performed**
 
 © December 1, 2022

@@ -1,20 +1,14 @@
-
-
-Had “Henry Boy” made it onto , Rosie might never have come out.
-
-[](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings From Asbury Park, N.J.*
+Had “Henry Boy” made it onto [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/), Rosie might never have come out.
 
 In 1972, when Bruce Springsteen was furiously writing and recording candidates for his upcoming debut album, “Henry Boy” seemed like one of the more promising ones. Bruce certainly seemed to think so–he included the song in an early potential album sequence,
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/1972_handwrittensonglist2.jpg?resize=516%2C800&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2022/04/1972_handwrittensonglist2.jpg)
 
 He even recorded a demo for publishing purposes, to encourage other artists to record covers of it.
 
-Sure, Bruce’s “Henry Boy” lyrics were cryptic and trip-tic, but so was pretty much everything Bruce was writing during that period. The melody, though… now was a hook. Take a listen:
+Sure, Bruce’s “Henry Boy” lyrics were cryptic and trip-tic, but so was pretty much everything Bruce was writing during that period. The melody, though… now *there* was a hook. Take a listen:
 
-*there*
-
-[https://www.youtube.com/embed/lbc5Kus_Lkw?feature=oembed](https://www.youtube.com/embed/lbc5Kus_Lkw?feature=oembed)
+[Watch on Youtube: Henry Boy](https://www.youtube.com/watch?v=lbc5Kus_Lkw)
 
 “Henry Boy” is clearly the musical ancestor of two of Bruce’s most well-known songs. He would repurpose the verse melody eight months later for “Rosalita (Come Out Tonight),” and he’d upcycle the bridge even sooner–it would appear in “Blinded by the Light” within three months.
 
@@ -22,7 +16,7 @@ Lyrically, Bruce was already in “Blinded” mode, rhyming dictionary at the re
 
 In his only known live performance–captured by Barry Rebo on video below–Bruce coyly introduced it as “a song about being new in town”… before slyly adding an “I think” under his breath.
 
-[https://www.youtube.com/embed/BpKsq8Y7_EY?feature=oembed](https://www.youtube.com/embed/BpKsq8Y7_EY?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Henry Boy 1972](https://www.youtube.com/watch?v=BpKsq8Y7_EY)
 
 Henry may have been new in town, but there’s a bit more going on in the song than that.
 
@@ -65,20 +59,12 @@ Like much of Bruce’s contemporaneous material, “Henry Boy” is more of a ch
 
 In the end, “Henry Boy” gave way to better, more enduring songs, but its DNA is present in E Street Band concerts to this day.
 
-In 2016, Bruce released his original 1972 demo on his album, finally freeing Henry after 44 long years from his lonely Broadway street corner.
+In 2016, Bruce released his original 1972 demo on his *Chapter and Verse* album, finally freeing Henry after 44 long years from his lonely Broadway street corner.
 
-*Chapter and Verse*
-
-June 1972
-(2016)
-August 10, 1972 (New York City, NY)
-August 10, 1972 (New York City, NY)
-
-**Henry Boy**
-**Recorded:**<br>
-
-**Released:** *Chapter and Verse* <br>
-**First performed:**<br>
-**Last performed:**<br>
+**Henry Boy  
+**Recorded:** June 1972<br>
+**Released:** *Chapter and Verse* (2016)<br>
+**First performed:** August 10, 1972 (New York City, NY)<br>
+**Last performed:** August 10, 1972 (New York City, NY)
 
 © April 8, 2022

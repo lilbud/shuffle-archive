@@ -66,7 +66,7 @@ Also today: Gary U.S. Bonds releases his comeback album, *Dedication,* produced 
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/04/2012-0421.jpg)
 
-**2017**: An amazing assembly of local talent: Bruce, Southside Johnny, Little Steven and the Disciples of Soul and others join forces to form a one-time-only Upstage Jam Band at the Paramount Theater in Asbury Park prior to the premiere of *Just Before the Dawn*, a documentary about the famous local club.
+**2017:** An amazing assembly of local talent: Bruce, Southside Johnny, Little Steven and the Disciples of Soul and others join forces to form a one-time-only Upstage Jam Band at the Paramount Theater in Asbury Park prior to the premiere of *Just Before the Dawn*, a documentary about the famous local club.
 
 [APP- Embed Player](https://uw-media.app.com/embed/video/100776066?placement=snow-embed)
 

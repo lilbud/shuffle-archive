@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1979*
 
-**1964**: Honorary E Streeter Tom Morello is born in New York City.
+**1964:** Honorary E Streeter Tom Morello is born in New York City.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/05/Tom-Morello.jpg)
 
@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Mary Lou (V12) - Band Rehearsal at The Power Station (May 30, 1979)](https://www.youtube.com/watch?v=xcka1wNBS9Q)
 
-**1981**: Bruce and the E Street Band play "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)" for the first time in Europe at their second of six nights at London's Wembley Arena on the original River Tour.
+**1981:** Bruce and the E Street Band play "[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)" for the first time in Europe at their second of six nights at London's Wembley Arena on the original River Tour.
 
 [Watch Video Highlight](https://videopress.com/embed/2fTYb9QT)
 

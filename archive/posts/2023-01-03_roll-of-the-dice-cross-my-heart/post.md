@@ -1,40 +1,22 @@
+“[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” is generally considered to be Bruce’s first officially released song featuring cunnilingus, but it’s actually his second. He slipped “Cross My Heart” past fans with very little notice.
 
+[Watch on Youtube: Bruce Springsteen - Cross My Heart (Audio)](https://www.youtube.com/watch?v=x6dxQpS8_xY)
 
-“” is generally considered to be Bruce’s first officially released song featuring cunnilingus, but it’s actually his second. He slipped “Cross My Heart” past fans with very little notice.
-
-[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)
-
-[https://www.youtube.com/embed/x6dxQpS8_xY?feature=oembed](https://www.youtube.com/embed/x6dxQpS8_xY?feature=oembed)
-
-Buried deep on Side One of , “Cross My Heart” beat “” to market by a full year. (“Red Headed Woman” gets bragging rights for being performed earlier, however.)
-
-*Human Touch*[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)
+Buried deep on Side One of *Human Touch*, “Cross My Heart” beat “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)” to market by a full year. (“Red Headed Woman” gets bragging rights for being performed earlier, however.)
 
 Why one song attracted prurient notice and the other didn’t, I can’t answer; why Bruce found himself compelled to write two songs featuring the act in short order… hey, the guy was a newlywed.
 
-In any event, “Cross My Heart” isn’t about cunnilingus any more than “” is about butt stuff, but since the act is what attracts attention on first listen, I thought it best to address it before moving on to the main event.
+In any event, “Cross My Heart” isn’t about cunnilingus any more than “[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)” is about butt stuff, but since the act is what attracts attention on first listen, I thought it best to address it before moving on to the main event.
 
-[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)
+At any rate, Bruce drew upon more than just blue subject matter for his inspiration for this *Human Touch* deep cut–he also drew on the blues itself, borrowing his song’s title, theme, and so much of the lyrics from “Cross My Heart” by Sonny Boy Williamson II that he gave Williamson a co-writer’s credit.
 
-At any rate, Bruce drew upon more than just blue subject matter for his inspiration for this deep cut–he also drew on the blues itself, borrowing his song’s title, theme, and so much of the lyrics from “Cross My Heart” by Sonny Boy Williamson II that he gave Williamson a co-writer’s credit.
+[Watch on Youtube: Sonny Boy Williamson - Cross My Heart](https://www.youtube.com/watch?v=PNdfgx8Rqq4)
 
-*Human Touch*
+Musically, the two songs couldn’t be more different. Williamson’s 1958 single is considered a blues classic with a stunning harmonica solo; Bruce’s song… well, compared to the other songs on *Human Touch* we can at least admire the restraint shown in the arrangement and production. (It still screams early nineties, though.)
 
-[https://www.youtube.com/embed/PNdfgx8Rqq4?feature=oembed](https://www.youtube.com/embed/PNdfgx8Rqq4?feature=oembed)
+“Cross My Heart” is downright spare by *Human Touch* standards, with a total of four instruments: Bruce’s guitar, Roy’s keys, Randy Jackson on bass, and Toto’s Jeff Porcaro on drums. Bruce seems to be reaching for something steamy and sultry with this backing track, but he never quite gets there. Or maybe he overshoots, I can’t quite decide.
 
-Musically, the two songs couldn’t be more different. Williamson’s 1958 single is considered a blues classic with a stunning harmonica solo; Bruce’s song… well, compared to the other songs on we can at least admire the restraint shown in the arrangement and production. (It still screams early nineties, though.)
-
-*Human Touch*
-
-“Cross My Heart” is downright spare by standards, with a total of four instruments: Bruce’s guitar, Roy’s keys, Randy Jackson on bass, and Toto’s Jeff Porcaro on drums. Bruce seems to be reaching for something steamy and sultry with this backing track, but he never quite gets there. Or maybe he overshoots, I can’t quite decide.
-
-*Human Touch*
-
-Lyrically, though, Bruce hews pretty closely to Williamson’s line–both songs center around a protagonist desperately pleading to be forgiven for his indiscretions, promising faithfulness evermore. But whereas Williamson’s narrator seems a genuinely repentant and changed man (like the narrator of ““), Bruce’s protagonist seems to be a bit more self-aware.
-
-[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)
-
-
+Lyrically, though, Bruce hews pretty closely to Williamson’s line–both songs center around a protagonist desperately pleading to be forgiven for his indiscretions, promising faithfulness evermore. But whereas Williamson’s narrator seems a genuinely repentant and changed man (like the narrator of “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)“), Bruce’s protagonist seems to be a bit more self-aware.
 
 *First time I crossed my heart I was begging baby please*  
 *At your bedside down on my knees*  
@@ -54,9 +36,7 @@ Although likely employed as idiom, the narrator’s use of the sign of the cross
 
 Yeah, that means what you think it does. If the first verse was foreplay, the second is afterglow.
 
-Our narrator’s oral skills brought his lover to climax, with sweet and salty rain coming “from the south” into his mouth. Perhaps his first promise was meant to convince his lover, but this second heart-cross seems more like a promise to himself: 
-
-*I’m not gonna screw this up again.*
+Our narrator’s oral skills brought his lover to climax, with sweet and salty rain coming “from the south” into his mouth. Perhaps his first promise was meant to convince his lover, but this second heart-cross seems more like a promise to himself: *I’m not gonna screw this up again.*
 
 Maybe.
 
@@ -64,12 +44,10 @@ As is often the case, Bruce hides the moral of the song in the bridge–or in th
 
 *Well you may think the world’s black and white*  
 *And you’re dirty or you’re clean*  
-*, you better watch out you don’t slip***Son**  
+***Son**, you better watch out you don’t slip*  
 *Through them spaces in between*
 
-Despite our narrator’s promises of fidelity, Bruce is suggesting that we are listening to someone who rationalizes his actions when he falls short. He’s good, faithful. But the world isn’t binary, Bruce cautions, and you can find yourself going south in small increments.
-
-*generally**mostly*
+Despite our narrator’s promises of fidelity, Bruce is suggesting that we are listening to someone who rationalizes his actions when he falls short. He’s *generally* good, *mostly* faithful. But the world isn’t binary, Bruce cautions, and you can find yourself going south in small increments.
 
 Significantly, the bridge is addressed not to the narrator’s lover but to the narrator himself. (Notice the “son” that’s almost under his breath.) That’s a subtle but significant detail. Combined with the sudden context switch, it suggests that we are listening to the narrator’s inner conscience talking, or perhaps even the voice of the omniscient songwriter.
 
@@ -103,38 +81,24 @@ This is a man who is easily swayed by temptation when his cold, hard ride offers
 ---
 
 
-Of all the songs on , “Cross My Heart” is the song Bruce has played the least in concert. Even “” has had more outings. Count yourself fortunate if you caught one of its only two performances (both in 1992), but doubly so if you caught the second instead of the first.
-
-*Human Touch*[Pony Boy](https://estreetshuffle.com/index.php/2019/03/01/roll-of-the-dice-cover-me-pony-boy/)
+Of all the songs on *Human Touch*, “Cross My Heart” is the song Bruce has played the least in concert. Even “[Pony Boy](https://estreetshuffle.com/index.php/2019/03/01/roll-of-the-dice-cover-me-pony-boy/)” has had more outings. Count yourself fortunate if you caught one of its only two performances (both in 1992), but doubly so if you caught the second instead of the first.
 
 Bruce debuted “Cross My Heart” at a homecoming show in East Rutherford on July 31, 1992, in an arrangement very close to the one on the album.
 
-[https://videopress.com/embed/qHcQSaYj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qHcQSaYj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/qHcQSaYj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 Bruce’s second and final performance to date was the special one, however. At Nassau Coliseum that fall, Bruce performed “Cross My Heart” in a moody and acoustic arrangement.
 
-[https://www.youtube.com/embed/ry54U4Fn5aM?feature=oembed](https://www.youtube.com/embed/ry54U4Fn5aM?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - CROSS MY HEART (live 1992)](https://www.youtube.com/watch?v=ry54U4Fn5aM)
 
-With just Roy on keyboards and Bruce on guitar and harmonica (with a solo that Bruce would one day lift for ““). Bruce’s grey lyrics get a chance to breathe, and the song gains a depth (murky as it may be) that it never achieves on record.
+With just Roy on keyboards and Bruce on guitar and harmonica (with a solo that Bruce would one day lift for “[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)“). Bruce’s grey lyrics get a chance to breathe, and the song gains a depth (murky as it may be) that it never achieves on record.
 
-[Blood Brothers](https://estreetshuffle.com/index.php/2019/12/06/roll-of-the-dice-blood-brothers/)
+“Cross My Heart” is one of the stronger songs on *Human Touch*, as well as its most overlooked, even by its author. Especially in its acoustic arrangement, it deserves more consideration than it receives.
 
-“Cross My Heart” is one of the stronger songs on , as well as its most overlooked, even by its author. Especially in its acoustic arrangement, it deserves more consideration than it receives.
+**Cross My Heart  
+**Recorded:** September 1989 – March 1991<br>
+**Released:** *Human Touch* (1992)<br>
+**First performed:** July 31, 1992 (East Rutherford, NJ)<br>
+**Last performed:** November 10, 1992 (Uniondale, NY)
 
-*Human Touch*
-
-September 1989 – March 1991
-(1992)
-July 31, 1992 (East Rutherford, NJ)
-November 10, 1992 (Uniondale, NY)
-
-**Cross My Heart**
-**Recorded:**<br>
-
-**Released:** *Human Touch*<br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,14 +1,8 @@
-
-
-The first time Joe Grushecky and Bruce Springsteen worked together, Joe criss-crossed the country, working for two years on two coasts to complete with Bruce.
-
-*American Babylon*
+The first time Joe Grushecky and Bruce Springsteen worked together, Joe criss-crossed the country, working for two years on two coasts to complete *American Babylon* with Bruce.
 
 The next time they worked together was a whole lot easier.
 
-In the eleven years since and Joe’s 2006 album, , recording technology grew both more advanced and more portable.
-
-*American Babylon**A Good Life*
+In the eleven years since *American Babylon* and Joe’s 2006 album, *A Good Life*, recording technology grew both more advanced and more portable.
 
 So when Bruce offered to lend his vocal and guitar talents to a few tracks on Joe’s next album, they collaborated without ever being face to face. Joe recorded his basic tracks at Rick Witkowski’s Studio L in West Virginia, while Bruce recorded his guitar and vocal overdubs from his home studio in Rumson.
 
@@ -22,36 +16,26 @@ It really does.
 
 Here’s their finished title track, with Bruce on lead guitar and paired vocals.
 
-[https://www.youtube.com/embed/SHqPgYvDaNo?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/SHqPgYvDaNo?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SHqPgYvDaNo)
 
-Unlike , which features Springsteen on almost every track, Bruce only appears on four tracks on and only sings on three. One of those tracks was their co-authored “,” which would have been a great thematic fit on 
+Unlike *American Babylon*, which features Springsteen on almost every track, Bruce only appears on four tracks on *A Good Life* and only sings on three. One of those tracks was their co-authored “[Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/),” which would have been a great thematic fit on *American Babylon.*
 
-*American Babylon**A Good Life* [Code of Silence](https://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)*American Babylon.*
-
-But the other two were polar opposites from their previous work together: “Is She the One” and “A Good Life” are bright, happy songs (“ happy,” Joe notes with a laugh).
-
-*uncharacteristically*
+But the other two were polar opposites from their previous work together: “Is She the One” and “A Good Life” are bright, happy songs (“*uncharacteristically* happy,” Joe notes with a laugh).
 
 Maybe that’s why Bruce selected those tracks in particular when Joe shared his work-in-progress with Bruce. Whatever the reason, “A Good Life” is the happiest Grushecky/Springsteen collaboration since “Never Be Enough Time” a decade earlier.
 
 Joe admits it’s a fun one to play live, too, so it’s surprising that they’ve only played it together twice–once on the Jersey shore shortly after the album’s release in 2006, and again five years later at a benefit show in Pittsburgh (where Bruce even took lead vocals for a verse).
 
-[https://videopress.com/embed/Al0LrsUh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Al0LrsUh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Al0LrsUh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 When I point out its relative rarity in concert, Joe admits “A Good Life” has taken a back seat in recent years to older fan favorites, but he hints that just might change on the other side of quarantine.
 
 “I have a feeling we’ll be playing some new songs and some different songs when we get back out there. We’re itching to play live again.”
 
-February 2006
-(2006)
-December 2, 2006 (Sayreville, NJ)
-November 4, 2011 (Pittsburgh, PA)
-
-**A Good Life**
-**Recorded:**<br>
-
-**Released:***A Good Life* <br>
-**First performed:**<br>
-**Last performed:**<br>
+**A Good Life  
+**Recorded:** February 2006<br>
+**Released:** *A Good Life* (2006)<br>
+**First performed:** December 2, 2006 (Sayreville, NJ)<br>
+**Last performed:** November 4, 2011 (Pittsburgh, PA)
 
 © January 21, 2021

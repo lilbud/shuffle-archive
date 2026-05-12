@@ -4,7 +4,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/08/1972-08-11.jpg)
 
-**1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.
+**1974:** Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/08/1974-08-11.jpg)
 

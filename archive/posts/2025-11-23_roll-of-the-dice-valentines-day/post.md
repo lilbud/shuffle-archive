@@ -1,14 +1,10 @@
-
-
 Buried–hidden almost–at the end of an album that primarily serves as a cautionary tale is one of Bruce’s most desperate and unabashedly romantic songs in his entire catalog.
 
-Like much of the album from which it hails, “Valentine’s Day” is a solo effort. Bruce plays every instrument we hear from the ambling, primary guitar melody to the layers of keyboard, mandolin, bass, harmonica and percussion.
-
-[https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*
+Like much of the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)album from which it hails, “Valentine’s Day” is a solo effort. Bruce plays every instrument we hear from the ambling, primary guitar melody to the layers of keyboard, mandolin, bass, harmonica and percussion.
 
 The result is a carefully crafted song that gradually builds instrumental intensity that to match the lyrical desperation that’s there from the beginning. Take a listen before we dive in:
 
-[https://www.youtube.com/embed/h5XgjPfL8KM?feature=oembed](https://www.youtube.com/embed/h5XgjPfL8KM?feature=oembed)
+[Watch on Youtube: Valentine's Day](https://www.youtube.com/watch?v=h5XgjPfL8KM)
 
 *I’m driving a big lazy car rushin’ up the highway in the dark*
 
@@ -18,16 +14,14 @@ At first, it does indeed sound like we’re out for an evening drive–there’s
 *It’s pounding baby like it’s gonna bust right on through*  
 *And it ain’t gonna stop till I’m alone again with you*
 
-Now how you set a scene.
-
-*that’s*
+Now *that’s* how you set a scene.
 
 We’re instantly plunged into the middle of a story. What happened right before we got here to make our protagonist so consumed by adrenaline?
 
 *A friend of mine became a father last night*  
 *When we spoke in his voice I could hear the light*  
 *Of the skies and the rivers, the timberwolf in the pines*  
-*And that great jukebox out on Route 39*   
+*And that great jukebox out on Route 39*  
 *They say he travels fastest who travels alone*  
 *But tonight I miss my girl, mister tonight I miss my home*
 
@@ -59,43 +53,32 @@ Could it be a coincidence that Bruce pairs imagery of a river with a callback (�
 
 Bruce has come far enough in his life to recognize both the danger and the necessity of love. He’s seen how succumbing to it rashly can chain you in place forever, and he’s seen how accepting it truly can lift you and inspire you to heights you’d never otherwise reach.
 
-I’m absolutely convinced that “Valentine’s Day” is meant to be a counterpoint to “” and my appreciation for both songs is deepened because of it.
-
-[The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
+I’m absolutely convinced that “Valentine’s Day” is meant to be a counterpoint to “[The River,](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)” and my appreciation for both songs is deepened because of it.
 
 In fact, the narrator’s last words, just before the car vanishes off into the horizon, almost make one wonder whether these are in fact the same characters from “The River.”
 
 *So hold me close honey, say you’re forever mine*  
 *And tell me you’ll be my lonely valentine*
 
-Interesting choice of words, there: “my valentine.” Perhaps these aren’t star-crossed lovers. Perhaps they’ve grown distant, their love cooler. But there’s clearly a bond between them, and it’s powerful–a different kind of power than the heat of young love, but a strong pull nonetheless.
-
-*lonely*
+Interesting choice of words, there: “my *lonely* valentine.” Perhaps these aren’t star-crossed lovers. Perhaps they’ve grown distant, their love cooler. But there’s clearly a bond between them, and it’s powerful–a different kind of power than the heat of young love, but a strong pull nonetheless.
 
 It’s something of a mystery why Bruce didn’t play “Valentine’s Day” on the Tunnel of Love tour, or any of the tours that came after. He rehearsed it before the tour, though, and you can hear the only known E Street Band take below. Admirably restrained at first, the horns overpower it as the song progresses, and maybe that’s why Bruce dropped it from the set.
 
-[https://videopress.com/embed/v4mjGEvF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/v4mjGEvF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/v4mjGEvF?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 For years, “Valentine’s Day” went unperformed, but then in the summer of 2005, Bruce rediscovered the song and premiered it on his solo acoustic tour.
 
 Performed entirely on the piano (and a harmonica coda), the music matches for the first time the power of the lyrics from start to finish. Bruce’s piano is as persistent and insistent a declaration of love as any lyrics could ever be, and once you hear this arrangement, it instantly becomes the definitive version of this song.
 
-[https://www.youtube.com/embed/HHdoqmz_lEw?feature=oembed](https://www.youtube.com/embed/HHdoqmz_lEw?feature=oembed)
+[Watch on Youtube: Valentine's Day - Bruce Springsteen (Live 2005)](https://www.youtube.com/watch?v=HHdoqmz_lEw)
 
 When Bruce performed “Valentine’s Day” in Portland, he received a mid-set standing ovation–it was that powerful.
 
 “Valentine’s Day” has gone missing since that tour, however–it’s been absent now for almost as long as it went unperformed originally. But if the cards hold another acoustic tour in Bruce’s future, I suspect we haven’t heard the last of it.
 
-early 1987
-(1987)
-July 23, 2005 (Atlanta, GA)
-October 21, 2005 (Providence, RI)
-
-**Valentine’s Day**
-**Recorded:**<br>
-
-**Released:** *Tunnel of Love*<br>
-**First performed:** <br>
-**Last performed:**<br>
+**Valentine’s Day****Recorded:** early 1987<br>
+**Released:** *Tunnel of Love* (1987)<br>
+**First performed:** July 23, 2005 (Atlanta, GA)<br>
+**Last performed:** October 21, 2005 (Providence, RI)
 
 (c) June 12, 2018

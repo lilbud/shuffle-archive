@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Sample Bruce Springsteen Zürich 1993 04 08 complete show](https://www.youtube.com/watch?v=I-FAIxCEA98)
 
-**1999**: Bruce and the reunited E Street Band play their final rehearsal in Barcelona before the kick-off of the Reunion Tour the following day.
+**1999:** Bruce and the reunited E Street Band play their final rehearsal in Barcelona before the kick-off of the Reunion Tour the following day.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/1999-04-08.jpg)
 

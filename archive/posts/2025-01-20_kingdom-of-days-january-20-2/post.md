@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Springsteen When You Need Me](https://www.youtube.com/watch?v=SEFHIAdPyo4)
 
-**1988**: Bruce inducts Bob Dylan into the Rock and Roll Hall of Fame at New York's Waldorf-Astoria Hotel. This is the last public appearance Bruce will make with his wife, Julianne Phillips. The all-star jam is a joy to watch, particularly Bruce and Mick Jagger sharing the microphone for "[(I Can't Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/)."
+**1988:** Bruce inducts Bob Dylan into the Rock and Roll Hall of Fame at New York's Waldorf-Astoria Hotel. This is the last public appearance Bruce will make with his wife, Julianne Phillips. The all-star jam is a joy to watch, particularly Bruce and Mick Jagger sharing the microphone for "[(I Can't Get No) Satisfaction](https://estreetshuffle.com/index.php/2022/02/02/matr-mick-jagger-and-bruce-springsteen-i-cant-get-no-satisfaction/)."
 
 [Watch on Youtube: Bruce Springsteen inducts Bob Dylan Rock and Roll Hall of Fame inductions 1988](https://www.youtube.com/watch?v=SRu66l3QI_U)
 
@@ -36,7 +36,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_1991_01_25_Page_38.jpg)
 
-**1994**: At the Rock and Roll Hall of Fame induction ceremony, Rod Stewart and Elton John are slated to perform a duet of "[Come Together.](https://estreetshuffle.com/index.php/2018/01/15/meeting-across-the-river-bruce-springsteen-and-axl-rose/)" At the last minute, Rod isn't able to make it, so the producers ask Bruce to step in. Bruce declines, so they move on to Axl Rose, who accepts. Apparently Axl is a more intriguing duet partner than Elton, though, because when Axl asks Bruce to join him, this time Bruce says yes. Axl and Bruce had no warning this was coming, and therefore no rehearsal time. Mere minutes after being asked to step in, this is what went down.
+**1994:** At the Rock and Roll Hall of Fame induction ceremony, Rod Stewart and Elton John are slated to perform a duet of "[Come Together.](https://estreetshuffle.com/index.php/2018/01/15/meeting-across-the-river-bruce-springsteen-and-axl-rose/)" At the last minute, Rod isn't able to make it, so the producers ask Bruce to step in. Bruce declines, so they move on to Axl Rose, who accepts. Apparently Axl is a more intriguing duet partner than Elton, though, because when Axl asks Bruce to join him, this time Bruce says yes. Axl and Bruce had no warning this was coming, and therefore no rehearsal time. Mere minutes after being asked to step in, this is what went down.
 
 [Watch on Youtube: Axl Rose and Bruce Springsteen perform "Come Together"](https://www.youtube.com/watch?v=UtzkBewRsiE)
 

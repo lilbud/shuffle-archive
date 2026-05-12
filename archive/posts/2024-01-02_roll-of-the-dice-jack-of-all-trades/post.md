@@ -1,16 +1,12 @@
-
-
 Bruce Springsteen wrote “Jack of All Trades” shortly after the U.S. housing bubble of the early 2000s violently burst, but both lyrically and musically it sounds like it could have been written years, decades, or even centuries earlier.
 
-[https://www.youtube.com/embed/_5Xao2_K-h4?feature=oembed](https://www.youtube.com/embed/_5Xao2_K-h4?feature=oembed)
+[Watch on Youtube: Jack Of All Trades](https://www.youtube.com/watch?v=_5Xao2_K-h4)
 
 That’s intentional. At a 2012 press conference in Paris, Bruce acknowledged his design:
 
 *There are ’30s horns in “Jack of All Trades.” That’s the way I used the music: the idea was that the music was going to contextualize historically that this has happened before. It happened in the 1970s, it happened in the ’30s, it happened in the 1800s. It’s cyclical. Over and over and over and over again. So I try to pick up some of the continuity and the historical resonance through the music.*
 
-“Jack of All Trades” is one of the most carefully constructed songs on arranged for a full string section and tuba(!) section. (When’s the last time you heard a tuba, sousaphone, and euphoniums on a rock record?)
-
-*,* [Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*two*
+“Jack of All Trades” is one of the most carefully constructed songs on *[Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/),* arranged for a full string section and tuba(!) section. (When’s the last time you heard a tuba, sousaphone, and *two* euphoniums on a rock record?)
 
 The horns and strings give “Jack of All Trades” a vintage feel, but Bruce and Ron Aniello layer swoops, loops, and synths underneath to give the song an unplaceable time-out-of-time feel. The monotonous melody moves at a pace so plodding that it almost sounds at times like the record is artificially slowed–a songwriting device that Bruce uses to convey the notion that his characters are moving slowly and in place. They’re going nowhere.
 
@@ -24,8 +20,6 @@ When we’re first introduced to our point-of-view character, it seems like we�
 *I’ll mend your roof to keep out the rain*  
 *I’ll take the work that God provides*  
 *I’m a jack of all trades, honey, we’ll be alright*
-
-
 
 *I’ll hammer the nails and I’ll set the stone*  
 *I’ll harvest your crops when they’re ripe and grown*  
@@ -43,9 +37,7 @@ But what may come eventually comes.
 
 Maybe the hurricane is literal. Knowing the context in which Bruce wrote “Jack of All Trades,” more likely it represents the havoc and damage that the housing crisis wreaked on society. Either way, though, our hero has faith. He’s been here before, but this time it feels different.
 
-, he thinks, is the time society starts to care about the people at the bottom whose lives are fueling the prosperity of those at the top.
-
-*This time*
+*This time*, he thinks, is the time society starts to care about the people at the bottom whose lives are fueling the prosperity of those at the top.
 
 He’s wrong, of course, and with that realization comes a creeping bitterness that now infects the song.
 
@@ -74,13 +66,9 @@ They’ll scrimp, they’ll save, they’ll recycle and reuse. They’ll make en
 *If I had me a gun, I’d find the bastards and shoot ’em on sight*  
 *I’m a jack of all trades, we’ll be alright*
 
-Even though we’ve felt the explosion building, it still comes as a shock when we hear it. So skillful a songwriter is Bruce, however, that it serves to make his character sympathetic rather than less. We don’t focus on the anger and thirst for violence; what we feel in this moment is deep empathy and appreciation for how much effort and energy it requires to maintain one’s faith and resilience in a system that seems stacked against us.
+Even though we’ve felt the explosion building, it still comes as a shock when we hear it. So skillful a songwriter is Bruce, however, that it serves to make his character *more* sympathetic rather than less. We don’t focus on the anger and thirst for violence; what we feel in this moment is deep empathy and appreciation for how much effort and energy it requires to maintain one’s faith and resilience in a system that seems stacked against us.
 
-*more*
-
-Our jack of all trades is a hero he feels this anger and still persists, not despite it.
-
-*because*
+Our jack of all trades is a hero *because* he feels this anger and still persists, not despite it.
 
 No discussion of “Jack of All Trades” would be complete without touching on Tom Morello’s gorgeous guitar solo that closes the song. No one would be surprised by a Morello solo that sounds angry–that’s pretty much his trademark. What’s stunning about Morello’s work in “Jack of All Trades” is how he honors the song by keeping the fury simmering below the surface, infusing his solo instead with resilience and defiant grandeur. It’s absolutely wonderful.
 
@@ -88,40 +76,28 @@ All that careful construction on the studio track makes “Jack of All Trades”
 
 There have been a couple of occasions, however, when “Jack of All Trades” worked on stage, and worked well.
 
-The first time was the song’s live debut–not at the tour opener, or even at a rehearsal show, but surprisingly on national television. During Bruce’s second appearance on in a week, Tom Morello was in tow, so Bruce decided to play one of the two songs on his new album that featured Tom’s distinctive guitar.
-
-*Late Night With Jimmy Fallon*
+The first time was the song’s live debut–not at the tour opener, or even at a rehearsal show, but surprisingly on national television. During Bruce’s second appearance on *Late Night With Jimmy Fallon* in a week, Tom Morello was in tow, so Bruce decided to play one of the two songs on his new album that featured Tom’s distinctive guitar.
 
 “Jack of All Trades” was a surprising choice for such a prime platform, but thanks to the intimacy created by the camera that brought Bruce and the band close up into our own homes, it came across as mesmerizing.
 
-[https://videopress.com/embed/DB01Ux8Z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/DB01Ux8Z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/DB01Ux8Z?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 The next times Bruce surprised with a potent “Jack of All Trades” were the last times (to date) that he performed it: in a brand new arrangement at the tail end of his 2016 tour.
 
 The 2016 tour featured the core E Street Band, without the horn section that featured so prominently since 2012. Lacking one of the central elements that made the studio track so powerful, Bruce rearranged “Jack of All Trades” as an essentially solo number, backed by local string sections he hired in each city to bring “New York City Serenade” to life as that leg’s unexpected standard opener.
 
-[https://www.youtube.com/embed/ydQtkgz75Q0?feature=oembed](https://www.youtube.com/embed/ydQtkgz75Q0?feature=oembed)
+[Watch on Youtube: Jack of All Trades (with strings) - Springsteen - MetLife#1 Aug 23, 2016](https://www.youtube.com/watch?v=ydQtkgz75Q0)
 
-The arrangement was just novel enough and powerful enough to compel audiences to re-examine the song, and it was beautiful enough for “Jack of All Trades” to become a highlight in a string of shows that were almost highlights.
-
-all
+The arrangement was just novel enough and powerful enough to compel audiences to re-examine the song, and it was beautiful enough for “Jack of All Trades” to become a highlight in a string of shows that were almost all highlights.
 
 It’s been a few years now since we’ve heard Bruce perform “Jack of All Trades,” but his song is just as relevant now as it was then, and I suspect it’ll still be timely when Bruce next takes the concert stage.
 
 After all: It’s all happened before. It’ll happen again.
 
-2011
-(2012)
-March 2, 2012 (New York City, NY)
-September 7, 2016 (Philadelphia, PA)
+**Jack of All Trades  
+**Recorded:** 2011<br>
+**Released:** *Wrecking Ball* (2012)<br>
+**First performed:** March 2, 2012 (New York City, NY)<br>
+**Last performed:** September 7, 2016 (Philadelphia, PA)
 
-**Jack of All Trades**
-**Recorded:**<br>
-
-**Released:** *Wrecking Ball* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

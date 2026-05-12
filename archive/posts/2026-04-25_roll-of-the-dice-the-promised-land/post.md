@@ -120,7 +120,7 @@ But every time I hear it in concert–which is a *lot* (Bruce has played it at 6
 
 And whether you see the song through that lens or not–whether “The Promised Land” leaves you feeling exhilarated or defeated–it’s the sign of a great work of art when you feel that much of *anything*. “The Promised Land” ranks up there among Bruce’s greatest art. That’s probably why it hasn’t missed a tour since it debuted.
 
-**Bonus clips**:
+**Bonus clips:**
 
 Here’s an alternate mix of “The Promised Land,” minus Bruce’s guitar solo. More of a curiosity than anything else.
 

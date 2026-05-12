@@ -1,12 +1,8 @@
-
-
 If you’ve followed this blog for any length of time, you might have picked up on my penchant for viewing one of Bruce’s songs through the lens of another.
 
 That’s partly because Bruce recycles character names, inviting comparison; in part because Bruce cross-pollinates lyrics between songs, sometimes over years or decades; and partly because Bruce tends to write about certain themes frequently, and it’s fascinating to trace the maturing of his writing each time he does so.
 
-For me, “Bobby Jean” falls into that last bucket, and the song it begs the closes comparison to is another classic: “.”
-
-[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
+For me, “Bobby Jean” falls into that last bucket, and the song it begs the closes comparison to is another classic: “[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/).”
 
 Both songs are odes to “broken friendship” (as Bruce phrased it in his autobiography), but where the 1975 “Backstreets” seethes with betrayal and writhes in pain, the 1984 “Bobby Jean” is wistful, nostalgic, and brimming with love. Perhaps both were conscious choices, but I suspect they can at least in part be chalked up to the difference between the songs one writes at the age of 25 and the songs one writes at 34.
 
@@ -14,11 +10,9 @@ In our early twenties, many of us still cling to our closest formative relations
 
 Enter “Bobby Jean.” Exit Steve Van Zandt.
 
-Bruce has never confirmed or even commented on whether “Bobby Jean” is about Steve, but he doesn’t really need to. It’s enough to know that Steve left around the time Bruce wrote and recorded “Bobby Jean,” that Bruce and Steve were and are lifelong boon companions, and that Bruce’s dedication to Steve in the liner notes of were written in the same selfless spirit of “Bobby Jean:” That’s all the insight we need into the song.
+Bruce has never confirmed or even commented on whether “Bobby Jean” is about Steve, but he doesn’t really need to. It’s enough to know that Steve left around the time Bruce wrote and recorded “Bobby Jean,” that Bruce and Steve were and are lifelong boon companions, and that Bruce’s dedication to Steve in the liner notes of *Born in the U.S.A.* were written in the same selfless spirit of “Bobby Jean:” *buon viaggio, mio fratello.* That’s all the insight we need into the song.
 
-*Born in the U.S.A.**buon viaggio, mio fratello.*
-
-[https://www.youtube.com/embed/iGR_Rk74tOk?feature=oembed](https://www.youtube.com/embed/iGR_Rk74tOk?feature=oembed)
+[Watch on Youtube: Bobby Jean](https://www.youtube.com/watch?v=iGR_Rk74tOk)
 
 *Well I came by your house the other day, your mother said you went away*  
 *She said there was nothing that I could have done, there was nothing nobody could say*  
@@ -38,8 +32,6 @@ The next verse is an ode to “me and you against the world” friendship that s
 *Now I wished you would have told me, I wished I could have talked to you*  
 *Just to say goodbye, Bobby Jean*
 
-
-
 *Now we went walking in the rain talking about the pain from the world we hid*  
 *Now there ain’t nobody, nowhere nohow gonna ever understand me the way you did*
 
@@ -57,40 +49,30 @@ Those last lines are powerful–I tear up every time I read them, let alone hear
 
 You’ll notice I’m focusing on the lyrics throughout this piece. They’re a lot easier to wax poetic about than the music. Unfortunately, “Bobby Jean” is very much a product of its era, and it’s difficult for me to listen to the studio version without cringing at all the synth.
 
-And can we talk about that sax solo for a minute? In much the same way that Clarence’s sax solo says more in “” than Bruce’s lyrics ever could, Clarence’s final solo–that final –says it all in “Bobby Jean.” So what possessed Bruce to fade the song before Clarence even sounds it? That’s borderline unforgivable, and it’s why when I listen to “Bobby Jean,” I’ll always opt for a live version over the studio version.
-
-[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)*note*
+And can we talk about that sax solo for a minute? In much the same way that Clarence’s sax solo says more in “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” than Bruce’s lyrics ever could, Clarence’s final solo–that final *note*–says it all in “Bobby Jean.” So what possessed Bruce to fade the song before Clarence even sounds it? That’s borderline unforgivable, and it’s why when I listen to “Bobby Jean,” I’ll always opt for a live version over the studio version.
 
 Luckily, there are a ton to choose from, starting with its very first live performance, from St. Paul in 1984 (which extends Clarence’s solo too long–almost a false ending):
 
-[https://www.youtube.com/embed/oC7PTi0aJ-A?feature=oembed](https://www.youtube.com/embed/oC7PTi0aJ-A?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Bobby Jean 1984](https://www.youtube.com/watch?v=oC7PTi0aJ-A)
 
 …or this Tunnel of Love-era performance, with Clarence at the height of his powers:
 
-[https://www.youtube.com/embed/oRaVXXVsqZk?feature=oembed](https://www.youtube.com/embed/oRaVXXVsqZk?feature=oembed)
+[Watch on Youtube: Bobby Jean - Bruce Springsteen & The E Street Band (Live 1988)](https://www.youtube.com/watch?v=oRaVXXVsqZk)
 
 Bruce has performed the song acoustically as well, but it never packs quite the same emotional power.
 
-[https://www.youtube.com/embed/p9g20AKyaaA?feature=oembed](https://www.youtube.com/embed/p9g20AKyaaA?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Bobby Jean (Acoustic) Schottenstein Center, Columbus Ohio July 31, 2005](https://www.youtube.com/watch?v=p9g20AKyaaA)
 
-He also gave it the Seeger Sessions treatment on the EP, but again it lacked the nostalgic sentiment of the original arrangement. Here’s a clip of the new arrangement:
+He also gave it the Seeger Sessions treatment on the *Bruce Springsteen with the Sessions Band PBS Exclusive* EP, but again it lacked the nostalgic sentiment of the original arrangement. Here’s a clip of the new arrangement:
 
-*Bruce Springsteen with the Sessions Band PBS Exclusive*
-
-[https://www.youtube.com/embed/119NFk_yofo?feature=oembed](https://www.youtube.com/embed/119NFk_yofo?feature=oembed)
+[Watch on Youtube: Bruce Springsteen with The SSB - Bobby Jean](https://www.youtube.com/watch?v=119NFk_yofo)
 
 “Bobby Jean” is simply one of those songs born perfect. Played in its original arrangement (but with less synth), it’s a powerful encore statement of eternal friendship and community that will probably never leave Bruce’s setlist for long. It’s one of the few songs that has never missed a tour since its debut.
 
-January 1982-February 1984
-(1984), (2007)
-June 29, 1984 (St. Paul, MN)
-July 25, 2023 (Monza, Italy)
-
 **Bobby Jean**  
-**Recorded:**<br>
-**Released:***Born in the U.S.A.**Bruce Springsteen with the Sessions Band PBS Exclusive*<br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** January 1982-February 1984<br>
+**Released:** *Born in the U.S.A.* (1984), *Bruce Springsteen with the Sessions Band PBS Exclusive* (2007)<br>
+**First performed:** June 29, 1984 (St. Paul, MN)<br>
+**Last performed:** July 25, 2023 (Monza, Italy)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -2,7 +2,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/01/1973-0118.jpg)
 
-**1974**: Bruce and the band open for Black Oak Arkansas at Kent State University, and the school's reviewer does not have a particularly good time. After the show, Bruce attends a house party at the residence of the [student responsible for bringing Bruce to campus](https://patch.com/ohio/kent/bp--bruce-springsteens-1974-party-in-kent-ohio). In a torn jacket and boots with holes, Bruce says to another student, "man we've been at this a long time, I just hope we can keep the band together a little while longer, I think we are getting close."
+**1974:** Bruce and the band open for Black Oak Arkansas at Kent State University, and the school's reviewer does not have a particularly good time. After the show, Bruce attends a house party at the residence of the [student responsible for bringing Bruce to campus](https://patch.com/ohio/kent/bp--bruce-springsteens-1974-party-in-kent-ohio). In a torn jacket and boots with holes, Bruce says to another student, "man we've been at this a long time, I just hope we can keep the band together a little while longer, I think we are getting close."
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/01/1974-0119a.jpg)
 
@@ -56,7 +56,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2025/01/Chicago_Tribune_2016_01_21_Page_4_7-1.jpg)
 
-**2017**: Bruce and the E Street Band rehearse in Perth for the kick-off of their Australian summer tour.
+**2017:** Bruce and the E Street Band rehearse in Perth for the kick-off of their Australian summer tour.
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

@@ -1,6 +1,4 @@
-
-
-*(: Friend of the blog Steven Semeraro pointed out that while Mary was 17 when they met, the narrator is likely eighteen by implication. I’ve updated some timing references accordingly.)***Updated 3/4/2021**
+*(**Updated 3/4/2021:** Friend of the blog Steven Semeraro pointed out that while Mary was 17 when they met, the narrator is likely eighteen by implication. I’ve updated some timing references accordingly.)*
 
 What’s worse than a lie?
 
@@ -8,9 +6,7 @@ That’s the question that lingers long after “The River” fades to black.
 
 We’ll answer that question, but we have some ground to cover first.
 
-We last pulled at this particular thread in last month’s exploration of “.” (I recommend reading or re-reading that one before going any further, because it contains 80% of the backstory for “The River.”)
-
-[Oh Angelyne](https://estreetshuffle.com/index.php/2021/02/16/roll-of-the-dice-oh-angelyne/)
+We last pulled at this particular thread in last month’s exploration of “[Oh Angelyne](https://estreetshuffle.com/index.php/2021/02/16/roll-of-the-dice-oh-angelyne/).” (I recommend reading or re-reading that one before going any further, because it contains 80% of the backstory for “The River.”)
 
 When we left Bruce, he had just hit upon the missing ingredient in his nascent masterpiece: the metaphor.
 
@@ -22,43 +18,31 @@ But then Bruce hit upon inspiration in the guise of the great Hank Williams. Bru
 *But I got to the river so lonesome I wanted to die*  
 *And then I jumped in the river, but the doggone river was dry*
 
-It wasn’t the first time Bruce employed a river metaphor in his songwriting–heck, it wasn’t even the first time he did so in a song . But the river metaphor in “The River” proved deeper and more pliable than he’d been able to achieve before, and Bruce knew he was on to something.
+It wasn’t the first time Bruce employed a river metaphor in his songwriting–heck, it wasn’t even the first time he did so in a song *title*. But the river metaphor in “The River” proved deeper and more pliable than he’d been able to achieve before, and Bruce knew he was on to something.
 
-*title*
-
-He ditched his original title temptress along with the notion of escape. After all, he realized, if you’re haunted by the ghost of lost love, the thing you want to do is escape it. What you want to do is reclaim it.
-
-*last**really*
+He ditched his original title temptress along with the notion of escape. After all, he realized, if you’re haunted by the ghost of lost love, the *last* thing you want to do is escape it. What you *really* want to do is reclaim it.
 
 And now we arrive at “The River” in its final form.
 
 If you were a Springsteen fan at the time, you likely not only heard it in advance of its studio debut, you probably also saw it.
 
-Because believe it or not, Bruce’s debut performance of “The River”–filmed more than a year before it debuted on the album of the same name–marked the very first time a live Bruce Springsteen and the E Street Band song ever appeared on film. It was a highlight of , a documentary of the famous two-night Musicians United for Safe Energy concert event from September 1979.
-
-*No Nukes*
+Because believe it or not, Bruce’s debut performance of “The River”–filmed more than a year before it debuted on the album of the same name–marked the very first time a live Bruce Springsteen and the E Street Band song ever appeared on film. It was a highlight of *No Nukes*, a documentary of the famous two-night Musicians United for Safe Energy concert event from September 1979.
 
 Let’s watch that powerful performance below, and remember: this was the very first time Bruce had ever performed “The River” in public.
 
-[https://videopress.com/embed/14LE1IUk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/14LE1IUk?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/14LE1IUk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce had recorded the song not even one month before. He took the band into the studio to record “The River” immediately after he finished writing (and re-titling) it in August. It didn’t take long to settle on a completed take, and for a month or so, “The River” was almost the centerpiece of a single-disc album called 
+Bruce had recorded the song not even one month before. He took the band into the studio to record “The River” immediately after he finished writing (and re-titling) it in August. It didn’t take long to settle on a completed take, and for a month or so, “The River” was almost the centerpiece of a single-disc album called *The Ties That Bind.*
 
-*The Ties That Bind.*
-
-Neither the album nor the track saw the light of day at the time, but more than thirty-five years later, Bruce finally released both as part of his anniversary box set for 
-
-*The River.*
+Neither the album nor the track saw the light of day at the time, but more than thirty-five years later, Bruce finally released both as part of his anniversary box set for *The River.*
 
 Many fans don’t realize it, but the version of “The River” that’s included on the single-disc version is a different mix. Listen below to the original, unreleased (at the time) take…
 
-[https://www.youtube.com/embed/BjSsFvrrh7g?feature=oembed](https://www.youtube.com/embed/BjSsFvrrh7g?feature=oembed)
+[Watch on Youtube: The River](https://www.youtube.com/watch?v=BjSsFvrrh7g)
 
-…and now compare it with the version that was released on in late 1980. Among the subtle differences, notice that version is brighter, with Max’s percussion notably higher in the mix. The version on , by contrast, is more muted. (It also features harmony overdubs in the outro missing from the earlier version.)
+…and now compare it with the version that was released on *The River* in late 1980. Among the subtle differences, notice that *The Ties That Bind* version is brighter, with Max’s percussion notably higher in the mix. The version on *The River*, by contrast, is more muted. (It also features harmony overdubs in the outro missing from the earlier version.)
 
-*The River**The Ties That Bind* *The River*
-
-[https://www.youtube.com/embed/y7BUXRsTbvI?feature=oembed](https://www.youtube.com/embed/y7BUXRsTbvI?feature=oembed)
+[Watch on Youtube: The River](https://www.youtube.com/watch?v=y7BUXRsTbvI)
 
 Let’s dig into the song itself. (Either version works fine for this part.)
 
@@ -90,8 +74,6 @@ Bruce concludes Act I with a healthy dose of reality. Young love leads to lastin
 *And for my nineteenth birthday I got a union card and a wedding coat*  
 *We went down to the courthouse and the judge put it all to rest*  
 *No wedding day smiles, no walk down the aisle, no flowers no wedding dress*
-
-
 
 *That night we went down to the river and into the river we’d dive*  
 *Oh down to the river we did ride*
@@ -126,9 +108,7 @@ Unable to appreciate his present circumstances, his inner life is more vivid tha
 
 And that’s a curse indeed.
 
-Which brings us, finally, to the central question of “The River”: 
-
-*Is a dream a lie if it don’t come true, or is it something worse?*
+Which brings us, finally, to the central question of “The River”: *Is a dream a lie if it don’t come true, or is it something worse?*
 
 What’s worse than what might have been? Answer: what once was true, but no longer is.
 
@@ -147,9 +127,7 @@ Bruce returns us to one final chorus now, and even before we hear it, we know wh
 
 It’s easy to focus on the first two lines, since they drive home the metaphor via the dry river, now empty of hope, dreams and solace.
 
-But if we dismiss the last two lines as inconsequential, we miss one final, compelling detail: the river may be dry, but our heroes still visit it forever in search of some way to relight the flame that once warmed them.
-
-*together–*
+But if we dismiss the last two lines as inconsequential, we miss one final, compelling detail: the river may be dry, but our heroes still visit it *together–*forever in search of some way to relight the flame that once warmed them.
 
 It’s a hauntingly beautiful (and beautifully haunting) finale that stays with us throughout the long, wordless coda.
 
@@ -159,17 +137,13 @@ So keep that in mind when I add: it’s also one of his most callow.
 
 At the age of thirty, Bruce hadn’t yet come to terms with marriage. As an emerging rock star still on the ascent, marriage and its accompanying responsibilities represented a threat to an itinerant musician with Peter Pan syndrome. He’d already seen too many of his former bandmates and cohorts settle down and abandon their own quests for fame.
 
-As we discussed in “Oh Angelyne,” Bruce’s original inspiration for “The River” was the early marriage and subsequent struggles of his younger sister and brother-in-law. he was going to treat that situation as a tragedy.
-
-*Of course*
+As we discussed in “Oh Angelyne,” Bruce’s original inspiration for “The River” was the early marriage and subsequent struggles of his younger sister and brother-in-law. *Of course* he was going to treat that situation as a tragedy.
 
 I’m not saying “The River” isn’t a powerful and gorgeously constructed song–there’s no question about that. And I’m not dismissing the emotional impact of giving up on your dreams, whether individual or shared.
 
 But the idea that our narrator would be so consumed by the loss of young love so many years later strikes me as something only a young songwriter would invent. Adulthood and parenthood may rob us, but they gift us as well, and it takes some maturity and life experience to realize that.
 
-Bruce accumulated that experience and maturity over the years, and if we flash forward three decades to , we arrive at an album full of songs more nuanced and more colorful, richer in emotional detail and with shades of appreciation that can only come on the other side of life and love experience. (There’s no way, for example, that we can imagine Bruce writing something like “Kingdom of Days” at age thirty.)
-
-*Working on a Dream*
+Bruce accumulated that experience and maturity over the years, and if we flash forward three decades to *Working on a Dream*, we arrive at an album full of songs more nuanced and more colorful, richer in emotional detail and with shades of appreciation that can only come on the other side of life and love experience. (There’s no way, for example, that we can imagine Bruce writing something like “Kingdom of Days” at age thirty.)
 
 “The River” is a wonderful song that resonated with me powerfully when I first discovered love, and less so with each passing anniversary. My wife and I laugh sometimes about the life we planned for ourselves, a life that never came close to coming true. We might occasionally get a bit wistful about it, but there’s not a thing we’d change.
 
@@ -186,36 +160,28 @@ To date, Bruce has performed “The River” in concert a mind-boggling 683 time
 
 So instead, I’ll shine a spotlight on how the song has evolved over the years, starting with its first tour outing in 1980, which featured an extended (and unnecessary) piano introduction.
 
-[https://www.youtube.com/embed/lc6F47Z6PI4?feature=oembed](https://www.youtube.com/embed/lc6F47Z6PI4?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - The River (The River Tour, Tempe 1980)](https://www.youtube.com/watch?v=lc6F47Z6PI4)
 
 Far more successful was the introduction to Bruce’s Reunion Tour arrangement. For three gorgeous minutes, first Clarence and then Bruce and Roy conjured the narrator’s loneliness and let it wash over us. By the time Bruce’s familiar vocals start, we’re already mourning our loss.
 
-[https://www.youtube.com/embed/QHfdYaMksn0?feature=oembed](https://www.youtube.com/embed/QHfdYaMksn0?feature=oembed)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - The River (Live in New York City)](https://www.youtube.com/watch?v=QHfdYaMksn0)
 
 “The River” has always been a delicate song; when performing it with the E Street Band, Bruce takes care with the arrangement lest the band overpower. But on his solo acoustic tours, Bruce is able to stretch a bit, and this acoustic arrangement from 1996 (accompanied by a mostly unseen Soozie Tyrell) is one of my favorites.
 
-[https://www.youtube.com/embed/k-0bLbdSNDs?feature=oembed](https://www.youtube.com/embed/k-0bLbdSNDs?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - The River [Freehold November 8, 1996]](https://www.youtube.com/watch?v=k-0bLbdSNDs)
 
 “The River” was a regular feature on Bruce’s 2005 acoustic tour as well, but this time he performed at the piano, with a haunting falsetto.
 
-[https://www.youtube.com/embed/17A12QFVytc?feature=oembed](https://www.youtube.com/embed/17A12QFVytc?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - The River (Live Milan 07 June 2005)](https://www.youtube.com/watch?v=17A12QFVytc)
 
 But my favorite arrangement (right up there with the Reunion Tour) is Bruce’s Irish-influenced arrangement from 2006. “The River” never sounded more cinematic.
 
-[https://www.youtube.com/embed/rvxYiudnnKk?feature=oembed](https://www.youtube.com/embed/rvxYiudnnKk?feature=oembed)
+[Watch on Youtube: Bruce Springsteen with The Seeger Sessions Band - The River](https://www.youtube.com/watch?v=rvxYiudnnKk)
 
-August 26, 1979 – April 1980
-(1980), (1995), (2003), (2016)
-September 21, 1979 (New York City, NY)
-July 25, 2021 (Monza, Italy)
+**The River  
+**Recorded:** August 26, 1979 – April 1980<br>
+**Released:** *The River* (1980), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
+**First performed:** September 21, 1979 (New York City, NY)<br>
+**Last performed:** July 25, 2021 (Monza, Italy)
 
-**The River**
-**Recorded:**<br>
-
-**Released:** *The River* *Greatest Hits* *The Essential Bruce Springsteen**Chapter and Verse*<br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

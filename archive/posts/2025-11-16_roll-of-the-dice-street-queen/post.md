@@ -1,24 +1,18 @@
-
-
 What is it with Bruce Springsteen and cars?
 
 I mean, I get the fascination in general, even if I don’t share it. But he’s on record stating that he didn’t even know how to drive as late as 1970, and he didn’t own a car until 1975.
 
-And yet here he is in 1972, so obsessed with cars with that he actually fetishizes a girl 
-
-*as a car.*
+And yet here he is in 1972, so obsessed with cars with that he actually fetishizes a girl *as a car.*
 
 From Bruce’s very first demo recording session with John Hammond on May 3, 1972, take a listen to “Street Queen,” performed by Bruce solo on piano:
 
-[https://videopress.com/embed/IvoYACpv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IvoYACpv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/IvoYACpv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 “Street Queen” wasn’t an idle throwaway. Surviving documents suggest that Bruce actively considered it for inclusion on his first album during the summer of 1972, and indeed he continued to work on the song, refining its lyrics.
 
-On June 7, 1972–the very first day of recording sessions for –“Street Queen” was one of the first four songs Bruce recorded in the studio after signing with Columbia. This time he performed it on electric piano. Take a listen to it below–it’s the first and last recording we have of Bruce playing the electric piano until 33 years later.
+On June 7, 1972–the very first day of recording sessions for [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)–“Street Queen” was one of the first four songs Bruce recorded in the studio after signing with Columbia. This time he performed it on electric piano. Take a listen to it below–it’s the first and last recording we have of Bruce playing the electric piano until 33 years later.
 
-[](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.*
-
-[https://videopress.com/embed/YSKs9HY3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YSKs9HY3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YSKs9HY3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 There’s not a lot going on in “Street Queen.” As I wrote at the top, this is a fetish song plain and simple, and if there’s not a lot to parse and analyze, we can at least admire Bruce’s talent for riding a metaphor off into the horizon:
 
@@ -45,9 +39,7 @@ That entire verse is a finalist for Bruce’s raunchiest songwriting.
 *Oh she’s the slickest thing that I’ve ever seen*  
 *Oh, Street Queen*
 
-Let me pause here just to say: Bruce finally got around to writing and releasing “” so he could get “,” and “” out of his system. Those phrases can be found floating around his unreleased songs for over a decade before he finally gave them a permanent home.
-
-*thank goodness*[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[long and dark](http://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/)[shiny and black](http://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)
+Let me pause here just to say: *thank goodness* Bruce finally got around to writing and releasing “[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)” so he could get “[long and dark](https://estreetshuffle.com/index.php/2019/06/10/roll-of-the-dice-mr-outside/),” and “[shiny and black](https://estreetshuffle.com/index.php/2018/11/30/roll-of-the-dice-garden-state-parkway-blues/)” out of his system. Those phrases can be found floating around his unreleased songs for over a decade before he finally gave them a permanent home.
 
 Anyway, let’s continue, because Bruce is about to go, um, all in.
 
@@ -75,16 +67,10 @@ I’ll just let that first couplet stand without comment. The last lines, howeve
 
 It’s a clever way for Bruce to write his way out of a song that is otherwise more of a songwriting practice exercise, albeit a very clever one.
 
-Obviously, Bruce chose not to release “Street Queen” on his first or any other album, and that was probably a wise choice. But with at least two clean studio recordings in the can, it would sure be nice to see it on some future volume, wouldn’t it?
-
-*Tracks*
-
-June 7, 1972
-
-
+Obviously, Bruce chose not to release “Street Queen” on his first or any other album, and that was probably a wise choice. But with at least two clean studio recordings in the can, it would sure be nice to see it on some future *Tracks* volume, wouldn’t it?
 
 **Street Queen**  
-**Recorded:**<br>
+**Recorded:** June 7, 1972<br>
 **Never released**  
 **Never performed**
 

@@ -14,7 +14,7 @@
 
 **1978:** Bruce attends Warren Zevon's show at Trax in New York City–and may possibly have contributed backup howls on "Werewolves of London." (Accounts vary.)
 
-**1981**: The scheduled European opener of the River Tour is postponed to give Bruce time to recover from the first two legs of the tour.
+**1981:** The scheduled European opener of the River Tour is postponed to give Bruce time to recover from the first two legs of the tour.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
 
@@ -60,7 +60,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2024**: In Phoenix for tour rehearsals with the E Street Band, Bruce takes a break to record a message for fans coming to town for the show.
+**2024:** In Phoenix for tour rehearsals with the E Street Band, Bruce takes a break to record a message for fans coming to town for the show.
 > [View this post on Instagram](https://www.instagram.com/reel/C4oFaF5vXIM/?utm_source=ig_embed&utm_campaign=loading)
 >
 >

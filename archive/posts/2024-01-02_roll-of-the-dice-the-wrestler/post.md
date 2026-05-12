@@ -1,24 +1,14 @@
+> “I’m grounding [“The Wrestler”] in something I’ve experienced myself: You can find your identity in the damage that’s been done to you. In your wounds, in your scars, in the places where you’ve been beat up. And you turn them into a medal. In my own life I’ve built a lot, but… I don’t kid myself.” — Bruce Springsteen to Mark Hagen, *The Guardian*, January 18, 2009
 
+One week before *The Guardian* published that interview, Bruce stood on the stage at the Beverly Hilton Hotel in Los Angeles and accepted his Best Original Song Golden Globe Award for “The Wrestler.”
 
-“I’m grounding [“The Wrestler”] in something I’ve experienced myself: You can find your identity in the damage that’s been done to you. In your wounds, in your scars, in the places where you’ve been beat up. And you turn them into a medal. In my own life I’ve built a lot, but… I don’t kid myself.” — Bruce Springsteen to Mark Hagen, , January 18, 2009*The Guardian*
+[Watch on Youtube: Bruce Springsteen Wins Best Original Song Motion Picture - Golden Globes 2009](https://www.youtube.com/watch?v=uEbhqOPKHdo)
 
-One week before published that interview, Bruce stood on the stage at the Beverly Hilton Hotel in Los Angeles and accepted his Best Original Song Golden Globe Award for “The Wrestler.”
-
-*The Guardian*
-
-[https://www.youtube.com/embed/uEbhqOPKHdo?feature=oembed](https://www.youtube.com/embed/uEbhqOPKHdo?feature=oembed)
-
-In his acceptance speech, he thanked his friend Mickey Rourke (who won the Best Actor award that night for his performance in for handing him the opportunity, and he shared how the request came about:
-
-*The Wrestler)*
-
-
+In his acceptance speech, he thanked his friend Mickey Rourke (who won the Best Actor award that night for his performance in *The Wrestler)* for handing him the opportunity, and he shared how the request came about:
 
 *[Mickey] asked me for some music. He told me a little bit about the character. He said, “some people invest themselves in their pain, and they turn away from love and the things that strengthen and nurture their lives. This was a guy who hadn’t figured that out.” I said, “well… I know a few of those guys…”*
 
-Bruce a few of those guys. (Or as he’s apt to put it these days, those guys are passengers in the car with him.)
-
-*was*
+Bruce *was* a few of those guys. (Or as he’s apt to put it these days, those guys are passengers in the car with him.)
 
 Maybe that direct experience is what enabled him to write such an extraordinary insightful song. Maybe it was just his innate empathy.
 
@@ -26,7 +16,7 @@ Whatever the reason, “The Wrestler” is one of the most beautiful songs in Br
 
 There’s no story to “The Wrestler;” it’s simply a character sketch. To the degree that it’s “about” anything, “The Wrestler” is about resilience in the face of hopelessness.
 
-[https://videopress.com/embed/mOPjCZv9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mOPjCZv9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/mOPjCZv9?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 Bruce introduces us to a character who knows his place in the world, aches to transcend it, but can’t let it go. He’s an aging wrestler, which means he’s an entertainer, and the way he entertains is through his physical pain. Pain is all he knows, and it infects and infuses his emotional life as well.
 
@@ -34,8 +24,6 @@ Bruce introduces us to a character who knows his place in the world, aches to tr
 *If you’ve ever seen a one-trick pony then you’ve seen me*  
 *Have you ever seen a one-legged dog making his way down the street*  
 *If you’ve ever seen a one-legged dog then you’ve seen me*
-
-
 
 *Then you’ve seen me, I come and stand at every door*  
 *Then you’ve seen me, I always leave with less than I had before*  
@@ -88,33 +76,24 @@ As for the video, which Bruce made with Thom Zimny and Noah Hunter, it’s one o
 
 Here’s a behind-the-scenes look at the making of the video:
 
-[https://videopress.com/embed/Q4FkgSKL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Q4FkgSKL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Q4FkgSKL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 The accolades and awards for “The Wrestler” were still fresh when Bruce kicked off his Working on a Dream Tour two months later, and he understandably tried to find a home for the song in his set lists.
 
-[https://www.youtube.com/embed/HX9-qkKEyS4?feature=oembed](https://www.youtube.com/embed/HX9-qkKEyS4?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - The Wrestler - Live From Glendale, Arizona - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=HX9-qkKEyS4)
 
-[https://www.youtube.com/embed/oQVwoOUQhlI?feature=oembed](https://www.youtube.com/embed/oQVwoOUQhlI?feature=oembed)
+[Watch on Youtube: The Wrestler (Live at Nassau Coliseum, Uniondale, NY - 5/4/2009)](https://www.youtube.com/watch?v=oQVwoOUQhlI)
 
 From late March through the early days of June, Bruce performed “The Wrestler” regularly, but the song never really fit thematically. (Although to be fair, that was a tour that struggled throughout to find its message.)
 
 After a lone appearance on the tour’s European leg, “The Wrestler” disappeared, never to be seen again.
 
-It’s too great a song to remain missing forever, though. “The Wrestler” fits with much of Bruce’s recent material, especially with , an album wholly centered on characters looking back on a road they can’t get off. It’s a theme that seems particularly resonant to Bruce of late, so we can hope for a reprise someday soon.
+It’s too great a song to remain missing forever, though. “The Wrestler” fits with much of Bruce’s recent material, especially with *Western Stars*, an album wholly centered on characters looking back on a road they can’t get off. It’s a theme that seems particularly resonant to Bruce of late, so we can hope for a reprise someday soon.
 
-*Western Stars*
+**The Wrestler  
+**Recorded:** 2008<br>
+**Released:** *Working on a Dream* (2009), *The Essential Bruce Springsteen* (2015)<br>
+**First performed:** March 23, 2009 (Asbury Park, NJ)<br>
+**Last performed:** June 4, 2009 (Stockholm, Sweden)
 
-2008
-(2009), (2015)
-March 23, 2009 (Asbury Park, NJ)
-June 4, 2009 (Stockholm, Sweden)
-
-**The Wrestler**
-**Recorded:**<br>
-
-**Released:** *Working on a Dream* *The Essential Bruce Springsteen* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

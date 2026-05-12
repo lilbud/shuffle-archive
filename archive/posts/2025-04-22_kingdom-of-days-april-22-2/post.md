@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Be True (Single B-Side - 1981)](https://www.youtube.com/watch?v=Y0Cy4Zwiil0)
 
-**1983**: In newspapers across America, the comic strip *Funky Winkerbean* winks at a certain rising rock star still a year away from megastardom.
+**1983:** In newspapers across America, the comic strip *Funky Winkerbean* winks at a certain rising rock star still a year away from megastardom.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2024/04/Greensboro_Daily_News_Fri__Apr_22__1983_-scaled.jpg)
 

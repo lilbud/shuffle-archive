@@ -14,7 +14,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1982-0516.jpg)
 
-**1985**: Bruce and Julianne leave Lake Oswego, Oregon, for their honeymoon.
+**1985:** Bruce and Julianne leave Lake Oswego, Oregon, for their honeymoon.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/05/1985-0516.jpg)
 

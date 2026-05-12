@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road (Toronto 2016)](https://www.youtube.com/watch?v=XyF69cUZcP4)
 
-**2017**: The Australian Summer Tour moves to Melbourne. Finding it embarrassing to represent America during the early days of the Trump Administration, Bruce makes a statement by opening with an acoustic cover of The Orlon's "[Don't Hang Up](https://estreetshuffle.com/index.php/2021/05/13/cover-me-dont-hang-up/)," dedicated to Prime Minister Turnbull after Trump hung up on their call the previous day. Bruce follows up with "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" and also includes a solo acoustic "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" in the encores, bookending the show with pointed statements.
+**2017:** The Australian Summer Tour moves to Melbourne. Finding it embarrassing to represent America during the early days of the Trump Administration, Bruce makes a statement by opening with an acoustic cover of The Orlon's "[Don't Hang Up](https://estreetshuffle.com/index.php/2021/05/13/cover-me-dont-hang-up/)," dedicated to Prime Minister Turnbull after Trump hung up on their call the previous day. Bruce follows up with "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" and also includes a solo acoustic "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" in the encores, bookending the show with pointed statements.
 
 [Watch on Youtube: "Don't Hang Up" (Melbourne, 02/02/17)](https://www.youtube.com/watch?v=zSiZMyUlw8Y)
 

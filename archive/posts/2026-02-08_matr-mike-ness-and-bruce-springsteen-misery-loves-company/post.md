@@ -1,16 +1,12 @@
-
-
 Bruce Springsteen may have been a Mike Ness fan before Ness was a Springsteen fan.
 
 Ness confesses to getting turned on to Bruce much later in life when he had the chance to take in one of Bruce’s concerts. Bruce, however, has been a fan of Ness’ band Social Distortion since the early ’90s. (“How did this guy even hear of us?” Ness once wondered to an interviewer.)
 
 Today, Bruce and Mike are friends and influence each other, and they’ve each graced the other’s stage. And one time (so far), they even collaborated in the studio.
 
-When Ness recorded his first solo album, , in 1999, Bruce was one of several musicians Mike asked to join him on record. The result: A raging rocker called “Misery Loves Company,” featuring Bruce prominently on vocals and guitar.
+When Ness recorded his first solo album, *Cheating at Solitaire*, in 1999, Bruce was one of several musicians Mike asked to join him on record. The result: A raging rocker called “Misery Loves Company,” featuring Bruce prominently on vocals and guitar.
 
-*Cheating at Solitaire*
-
-[https://www.youtube.com/embed/cI5uK1BHuSM?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/cI5uK1BHuSM?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cI5uK1BHuSM)
 
 As for why Bruce took to this particular song… well, looking at the lyrics, it’s not hard to see the resonance:
 
@@ -19,8 +15,6 @@ As for why Bruce took to this particular song… well, looking at the lyrics, it
 *Yeah but happiness it’s a funny thing*  
 *And misery just loves company*
 
-
-
 *Don’t even try to understand what goes on inside this man*  
 *As a boy I used to dream ’cause sometimes life ain’t what it seems…*
 
@@ -28,18 +22,12 @@ In May of 2008–almost a decade after the song’s release–Ness played a show
 
 Thankfully, that last performance (At Sea. Hear. Now. in September 2018) not only was captured, it’s easy to find in several great video versions, including this one.
 
-[https://www.youtube.com/embed/loIfsQ8RmAc?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/loIfsQ8RmAc?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=loIfsQ8RmAc)
 
-December 29, 1998
-(1999)
-: May 17, 2008 (Asbury Park, NJ)
-September 30, 2018 (Asbury Park, NJ)
-
-**Misery Loves Company**
-**Recorded:**<br>
-
-**Released:***Cheating at Solitaire*<br>
-**First performed**  
-**Last performed:**<br>
+**Misery Loves Company  
+**Recorded:** December 29, 1998<br>
+**Released:** *Cheating at Solitaire* (1999)<br>
+**First performed:** May 17, 2008 (Asbury Park, NJ)
+**Last performed:** September 30, 2018 (Asbury Park, NJ)
 
 © January 22, 2020

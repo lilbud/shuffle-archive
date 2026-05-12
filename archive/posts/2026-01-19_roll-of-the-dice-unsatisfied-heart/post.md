@@ -1,16 +1,10 @@
+Hailing back to early 1983, in the midst of what would become known retroactively as the *Born in the U.S.A. Sessions,* “Unsatisfied Heart” existed in the wild for decades only as a demo recorded by Bruce in his home studio.
 
+[Watch on Youtube: Bruce Springsteen Unsatisifed Heart](https://www.youtube.com/watch?v=8hgDodSeEoo)
 
-Hailing back to early 1983, in the midst of what would become known retroactively as the “Unsatisfied Heart” existed in the wild for decades only as a demo recorded by Bruce in his home studio.
+When it was finally released in 2025 on *L.A. Garage Sessions ’83,* however, it was in a far more polished form. And unlike most of its album-mates, the released version of “Unsatisfied Heart” features contributions from E Street Band members Roy Bittan and Max Weinberg, making it a genuinely new and unheard entity.
 
-*Born in the U.S.A. Sessions,*
-
-[https://www.youtube.com/embed/8hgDodSeEoo?feature=oembed](https://www.youtube.com/embed/8hgDodSeEoo?feature=oembed)
-
-When it was finally released in 2025 on however, it was in a far more polished form. And unlike most of its album-mates, the released version of “Unsatisfied Heart” features contributions from E Street Band members Roy Bittan and Max Weinberg, making it a genuinely new and unheard entity.
-
-*L.A. Garage Sessions ’83,*
-
-[https://www.youtube.com/embed/IHZPSeoja8A?feature=oembed](https://www.youtube.com/embed/IHZPSeoja8A?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Unsatisfied Heart (Official Audio)](https://www.youtube.com/watch?v=IHZPSeoja8A)
 
 This essay was originally written in 2018 and is based on the long-circulating bootleg demo. However, the lyrical differences are minor (with one notable exception, acknowledged below), so I’ve left the bulk of the text unaltered.
 
@@ -56,9 +50,7 @@ The released version features a different opening couplet for this verse:
 
 This is a rare instance where I prefer the earlier lyrics to the final ones. The latter lines are a bit too on the nose for my liking, spelling out explicitly what the earlier lyrics clearly imply but leave to the listener to interpret. Both versions tell the same story, however, so it’s a minor quibble.
 
-Both versions lead up to the same event: 
-
-*I got dressed in the darkness and I fled into the street.”*
+Both versions lead up to the same event: *I got dressed in the darkness and I fled into the street.”*
 
 We never learn the singer’s secret, either in “Fugitive’s Dream (Ballad)” or in “Unsatisfied Heart,” although it’s strongly implied in the former that he’d abandoned his former life–and perhaps a family–and had managed to keep that life walled off even in his own mind and heart. But the appearance of the stranger shook him, woke him, and now he can’t shut that door in his heart again.
 
@@ -77,26 +69,17 @@ Either way, the pain is the same. There’s a reason why Bruce added a chorus on
 
 In “Fugitive’s Dream (Ballad)” it’s implied that the secret is more intimate–perhaps a same-sex relationship with the stranger, although Bruce takes pains to keep the past cloudy–and while that song ends on a similar reflective scene, its imagery is darker and lonelier.
 
-In a sense, “Fugitive’s Dream (Ballad)” presaged the style of songwriting that would feature heavily on and “Unsatisfied Heart” might have been right at home on . The closing lines of “Brilliant Disguise” would fit aptly here:
-
-*The Ghost of Tom Joad,* *Tunnel of Love*
-
-
+In a sense, “Fugitive’s Dream (Ballad)” presaged the style of songwriting that would feature heavily on *The Ghost of Tom Joad,* and “Unsatisfied Heart” might have been right at home on *Tunnel of Love*. The closing lines of “Brilliant Disguise” would fit aptly here:
 
 *God have mercy on the man who doubts what he’s sure of.*
 
-“Unsatisfied Heart” would have almost assuredly been included on a sequel (which Bruce had in fact briefly considered as his next album, before choosing another path), but instead it remained in the vault for more than four decades.
-
-*Nebraska*
+“Unsatisfied Heart” would have almost assuredly been included on a *Nebraska* sequel (which Bruce had in fact briefly considered as his next album, before choosing another path), but instead it remained in the vault for more than four decades.
 
 Bruce has never performed it , but shockingly it did turn up–once–in a War on Drugs setlist in 2018, proving that band’s boss bona fides and seriously impressing Bruce fans who caught the bands’ performance in person or on YouTube.
 
-June 13, 1983
-(2025), (2025)
-
 **Unsatisfied Heart**  
-**Recorded:**<br>
-**Released:** *L.A. Garage Sessions ’83* *Lost and Found*<br>
+**Recorded:** June 13, 1983<br>
+**Released:** *L.A. Garage Sessions ’83* (2025), *Lost and Found* (2025)<br>
 **Never performed**
 
 © September 12, 2018 / December 21, 2025

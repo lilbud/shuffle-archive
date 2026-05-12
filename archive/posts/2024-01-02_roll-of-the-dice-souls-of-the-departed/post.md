@@ -1,30 +1,18 @@
-
-
 Even when Bruce is happiest with his lot in life, he grapples with the systemic social inequality that made it possible.
 
 There’s probably no better example of this duality at work in his music than “Souls of the Departed.”
 
-“Souls of the Departed” sticks out like a sore thumb on the otherwise bright and shiny . (Yes, there’s also “,” but that song is more cautionary tale than personal confession.) It’s overtly political and deeply unsettling, a far cry from the romantic love songs and self-deprecating humor that characterizes the rest of the album.
-
-*Lucky Town*[The Big Muddy](http://estreetshuffle.com/index.php/2019/01/29/roll-of-the-dice-the-big-muddy/)
+“Souls of the Departed” sticks out like a sore thumb on the otherwise bright and shiny *Lucky Town*. (Yes, there’s also “[The Big Muddy](https://estreetshuffle.com/index.php/2019/01/29/roll-of-the-dice-the-big-muddy/),” but that song is more cautionary tale than personal confession.) It’s overtly political and deeply unsettling, a far cry from the romantic love songs and self-deprecating humor that characterizes the rest of the album.
 
 Let’s take a listen, and then we’ll break it down:
 
-[https://www.youtube.com/embed/2t-81cQv5f8?feature=oembed](https://www.youtube.com/embed/2t-81cQv5f8?feature=oembed)
+[Watch on Youtube: Souls of the Departed](https://www.youtube.com/watch?v=2t-81cQv5f8)
 
-The first thing–literally–that we notice about “Souls of the Departed” is that its musical backbone is virtually copied and pasted from the album’s opening track, “.” That’s almost certainly intentional: although “” serves as the album’s epilogue, “Souls of the Departed” functions as the album’s true closer, and as such “Better Days” and “Souls of the Departed” serve as bookends, mirror images–the first a confession of contentment and the last a confession of complicity.
+The first thing–literally–that we notice about “Souls of the Departed” is that its musical backbone is virtually copied and pasted from the album’s opening track, “[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/).” That’s almost certainly intentional: although “[My Beautiful Reward](https://estreetshuffle.com/index.php/2023/02/19/roll-of-the-dice-my-beautiful-reward/)” serves as the album’s epilogue, “Souls of the Departed” functions as the album’s true closer, and as such “Better Days” and “Souls of the Departed” serve as bookends, mirror images–the first a confession of contentment and the last a confession of complicity.
 
-[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)[My Beautiful Reward](https://estreetshuffle.com/index.php/2023/02/19/roll-of-the-dice-my-beautiful-reward/)
+Sonically, “Souls of the Departed” is as angry a rocker as the lyrics demand, so it’s a shocker when we find out that the song is a *solo track–*Bruce plays every instrument that we hear except for Gary Mallaber’s drums.
 
-Sonically, “Souls of the Departed” is as angry a rocker as the lyrics demand, so it’s a shocker when we find out that the song is a Bruce plays every instrument that we hear except for Gary Mallaber’s drums.
-
-*solo track–*
-
-Lyrically, the song is a triptych, a series of vignettes in the vein of “.” We start in a far-away Iraqi battlefield, travel back to the mean streets of Compton, and finally end up in little Evan Springsteen’s bedroom, a setting so unexpectedly intimate that we’re completely unprepared for it after the geopolitical scale of the first two verses.
-
-[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)
-
-
+Lyrically, the song is a triptych, a series of vignettes in the vein of “[Reason to Believe](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/).” We start in a far-away Iraqi battlefield, travel back to the mean streets of Compton, and finally end up in little Evan Springsteen’s bedroom, a setting so unexpectedly intimate that we’re completely unprepared for it after the geopolitical scale of the first two verses.
 
 *On the road to Basra stood young Lieutenant Jimmy Bly*  
 *Detailed to go through the clothes of the soldiers who died*  
@@ -64,9 +52,7 @@ Bruce sets aside formula for the bridge, reflecting now on his own first-born so
 *I want to build me a wall so high nothing can burn it down*  
 *Right here on my own piece of dirty ground*
 
-That’s a sentiment every parent empathizes with. We’ve all had those same thoughts, every time we hear about a drive-by or mass shooting. The urge to protect our children is so strong, so innate, that we want to protect them any way we can. And one of the most elemental ways to do that is to build a wall, an instinctive urge that eerily foreshadows our most controversial American political debate today.
-
-*What if it had been my child?*
+That’s a sentiment every parent empathizes with. We’ve all had those same thoughts, every time we hear about a drive-by or mass shooting. *What if it had been my child?* The urge to protect our children is so strong, so innate, that we want to protect them any way we can. And one of the most elemental ways to do that is to build a wall, an instinctive urge that eerily foreshadows our most controversial American political debate today.
 
 Bruce knows that won’t solve the problem; it merely isolates him from it. But he can’t help but feel the urge, and for a self-made man like Bruce, it’s an urge that’s feasible if he wanted it to be. He knows it, and he confess it via his “dirty ground” reference.
 
@@ -88,40 +74,34 @@ With so much care and control exercised over the content and sound of the song, 
 
 “Souls of the Departed” was a nightly staple during both World Tour 1992 and World Tour 1993, and as is often the case, the song grew in power as the tour progressed and the band made the song their own. A few of these performances were captured professionally on video, so we can fully appreciate the power of the performance.
 
-Here are two of my favorites: first, from Bruce’s appearance on (for which he famously refused to stay unplugged). A foreboding “” serves as the lead-in, fading out as Bruce begins the song accompanied only by a soft drone and barely perceptible percussion. The band explodes into action following the first chorus but recedes at the critically intimate final verse.
+Here are two of my favorites: first, from Bruce’s appearance on *MTV Unplugged* (for which he famously refused to stay unplugged). A foreboding “[Star-Spangled Banner](https://estreetshuffle.com/index.php/2021/01/20/cover-me-the-star-spangled-banner/)” serves as the lead-in, fading out as Bruce begins the song accompanied only by a soft drone and barely perceptible percussion. The band explodes into action following the first chorus but recedes at the critically intimate final verse.
 
-*MTV Unplugged*[Star-Spangled Banner](https://estreetshuffle.com/index.php/2021/01/20/cover-me-the-star-spangled-banner/)
-
-[https://www.youtube.com/embed/UKqNP3dbF2g?feature=oembed](https://www.youtube.com/embed/UKqNP3dbF2g?feature=oembed)
+[Watch on Youtube: Bruce Springsteen | Souls Of The Departed - Los Angeles - 22/09/1992](https://www.youtube.com/watch?v=UKqNP3dbF2g)
 
 …and from the final weeks of the tour, a performance from Verona, Italy.
 
-[https://www.youtube.com/embed/qBbnAiiz-5w?feature=oembed](https://www.youtube.com/embed/qBbnAiiz-5w?feature=oembed)
+[Watch on Youtube: bruce springsteen souls of the departed verona italy 1993](https://www.youtube.com/watch?v=qBbnAiiz-5w)
 
 One of my favorite performances of “Souls of the Departed” is the sole time Bruce played it solo and acoustic on his twelve-string slide guitar at one of his benefit shows in Somerville in 2003.
 
-<http://estreetshuffle.com/wp-content/uploads/2019/03/113-Souls-Of-The-Departed.flac>
+[https://estreetshuffle.com/wp-content/uploads/2019/03/113-Souls-Of-The-Departed.flac?_=1](https://estreetshuffle.com/wp-content/uploads/2019/03/113-Souls-Of-The-Departed.flac?_=1)
+
+<https://estreetshuffle.com/wp-content/uploads/2019/03/113-Souls-Of-The-Departed.flac>
 
 The arrangement is so stark and powerful that you probably didn’t even realize he left out the bridge. Whether he did that intentionally or by accident, I don’t know, but the song somehow retained its full power regardless.
 
 Here are two final clips, from the few performances with the E Street Band (there have only been six). The first is from the Rising Tour:
 
-[https://www.youtube.com/embed/QJDAcNF6ax8?feature=oembed](https://www.youtube.com/embed/QJDAcNF6ax8?feature=oembed)
+[Watch on Youtube: Souls Of The Departed Bruce Springsteen 10/3/2003 NYC Shea Stadium](https://www.youtube.com/watch?v=QJDAcNF6ax8)
 
 …and finally from the following year’s Vote for Change Tour, an on-point performance featuring not just Bruce and the E Street Band, but Neil Young as well:
 
-[https://www.youtube.com/embed/ljabZgADz5g?feature=oembed](https://www.youtube.com/embed/ljabZgADz5g?feature=oembed)
-
-July-December 1991
-(1992)
-June 15, 1992 (Stockholm, Sweden)
-April 27, 2008 (Charlotte, NC)
+[Watch on Youtube: bruce springsteen ft neil young souls of the departed](https://www.youtube.com/watch?v=ljabZgADz5g)
 
 **Souls of the Departed**  
-**Recorded:**<br>
-**Released:***Lucky Town* <br>
-**First performed:** <br>
-**Last performed:**<br>
+**Recorded:** July-December 1991<br>
+**Released:** *Lucky Town* (1992)<br>
+**First performed:** June 15, 1992 (Stockholm, Sweden)<br>
+**Last performed:** April 27, 2008 (Charlotte, NC)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,5 +1,3 @@
-
-
 The first half of 1972 found Bruce in prolific (even by his own standard) songwriting mode.
 
 For every song written during this period that eventually found its way to Bruce’s first album, there were at least three that only saw the light of day via bootleg releases (and another thirtyish we only know about by their titles).
@@ -8,7 +6,7 @@ One of the songs that managed to escape was “War Nurse.”
 
 Recorded in the spring of 1972 at Jim Cretecos’ apartment, “War Nurse” is little more than a character study. Uncharacteristically taut at barely two minutes, one wonders if Bruce intended “War Nurse” as a complete song or if it was merely a character study, perhaps an early work-in-progress of something greater down the line.
 
-[https://www.youtube.com/embed/_dWZ4Yrpk_c?feature=oembed](https://www.youtube.com/embed/_dWZ4Yrpk_c?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - War Nurse](https://www.youtube.com/watch?v=_dWZ4Yrpk_c)
 
 Bruce tells us very little about the war nurse, and that appears to be intentional. Rather than paint her as a distinct character, he universalizes her–paying tribute to all of the women who served their country by saving lives, regardless of their pre-war walk of life.
 
@@ -18,14 +16,10 @@ Bruce tells us very little about the war nurse, and that appears to be intention
 *She was just another lonesome lady, lover, sister of the gun*  
 *And though France would call her darling she was a nurse ‘neath the rising sun*
 
-
-
 *She knew no hells or heavens, or harbors or havens*  
 *She was every mother, sister, wife, and lover whose love a soldier boy was savin’*  
 *She believed in the birth of the broadsword but she was not a shielded one*  
 *Though France would call her darling she was a nurse ‘neath the rising sun*
-
-
 
 *She was a soldier’s shrapnel sweetheart direct from the combat zone*  
 *She was a reincarnation of the Virgin Mary, she was the hooker down on San Antone*  
@@ -37,13 +31,8 @@ The final line of the first two verses are curiously specific: Although the risi
 
 We’re not likely to ever find out what Bruce was aiming for when he wrote “War Nurse.” Even among Bruce’s early demos, “War Nurse” is an obscure curiosity, one he’s never publicly discussed or performed live.
 
-April 1972
-
-
-
-**War Nurse**
-**Recorded:**<br>
-
+**War Nurse  
+**Recorded:** April 1972<br>
 **Never released**  
 **Never performed**
 

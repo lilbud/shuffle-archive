@@ -1,40 +1,26 @@
-
-
 Covers of Bruce Springsteen songs tend to fall into two categories: new interpretations of Bruce’s officially released material, or songs Bruce wrote and gave away.
 
-Gary U.S. Bonds’ cover of Bruce’s “Angelyne” falls into an odd third category, however: Bruce not only gave him the song, he gave him the Take a listen to the track below and you’ll clearly hear the E Street Band backing Bonds.
+Gary U.S. Bonds’ cover of Bruce’s “Angelyne” falls into an odd third category, however: Bruce not only gave him the song, he gave him the *recording.* Take a listen to the track below and you’ll clearly hear the E Street Band backing Bonds.
 
-*recording.*
-
-[https://www.youtube.com/embed/w107crliV44?feature=oembed](https://www.youtube.com/embed/w107crliV44?feature=oembed)
+[Watch on Youtube: Angelyne](https://www.youtube.com/watch?v=w107crliV44)
 
 “Angelyne” is a serious E Street Band showcase: not only do Danny and Clarence get extended solos, but Steve trades off lead vocals with Bonds!
 
 How in the world did this come about? We can thank Columbia Records for that.
 
-Although there seems to be no definitive chronicle or sequence of events, it appears that Bruce and the E Street Band first recorded “Angelyne” on February 1, 1980 during the River sessions. (Interestingly, the song kicks off with “party noises” similar to those in “,” which Bruce would record later that same month. Bruce gave “Angelyne” to Bonds, who likely recorded his vocals over the backing track, turning the song into a duet with Bruce.
+Although there seems to be no definitive chronicle or sequence of events, it appears that Bruce and the E Street Band first recorded “Angelyne” on February 1, 1980 during the River sessions. (Interestingly, the song kicks off with “party noises” similar to those in “[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/),” which Bruce would record later that same month. Bruce gave “Angelyne” to Bonds, who likely recorded his vocals over the backing track, turning the song into a duet with Bruce.
 
-[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)
-
-And that’s where Columbia enters the picture: Although they apparently had no objection to Bruce participating in Bonds’ previous album, , they took issue with Bruce’s vocals being used on the follow-up. So even though Bruce co-produced the album and wrote a whopping seven of the eleven tracks on the album, Bruce was forced to remove his vocals from all of the recorded tracks (although I swear I can hear his unmistakable whoop at around the 1:53 mark).
-
-*Dedication*
+And that’s where Columbia enters the picture: Although they apparently had no objection to Bruce participating in Bonds’ previous album, *Dedication*, they took issue with Bruce’s vocals being used on the follow-up. So even though Bruce co-produced the album and wrote a whopping seven of the eleven tracks on the album, Bruce was forced to remove his vocals from all of the recorded tracks (although I swear I can hear his unmistakable whoop at around the 1:53 mark).
 
 That didn’t pose a problem for most of the album, since Bruce was singing very much in the background. But on Angelyne, he was front and center. Co-producer Steve Van Zandt came to the rescue, assuming the lead duet role, and the rest is history.
 
-(Footnote: the original version with Bruce is still in the vault somewhere, it seems: in 1993, Bruce compiled an early prototype of , on which “Angelyne” was the second-to-last of 25 tracks. Several of the songs on that album remain unreleased to this day and continue to tantalize collectors.)
+(Footnote: the original version with Bruce is still in the vault somewhere, it seems: in 1993, Bruce compiled an early prototype of *Tracks*, on which “Angelyne” was the second-to-last of 25 tracks. Several of the songs on that album remain unreleased to this day and continue to tantalize collectors.)
 
-*Tracks*
+As for the song itself: let’s start with the title, because it holds some significance: it was the working title of the song that would eventually become “[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/).” Take a listen to this early pre-Mary demo:
 
-As for the song itself: let’s start with the title, because it holds some significance: it was the working title of the song that would eventually become “.” Take a listen to this early pre-Mary demo:
+[Watch on Youtube: Bruce Springsteen Angelyne #1 Acoustic Demo](https://www.youtube.com/watch?v=APldzhXlBIE)
 
-[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
-
-[https://www.youtube.com/embed/APldzhXlBIE?feature=oembed](https://www.youtube.com/embed/APldzhXlBIE?feature=oembed)
-
-“Angelyne” eventually morphed into “The River,” but Bruce was apparently too taken with the original name to discard it altogether. Instead, he gave it to the female lead of the song that now bears her name on Bonds’ album.
-
-*On the Line*
+“Angelyne” eventually morphed into “The River,” but Bruce was apparently too taken with the original name to discard it altogether. Instead, he gave it to the female lead of the song that now bears her name on Bonds’ *On the Line* album.
 
 The two songs are diametrically opposite: “Angelyne” is a fairy tale romance, where our heroes Big Bill and Little Angelyne meet, hook up, elope, run off to Vegas, come back and raise a family, and live happily ever after. There may have been some trials and tribulations along the way (Bruce writes of holding together when times were thin), but the lyrics and the roadhouse backing track imply that life didn’t throw anything by them that Bill and Angelyne couldn’t handle together. “The River,” on the other hand is all about what happens when reality inevitably trumps romance.
 
@@ -46,8 +32,6 @@ And yet, the two songs also bear some striking similarities. In fact, it’s alm
 *And she was kinda fun*  
 *They met ‘neath that big oak tree*  
 *Out where the river runs*
-
-
 
 *Little Angelyne, Little Angelyne*  
 *As the sun goes down and the moonlight shines*  
@@ -61,8 +45,6 @@ And maybe the pregnancy didn’t come first, but Bill still finds himself premat
 *In the beer hall light she looked so fine*  
 *And so he popped the question that was on his mind*
 
-
-
 *It was a simple affair, only a friend or two*  
 *Preacher asked if they did, they said they do*  
 *She bought two tickets with her daddy’s American Express*  
@@ -74,8 +56,6 @@ They faced money troubles (self-created and otherwise), but nothing they couldn�
 *With seven glorious days in the Nevada sun*  
 *He played the tables, she pumped the slots full of dimes*  
 *They came back broke but they had a good time*
-
-
 
 *Now many fell apart in the years come and gone*  
 *But Big Bill and Little Angel they’d last on and on*  
@@ -95,16 +75,10 @@ Yet Bruce has only performed “Angelyne” once in concert, duetting with Bonds
 
 And look how they turned out.
 
-February 1, 1980 (backing track); 1982 (Bonds and Van Zandt lead vocals)
-(1982)
-July 2, 1989 (Long Branch, NJ)
-July 2, 1989 (Long Branch, NJ)
-
 **Angelyne**  
-**Recorded:**<br>
-**Released:***On the Line* <br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** February 1, 1980 (backing track); 1982 (Bonds and Van Zandt lead vocals)<br>
+**Released:** *On the Line* (1982)<br>
+**First performed:** July 2, 1989 (Long Branch, NJ)<br>
+**Last performed:** July 2, 1989 (Long Branch, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

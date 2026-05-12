@@ -1,8 +1,4 @@
-
-
-Let’s get this out of the way first: “One Step Up” is, without a doubt, one of the finest songs Bruce has ever written, and one of the most emotionally honest songs by about the internal struggle that leads us astray from a relationship.
-
-*anyone*
+Let’s get this out of the way first: “One Step Up” is, without a doubt, one of the finest songs Bruce has ever written, and one of the most emotionally honest songs by *anyone* about the internal struggle that leads us astray from a relationship.
 
 Bruce is at the top of his craft: the lyrics are poetic, steeped in metaphor but with no trace of his usual tropes save for the “old Ford.” Bruce’s catalog is littered with lyrical cross-pollination, but “One Step Up” shares no DNA with any of them. It is a complete, stand-alone creation.
 
@@ -12,7 +8,7 @@ Bruce plays every instrument on the track (guitar, bass, mandolin, keyboards, ha
 
 Even the official video is outstanding. Bruce’s videos don’t always measure up to the bar set by the songs that inspire them, but the video for “One Step Up” is soul-piercing, thanks almost entirely to the close-ups of Bruce’s face, so authentically torn, tempted, mournful, and guilt-ridden that one has to wonder if he was acting or genuinely feeling.
 
-[https://www.youtube.com/embed/MkFQHScyti0?feature=oembed](https://www.youtube.com/embed/MkFQHScyti0?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - One Step Up (Official Video)](https://www.youtube.com/watch?v=MkFQHScyti0)
 
 We know that Bruce wrote “One Step Up” during the time his brief marriage to Julianne Phillips was deteriorating, so it’s tempting to label the song as autobiographical. But I shy away from making assumptions like that–let’s just say that “One Step Up” was inspired by the inner conflict and dialogue that probably preoccupied him during that time, whether the events were literal or not.
 
@@ -53,20 +49,14 @@ Cohen sings:
 *Like a drunk in a midnight choir*  
 *I have tried in my way to be free*
 
-
-
 *If I, if I have been unkind, I hope that you can just let it go by*  
 *If I, if I have been untrue, I hope you know it was never to you*
-
-
 
 *For like a baby, stillborn*  
 *Like a beast with his horn*  
 *I have torn everyone who reached out for me*  
 *But I swear by this song and by all that I have done wrong*  
 *I will make it all up to thee*
-
-
 
 *I saw a beggar leaning on his wooden crutch*  
 *He said to me, “you must not ask for so much”*  
@@ -118,13 +108,9 @@ The last lines of the song are devastatingly poignant. As he makes his move on a
 *We danced as the evening sky faded to black*  
 *One step up and two steps back*
 
-Bruce often writes cinematically, and here he literally employs a cinematic tool, fading to black as the song plays out. Patti Scialfa’s backing vocals finally appear in this verse–deliberately held in reserve until the final lines–representing (in hindsight, with irony both awful and perfect) his wife’s voice, the ghost of his lost love. Patti, of course, is the love that Bruce around the time of this song, so her presence here adds layers of meaning and resonance beyond what the writer must have intended at the time.
+Bruce often writes cinematically, and here he literally employs a cinematic tool, fading to black as the song plays out. Patti Scialfa’s backing vocals finally appear in this verse–deliberately held in reserve until the final lines–representing (in hindsight, with irony both awful and perfect) his wife’s voice, the ghost of his lost love. Patti, of course, is the love that Bruce *found* around the time of this song, so her presence here adds layers of meaning and resonance beyond what the writer must have intended at the time.
 
-*found*
-
-Their call and response on the coda, playing out as hands separate and bodies come together, as Bruce’s direct gaze gives way to indecisive reverie and finally, in the final frames, to “what am I doing” dismay tells us that this story is far from over. Were it not for the setting, we might suspect that the narrator is still trapped in his self-destructive cycle almost 20 years later, covering similar ground in Bruce’s 2005 song, “.”
-
-[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/)
+Their call and response on the coda, playing out as hands separate and bodies come together, as Bruce’s direct gaze gives way to indecisive reverie and finally, in the final frames, to “what am I doing” dismay tells us that this story is far from over. Were it not for the setting, we might suspect that the narrator is still trapped in his self-destructive cycle almost 20 years later, covering similar ground in Bruce’s 2005 song, “[Reno](https://estreetshuffle.com/index.php/2020/05/21/roll-of-the-dice-reno/).”
 
 Bruce performed “One Step Up” throughout the Tunnel of Love Tour, the eye contact and interplay between Bruce and Patti increasing with each performance. The song disappeared from Bruce’s setlists after 1988, though, emerging only for a handful of solo acoustic performances in 2005 during the “anything goes leg” of that tour.
 
@@ -132,13 +118,11 @@ Only once since 1988 did “One Step Up” make an E Street setlist–and I was 
 
 A fellow fan to my right had made a beautiful sign requesting “One Step Up” superimposed on an enlarged photo of Bruce and Patti sharing a microphone on the song in 1988. The sign read “Can we take a trip back to ’88?” and “Last time played with the full band: June 21, 1988.”
 
-The sign caught Patti’s eye long before it caught Bruce’s, and she lobbied him to honor the request. He did, bemused by the fact that much of the audience was young enough to not know it, and warning the crowd that he couldn’t vouch for the knowing it.
-
-*band*
+The sign caught Patti’s eye long before it caught Bruce’s, and she lobbied him to honor the request. He did, bemused by the fact that much of the audience was young enough to not know it, and warning the crowd that he couldn’t vouch for the *band* knowing it.
 
 The performance that followed was magical. Bruce started the song solo, calling for the band to come in “easy” after the first verse. On the final verse, Bruce seemed to lose himself in the song, locking his eyes on his wife across the stage as they sang the coda.
 
-[https://www.youtube.com/embed/neVEk4pdmkY?feature=oembed](https://www.youtube.com/embed/neVEk4pdmkY?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - One Step Up](https://www.youtube.com/watch?v=neVEk4pdmkY)
 
 If you were in the room with us, you’d have known–like we did–that Bruce was going to call his wife to his side even before he did so. The video above can’t quite capture the emotion we all felt between them, but you can clearly hear the crowd recognize it as Patti walked over to her husband.
 
@@ -146,15 +130,10 @@ You can’t see it from the camera distance, but I’m telling you as someone st
 
 None of us can know exactly what memories and emotions this song conjures for them, but it’s clear that we witnessed a special, intimate moment.
 
-May-August 1987
-(1987), (2015)
-February 25, 1988 (Worcester, MA)
-May 14, 2014 (Houston, TX)
-
 **One Step Up**  
-**Recorded:**<br>
-**Released:** [Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*The Essential Bruce Springsteen*<br>
-**First performed:** <br>
-**Last performed:**<br>
+**Recorded:** May-August 1987<br>
+**Released:** *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*(1987), *The Essential Bruce Springsteen* (2015)<br>
+**First performed:** February 25, 1988 (Worcester, MA)<br>
+**Last performed:** May 14, 2014 (Houston, TX)
 
 (c) August 17, 2018

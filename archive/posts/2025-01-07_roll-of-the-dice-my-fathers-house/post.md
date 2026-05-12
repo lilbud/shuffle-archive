@@ -1,12 +1,10 @@
-
-
 My dad died today.
 
 He passed away peacefully in his sleep after a swift and vicious stealth attack from bile duct cancer that he didn’t even know he had a month ago.
 
 My dad died, and “My Father’s House” has been lodged in my brain all day, although not for the reason you might think if you’re familiar with the song.
 
-[https://www.youtube.com/embed/0ZsVLKGpKKQ?feature=oembed](https://www.youtube.com/embed/0ZsVLKGpKKQ?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - My Father's House (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=0ZsVLKGpKKQ)
 
 My relationship with my father was not like Bruce’s with his own. My dad wasn’t my hero, and he certainly wasn’t my foe.
 
@@ -24,17 +22,13 @@ We never had another day quite like that one. We rarely had the time, and our fa
 
 But that day meant everything to me. Even at the time, I knew it was a turning point in our relationship, which had previously been one more of familial obligation rather than genuine connection.
 
-I cried tears of release and relief that night, and I listened to in the dark of my room, waiting for “My Father’s House” near the end of the album.
+I cried tears of release and relief that night, and I listened to *Nebraska* in the dark of my room, waiting for “My Father’s House” near the end of the album.
 
-*Nebraska*
-
-[https://www.youtube.com/embed/jj673EsRslk?feature=oembed](https://www.youtube.com/embed/jj673EsRslk?feature=oembed)
+[Watch on Youtube: My Father's House](https://www.youtube.com/watch?v=jj673EsRslk)
 
 I was far too young and too close to my own daddy issues to understand or relate to Bruce’s history with his father. But even on first listen a couple of years earlier, I recognized “My Father’s House” instantly for what it was, for what Bruce meant it to be: an intervention.
 
-I understood the warning Bruce was sending me: our loved ones won’t be here forever. Maybe we can’t break the ties that bind, but we can slip them. .
-
-*You walk too far, you walk away*
+I understood the warning Bruce was sending me: our loved ones won’t be here forever. Maybe we can’t break the ties that bind, but we can slip them. *You walk too far, you walk away*.
 
 I had been gradually walking away, but on that day the ties tautened.
 
@@ -45,23 +39,17 @@ I had been gradually walking away, but on that day the ties tautened.
 *I was trying to make it home through the forest*  
 *Before the darkness falls*
 
-
-
 *I heard the wind rustling through the trees*  
 *And ghostly voices rose from the fields*  
 *I ran with my heart pounding down that broken path*  
 *With the devil snapping at my heels*
-
-
 
 *I broke through the trees and there in the night*  
 *My father’s house stood shining hard and bright*  
 *The branches and brambles tore my clothes and scratched my arms*  
 *But I ran till I fell shaking in his arms*
 
-Bruce had already written “” by this point, which features a remarkably similar and equally powerful dream sequence. But as brilliantly cinematic as it is, the dream in “Downbound Train” is just a narrative device; the dream that opens “My Father’s House” by contrast is deeply symbolic.
-
-[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)
+Bruce had already written “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” by this point, which features a remarkably similar and equally powerful dream sequence. But as brilliantly cinematic as it is, the dream in “Downbound Train” is just a narrative device; the dream that opens “My Father’s House” by contrast is deeply symbolic.
 
 The dream takes place at night, in the darkness–a metaphor for the scary and dangerous world of adulthood. For most of us, our parents serve not only as our caretakers and teachers, but also our role models and moral guides. The narrator’s father’s house represents a place of innocence, guidance, acceptance, forgiveness, and unconditional love (whether or not those things characterized his childhood home in the waking world).
 
@@ -73,8 +61,6 @@ But the song gets even scarier when the narrator awakens:
 *Will never again, sir, tear us from each other’s hearts*  
 *I got dressed and to that house I did ride*  
 *From out on the road I could see its windows shining in light*
-
-
 
 *I walked up the steps and stood on the porch*  
 *A woman I didn’t recognize came and spoke to me through a chained door*  
@@ -127,18 +113,12 @@ I am my father’s house now, and as long as I’m here, he has a home.
 
 (I’m going to take a short break while I join my family in remembering my father. I’ll be back in a week.)
 
-May 25, 1982
-(1982), (2016)
-July 26, 1984 (Toronto, ON)
-September 4, 2021 (New York City, NY)
+**My Father’s House  
+**Recorded:** May 25, 1982<br>
+**Released:** *Nebraska* (1982), *Chapter and Verse* (2016)<br>
+**First performed:** July 26, 1984 (Toronto, ON)<br>
+**Last performed:** September 4, 2021 (New York City, NY)
 
-**My Father’s House**
-**Recorded:**<br>
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
 
-**Released:***Nebraska* *Chapter and Verse*<br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+ 

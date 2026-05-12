@@ -1,24 +1,16 @@
+> “For a long time, if I loved you or if I felt a deep attachment to you, I’d hurt you if I could.” *–Bruce Springsteen, Western Stars*
 
+It’s an iconic scene in movie history: the Reverend Harry Powell’s tale of Love vs. Hate in the 1955 film *Night of the Hunter.*
 
-“For a long time, if I loved you or if I felt a deep attachment to you, I’d hurt you if I could.” *–Bruce Springsteen, Western Stars*
-
-It’s an iconic scene in movie history: the Reverend Harry Powell’s tale of Love vs. Hate in the 1955 film 
-
-*Night of the Hunter.*
-
-[https://www.youtube.com/embed/jcTv-BEwabk?feature=oembed](https://www.youtube.com/embed/jcTv-BEwabk?feature=oembed)
+[Watch on Youtube: The Night of the Hunter (3/11) Movie CLIP - Love and Hate (1955) HD](https://www.youtube.com/watch?v=jcTv-BEwabk)
 
 That notion of love and hate waging eternal war within us–symbolized by the tattooed words on the hands we use for both–imprinted itself on viewers and artists alike.
 
-In 1989, Spike Lee paid homage to that scene in his cinema classic, 
+In 1989, Spike Lee paid homage to that scene in his cinema classic, *Do the Right Thing.* 
 
-*Do the Right Thing.*
+[Watch on Youtube: Do the Right Thing (6/10) Movie CLIP - LOVE and HATE (1989) HD](https://www.youtube.com/watch?v=pa-oUPTr9LI)
 
-[https://www.youtube.com/embed/pa-oUPTr9LI?feature=oembed](https://www.youtube.com/embed/pa-oUPTr9LI?feature=oembed)
-
-(Do also features a direct and discomfiting Springsteen reference that I don’t feel comfortable sharing here for reasons obvious to anyone who’s seen the film. If you haven’t, you really should. But I digress.)
-
-*the Right Thing*
+(Do *the Right Thing* also features a direct and discomfiting Springsteen reference that I don’t feel comfortable sharing here for reasons obvious to anyone who’s seen the film. If you haven’t, you really should. But I digress.)
 
 Powell’s speech imprinted itself on Bruce, too. In recent years, Bruce has talked openly about his own lifelong internal struggle–except for him, it wasn’t Hate that Love was warring with, it was Fear.
 
@@ -26,11 +18,9 @@ With love and attachment comes vulnerability to hurt and betrayal, and one of th
 
 By the mid-eighties, Bruce was self-aware enough to recognize those tendencies within himself, and he began to confront his demons through his art.
 
-And while Bruce is almost always coy and careful when asked whether his songs are autobiographical, it’s hard to imagine that “Cautious Man” is anything but. Even Bruce admitted (in Peter Ames Carlin’s outstanding 2012 biography, ), “If there was some part of myself that I was trying to explain, for better or worse, that song describes a good amount of it.”
+And while Bruce is almost always coy and careful when asked whether his songs are autobiographical, it’s hard to imagine that “Cautious Man” is anything but. Even Bruce admitted (in Peter Ames Carlin’s outstanding 2012 biography, *Bruce*), “If there was some part of myself that I was trying to explain, for better or worse, that song describes a good amount of it.”
 
-*Bruce*
-
-[https://www.youtube.com/embed/QRHPkseMFnU?feature=oembed](https://www.youtube.com/embed/QRHPkseMFnU?feature=oembed)
+[Watch on Youtube: Cautious Man](https://www.youtube.com/watch?v=QRHPkseMFnU)
 
 While it’s true that Bruce invented a character for “Cautious Man,” the similarities between Bill Horton and Bruce Springsteen are evident from the first verse.
 
@@ -57,9 +47,7 @@ It’s not coincidence that Bruce introduces his character as “Bill” in the 
 
 Here’s the introduction of that iconic movie imagery we discussed above. It’s not clear whether Bruce intends us to take that couplet literally or not. I’ve always considered it purely metaphorical. Either way, though, it’s symbolic of the main character trying to keep his self-destructive tendencies in check.
 
-Did I forget to mention that Bruce wrote “Cautious Man” when he was not-that-long married to his first wife? As with much of Bruce was clearly working through some issues through song.
-
-*,* [Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)
+Did I forget to mention that Bruce wrote “Cautious Man” when he was not-that-long married to his first wife? As with much of *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/),* Bruce was clearly working through some issues through song.
 
 There’s a brief musical interlude here, as Bruce introduces dreamy keyboards to convey the passage of idyllic time.
 
@@ -70,11 +58,7 @@ There’s a brief musical interlude here, as Bruce introduces dreamy keyboards t
 
 Although they allowed the newlyweds a honeymoon phase, Billy’s demons have started to reassert themselves. He’s not meant for domesticity, and the road (and its temptations) call to him. He does his best to resist, but he knows it’s only a matter of time.
 
-There’s a bridge here that evokes the final verse from “,” but rather than taking comfort from the presence of his wife, Billy feels distant. The road calls to him.
-
-[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/)
-
-
+There’s a bridge here that evokes the final verse from “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/),” but rather than taking comfort from the presence of his wife, Billy feels distant. The road calls to him.
 
 *One night Billy awoke from a terrible dream calling his wife’s name*  
 *She lay breathing beside him in a peaceful sleep, a thousand miles away*  
@@ -97,28 +81,20 @@ For cautious men, there’s no ending, just a long road.
 
 “Cautious Man” is more than a quiet song–it’s a delicate one. Bruce’s phrasing and instrumentation are intimate and very deliberate, which is likely why Bruce has so rarely performed it in concert.
 
-In fact, “Cautious Man” only made a single stage appearance in the first seventeen years since its studio release. At his Bloomington stop on the Tour, Bruce premiered it following “,” a sequence that hints at a likely reason why Bruce chose that night to debut it. (See my entry for “” for a much bigger hint.)
+In fact, “Cautious Man” only made a single stage appearance in the first seventeen years since its studio release. At his Bloomington stop on the *Tunnel of Love Express* Tour, Bruce premiered it following “[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/),” a sequence that hints at a likely reason why Bruce chose that night to debut it. (See my entry for “[Boom Boom](https://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)” for a much bigger hint.)
 
-*Tunnel of Love Express*[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Boom Boom](http://estreetshuffle.com/index.php/2020/03/26/cover-me-boom-boom/)
-
-[https://www.youtube.com/embed/4VtfZH44nqk?feature=oembed](https://www.youtube.com/embed/4VtfZH44nqk?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - CAUTIOUS MAN 1988 (audio)](https://www.youtube.com/watch?v=4VtfZH44nqk)
 
 It would take another seventeen years for Bruce to play “Cautious Man” in public again. Early into his solo acoustic tour, Bruce shocked his Hollywood audience by resurrecting “Cautious Man” after its long absence, introducing it as a song about “brinksmanship,” which may be the closest he’s ever come to acknowledging its inspiration. He played it several more times during the tour, but only by way of a simple introduction as “one of my favorites.”
 
 Here’s Bruce’s last performance of “Cautious Man” to date, in East Rutherford toward the tail end of the Devils & Dust Tour.
 
-[https://www.youtube.com/embed/Yxtw7W5xZao?feature=oembed](https://www.youtube.com/embed/Yxtw7W5xZao?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Cautious Man (Solo Acoustic) - E. Rutherford-11/17/05](https://www.youtube.com/watch?v=Yxtw7W5xZao)
 
-January-April 1987
-(1987)
-May 10, 1988 (Bloomington, MN)
-November 17, 2005 (East Rutherford, NJ)
-
-**Cautious Man**
-**Recorded:**<br>
-
-**Released:***Tunnel of Love* <br>
-**First performed:**<br>
-**Last performed:**<br>
+**Cautious Man  
+**Recorded:** January-April 1987<br>
+**Released:** *Tunnel of Love* (1987)<br>
+**First performed:** May 10, 1988 (Bloomington, MN)<br>
+**Last performed:** November 17, 2005 (East Rutherford, NJ)
 
 (c) June 9, 2020

@@ -1,24 +1,16 @@
+> “How much of this was I thinking about when I wrote the song? None of it… How much of it was I feeling when I wrote the song? All of it.” — Bruce Springsteen after explaining the meaning of “Devils & Dust,” April 4, 2005
 
-
-“How much of this was I thinking about when I wrote the song? None of it… How much of it was I feeling when I wrote the song? All of it.” — Bruce Springsteen after explaining the meaning of “Devils & Dust,” April 4, 2005
-
-It’s always challenging to write one of these entries for a song Bruce has already publicly broken down line by line.
-
-*Roll of the Dice*
+It’s always challenging to write one of these *Roll of the Dice* entries for a song Bruce has already publicly broken down line by line.
 
 But since he copped to reverse-engineering his self-analysis, let’s take a go at it anyway.
 
-As far as we know, Bruce didn’t write many songs in the immediate aftermath of His follow-up album was comprised almost entirely of songs written prior to and the album after that () consisted entirely of covers.
+As far as we know, Bruce didn’t write many songs in the immediate aftermath of *The Rising.* His follow-up album *Devils & Dust* was comprised almost entirely of songs written prior to *The Rising,* and the album after that ([*We Shall Overcome*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)) consisted entirely of covers.
 
-*The Rising.* *Devils & Dust* *The Rising,* [](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)*We Shall Overcome*
-
-The notable exception in the early years of the Iraq War was the title track to –the only song on the album we know for certain was written post-Rising.
-
-*Devils & Dust*
+The notable exception in the early years of the Iraq War was the title track to *Devils & Dust*–the only song on the album we know for certain was written post-Rising.
 
 We know this not just because of its timely theme, but because Bruce sound checked an early work-in-progress version in the spring of 2003. One of those rehearsal performances was captured in amazing quality, and we can clearly hear the lyrical differences and partially bluffed sections in the clip below.
 
-[https://videopress.com/embed/XaZLBMi8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XaZLBMi8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/XaZLBMi8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 “Devils & Dust” is a powerful meditation on the human cost of war–not in terms of lost lives but in lost humanity. In times of war, a country calls upon its citizens to make moral decisions they would never otherwise make, and they do so in full faith and trust that their nation is acting in keeping with their shared ideals and values.
 
@@ -37,8 +29,6 @@ Those questions are at the heart of “Devils & Dust,” although in that early 
 *Of all the ghosts and dangerous dreams*  
 *Devils and dust*
 
-
-
 *We got God on our side*  
 *Just trying to survive*  
 *What you need to survive*  
@@ -48,7 +38,7 @@ Somewhere along the line, Bruce realized that his song would be more powerful if
 
 Let’s take a listen to the finished track.
 
-[https://www.youtube.com/embed/cG8ZQkeZvzc?feature=oembed](https://www.youtube.com/embed/cG8ZQkeZvzc?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Devils & Dust -The Song](https://www.youtube.com/watch?v=cG8ZQkeZvzc)
 
 Before we dive into the lyrics, it’s worth taking a moment to discuss one subtle but significant element in the official video above:
 
@@ -58,17 +48,13 @@ That’s a deliberate artistic choice, one that’s meant to underscore that on 
 
 We make our decisions, and we not only face our consequences–we become them.
 
-In early 2005, prior to kicking off his solo acoustic tour for , Bruce filmed an episode of and in that performance he analyzed his own song, one line at a time.
-
-*Devils & Dust**VH1 Storytellers,*
+In early 2005, prior to kicking off his solo acoustic tour for *Devils & Dust*, Bruce filmed an episode of *VH1 Storytellers,* and in that performance he analyzed his own song, one line at a time.
 
 Let’s watch and listen:
 
-[https://www.youtube.com/embed/XZzKPkIJiBw?feature=oembed](https://www.youtube.com/embed/XZzKPkIJiBw?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Devils & Dust - The Story (From VH1 Storytellers)](https://www.youtube.com/watch?v=XZzKPkIJiBw)
 
-In that segment, Bruce refers to the song’s title as a metaphor for confusion–and it is. But it’s more than that: is a metaphor for the darker impulses that drive us–distrust, greed, fear. is a metaphor for death–the earth that reclaims us when we perish.
-
-*Storytellers**devils**Dust*
+In that *Storytellers* segment, Bruce refers to the song’s title as a metaphor for confusion–and it is. But it’s more than that: *devils* is a metaphor for the darker impulses that drive us–distrust, greed, fear. *Dust* is a metaphor for death–the earth that reclaims us when we perish.
 
 The soldier who narrates the song has been sent there by devils and may very well return as dust. The confusion he faces comes from the realization that however noble his own motives, he’s about to be faced with the most ignoble of situations.
 
@@ -92,9 +78,7 @@ There’s a civic layer to this verse as well, a political one: we watched our g
 *It’ll take your God filled soul*  
 *And fill it with devils and dust*
 
-Those first two lines of the chorus are our rationalizations when we suspect we’re doing the wrong thing: –it may be the wrong thing, but it’s for the right reasons. –it’s either him or me.
-
-*God’s on my side**I’m just trying to survive*
+Those first two lines of the chorus are our rationalizations when we suspect we’re doing the wrong thing: *God’s on my side*–it may be the wrong thing, but it’s for the right reasons. *I’m just trying to survive*–it’s either him or me.
 
 In the fear of the moment, we make our call, we decide who to trust, and we pull the trigger.
 
@@ -113,11 +97,7 @@ With our soul compromised, devils invade. Our integrity begins to crumble into d
 
 It’s revealing that Bruce gets about two lines into the second verse and then detours to discuss the music that underpins the song, never actually returning to the verse at hand. Perhaps it was unintentional, but I can’t help but suspect that Bruce knew that his second verse is the weakest of the three. It’s an effective evocation of the horrors of war, but apart from imagery it adds nothing to the song’s message or power.
 
-His third verse is a return to form, however: in it, Bruce reminds us that it isn’t enough to to be faithful and true to our ideals and principles. We have to act accordingly, and that requires continual practice.
-
-*want*
-
-
+His third verse is a return to form, however: in it, Bruce reminds us that it isn’t enough to *want* to be faithful and true to our ideals and principles. We have to act accordingly, and that requires continual practice.
 
 *Now every woman and every man*  
 *They wanna take a righteous stand*  
@@ -130,24 +110,22 @@ His third verse is a return to form, however: in it, Bruce reminds us that it is
 
 Because there will be moments when we are called upon to make split-second decisions with enormous consequences. Moments that seem to arrive suddenly but in truth we inch toward by degrees. Once we start compromising our ideals… once the dust starts clouding our vision and the devils start whispering in our ear… those decisions get harder and harder to make.
 
-“Devils & Dust” introduced a new theme in Bruce’s songwriting–the notion that we can betray ourselves in the name of protecting ourselves. It’s a theme that would reach full and forceful bloom on a few years later, but in 2003 Bruce was only presciently warning of things still to come.
-
-*Magic*
+“Devils & Dust” introduced a new theme in Bruce’s songwriting–the notion that we can betray ourselves in the name of protecting ourselves. It’s a theme that would reach full and forceful bloom on *Magic* a few years later, but in 2003 Bruce was only presciently warning of things still to come.
 
 ---
 
 
 We tend to think of “Devils & Dust” as an acoustic track, even though a number of musicians appear on the track, including a string section and horn players. That’s probably because for the first year or so following its release, Bruce only performed it acoustically.
 
-[https://www.youtube.com/embed/dASrcgK6ayU?feature=oembed](https://www.youtube.com/embed/dASrcgK6ayU?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Devils & Dust ("Bring 'em Home!")](https://www.youtube.com/watch?v=dASrcgK6ayU)
 
 However, “Devils & Dust” truly comes to life when it’s performed by a band. In 2006, Bruce arranged it for the Sessions Band, who performed it throughout their tour.
 
-[https://www.youtube.com/embed/9eg_lEC62cw?feature=oembed](https://www.youtube.com/embed/9eg_lEC62cw?feature=oembed)
+[Watch on Youtube: Bruce Springsteen with The SSB - Devils & Dust](https://www.youtube.com/watch?v=9eg_lEC62cw)
 
 But for my money, the definitive performance of “Devils & Dust” came when Bruce arranged it for the super-sized Wrecking Ball edition of the E Street Band in 2012. Taking full advantage of the E Street Horns, Bruce crafted an arrangement somber, stately, and defiant in turns.
 
-[https://www.youtube.com/embed/joSfO9XooCE?feature=oembed](https://www.youtube.com/embed/joSfO9XooCE?feature=oembed)
+[Watch on Youtube: MULTICAM HD-Devils & dust (full band)-Bruce Springsteen REMASTER AUDIO (St Paul 2012).flv](https://www.youtube.com/watch?v=joSfO9XooCE)
 
 “Devils & Dust” has been absent from Bruce’s set lists in recent years, but it’s just as relevant as ever. At any given moment, somewhere in the world, there are those who face the same choices Bruce warns of in his song.
 
@@ -155,18 +133,10 @@ Will we hold ourselves and our leaders accountable to our shared values, or will
 
 We like to think that faith will be rewarded, but sometimes faith just ain’t enough.
 
-2004
-(2005)
-April 4, 2005 (Red Bank, NJ)
-January 12, 2017 (Washington, DC)
+**Devils & Dust  
+**Recorded:** 2004<br>
+**Released:** *Devils & Dust* (2005)<br>
+**First performed:** April 4, 2005 (Red Bank, NJ)<br>
+**Last performed:** January 12, 2017 (Washington, DC)
 
-**Devils & Dust**
-**Recorded:**<br>
-
-**Released:** *Devils & Dust* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

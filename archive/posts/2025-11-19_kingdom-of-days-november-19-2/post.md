@@ -1,6 +1,6 @@
 ***New for 2025:** Audio for 2012; new entry for 2024*
 
-**1971**: The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
+**1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/11/1971-11-19.png)
 

@@ -1,18 +1,12 @@
-
-
 For sheer, raw emotional power in song, I’m not sure it’s possible to top the gut-punch of Bruce’s “Daddy Trilogy.”
 
-In 1978, Episode One–““–introduces us to a young man who feels the gravitational pull of his father’s fate and rages against it, feeling resentfully trapped and predestined to follow in his father’s footsteps.
+In 1978, Episode One–“[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)“–introduces us to a young man who feels the gravitational pull of his father’s fate and rages against it, feeling resentfully trapped and predestined to follow in his father’s footsteps.
 
-[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)
-
-Two years later, Episode Two–““–re-introduces us to a slightly older and somewhat wiser protagonist, who now realizes that he has the power to escape and is on the verge of using it. He no longer resents his father; instead, he pities him. He recognizes the similarities that cause them to clash and knows he has to leave, not just to realize his own dreams, but to honor what’s left of his father’s dreams as well.
-
-[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)
+Two years later, Episode Two–“[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)“–re-introduces us to a slightly older and somewhat wiser protagonist, who now realizes that he has the power to escape and is on the verge of using it. He no longer resents his father; instead, he pities him. He recognizes the similarities that cause them to clash and knows he has to leave, not just to realize his own dreams, but to honor what’s left of his father’s dreams as well.
 
 And that brings us to the conclusion: 1987’s “Walk Like a Man.”
 
-[https://www.youtube.com/embed/k2WDBy53x2k?feature=oembed](https://www.youtube.com/embed/k2WDBy53x2k?feature=oembed)
+[Watch on Youtube: Walk Like a Man](https://www.youtube.com/watch?v=k2WDBy53x2k)
 
 Unlike the previous two chapters, there’s no musical introduction to set the stage. “Walk Like a Man” has a cold open, and we’re immediately in the moment, but unsure of where and when.
 
@@ -49,17 +43,11 @@ It’s years later, and the son hints that his father may not be around any more
 
 Each episode of the Daddy Trilogy builds in power and culminates in a killer couplet. Traced across time, they form an arc that we all play out with our parents and our children.
 
+**Adam Raised a Cain:** *Daddy worked his whole life for nothing but the pain; Now he walks these empty rooms looking for something to blame.*
 
+**Independence Day:** *Papa, now I know the things you wanted that you could not say; I swear I never meant to take those things away.*
 
-**Adam Raised a Cain:***Daddy worked his whole life for nothing but the pain; Now he walks these empty rooms looking for something to blame.*
-
-
-
-**Independence Day:***Papa, now I know the things you wanted that you could not say; I swear I never meant to take those things away.*
-
-and finally, : 
-
-**Walk Like a Man***I was young and I didn’t know what to do when I saw your best steps stolen away from you.*
+and finally, **Walk Like a Man:** *I was young and I didn’t know what to do when I saw your best steps stolen away from you.*
 
 When we first start to realize that our parents have their own lives and their own dreams–both realized and unattained–it’s a frightening and bewildering awakening, particularly if our parents haven’t fully come to terms with their choices and sacrifices yet. We sense their anguish and frustration–their search for “something to blame,” and we internalize it. We feel guilt, even though we “never meant to take those things away.”
 
@@ -75,23 +63,18 @@ If there’s a bone to pick with “Walk Like a Man,” it would have to be its 
 
 Unfortunately, Bruce almost never performs it. It was a mainstay of the first leg of the Tunnel of Love Express Tour, but it was dropped before the tour reached Europe. Still, you can hear a restrained full band treatment below.
 
-[https://www.youtube.com/embed/Gk0km8Ge3Es?feature=oembed](https://www.youtube.com/embed/Gk0km8Ge3Es?feature=oembed)
+[Watch on Youtube: Bruce Springsteen "Walk Like A Man" Joe Louis Arena, Detroit, MI March 28, 1988](https://www.youtube.com/watch?v=Gk0km8Ge3Es)
 
 In 2005, however, Bruce resurrected “Walk Like a Man” for a pair of solo acoustic performances on electric and acoustic piano. Spare and unadorned, the lyrical power of the song shines–even the wedding bells are subtle rather than distracting.
 
 In a brilliant stroke, Bruce switches mid-song from the electric to acoustic piano at the point when the scene shifts from the past to the present. The acoustic piano sound is grander, richer, and more resonant. The absence of percussion and the addition of harmonica make our walking less mechanical and more deliberate, determined, and brave. In my mind, this is the definitive arrangement of the song.
 
-[https://www.youtube.com/embed/LwNPvRvFhKg?feature=oembed](https://www.youtube.com/embed/LwNPvRvFhKg?feature=oembed)
-
-January 20, 1987
-(1987)
-February 25, 1987 (Worcester, MA)
-August 1, 2005 (Cincinnati, OH)
+[Watch on Youtube: Walk Like A Man (solo piano) Bruce Springsteen 8/1/2005 Cincinnati, OH](https://www.youtube.com/watch?v=LwNPvRvFhKg)
 
 **Walk Like a Man**  
-**Recorded:**<br>
-**Released:**[](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*<br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** January 20, 1987<br>
+**Released:** [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) (1987)<br>
+**First performed:** February 25, 1987 (Worcester, MA)<br>
+**Last performed:** August 1, 2005 (Cincinnati, OH)
 
 (c) July 21, 2018

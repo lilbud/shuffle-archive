@@ -80,15 +80,10 @@ It’s actually a solid performance, both on stage and on record, and the song i
 
 Got a different opinion? Please share–when I find a Springsteen song I don’t particularly care for, I love finding reasons to change my mind.
 
-February-May 2007 (2007)
-March 24, 2008 (Columbus, OH)
-March 24, 2008 (Columbus, OH)
-
-**You’ll Be Comin’ Down** **Recorded:** <br>
-**Released:**<br>
-*Magic*   
-**First performed:** <br>
-**Last performed:**<br>
+**You’ll Be Comin’ Down**
+**Recorded:** February-May 2007<br>
+**Released:** *Magic* (2007)<br>
+**First performed:** March 24, 2008 (Columbus, OH)<br>
+**Last performed:** March 24, 2008 (Columbus, OH)<br>
 
 Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-

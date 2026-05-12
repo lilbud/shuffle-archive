@@ -8,7 +8,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/6A3wRNSs)
 
-**1991**: At the sixth Rock and Roll Hall of Fame induction ceremony, Bruce performs "[People Get Ready](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)" with Jackson Browne, Don Henley, and Chaka Khan before joining the all-star closing jam on "[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)" and "[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)."
+**1991:** At the sixth Rock and Roll Hall of Fame induction ceremony, Bruce performs "[People Get Ready](https://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)" with Jackson Browne, Don Henley, and Chaka Khan before joining the all-star closing jam on "[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)" and "[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)."
 
 [Watch on Youtube: Bruce Springsteen, Chaka Khan & John Fogerty - "Mustang Sally" | 1991 Induction](https://www.youtube.com/watch?v=m_-3SwTM4ls)
 

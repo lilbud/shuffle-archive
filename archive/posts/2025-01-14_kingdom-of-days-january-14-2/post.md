@@ -6,7 +6,7 @@
 
 [Watch on Youtube: Restless Nights (Studio Outtake - 1980)](https://www.youtube.com/watch?v=DCFYLa02WzE)
 
-**1984**: Bruce joins John Eddie for six songs at the Patrix in New Brunswick, New Jersey.
+**1984:** Bruce joins John Eddie for six songs at the Patrix in New Brunswick, New Jersey.
 
 [Watch Video Highlight](https://videopress.com/embed/ATjdzWXO)
 

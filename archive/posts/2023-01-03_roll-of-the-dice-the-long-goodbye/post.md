@@ -1,10 +1,8 @@
-
-
-“The tragedy of life…is not that the beautiful things die young, but that they grow old and mean. It will not happen to me.”
-
-
-
-*—* Raymond Chandler, *The Long Goodbye*
+> "The tragedy of life…is not that the beautiful things die young, but that they grow old and mean. It will not happen to me."
+> 
+> 
+> 
+> *—* Raymond Chandler, *The Long Goodbye*
 
 Conventional wisdom holds that “The Long Goodbye” is Bruce’s confessional about finally cutting the cord with New Jersey and moving to warmer, sunnier climes out west.
 
@@ -12,7 +10,7 @@ I don’t buy it.
 
 Yes, the timing works out nicely: Bruce recorded “The Long Goodbye” shortly after he moved to California with Patti. But while it’s certainly possible that the move inspired him, I think it requires too selective a reading to conclude that’s what the song is about.
 
-[https://www.youtube.com/embed/XQczI5YNEJM?feature=oembed](https://www.youtube.com/embed/XQczI5YNEJM?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - The Long Goodbye (Audio)](https://www.youtube.com/watch?v=XQczI5YNEJM)
 
 There’s a lot more going on in “The Long Goodbye” than a cross-country move.
 
@@ -26,9 +24,7 @@ There’s a lot more going on in “The Long Goodbye” than a cross-country mov
 
 Bruce’s narrator is trapped in a situation of his own making. It’s possible to read this verse as attachment to a place, but the “chain of my own lies” is a big clue that Bruce is singing about a relationship more personal than geographical.
 
-This is a dysfunctional relationship song. Like “” recorded not long before it, “The Long Goodbye” is a lyrical continuation of Bruce’s songwriting, if not a musical one. (Musically, “The Long Goodbye” is an oddity, an experiment in ZZ Top crunchiness that Bruce doesn’t sound entirely comfortable with.)
-
-[Trouble in Paradise,](https://estreetshuffle.com/index.php/2021/11/30/roll-of-the-dice-trouble-in-paradise/)[](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*
+This is a dysfunctional relationship song. Like “[Trouble in Paradise,](https://estreetshuffle.com/index.php/2021/11/30/roll-of-the-dice-trouble-in-paradise/)” recorded not long before it, “The Long Goodbye” is a lyrical continuation of Bruce’s [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) songwriting, if not a musical one. (Musically, “The Long Goodbye” is an oddity, an experiment in ZZ Top crunchiness that Bruce doesn’t sound entirely comfortable with.)
 
 Emotionally, our narrator left his relationship long ago. Physically, however, he’s still there–unable to admit to his partner that he’s had enough, and unwilling to admit it to himself. Until one day he wakes up and realizes he’s done.
 
@@ -47,9 +43,7 @@ An emotionally distant relationship can be harder to escape than a toxic one. Wh
 *Sure did like that admiring touch*  
 *Guess I liked it a little too much*
 
-It’s the bridge, I think, that ropes most critics into a narrow interpretation. Working backwards two decades from we arrive at the beginning of Bruce’s career, when he was ready to leave his boardwalk life behind and quit that scene. (Although if we work back from when he recorded “The Long Goodbye” we overshoot a bit.)
-
-*Human Touch,*
+It’s the bridge, I think, that ropes most critics into a narrow interpretation. Working backwards two decades from *Human Touch,* we arrive at the beginning of Bruce’s career, when he was ready to leave his boardwalk life behind and quit that scene. (Although if we work back from when he recorded “The Long Goodbye” we overshoot a bit.)
 
 More likely, Bruce writes from the perspective of someone who has well overstayed in his relationship, too comfortable in his partner’s regard to admit that he could no longer reciprocate.
 
@@ -78,19 +72,12 @@ Originally recorded with a completely different set of musicians, “The Long Go
 
 Bruce dropped it a few months into the tour and never attempted it with the E Street Band. But that first ’92 performance was captured on video, providing us a rare document of a lyrically overlooked song,
 
-[https://www.youtube.com/embed/AuLvzIM27aE?feature=oembed](https://www.youtube.com/embed/AuLvzIM27aE?feature=oembed)
-
-April-May, 1990
-(1992)
-June 26, 1992 (Frankfurt, Germany)
-October 22, 1992 (Mountain View, CA)
+[Watch on Youtube: The Long Goodbye Bruce Springsteen June 26,1992 Frankfurt, GER](https://www.youtube.com/watch?v=AuLvzIM27aE)
 
 **The Long Goodbye**  
-**Recorded:**<br>
-**Released:***Human Touch*<br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** April-May, 1990<br>
+**Released:** *Human Touch* (1992)<br>
+**First performed:** June 26, 1992 (Frankfurt, Germany)<br>
+**Last performed:** October 22, 1992 (Mountain View, CA)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

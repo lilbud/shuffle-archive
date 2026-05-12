@@ -1,57 +1,37 @@
+Around a minute and 45 seconds into “Hello Sunshine,” we’re treated to something I don’t think we’ve ever heard before: thirty seconds of Bruce Springsteen *humming* an entire verse.
 
-
-Around a minute and 45 seconds into “Hello Sunshine,” we’re treated to something I don’t think we’ve ever heard before: thirty seconds of Bruce Springsteen an entire verse.
-
-*humming*
-
-[https://www.youtube.com/embed/icJjlg5e6l8?feature=oembed](https://www.youtube.com/embed/icJjlg5e6l8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Hello Sunshine (Official Lyric Video)](https://www.youtube.com/watch?v=icJjlg5e6l8)
 
 Those thirty wordless seconds–that’s the sound of pure contentment.
 
-Have we ever heard Bruce sound so deeply satisfied before? I don’t think so. One could make an argument for outtakes like “” and “” I suppose, but those songs focus on a single perfect day–we instinctively know that the narrators of those songs are experiencing a brief moment of time out of time.
+Have we ever heard Bruce sound so deeply satisfied before? I don’t think so. One could make an argument for outtakes like “[County Fair](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/)” and “[The Honeymooners,](https://estreetshuffle.com/index.php/2018/04/04/roll-of-the-dice-the-honeymooners/)” I suppose, but those songs focus on a single perfect day–we instinctively know that the narrators of those songs are experiencing a brief moment of time out of time.
 
-[County Fair](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/)[The Honeymooners,](https://estreetshuffle.com/index.php/2018/04/04/roll-of-the-dice-the-honeymooners/)
+There’s also “[Happy](https://estreetshuffle.com/index.php/2019/07/28/roll-of-the-dice-happy/),” of course, but that’s the song of a new dad in his babymoon phase–all new parents go through that (emphasis on *through*).
 
-There’s also “,” of course, but that’s the song of a new dad in his babymoon phase–all new parents go through that (emphasis on ).
-
-[Happy](https://estreetshuffle.com/index.php/2019/07/28/roll-of-the-dice-happy/)*through*
-
-“” may be the song that comes closest, and there’s a strong thematic through line that not only connects “Kingdom of Days” to “Hello Sunshine” but also connects their respective albums.
-
-[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)
+“[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)” may be the song that comes closest, and there’s a strong thematic through line that not only connects “Kingdom of Days” to “Hello Sunshine” but also connects their respective albums.
 
 No, there’s something different about the deep satisfaction expressed by the narrator of “Hello Sunshine.” It feels permanent, or at least enduring and earned.
 
-Ever since Bruce made public his lifelong battle with depression, it’s been tempting for fans (including this one) to reinterpret his past work and receive his future music through that lens. With a first line like “Had enough of heartbreak and pain” and a one-line chorus of “Hello sunshine, won’t you stay,” it’s easy–easy–to classify “Hello Sunshine” as an anti-depressive plea for figurative lightness to stave off the darkness Bruce has struggled with throughout his adult life.
-
-*too*
+Ever since Bruce made public his lifelong battle with depression, it’s been tempting for fans (including this one) to reinterpret his past work and receive his future music through that lens. With a first line like “Had enough of heartbreak and pain” and a one-line chorus of “Hello sunshine, won’t you stay,” it’s easy–*too* easy–to classify “Hello Sunshine” as an anti-depressive plea for figurative lightness to stave off the darkness Bruce has struggled with throughout his adult life.
 
 But it’s more than that, I think–much more. To my ears, “Hello Sunshine” isn’t a plea; it’s an invitation, and that’s a powerful and important distinction.
 
 Let’s take another listen.
 
-[https://www.youtube.com/embed/_EpVH8TeG8E?feature=oembed](https://www.youtube.com/embed/_EpVH8TeG8E?feature=oembed)
+[Watch on Youtube: Hello Sunshine](https://www.youtube.com/watch?v=_EpVH8TeG8E)
 
 Rarely does Bruce employ music as a narrative device so effectively as he does in “Hello Sunshine.”
 
-We don’t need the video to tell us we’re on an open road–we realize that from the opening bars. Matt Chamberlain (the unsung percussionist hero on “” and “” as well) carries us along entirely on his brushes, save for a single drumbeat that punctuates the song like the rhythmic seams along the highway.
+We don’t need the video to tell us we’re on an open road–we realize that from the opening bars. Matt Chamberlain (the unsung percussionist hero on “[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)” and “[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)” as well) carries us along entirely on his brushes, save for a single drumbeat that punctuates the song like the rhythmic seams along the highway.
 
-[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)
-
-After a few seconds, Ron Aniello’s bossa nova bass line kicks in with a simple riff that merges with Chamberlain’s percussion to form a rhythm line that literally like the open road.
-
-*sounds*
-
-
+After a few seconds, Ron Aniello’s bossa nova bass line kicks in with a simple riff that merges with Chamberlain’s percussion to form a rhythm line that literally *sounds* like the open road.
 
 *Had enough of heartbreak and pain*  
 *I had a little sweet spot for the rain*  
 *For the rain and skies of gray*  
 *Hello sunshine, won’t you stay*
 
-As with most of , we’re immediately struck by the warmth of Bruce’s vocals. By this point in the album (“Hello Sunshine” is the penultimate track) you’d think we’d be used to it, but Bruce positively croons his way through this song.
-
-*Western Stars*
+As with most of *Western Stars*, we’re immediately struck by the warmth of Bruce’s vocals. By this point in the album (“Hello Sunshine” is the penultimate track) you’d think we’d be used to it, but Bruce positively croons his way through this song.
 
 The first verse introduces a narrator with a great deal of self-awareness. He acknowledges a past of heartbreak and pain but leaves it up to the listener to infer whether he was the recipient, agent or both. It doesn’t really matter, though, because he’s had enough of it and isn’t looking back.
 
@@ -62,9 +42,7 @@ Another of the many subtle yet sublime touches throughout “Hello Sunshine”: 
 *You walk too far, you walk away*   
 *Hello sunshine, won’t you stay*
 
-We’re used to Bruce sneaking a killer line into his songs. “Hello Sunshine” has three of them in back-to-back-to-back stanzas, starting with That’s such an incredible line that we’re prone to miss the significant one that precedes it: 
-
-*you walk too far, you walk away.* *you can get a little too fond of the blues.*
+We’re used to Bruce sneaking a killer line into his songs. “Hello Sunshine” has three of them in back-to-back-to-back stanzas, starting with *you walk too far, you walk away.* That’s such an incredible line that we’re prone to miss the significant one that precedes it: *you can get a little too fond of the blues.*
 
 That’s our cue not to take the song literally–the empty streets and lonely towns are metaphors for the narrator’s own life. As comfortable as he’s become being a loner and alienating those around him, he’s realized that there’s a point at which the ties that bind become so stretched that they break.
 
@@ -86,9 +64,7 @@ A second bridge bookends the sentiment:
 *But miles to go is miles away*   
 *Hello sunshine, won’t you stay*
 
-And here we have our third and final great line: 
-
-*miles to go is miles away.*
+And here we have our third and final great line: *miles to go is miles away.* 
 
 Our narrator says so much with that line. Late in life, he no longer has much in the way of aspiration, but he still has miles to go before he sleeps. With his remaining years stretching out before him and very little left to accomplish, it’s time to enjoy the life he’s built and appreciate those who share it. (If we choose to, we can simultaneously read “Sunshine” as a term of endearment for his travelling companion. The song supports both interpretations without forcing us to choose.) While never stated, there’s a strongly implied theme of reconciliation present in “Hello Sunshine” as well.
 
@@ -107,30 +83,18 @@ It’s only with that gorgeous wordless bridge that we finally hear an instrumen
 
 An instrumental coda carries us off towards sunset, fading out rather than ending in order to leave us with the impression of a long road of contentment ahead for our narrator.
 
-It’s a beautiful note to end the song on–and combined with the sublime “” that follows it, “Hello Sunshine” closes on a deeply optimistic note–a note of hope and possibility.
-
-[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)*Western Stars*
+It’s a beautiful note to end the song on–and combined with the sublime “[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)” that follows it, “Hello Sunshine” closes *Western Stars* on a deeply optimistic note–a note of hope and possibility.
 
 On this first day of a new year, may you feel that same hope and possibility–and sunshine–as well.
 
-Like much of , “Hello Sunshine” is so carefully and masterfully crafted that I’m skeptical that it can be surpassed (or even equaled) when performed live. Bruce’s only performance to date (from the filmed concert) certainly doesn’t measure up to the studio version, but it’s a lovely attempt. I include it here for comparison.
+**Bonus:** Like much of *Western Stars*, “Hello Sunshine” is so carefully and masterfully crafted that I’m skeptical that it can be surpassed (or even equaled) when performed live. Bruce’s only performance to date (from the filmed *Western Stars* concert) certainly doesn’t measure up to the studio version, but it’s a lovely attempt. I include it here for comparison.
 
-**Bonus:** *Western Stars**Western Stars*
+[Watch on Youtube: Hello Sunshine - Bruce Springsteen (Western Stars 2019)](https://www.youtube.com/watch?v=ItacaaT6Nsk)
 
-[https://www.youtube.com/embed/ItacaaT6Nsk?feature=oembed](https://www.youtube.com/embed/ItacaaT6Nsk?feature=oembed)
+**Hello Sunshine  
+**Recorded:** 2010, 2019<br>
+**Released:** *Western Stars* (2019)<br>
+**First performed:** April 2019 (Colts Neck, NJ)<br>
+**Last performed:** April 2019 (Colts Neck, NJ)
 
-2010, 2019
-(2019)
-April 2019 (Colts Neck, NJ)
-April 2019 (Colts Neck, NJ)
-
-**Hello Sunshine**
-**Recorded:**<br>
-
-**Released:** *Western Stars* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

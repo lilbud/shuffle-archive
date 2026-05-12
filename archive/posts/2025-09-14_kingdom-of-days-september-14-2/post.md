@@ -36,7 +36,7 @@
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/09/1985-0914.jpg)
 
-**1989**: Bruce records "[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)" at One on One Recording in Los Angeles.
+**1989:** Bruce records "[Viva Las Vegas](https://estreetshuffle.com/index.php/2018/12/07/cover-me-viva-las-vegas/)" at One on One Recording in Los Angeles.
 
 [Watch on Youtube: Viva Las Vegas (from 'The Last Temptation of Elvis')](https://www.youtube.com/watch?v=quWs4rY-ekc)
 

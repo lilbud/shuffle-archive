@@ -1,8 +1,4 @@
-
-
-Way back in 1982, Bruce recorded a song called “.”
-
-[Losin’ Kind](https://estreetshuffle.com/index.php/2021/01/15/roll-of-the-dice-losin-kind/)
+Way back in 1982, Bruce recorded a song called “[Losin’ Kind](https://estreetshuffle.com/index.php/2021/01/15/roll-of-the-dice-losin-kind/).”
 
 Similar to (and probably inspired by, given notes Bruce wrote to Jon Landau about the song) the crime stories and films of James M. Cain, “Losin’ Kind” was the bad-luck story of Frank Davis, who picks up a femme fatale against his better judgment, and ends up robbing a Best Western, flees from the police, and ends up wrapping his car around a telephone pole.
 
@@ -10,7 +6,7 @@ Bruce never released the song, although a similar character named Frank turned u
 
 I bring up “Losin’ Kind” here because “Highway 29” is clearly an attempt by Bruce to revisit and perfect that song. The two songs tell the same basic story–a protagonist realizing too late he has a self-destructive streak, after the match is already lit.
 
-[https://www.youtube.com/embed/MmAgTqcYFgg?feature=oembed](https://www.youtube.com/embed/MmAgTqcYFgg?feature=oembed)
+[Watch on Youtube: Highway 29](https://www.youtube.com/watch?v=MmAgTqcYFgg)
 
 In the dozen-plus years between the recordings of “Losin’ Kind” and “Highway 29,” Bruce’s songwriting skills advanced considerably. Always cinematic with his lyrics, Bruce became more economical over time.
 
@@ -31,9 +27,7 @@ to
 
 *My hand slipped up her skirt, everything slipped my mind*
 
-(Bruce had already re-used the original couplet in yet another similar song, “,” but that’s a story for another day.)
-
-[Loose Change](http://estreetshuffle.com/index.php/2019/11/24/roll-of-the-dice-loose-change/)
+(Bruce had already re-used the original couplet in yet another similar song, “[Loose Change](https://estreetshuffle.com/index.php/2019/11/24/roll-of-the-dice-loose-change/),” but that’s a story for another day.)
 
 Bruce had also learned to trust the listener: in “Losin’ Kind,” Frank described the crime in considerable detail, but in “Highway 29,” Bruce invites us to co-write the song, painting the scene but asking us to tell the story.
 
@@ -74,15 +68,10 @@ In concert, “Highway 29” was a staple on the Ghost of Tom Joad tour, and it 
 
 On vinyl and on stage, “Highway 29” is always a solo Bruce Springsteen performance.
 
-1995
-(1995)
-November 21, 1995 (New Brunswick, NJ)
-November 8, 2005 (Philadelphia, PA)
-
 **Highway 29**  
-**Recorded:**<br>
-**Released:**[https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad*<br>
-**First performed:**<br>
-**Last performed:**<br>
+**Recorded:** 1995<br>
+**Released:** [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)(1995)<br>
+**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Last performed:** November 8, 2005 (Philadelphia, PA)
 
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

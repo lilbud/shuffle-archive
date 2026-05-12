@@ -1,6 +1,6 @@
 ***New for 2025:** New entry for 1978, 2010, and 2024*
 
-**1973**: Bruce and the band play their fourth of seven nights at Oliver's in Boston.
+**1973:** Bruce and the band play their fourth of seven nights at Oliver's in Boston.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1.jpg)
 

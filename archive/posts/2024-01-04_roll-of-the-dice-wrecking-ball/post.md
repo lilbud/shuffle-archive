@@ -1,5 +1,3 @@
-
-
 The wrecking ball first took a swing at my dad about fifteen years ago, maybe twenty. Time blurs.
 
 He’d gone in for a routine angioplasty one winter morning and was prescribed the customary post-op blood thinners to aid his circulation. The doctors told him to take it easy, but my dad never met a doctor whose orders he’d follow. He went outside to fetch the paper on a brittle morning, lost his balance on the ice, fell to the ground and didn’t get up.
@@ -20,13 +18,9 @@ It wasn’t, although my parents would end up living at that hospital for about 
 
 Before long, he’d be on dialysis several days a week. Even then, he refused to ease his lifestyle. He’d get in car accidents because he shouldn’t have been driving. He’d fall trying to get into his car and lie on the ground in the summer heat until someone stumbled across him and helped. More times than I can recall, he ended up in some southern hospital with congestive heart failure. His cruises and trips to Myrtle Beach were dice rolls every time, and he wasn’t a very good gambler.
 
-Over the last two decades of his life, the wrecking ball swung again and again–almost always, it seemed, on a dare: .
+Over the last two decades of his life, the wrecking ball swung again and again–almost always, it seemed, on a dare: *Let me see what you got*.
 
-*Let me see what you got*
-
-He ignored doctors’ orders; he defied his limitations. .
-
-*Bring on your wrecking ball*
+He ignored doctors’ orders; he defied his limitations. *Bring on your wrecking ball*.
 
 I can’t remember how many times we said our final goodbyes. Far too many, and not nearly enough. Over time, we became inured to it. We rolled our eyes and joked about our father the cat. Nine lives was just scratching the surface. Death wasn’t strong enough to claim him.
 
@@ -34,9 +28,7 @@ Last July, he called me at 5am my time and greeted me with, “I think I have ca
 
 A few weeks later, his biopsy results confirmed that he did indeed have late stage cancer. He scheduled his chemo treatments to start on August 4th, and on August 1st we gathered to celebrate my daughter and son-in-law and their on-the-way baby.
 
-My dad had to be physically lifted into and out of his car that night, but he still managed to work the room using his walker. () He gave a speech–he loved giving speeches–told corny dad jokes, and basked in the warmth of his family and friends.
-
-*Bring on your wrecking ball!*
+My dad had to be physically lifted into and out of his car that night, but he still managed to work the room using his walker. (*Bring on your wrecking ball!*) He gave a speech–he loved giving speeches–told corny dad jokes, and basked in the warmth of his family and friends.
 
 It was the last time he ever stood on his own.
 
@@ -50,9 +42,7 @@ When told he would spend his remaining days in increasingly excruciating pain an
 
 We transferred him immediately to a nearby hospice, where his family and friends came to be with him. It was a scene we’d played out before, but this time we all knew it wasn’t a dress rehearsal. He used every remaining waking hour to its fullest, sharing stories I’d never heard, scarfing down ice cream, and telling everyone who came to see him just how much they meant to him.
 
-My sister was the last to say goodbye–he hung on to consciousness long enough for her to make it back from a cut-short vacation, and his last words were to her. After that, he issued one more silent This time, though, it wasn’t a dare. It was an invitation.
-
-*Bring on your wrecking ball!*
+My sister was the last to say goodbye–he hung on to consciousness long enough for her to make it back from a cut-short vacation, and his last words were to her. After that, he issued one more silent *Bring on your wrecking ball!* This time, though, it wasn’t a dare. It was an invitation.
 
 He died a year ago today. On his own terms, during the night.
 
@@ -62,7 +52,7 @@ To some, “Wrecking Ball” is a song about a decrepit stadium scheduled for de
 
 To me, it’s about my dad.
 
-[https://www.youtube.com/embed/StVADmXbOEs?feature=oembed](https://www.youtube.com/embed/StVADmXbOEs?feature=oembed)
+[Watch on Youtube: Wrecking Ball](https://www.youtube.com/watch?v=StVADmXbOEs)
 
 Great songs take on meaning to those who listen, and “Wrecking Ball” is a great song. From any other songwriter, though, it would have been a lark.
 
@@ -73,14 +63,10 @@ Bruce wrote it on the occasion of his last stand at Giants Stadium, where he’d
 *So if you got the guts mister, yeah, if you got the balls*  
 *If you think it’s your time, then step to the line, and bring on your wrecking ball*
 
-
-
 *Bring on your wrecking ball*  
 *Bring on your wrecking ball*  
 *Come on and take your best shot, let me see what you got*  
 *Bring on your wrecking ball*
-
-
 
 *Now my home’s here in these meadowlands where mosquitoes grow big as airplanes*  
 *Here where the blood is spilled, the arena’s filled, and giants played their games*  
@@ -91,15 +77,13 @@ Anthropomorphized arenas are not the stuff about which great rock songs are typi
 
 It’s a cocktail of nostalgia, defiance, and solidarity that couldn’t have been crafted more perfectly for his New Jersey audience the night he debuted it in 2009. The crowd roared its approval at all the right calculated moments, and when the E Street Band explodes into the second chorus, it’s an adrenaline-fueled rush.
 
-[https://www.youtube.com/embed/e1mL_Z1Adao?feature=oembed](https://www.youtube.com/embed/e1mL_Z1Adao?feature=oembed)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Wrecking Ball (Live at Giants Stadium, 2009)](https://www.youtube.com/watch?v=e1mL_Z1Adao)
 
 As specific as the first half of the song is, however, the second half is universal. It also holds the powerful message at the core of “Wrecking Ball.”
 
 *Yeah, we know that come tomorrow, none of this will be here*  
 *So hold tight on your anger, you hold tight on your anger*  
 *Hold tight to your anger, don’t fall to your fears*
-
-
 
 *Now when all this steel and these stories, they drift away to rust*  
 *And all our youth and beauty, it’s been given to the dust*  
@@ -113,8 +97,6 @@ As specific as the first half of the song is, however, the second half is univer
 *And hard times come, and hard times go*  
 *Yeah just to come again*
 
-
-
 *Bring on your wrecking ball*
 
 Bruce extends the stadium metaphor cleverly and to remarkable length–so clever, in fact, that one might miss the moral.
@@ -123,19 +105,13 @@ Death is inevitable, Bruce reminds us. In the end, it comes for us all. The thin
 
 Life brings an endless chain of hardships. Endless, that is, until the end. For some of us, hardships merely punctuate our stories; for others, they’re the chapters.
 
-.
+*Hard times come and hard times go, just to come again*.
 
-*Hard times come and hard times go, just to come again*
-
-If you read the lyrics without listening to the music, you’d probably think “Wrecking Ball” is the most nihilistic song in Bruce’s catalog. But the defiance of his vocals and the way each seems to shed years and weight until all that’s left is youth and vigor… when we listen to “Wrecking Ball” we realize that it’s actually one of Bruce’s most life-affirming songs.
-
-*hard times come and hard times go*
+If you read the lyrics without listening to the music, you’d probably think “Wrecking Ball” is the most nihilistic song in Bruce’s catalog. But the defiance of his vocals and the way each *hard times come and hard times go* seems to shed years and weight until all that’s left is youth and vigor… when we listen to “Wrecking Ball” we realize that it’s actually one of Bruce’s most life-affirming songs.
 
 If life is nothing but a chain of hardships, if nothing we do will endure or matter after we’re gone, why bother living?
 
-Bruce answers: we make the most of each day nothing endures. We have only the time we’re given. And whether our hardships are islands or continents to cross in our life’s journey, the time we’re given is the time we’re given. Make the most of it, and don’t let anyone or anything rob you of it.
-
-*because*
+Bruce answers: we make the most of each day *because* nothing endures. We have only the time we’re given. And whether our hardships are islands or continents to cross in our life’s journey, the time we’re given is the time we’re given. Make the most of it, and don’t let anyone or anything rob you of it.
 
 If the wrecking ball is going to knock you down in the end, don’t go down without a fight. Stand tall. Or at least just stand.
 
@@ -145,18 +121,10 @@ Squeeze every last drop out of the time you’ve been given, and find every joy 
 
 The way my dad did, in the last and best lesson he ever taught me.
 
-2011
-(2011)
-September 30, 2009 (East Rutherford, NJ)
-September 3, 2023 (East Rutherford, NJ)
+**Wrecking Ball  
+**Recorded:** 2011<br>
+**Released:** [*Wrecking Ball*](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)(2011)<br>
+**First performed:** September 30, 2009 (East Rutherford, NJ)<br>
+**Last performed:** September 3, 2023 (East Rutherford, NJ)
 
-**Wrecking Ball**
-**Recorded:**<br>
-
-**Released:**[https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*<br>
-**First performed:**<br>
-**Last performed:**<br>
-
-Looking for your favorite Bruce song? Check our full index [here](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
-[here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/)
+Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

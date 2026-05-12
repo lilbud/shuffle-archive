@@ -1,16 +1,10 @@
+One of the first songs recorded for *[Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/),* but ultimately discarded from the final release, “Lady and the Doctor” mines a common early Springsteen theme: lovers from different worlds, unable to make it work but unwilling to break it off.
 
-
-One of the first songs recorded for but ultimately discarded from the final release, “Lady and the Doctor” mines a common early Springsteen theme: lovers from different worlds, unable to make it work but unwilling to break it off.
-
-*,* [Greetings from Asbury Park, N.J.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)
-
-Bruce’s recent autobiographical openness sheds light on his penchant for getting himself into toxic relationships in his younger days, so it’s not a stretch for us to suspect that “Lady and the Doctor,” like fellow immediately pre-label songs like “” and “,” are at least informed if not inspired by Bruce’s romantic misfires. They certainly till similar earth.
-
-[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Two Hearts in True Waltz Time](http://estreetshuffle.com/index.php/2019/09/10/roll-of-the-dice-two-hearts-in-true-waltz-time/)
+Bruce’s recent autobiographical openness sheds light on his penchant for getting himself into toxic relationships in his younger days, so it’s not a stretch for us to suspect that “Lady and the Doctor,” like fellow immediately pre-label songs like “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)” and “[Two Hearts in True Waltz Time](https://estreetshuffle.com/index.php/2019/09/10/roll-of-the-dice-two-hearts-in-true-waltz-time/),” are at least informed if not inspired by Bruce’s romantic misfires. They certainly till similar earth.
 
 “Lady and the Doctor” is one of the more artistically ambitious entries in this category; while it never quite seems fully realized, at times Bruce dazzles with his lyrics.
 
-[https://www.youtube.com/embed/c3b07ZZxdEs?feature=oembed](https://www.youtube.com/embed/c3b07ZZxdEs?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Lady And The Doctor](https://www.youtube.com/watch?v=c3b07ZZxdEs)
 
 The first verse of “Lady and the Doctor” introduces us to our two title characters. Bruce writes in parallel throughout, alternating his point-of-view characters to ensure his listeners can empathize with both.
 
@@ -21,9 +15,7 @@ The first verse of “Lady and the Doctor” introduces us to our two title char
 *Because the lady needs the medicine he brings*  
 *And the doctor needs the lady to see*
 
-I absolutely adore those opening lines, both for their effect and their humor. When Bruce describes “a circle made of silver like a wheel,” he is of course describing a locket–which would rhyme with the immediately preceding .
-
-*pocket*
+I absolutely adore those opening lines, both for their effect and their humor. When Bruce describes “a circle made of silver like a wheel,” he is of course describing a locket–which would rhyme with the immediately preceding *pocket*.
 
 Why didn’t Bruce simply open the song with “The lady keeps the doctor in a locket in her pocket,” which would have better fit the song’s meter and supplied him with one of his trademark internal rhymes? Probably because the leisurely, lingering description of the locket conveys just how aware and attentive the lady is to its presence, which tells us something about the lady’s character before Bruce even gets going.
 
@@ -66,17 +58,14 @@ As I wrote earlier, “Lady and the Doctor” ultimately feels unfinished, more 
 
 Still, “Lady and the Doctor” is a gem of an early outtake.
 
-A couple of months before Bruce recorded “Lady and the Doctor” in the studio, he played and recorded it in Mike Appel’s New York City office. The recording is somewhat muddy, but it’s the only other known recording of this lost song.
+**Bonus:** A couple of months before Bruce recorded “Lady and the Doctor” in the studio, he played and recorded it in Mike Appel’s New York City office. The recording is somewhat muddy, but it’s the only other known recording of this lost song.
 
-**Bonus:**<http://estreetshuffle.com/wp-content/uploads/2020/09/Bruce-Springsteen-The-Lady-And-The-Doctor-1.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2020/09/Bruce-Springsteen-The-Lady-And-The-Doctor-1.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2020/09/Bruce-Springsteen-The-Lady-And-The-Doctor-1.mp3?_=1)
 
-June 7, 1972
+<https://estreetshuffle.com/wp-content/uploads/2020/09/Bruce-Springsteen-The-Lady-And-The-Doctor-1.mp3>
 
-
-
-**Lady and the Doctor**
-**Recorded:**<br>
-
+**Lady and the Doctor  
+**Recorded:** June 7, 1972<br>
 **Never released**  
 **Never performed**
 

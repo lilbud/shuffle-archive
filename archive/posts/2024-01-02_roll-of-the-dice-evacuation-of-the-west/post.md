@@ -1,18 +1,10 @@
+Bruce Springsteen was fascinated by the American West long before *Western Stars* and [*The Ghost of Tom Joad*](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/). Western imagery and themes feature in Bruce’s work dating back to the beginning–even *before* the beginning, if we examine his pre-label material.
 
+We’re about to get re-introduced to one of those songs, “[If I Was the Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/),” on Bruce’s upcoming [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)album next month. There’s also the Texan fantasy “[Santa Ana](https://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/),” which appears on *Tracks.* But arguably the greatest pre-historic Springsteen Western song is one that *still* hasn’t seen any form of release: “Evacuation of the West.”
 
-Bruce Springsteen was fascinated by the American West long before and . Western imagery and themes feature in Bruce’s work dating back to the beginning–even the beginning, if we examine his pre-label material.
+[Watch on Youtube: BRUCE SPRINGSTEEN - evacuation of the west](https://www.youtube.com/watch?v=5XRO4ZZgaqo)
 
-*Western Stars* [](https://estreetshuffle.com/index.php/2023/06/03/album-companion-the-ghost-of-tom-joad/)*The Ghost of Tom Joad**before*
-
-We’re about to get re-introduced to one of those songs, “,” on Bruce’s upcoming album next month. There’s also the Texan fantasy “,” which appears on But arguably the greatest pre-historic Springsteen Western song is one that hasn’t seen any form of release: “Evacuation of the West.”
-
-[If I Was the Priest](http://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)[https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*Letter to You*[Santa Ana](http://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)*Tracks.* *still*
-
-[https://www.youtube.com/embed/5XRO4ZZgaqo?feature=oembed](https://www.youtube.com/embed/5XRO4ZZgaqo?feature=oembed)
-
-“Evacuation of the West” (also known as “There Are No Kings in Texas”) shares a setting with “Santa Ana” (which was recorded during the same studio sessions in the summer of 1973) and features similar music to “” (another track), “,” and “Zero and Blind Terry.”
-
-[Song for Orphans](http://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)*Letter to You* [Phantoms](http://estreetshuffle.com/index.php/2019/06/06/roll-of-the-dice-phantoms/)
+“Evacuation of the West” (also known as “There Are No Kings in Texas”) shares a setting with “Santa Ana” (which was recorded during the same studio sessions in the summer of 1973) and features similar music to “[Song for Orphans](https://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)” (another *Letter to You* track), “[Phantoms](https://estreetshuffle.com/index.php/2019/06/06/roll-of-the-dice-phantoms/),” and “Zero and Blind Terry.”
 
 But if “Santa Ana” is a dream-like fantasy seen through the eyes of a young boy, “Evacuation of the West” is an apocalyptic cocktail: one part spaghetti western, one part Mad Max, and one part War of the Worlds.
 
@@ -24,8 +16,6 @@ But if “Santa Ana” is a dream-like fantasy seen through the eyes of a young 
 *Where the highway ends the desert takes its toll, so dusty, red, and angry*  
 *It was a time when men died out on the prairie from not having a decent friend*  
 *At night the ghost of them ol’ rough riders was a howl in the canyon winds*
-
-
 
 *You can hear ’em crying*  
 *Good God, I think they’re dying*
@@ -51,11 +41,7 @@ And besides, the imagery is just too darn cinematic to spoil with subtext.
 
 We’re at the quiet instrumental bridge now, and it’s lovely. Garry brings us on a gentle descent back to earth (but don’t worry, we’re about to leave it), and the only thing keeping me from calling Bruce’s piano part an homage to “Miami 2017” is that Billy Joel’s own apocalyptic epic was still a few years away.
 
-In the final verse, Bruce goes full on (I’ve always wondered if Rosenburg was a Springsteen fan), as our heroes leave behind not just the West but the Earth, and head to the unknown for one final adventure.
-
-*Cowboys & Aliens*
-
-
+In the final verse, Bruce goes full on *Cowboys & Aliens* (I’ve always wondered if Rosenburg was a Springsteen fan), as our heroes leave behind not just the West but the Earth, and head to the unknown for one final adventure.
 
 *In the cold blue light of the desert night there was a thousand starry ships*  
 *And men came down from still I don’t know where with death on their fingertips*  
@@ -64,15 +50,11 @@ In the final verse, Bruce goes full on (I’ve always wondered if Rosenburg was 
 *Now Anna Maria walks the plains alone, the last of a struggling people*  
 *She thinks of all those outlaws who wanted to reach for the sky and got stuck up on that steeple*
 
-
-
 *Oh, you can hear them crying*  
 *Good God, I think they’re dying*  
 *In the wind you can hear them sigh*
 
-There’s gorgeous imagery here. In fact, I’d argue that better than any of the songs that made it to Bruce’s second album, “Evacuation of the West” telegraphs Bruce’s evolving cinematic songwriting talent that would burst into full bloom on the opening track of .
-
-*Born to Run*
+There’s gorgeous imagery here. In fact, I’d argue that better than any of the songs that made it to Bruce’s second album, “Evacuation of the West” telegraphs Bruce’s evolving cinematic songwriting talent that would burst into full bloom on the opening track of *Born to Run*.
 
 In particular, the notion of a parade of Conestoga wagons taking flight is simply brilliant, as is the way Bruce co-opts the classic Western “reach for the sky” trope for his own purposes, with slain gunslingers deprived of the freedom and adventure they craved.
 
@@ -80,25 +62,15 @@ In particular, the notion of a parade of Conestoga wagons taking flight is simpl
 
 And as for the not-quite-E-Street-yet band, that track was recorded in a single take–there are no overdubs present.
 
-So I was disappointed when it was revealed that three contemporary songs are due for release on , but not “Evacuation of the West.” This song cries out for an E Street Band release.
+So I was disappointed when it was revealed that three contemporary songs are due for release on *Letter to You*, but not “Evacuation of the West.” This song cries out for an E Street Band release.
 
-*Letter to You*
-
-But I was only disappointed for a moment–because then I realized that as a fully realized E Street Band song, with no vocal bluffing or missing elements, “Evacuation of the West” is a strong candidate for inclusion in that long-awaited collection.
-
-*very* *Tracks 2*
+But I was only disappointed for a moment–because then I realized that as a fully realized E Street Band song, with no vocal bluffing or missing elements, “Evacuation of the West” is a *very* strong candidate for inclusion in that long-awaited *Tracks 2* collection.
 
 Let’s hope we see it soon. “Evacuation of the West” is a true early gem of an outtake that deserves a place in Bruce’s “official” catalog.
 
-June 22 – July 11, 1973
-
-
-
-**Evacuation of the West**
-**Recorded:**<br>
-
+**Evacuation of the West  
+**Recorded:** June 22 – July 11, 1973<br>
 **Never released**  
 **Never performed**
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

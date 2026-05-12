@@ -1,4 +1,4 @@
-**1970**: When Boz Scaggs gets sick and cancels his headlining gig at The Matrix in San Francisco, Steel Mill is promoted from opener to headliner. The band plays for more than an hour to a small crowd that includes journalist Philip Elwood, who was expecting to see and review Boz Scaggs. Needing to turn in something, he reviews Steel Mill instead and writes that he has "never been so overwhelmed by a totally unknown talent." You can hear the groovy, very 70's set here:
+**1970:** When Boz Scaggs gets sick and cancels his headlining gig at The Matrix in San Francisco, Steel Mill is promoted from opener to headliner. The band plays for more than an hour to a small crowd that includes journalist Philip Elwood, who was expecting to see and review Boz Scaggs. Needing to turn in something, he reviews Steel Mill instead and writes that he has "never been so overwhelmed by a totally unknown talent." You can hear the groovy, very 70's set here:
 
 [Watch on Youtube: Steel Mill 'Live at The Matrix' January 13, 1970 Full Show Soundboard Audio 1](https://www.youtube.com/watch?v=URkN5wPemOA)
 
@@ -14,7 +14,7 @@
 
 [Watch on Youtube: Bruce Springsteen Inducts Creedence Clearwater Revival](https://www.youtube.com/watch?v=dgpMGNVf9lw)
 
-**2012**: Bruce films the video for "[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)" in Asbury Park. Willie Nile and John Eddie join him for the shoot.
+**2012:** Bruce films the video for "[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)" in Asbury Park. Willie Nile and John Eddie join him for the shoot.
 
 [Watch on Youtube: Bruce Springsteen - We Take Care of Our Own (Official Video)](https://www.youtube.com/watch?v=-x8zBzxCwsM)
 

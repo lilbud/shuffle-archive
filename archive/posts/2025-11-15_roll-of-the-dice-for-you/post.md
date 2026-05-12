@@ -1,6 +1,4 @@
-
-
-“…I fell in obsession with a lovely surfer girl, a drug-taking, hell-raising wild child who played by nobody’s rules. She was a perfect antidote to the control freak in me and opened up my hunger for every blond perfect thing I never had. She was so alive, funny and broken, I couldn’t resist her. She stirred up my Catholic-school-bred messianic complex, then did the bone-and-heart-crushing dance over it that it deserved. She’d been around a little, California and back, knew a few grade-B-level rock stars, brought them down to ‘discover’ my band, then slept with them. I got a handshake and a ‘you guys are great’ T-shirt out of the deal.” *–Bruce Springsteen, Born to Run (2016)*
+> “…I fell in obsession with a lovely surfer girl, a drug-taking, hell-raising wild child who played by nobody's rules. She was a perfect antidote to the control freak in me and opened up my hunger for every blond perfect thing I never had. She was so alive, funny and broken, I couldn't resist her. She stirred up my Catholic-school-bred messianic complex, then did the bone-and-heart-crushing dance over it that it deserved. She'd been around a little, California and back, knew a few grade-B-level rock stars, brought them down to ‘discover’ my band, then slept with them. I got a handshake and a ‘you guys are great’ T-shirt out of the deal.” *–Bruce Springsteen, Born to Run (2016)*
 
 Have you ever been in love with the wrong person?
 
@@ -10,17 +8,13 @@ Someone for whom the very things that excite you, ignite you, and take your brea
 
 A drama magnet, maybe. Or a narcissist. Maybe someone trapped by the weight of their own baggage.
 
-Someone who fascinates you, exhilarates you… but who you will ultimately take you down with them when they go down. And they will go down.
-
-*know*
+Someone who fascinates you, exhilarates you… but who you *know* will ultimately take you down with them when they go down. And they will go down.
 
 If you’ve ever been in love with someone like that, then “For You” is for you.
 
-[https://www.youtube.com/embed/rdP3y4k2KKU?feature=oembed](https://www.youtube.com/embed/rdP3y4k2KKU?feature=oembed)
+[Watch on Youtube: For You](https://www.youtube.com/watch?v=rdP3y4k2KKU)
 
-“For You” is from Bruce Springsteen, who wrote the song while recovering from a toxic relationship in the winter of 1971-72. Bruce wrote about it in his autobiography, and in he revealed: “I had a gal in New Jersey who broke my heart, ripped it to shreds, trampled on it, and sent it to me C.O.D. in a paper bag. So I was out of there on the first ride west, no looking back.”
-
-*Western Stars,*
+“For You” is from Bruce Springsteen, who wrote the song while recovering from a toxic relationship in the winter of 1971-72. Bruce wrote about it in his autobiography, and in *Western Stars,* he revealed: “I had a gal in New Jersey who broke my heart, ripped it to shreds, trampled on it, and sent it to me C.O.D. in a paper bag. So I was out of there on the first ride west, no looking back.”
 
 But he looked back.
 
@@ -40,8 +34,6 @@ Bruce has always been circumspect when discussing both the girl and the events t
 *You said, “Here’s your mirror and your ball and jacks”*  
 *But they’re not what I came for, and I’m sure you see that too*
 
-
-
 *I came for you, for you, I came for you, but you did not need my urgency*  
 *I came for you, for you, I came for you, but your life was one long emergency*  
 *And your cloud line urges me, oh, and my electric surges free*
@@ -60,13 +52,9 @@ The “grade-B-level” carpetbaggers with whom she cheated were the last straw,
 
 Because this is the moment that matters. He is willing to forgive everything that came before if only she will come back to herself, if not also to him. If she’ll only fill that vacancy behind her eyes and let him in, too.
 
-And in this moment he is haunted by the fear that she may die because .
+And in this moment he is haunted by the fear that she may die because *he was not there*.
 
-*he was not there*
-
-He was there for her, but she didn’t need him then and pushed him away. And so he left, leaving her alone to face her own demons. In that moment of darkness and crisis, she was alone. But her life was a crisis.
-
-*always**always*
+He was *always* there for her, but she didn’t need him then and pushed him away. And so he left, leaving her alone to face her own demons. In that moment of darkness and crisis, she was alone. But her life was *always* a crisis.
 
 He apologizes for the strength it took to leave, mistaking it for weakness. He marvels at her vivacity and spirit, mistaking them for strength and resilience. And he begs her to stay with him so he can be her savior and redeem himself–his love can be her oxygen.
 
@@ -111,15 +99,11 @@ We spend the remainder of the song with our narrator, lost in his reminiscence. 
 *And who am I to ask you to lick my sores*  
 *And you should know that’s true*
 
-
-
 *I came for you, for you, I came for you, but you did not need my urgency*  
 *I came for you, for you, I came for you, your life was one long emergency*  
 *And your cloud line urges me, oh, and my electric surges free*
 
-This is the moment. Her life hangs in the balance; his love tries to tether her. The words spill and tumble in his desperation to say something, say to keep her with him.
-
-*anything*
+This is the moment. Her life hangs in the balance; his love tries to tether her. The words spill and tumble in his desperation to say something, say *anything* to keep her with him.
 
 This is the moment, and it never resolves. We never find out what happens. “For You” ends not with a fade, but with a musical and lyrical cliffhanger that’s meant to leave us feeling uneasy and unsatisfied.
 
@@ -127,40 +111,32 @@ Because “For You” isn’t a love story. It’s not even a story at all. It�
 
 It’s not a song that resonates with everyone. But if you’ve been there, it resonates deeply.
 
-
+ 
 
 ---
 
 
 Bruce recorded “For You” during the summer of 1972 with The Bruce Springsteen Band (minus Steve Van Zandt), in a loose, almost disheveled arrangement that serves to underscore the narrator’s frame of mind.
 
-Still, in my opinion “For You” only truly comes to life when Bruce performs it alone at the piano. Bruce seemed to realize that early on: for most of its early performances, that’s exactly how the song was played, including this riveting rendition from Bruce’s release.
+Still, in my opinion “For You” only truly comes to life when Bruce performs it alone at the piano. Bruce seemed to realize that early on: for most of its early performances, that’s exactly how the song was played, including this riveting rendition from Bruce’s *Live at the Hammersmith Odeon, London ’75* release.
 
-*Live at the Hammersmith Odeon, London ’75*
-
-[https://www.youtube.com/embed/nvMRVGjvLus?feature=oembed](https://www.youtube.com/embed/nvMRVGjvLus?feature=oembed)
+[Watch on Youtube: Bruce Springsteen & The E Street Band - For You (Live at the Hammersmith Odeon, London '75)](https://www.youtube.com/watch?v=nvMRVGjvLus)
 
 In recent years, the arrangement seems to be a toss-up depending on Bruce’s mood, but one way or another “For You” still manages to make a few appearances on every tour. My personal favorite was a solo performance in Hershey in 2014.
 
-[https://www.youtube.com/embed/xZuMWcKdRT0?feature=oembed](https://www.youtube.com/embed/xZuMWcKdRT0?feature=oembed)
+[Watch on Youtube: Bruce Springsteen "For You" Hershey Park](https://www.youtube.com/watch?v=xZuMWcKdRT0)
 
 “For You” even turned up on the Seeger Sessions Tour, although I’m not convinced that was a wise decision. While most of Bruce’s song’s translated gracefully to the Sessions Band’s sound and style, “For You” sounded unwieldy and awkward.
 
-[https://www.youtube.com/embed/mDA9O9s8DXY?feature=oembed](https://www.youtube.com/embed/mDA9O9s8DXY?feature=oembed)
+[Watch on Youtube: For You (Live at the Point Theatre, Dublin, Ireland - November 2006)](https://www.youtube.com/watch?v=mDA9O9s8DXY)
 
 That misstep aside, “For You” is one of Bruce’s oldest fan-favorites, and one almost guaranteed to make an appearance or three on any given tour. That’s not likely to change anytime soon; when Bruce finally gets back out on the road someday, we’re likely to hear him play “For You” for us.
 
-June 27 – October 28, 1972
-(1973)
-February 14, 1972 (New York City, NY)
-September 5, 2016 (Virginia Beach, VA)
+**For You  
+**Recorded:** June 27 – October 28, 1972<br>
+**Released:** [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1973)<br>
+**First performed:** February 14, 1972 (New York City, NY)<br>
+**Last performed:** September 5, 2016 (Virginia Beach, VA)
 
-**For You**
-**Recorded:**<br>
-
-**Released:** [](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.* <br>
-**First performed:**<br>
-**Last performed:**<br>
-
-© January 8, 2022
+© January 8, 2022  
 Photo credit: Barry Schneier

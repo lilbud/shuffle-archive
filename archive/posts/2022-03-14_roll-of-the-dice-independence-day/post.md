@@ -134,14 +134,14 @@ My favorite performances, though, are when Bruce plays it alone at the piano. "I
 
 [Watch Video Highlight](https://videopress.com/embed/YHwWy2gb)
 
-**Bonus #2**: I love this intimate solo guitar performance from the documentary accompanying the anniversary box set for *The River*. It's annotated with Bruce's comments over the song in a few spots, but it's lovely all the same.
+**Bonus #2:** I love this intimate solo guitar performance from the documentary accompanying the anniversary box set for *The River*. It's annotated with Bruce's comments over the song in a few spots, but it's lovely all the same.
 
 [Watch on Youtube: Bruce Springsteen-Independence Day from "Ties" Documentary](https://www.youtube.com/watch?v=xouTzlWWpa4)
 
-**Independence Day**
+**Independence Day**<br>
 **Recorded:** Autumn 1977 – April 1980<br>
 **Released:** *The River* (1980)<br>
-**First performed: J**uly 7, 1978 (Los Angeles, CA)
+**First performed: J**uly 7, 1978 (Los Angeles, CA)<br>
 **Last performed:** August 23, 2016 (East Rutherford, NJ)<br>
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
