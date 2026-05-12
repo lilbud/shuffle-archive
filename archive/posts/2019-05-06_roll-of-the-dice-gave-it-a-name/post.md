@@ -10,18 +10,18 @@ That may be for the best, though. *Human Touch* suffered a bit from overproducti
 
 “Gave It a Name” is short and to the point, employing Bruce’s trusty device of Biblical imagery and characters to both underline Billy’s sin, his remorse, and the inability of humanity to eradicate domestic violence.
 
-*In the fields of the lord, stood Abel and Cain*  
-*Cain slew Abel ‘neath the black rain*  
-*At night he couldn’t stand the guilt or the blame*  
-*So he gave it a name*  
-*So he gave it a name*  
+*In the fields of the lord, stood Abel and Cain*
+*Cain slew Abel ‘neath the black rain*
+*At night he couldn’t stand the guilt or the blame*
+*So he gave it a name*
+*So he gave it a name*
 *So he gave it a name*
 
-*Billy got drunk, angry at his wife*  
-*He hit her once, he hit her twice*  
-*At night he’d lie in bed, he couldn’t stand the shame*  
-*So he gave it a name*  
-*So he gave it a name*  
+*Billy got drunk, angry at his wife*
+*He hit her once, he hit her twice*
+*At night he’d lie in bed, he couldn’t stand the shame*
+*So he gave it a name*
+*So he gave it a name*
 *So he gave it a name*
 
 In the first verse, Bruce retells the story of Cain, Abel, and humanity’s first murder–a crime so heinous and unprecedented that until that point, there was no word for it until Cain coined one in order to have a place to channel his remorse and shame.
@@ -32,8 +32,8 @@ Bruce is careful to employ parallel construction in these two verses. By doing s
 
 Bruce underscores this by ending the song with an unresolved verse, based on author Pete Dexter’s novel *Paris Trout*.
 
-*Pa told me “Son, one thing I know is true*  
-*Poison snake bites you, you’re poison too”*  
+*Pa told me “Son, one thing I know is true*
+*Poison snake bites you, you’re poison too”*
 *At night I can feel that poison runnin’ ’round my veins*
 
 That central line–“poison snake bites you, you’re poison too”–also appears in “[The Big Muddy](https://estreetshuffle.com/index.php/2019/01/29/roll-of-the-dice-the-big-muddy/)” (see that entry for more on the *Paris Trout* reference); its migration from outtake to album suggests that Bruce was still fascinated by the notion of violence begetting violence, of the sins of the father being passed on to the son. (He’d obviously been exploring that theme for many years, most overtly in “[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/).”)
@@ -48,7 +48,7 @@ The show explores the complicated civil rights history of Yonkers, New York, and
 
 [Watch on Youtube: Show Me a Hero. Intro](https://www.youtube.com/watch?v=xtpYCF8zMCA)
 
-**Gave It a Name**  
+**Gave It a Name**
 **Recorded:** August 24, 1998  
 **Released:** *Tracks* (1998)  
 **Never performed**

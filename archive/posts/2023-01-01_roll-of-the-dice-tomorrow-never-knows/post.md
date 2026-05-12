@@ -1,6 +1,6 @@
 It’s easy to forget about “Tomorrow Never Knows.” Bruce has never performed it live, and I’ve never seen a fan ask for it or heard Bruce talk about it. And yet, it’s arguably one of the songs that best defines the album on which it’s hidden away.
 
-Bruce wrote “Tomorrow Never Knows” during the mixing stages of *Magic–*in fact, it was one of the very first songs written for the album that would become *Working on a Dream.* 
+Bruce wrote “Tomorrow Never Knows” during the mixing stages of *Magic–*in fact, it was one of the very first songs written for the album that would become *Working on a Dream.*
 
 That first group of songs also included “[What Love Can Do](https://estreetshuffle.com/index.php/2018/11/25/roll-of-the-dice-what-love-can-do/),” “This Life,” “[Life Itself](https://estreetshuffle.com/index.php/2018/03/26/roll-of-the-dice-life-itself/),” and “[My Lucky Day](https://estreetshuffle.com/index.php/2019/09/02/roll-of-the-dice-my-lucky-day/),” and together with “Tomorrow Never Knows,” it’s clear that Bruce was beginning to come to terms with aging in a way that he really hadn’t addressed before.
 
@@ -18,29 +18,29 @@ That ease is deliberate. Bruce uses it to underscore the song’s message, which
 
 Beyond that, the song speaks for itself–until the last verse, that is. That one is worth discussing, so take a read through the lyrics, and I’ll meet you on the other side.
 
-*Where the cold wind blows*  
-*Tomorrow never knows*  
-*Where your sweet smile goes*  
+*Where the cold wind blows*
+*Tomorrow never knows*
+*Where your sweet smile goes*
 *Tomorrow never knows*
 
-*You and me we been standing here my dear*  
-*Waiting for our time to come*  
-*Where the green grass grows*  
+*You and me we been standing here my dear*
+*Waiting for our time to come*
+*Where the green grass grows*
 *Tomorrow never knows*
 
-*In the field your long hair flowed*  
-*Down by the Tildenberry tracks*  
-*There ‘neath the water tower*  
+*In the field your long hair flowed*
+*Down by the Tildenberry tracks*
+*There ‘neath the water tower*
 *I carried you on my back*
 
-*Over the rusted spikes of that highway of steel*  
-*When no more thunder sounds*  
-*Where the time goes*  
+*Over the rusted spikes of that highway of steel*
+*When no more thunder sounds*
+*Where the time goes*
 *Tomorrow never knows*
 
-*Well he who waits for the day’s riches will be lost*  
-*In the whispering tide*  
-*Where the river flows*  
+*Well he who waits for the day’s riches will be lost*
+*In the whispering tide*
+*Where the river flows*
 *Tomorrow never knows*
 
 Bruce has said on more than one occasion that most of his songs hide a single line that contain its key, and “Tomorrow Never Knows” is no exception. If you want to know the message of the song, look no further than:
@@ -57,7 +57,7 @@ Taken as a whole, it presents a snapshot of an artist truly coming to terms with
 
 “Tomorrow Never Knows” and “Kingdom of Days” contain words to live by, for those of us fortunate enough to be in a position to follow them.
 
-**Tomorrow Never Knows**  
+**Tomorrow Never Knows**
 **Recorded:** 2007-2008  
 **Released:** *Working on a Dream* (2009)  
 **Never performed**

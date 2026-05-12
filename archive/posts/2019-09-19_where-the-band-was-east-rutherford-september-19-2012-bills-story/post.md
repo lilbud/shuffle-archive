@@ -2,7 +2,7 @@ Editor's Note
 
 ***Editor’s Note:*** *Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill’s blog](https://billk128.tumblr.com/)–he’s got some great show reviews (not just Bruce-related) and insightful commentary.*
 
-*If you’d like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).* 
+*If you’d like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).*
 
 If it wasn't the same old Meadowlands Parking Lot this time, it might as well have been–just slightly re-located and renamed along with the stadium, now MetLife Stadium. All the same glorious tailgate vibe was in full force for Night One of three that Bruce and the band would be playing to wrap up the summer and their outdoor venue leg of the Wrecking Ball Tour.
 
@@ -56,7 +56,7 @@ What's your story?
 
 **9/19/12 – MetLife Stadium, NJ**
 
-**Setlist:**  
+**Setlist:**
 Shackled and Drawn  
 Prove It All Night (’78 intro)  
 The Ties That Bind  
@@ -80,7 +80,7 @@ Racing in the Street
 The Rising  
 Badlands  
 Land of Hope and Dreams  
-* * *  
+* * *
 We Are Alive  
 Thunder Road  
 Born to Run  

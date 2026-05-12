@@ -2,7 +2,7 @@ A deep cut from an underrated album, “With Every Wish” escaped my understand
 
 I was 23, very newly wed, and invincible. When I first heard “With Every Wish,” I focused on the chorus:
 
-*Before you choose your wish, son, you better think first:*  
+*Before you choose your wish, son, you better think first:*
 *With every wish there comes a curse.*
 
 …and thought, incorrectly, that the song was a warning to choose wisely, that making the wrong choice can have unforeseen consequences.
@@ -17,14 +17,14 @@ Both the girl and the “angel of the lake” taught him the same lesson: think 
 
 At 23, I completely missed the word “every,” and I didn’t grok the third verse at all:
 
-*These days I sit around and laugh a**t the many rivers I’ve crossed*  
-*But on the far banks there’s always another forest w**here a man can get lost*  
-*Well there in the high trees love’s bluebird glides*  
-*Guiding us ‘cross to another river on the other side*  
-*And there someone is waitin’ with a look in her eyes*  
-*And though my heart’s grown weary a**nd more than a little bit shy*  
-*Tonight I’ll drink from her waters to quench my thirst*  
-*And leave the angels to worry*  
+*These days I sit around and laugh a**t the many rivers I’ve crossed*
+*But on the far banks there’s always another forest w**here a man can get lost*
+*Well there in the high trees love’s bluebird glides*
+*Guiding us ‘cross to another river on the other side*
+*And there someone is waitin’ with a look in her eyes*
+*And though my heart’s grown weary a**nd more than a little bit shy*
+*Tonight I’ll drink from her waters to quench my thirst*
+*And leave the angels to worry*
 *With every wish…*
 
 A quarter-century down the road, though, I get it.

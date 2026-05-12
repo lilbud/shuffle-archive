@@ -24,26 +24,26 @@ That’s two minutes and fifteens seconds of pop perfection, right there. Record
 
 Our tale opens with a Romeo on the mend from a broken heart and shattered confidence. His last relationship didn’t end well, and at least for a while, he was laid low. But now he’s back, and he’s ready to face down the world:
 
-*You broke my heart, tore it apart*  
-*Thought it was cute, thought it was smart*  
-*But now I’m back, and I’ve got the strength of ten*  
+*You broke my heart, tore it apart*
+*Thought it was cute, thought it was smart*
+*But now I’m back, and I’ve got the strength of ten*
 *So I got a message for you, my friend:*
 
-*I’m Daniel waiting in the lion’s den*  
-*Daniel waiting for that lion to come*  
-*Daniel waiting in the lion’s den*  
+*I’m Daniel waiting in the lion’s den*
+*Daniel waiting for that lion to come*
+*Daniel waiting in the lion’s den*
 *Dum dum dee-dum dum dee-dee dum dum*
 
 While our hero fancies himself as Daniel, the lion isn’t his ex–the lion is his *next*. His next love, his next job, his next dream, his next goal. It’s Bruce telling the world to bring whatever obstacles and curve balls it wants to throw his way–he’s got the confidence, the resolve, and the faith to face them. And as the parable shows us (and as Bruce would someday write): faith will be rewarded.
 
-*That old lion’s mean and long in the tooth*  
-*And like you, baby, he’s out on the loose*  
-*Messing hearts up time and time again*  
+*That old lion’s mean and long in the tooth*
+*And like you, baby, he’s out on the loose*
+*Messing hearts up time and time again*
 *Well, it’s time for that messing to end*
 
-*I’m Daniel waiting in the lion’s den*  
-*Daniel waiting for that lion to come*  
-*Daniel waiting in the lion’s den*  
+*I’m Daniel waiting in the lion’s den*
+*Daniel waiting for that lion to come*
+*Daniel waiting in the lion’s den*
 *Dum dum dee-dum dum dee-dee dum dum*
 
 Okay, let’s talk about that perfect line: Surely, Bruce could have written any number of last lines for the chorus. It’s not as if “come” is a difficult rhyme to match. So why didn’t he?
@@ -56,14 +56,14 @@ I would submit that there are at least two reasons:
 
 In fact, if you listened to the song earlier in the article, I bet you’re going to find yourself unintentionally singing “dum dum dee-dum dum dee-dee dum dum” out loud at least once in the next hour or so. (Happens to me every time.)
 
-*At night I hear you out prowling around*  
-*Tearing guys up, staring ’em down*  
-*Now all that growling’s gonna come to no end*  
+*At night I hear you out prowling around*
+*Tearing guys up, staring ’em down*
+*Now all that growling’s gonna come to no end*
 *‘Cause I’m just biding my time, my little friend*
 
-*I’m like Daniel waiting in the lion’s den*  
-*Daniel waiting for that lion to come*  
-*Daniel waiting in the lion’s den*  
+*I’m like Daniel waiting in the lion’s den*
+*Daniel waiting for that lion to come*
+*Daniel waiting in the lion’s den*
 *Dum dum dee-dum dum dee-dee dum dum*
 
 In the end, nothing happens in “Lion’s Den.” There’s no journey or character arc–in fact the entire song is about the main character *waiting* for something to happen. Like I said at the top, our hero is a guy laid low by love. “Lion’s Den” is about getting up, planting your feet firmly, staring life in the eye, and saying:

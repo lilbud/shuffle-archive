@@ -17,14 +17,14 @@ Oh come on and see there’s a lot of room for you baby in this front seat.*
 **…to “Wings for Wheels…”**
 
 *Maybe I can’t lay the stars at your feet,  
-But I got this old car and she’s pretty tough to beat*  
-*There’s plenty of room in my front seat*  
+But I got this old car and she’s pretty tough to beat*
+*There’s plenty of room in my front seat*
 *If you think you can make it, climb in.*
 
 **to “Thunder Road.”**
 
-*Well, I ain’t no hero, that’s understood.*  
-*All the redemption I can offer, girl, is beneath this dirty hood*  
+*Well, I ain’t no hero, that’s understood.*
+*All the redemption I can offer, girl, is beneath this dirty hood*
 *With a chance to make it good some how… hey, what else can we do now?*
 
 But thematically, “Walking in the Street” (sometimes called “Lovers in the Cold”) is a very different song from “Thunder Road.” The latter is a classic expression of desperation, yearning, and escape. The former is a fatalistic tale of Billy and Cherry, who seem reconciled to their lot.
@@ -44,7 +44,7 @@ So give a listen to this never-released, never-performed classic, lost somewhere
 
 **Walking in the Street  
 **Recorded** August-September 1974  
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

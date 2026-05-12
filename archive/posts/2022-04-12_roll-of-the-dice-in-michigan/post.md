@@ -22,25 +22,25 @@ And so without further ado, let’s take a listen to one of the greatest songs B
 
 “In Michigan” lives up to its promise, in that the name *Michigan* comes up a lot. Which is pretty much the sum total of analysis warranted by this song of indulgent resilience.
 
-*Well my mother rolled over and died in Michigan*  
-*My dog got hit by a truck and I cried in Michigan*  
+*Well my mother rolled over and died in Michigan*
+*My dog got hit by a truck and I cried in Michigan*
 *I got drunk and puked up my guts in Michigan*
 
-*But I’m alright, I’m alright, I’m alright, I’m alright*  
+*But I’m alright, I’m alright, I’m alright, I’m alright*
 *And man I’m riding here tonight in Michigan*
 
-*I ran a race and came in dead last in Michigan*  
-*Yeah, I shot myself in the ass in Michigan*  
-*I was lookin’ for someplace to feel free*  
-*But they busted me for just being me*  
+*I ran a race and came in dead last in Michigan*
+*Yeah, I shot myself in the ass in Michigan*
+*I was lookin’ for someplace to feel free*
+*But they busted me for just being me*
 *In Michigan*
 
-*But alright, it’s alright, it’s alright, it’s alright*  
+*But alright, it’s alright, it’s alright, it’s alright*
 *And baby I’m riding high tonight in Michigan*
 
-*I ran into a little bad luck in Michigan*  
-*I met a woman and for seven days and seven nights all we did is fuck in Michigan*  
-*Baby I’m running late but you got here one hell of a state*  
+*I ran into a little bad luck in Michigan*
+*I met a woman and for seven days and seven nights all we did is fuck in Michigan*
+*Baby I’m running late but you got here one hell of a state*
 *In Michigan*
 
 The song went over so well that he brought it back for an encore two nights later. He closed the show with it, in fact, in a performance greatly improved by the gusto that comes from knowing you’ve written a surefire hit.
@@ -52,8 +52,8 @@ Bruce also made some minor lyrical adjustments that night. (It was Bob Dole who 
 Despite the roaring approval from the audience, Bruce never again brought out “In Michigan” for his Great Lakes State audiences. Perhaps it was just too easy. But before long he’d take his winning formula and produce a more enduring tribute song about [his own hometown](https://estreetshuffle.com/index.php/2018/12/03/roll-of-the-dice-freehold/).
 
 **In Michigan  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **First performed:** September 24, 1996 (Kalamazoo, MI)  
 **Last performed:** September 26, 1996 (Ann Arbor, MI)
 

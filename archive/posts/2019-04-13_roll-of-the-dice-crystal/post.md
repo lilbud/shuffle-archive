@@ -6,19 +6,19 @@ Crystal is the second song from that notebook. We may never know whether it was 
 
 It would be easy to dismiss this a throwaway song, but the lyrics function either literally (the object of a high school crush walking up to and past a boy too shy to speak to her) or metaphorically (an entire relationship in fast forward):
 
-*Hey there, Crystal, walking through your marble halls, I can’t see you at all*  
+*Hey there, Crystal, walking through your marble halls, I can’t see you at all*
 *Hey there, Crystal, I can hear you calling me near*
 
 *Now I hear you coming, I hear you coming to me, to me, hey Crystal*
 
-*Hey there, Crystal, you kissed the green summer leaves, you created the trees*  
+*Hey there, Crystal, you kissed the green summer leaves, you created the trees*
 *Hey there, Crystal, you’re as free as the sea, help bring life to me*
 
 *Now I hear you coming, I hear you coming to me, to me, hey Crystal*
 
 *I’m lost in the center of your resistance, united as one in your wisdom, hey Crystal*
 
-*Hey there, Crystal, I can feel you nearing to me*  
+*Hey there, Crystal, I can feel you nearing to me*
 *Hey there, Crystal, you’re fading away into a cloudy day*
 
 *Now I hear you coming, I hear you coming to me, to me, hey Crystal*
@@ -29,8 +29,8 @@ That central line (“I’m lost in the center of your resistance”) almost cer
 
 I would have liked to have seen what this would have developed into.
 
-**Crystal**  
-**Never recorded**  
+**Crystal**
+**Never recorded**
 **Performed:** Possibly May 1968 (Red Bank, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

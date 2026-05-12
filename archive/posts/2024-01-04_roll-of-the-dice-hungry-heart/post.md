@@ -46,14 +46,14 @@ With a gorgeously bright band performance and nostalgically lush harmonies, “H
 
 Bruce had something else in mind.
 
-*Got a wife and kids in Baltimore, Jack*  
+*Got a wife and kids in Baltimore, Jack*
 *I went out for a ride and I never went back*
 
 “Hungry Heart” is indeed about new love, but it’s a love that comes at an inconvenient time–and at a cost.
 
 We meet our narrator as he tells his tale to Jack (that’s us) from a neighboring barstool. The first thing we learn about him is that he abandoned his family with what sounds like blithe callousness. What we don’t yet realize is that he’s speaking metaphorically: his body went back, but his heart was endlessly wandering. He’s deeply unsatisfied but unaware of it; he roams without realizing he’s searching.
 
-*Like a river that don’t know where it’s flowing*  
+*Like a river that don’t know where it’s flowing*
 *I took a wrong turn and I just kept going*
 
 Although it’s not the only [song on the album to feature a river metaphor](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/), Bruce borrowed this particular one from [one of Bob Dylan’s cocktail napkins](https://estreetshuffle.com/index.php/2021/01/04/cover-me-ballad-of-easy-rider/).
@@ -64,18 +64,18 @@ Dylan scrawled “*The river flows, it flows to the sea/Wherever that river goes
 
 “The Ballad of Easy Rider” clearly informed “Hungry Heart.” (Bruce even [covered it once](https://estreetshuffle.com/index.php/2021/01/04/cover-me-ballad-of-easy-rider/) during the River Tour in 1981.) But while McGuinn’s narrator is a blank slate with no ties to bind him, Bruce’s character is anchored by commitment and obligation. He’s restless, though, and like Dylan’s river, he feels pulled… somewhere.
 
-*Everybody’s got a hungry heart*  
-*Everybody’s got a hungry heart*  
-*Lay down your money and you play your part*  
+*Everybody’s got a hungry heart*
+*Everybody’s got a hungry heart*
+*Lay down your money and you play your part*
 *Everybody’s got a hungry heart*
 
 The phrase *hungry heart* was coined by Alfred, Lord Tennyson in his 1842 epic poem *Ulysses,* a tale about growing old but refusing to surrender to unhappiness, restlessness, and monotony. Bruce’s use of it in the chorus is our first clue to his narrator’s motivation.
 
 The second verse lays it bare.
 
-*I met her in a Kingstown bar*  
-*We fell in love I knew it had to end*  
-*We took what we had and we ripped it apart*  
+*I met her in a Kingstown bar*
+*We fell in love I knew it had to end*
+*We took what we had and we ripped it apart*
 *Now here I am down in Kingstown again*
 
 He hasn’t wandered very far. Kingstown is only about a ninety-minute drive from Baltimore, but it’s far enough to provide a temporary escape. He stops at the right bar at the right time, and unexpectedly meets and falls for a woman who rouses his restless heart.
@@ -84,9 +84,9 @@ She’s married, too–or at least in a committed relationship–but the heart w
 
 Perhaps sensing Jack’s judgment, our protagonist defends his actions in the final verse:
 
-*Everybody needs a place to rest*  
-*Everybody wants to have a home*  
-*Don’t make no difference what nobody says*  
+*Everybody needs a place to rest*
+*Everybody wants to have a home*
+*Don’t make no difference what nobody says*
 *Ain’t nobody like to be alone*
 
 Everyone wants a home. We all want stability. But *nobody* wants to feel alone. That’s the crux of the song: What do you do when your sense of security requires the sacrifice of love?

@@ -12,17 +12,17 @@ Only the “phantom love” phrase appears in the lyrics themselves, though, so 
 
 Bruce also seems to be having trouble with the first verse, scratching out phrases, overwriting and adding parentheticals to a point that makes it almost impossible to determine what he intended as the final product:
 
-*Phantom love I will chase in exile down St. Christopher*  
-*Without armor or audience (fancy studs) till your beast lover (lover men) turn child*  
-*In search of a softer quieter lie*  
-*She moves in a ballerina suit tight and quick*  
+*Phantom love I will chase in exile down St. Christopher*
+*Without armor or audience (fancy studs) till your beast lover (lover men) turn child*
+*In search of a softer quieter lie*
+*She moves in a ballerina suit tight and quick*
 *I’m steppin’ in buckle boots slick and sharp*
 
 What we can make out appears to be the beginning of a would-be romance between lovers from different worlds. The second verse is clearer and more confident, though. The phrase “softer, quieter lie” appears to be a recurring theme, a nice notion for a pair that seem to *want* to be in love but can’t quite manage to get there.
 
-*Chase the little hood down through the fire wood*  
-*And we’ll walk together once again in search of that softer quieter lie*  
-*And I’ll really believe that I want you*  
+*Chase the little hood down through the fire wood*
+*And we’ll walk together once again in search of that softer quieter lie*
+*And I’ll really believe that I want you*
 *And you’ll really believe you need me*
 
 *Did I tell you, Bobby, I got me a phantom love*
@@ -32,8 +32,8 @@ That’s all we get. As far as we know, “Phantom Love (Just 16)” never evolv
 We’ll chalk this one up to a songwriter’s experiment, one of what must be countless hidden away in the pages of Bruce’s decades of notebooks.
 
 **Phantom Love (Just 16)  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

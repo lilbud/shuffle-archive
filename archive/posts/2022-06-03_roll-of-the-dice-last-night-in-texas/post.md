@@ -18,30 +18,30 @@ The fifty-plus-year-old soundboard recording above is astoundingly clear, allowi
 
 As for the lyrics… well, like much of the Steel Mill and early Bruce Springsteen Band material, they’re sort of beside the point. They’re also a bit hard to decipher, but the fine folks at Springsteenlyrics.com gave it a shot and managed to get most of them. Several lines are still tough to hear, but like “One Way Out,” there’s not meant to be much substance here. “Last Night in Texas” is much more of a traditional blues (albeit in a rock arrangement) than Williamson’s original.
 
-*I said it’s the last night in Texas*  
-*Movin’ down to San Antone*  
-*It’s my last night in Texas*  
-*Then I’m out of San Antone*  
-*???*  
+*I said it’s the last night in Texas*
+*Movin’ down to San Antone*
+*It’s my last night in Texas*
+*Then I’m out of San Antone*
+*???*
 *Going to leave old Texas and me alone*
 
-*Well in South Dakota*  
-*Well I met ???*  
-*South Dakota yeah yeah*  
-*???*  
-*???*  
+*Well in South Dakota*
+*Well I met ???*
+*South Dakota yeah yeah*
+*???*
+*???*
 *Spend the nights just ???*
 
-*Well I’m moving on the westbound*  
-*Moving on the westbound train*  
-*Said I’m moving on the westbound*  
-*I’m on the westbound train*  
-*Once I get out of this town*  
+*Well I’m moving on the westbound*
+*Moving on the westbound train*
+*Said I’m moving on the westbound*
+*I’m on the westbound train*
+*Once I get out of this town*
 *Gonna never come back to Texas again*
 
-*Last night in Texas and I’m on to San Antoine*  
-*Got no woman to treat me, no woman to call my own*  
-*???*  
+*Last night in Texas and I’m on to San Antoine*
+*Got no woman to treat me, no woman to call my own*
+*???*
 *God knows she won’t leave it alone*
 
 “Last Night in Texas” was hardly Bruce’s best or most original work (even for the time period) but it’s a fun rarity that was only captured on tape once.
@@ -49,8 +49,8 @@ As for the lyrics… well, like much of the Steel Mill and early Bruce Springste
 Summer’s only just beginning, though, and we’ll have some stronger Bruce Springsteen Band songs to check out soon.
 
 **Last Night in Texas  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **First performed:** May 15, 1971 (Union, NJ)  
 **Last performed:** May 15, 1971 (Union, NJ)
 

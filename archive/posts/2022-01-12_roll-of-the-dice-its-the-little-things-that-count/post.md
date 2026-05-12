@@ -8,37 +8,37 @@ Whatever the night’s story, Bruce told it with the barest hint of discretion, 
 
 Our tale starts innocently enough, although our narrator’s inner voice knows better from the outset.
 
-*She said we could just sleep together, there’d be nothing wrong*  
-*We could just hold each other with our clothes on*  
-*I went to answer, “I don’t think we should”*  
-*Then I heard a voice say, “yeah, I guess we could…”*  
-*She kissed me lightly and said “you know sometimes when you’re down*  
-*It’s the little things that count*  
-*It’s the little things that count*  
+*She said we could just sleep together, there’d be nothing wrong*
+*We could just hold each other with our clothes on*
+*I went to answer, “I don’t think we should”*
+*Then I heard a voice say, “yeah, I guess we could…”*
+*She kissed me lightly and said “you know sometimes when you’re down*
+*It’s the little things that count*
+*It’s the little things that count*
 *It’s the little things”*
 
 Small moments of human connection. That’s what it’s all about, right?
 
-*She said it was too late, and I shouldn’t try to drive*  
-*She unbuttoned my shirt and whispered “just close your eyes*  
-*Let me take your boots off, you know sometimes when your luck’s run out*  
-*It’s the little things that count*  
-*It’s the little things that count*  
+*She said it was too late, and I shouldn’t try to drive*
+*She unbuttoned my shirt and whispered “just close your eyes*
+*Let me take your boots off, you know sometimes when your luck’s run out*
+*It’s the little things that count*
+*It’s the little things that count*
 *It’s the little things”*
 
 Don’t drive drunk, kids. That’s the moral here.
 
-*Her dress rode lightly as she walked*  
+*Her dress rode lightly as she walked*
 *Then she pulled the covers down*
 
 Okay, so maybe our narrator’s gaze is distracted for a moment. It’s a little thing, a minor detail.
 
 Small kindnesses. Minor details. Little moments… that lead to bigger ones.
 
-*I was so dry, she held a water glass to my lips*  
-*Well the polish on her nail was chipped*  
-*She said she had a boyfriend I reminded her of*  
-*His hair was the same muddy brown*  
+*I was so dry, she held a water glass to my lips*
+*Well the polish on her nail was chipped*
+*She said she had a boyfriend I reminded her of*
+*His hair was the same muddy brown*
 *She stuck her tongue in my mouth*
 
 Because sometimes you just don’t know what you’re going to do until you do it.
@@ -49,9 +49,9 @@ Still, Bruce recorded it not once but *twice* in the studio–first in 1995 for 
 
 It may be little known, but it counts.
 
-**It’s the Little Things That Count**  
+**It’s the Little Things That Count**
 **Recorded:** 1995, 2004  
-**Never released**  
+**Never released**
 **First performed:** November 27, 1995 (Los Angeles, CA)  
 **Last performed:** February 20, 2003 (Somerville, MA)
 

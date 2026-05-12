@@ -6,42 +6,42 @@ The Bruce Springsteen Band debuted “Do It With a Feeling” only twelve days i
 
 It’s heavy, bordering on plodding (poor David Sancious is given little room to stretch) with spare lyrics that serve mostly to frame extended instrumental jams.
 
-*I wanna tell you something*  
-*Yeah now I’m talkin’ tonight on the Bible*  
-*I’m sure you all know just what it says*  
-*Well how ya can’t do this, and ya can’t do that*  
+*I wanna tell you something*
+*Yeah now I’m talkin’ tonight on the Bible*
+*I’m sure you all know just what it says*
+*Well how ya can’t do this, and ya can’t do that*
 *There’s no messin’ round, or playin’ about on Sunday*
 
-*Yeah now I got as much religion*  
-*As any man’s got, ain’t no doubt*  
-*But there’s a few commandments I’ve made up myself*  
+*Yeah now I got as much religion*
+*As any man’s got, ain’t no doubt*
+*But there’s a few commandments I’ve made up myself*
 *That the Lord don’t know nothin’ about*
 
-*That’s if you’re gonna do it*  
-*I said do it with a feeling*  
-*Do it till you hit the ceiling*  
-*Do it with a feeling*  
-*But if you’re gonna do it*  
+*That’s if you’re gonna do it*
+*I said do it with a feeling*
+*Do it till you hit the ceiling*
+*Do it with a feeling*
+*But if you’re gonna do it*
 *Ah, do it with a feeling*
 
-*Now once I thought I had a good woman*  
-*But Mama much to my surprise*  
-*She was playin’ around with each and every boy in town*  
+*Now once I thought I had a good woman*
+*But Mama much to my surprise*
+*She was playin’ around with each and every boy in town*
 *Lord but she could get around some*
 
-*Ah tell me can I get a witness*  
-*Cause I loved her just as much as I can*  
-*Well ??? that I’m her only man*  
-*???*  
-*Do it with a feeling*  
-*Do it till you’re rockin’ and reeling*  
-*Do it with a feeling*  
-*But if you’re gonna do it*  
+*Ah tell me can I get a witness*
+*Cause I loved her just as much as I can*
+*Well ??? that I’m her only man*
+*???*
+*Do it with a feeling*
+*Do it till you’re rockin’ and reeling*
+*Do it with a feeling*
+*But if you’re gonna do it*
 *Do it with a feeling*
 
-*Ah won’t you come with me Mama*  
-*I’m going, won’t you get on board*  
-*My train it leaves in an hour*  
+*Ah won’t you come with me Mama*
+*I’m going, won’t you get on board*
+*My train it leaves in an hour*
 *You gotta pay your witness to the Lord*
 
 If it sounds like I’m throwing shade at the Steel Mill sound, I’m not–songs like this were made for bands like that. “Do It With a Feeling” is just ill-suited to the light-on-its feet Bruce Springsteen Band.
@@ -50,9 +50,9 @@ Still, it strikes a theme so Springsteenian that it’s practically his mission 
 
 Even for a Bruce Springsteen Band fan like myself, “Do It With a Feeling” is forgettable, but it demonstrates that Bruce’s early band eras weren’t as distinct as we might otherwise think.
 
-**Do It With a Feeling**  
-**Never recorded**  
-**Never released**  
+**Do It With a Feeling**
+**Never recorded**
+**Never released**
 **First performed:** July 22, 1971 (South Amboy, NJ)  
 **Last performed:** October 23, 1971 (Richmond, VA)
 

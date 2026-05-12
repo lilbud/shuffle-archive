@@ -28,42 +28,42 @@ Bruce had also been going to therapy (as he disclosed and discussed publicly mer
 
 But the point itself warrants discussion.
 
-*You treated me hard and made my heart ache*  
-*I know you’re only human, and men they make mistakes*  
-*Your life with her turned to black*  
-*And now you want our love back*  
-*Well come into my arms and fall*  
+*You treated me hard and made my heart ache*
+*I know you’re only human, and men they make mistakes*
+*Your life with her turned to black*
+*And now you want our love back*
+*Well come into my arms and fall*
 *My lover man*
 
 Like I wrote earlier, that’s a *very* blasé take on infidelity. Here’s a woman who has been abandoned by her man. (And yes, I think we can safely assume the point-of-view character is a woman rather than a gay man, since the “other woman” is explicitly stated to be another woman (Let’s not argue about whether the Lover Man is bisexual; that would be overly specific.)) He ran off with another woman, and when that didn’t work out so well, he asked to be taken back.
 
 So what does our heroine do? She welcomes him back with open arms. Boys will be boys, after all.
 
-*Was it a gypsy’s curse or a hex sign*  
-*Or was it just that simple thing that led you from these arms of mine*  
-*Oh yes I’ve had the days*  
-*To grow used to your foolish ways*  
-*And what is it really after all*  
+*Was it a gypsy’s curse or a hex sign*
+*Or was it just that simple thing that led you from these arms of mine*
+*Oh yes I’ve had the days*
+*To grow used to your foolish ways*
+*And what is it really after all*
 *My lover man*
 
 Did he fall under a nefarious spell? Nah, it was just sex, “that simple thing.” But hey, she’s used to it, c’mon home.
 
-*I can see the change in your eyes*  
-*There’s no need to apologize*  
-*We stood at the wishing well*  
-*Our dreams like coins into the water fell*  
-*The water so cold and black*  
+*I can see the change in your eyes*
+*There’s no need to apologize*
+*We stood at the wishing well*
+*Our dreams like coins into the water fell*
+*The water so cold and black*
 *There was no going back*
 
 With this verse, we’re not just in similar musical territory as “Brilliant Disguise’ — we’re now mirroring its lyrics as well, standing at the wishing well instead of the altar. And when she looks in his eyes, oh yeah, that’s him, baby. If he’s in disguise, it must be pretty dang brilliant, because she buys it completely.
 
 She apparently also hold herself at least partly accountable for their circumstances:
 
-*I don’t mean to cause you hurt or cause you pain*  
-*Life is short and love’s a dirty game*  
-*Now there’s no need for our game to end*  
-*Come close and we’ll begin*  
-*To find our beautiful selves again*  
+*I don’t mean to cause you hurt or cause you pain*
+*Life is short and love’s a dirty game*
+*Now there’s no need for our game to end*
+*Come close and we’ll begin*
+*To find our beautiful selves again*
 *My lover man*
 
 Now, I realize I may be coming across as judgmental. I’m really not. Any relationship is complicated, and no one outside of it has any basis to judge those within it. I’m surprised only by the lightness with which the protagonist treats the matter, not by her decision, actions, or outcome.

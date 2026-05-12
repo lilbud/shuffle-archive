@@ -14,18 +14,18 @@ The band turns in such a confident, powerful performance that we almost don’t 
 
 That’s okay, because like much of Bruce’s material from that period, the lyrics are more in service of the music rather than any particular message. “Jeannie, I Want to Thank You” places us in the aftermath of a break-up, and Bruce is definitely the dumped one.
 
-*Jeannie I want to thank you*  
-*For the ride ’cause it was fun*  
-*I’d like to go around another turn*  
-*But that ride is done*  
-*The game it has been won by you*  
+*Jeannie I want to thank you*
+*For the ride ’cause it was fun*
+*I’d like to go around another turn*
+*But that ride is done*
+*The game it has been won by you*
 *Whoa darling, darling, darling don’t go*
 
-*Sometimes I think I was such a fool*  
-*For doing the things I done*  
-*But the consequences are dearly felt*  
-*As I stand alone*  
-*A man without a home or you*  
+*Sometimes I think I was such a fool*
+*For doing the things I done*
+*But the consequences are dearly felt*
+*As I stand alone*
+*A man without a home or you*
 *And darling, darling, darling come home*
 
 We’re hard-pressed to determine how seriously Bruce took this relationship. Clearly he didn’t want it to end, and obviously he wants her back–but he also strikes a cavalier tone with both the lyrics and music, characterizing their relationship as a fun ride, and admitting regret for his actions only sometimes.
@@ -35,8 +35,8 @@ It’s probably best not to dwell on the song’s depth, however, any more than 
 But oh, that break–it’s one of my favorite Springsteen moments from the Steel Mill era.
 
 **Jeannie, I Want to Thank You  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **First performed:** January 13, 1970 (San Francisco, CA)  
 **Last performed:** June 13, 1970 (Bricktown, NJ)
 

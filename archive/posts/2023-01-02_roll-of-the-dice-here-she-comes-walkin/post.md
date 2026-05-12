@@ -10,21 +10,21 @@ In fact, not only is it a separate song, it actually pre-dates “I Wanna Marry 
 
 It’s a song for anyone who ever fell instantly and fleetingly and love with someone they’d never seen before until they crossed paths as strangers on the street. We’ve all been there, and we’ve all dreamt this dream even if we’d never heard the song before.
 
-*Well sometimes at night when I lie in bed*  
-*I still see her face running ’round my head*  
-*Well sometimes at night when I lie in bed*  
+*Well sometimes at night when I lie in bed*
+*I still see her face running ’round my head*
+*Well sometimes at night when I lie in bed*
 *I still see her face running ’round my head*
 
-*Here she comes walking down the street*  
-*Here she comes walking down the street*  
-*She’s looking so fine, she’s looking so sweet*  
-*Yes she’s looking so fine, she’s looking so sweet*  
-*And someday I’m gonna make her mine, I know I will*  
+*Here she comes walking down the street*
+*Here she comes walking down the street*
+*She’s looking so fine, she’s looking so sweet*
+*Yes she’s looking so fine, she’s looking so sweet*
+*And someday I’m gonna make her mine, I know I will*
 *Someday I’m gonna make her mine, I know I will*
 
-*Someday she’s gonna stop instead of walking by*  
-*She’s gonna stop now instead of walking by*  
-*She’s gonna stop instead of walking on by*  
+*Someday she’s gonna stop instead of walking by*
+*She’s gonna stop now instead of walking by*
+*She’s gonna stop instead of walking on by*
 *She’s gonna stop…*
 
 The lyrics are simple, as most great doo-wop lyrics are. But that’s okay–the secret to songs like these aren’t in the lyrics or even the music but in the delivery. It’s about soaring vocals, gorgeous harmonies, and passionate emoting.
@@ -46,8 +46,8 @@ How much either live version of “Here She Comes Walkin'” has in common with 
 Let’s hope.
 
 **Here She Comes Walkin’  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **First performed:** October 11, 1980 (Chicago, IL)  
 **Last performed:** July 28, 2016 (Oslo, Norway)
 

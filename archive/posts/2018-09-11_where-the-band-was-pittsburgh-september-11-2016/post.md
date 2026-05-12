@@ -60,9 +60,9 @@ Bruce wrote “Long Walk Home” the night that the Democrats retook Congress in
 
 Bruce has a songwriting technique that he relies on frequently: in any given song, there’s typically one or two lines that essentially *is* the song–the rest of the lyrics are just color. In this song, it’s the verse:
 
-*Son, we’re lucky in this town, It’s a beautiful place to be born*  
-*It just wraps its arms around you, nobody crowds you and nobody goes it alone*  
-*That flag flyin’ over the courthouse means certain things are set in stone:*  
+*Son, we’re lucky in this town, It’s a beautiful place to be born*
+*It just wraps its arms around you, nobody crowds you and nobody goes it alone*
+*That flag flyin’ over the courthouse means certain things are set in stone:*
 *Who we are, what we’ll do and what we won’t*
 
 If there was any song to leave us with on a September 11th remembrance, that was the one.

@@ -8,10 +8,10 @@ John took Bruce up on his offer, and Bruce contributed his harmony vocals to “
 
 The song is a note to the narrator’s ex-girlfriend’s new boyfriend, and the great first verse says it all:
 
-*I seen my old lady’s boyfriend*  
-*He don’t look nothing like me*  
-*Except for a bit of confusion*  
-*Same kind she laid on me* 
+*I seen my old lady’s boyfriend*
+*He don’t look nothing like me*
+*Except for a bit of confusion*
+*Same kind she laid on me*
 
 It’s clever and angry and funny and vulnerable and a great piece of songwriting. Even without Bruce’s participation it would have been a standout track.
 

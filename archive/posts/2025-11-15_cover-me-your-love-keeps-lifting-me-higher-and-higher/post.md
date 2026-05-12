@@ -44,7 +44,7 @@ That was an inspired request, and an inspired performance–and Bruce knew it, b
 
 “Higher and Higher” was a standard encore for the remainder of the Working on a Dream Tour, and it’s popped up a couple of times since, the last time in 2015. But even though Bruce gave it a rest for his last tour, something tells this time he hasn’t forgotten about it. We’ll see it again.
 
-**(Your Love Keeps Lifting Me) Higher and Higher**  
+**(Your Love Keeps Lifting Me) Higher and Higher**
 **First performed:** March 24, 1977 (Boston, MA)  
 **Last performed:** January 17, 2015 (Asbury Park, NJ)
 

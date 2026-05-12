@@ -47,17 +47,17 @@ The second song went on to become the album’s most popular song besides its ti
 
 “Youngstown” is based on the story of Joe Marshall, a World War II veteran that Maharidge and Williamson met and interviewed during their two-year odyssey, and his son who followed in his footsteps in Vietnam. Wounded in battle in Normandy, the elder Marshall returned to his Ohio home and found work at the Ohio Steel Works.
 
-*Here in northeast Ohio, back in 1803*  
-*James and Danny Heaton found the ore that was lining Yellow Creek*  
-*They built a blast furnace here along the shore*  
+*Here in northeast Ohio, back in 1803*
+*James and Danny Heaton found the ore that was lining Yellow Creek*
+*They built a blast furnace here along the shore*
 *And they made the cannon balls that helped the Union win the war*
 
 At the time, the steel industry’s Ohio roots were firmly entrenched. In 1802 (Springsteen would fudge the date in his song by a year for rhyming purposes), businessmen James and Daniel Heaton discovered iron ore in Yellow Creek near a town called Youngstown. Realizing the economic potential, the Heatons built a blast furnace and kick-started a new industry manufacturing armaments for the Union Army during the Civil War.
 
 When the war ended, demand for steel only grew. Bridges, buildings, ships, and cars… America was modernizing and the steel industry was at the heart of it. Youngstown steel found its way across America and the world, and the small Ohio town established itself as the nation’s leading producer.
 
-*Here in Youngstown, here in Youngstown*  
-*My sweet Jenny I’m sinking down*  
+*Here in Youngstown, here in Youngstown*
+*My sweet Jenny I’m sinking down*
 *Here darling in Youngstown*
 
 Although we’re accustomed to glossing over female names in Springsteen’s songs–they rarely seem to hold significance–in the case of “Youngstown,” it’s essential to understand why his narrator sings to Jenny.
@@ -76,9 +76,9 @@ The Jenny furnace was demolished on January 29, 1997. Bruce got to see it in per
 
 Bruce told Dale he really wanted to see Jenny with his own eyes, but Maharidge wasn’t sure that was wise. “I said, ‘Look, Cargill owns it. They're arresting everybody.’ I knew somebody who was arrested a month before, sneaking in. He said, ‘Let's go.’ So we snuck into the Jenny blast furnace, spent an hour and a half in there talking about politics and life. And we made it out without getting arrested.”
 
-*Well my daddy worked the furnaces, kept ’em hotter than hell*  
-*I come home from ‘Nam worked my way to scarfer, a job that’d suit the devil as well*  
-*Well taconite coke and limestone fed my children and made my pay*  
+*Well my daddy worked the furnaces, kept ’em hotter than hell*
+*I come home from ‘Nam worked my way to scarfer, a job that’d suit the devil as well*
+*Well taconite coke and limestone fed my children and made my pay*
 *Them smokestacks reaching like the arms of God into a beautiful sky of soot and clay*
 
 “Youngstown” is a multi-generational song, told from the perspective of the son. Joe Marshall Jr. followed in his father’s footsteps in both military and civilian life. He served in Vietnam while his father worked on the furnaces under brutal conditions. Upon discharge, the younger Marshall joined his father in the mills as a stationary engineer.
@@ -91,9 +91,9 @@ Although Youngstown steel found its way into all sorts of products and places, i
 
 The Ohio Works finally closed in 1980, and both Marshalls found themselves unemployed. The plant was demolished not long after, and in their book, Maharidge and Williamson walk through the rubble with father and son. Surveying the metaphorical wreckage, Marshall Sr. makes a rueful observation: “What Hitler couldn’t do, they did it for him.” Bruce used that line almost verbatim in his song.
 
-*Well my daddy come on the Ohio works when he come home from World War Two*  
-*Now the yard’s just scrap and rubble, he said “Them big boys did what Hitler couldn’t do.”*  
-*Yeah these mills they built the tanks and bombs that won this country’s wars*  
+*Well my daddy come on the Ohio works when he come home from World War Two*
+*Now the yard’s just scrap and rubble, he said “Them big boys did what Hitler couldn’t do.”*
+*Yeah these mills they built the tanks and bombs that won this country’s wars*
 *We sent our sons to Korea and Vietnam, now we’re wondering what they were dying for*
 
 [Watch Video Highlight](https://videopress.com/embed/I1OlqUWC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
@@ -106,9 +106,9 @@ The societal and economic destruction of the once proud town shook Springsteen t
 
 “I’ve had an enormous amount of luck and fortune and have worked hard, but that other thing… I don’t know. It never feels that far away. I think it’s as far away as the guy next to you. It’s not that far.”
 
-*From the Monongahela valley to the Mesabi iron range*  
-*To the coal mines of Appalachia, the story’s always the same*  
-*Seven hundred tons of metal a day, now sir you tell me the world’s changed*  
+*From the Monongahela valley to the Mesabi iron range*
+*To the coal mines of Appalachia, the story’s always the same*
+*Seven hundred tons of metal a day, now sir you tell me the world’s changed*
 *Once I made you rich enough, rich enough to forget my name*
 
 The destruction wasn’t limited to Youngstown. Across the industry, steel companies closed plants and abandoned their employees. From Pennsylvania’s Monongahela Valley to the Mesabi mining district in Minnesota to the Appalachian coal mines, the modernization of America left human wreckage in its wake. In 1953, there were 650,000 American steelworkers. By 2015, there were only 142,000.
@@ -119,7 +119,7 @@ It may be unfair to point fingers at employers for caving to forces beyond their
 
 Like so many of their neighbors, Marshall and son found themselves unable to support themselves or their families. All they wanted was a chance to do honest work, even difficult and dangerous work. As our narrator says in the song’s final words, he belongs in the furnaces and scarfing pits. He’s not cut out for easy work; he was made for hardened steel.
 
-*When I die I don’t want no part of heaven, I would not do heaven’s work well*  
+*When I die I don’t want no part of heaven, I would not do heaven’s work well*
 *I pray the devil comes and takes me to stand in the fiery furnaces of hell*
 
 When he dies, he tells us, let him go to hell. It can’t be any hotter then his previous working conditions, and it can’t be any worse than his current living conditions. At least it would feel familiar.

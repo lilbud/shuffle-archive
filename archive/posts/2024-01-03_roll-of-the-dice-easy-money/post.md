@@ -20,30 +20,30 @@ The music helps, too: Bruce arranged “Easy Money” as sort of an Irish slide/
 
 The lyrical similarities to “Atlantic City” are almost certainly intentional–their familiarity adds extra punch for fans familiar with Bruce’s earlier anti-hero.
 
-*You put on your coat, I’ll put on my hat*  
-*You put out the dog, I’ll put out the cat*  
-*You put on your red dress for me tonight, honey*  
+*You put on your coat, I’ll put on my hat*
+*You put out the dog, I’ll put out the cat*
+*You put on your red dress for me tonight, honey*
 *We’re going on the town now looking for easy money*
 
 But it’s the second verse that’s the heart of the song:
 
-*There’s nothing to it mister, you won’t hear a sound*  
-*When your whole world comes tumbling down*  
-*And all them fat cats they just think it’s funny*  
+*There’s nothing to it mister, you won’t hear a sound*
+*When your whole world comes tumbling down*
+*And all them fat cats they just think it’s funny*
 *I’m going on the town now looking for easy money*
 
 Bruce’s lyrics are operating on two levels here. Our narrator both assures and warns his victim that he won’t see it coming when his life is destroyed by the actions of a stranger. The comparison to the societal havoc wreaked by reckless high finance is obvious.
 
 The rest of the song sees the metaphor through: our narrator has it made. That his easy money comes at a cost to others is something that doesn’t trouble him.
 
-*I got a Smith & Wesson .38*  
-*I got a hellfire burning and I got me a taste*  
-*Got me a date on the far shore where it’s bright and sunny*  
+*I got a Smith & Wesson .38*
+*I got a hellfire burning and I got me a taste*
+*Got me a date on the far shore where it’s bright and sunny*
 *I’m going on the town tonight looking for easy money*
 
-*You put on your coat, I’ll put on my hat*  
-*You put out the dog, I’ll put out the cat*  
-*You put on your red dress, you’re looking real good, honey*  
+*You put on your coat, I’ll put on my hat*
+*You put out the dog, I’ll put out the cat*
+*You put on your red dress, you’re looking real good, honey*
 *We’re going on the town now looking for easy money*
 
 Both “Atlantic City” and “Easy Money” are products of their time. The former was written when America’s economic inequality was just beginning to accelerate; the latter was written at its peak.
@@ -61,7 +61,7 @@ That’s too bad, because “Easy Money” was both a crowd- and artist-pleaser,
 
 [Watch on Youtube: Easy Money - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=7lzRDbg_6IQ)
 
-**Easy Money**  
+**Easy Money**
 **Recorded:** 2011  
 **Released:** *Wrecking Ball* (2011)  
 **First performed:** March 18, 2012 (Atlanta, GA)  

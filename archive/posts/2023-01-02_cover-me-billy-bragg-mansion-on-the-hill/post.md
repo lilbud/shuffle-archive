@@ -1,4 +1,4 @@
-It’s been a while since we’ve featured a cover from the wonderful 2003 Springsteen tribute compilation, *Light of Day.* 
+It’s been a while since we’ve featured a cover from the wonderful 2003 Springsteen tribute compilation, *Light of Day.*
 
 *Light of Day* features a host of names and voices that will be familiar to anyone who’s attended the Asbury Park music festival that goes by the same name, each covering a tune from the Springsteen songbook–some well-known, others obscure.
 

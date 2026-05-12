@@ -16,44 +16,44 @@ It may have been inspired by *Inherit the Wind–*a play, film, and TV movie tha
 
 The Scopes Monkey Trial has about as much to do with understanding “Part Man, Part Monkey” as Mary’s dress does to grokking “Thunder Road.”
 
-“Part Man, Part Monkey” isn’t societal commentary; it’s basically a sex romp. Bruce settles the question of whether man evolved from the monkey by answering: *what do you mean by “evolved?” I’m still a primal* *beast that’ll sleep with anything in a skirt.* 
+“Part Man, Part Monkey” isn’t societal commentary; it’s basically a sex romp. Bruce settles the question of whether man evolved from the monkey by answering: *what do you mean by “evolved?” I’m still a primal* *beast that’ll sleep with anything in a skirt.*
 
 Let’s start with the first verse, the one that invites all the Scopes comparisons. (To be fair, Bruce almost always introduced the song with a direct reference to it.)
 
-*They prosecuted some poor sucker in these United States*  
-*For teaching that man descended from the apes*  
-*They coulda settled that case without a fuss or fight*  
-*If they’d seen me chasing you, sugar, through the jungle last night*  
-*They’d a-called in that jury and a one two three, said*  
+*They prosecuted some poor sucker in these United States*
+*For teaching that man descended from the apes*
+*They coulda settled that case without a fuss or fight*
+*If they’d seen me chasing you, sugar, through the jungle last night*
+*They’d a-called in that jury and a one two three, said*
 *Part man, part monkey, definitely*
 
 *Why waste time with a trial,* Bruce argues. *I’m living proof that men are still part simian.*
 
 With the second verse, we leave the trial to the pages of history, as we learn that while our narrator may be single-minded, he’s not exactly monogamous.
 
-*Well the church bell rings from the corner steeple*  
-*Man in a monkey suit swears he’ll do no evil*  
-*Offers his lover’s prayer but his soul lies*  
-*Dark and drifting and unsatisfied*  
-*Well hey bartender tell me what do you see*  
+*Well the church bell rings from the corner steeple*
+*Man in a monkey suit swears he’ll do no evil*
+*Offers his lover’s prayer but his soul lies*
+*Dark and drifting and unsatisfied*
+*Well hey bartender tell me what do you see*
 *Part man, part monkey, looks like to me*
 
 Even on his wedding day, our narrator recognizes deep down that he’s not a paragon of fidelity. It’s only a matter of time before he strays, and he attributes that to millions of years of evolutionary biological urges. Let’s pause for a moment to acknowledge the clever “monkey suit” reference–it serves both as common idiom for a tuxedo and as ironic humor (because he’s more accurately a monkey in a man suit).
 
 The bridge sets up some romantic imagery, but we quickly learn that romance isn’t really what’s on his mind.
 
-*Well the night is dark, the moon is full*  
-*The flowers of romance exert their pull*  
-*We talk awhile, my fingers slip*  
+*Well the night is dark, the moon is full*
+*The flowers of romance exert their pull*
+*We talk awhile, my fingers slip*
 *I’m hard and crackling like a whip*
 
 Bruce wraps up the song by returning to the root of the debate: was the first man created divinely or via evolution? Our narrator enters himself into the evidentiary record as Exhibit A.
 
-*Well did God make man in a breath of holy fire*  
-*Or did he crawl on up out of the muck and mire*  
-*Well the man on the street believes what the bible tells him so*  
-*But you can ask me, mister, because I know*  
-*Tell them soul-sucking preachers to come on down and see*  
+*Well did God make man in a breath of holy fire*
+*Or did he crawl on up out of the muck and mire*
+*Well the man on the street believes what the bible tells him so*
+*But you can ask me, mister, because I know*
+*Tell them soul-sucking preachers to come on down and see*
 *Part man, part monkey, baby that’s me*
 
 The irony of “Part Man, Part Monkey” is that it’s a slight song, yet it tends to get more credit than it deserves for having substance.

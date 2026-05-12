@@ -8,9 +8,9 @@ Its origins go back even further, however. In April 1969, Bruce published his ve
 
 That third verse appears in “Lady Walking Down by the River” in altered form as its second verse:
 
-*Young men lovers quench their thirst for sunlight*  
-*Wet their tongues in a forestland stream*  
-*Bathe in the splendor of their bodies*  
+*Young men lovers quench their thirst for sunlight*
+*Wet their tongues in a forestland stream*
+*Bathe in the splendor of their bodies*
 *And they sleep ‘neath the silent trees*
 
 As for the rest of the song–let’s just say this one is about the music, not the lyrics–specifically the heavy riff and extended guitar jam that carries us along for most of the song’s ten-plus minutes. Lyrically, the song is just a painted picture.

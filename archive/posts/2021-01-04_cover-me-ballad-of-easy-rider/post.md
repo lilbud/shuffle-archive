@@ -4,8 +4,8 @@ The story goes something like this: Peter Fonda wanted to use a Bob Dylan song f
 
 After seeing the movie, however, Dylan wanted nothing to do with the project for reasons that vary depending on whose account you read. After repeated cajoling from Fonda, Dylan scratched out a few lines on a napkin:
 
-*The river flows, it flows to the sea*  
-*Wherever that river goes, that's where I want to be*  
+*The river flows, it flows to the sea*
+*Wherever that river goes, that's where I want to be*
 *Flow, river, flow*
 
 Dylan gave the napkin to Fonda along with his blessing for another songwriter to take it from there.

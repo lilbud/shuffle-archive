@@ -6,6 +6,6 @@ As always, Dylan’s original for comparison:
 
 [Watch on Youtube: Bob Dylan - Just Like a Woman (Official Audio)](https://www.youtube.com/watch?v=dRLXZVojdhQ)
 
-**Just Like a Woman**  
+**Just Like a Woman**
 **First performed:** March 4, 1988 (Chapel Hill, NC – soundcheck only)  
 **Last performed:** March 23, 1988 (Atlanta, GA – soundcheck only)

@@ -10,19 +10,19 @@ It shows.
 
 The lyrics are, shall we say, basic–although the song goes on for about two minutes, the lyrics are comprised of a total of nine unique lines that repeat at least once.*
 
-*Baby I don’t need your loving no more*  
-*Baby I don’t need your kisses no more*  
-*Baby I don’t need your tender touch*  
+*Baby I don’t need your loving no more*
+*Baby I don’t need your kisses no more*
+*Baby I don’t need your tender touch*
 *Baby I*
 
-*Baby I don’t need your tender kiss*  
-*Baby I you will never miss*  
-*Baby I don’t want you ’round me no more*  
+*Baby I don’t need your tender kiss*
+*Baby I you will never miss*
+*Baby I don’t want you ’round me no more*
 *Baby I*
 
-*‘Cause I got someone new*  
-*Somebody better than you*  
-*Somebody who’ll be true*  
+*‘Cause I got someone new*
+*Somebody better than you*
+*Somebody who’ll be true*
 *Somebody better than you*
 
 Given their youth and the fact that the song was written minutes before it was recorded, we’ll forgive the boys that clumsy, wince-inducing “Baby I you will never miss” and their inability come up with a fourth line for the chorus.
@@ -39,7 +39,7 @@ Although it’s believed that The Castiles performed the song often over the nex
 
 [Watch Video Highlight](https://videopress.com/embed/UmOLrDkm?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Baby I**  
+**Baby I**
 **Recorded:** May 18, 1966  
 **Released:** *Chapter & Verse* (2016)  
 **First performed:** November 2019 (Colts Neck, NJ)  

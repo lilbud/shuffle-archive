@@ -20,8 +20,8 @@ Now, the lyrics:
 
 Pretty much doesn’t matter what comes after that–the line every man most fears hearing has already been said, and we can already feel the knife. But the second verse twists it:
 
-*Well now you say that you’ve made up your mind*  
-*It’s been such a long, long time since it’s been good with us*  
+*Well now you say that you’ve made up your mind*
+*It’s been such a long, long time since it’s been good with us*
 *And that somewhere back along the line you lost your love and I lost your trust*
 
 You can just imagine being on the receiving end of that conversation. Heck, maybe at one time you were.
@@ -32,15 +32,15 @@ Bruce is getting a little dramatic now, but that’s what lost love will do to y
 
 But the lyrical brilliance of the song is in the final verse and in the chorus:
 
-*Now baby I don’t wanna be just another useless memory holding you tight*  
-*Or just some other ghost out on the street to whom you stop*  
-*And politely speak when you pass on by*  
-*Vanishing into the night*  
+*Now baby I don’t wanna be just another useless memory holding you tight*
+*Or just some other ghost out on the street to whom you stop*
+*And politely speak when you pass on by*
+*Vanishing into the night*
 *Left to vanish into the night*
 
-*I don’t wanna fade away*  
-*I don’t wanna fade away*  
-*Tell me what can I do, what can I say*  
+*I don’t wanna fade away*
+*I don’t wanna fade away*
+*Tell me what can I do, what can I say*
 *‘Cause darlin’ I don’t wanna fade away*
 
 Just like the first line presses a primal fear button, that last verse, chorus, and in fact the entire conceit of the song exploits an existential fear of irrelevance: that we might someday not matter to the one who matters most. Better to be hated than to be forgotten. The narrator fears his disappearance from her life and attention. It’s a piercing insight from an artist who at the time was still growing in his songwriting maturity.

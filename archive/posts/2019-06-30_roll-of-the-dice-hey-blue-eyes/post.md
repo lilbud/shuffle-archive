@@ -14,12 +14,12 @@ On “Hey Blue Eyes,” Bruce tosses subtlety out the window and yet somehow *st
 
 So let’s grant it:
 
-*They’re holding a committee of treason and lies*  
-*Doublespeak and sedition, then somebody dies*  
-*From the hill, the smell of lilacs and the repeat of guns*  
+*They’re holding a committee of treason and lies*
+*Doublespeak and sedition, then somebody dies*
+*From the hill, the smell of lilacs and the repeat of guns*
 *She closes the window, draws the blinds, her first touch sucks the air from my lungs*
 
-*Hey blue eyes, what you doing tonight*  
+*Hey blue eyes, what you doing tonight*
 *Hey blue eyes, yeah it’s alright*
 
 Bruce often plainly establishes his scene and spells out his message at the outset of a song, but not here. On first listen, the first verse of “Hey Blue Eyes” is deliberately unclear. We could be listening to a dark romance–it certainly wouldn’t be the first time Bruce used such imagery in doing so. (“[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” has a similarly unsettling and threatening first verse and chorus.)
@@ -30,14 +30,14 @@ And in fact, we could continue to hear “Hey Blue Eyes” through this lens, an
 
 But even on first listen, there’s the sense that Bruce is leading us toward something else.
 
-*She says, “In this house we’ve abandoned history, in this house there are no laws*  
-*Just the false taste of paradise and then the fall*  
-*In this house the guilty go unpunished, blood and silence prevail*  
+*She says, “In this house we’ve abandoned history, in this house there are no laws*
+*Just the false taste of paradise and then the fall*
+*In this house the guilty go unpunished, blood and silence prevail*
 *Here the dead remain nameless, the nameless remain jailed”*
 
-*“In this house there’s just the dust of bones, the basement’s filled with lye*  
-*In this house our sons and daughters are spilled like wine*  
-*So come close my pretty darling and let me feel your disease*  
+*“In this house there’s just the dust of bones, the basement’s filled with lye*
+*In this house our sons and daughters are spilled like wine*
+*So come close my pretty darling and let me feel your disease*
 *Tonight I’ll have you naked and crawling at the end of my leash”*
 
 By the end of these next two verses, we’re pretty sure that “Hey Blue Eyes” is about more than sadomasochism.
@@ -62,9 +62,9 @@ And suddenly, we can go back and re-listen to the song in an even harsher light:
 
 In the final verse, Bruce ties a brutally effective bow around all three readings of the song:
 
-*She says, “In this house it’s so easy to set a world on fire*  
-*All you need is a name, the money, and a soul full of reckless desire*  
-*Upstairs the landlord is dining here with his criminal friends*  
+*She says, “In this house it’s so easy to set a world on fire*
+*All you need is a name, the money, and a soul full of reckless desire*
+*Upstairs the landlord is dining here with his criminal friends*
 *Don’t worry, they’ll have the bags packed and be long gone before the real fucking begins”*
 
 Bruce intentionally uses the word “fucking” here, because he knows the effect it will have on us, his listeners. It jolts us, because we’re used to more artful euphemisms in his work. This is Bruce setting an alarm clock, telling us that it’s time to wake up from the spell of the song, time to go back and re-listen to the song through a coarser, uglier lens. And in doing so, we’re even more unsure:
@@ -79,12 +79,12 @@ The answer is yes. Yes to all of it.
 
 And as the song trails the final chorus, we’re deeply unsettled by the realization that the chorus is our inner national dialogue: What *are* we doing? And yeah, it *has* to be alright. Because if it’s not, what does that make us?
 
-*Hey blue eyes, yeah, what you doing tonight*  
-*Hey blue eyes, hey it’s alright*  
-*Hey blue eyes, what you doing tonight*  
+*Hey blue eyes, yeah, what you doing tonight*
+*Hey blue eyes, hey it’s alright*
+*Hey blue eyes, what you doing tonight*
 *Hey blue eyes, yeah it’s alright*
 
-**Hey Blue Eyes**  
+**Hey Blue Eyes**
 **Recorded:** Unknown, but likely 2007-ish  
 **Released:** *American Beauty* (2014)  
 **Never performed**

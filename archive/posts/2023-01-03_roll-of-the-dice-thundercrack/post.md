@@ -22,64 +22,64 @@ Over the next few months, Bruce and the band tightened and heightened their perf
 
 Lyrically, though, “Thundercrack” never evolved. It was fully formed from its first appearance, and for a song so epic in length and varied in musical style, it’s remarkably light in substance. It’s a twelve-minute recitation about an ex-lover with some serious moves on the dance floor, and it’s pretty clear that the dance floor is a metaphor for the bedroom.
 
-*Her brains they rattle and her bones they shake*  
-*Oh she’s an angel from the Innerlake*  
-*Her brains they rattle and her bones they shake*  
-*Oh she’s an angel from the Innerlake*  
-*Don’t dance with her Henry, don’t you dance with her Jake*  
-*Oh she’s an angel from the Innerlake*  
-*She gives me all the loving that a good man can take*  
+*Her brains they rattle and her bones they shake*
+*Oh she’s an angel from the Innerlake*
+*Her brains they rattle and her bones they shake*
+*Oh she’s an angel from the Innerlake*
+*Don’t dance with her Henry, don’t you dance with her Jake*
+*Oh she’s an angel from the Innerlake*
+*She gives me all the loving that a good man can take*
 *Oh she’s an angel from the Innerlake*
 
-*Thundercrack! Baby’s back*  
-*This time she’ll tell me how she really feels*  
-*Bring me down to her lightning shack*  
-*You can watch my partner reeling*  
-*She moves up, she moves back*  
-*Out on the floor there just is no one cleaner*  
-*She does this thing she calls the “Jump back Jack”*  
+*Thundercrack! Baby’s back*
+*This time she’ll tell me how she really feels*
+*Bring me down to her lightning shack*
+*You can watch my partner reeling*
+*She moves up, she moves back*
+*Out on the floor there just is no one cleaner*
+*She does this thing she calls the “Jump back Jack”*
 *She’s got the heart of a ballerina*
 
-*Straight from the Bronx, hung off the line*  
-*Still she slides, she slops, she bops, she bumps, she grinds*  
-*Even them dance hall hacks from the west side of the tracks move in close to catch her timing*  
-*She moves up, she moves back*  
-*Out on the floor there just is no one cleaner*  
-*She does this thing she calls the “Jump back Jack”*  
+*Straight from the Bronx, hung off the line*
+*Still she slides, she slops, she bops, she bumps, she grinds*
+*Even them dance hall hacks from the west side of the tracks move in close to catch her timing*
+*She moves up, she moves back*
+*Out on the floor there just is no one cleaner*
+*She does this thing she calls the “Jump back Jack”*
 *She’s got the heart of a ballerina*
 
-*Oh, she ain’t no little girl, no, she ain’t got no curls*  
-*Her hair ain’t brown and her eyes ain’t either*  
-*Round and round and round and round and round and round and round and round*  
+*Oh, she ain’t no little girl, no, she ain’t got no curls*
+*Her hair ain’t brown and her eyes ain’t either*
+*Round and round and round and round and round and round and round and round*
 *Round and round and round and round and round and round and round and round*
 
-*My heart’s wood, she’s a carpenter*  
-*She’s an angel in the night, what she does is alright*  
-*Dance with me, partner*  
-*Dance with me, partner*  
-*Dance with me, partner*  
-*‘Til the dawn*  
+*My heart’s wood, she’s a carpenter*
+*She’s an angel in the night, what she does is alright*
+*Dance with me, partner*
+*Dance with me, partner*
+*Dance with me, partner*
+*‘Til the dawn*
 *Baby, all night long*
 
-*Thundercrack! Baby’s back*  
-*This time she’ll tell me how she really feels*  
-*Brings me down to her lightning shack*  
-*You can watch my partner reeling*  
-*She moves up, she moves back*  
-*Out on the floor there just is no one cleaner*  
-*She does this thing she calls the “jump back jack”*  
+*Thundercrack! Baby’s back*
+*This time she’ll tell me how she really feels*
+*Brings me down to her lightning shack*
+*You can watch my partner reeling*
+*She moves up, she moves back*
+*Out on the floor there just is no one cleaner*
+*She does this thing she calls the “jump back jack”*
 *She’s got the heart of a ballerina*
 
-*Oh, she ain’t no little girl, no, she ain’t got no curls*  
-*Her hair ain’t brown and her eyes ain’t either*  
-*Round and round and round and round and round and round and round and round*  
+*Oh, she ain’t no little girl, no, she ain’t got no curls*
+*Her hair ain’t brown and her eyes ain’t either*
+*Round and round and round and round and round and round and round and round*
 *Round and round and round and round and round and round and round and round*
 
-*My heart’s wood, she’s a carpenter*  
-*She’s an angel in the night, what she does is alright*  
-*Dance with me, partner*  
-*Dance with me, partner*  
-*Dance with me, partner*  
+*My heart’s wood, she’s a carpenter*
+*She’s an angel in the night, what she does is alright*
+*Dance with me, partner*
+*Dance with me, partner*
+*Dance with me, partner*
 *All night…*
 
 Yeah, that’s not dancing they’re doing in the dark.

@@ -1,4 +1,4 @@
-In 1986, Bruce Springsteen was still surfing a wave of super-stardom on the heels of the massive success that was *Born in the U.S.A.* 
+In 1986, Bruce Springsteen was still surfing a wave of super-stardom on the heels of the massive success that was *Born in the U.S.A.*
 
 One might think that eighteen months after the release of the album and a few months after the end of his record-breaking tour, popular attention might have been ready to move on. Yet, Bruce still managed to score two Top Ten singles in 1986: “[My Hometown,](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” which peaked at #6 in the early weeks of the year, and “[War](https://estreetshuffle.com/index.php/2019/05/27/cover-me-war/),” which notched a #9 berth at the tail end of it.
 

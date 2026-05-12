@@ -16,28 +16,28 @@ Let’s take a listen:
 
 “Club Soul City” doesn’t demand a lot of analysis. In fact, it’s basically a more soulful re-write of “[Heartbreak Hotel](https://estreetshuffle.com/index.php/2021/04/11/matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/).” While Bruce doesn’t provide the club’s address, it’s almost certainly down at the end of Lonely Street.
 
-*Pack up your bags, don’t look back*  
-*There’s a little place out ‘cross the railroad tracks*  
-*If you’re broken-hearted, and you don’t know what to do*  
+*Pack up your bags, don’t look back*
+*There’s a little place out ‘cross the railroad tracks*
+*If you’re broken-hearted, and you don’t know what to do*
 *But they got a place down there that’s just for you*
 
-*Club Soul, Club Soul City, yeah yeah yeah*  
+*Club Soul, Club Soul City, yeah yeah yeah*
 *Club Soul, Club Soul City, oh yeah*
 
-*There’s a waitress at the back bar, goes with the guy that runs the place (yeah, she does)*  
-*She’s got hair like a weeping willow and tears running down her face (every day)*  
-*She’s seen a lot of guys like you coming around (I’ve seen tears in her eyes)*  
+*There’s a waitress at the back bar, goes with the guy that runs the place (yeah, she does)*
+*She’s got hair like a weeping willow and tears running down her face (every day)*
+*She’s seen a lot of guys like you coming around (I’ve seen tears in her eyes)*
 *Looking for something that they’ve lost, or trying to lose something that they’ve found*
 
-*Down at Club Soul, Club Soul City, yeah yeah yeah*  
+*Down at Club Soul, Club Soul City, yeah yeah yeah*
 *Club Soul, Club Soul City, oh yeah*
 
-*So if you’re down on your spirit and there ain’t no one who cares*  
-*If you’re lost and you’re lonely, you won’t be lonely down there (oh no)*  
-*You can’t miss it, it’s just up the highway, on the front door there’s a sign that says*  
+*So if you’re down on your spirit and there ain’t no one who cares*
+*If you’re lost and you’re lonely, you won’t be lonely down there (oh no)*
+*You can’t miss it, it’s just up the highway, on the front door there’s a sign that says*
 *Restricted to the losing kind*
 
-*Club Soul, Club Soul City, yeah yeah yeah*  
+*Club Soul, Club Soul City, yeah yeah yeah*
 *Club Soul, Club Soul City, oh yeah*
 
 Man, it must have killed Bruce not to provide those call-and-response backing vocals, but Chuck Jackson more than ably rises to the occasion, especially on that terrific final couplet in the last verse.

@@ -10,9 +10,9 @@ Here’s another unfinished one–it’s actually barely even started–and whil
 
 It would have been interesting to see how Bruce would have developed the song–he seems to be conflating societal ills both international and domestic:
 
-*All I wanna know is will the time ever come that people can live together*  
-*All I wanna know is will there ever be a world without war*  
-*All I wanna know is will there ever be a time that you won’t have to lock any doors*  
+*All I wanna know is will the time ever come that people can live together*
+*All I wanna know is will there ever be a world without war*
+*All I wanna know is will there ever be a time that you won’t have to lock any doors*
 *Now you know just what we’re working for*
 
 *You come up to me and smile*
@@ -22,7 +22,7 @@ The hint of a chorus suggests that Bruce was reaching for a theme of love and co
 But that’s mere speculation on my part–we’ll likely never know for sure, so “All I Wanna Know” is best considered as one more early example of Bruce Springsteen’s evolving songwriting craft.
 
 **All I Wanna Do  
-Never recorded**  
+Never recorded**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

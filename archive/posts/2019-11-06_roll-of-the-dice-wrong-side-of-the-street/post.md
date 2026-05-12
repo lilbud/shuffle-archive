@@ -16,40 +16,40 @@ And it works, because “Wrong Side of the Street” is a light, straightforward
 
 Lyrically, “Wrong Side of the Street” is far from Bruce’s best work–there’s nothing objectionable, but neither is there anything of brilliance.
 
-*Turn on the radio, turn off the lights*  
-*We’ll bring an end, darling, to your endless night*  
+*Turn on the radio, turn off the lights*
+*We’ll bring an end, darling, to your endless night*
 *You’re on the wrong side of the street*
 
-*I see your fortune in the lines in your face*  
-*I knew you’re looking for your saving grace*  
+*I see your fortune in the lines in your face*
+*I knew you’re looking for your saving grace*
 *You’re on the wrong side of the street*
 
-*Fear and desire such a sweet confusion*  
-*Well, open your eyes and throw down your illusions*  
+*Fear and desire such a sweet confusion*
+*Well, open your eyes and throw down your illusions*
 *And see you never belonged here with me*
 
-*You and your poetry and your cool, cool world*  
-*You been working hard on that face of a martyr girl*  
+*You and your poetry and your cool, cool world*
+*You been working hard on that face of a martyr girl*
 *You’re on the wrong side of the street*
 
-*You got the look and you own your world*  
-*But here you better check your diamonds and your pearls*  
+*You got the look and you own your world*
+*But here you better check your diamonds and your pearls*
 *You’re on the wrong side of the street*
 
-*You get bored of every day bringing the same*  
-*So you go out looking for some strange new games*  
+*You get bored of every day bringing the same*
+*So you go out looking for some strange new games*
 *But pretty soon you don’t know the score or what you’re looking for*
 
-*You get bored of every day bringing the same*  
-*So you go out looking for some strange new games*  
+*You get bored of every day bringing the same*
+*So you go out looking for some strange new games*
 *But pretty soon you don’t know the score or what you came here for*
 
-*Turn on the radio, turn off the lights*  
-*We’ll bring an end, darling, to this endless night*  
+*Turn on the radio, turn off the lights*
+*We’ll bring an end, darling, to this endless night*
 *Here on the wrong side of the street*
 
-*Fear and desire such a sweet confusion*  
-*Well, open your eyes and throw down your illusions*  
+*Fear and desire such a sweet confusion*
+*Well, open your eyes and throw down your illusions*
 *And see tonight there’s no one here but you and me*
 
 Nothing really happens in “Wrong Side of the Street.” The lovers appear to be suspended in time, which is perhaps the point: they hide away in the night because neither belongs in the other’s world.
@@ -58,7 +58,7 @@ Like several of the songs on *The Promise*, I can’t help but suspect that the 
 
 It’s hard to blame Bruce, though, because it’s a great backing track with terrific tandem solos from Bruce and Clarence. Still, “Wrong Side of the Street” is a lyrical lightweight, likely to remain unperformed for the foreseeable future.
 
-**Wrong Side of the Street**  
+**Wrong Side of the Street**
 **Recorded:** October 14, 1977 (backing track); 2010 (vocals)  
 **Released:** *The Promise* (2010)  
 **Never performed**

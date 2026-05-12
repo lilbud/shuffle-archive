@@ -14,9 +14,9 @@ Until the daughter he fathered upon returning home comes to the homeless camp in
 
 Our narrator has been to Vietnam and back, and while we do not linger on his wartime experiences, they hover just as they foreshadow in Bruce’s earlier song.
 
-*Saigon, it was all gone*  
-*The same Coke machines as the streets I grew on*  
-*Down a mesquite canyon we come walking along the ridge*  
+*Saigon, it was all gone*
+*The same Coke machines as the streets I grew on*
+*Down a mesquite canyon we come walking along the ridge*
 *Me and the brothers under the bridge*
 
 All we hear our narrator reflect on from his Vietnam experience is how similar Saigon felt to the town he grew up in–a seemingly trivial but significant detail. He was unable to dehumanize the enemy; he feels a commonality that made his actions–which we never learn–feel unforgiveable, at least to himself.
@@ -25,32 +25,32 @@ Years later, he walks with a different band of brothers–veterans like himself 
 
 Their campsite is remote, an hour’s walk to even a road. The winding canyon is so overgrown that the campsite can’t be reached by authorities, even by helicopter. They live in isolation, severed from a society they don’t feel a part of, and all they want is to be left alone.
 
-*Campsite’s an hour’s walk from the nearest road to town*  
-*Up here there’s too much brush and canyon for the CHP choppers to touch down*  
-*Ain’t looking for nothing, just wanna live*  
+*Campsite’s an hour’s walk from the nearest road to town*
+*Up here there’s too much brush and canyon for the CHP choppers to touch down*
+*Ain’t looking for nothing, just wanna live*
 *Me and the brothers under the bridge*
 
-*Come the Santa Anas, man, that dry brush’ll light*  
-*Billy Devon got burned up in his own campfire one winter night*  
-*We buried his body in a white stone high up along the ridge*  
+*Come the Santa Anas, man, that dry brush’ll light*
+*Billy Devon got burned up in his own campfire one winter night*
+*We buried his body in a white stone high up along the ridge*
 *Me and the brothers under the bridge*
 
-*Had enough of town and the street life*  
-*Over nothing you end up on the wrong end of someone’s knife*  
-*Now I don’t want no trouble and I ain’t got none to give*  
+*Had enough of town and the street life*
+*Over nothing you end up on the wrong end of someone’s knife*
+*Now I don’t want no trouble and I ain’t got none to give*
 *Me and the brothers under the bridge*
 
 Their lives are not without danger, however. The dry canyons are prone to brushfire when the winds blow, and at least one of our narrator’s “brothers” has already perished, burned by his own campfire and buried anonymously.
 
 This wasn’t the life he’d dreamed of at fourteen, and this wasn’t the community he’d longed to be a part of. But just as the bridges represented the dream and freedom of adulthood in the earlier song, it represents its price and toll here. Despite the dangers, however, this is the life our narrator chooses to live, and his daughter wants to know why. Her father doesn’t have the answers, at least not that he can voice.
 
-*I come home in ’72*  
-*You were just a beautiful light in your mom’s dark eyes of blue*  
-*I stood down on the tarmac, I was just a kid*  
+*I come home in ’72*
+*You were just a beautiful light in your mom’s dark eyes of blue*
+*I stood down on the tarmac, I was just a kid*
 *Me and the brothers under the bridge*
 
-*Come Veterans Day, sat in the stands in my dress blues*  
-*I held your mother’s hand when they passed with the red, white and blue*  
+*Come Veterans Day, sat in the stands in my dress blues*
+*I held your mother’s hand when they passed with the red, white and blue*
 *One minute you’re right there and something slips*
 
 Measured in real time, he wasn’t in Vietnam long. He was still a kid when he returned, his daughter just a glimmer in her mother’s eyes.

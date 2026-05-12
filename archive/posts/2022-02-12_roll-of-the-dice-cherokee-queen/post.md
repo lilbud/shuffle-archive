@@ -12,39 +12,39 @@ His entire catalog, that is, except for a half-dozen songs that Appel wanted to 
 
 “Cherokee Queen” remains unreleased (and presumably unrecorded) to this day. We only know it from surviving bootleg recordings from the Bruce Springsteen Band era, and it’s likely to stay that way, thanks to some cringeworthy 50-year-old lyrics that land uncomfortably on modern ears.
 
-*Ah she’s a Cherokee queen*  
-*Yeah prettiest thing I have ever seen*  
-*She’s an Oklahoma lady*  
-*And she drives me crazy*  
-*I don’t know what it is about her*  
-*But I just can’t live without her*  
-*She’s got me in a trance sir*  
-*In her heart she’s a dancer*  
-*Like the wind she silently comes*  
-*The melody she sweetly hums*  
-*She’s got the words to all my songs*  
+*Ah she’s a Cherokee queen*
+*Yeah prettiest thing I have ever seen*
+*She’s an Oklahoma lady*
+*And she drives me crazy*
+*I don’t know what it is about her*
+*But I just can’t live without her*
+*She’s got me in a trance sir*
+*In her heart she’s a dancer*
+*Like the wind she silently comes*
+*The melody she sweetly hums*
+*She’s got the words to all my songs*
 *She sang to me all night long*
 
-*She goes, “Daddy sing me a cradle song*  
-*Like you did a long time ago*  
-*Daddy sing me a silly song*  
-*Won’t you rock my crazy bones”*  
-*“Daddy sing me a cradle song*  
-*Like you did a long time ago*  
-*Daddy sing me a silly song*  
+*She goes, “Daddy sing me a cradle song*
+*Like you did a long time ago*
+*Daddy sing me a silly song*
+*Won’t you rock my crazy bones”*
+*“Daddy sing me a cradle song*
+*Like you did a long time ago*
+*Daddy sing me a silly song*
 *Won’t you rock my crazy bones”*
 
-*She strayed off her reservation*  
-*Oh and into my arms*  
-*Bringing bad legislation*  
-*With her Indian charms*  
-*I don’t know what it is she does sir*  
-*That make me wanna love her*  
-*It’s that crazy way of smiling*  
-*Oh it just drives the boys wild*  
-*Reminds me of one of my high school haunts*  
-*She knows what I need and she knows what I want*  
-*She’s got the words to all our songs*  
+*She strayed off her reservation*
+*Oh and into my arms*
+*Bringing bad legislation*
+*With her Indian charms*
+*I don’t know what it is she does sir*
+*That make me wanna love her*
+*It’s that crazy way of smiling*
+*Oh it just drives the boys wild*
+*Reminds me of one of my high school haunts*
+*She knows what I need and she knows what I want*
+*She’s got the words to all our songs*
 *And she sang to me all night long*
 
 Yeah… we won’t unpack these particular lyrics.
@@ -56,8 +56,8 @@ Bruce seems to have belatedly recognized its potential, too: in early 1983, he b
 Well, mostly unutilized. There actually is a commercially available studio track of “Cherokee Queen” available–it’s just not Bruce performing it. We’ll take a listen to it later this month.
 
 **Cherokee Queen  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **First performed:** July 1971 (South Amboy, NJ)  
 **Last performed:** October 23, 1971 (Richmond, VA)
 

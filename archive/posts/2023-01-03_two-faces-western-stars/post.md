@@ -8,7 +8,7 @@ Editor's Note
 
 *So what do you do when you discover a reader whose comments deserve a “Hold my beer” subject line? Well… I hold her beer.*
 
-*Meet Katy Crane, a writer and teacher from interior Alaska. She recently moved from a small town to a big city and dealt with the culture shock by becoming an obsessive Springsteen fan. Her favorite Springsteen album is *Nebraska,* and she thinks “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)” is a good song and “Jungleland” is overrated.* 
+*Meet Katy Crane, a writer and teacher from interior Alaska. She recently moved from a small town to a big city and dealt with the culture shock by becoming an obsessive Springsteen fan. Her favorite Springsteen album is *Nebraska,* and she thinks “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)” is a good song and “Jungleland” is overrated.*
 
 *Katy makes her first of what I fervently hope will be many appearances here today, in a new series we’re calling **Two Faces**, featuring alternative interpretations to the ones I’ve put forward in the Roll of the Dice series.*
 
@@ -16,15 +16,15 @@ Editor's Note
 
  
 
-*I am become a name;*  
-*For always roaming with a hungry heart*  
-*Much have I seen and known*  
+*I am become a name;*
+*For always roaming with a hungry heart*
+*Much have I seen and known*
  *— Tennyson, "Ulysses"*
 
-*Push off, and sitting well in order smite*  
-*The sounding furrows; for my purpose holds*  
-*To sail beyond the sunset, and the baths*  
-*Of all the western stars, until I die.*  
+*Push off, and sitting well in order smite*
+*The sounding furrows; for my purpose holds*
+*To sail beyond the sunset, and the baths*
+*Of all the western stars, until I die.*
 — Tennyson, "Ulysses" (toward the end)
 
 ---
@@ -80,7 +80,7 @@ This is another way of trying to relive the past, then: different from Viagra bu
 
 Up till now, the musical backing has been restrained. But now, as the drinks and the reminiscence take effect, the orchestra surges in behind Bruce. The strings swell, swoopy and syrupy and nostalgic. The chorus returns, stronger and more triumphant than before, driving us toward the end of the night, toward whatever it is that the singer is chasing.
 
-And then we're back at the bar, and it's time for another drink. "Once I was shot by John Wayne," the singer tells us, conversationally, and we can see him turning toward us on his barstool. "Yeah, it was toward the end." One of several lines that ring through the song like the tolling of a bell: *Yeah, it was toward the end. These days there ain't no more. Bring it all back to you again.* 
+And then we're back at the bar, and it's time for another drink. "Once I was shot by John Wayne," the singer tells us, conversationally, and we can see him turning toward us on his barstool. "Yeah, it was toward the end." One of several lines that ring through the song like the tolling of a bell: *Yeah, it was toward the end. These days there ain't no more. Bring it all back to you again.*
 
 Now we know who the "friend" of the chorus is: it's us. We're the anonymous stranger buying this man drinks while he tells his John Wayne story for the thousandth time. This is what "ride me down easy" means; this is what the singer is asking of us.
 

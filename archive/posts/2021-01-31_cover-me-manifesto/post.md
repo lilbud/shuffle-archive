@@ -32,36 +32,36 @@ The very last song Jara wrote before the coup was “Manifesto,” released only
 
 “Manifesto” is a song about what it means to be a politically outspoken musician. Jara’s lyrics, translated below, have resonated with artists ever since.
 
-*I don't sing for love of singing*  
-*or to show off my voice*  
-*but for the statements*  
-*made by my honest guitar*  
-*for its heart is of the earth*  
-*and like the dove it goes flying….*  
-*endlessly as holy water*  
-*blessing the brave and the dying*  
-*so my song has found a purpose*  
+*I don't sing for love of singing*
+*or to show off my voice*
+*but for the statements*
+*made by my honest guitar*
+*for its heart is of the earth*
+*and like the dove it goes flying….*
+*endlessly as holy water*
+*blessing the brave and the dying*
+*so my song has found a purpose*
 *as Violet Parra would say.*
 
-*Yes, my guitar is a worker*  
-*shining and smelling of spring*  
-*my guitar is not for killers*  
-*greedy for money and power*  
-*but for the people who labor*  
-*so that the future may flower*  
-*For a song takes on a meaning*  
-*when its own heart beat is strong*  
-*sung by a man who will die singing*  
+*Yes, my guitar is a worker*
+*shining and smelling of spring*
+*my guitar is not for killers*
+*greedy for money and power*
+*but for the people who labor*
+*so that the future may flower*
+*For a song takes on a meaning*
+*when its own heart beat is strong*
+*sung by a man who will die singing*
 *truthfully singing his song.*
 
-*I don't care for adulation*  
-*or so that strangers may weep*  
-*I sing for a far strip of country*  
+*I don't care for adulation*
+*or so that strangers may weep*
+*I sing for a far strip of country*
 *narrow but endlessly deep*
 
-*There, where everything comes to rest*   
-*and where everything begins*  
-*the song which has been brave*   
+*There, where everything comes to rest*
+*and where everything begins*
+*the song which has been brave*
 *will be forever new*
 
 As such a high-profile supporter of Allende, Jara was one of the first to be rounded up by Pinochet’s military–the very next day, in fact.

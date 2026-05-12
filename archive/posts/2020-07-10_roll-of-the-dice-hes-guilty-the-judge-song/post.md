@@ -24,32 +24,32 @@ Lyrically, “He’s Guilty (The Judge Song)” is slight–there’s very littl
 
 *All rise!*
 
-*Well the judge and the jury came into the courtroom*  
+*Well the judge and the jury came into the courtroom*
 *At about 9:30, the 23rd of June*
 
 Even though “He’s Guilty (The Judge Song)” was a staple of the band’s sets, for some reason Bruce seemed to frequently forget the time of the trial. Sometimes it was 9:30, sometimes 10:30, sometimes both in the same performance. I have no idea whether this was intentional, accidental, or playful, and it probably doesn’t matter anyway. But it still drives me nuts when I hear it.
 
-*Now we’re here to try this boy for his crime*  
-*To see if we set him free or make him serve his time*  
-*Jury all got up in the chairs*  
+*Now we’re here to try this boy for his crime*
+*To see if we set him free or make him serve his time*
+*Jury all got up in the chairs*
 *He’s guilty, he’s guilty, send that boy to jail!*
 
 Prior to Bruce releasing the song on *Chapter and Verse*, “He’s Guilty” circulated on a few live and studio bootlegs, often under the title “Send That Boy to Jail” due to that line’s prominence in the chorus. Many of Bruce’s early pre-label songs circulated on bootleg tapes long before fans had any documents to inform official names, so fans often had to invent names based on the lyrics.
 
-*Charged with speeding, running down his mother*  
-*Oh stabbing his wife and strangling her lover*  
-*Well the court is ready to hear your plea*  
-*Son, are you guilty or not guilty*  
-*Jury all got up to hear his plea*  
+*Charged with speeding, running down his mother*
+*Oh stabbing his wife and strangling her lover*
+*Well the court is ready to hear your plea*
+*Son, are you guilty or not guilty*
+*Jury all got up to hear his plea*
 *He’s guilty, he’s guilty, don’t let that boy go free*
 
 The jury’s out on whether Bruce sings “Charged with” or “George was” in the first line of the second verse. I’ve seen both put forward, and depending on the performance I can hear one or the other. Perhaps Bruce switched it up or evolved the song over time, but I lean toward believing it’s “charged with” in all instances. The song doesn’t require a named protagonist, and the litany of crimes both trivial and capital suggests a trumped up case against a defendant who doesn’t stand a chance.
 
 In later performances, Bruce would add a verse after the mid-song jam that lends evidence to the “charged with” interpretation:
 
-*Oh your honor, oh won’t you treat me fair?*  
-*All I want is justice, this court is like a county fair*  
-*Can I get what I want there, what I need there*  
+*Oh your honor, oh won’t you treat me fair?*
+*All I want is justice, this court is like a county fair*
+*Can I get what I want there, what I need there*
 *I don’t know, I don’t know right now…*
 
 You can hear that additional verse in the performance below, along with an even more ferocious guitar solo.
@@ -64,7 +64,7 @@ In 2005, however, original Steel Mill (and E Street Band) drummer Vini Lopez for
 
 https://www.youtube.com/watch?v=ElFaxyfclRc
 
-**He’s Guilty (The Judge Song)**  
+**He’s Guilty (The Judge Song)**
 **Recorded:** February 22, 1970  
 **Released:** *Chapter and Verse* (2016)  
 **First performed:** January 13, 1970 (San Francisco, CA)  

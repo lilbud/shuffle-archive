@@ -8,30 +8,30 @@ Bruce’s “Sweet Melinda” lyrics are more sly and sassy than sweet, and his 
 
 As for our heroine, she’s certainly a crowd-pleaser, with a reputation (“All the gang told me”) she seems to live up to when our narrator finds himself fortunate to have his parents’ house to himself. If Bruce had written it in a more modern time, one suspects his narrator would text “You up?”
 
-*Sweet, sweet Melinda*  
-*You turn my heart to a cinder*  
+*Sweet, sweet Melinda*
+*You turn my heart to a cinder*
 *The way you do them things that you do*
 
-*Oh Melinda*  
-*If the Pope knew you were such a sinner*  
+*Oh Melinda*
+*If the Pope knew you were such a sinner*
 *He’d be on his way, flight TWA today*
 
-*I call my baby on the telephone*  
-*Come on, my mama’s gone, I’m all alone*  
-*Good ol’ Melinda sure can make a man smile*  
+*I call my baby on the telephone*
+*Come on, my mama’s gone, I’m all alone*
+*Good ol’ Melinda sure can make a man smile*
 *Oh baby, now you’re drivin’ me wild*
 
-*Oh sweet, sweet Melinda*  
-*You turn my heart to a cinder*  
+*Oh sweet, sweet Melinda*
+*You turn my heart to a cinder*
 *The way you do them things that you do*
 
-*I call my woman on the telephone*  
-*Come on, my mama’s gone, and I’m alone”*  
-*Good ol’ Melinda never leave a man stuck*  
+*I call my woman on the telephone*
+*Come on, my mama’s gone, and I’m alone”*
+*Good ol’ Melinda never leave a man stuck*
 *All the gang told me the way*
 
-*Sweet, sweet Melinda*  
-*You turn my heart to a cinder*  
+*Sweet, sweet Melinda*
+*You turn my heart to a cinder*
 *The way you do them things that you do*
 
 “Sweet Melinda” isn’t a song you’d turn to when asked to typify the Steel Mill sound (let alone Bruce’s later music), but it was a regular feature of their shows throughout their fourteen-month tenure, a lark that offered glimpses of versatility still to come.

@@ -14,17 +14,17 @@ I’ll explain, but let’s take a listen first to get us in the mood:
 
 If you really pay attention to it, “The Promised Land” is a pretty dark song, befitting its home on a dark album:
 
-*On a rattlesnake speedway in the Utah desert*  
-*I pick up my money and head back into town*  
-*Driving cross the Waynesboro county line*  
-*I got the radio on and I’m just killing time*  
-*Working all day in my daddy’s garage*  
-*Driving all night chasing some mirage*  
+*On a rattlesnake speedway in the Utah desert*
+*I pick up my money and head back into town*
+*Driving cross the Waynesboro county line*
+*I got the radio on and I’m just killing time*
+*Working all day in my daddy’s garage*
+*Driving all night chasing some mirage*
 *Pretty soon little girl I’m gonna take charge*
 
-*The dogs on Main Street howl ’cause they understand*  
-*If I could take one moment into my hands*  
-*Mister, I ain’t a boy. No, I’m a man!*  
+*The dogs on Main Street howl ’cause they understand*
+*If I could take one moment into my hands*
+*Mister, I ain’t a boy. No, I’m a man!*
 *And I believe in a promised land*
 
 This is a man who is seriously stuck. He idles his life away a day at a time, somewhere out in a remote area of a remote state. He holds no power, he exerts no control over his life.
@@ -35,12 +35,12 @@ Why are the dogs howling on Main Street? They’re howling in empathetic frustra
 
 If only they could just have one moment… one make-or-break moment… what would they do?
 
-*I’ve done my best to live the right way*  
-*I get up every morning and go to work each day*  
-*But your eyes go blind and your blood runs cold*  
-*Sometimes I feel so weak I just want to explode*  
-*Explode and tear this whole town apart*  
-*Take a knife and cut this pain from my heart*  
+*I’ve done my best to live the right way*
+*I get up every morning and go to work each day*
+*But your eyes go blind and your blood runs cold*
+*Sometimes I feel so weak I just want to explode*
+*Explode and tear this whole town apart*
+*Take a knife and cut this pain from my heart*
 *Find somebody itching for something to start*
 
 We live our lives. We do what we believe we’re supposed to do, act like we believe we’re supposed to act. We try our best to live the lessons we’ve been taught about what life is supposed to be.
@@ -57,12 +57,12 @@ Or do you anesthetize yourself to ease the pain that living brings? (to quote an
 
 I’m well aware that most fans embrace the final verse as a stance of defiance, courage, and determination:
 
-*Well there’s a dark cloud rising from the desert floor*  
-*I packed my bags and I’m heading straight into the storm*  
-*Gonna be a twister to blow everything down*  
-*That ain’t got the faith to stand its ground*  
-*Blow away the dreams that tear you apart*  
-*Blow away the dreams that break your heart*  
+*Well there’s a dark cloud rising from the desert floor*
+*I packed my bags and I’m heading straight into the storm*
+*Gonna be a twister to blow everything down*
+*That ain’t got the faith to stand its ground*
+*Blow away the dreams that tear you apart*
+*Blow away the dreams that break your heart*
 *Blow away the lies that leave you nothing but lost and brokenhearted*
 
 …but I don’t hear it that way. Not anymore, at least. I used to, back when I heard Bruce sing “the” and not “a.”
@@ -73,27 +73,27 @@ But once I realized Bruce was singing about “*a* promised land,” I felt the 
 
 And once the song becomes more about running from than running toward, the narrator becomes (in my mind) more trapped, more desperate, more despairing. And that storm… I can’t help but hear that verse as a callback to “Lost in the Flood:”
 
-*That pure American brother, dull-eyed and empty-faced*  
-*Races Sundays in Jersey in a Chevy stock super eight*  
-*He rides her low on the hip, on the side he’s got Bound For Glory in red, white and blue flash paint*  
-*He leans on the hood telling racin’ stories, the kids call him Jimmy the Saint*  
-*Well that blaze and noise boy, he’s gunnin’ that bitch loaded to blastin’ point*  
-*He rides headfirst into a hurricane and disappears into a point*  
-*And there’s nothin’ left but some blood where the body fell*  
-*That is, nothin’ left that you could sell*  
-*Just junk all across the horizon, a real highwayman’s farewell*  
-*And I said, “Hey kid, you think that’s oil? Man, that ain’t oil, that’s blood”*  
-*I wonder what he was thinking when he hit that storm*  
+*That pure American brother, dull-eyed and empty-faced*
+*Races Sundays in Jersey in a Chevy stock super eight*
+*He rides her low on the hip, on the side he’s got Bound For Glory in red, white and blue flash paint*
+*He leans on the hood telling racin’ stories, the kids call him Jimmy the Saint*
+*Well that blaze and noise boy, he’s gunnin’ that bitch loaded to blastin’ point*
+*He rides headfirst into a hurricane and disappears into a point*
+*And there’s nothin’ left but some blood where the body fell*
+*That is, nothin’ left that you could sell*
+*Just junk all across the horizon, a real highwayman’s farewell*
+*And I said, “Hey kid, you think that’s oil? Man, that ain’t oil, that’s blood”*
+*I wonder what he was thinking when he hit that storm*
 *Or was he just lost in the flood?*
 
 If not for the setting (Jersey vs. Utah), it wouldn’t be a stretch to wonder if “Lost in the Flood” and “The Promised Land” are the same song about the same character told from two different perspectives. The storm in “Lost in the Flood’ is a metaphor for drugs, and that strikes me as a very plausible read of “The Promised Land” as well. Read it again, through that lens:
 
-*Well there’s a dark cloud rising from the desert floor*  
-*I packed my bags and I’m heading straight into the storm*  
-*Gonna be a twister to blow everything down*  
-*That ain’t got the faith to stand its ground*  
-*Blow away the dreams that tear you apart*  
-*Blow away the dreams that break your heart*  
+*Well there’s a dark cloud rising from the desert floor*
+*I packed my bags and I’m heading straight into the storm*
+*Gonna be a twister to blow everything down*
+*That ain’t got the faith to stand its ground*
+*Blow away the dreams that tear you apart*
+*Blow away the dreams that break your heart*
 *Blow away the lies that leave you nothing but lost and brokenhearted*
 
 You hear it now, don’t you?

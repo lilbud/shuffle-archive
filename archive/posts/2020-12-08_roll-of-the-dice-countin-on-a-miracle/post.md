@@ -12,16 +12,16 @@ The optimistic title, the fairy tale setting in the first line, the soaring chor
 
 It’s not, though, and Bruce says as much in the first line. But as with the studio version of “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/),” the lyrics are outmatched by the music.
 
-*It’s a fairy tale so tragic, there’s no prince to break the spell*  
-*I don’t believe in magic, but for you I will, yeah for you I will*  
+*It’s a fairy tale so tragic, there’s no prince to break the spell*
+*I don’t believe in magic, but for you I will, yeah for you I will*
 *If I’m a fool, I’ll be a fool, darlin’ for you*
 
-*Well, I’m countin’ on a miracle*  
-*Baby, I’m countin’ on a miracle*  
+*Well, I’m countin’ on a miracle*
+*Baby, I’m countin’ on a miracle*
 *Darlin’, I’m countin’ on a miracle to come through*
 
-*There ain’t no storybook story, there’s no never-ending song*  
-*Our happily ever after darlin’ is forever come and gone, and I’m movin’ on*  
+*There ain’t no storybook story, there’s no never-ending song*
+*Our happily ever after darlin’ is forever come and gone, and I’m movin’ on*
 *I’m gonna believe, I’ll put my faith, darlin’, in you*
 
 Bruce makes it clear right off the bat: this is a tragedy, a tale of love lost to the finality of death. The fairy tale reference is to Sleeping Beauty, and because Bruce is a heterosexual man, we might assume his point-of-view character is referring to a woman he loved but lost. But we’d be wrong.
@@ -30,34 +30,34 @@ This is one of the rare times in which Bruce writes from the female perspective.
 
 As is often the case with Bruce’s songs, the emotional heart of “Countin’ on a Miracle” is in the bridge. As Nashville String Machine transports us momentarily back into her fairy tale, our heroine ruefully sings:
 
-*Sleeping Beauty awakes from her dream with her lover’s kiss on her lips*  
+*Sleeping Beauty awakes from her dream with her lover’s kiss on her lips*
 *Your kiss was taken from me, now all I have is this:*
 
-*your kiss…*  
-*your touch…*  
-*your heart…*  
-*your strength…*  
-*your hope…*  
-*your faith…*  
-*your face…*  
-*your love…*  
-*your dream…*  
+*your kiss…*
+*your touch…*
+*your heart…*
+*your strength…*
+*your hope…*
+*your faith…*
+*your face…*
+*your love…*
+*your dream…*
 *your life.*
 
 There’s a touch of bitterness here seeping through the sadness. The phrase “your kiss was taken from me” casts the narrator as the victim of a crime, and the “this” she’s left with is her memory of all the ways her prince touched her–physically, emotionally, inspirationally. She paints a picture of her lost love that’s so vivid, it’s almost as if he lives on in her heart and memory. Which of course he does:
 
-*I’m runnin’ through the forest with the wolf at my heels*  
-*My king is lost at midnight when the tower bells peal*  
-*We’ve got no fairy tale ending, in God’s hands our fate is complete*  
-*Your heaven’s here in my heart, our love’s this dust beneath my feet, just this dust beneath my feet*  
+*I’m runnin’ through the forest with the wolf at my heels*
+*My king is lost at midnight when the tower bells peal*
+*We’ve got no fairy tale ending, in God’s hands our fate is complete*
+*Your heaven’s here in my heart, our love’s this dust beneath my feet, just this dust beneath my feet*
 *If I’m gonna live, I’ll lift my life, darlin’, to you*
 
 Our heroine can’t shake her life’s fairy tale metaphor, informing us at once of both how idyllic she viewed their relationship and how lost she feels without it.
 
 The reference to a higher power isn’t an affirmation of faith; it’s an accusation of betrayal. She doesn’t turn to God for the strength to carry on; instead she looks to her love. She builds him an eternal home in her heart, dedicates her life to his memory, and takes her first steps forward… counting on her lost king to keep her company along the way.
 
-*Well, I’m countin’ on a miracle*  
-*Baby, I’m countin’ on a miracle*  
+*Well, I’m countin’ on a miracle*
+*Baby, I’m countin’ on a miracle*
 *Darlin’, I’m countin’ on a miracle to come through*
 
 ---

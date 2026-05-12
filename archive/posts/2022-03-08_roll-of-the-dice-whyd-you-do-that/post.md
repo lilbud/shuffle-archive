@@ -6,15 +6,15 @@ We’ve listened to dozens of original songs that Bruce wrote during that brief,
 
 “Why’d You Do That” has all of nine unique lines, none of which provide any semblance of story or metaphor.
 
-*I still got your picture hanging up upon my wall*  
-*I can still remember the day you gave it to me*  
+*I still got your picture hanging up upon my wall*
+*I can still remember the day you gave it to me*
 *You were kinda long and tall*
 
-*And they say I didn’t ???*  
+*And they say I didn’t ???*
 *Honey why’d you do that*
 
-*Well goodbye New Jersey, look out New York City here I come*  
-*You better watch out, you know I wanna get to you*  
+*Well goodbye New Jersey, look out New York City here I come*
+*You better watch out, you know I wanna get to you*
 *I gotta get out on the run*
 
 *?? night and day, everything’s gonna be ok*

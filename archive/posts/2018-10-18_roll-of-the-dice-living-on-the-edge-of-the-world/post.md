@@ -20,27 +20,27 @@ That pretty much the song. Both songs. Some details get longer or shorter shrift
 
 Some verses appear in complete form in both songs:
 
-*Early North Jersey industrial skyline*  
-*I’m a all-set cobra jet creeping through the night time*  
-*Gotta find a gas station, gotta find a pay phone*  
+*Early North Jersey industrial skyline*
+*I’m a all-set cobra jet creeping through the night time*
+*Gotta find a gas station, gotta find a pay phone*
 *This turnpike sure is spooky at night when you’re all alone*
 
-*Now the boss don’t dig me, so he put me on the night shift*  
-*It takes me two hours to get back to where my baby lives*  
-*In the wee wee hours your mind gets hazy*  
-*Radio relays towers, won’t you lead me to my baby*  
-*Underneath the overpass, trooper hits his party light switch*  
+*Now the boss don’t dig me, so he put me on the night shift*
+*It takes me two hours to get back to where my baby lives*
+*In the wee wee hours your mind gets hazy*
+*Radio relays towers, won’t you lead me to my baby*
+*Underneath the overpass, trooper hits his party light switch*
 *Good night good luck, one two power shift*
 
-*Radio’s jammed up with gospel stations*  
-*Lost souls calling long distance salvation*  
-*Hey mister deejay won’t you hear my last prayer*  
+*Radio’s jammed up with gospel stations*
+*Lost souls calling long distance salvation*
+*Hey mister deejay won’t you hear my last prayer*
 *Hey ho rock ‘n roll deliver me from nowhere*
 
 Others vary a bit:
 
-*Radio, radio, hear my tale of heartbreak*  
-*New Jersey in the morning like a lunar landscape* 
+*Radio, radio, hear my tale of heartbreak*
+*New Jersey in the morning like a lunar landscape*
 
 …and some details (like the name and employer of the aforementioned girl) differ.
 
@@ -62,7 +62,7 @@ Both:
 
 and
 
-*In the wee wee hours my mind gets hazy*  
+*In the wee wee hours my mind gets hazy*
 *Relay towers, won’t you lead me to my baby*
 
 appear in “[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)” as well, along with references to radio stations jammed with gospel (“Living”) or talk show (“State Trooper”) stations.
@@ -73,9 +73,9 @@ Once you get past the “Nebraskafication” of the song, pay careful attention 
 
 [Watch on Youtube: Bruce Springsteen - Open All Night (early version)](https://www.youtube.com/watch?v=jF4Ju9wu7EI)
 
-*Mister, can you tell me what happened to the seeds*  
-*What happened to the seeds I’ve sown*  
-*Yeah, where they fall from my hand*  
+*Mister, can you tell me what happened to the seeds*
+*What happened to the seeds I’ve sown*
+*Yeah, where they fall from my hand*
 *And they fell on the ground of this hard land*
 
 Yep… that’s right: now we have “Open All Night,” “State Trooper,” and “This Hard Land,” all spinning out of one song: “Living on the Edge of the World.”

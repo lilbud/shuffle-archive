@@ -10,21 +10,21 @@ About those lyrics: Bruce wrote a total of six lines for a three-minute song. It
 
 And that’s not an arbitrary comparison: one can make a strong argument that “Good Eye” and “Cautious Man” are thematically the same song.
 
-*I was standing by the river where the cold black water runs*  
-*I was standing by the river where the cold black water runs*  
+*I was standing by the river where the cold black water runs*
+*I was standing by the river where the cold black water runs*
 *I had my good eye to the dark and my blind eye to the sun*
 
-*I had all the earthly riches, I had each and every one*  
-*I had all the earthly riches, I had each and every one*  
+*I had all the earthly riches, I had each and every one*
+*I had all the earthly riches, I had each and every one*
 *But I had my good eye to the dark and my blind eye to the sun*
 
-*Well I swore to you my darling, that you were the only one*  
-*Yes I swore to you my darling, you were the only one*  
+*Well I swore to you my darling, that you were the only one*
+*Yes I swore to you my darling, you were the only one*
 *I had my good eye to the dark and my blind eye to the sun*
 
 The key to understanding “Good Eye” is to understand the line that closes each verse: *I had my good eye to the dark and my blind eye to the sun.*
 
-*I’m watching the darkness, not the light*, our narrator tells us. *I’m surrendering to the temptations of **more*****.** *More earthly possessions, when I already have all I need. More pleasures of the flesh, when I already have the one I love.* 
+*I’m watching the darkness, not the light*, our narrator tells us. *I’m surrendering to the temptations of **more*****.** *More earthly possessions, when I already have all I need. More pleasures of the flesh, when I already have the one I love.*
 
 That’s it. That’s the song: *I had it it all, and I lost it all, because I gave in to my darkest desires.*
 

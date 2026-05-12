@@ -24,13 +24,13 @@ Bruce teed it up with the hometown crowd by sharing his observations that Europe
 
 Fans familiar with Waits’ version probably noticed that Bruce cleaned up the lyrics a bit, but the shocker was the completely new final verse:
 
-*I see you on the street and you look so tired*  
-*Girl I know that job you got leaves you so uninspired*  
-*When I come by to take you out to eat*  
-*You’re lying all dressed up on the bed baby fast asleep*  
-*Go in the bathroom, put your makeup on*  
-*We’re gonna take that little brat of yours and drop her off at your mom’s*  
-*I know a place where the dancing’s free*  
+*I see you on the street and you look so tired*
+*Girl I know that job you got leaves you so uninspired*
+*When I come by to take you out to eat*
+*You’re lying all dressed up on the bed baby fast asleep*
+*Go in the bathroom, put your makeup on*
+*We’re gonna take that little brat of yours and drop her off at your mom’s*
+*I know a place where the dancing’s free*
 *Now baby won’t you come with me*
 
 That verse perfectly matches the tone and heart of Waits’ original–in large part because Waits’ songwriting on “Jersey Girl” so closely resembles Bruce’s own style.
@@ -49,7 +49,7 @@ It’s a magnificent performance–one of Bruce’s very best and certainly one 
 
 But the official release wasn’t the most remarkable “Jersey Girl” performance of the tour. That honor would have to go to (ironically) a Los Angeles performance from later that summer, where Bruce introduced the song by remarking:
 
-*There’s a guy that’s written a lot of great songs, like “Ol’ 55,” “Heart of Saturday Night…” and this song. When I heard it, I remember it was one of those songs I said, “Well… I wish I’d wrote that.” It’s a song called “Jersey Girl” and Tom Waits is gonna sing it with us.*  
+*There’s a guy that’s written a lot of great songs, like “Ol’ 55,” “Heart of Saturday Night…” and this song. When I heard it, I remember it was one of those songs I said, “Well… I wish I’d wrote that.” It’s a song called “Jersey Girl” and Tom Waits is gonna sing it with us.*
 
 
 And then, as promised, Tom Waits joined Bruce on stage for their one and only public duet of “Jersey Girl.” (They’d perform it once more in 1990 at a private reception.) Take a listen below–and notice how it’s an unusual, one-off hybrid version: Tom sings Bruce’s sanitized first verse but adds his “And I call your name; I can’t sleep at night” flourish that Bruce dropped, while Bruce sings the verse he added.
@@ -88,7 +88,7 @@ This video was too close to capture the fireworks at the end of the song. But I 
 
 [Watch on Youtube: Jersey Girl - Bruce Springsteen and Patti Scialfa (Jersey 4 Jersey COVID-19 Benefit Relief 2020)](https://www.youtube.com/watch?v=1thNca2rZW4)
 
-**Jersey Girl**  
+**Jersey Girl**
 **Recorded:** July 9, 1981 (live)  
 **Released:** *Live 1975-85* (1986)  
 **First performed:** June 22, 1981 (East Orange, NJ)  

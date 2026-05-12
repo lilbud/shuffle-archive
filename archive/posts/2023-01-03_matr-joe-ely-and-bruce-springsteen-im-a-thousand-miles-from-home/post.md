@@ -10,10 +10,10 @@ It’s the opening track that gets all the attention, and it’s hard to argue t
 
 It also features some *very* Springsteenian lyrics:
 
-*Travelin’ down this weary road*  
+*Travelin’ down this weary road*
 *A troubled mind is a heavy load*
 
-*Hold my ticket in my hand*  
+*Hold my ticket in my hand*
 *Lookin’ for the Promised Land*
 
 *I’m a thousand miles from home*

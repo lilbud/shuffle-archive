@@ -24,15 +24,15 @@ Because that notebook included a page with the “Texas Drive In” title, and e
 
 It’s just a set up, merely a stage setting, but it gives us a taste of what the actual song might have been like:
 
-*A night when the stars crack*  
-*And slip from above*  
-*The engine heat warms your back*  
+*A night when the stars crack*
+*And slip from above*
+*The engine heat warms your back*
 *In a Texas drive-in with a secret love*
 
 Did Bruce ever finish the song? Presumably, since it was on the lost album sequence. Did he ever record it? Someday, maybe, we’ll know for sure.
 
 **Texas Drive In  
-Never released**  
+Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -6,7 +6,7 @@ Bruce included it on an early 1974 track list for his upcoming third album (whic
 
 At least for a time, it appeared that “Glory Road” was a candidate for anchoring the closing end of Side One (along with its alternate, “[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)“), but the lack of a runtime after its entry suggests that Bruce had yet to take it into the studio.
 
-If you can’t help but wonder what “Glory Road” must have sounded like if it even had a shred of a chance of knocking “She’s the One” off of the record–consider that in another early album sequence Bruce had “Glory Road” listed *as an alternate for “Born to Run.”* 
+If you can’t help but wonder what “Glory Road” must have sounded like if it even had a shred of a chance of knocking “She’s the One” off of the record–consider that in another early album sequence Bruce had “Glory Road” listed *as an alternate for “Born to Run.”*
 
 ![](https://estreetshuffle.com/wp-content/uploads/2020/02/proposedtracklist_2.jpg)
 
@@ -16,7 +16,7 @@ Time and again during the recording of *Born to Run*, “Glory Road” shows up 
 
 And yet maddeningly, we’ve never heard the song.
 
-In fact, for decades all we knew about “Glory Road” was its title, and a cryptic reference to it as a potential early version of “Thunder Road” in Charles Cross’ *Backstreets: Springsteen, The Man and His Music.* 
+In fact, for decades all we knew about “Glory Road” was its title, and a cryptic reference to it as a potential early version of “Thunder Road” in Charles Cross’ *Backstreets: Springsteen, The Man and His Music.*
 
 In a 1995 interview, Molly Meldrum asked Bruce about it, but even Bruce didn’t seem to remember it.
 
@@ -34,15 +34,15 @@ Therefore, the lyrics sheet above is likely a very early draft of “Glory Road.
 
 Or maybe it evolved into three songs, because if we read the lyrics, we can certainly see a thematic if not a lyrical link to “Thunder Road.”
 
-*She danced on my hood like an angel locked in overdrive*  
-*She had a hemi-powered Chevy and her trans was backed by power glide*  
-*She begged Billy take me for a ride*  
+*She danced on my hood like an angel locked in overdrive*
+*She had a hemi-powered Chevy and her trans was backed by power glide*
+*She begged Billy take me for a ride*
 *Take me to glory road, bring me to glory road*
 
-*I looked out over cross my hood and saw the highway buckle in the heat*  
-*Let me take you to the place where the whores and the angels meet*  
-*I wanna take my walk in the sun*  
-*Don’t try to hold me back cause you ain’t got the guts to come*  
+*I looked out over cross my hood and saw the highway buckle in the heat*
+*Let me take you to the place where the whores and the angels meet*
+*I wanna take my walk in the sun*
+*Don’t try to hold me back cause you ain’t got the guts to come*
 *Some day you’ll see tramps like us, baby we were born to run*
 
 Besides some metrical similarities that may well be coincidental, that last verse certainly echoes the closing escapist sentiment of “Thunder Road.” The narrator entreats his girl to join him on the open road (in somewhat less romantic fashion), and the “tramps like us” line fits so perfectly that we can’t help but realize (if we hadn’t already) just how thematically similar “Thunder Road” and “Born to Run’ are–one almost wonders if our narrator simply moved on to Wendy when Mary refused to get in the car.
@@ -50,7 +50,7 @@ Besides some metrical similarities that may well be coincidental, that last vers
 It’s a fan’s frustration to have so many artifacts of this key progenitor of two iconic songs and yet not a single recording. We can only hope that somewhere in the depths of Bruce’s vault lies a demo that might someday be released into the wild.
 
 **Glory Road  
-Never recorded**  
+Never recorded**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

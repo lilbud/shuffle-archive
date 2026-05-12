@@ -20,45 +20,45 @@ Keep in mind as you read them that Bruce was *eighteen* at the time–and that�
 
 Regardless: he was young, and he still had a long way to go toward refining his craft. He’s not very adventurous with metaphor, and the rhyme scheme of the verses are consistent (although whether intentional or not (I’m inclined to credit it), there’s a clever almost rhyme between the third lines for the first two verses.)
 
-*As my mind bends clouds into dreams that I like*  
-*As the sun disappears into the night*  
-*I look and you have gone*  
-*Then I hear you calling to me in the distance*  
+*As my mind bends clouds into dreams that I like*
+*As the sun disappears into the night*
+*I look and you have gone*
+*Then I hear you calling to me in the distance*
 *Yet can’t you see I’m resisting the whisperings of your mind*
 
-*And as the cry of war racks my brain*  
-*I realize men don’t love the same*  
-*Maybe I’ll make it to the summer rain*  
+*And as the cry of war racks my brain*
+*I realize men don’t love the same*
+*Maybe I’ll make it to the summer rain*
 *Or maybe I’ll lose my mind insane trying*
 
-*The paper flag flies high over the soldiers grave*  
-*Let’s see what mistake the young boy made*  
-*Was his life really done*  
-*In another land a flower drips in the morning dew*  
+*The paper flag flies high over the soldiers grave*
+*Let’s see what mistake the young boy made*
+*Was his life really done*
+*In another land a flower drips in the morning dew*
 *It’s been thousands of years since I’ve seen you, you know that it’s true*
 
-*And as the cry of war racks my brain*  
-*I realize men don’t love the same*  
-*Maybe I’ll make it to the summer rain*  
+*And as the cry of war racks my brain*
+*I realize men don’t love the same*
+*Maybe I’ll make it to the summer rain*
 *Or maybe I’ll lose my mind insane trying*
 
-*I’m walking down by the banks of the river*  
-*My heart is lonely, she flows by you to whisper*  
-*Then I see you standing there*  
-*The gypsy tells the future of a dying man*  
+*I’m walking down by the banks of the river*
+*My heart is lonely, she flows by you to whisper*
+*Then I see you standing there*
+*The gypsy tells the future of a dying man*
 *Yet he’ll never understand what he’s dying for*
 
-*And as the cry of war racks my brain*  
-*I realize men don’t love the same*  
-*Maybe I’ll make it to the summer rain*  
+*And as the cry of war racks my brain*
+*I realize men don’t love the same*
+*Maybe I’ll make it to the summer rain*
 *Or maybe I’ll lose my mind insane trying*
 
 Bruce is believed to have played “Clouds” during some of his acoustic shows in 1968, but we don’t have any definitive recording or setlist to testify to it. Still, the fact that his solo shows started in May of that year–mere days after he transcribed this notebook–suggests that the songs in the notebook were complete enough to have been intended for performance.
 
 Perhaps someday a recording will surface and we’ll find out for sure.
 
-**Clouds**  
-**Never recorded**  
+**Clouds**
+**Never recorded**
 **First performed:** unknown  
 **Last performed:** unknown
 

@@ -56,4 +56,4 @@ For tomorrow’s show I’m buying earplugs!
 
 Share Your Story
 
-*My thanks to Anna for sharing her story! Want to share yours? [Drop me a line](mailto:ken@estreetshuffle.com) in advance of your show’s anniversary, and I’ll be happy to feature it–I’ll even add audio and video (if I have it) to help bring it to life.* 
+*My thanks to Anna for sharing her story! Want to share yours? [Drop me a line](mailto:ken@estreetshuffle.com) in advance of your show’s anniversary, and I’ll be happy to feature it–I’ll even add audio and video (if I have it) to help bring it to life.*

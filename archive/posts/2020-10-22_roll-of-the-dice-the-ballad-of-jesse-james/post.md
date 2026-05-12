@@ -16,30 +16,30 @@ It certainly follows the Steel Mill formula, though: light on lyrics, heavy on g
 
 As for those lyrics, there’s not much to analyze. “The Ballad of Jesse James” is the credo of a young rocker, an exhortation to rebel, revel, and relish all that life has to offer while you’re young enough to appreciate it.
 
-*Well don’t you wanna climb a mountain*  
-*Yeah don’t you wanna ride the river*  
-*Drink from a magic fountain*  
+*Well don’t you wanna climb a mountain*
+*Yeah don’t you wanna ride the river*
+*Drink from a magic fountain*
 *Give your woman all the love that you can give her*
 
-*Well don’t you wanna be an outlaw*  
-*Don’t you wanna ride the range*  
-*Don’t you wanna be an outlaw, children*  
+*Well don’t you wanna be an outlaw*
+*Don’t you wanna ride the range*
+*Don’t you wanna be an outlaw, children*
 *Just like Jesse, like Jesse James, just like Jesse boy*
 
-*Well now don’t you wanna swim the ocean*  
-*Yeah don’t you wanna climb the highest tree*  
-*Drink some of Mama’s love potion*  
+*Well now don’t you wanna swim the ocean*
+*Yeah don’t you wanna climb the highest tree*
+*Drink some of Mama’s love potion*
 *Kiss your woman till she just can’t see*
 
-*Don’t you wanna be an outlaw, yeah baby*  
-*Just a poor boy caught on the skids*  
-*Don’t you wanna be an outlaw, children*  
+*Don’t you wanna be an outlaw, yeah baby*
+*Just a poor boy caught on the skids*
+*Don’t you wanna be an outlaw, children*
 *Just like Billy, just like Billy the Kid*
 
-*Yeah Jesse he was a bad boy*  
-*He roamed the wild west*  
-*And many notches on his gun as the year of 21*  
-*Someone laid him to an early rest*  
+*Yeah Jesse he was a bad boy*
+*He roamed the wild west*
+*And many notches on his gun as the year of 21*
+*Someone laid him to an early rest*
 *All right, baby*
 
 If there’s any nuance to be found in “The Ballad of Jesse James,” it’s in that pivotal verse above. It’s a cautionary tale, but one that can be read two ways: a *carpe diem* call to action lest life cut your opportunity short before you’re ready; or a warning that living and loving with abandon can hasten that end.

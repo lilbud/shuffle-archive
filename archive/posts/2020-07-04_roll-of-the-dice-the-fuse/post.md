@@ -18,28 +18,28 @@ The key here is that in the first days, weeks, and months following 9/11, Americ
 
 There’s also a distinct color palette on display in “The Fuse” — the colors red and black are paired together recurringly throughout, symbolizing the rage and loss that were so predominant at the time.
 
-*Down at the court house they’re ringing the flag down*  
-*Long black line of cars snaking slow through town*  
-*Red sheets snapping on the line*  
-*With this ring will you be mine*  
-*The fuse is burning, shut out the lights*  
+*Down at the court house they’re ringing the flag down*
+*Long black line of cars snaking slow through town*
+*Red sheets snapping on the line*
+*With this ring will you be mine*
+*The fuse is burning, shut out the lights*
 *The fuse is burning, come on let me do you right*
 
 The first verse sets the scene and the time: it’s very soon after the tragic events of September 11, 2001–early enough that flags are just starting to be lowered in honor of the dead, while mourners wind their way through the streets of town.
 
 Here’s our first pairing of black and red: the cars of the funeral procession an obvious metaphor for loss, the snapping of the sheets a somewhat less-obvious metaphor for the winds beginning to gather into a storm.
 
-And in the midst of grief and anger, there’s urgent life: a wedding proposal. *Be mine. Be mine now, because there may not be a tomorrow.* 
+And in the midst of grief and anger, there’s urgent life: a wedding proposal. *Be mine. Be mine now, because there may not be a tomorrow.*
 
 The chorus of “The Fuse” can confuse if you hear the narrator callously dismissing the events of the day with a casual offer of sex. But those who can transport in an instant back to that place and time hear something different: a desperate need for connection, for life, for something good. The narrator knows that time is short–bad things are coming that will change the nation and the lives of its citizens–and that he can neither stop it or delay it.
 
 But he can deny it, at least for now. He can offer his love the one power we all have at our disposal that can silence the rest of the world–intense physical connection. Bruce is keenly aware that sex done right is like a pause button on the world, a mute button on its cacophony, and this is the central conceit of “The Fuse.”
 
-*Trees on fire with the first fall’s frost*  
-*Long black line in front of Holy Cross*  
-*Blood moon rising in a sky of black dust*  
-*Tell me baby who do you trust*  
-*The fuse is burning, shut out the lights*  
+*Trees on fire with the first fall’s frost*
+*Long black line in front of Holy Cross*
+*Blood moon rising in a sky of black dust*
+*Tell me baby who do you trust*
+*The fuse is burning, shut out the lights*
 *The fuse is burning, come on let me do you right*
 
 That first line of the second verse may be the best lyric in the entire song: “trees on fire with the first fall’s frost.” It works even when taken literally (because intense cold can feel like a burning sensation), but as metaphor it’s absolutely brilliant: we’re simultaneously numb and hyper-sensitive.
@@ -50,20 +50,20 @@ And of course, we have another subtle red/black pairing (trees on fire/long blac
 
 In many of Bruce’s songs, the bridge serves as the core of the song–the place where the song’s theme is distilled to its essence. “The Fuse” is no exception.
 
-*Tires on the highway hissing something’s coming*  
-*You can feel the wires in the tree tops humming*  
-*Devil’s on the horizon line*  
+*Tires on the highway hissing something’s coming*
+*You can feel the wires in the tree tops humming*
+*Devil’s on the horizon line*
 *Your kiss and I’m alive*
 
 We can summarize that bridge, indeed the entire song, thus: the best medicine for existential dread is the very act that makes us alive.
 
 And that leads us into the last verse, which is entirely focused on that act:
 
-*A quiet afternoon, an empty house*  
-*On the edge of the bed you slip off your blouse*  
-*The room is burning with the noon sun*  
-*Your bittersweet taste on my tongue*  
-*The fuse is burning, shut out the lights*  
+*A quiet afternoon, an empty house*
+*On the edge of the bed you slip off your blouse*
+*The room is burning with the noon sun*
+*Your bittersweet taste on my tongue*
+*The fuse is burning, shut out the lights*
 *The fuse is burning, come on let me do you right*
 
 Notice that as we enter that last verse, the cacophony has already diminished significantly–as the lovers succumb to each other’s seduction, the outside world has begun to drift away. We have one final red recurrence as the room is set ablaze by a sun that now represents a different kind of passion, but there’s no darkness in sight.

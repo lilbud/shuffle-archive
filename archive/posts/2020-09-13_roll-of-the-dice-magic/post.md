@@ -18,7 +18,7 @@ Hey, that saw blade sure is shiny. Can we see a magic trick?
 
 Bruce Springsteen released “Magic” in 2007, but it’s only grown in importance and relevance since then. This year in particular, it’s almost a mantra. There’s not a day that goes by that Bruce’s lyrics don’t echo in my brain.
 
-*Trust none of what you hear.*  
+*Trust none of what you hear.*
 
 
 *I’ll cut you in half while you’re smiling.*
@@ -37,42 +37,42 @@ Bruce wrote “Magic” during the second Bush administration, and while it was 
 
 “Magic” sounds sinister from the outset, its eerie backing track conjuring the image of a haunted carnival (an apt metaphor in and of itself). Our narrator is a politician who sees himself as a magician so adept at his craft that he can tell us his secrets even as he uses them to deceive us.
 
-*I got a coin in my palm*  
-*I can make it disappear*  
-*I got a card up my sleeve*  
-*Name it and I’ll pull it out your ear*  
-*I got a rabbit in my hat*  
-*If you wanna come and see*  
-*This is what will be*  
+*I got a coin in my palm*
+*I can make it disappear*
+*I got a card up my sleeve*
+*Name it and I’ll pull it out your ear*
+*I got a rabbit in my hat*
+*If you wanna come and see*
+*This is what will be*
 *This is what will be*
 
 *You’ll see what I want you to see*, he tells us. *I’ll misdirect you so you’ll miss what I don’t want you to notice. And whether you like the trick or not, you won’t be able to look away.*
 
-*I got shackles on my wrists*  
-*Soon I’ll slip ’em and be gone*  
-*Chain me in a box in your river*  
+*I got shackles on my wrists*
+*Soon I’ll slip ’em and be gone*
+*Chain me in a box in your river*
 *And I’ll rise singing this song*
 
 *If you catch my deception, I’ll deny it. Prove it, and I’ll dismiss it. You’ll think, “this time we’ve got him for sure,” but I am the ultimate escape artist. I will make you doubt your own senses.*
 
 It’s the next lines of the song that get the most attention…
 
-*Trust none of what you hear*  
-*And less of what you see*  
-*This is what will be*  
+*Trust none of what you hear*
+*And less of what you see*
+*This is what will be*
 *This is what will be*
 
 …and they certainly convey essential advice.
 
 But as we’ve seen time and again across Bruce’s catalog, the true heart of “Magic” is its bridge:
 
-*I got a shiny saw blade*  
-*All I need’s a volunteer*  
-*I’ll cut you in half*  
-*While you’re smiling ear to ear*  
-*And the freedom that you sought’s*  
-*Driftin’ like a ghost amongst the trees*  
-*This is what will be*  
+*I got a shiny saw blade*
+*All I need’s a volunteer*
+*I’ll cut you in half*
+*While you’re smiling ear to ear*
+*And the freedom that you sought’s*
+*Driftin’ like a ghost amongst the trees*
+*This is what will be*
 *This is what will be*
 
 I didn’t fully appreciate the importance of those lines when “Magic” was first released. Only in the years since have I appreciated their potency and prescience.
@@ -85,13 +85,13 @@ That’s the core message at the heart of “Magic”: When we demonize each oth
 
 Gaslighting won’t fool all of the people, but it’ll fool enough of us to divide us against each other. And once that happens… well, Bruce drives it home in the last verse with lyrics that are almost certainly an intentional inversion of “[Land of Hope and Dreams](https://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/).”
 
-*Now there’s a fire down below*  
-*But it’s coming up here*  
-*So leave everything you know*  
-*Carry only what you fear*  
-*On the road the sun is sinking low*  
-*There’s bodies hanging in the trees*  
-*This is what will be*  
+*Now there’s a fire down below*
+*But it’s coming up here*
+*So leave everything you know*
+*Carry only what you fear*
+*On the road the sun is sinking low*
+*There’s bodies hanging in the trees*
+*This is what will be*
 *This is what will be*
 
 The fire down below is the latent hatred, prejudice, and division so carefully cultivated for years. At the time Bruce wrote “Magic,” it hadn’t yet erupted on the surface, but he knew it was coming.
@@ -102,7 +102,7 @@ The fire down below is the latent hatred, prejudice, and division so carefully c
 
 *The sun is sinking low*. We’re nearing the end of our run. We’re in our descendancy.
 
-*There’s bodies hanging in the trees.* 
+*There’s bodies hanging in the trees.*
 
 *This is what will be.*
 

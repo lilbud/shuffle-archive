@@ -16,31 +16,31 @@ It only took Bruce two days to honor his promise. On September 16, Bruce’s pos
 
 Gieco’s lyrics are simple but powerful, beseeching his God for the strength to face and fight the forces of injustice, war, and social ills.
 
-*I only ask God*  
-*That I’m not indifferent to pain*  
-*That dry death won't find me*  
-*Empty and alone*  
+*I only ask God*
+*That I’m not indifferent to pain*
+*That dry death won't find me*
+*Empty and alone*
 *Without having done enough.*
 
-*I only ask God*  
-*That I’m not indifferent to war*  
-*It's a big monster*  
-*And it tramples hard*  
+*I only ask God*
+*That I’m not indifferent to war*
+*It's a big monster*
+*And it tramples hard*
 *On the poor innocence of people.*
 
-*I only ask God*  
-*That I’m not indifferent to injustice*  
-*That I will not be slapped on the other cheek*  
+*I only ask God*
+*That I’m not indifferent to injustice*
+*That I will not be slapped on the other cheek*
 *After a claw has torn me in this manner.*
 
-*I only ask God*  
-*That I’m not indifferent to deceit*  
-*If a traitor is mightier than a few*  
+*I only ask God*
+*That I’m not indifferent to deceit*
+*If a traitor is mightier than a few*
 *Let those few not forget it easily.*
 
-*I only ask of God*  
-*That I am not indifferent to the future,*  
-*Hopeless is he who has to go*  
+*I only ask of God*
+*That I am not indifferent to the future,*
+*Hopeless is he who has to go*
 *To live a different culture.*
 
 “Sólo Le Pido A Dios” has been covered by dozens of artists (including the late Mercedes Sosa, who taught it to Bruce) and translated into more than twenty-five languages worldwide.
@@ -49,7 +49,7 @@ It remains as important today as it was when Gieco first recorded it.
 
 **Sólo Le Pido A Dios  
 **Recorded** September 14, 2013  
-**Never released**  
+**Never released**
 **Never performed**
 
  

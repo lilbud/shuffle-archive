@@ -10,62 +10,62 @@ But I also find it lyrically messy at times, a victim of the verbal spewage that
 
 Story #1 begins with an ominous clap of distant thunder (Steve Van Zandt’s first contribution to a Springsteen record); David Sancious’ piano is the only accompaniment for a soldier returning home (presumably from Vietnam). He doesn’t recognize his town, and his town doesn’t recognize him.
 
-*The ragamuffin gunner is returnin’ home like a hungry runaway*  
-*He walks through town all alone*  
+*The ragamuffin gunner is returnin’ home like a hungry runaway*
+*He walks through town all alone*
 *“He must be from the fort,” he hears the high school girls say*
 
 To the gunner, the streetscape evokes the wartime countryside. There’s an unholy, drug-fueled ennui that’s taken over the streets, and the gunner feels mired in it, unable to move.
 
-*This countryside’s burnin’ with wolfmen fairies dressed in drag for homicide*  
-*They hit and run, plead sanctuary, ‘neath the holy stone they hide*  
-*They’re breakin’ beams and crosses with a spastic’s reelin’ perfection*  
-*Nuns run bald through Vatican halls pregnant, pleadin’ immaculate conception*  
-*And everybody’s wrecked on Main Street from drinking unholy blood*  
+*This countryside’s burnin’ with wolfmen fairies dressed in drag for homicide*
+*They hit and run, plead sanctuary, ‘neath the holy stone they hide*
+*They’re breakin’ beams and crosses with a spastic’s reelin’ perfection*
+*Nuns run bald through Vatican halls pregnant, pleadin’ immaculate conception*
+*And everybody’s wrecked on Main Street from drinking unholy blood*
 *Sticker smiles sweet as gunner breathes deep, his ankles caked in mud*
 
 The narrator sets him straight–Gunner isn’t stuck; he’s sinking.
 
-*And I said, “Hey, gunner man, that’s quicksand, that’s quicksand that ain’t mud*  
+*And I said, “Hey, gunner man, that’s quicksand, that’s quicksand that ain’t mud*
 *Have you thrown your senses to the war or did you lose them in the flood?”*
 
 The apocalyptic religious imagery is a little over-the-top for my taste, but it certainly takes us inside Gunner’s mind. Let’s continue.
 
 Story #2 introduces us to a Jersey street racer, going nowhere fast:
 
-*That pure American brother, dull-eyed and empty-faced*  
-*Races Sundays in Jersey in a Chevy stock super eight*  
-*He rides her low on the hip, on the side he’s got “Bound For Glory” in red, white and blue flash paint*  
+*That pure American brother, dull-eyed and empty-faced*
+*Races Sundays in Jersey in a Chevy stock super eight*
+*He rides her low on the hip, on the side he’s got “Bound For Glory” in red, white and blue flash paint*
 *He leans on the hood telling racin’ stories, the kids call him Jimmy the Saint*
 
 At this point, the E Street Band enters, and Jimmy springs into tragic action, racing into a hurricane. Jimmy challenges the storm and the storm wins.
 
-*Well that blaze and noise boy, he’s gunnin’ that bitch loaded to blastin’ point*  
-*He rides headfirst into a hurricane and disappears into a point*  
-*And there’s nothin’ left but some blood where the body fell*  
-*That is, nothin’ left that you could sell*  
+*Well that blaze and noise boy, he’s gunnin’ that bitch loaded to blastin’ point*
+*He rides headfirst into a hurricane and disappears into a point*
+*And there’s nothin’ left but some blood where the body fell*
+*That is, nothin’ left that you could sell*
 *Just junk all across the horizon, a real highwayman’s farewell*
 
 The narrator again enters the scene:
 
-*And I said, “Hey kid, you think that’s oil? Man, that ain’t oil, that’s blood”*  
-*I wonder what he was thinking when he hit that storm*  
+*And I said, “Hey kid, you think that’s oil? Man, that ain’t oil, that’s blood”*
+*I wonder what he was thinking when he hit that storm*
 *Or was he just lost in the flood?*
 
 Given the context of the first and third vignettes, it’s likely that this story, too, concerns the spread of drugs on the street. Jimmy is “dull-eyed and empty-faced,” and “racing” could easily be a metaphor for shooting up. Riding and disappearing into a hurricane, with nothing left to sell… just “junk” all over the horizon. Doesn’t take much of a stretch to make the connection, but Bruce pulls off a neat trick by using the plainest language of the three stories to employ the subtlest metaphor.
 
 For the last story, we’re back out on the street, in an eerie quiet that breaks suddenly:
 
-*Eighth Avenue sailors in satin shirts whisper in the air*  
-*Some storefront incarnation of Maria, she’s puttin’ on me the stare*  
-*And Bronx’s best apostle stands with his hand on his own hardware*  
+*Eighth Avenue sailors in satin shirts whisper in the air*
+*Some storefront incarnation of Maria, she’s puttin’ on me the stare*
+*And Bronx’s best apostle stands with his hand on his own hardware*
 *Everything stops, you hear five quick shots, the cops come up for air*
 
 A pell-mell gang gunfight ensues, and Bruce narrates it as if directing a movie:
 
-*And now the whiz-bang gang from uptown, they’re shootin’ up the street*  
-*Whoa, that cat from the Bronx starts lettin’ loose, but he gets blown right off his feet*  
-*Oh, and some kid comes blastin’ round the corner, but a cop puts him right away*  
-*He lays on the street holding his leg screaming something in Spanish*  
+*And now the whiz-bang gang from uptown, they’re shootin’ up the street*
+*Whoa, that cat from the Bronx starts lettin’ loose, but he gets blown right off his feet*
+*Oh, and some kid comes blastin’ round the corner, but a cop puts him right away*
+*He lays on the street holding his leg screaming something in Spanish*
 *Still breathing when I walked away*
 
 (Those last two lines are a great example of Bruce’s talent for crystallizing a scene in the viewer’s mind simply by describing a seemingly trivial detail–in this case, the kid on the street holding his leg, screaming something the narrator doesn’t understand and doesn’t stick around to find out. It’s a brilliant device.)
@@ -74,11 +74,11 @@ Unfortunately, the musical accompaniment isn’t nearly as ferocious as Bruce’
 
 The narrator enters once more, wondering what the point was of the carnage–or if there even was one.
 
-*And somebody said, “Hey man, did you see that? His body hit the street with such a beautiful thud”*  
-*I wonder what the dude was sayin’, or was he just lost in the flood?*  
-*Well, hey man, did you see that, lord, those poor cats are sure messed up*  
-*I wonder what they were gettin’ into, or were they all just lost in the flood?*  
-*Were they lost, oh, tell me, tell me, man*  
+*And somebody said, “Hey man, did you see that? His body hit the street with such a beautiful thud”*
+*I wonder what the dude was sayin’, or was he just lost in the flood?*
+*Well, hey man, did you see that, lord, those poor cats are sure messed up*
+*I wonder what they were gettin’ into, or were they all just lost in the flood?*
+*Were they lost, oh, tell me, tell me, man*
 *Were they lost?*
 
 Lost in the flood… of what? The junkie’s rush? The miasma of the street? The demons that drive one to drugs in order to escape? Probably all of those.

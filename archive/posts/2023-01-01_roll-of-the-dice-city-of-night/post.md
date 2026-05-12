@@ -8,15 +8,15 @@ Still, there’s something hypnotic and wonderful about this lost lovely. Take a
 
 If I had to describe “City of Night” in a word, it would be: carefree. Like his sugar girl, our narrator of hasn’t a care in the world. He’s on his way to see her, and that’s pretty much all we need to know–which is good, because that’s pretty much all we get. His mind wanders during his cab ride to his baby:
 
-*Taxi cab, taxi cab at the light*  
-*Won’t you take me on a ride through this city of night*  
-*I got some money and I’m feeling fine*  
-*I ain’t in no hurry so just take your time*  
-*Some people wanna die young and gloriously*  
-*But taxi cab driver, yeah that ain’t me*  
-*I got a cute little baby down at 12th and Vine*  
-*And she opens for business just about closing time*  
-*Ah hey hey, ah hey hey*  
+*Taxi cab, taxi cab at the light*
+*Won’t you take me on a ride through this city of night*
+*I got some money and I’m feeling fine*
+*I ain’t in no hurry so just take your time*
+*Some people wanna die young and gloriously*
+*But taxi cab driver, yeah that ain’t me*
+*I got a cute little baby down at 12th and Vine*
+*And she opens for business just about closing time*
+*Ah hey hey, ah hey hey*
 *City of night, city of night*
 
 There’s not a lot in “City of Night” that asks for analysis, but there are a couple of things worth noting.
@@ -25,11 +25,11 @@ First, there’s the title itself, another in a long, *long* list of Springsteen
 
 Then there’s that lyric: “Some people wanna die young and gloriously.” That line will resurface a decade later in “[All That Heaven Will Allow](https://estreetshuffle.com/index.php/2022/08/05/roll-of-the-dice-all-that-heaven-will-allow/)” (another borrowed title). Although we’re used to hearing Bruce’s lyrics pop up in other songs, at first listen “City of Night” and “All That Heaven Will Allow” couldn’t seem more dissimilar. We might change our mind on repeat listen, however: both narrators are walking on air with only love on their minds.
 
-*I don’t believe what I see in this street*  
-*I don’t know how people they can take the heat*  
-*Well baby I’m a liar, I’m a cheat, and I don’t care*  
-*I got my money, I can take my fare*  
-*Ah hey hey, ah hey hey*  
+*I don’t believe what I see in this street*
+*I don’t know how people they can take the heat*
+*Well baby I’m a liar, I’m a cheat, and I don’t care*
+*I got my money, I can take my fare*
+*Ah hey hey, ah hey hey*
 *City of night, city of night*
 
 There’s some slick editing at work in the second verse. Although Bruce and the band committed “City of Night” to tape on October 14, 1977, the song was actually unfinished. The second half of the second verse was almost completely bluffed, with Bruce mumbling scraps of phrases.
@@ -40,11 +40,11 @@ The version that Bruce officially released on *The Promise* in 2010 deftly edits
 
 You might have noticed something else in that original recording besides the skillful edit–where’s the third verse?
 
-*I’m riding tonight to see my sugar girl*  
-*You know she wears that dress without a care in the world*  
-*Yeah she got some loving that’s as bright as the sun*  
-*And she brings it with her, man, when she comes*  
-*Hey, hey, city of night*  
+*I’m riding tonight to see my sugar girl*
+*You know she wears that dress without a care in the world*
+*Yeah she got some loving that’s as bright as the sun*
+*And she brings it with her, man, when she comes*
+*Hey, hey, city of night*
 *Ah-hey, ah-hey, city of night*
 
 *Ride on…*

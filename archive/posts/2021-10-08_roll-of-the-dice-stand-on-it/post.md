@@ -20,46 +20,46 @@ As “Ace” urges in the book, “If you’re ever going to stand on it at all,
 
 Bruce turned that motto into a rockabilly cautionary tale in his 1985 B-side to “Glory Days.” The first two verses (if you can make them out) hurtle past us as fast as Jimmy Lee and Mary Beth themselves.
 
-*Well Jimmy Lee was hooking ’round the far turn of a funky southern Florida dirt track*  
-*He had mud caked on his goggles and a screaming 350 stacked up on his back*  
-*Well as he passed the stands he was feeling all tuckered out*  
-*When through the roar of his engine he heard somebody shout*  
+*Well Jimmy Lee was hooking ’round the far turn of a funky southern Florida dirt track*
+*He had mud caked on his goggles and a screaming 350 stacked up on his back*
+*Well as he passed the stands he was feeling all tuckered out*
+*When through the roar of his engine he heard somebody shout*
 *“Stand on it, come on boy, stand on it”*
 
-*Mary Beth started to drift, she hit the shift but she just couldn’t get a hand on it*  
-*Racing some Red Hill boys, she had the deed to the ranch and a grand on it*  
-*With eight grand blowing hot on the red line*  
-*She blew past a hitchhiker out on Route 39*  
+*Mary Beth started to drift, she hit the shift but she just couldn’t get a hand on it*
+*Racing some Red Hill boys, she had the deed to the ranch and a grand on it*
+*With eight grand blowing hot on the red line*
+*She blew past a hitchhiker out on Route 39*
 *He hollered “Stand on it, go ‘head baby, stand on it”*
 
 Jimmy Lee is flagging on the dirt track until a shouted encouragement reignites his fire. Mary Beth’s stakes are higher: her house is on the line, but she listens to the hitchhiker and stands on it, too.
 
 *Stand on it*. It applies to racing, but it applies to life, too–and you can leave it all out on the dance floor as easily as the dirt track.
 
-*Well now when in doubt and you can’t figure it out, just stand on it*  
-*Well if your mind’s confused, you don’t know what you’re gonna do, well buddy, stand on it*  
-*Well if you’ve lost control of the situation at hand*  
-*Go grab a girl and see a rock and roll band*  
+*Well now when in doubt and you can’t figure it out, just stand on it*
+*Well if your mind’s confused, you don’t know what you’re gonna do, well buddy, stand on it*
+*Well if you’ve lost control of the situation at hand*
+*Go grab a girl and see a rock and roll band*
 *And stand on it, come on man, stand on it*
 
 Feeling doubtful, confused, not in control? Just [drive fast, fall hard](https://estreetshuffle.com/index.php/2021/01/17/roll-of-the-dice-drive-fast-the-stuntman/).
 
 Just to make sure we don’t miss the message, Bruce pauses the racing metaphor and teaches a history lesson.
 
-*Hey-hey, well now Columbus he discovered America even though he hadn’t planned on it*  
-*He got lost and woke up one a-morning when he’s about to land on it*  
-*He wouldn’t have got out of Italy, man that’s for sure*  
-*Without Queen Isabella standing on the shore*  
+*Hey-hey, well now Columbus he discovered America even though he hadn’t planned on it*
+*He got lost and woke up one a-morning when he’s about to land on it*
+*He wouldn’t have got out of Italy, man that’s for sure*
+*Without Queen Isabella standing on the shore*
 *Shouting “Stand on it, go ahead man, stand on it”*
 
 And it’s at this point that we realize Bruce is sending another message, too: even the most daring of us have doubts. Sometimes we just need someone in our corner cheering us on, giving us courage, just like Jimmy Lee, Mary Beth, and even Columbus did.
 
 Or, if we refuse to listen, at least someone heckling us to make sure we learn our lesson. Poor Bobby. This is what happens when you ease up before you cross the finish line:
 
-*Bobby was leading the pack, he settled back and he got ready for the long haul*  
-*Well fifty yards from the finish line somebody roared up and they blew him into the wall*  
-*Well he rolled over twice, lucky to survive*  
-*Laying in the back of the ambulance more dead than alive*  
+*Bobby was leading the pack, he settled back and he got ready for the long haul*
+*Well fifty yards from the finish line somebody roared up and they blew him into the wall*
+*Well he rolled over twice, lucky to survive*
+*Laying in the back of the ambulance more dead than alive*
 *Somebody shouted “Man, you call that driving, why didn’t you stand on it”*
 
 “Stand On It” is so hilariously and ferociously paced that it’s easy to dismiss it as a lark (which it kind of is–Bruce reportedly wrote it the night he recorded it, at the end of a long, late-night recording session). But even if extreme, the message is a serious one, and close enough to Bruce’s modus operandi to only be exaggerated by a degree or two.

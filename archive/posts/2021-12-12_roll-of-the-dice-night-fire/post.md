@@ -30,25 +30,25 @@ And this is what drives me nuts about not being able to make out the original ly
 
 Compare the early lyrics from “Point Blank” around the same time:
 
-*Eyes filled with anger, hearts filled with hate*  
-*You see their faces on the street and you just turn away, but baby it’s too late*  
-*You hear them crying to you in the night*  
-*Oh you hear them knocking at your door, there’s no sleep for baby tonight*  
-*And so you stumble out into the morning searching for your usual fix*  
-*But girl them old distractions, man, they just don’t give the kicks they used to*  
-*So you go home and pack your pistol, you go out looking for someone*  
+*Eyes filled with anger, hearts filled with hate*
+*You see their faces on the street and you just turn away, but baby it’s too late*
+*You hear them crying to you in the night*
+*Oh you hear them knocking at your door, there’s no sleep for baby tonight*
+*And so you stumble out into the morning searching for your usual fix*
+*But girl them old distractions, man, they just don’t give the kicks they used to*
+*So you go home and pack your pistol, you go out looking for someone*
 *But girl can’t you see they got you caught in the middle, you don’t know where to aim your gun*
 
 …with the released lyrics for “Night Fire:”
 
-*All the faces staring down your throat*  
-*All the eyes, darling, that never closed*  
+*All the faces staring down your throat*
+*All the eyes, darling, that never closed*
 *In your sadness, girl, maybe there’s something that you ought to know*
 
-*Well they punch your ticket as you grow old*  
-*Do you really get used to being bought and sold*  
-*Does a brand new dress keep out the cold*  
-*Do your brand new friends help you to keep*  
+*Well they punch your ticket as you grow old*
+*Do you really get used to being bought and sold*
+*Does a brand new dress keep out the cold*
+*Do your brand new friends help you to keep*
 *Your pretty eyes from seeing what they shouldn’t see*
 
 Pretty similar, right?
@@ -59,9 +59,9 @@ Sigh. The tribulations of being an obsessed fan.
 
 [Watch on Youtube: Bruce Springsteen - "Night Fire" rehearsal](https://www.youtube.com/watch?v=8GHNbvLKM7A)
 
-**Night Fire**  
+**Night Fire**
 **Recorded:** June 13, 1979 (instrumental track) (vocal track probably 2014-2015)  
-**Released:** *The Ties That Bind: The River Collection*  
+**Released:** *The Ties That Bind: The River Collection*
 **Never Performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

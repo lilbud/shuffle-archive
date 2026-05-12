@@ -28,33 +28,33 @@ Bruce wrote “Coming Home” at a time when the nation and his generation were 
 
 Bruce’s narrator in “Coming Home” lives on the poor side of town. Looking for a life of adventure, he falls sway to the army’s recruitment pitch, and before long they put a rifle in his hand and ship him off to a foreign land.
 
-*Well now, living ain’t easy on this side of the highway*  
-*Trying to get a hold on life*  
-*The thing that you want is to have your fun*  
-*First they show you the gun and then they show you the lie*  
-*Ah but things are gonna change*  
+*Well now, living ain’t easy on this side of the highway*
+*Trying to get a hold on life*
+*The thing that you want is to have your fun*
+*First they show you the gun and then they show you the lie*
+*Ah but things are gonna change*
 *Things are changing every day*
 
-*I’m just a lone boy on the highway*  
-*I’ll try to make my own*  
-*I’m just a lone boy on the highway*  
-*Oh God I feel so alone now*  
+*I’m just a lone boy on the highway*
+*I’ll try to make my own*
+*I’m just a lone boy on the highway*
+*Oh God I feel so alone now*
 *But I’m coming home*
 
 By this point in Bruce’s young musical career, his songwriting was mature and subtle enough to operate on two levels, as anti-war commentary and an open-road rocker. Bruce effortlessly switches context and geography from verse to chorus, flashing forward to the returned soldier, emotionally isolated by his experiences and yearning for a home he knows deep down he can’t ever truly return to.
 
-*I don’t wanna go back to Kansas*  
-*I don’t wanna go there no more*  
-*I don’t think I could stand it*  
-*First they show you the gun and then they show you the door*  
-*Ah but things are gonna change*  
+*I don’t wanna go back to Kansas*
+*I don’t wanna go there no more*
+*I don’t think I could stand it*
+*First they show you the gun and then they show you the door*
+*Ah but things are gonna change*
 *Things are changing every day*
 
-*Well I don’t wanna go back*  
-*I don’t think I can ever go back again*  
-*I don’t wanna go back*  
-*I won’t go back and ever see her face again*  
-*Mama I’m going home*  
+*Well I don’t wanna go back*
+*I don’t think I can ever go back again*
+*I don’t wanna go back*
+*I won’t go back and ever see her face again*
+*Mama I’m going home*
 *I won’t talk about it*
 
 There’s only the hint of allusion to the life (and love?) he left behind–our narrator won’t let himself resume it, yet he’s unable to fully let go. That sense of alienation among battle-scarred veterans was only starting to become recognized, but Bruce already understood it enough to write about it at the age of 22.
@@ -69,7 +69,7 @@ But in 1972, [that story](https://estreetshuffle.com/index.php/2019/09/21/roll-o
 
 **Coming Home  
 **Recorded** March 14, 1972  
-**Never released**  
+**Never released**
 **First performed:** October 23, 1971 (Richmond, VA)  
 **Last performed:** February 25, 1972 (Richmond, VA)
 

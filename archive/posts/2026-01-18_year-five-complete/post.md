@@ -51,7 +51,7 @@ While the central anchor of “Follow that dream wherever it may lead” may be 
 Springsteen also adds an entirely new verse:
 
 *Now every man has the right to live  
-The right to a chance to give what he has to give*  
+The right to a chance to give what he has to give*
 *The right to fight for the things he believes  
 For things that come to him in dreams*
 

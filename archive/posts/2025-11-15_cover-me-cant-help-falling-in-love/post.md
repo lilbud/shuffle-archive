@@ -14,7 +14,7 @@ Well, sort of. The lyrics are kind of a downer, but that music box was playing a
 
 The chorus of “Plaisir d’Amour” translates to…
 
-*Pleasure of love only lasts a moment*  
+*Pleasure of love only lasts a moment*
 *Heartache lasts a lifetime*
 
 …with verses like:

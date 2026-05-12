@@ -40,33 +40,33 @@ Even in June, just weeks before Bruce recorded the final version that would appe
 
 Truthfully, even the recorded version still sounds like a work in progress. The lyrics read like they’re finished, but when we listen to the song, they seem at times like they don’t quite fit the music and the meter.
 
-*Cold rain running down the front of my shirt*  
-*I’m flat on my back, wheels in the dirt*  
-*Angel makes her face up out on Baker Street*  
-*She’s straddling the shifter in my front seat*  
-*There’s nothing to lose, it’s a heartbreak, the deck’s stacked*  
+*Cold rain running down the front of my shirt*
+*I’m flat on my back, wheels in the dirt*
+*Angel makes her face up out on Baker Street*
+*She’s straddling the shifter in my front seat*
+*There’s nothing to lose, it’s a heartbreak, the deck’s stacked*
 *So put your foot to the floor and darling don’t look back*
 
-*We’re making night tracks through the blazing rain*  
-*Blowing pistons working the fast lane*  
-*Red line burning, pocket’s full of cash*  
-*Angel writes her name in lipstick on my dash*  
-*There’s nothing to lose, it’s a bad break but baby we’re bad*  
+*We’re making night tracks through the blazing rain*
+*Blowing pistons working the fast lane*
+*Red line burning, pocket’s full of cash*
+*Angel writes her name in lipstick on my dash*
+*There’s nothing to lose, it’s a bad break but baby we’re bad*
 *Tonight we’ll blow off their doors and honey we won’t look back*
 
-*We held it in our hearts in the pouring rain*  
-*We made it through the heart of a hurricane*  
-*We tore it apart and put it together again*  
-*Whoa whoa*  
+*We held it in our hearts in the pouring rain*
+*We made it through the heart of a hurricane*
+*We tore it apart and put it together again*
+*Whoa whoa*
 *Whoa whoa whoa*
 
-*Well angel, won’t you believe in love for me*  
-*Come on and meet me tonight, darling, out in the street*  
-*We’ll move with the city in the dark*  
-*You gotta walk it, talk it, in your heart*  
-*There’s nothing to lose, it’s a heartache, the deck’s stacked*  
-*So put your foot to the floor, darling*  
-*Tonight we’ll blow off their doors, baby*  
+*Well angel, won’t you believe in love for me*
+*Come on and meet me tonight, darling, out in the street*
+*We’ll move with the city in the dark*
+*You gotta walk it, talk it, in your heart*
+*There’s nothing to lose, it’s a heartache, the deck’s stacked*
+*So put your foot to the floor, darling*
+*Tonight we’ll blow off their doors, baby*
 *We’re gonna even the score, and honey we won’t look back*
 
 Bruce is also obviously still very much in his infatuation phase with automotive imagery and metaphor, and none of the verses rank anywhere near the top of his best.

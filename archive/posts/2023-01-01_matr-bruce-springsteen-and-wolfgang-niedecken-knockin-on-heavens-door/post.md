@@ -32,7 +32,7 @@ Enjoy.
 
 [Watch on Youtube: Bruce Springsteen - Knocking on heavens door](https://www.youtube.com/watch?v=B9zqCpPnOM4)
 
-**Knockin’ on Heaven’s Door**  
+**Knockin’ on Heaven’s Door**
 **First performed:** July 9, 1995 (Berlin, Germany)  
 **Last performed:** February 6, 2015 (Los Angeles, CA)
 

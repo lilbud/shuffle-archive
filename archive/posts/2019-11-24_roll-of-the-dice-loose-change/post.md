@@ -18,11 +18,11 @@ Let’s take a listen.
 
 The song’s title also serves as its one-line refrain: “loose change in my pocket.” The loose change in question holds dual meaning, one literal and one metaphorical, and surprisingly it’s the literal sense that’s the more revealing and artful one.
 
-*Met her at a friendly little bar down along the coast*  
-*She said it was her birthday so we had us a nice little toast*  
-*Drove around for a while, smoked a few cigarettes*  
-*Took her back to my place, she slipped off her party dress*  
-*She sat for a while on the edge of the bed just talkin’*  
+*Met her at a friendly little bar down along the coast*
+*She said it was her birthday so we had us a nice little toast*
+*Drove around for a while, smoked a few cigarettes*
+*Took her back to my place, she slipped off her party dress*
+*She sat for a while on the edge of the bed just talkin’*
 *Loose change in my pocket*
 
 Throughout that first verse, Bruce uses a standard songwriting device–an eye for careful detail revolving around a romantic encounter–to lead us to believe we’re hearing a tale of seductive connection.
@@ -33,34 +33,34 @@ The detail does have meaning, of course, but the brilliance of “Loose Change�
 
 Bruce pulls the same trick in the next verse, but this time hardcore Springsteen fans and scholars can hear some startlingly familiar echoes:
 
-*Pint of gin in my boot cuff, I’m drivin’ for a drink and a dance*  
-*Sittin’ on the next stool, miss, a little time on her hands*  
-*Yeah I knew she was trouble, but trouble sure was lookin’ fine*  
-***And when I pulled her close what I knew kinda slipped my mind***  
-*We lay in bed and watched the moon come up crawling*  
+*Pint of gin in my boot cuff, I’m drivin’ for a drink and a dance*
+*Sittin’ on the next stool, miss, a little time on her hands*
+*Yeah I knew she was trouble, but trouble sure was lookin’ fine*
+***And when I pulled her close what I knew kinda slipped my mind***
+*We lay in bed and watched the moon come up crawling*
 *Loose change in my pocket*
 
 That bolded line might remind you of a similar line from a song Bruce would write a few years later. In “[Highway 29](https://estreetshuffle.com/index.php/2018/03/23/roll-of-the-dice-highway-29/),” Bruce would again present us with a character who loses his better judgment when he meets a femme fatale.
 
 But even that song is a reworking of an earlier outtake called “Losin’ Kind” that Bruce wrote and recorded back in the *Nebraska* era. And that early song featured lines that bear shocking familiarity to the second verse of “Loose Change:”
 
-*Well we had a few drinks and we danced a while, I pulled her close, she didn't mind*  
+*Well we had a few drinks and we danced a while, I pulled her close, she didn't mind*
 *And what I knew kinda slipped my mind*
 
 It seems that Bruce played with this conceit–meaningless sexual encounters drawing his characters further and further away from familial and communal life toward society’s periphery–for quite some time, at least a decade and a half. (We can trace that throughline as far back as “Stolen Car.”)
 
 There’s a fear that Bruce hints at through the fate of his characters–in both “Losin’ Kind” and “Highway 29,” the main character’s rootlessness leads to tragic circumstances, but he offers the narrator of “Loose Change” a chance. He’s far gone, but not completely gone–there’s a part of him that feels the need to connect to others, but that part is buried deep and he can’t bring it to the surface.
 
-*I pour another drink, wait for the night to get through*  
+*I pour another drink, wait for the night to get through*
 *Stars are burning in that black void so far away and blue*
 
 Our point-of-view character sits at a literal crossroad now, his nomadic instincts at war with his yearning for connection. He’s paralyzed with indecision, unwilling to leave but unable to stay.
 
-*Now I’m sittin’ at a red light, I feel somethin’ tickin’ way down*  
-*The night’s moving like a slow train crawling through this shithole town*  
-*Got my bags packed in the back and I’m tryin’ to get going again*  
-*But red just goes to green and green goes red and then*  
-*Then all I hear’s the clock on the dash tick-tocking*  
+*Now I’m sittin’ at a red light, I feel somethin’ tickin’ way down*
+*The night’s moving like a slow train crawling through this shithole town*
+*Got my bags packed in the back and I’m tryin’ to get going again*
+*But red just goes to green and green goes red and then*
+*Then all I hear’s the clock on the dash tick-tocking*
 *Loose change in my pocket*
 
 Bruce refers to ticking twice in this final verse, conveying simultaneously a sense of time dragging and expiring. His narrator is suspended outside of time at the moment, but time is indeed passing, and the finite moments of his life are dwindling.
@@ -83,7 +83,7 @@ Until then, we’re left to choose our own adventure.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2019/12/loosechange_lyrics-sheet-1.jpg)
 
-**Loose Change**  
+**Loose Change**
 **Recorded:** January 31, 1991  
 **Released:** *Tracks* (1998)  
 **Never Performed**

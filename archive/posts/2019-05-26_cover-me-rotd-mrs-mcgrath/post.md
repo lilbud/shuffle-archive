@@ -34,7 +34,7 @@ Bruce’s new version is a powerful one: without altering the melody, he arrange
 
 Lyrically, he updates the song as well, mostly in small surgical ways. But Bruce completely rewrites the ending, dialing down Mrs. McGrath’s rage, dialing up the loss, and relocating the song in a final, cutting, barb:
 
-*“All foreign wars I do proclaim live on blood and a mother’s pain*  
+*“All foreign wars I do proclaim live on blood and a mother’s pain*
 *I’d rather have my son as he used to be than the King of America and his whole navy”*
 
 Although Bruce hasn’t played “Mrs. McGrath” since that too-short 2006 tour, we’re fortunate enough to have several professionally short performances to enjoy. Here are two of the best, bookends of sorts–first from the opening show of the Seeger Sessions Tour at Jazz Fest in New Orleans:
@@ -47,7 +47,7 @@ Although Bruce hasn’t played “Mrs. McGrath” since that too-short 2006 tour
 
 Whether Bruce will ever sing it again remains to be seen. But someone surely will, until the day when it’s no longer necessary to rage against war and loss.
 
-**Mrs. McGrath**  
+**Mrs. McGrath**
 **Recorded:** March 19, 2005  
 **Released:** [*We Shall Overcome: The Seeger Sessions*](https://estreetshuffle.com/index.php/2022/07/17/album-companion-we-shall-overcome/)(2006)  
 **First performed:** April 20, 2006 (Asbury Park, NJ)  

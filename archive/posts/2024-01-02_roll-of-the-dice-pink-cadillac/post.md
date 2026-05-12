@@ -14,16 +14,16 @@ I know that some music historians will point to Elvis Presley’s legendary pink
 
 Gunter’s version:
 
-*Well, you may go to college*  
-*You may go to school*  
-*You may get religion*  
+*Well, you may go to college*
+*You may go to school*
+*You may get religion*
 *But don’t you be nobody’s fool*
 
 Elvis’ version:
 
-*Well, you may go to college*  
-*You may go to school*  
-*You may have a pink Cadillac*  
+*Well, you may go to college*
+*You may go to school*
+*You may have a pink Cadillac*
 *But don’t you be nobody’s fool*
 
 [Watch on Youtube: Elvis Presley - Baby Let's Play House](https://www.youtube.com/watch?v=92iwC-xI3mE)
@@ -34,17 +34,17 @@ And that’s not the only time a pink Caddy shows up as a sexual stand-in. No le
 
 [Watch on Youtube: Aretha Franklin - Freeway Of Love (Official Music Video)](https://www.youtube.com/watch?v=Ip_pjb5_fgA)
 
-*Knew you’d be a vision in white*  
-*How’d you get your pants so tight?*  
-*Don’t know what you’re doin’*  
+*Knew you’d be a vision in white*
+*How’d you get your pants so tight?*
+*Don’t know what you’re doin’*
 *But you must be livin’ right, yeah*
 
-*Oh, we got some places to see*  
-*I brought all the maps with me*  
-*So jump right in, it ain’t no sin*  
+*Oh, we got some places to see*
+*I brought all the maps with me*
+*So jump right in, it ain’t no sin*
 *Take a ride in my machine*
 
-*We goin’ ridin’ on the freeway of love*  
+*We goin’ ridin’ on the freeway of love*
 *In my pink Cadillac*
 
 But I digress.
@@ -53,9 +53,9 @@ Bruce’s “Pink Cadillac” traces its origins to the *Nebraska* sessions in 1
 
 It’s also even more overt than the finished version, which you might not have thought possible. But check out the couplet in the recording below that Bruce dropped from the final version:
 
-*They say Eve tempted Adam with an apple*  
-*Ain’t no way the poor fool went for that*  
-*Can you imagine what would have happened if she’d just stepped back*  
+*They say Eve tempted Adam with an apple*
+*Ain’t no way the poor fool went for that*
+*Can you imagine what would have happened if she’d just stepped back*
 *And showed him her pink Cadillac*
 
  
@@ -64,8 +64,8 @@ It’s also even more overt than the finished version, which you might not have 
 
 There’s also another section toward the end of the song where Bruce makes it clear that he’s not exactly thinking beyond the here and now:
 
-*Now I ain’t getting married in no church*  
-*‘Cause to me a church ain’t nothing but a shack*  
+*Now I ain’t getting married in no church*
+*‘Cause to me a church ain’t nothing but a shack*
 *I want it in your pink Cadillac*
 
 Obviously, “Pink Cadillac” never made it onto *Nebraska* despite its inclusion in the original sessions. And even though it was one of the few *Nebraska* holdouts to successfully translate to a full-band arrangement, it didn’t make *Born in the U.S.A.* either.
@@ -90,17 +90,17 @@ Even at its last outing (to date, at least) in Virginia Beach in 2016, Bruce emp
 
 As you can see in the clips above, Bruce clearly enjoys stepping up to and back from the line of propriety during his introductions. And that’s as good a segue as any for us to delve into the way he walks that line in the lyrics.
 
-*Well now you may think I’m foolish for the foolish things I do*  
-*You may wonder how come I love you when you get on my nerves like you do*  
-*Well baby you know you bug me, there ain’t no secret ’bout that*  
-*Well come on over here and hug me, baby I’ll spill the facts*  
+*Well now you may think I’m foolish for the foolish things I do*
+*You may wonder how come I love you when you get on my nerves like you do*
+*Well baby you know you bug me, there ain’t no secret ’bout that*
+*Well come on over here and hug me, baby I’ll spill the facts*
 *Well honey it ain’t your money ’cause baby I got plenty of that*
 
-*I love you for your pink Cadillac, crushed velvet seats*  
-*Riding in the back, oozing down the street*  
-*Waving to the girls, feeling out of sight*  
-*Spending all my money on a Saturday night*  
-*Honey I just wonder what you do there in the back*  
+*I love you for your pink Cadillac, crushed velvet seats*
+*Riding in the back, oozing down the street*
+*Waving to the girls, feeling out of sight*
+*Spending all my money on a Saturday night*
+*Honey I just wonder what you do there in the back*
 *Of your pink Cadillac, pink Cadillac*
 
 Hey, at least the guy’s honest, right? He doesn’t particularly care for his girl, but who cares as long as she’s great in bed.
@@ -111,34 +111,34 @@ I digress again.
 
 “Pink Cadillac” is a Bruce Springsteen song, so if it’s got sex, it’s gotta have religion, too.
 
-*Well now way back in the Bible temptation’s always come along*  
-*There’s always somebody tempting, somebody into doing something they know is wrong*  
-*Well they tempt you man with silver and they tempt you sir with gold*  
-*And they tempt you with the pleasure that the flesh does surely hold*  
+*Well now way back in the Bible temptation’s always come along*
+*There’s always somebody tempting, somebody into doing something they know is wrong*
+*Well they tempt you man with silver and they tempt you sir with gold*
+*And they tempt you with the pleasure that the flesh does surely hold*
 *They say Eve tempted Adam with an apple but man I ain’t going for that*
 
-*I know it was her pink Cadillac, crushed velvet seats*  
-*Riding in the back, oozing down the street*  
-*Waving to the girls, feeling out of sight*  
-*Spending all my money on a Saturday night*  
-*Honey I just wonder what it feels like in the back*  
+*I know it was her pink Cadillac, crushed velvet seats*
+*Riding in the back, oozing down the street*
+*Waving to the girls, feeling out of sight*
+*Spending all my money on a Saturday night*
+*Honey I just wonder what it feels like in the back*
 *Of your pink Cadillac, pink Cadillac*
 
 This is the section of the song that inspired Bruce’s tour schtick, and there’s not much we can add to it that Bruce didn’t already say himself on a nightly basis.
 
 But it’s the song’s final verse that’s my favorite. It’s a serious contender for Bruce’s funniest lyrics ever, and if he’d added on another verse or two we might have had a serious contender to Peter Gabriel’s “Sledgehammer” for best song-length penis metaphor.
 
-*Now some folks say it’s too big and uses too much gas*  
-*Some folks say it’s too old and that it goes too fast*  
-*But my love is bigger than a Honda, yeah it’s bigger than a Subaru*  
-*Hey man there’s only one thing and one car that will do*  
+*Now some folks say it’s too big and uses too much gas*
+*Some folks say it’s too old and that it goes too fast*
+*But my love is bigger than a Honda, yeah it’s bigger than a Subaru*
+*Hey man there’s only one thing and one car that will do*
 *Anyway we don’t have to drive it, honey we can park it out in back*
 
-*And have a party in your pink Cadillac, crushed velvet seats*  
-*Riding in the back, oozing down the street*  
-*Waving to the girls, feeling out of sight*  
-*Spending all my money on a Saturday night*  
-*Honey I just wonder what you do there in the back*  
+*And have a party in your pink Cadillac, crushed velvet seats*
+*Riding in the back, oozing down the street*
+*Waving to the girls, feeling out of sight*
+*Spending all my money on a Saturday night*
+*Honey I just wonder what you do there in the back*
 *Of your pink Cadillac, pink Cadillac*
 
 And here we leave it, with one of the slyest references to doing it doggy style in popular music.

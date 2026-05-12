@@ -8,9 +8,9 @@ This work-in-progress made escaped to the fan community many years ago. Many of 
 
 Best I can tell, it’s an unrequited love song, but it requires some seriously close listening and some imagination to discern that. Of the few lyrics in this brief clip, I can pick out:
 
-*…and if you can’t be mine*  
-*give me all that love*  
-*and if you want me too*  
+*…and if you can’t be mine*
+*give me all that love*
+*and if you want me too*
 *well, everyone loves you*
 
 If you can make out anything more or different, please let me know.

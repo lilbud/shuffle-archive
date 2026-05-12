@@ -20,12 +20,12 @@ It was time well spent, though, because his *actual* answering machine message w
 
 “Answering Machine” (as this unreleased gem has come to be known) is a fine example of a classic early-eighties Springsteen song: a rocking, uptempo melody that masks the disconnection and alienation in Bruce’s lyrics.
 
-*Yeah, there ain’t nobody home*  
-*Yeah, there ain’t nobody home*  
+*Yeah, there ain’t nobody home*
+*Yeah, there ain’t nobody home*
 *Yeah, there ain’t nobody home to come to the telephone*
 
-*I don’t know when I’m coming back*  
-*I don’t know when I’m coming back*  
+*I don’t know when I’m coming back*
+*I don’t know when I’m coming back*
 *I don’t know when I’m coming back, if you got something to say, you better spit it out, Jack*
 
 While we don’t know exactly when “Answering Machine” was written, the reprise of the back/Jack couplet suggests that it’s a sequel–or perhaps even a prequel–to “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/).” One imagines the narrator of that 1980 classic recording this outgoing message in his Baltimore home just before he goes out for his fateful ride.
@@ -36,9 +36,9 @@ With “Answering Machine,” Bruce once again displays his impressive talent fo
 
 “Answering Machine” is a tour de force that belongs in every Springsteen fan’s collection.
 
-**Answering Machine**  
+**Answering Machine**
 **Recorded:** Unknown  
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

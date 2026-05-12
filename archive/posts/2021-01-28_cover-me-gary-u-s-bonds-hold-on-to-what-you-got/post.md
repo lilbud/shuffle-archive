@@ -22,34 +22,34 @@ Is this an on-the-rocks love song, sung by a suitor who refuses to give up fight
 
 You tell me:
 
-*I work hard, baby, night and day*  
-*The things I had, somebody took away*  
-*They took away everything I had earned*  
+*I work hard, baby, night and day*
+*The things I had, somebody took away*
+*They took away everything I had earned*
 *But there’s one lesson that I have learned*
 
-*You’ve got to hold on, little girl, to what you’ve got*  
-*You’ve got to hold on, little girl, to what you’ve got*  
-*You’ve got to hold on, little girl, to what you’ve got*  
+*You’ve got to hold on, little girl, to what you’ve got*
+*You’ve got to hold on, little girl, to what you’ve got*
+*You’ve got to hold on, little girl, to what you’ve got*
 *You’ve got to hold on, little girl, to what you’ve got*
 
-*I’ve been pushed and I’ve been knocked down*  
-*But I picked myself right back up off the ground*  
-*And baby there’s one thing that I have found*  
+*I’ve been pushed and I’ve been knocked down*
+*But I picked myself right back up off the ground*
+*And baby there’s one thing that I have found*
 *Fighting’s the only way, so stand your ground*
 
-*And fight to hold on, little girl, to what you’ve got*  
-*You’ve got to hold on, little girl, to what you’ve got*  
-*You’ve got to hold on, little girl, to what you’ve got*  
+*And fight to hold on, little girl, to what you’ve got*
+*You’ve got to hold on, little girl, to what you’ve got*
+*You’ve got to hold on, little girl, to what you’ve got*
 *You’ve got to hold on, little girl, to what you’ve got*
 
-*I’ve been used, I’ve been abused*  
-*I’ve had, baby, my regrets*  
-*I’ve been lost, I paid the cost*  
+*I’ve been used, I’ve been abused*
+*I’ve had, baby, my regrets*
+*I’ve been lost, I paid the cost*
 *But there’s one thing I ain’t gonna forget*
 
-*I’ve heard some hard lines, I’ve seen some crying times*  
-*Bad luck and trouble, they been friends of mine*  
-*Got to stand straight and stare right at your fate*  
+*I’ve heard some hard lines, I’ve seen some crying times*
+*Bad luck and trouble, they been friends of mine*
+*Got to stand straight and stare right at your fate*
 *And play it hard before it’s too late*
 
 *And then just hold on, little girl, to what you’ve got*

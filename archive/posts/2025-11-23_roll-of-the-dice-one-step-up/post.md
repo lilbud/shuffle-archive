@@ -16,16 +16,16 @@ The song begins and is carried by a simple acoustic guitar riff and a steady per
 
 In the first verse, Bruce is pensive, reflective. He doesn’t make eye contact with the camera; he’s singing to himself.
 
-*Woke up this morning, the house was cold*  
-*Checked the furnace, she wasn’t burning*  
-*Went out and hopped in my old Ford*  
+*Woke up this morning, the house was cold*
+*Checked the furnace, she wasn’t burning*
+*Went out and hopped in my old Ford*
 *Hit the engine, buddy she ain’t turning*
 
 The singer lives in a cold home (literally, and as we’ll soon see, metaphorically). His car engine won’t start–he’s not going anywhere.
 
-*We’ve given each other some hard lessons lately*  
-*But we ain’t learning*  
-*We’re the same sad story, that’s a fact*  
+*We’ve given each other some hard lessons lately*
+*But we ain’t learning*
+*We’re the same sad story, that’s a fact*
 *One step up and two steps back*
 
 Ah, the curse of self-awareness: just because you understand what you’re doing wrong doesn’t mean you know how to fix it. We have our first concrete hint here that the singer’s relationship is on rocky ground.
@@ -34,9 +34,9 @@ His car must have eventually started, though, because now he’s driving through
 
 The singer arrives at a strip bar, sits down and orders. He’s clearly not at ease with his own presence, and he avoids eye contact with the bartender and dancer.
 
-*Bird on a wire outside my motel room*  
-*But he ain’t singing*  
-*Girl in white outside a church in June*  
+*Bird on a wire outside my motel room*
+*But he ain’t singing*
+*Girl in white outside a church in June*
 *But the church bells, they ain’t ringing*
 
 There are a few things to unpack here. First, he’s got a motel room, so things are either rocky enough at home that one or both of them felt he needed to be on his own for a bit, or else the rented room is there for him to connect with someone else. Given that the line is paired with an image of two hands coming together, one with a wedding band and one without, we can safely assume the latter.
@@ -45,67 +45,67 @@ Next, the metaphors of joy gone wrong: a bird that won’t sing; a bride strande
 
 Cohen sings:
 
-*Like a bird on the wire*  
-*Like a drunk in a midnight choir*  
+*Like a bird on the wire*
+*Like a drunk in a midnight choir*
 *I have tried in my way to be free*
 
-*If I, if I have been unkind, I hope that you can just let it go by*  
+*If I, if I have been unkind, I hope that you can just let it go by*
 *If I, if I have been untrue, I hope you know it was never to you*
 
-*For like a baby, stillborn*  
-*Like a beast with his horn*  
-*I have torn everyone who reached out for me*  
-*But I swear by this song and by all that I have done wrong*  
+*For like a baby, stillborn*
+*Like a beast with his horn*
+*I have torn everyone who reached out for me*
+*But I swear by this song and by all that I have done wrong*
 *I will make it all up to thee*
 
-*I saw a beggar leaning on his wooden crutch*  
-*He said to me, “you must not ask for so much”*  
-*And a pretty woman leaning in her darkened door*  
+*I saw a beggar leaning on his wooden crutch*
+*He said to me, “you must not ask for so much”*
+*And a pretty woman leaning in her darkened door*
 *She cried to me, “hey, why not ask for more?”*
 
 Keep that in mind as we continue our story.
 
 A gathering storm outside symbolizes the one inside the singer, lightning giving way to the strobes of the strip bar. Bruce gazes at the dancer but is clearly distracted. He averts his gaze, tapping his wedding band against his drink.
 
-*I’m sitting here in this bar tonight*  
-*But all I’m thinking is*  
-*I’m the same old story, same old act*  
+*I’m sitting here in this bar tonight*
+*But all I’m thinking is*
+*I’m the same old story, same old act*
 *One step up and two steps back*
 
 And as Bruce sings the words “two steps back,” he makes eye contact with us, fleetingly, for the first time, and we’re now drawn into his story.
 
 A fellow bar patron tries to make small talk; Bruce smiles artificially but quickly withdraws into his reverie.
 
-*It’s the same thing night on night*  
-*Who’s wrong, baby who’s right?*  
-*Another fight and I slam the door on*  
+*It’s the same thing night on night*
+*Who’s wrong, baby who’s right?*
+*Another fight and I slam the door on*
 *Another battle in our dirty little war*
 
 The singer recognizes that he and his wife are caught in a self-destructive pattern. He’s self-aware enough to realize that their petty arguments aren’t worth winning if they mean they both lose in the long run, but he’s trapped in a cycle.
 
 And now comes the most painfully direct and honest moment of the song, as Bruce for the first time faces us straight on and hold his gaze, daring us to meet his as he reveals in anguish:
 
-*When I look at myself I don’t see*  
-*The man I wanted to be*  
-*Somewhere along the line I slipped off track*  
+*When I look at myself I don’t see*
+*The man I wanted to be*
+*Somewhere along the line I slipped off track*
 *Caught moving one step up and two steps back*
 
 The camera pans away. It’s evening now, and the train from earlier in the song is on its return trip. Its commuters have a day’s worth of new experiences and stories, while Bruce passed the time at the bar, no closer to resolving his dilemma.
 
 The next verse is the final one, and it’s one of the best verses Bruce has ever written:
 
-*There’s a girl across the bar*  
-*I get the message she’s sending*  
-*Hmm she ain’t looking too married*  
+*There’s a girl across the bar*
+*I get the message she’s sending*
+*Hmm she ain’t looking too married*
 *Me well honey I’m pretending*
 
 Bruce’s eyes are cast downward and close, his face registering resignation–but no anticipation–for the course of action he knows he is about to take. He raises his fingers to his temple, and the wedding band–in such stark black-and-white relief earlier–is blurred now, obscured.
 
 The last lines of the song are devastatingly poignant. As he makes his move on a stranger, his mind and heart are with his wife, and we realize that the singer is trying to recapture with another the magic he once had and wants again with his wife:
 
-*Last night I dreamed I held you in my arms*  
-*The music was never ending*  
-*We danced as the evening sky faded to black*  
+*Last night I dreamed I held you in my arms*
+*The music was never ending*
+*We danced as the evening sky faded to black*
 *One step up and two steps back*
 
 Bruce often writes cinematically, and here he literally employs a cinematic tool, fading to black as the song plays out. Patti Scialfa’s backing vocals finally appear in this verse–deliberately held in reserve until the final lines–representing (in hindsight, with irony both awful and perfect) his wife’s voice, the ghost of his lost love. Patti, of course, is the love that Bruce *found* around the time of this song, so her presence here adds layers of meaning and resonance beyond what the writer must have intended at the time.
@@ -130,7 +130,7 @@ You can’t see it from the camera distance, but I’m telling you as someone st
 
 None of us can know exactly what memories and emotions this song conjures for them, but it’s clear that we witnessed a special, intimate moment.
 
-**One Step Up**  
+**One Step Up**
 **Recorded:** May-August 1987  
 **Released:** *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*(1987), *The Essential Bruce Springsteen* (2015)  
 **First performed:** February 25, 1988 (Worcester, MA)  

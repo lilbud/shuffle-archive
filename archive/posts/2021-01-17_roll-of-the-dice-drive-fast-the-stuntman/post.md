@@ -22,9 +22,9 @@ Bruce hasn’t left me much to analyze–his pull quote at the top of this essay
 
 “Drive Fast (The Stuntman)” is very much in keeping with the album it hails from. It features a main character late in life, looking back with satisfaction on his life.
 
-*I got two pins in my ankle and a busted collarbone*  
-*A steel rod in my leg, but it walks me home*  
-*At nine I climbed high into the boughs of our neighborhood’s tallest tree*  
+*I got two pins in my ankle and a busted collarbone*
+*A steel rod in my leg, but it walks me home*
+*At nine I climbed high into the boughs of our neighborhood’s tallest tree*
 *I don’t remember the fear, just the breeze*
 
 *Drive fast, fall hard*
@@ -43,9 +43,9 @@ During the first half of the verse, the music is gentle and tentative. Our narra
 
 It’s followed immediately by another: the swell of the strings representing the breeze that greets the narrator from the treetop. It’s such an evocative moment that I swear I feel that breeze every time I reach this moment in the song.
 
-*I’ll keep you in my heart*  
-*Don’t worry about tomorrow*  
-*Don’t mind the scars*  
+*I’ll keep you in my heart*
+*Don’t worry about tomorrow*
+*Don’t mind the scars*
 *Just drive fast, fall hard*
 
 When we reach the first chorus, that first line grabs our attention: *I’ll keep you in my heart*.
@@ -56,9 +56,9 @@ We have years to cross before that moment arrives, however. We’re only at the 
 
 We flash forward a decade now, carried by the introduction of Marc Muller’s pedal steel.
 
-*At nineteen I was the king of the dirt down at the Remington draw*  
-*I liked the pedal and I didn’t mind the wall*  
-*‘Midst the roar of the metal I never heard a sound*  
+*At nineteen I was the king of the dirt down at the Remington draw*
+*I liked the pedal and I didn’t mind the wall*
+*‘Midst the roar of the metal I never heard a sound*
 *I was looking for anything, any kind of drug to lift me up off this ground*
 
 At the age of nineteen, our narrator is now cleaning up at the races. He doesn’t care about the prize money, though–he’s in it for the rush. Adrenaline is his drug, and he’s an addict. We know in this moment that he’ll spend his life in search of the next rush.
@@ -69,9 +69,9 @@ A piano-centric bridge carries us forward in time again to the moment we’ve kn
 
 Our narrator is now literally a stuntman, on the set of a movie where he meets his great love.
 
-*We met on the set of this B picture that she made*  
-*She liked her guys a little greasy, ‘neath her pay grade*  
-*We headed down to Baja in the desert, we made our stand of it*  
+*We met on the set of this B picture that she made*
+*She liked her guys a little greasy, ‘neath her pay grade*
+*We headed down to Baja in the desert, we made our stand of it*
 *Figured maybe together we could get the broken pieces to fit*
 
 Bruce often brings up his “broken pieces” metaphor in interviews and monologues. It’s clear that at some point along the way (probably with the help of therapy), he realized that we all break, and we hide those broken pieces as best we can. Love–whether romance or friendship–is at heart a matter of trust. Its durability, longevity, and fidelity are largely the result of our ability to reveal our own broken pieces and accept our partner’s damage.
@@ -84,7 +84,7 @@ Now the instrumental bridge returns and carries us back to the present. Although
 
 We ‘re back where we started now, and Bruce re-introduces us to the stuntman in the present. The last two lines of the song are the same as the first two, but they carry more meaning now.
 
-*I got two pins in my ankle and a busted collarbone*  
+*I got two pins in my ankle and a busted collarbone*
 *A steel rod in my leg, but it walks me home*
 
 Are the stuntman and his leading lady still together? Did she pass away recently or leave him years ago? Bruce leaves it up to us to decide (I know what I think), but while it’s natural for us to wonder, it’s also beside the point of the song.

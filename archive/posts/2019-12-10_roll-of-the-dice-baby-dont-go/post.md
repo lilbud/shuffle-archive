@@ -8,7 +8,7 @@ It might seem like nothing every came of “Baby Don’t Go,” but listen again
 
 Compare:
 
-*Now maybe I’m not the kind of man who you want*  
+*Now maybe I’m not the kind of man who you want*
 *Maybe I can’t deliver to you all the things you so desire*
 
 with:
@@ -23,7 +23,7 @@ Early ancestor or not, “Baby Don’t Go” is at least a fascinating inside lo
 
 **Baby Don’t Go  
 **Recorded** March-April 1979 (demo)  
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

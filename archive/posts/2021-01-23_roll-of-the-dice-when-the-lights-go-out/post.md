@@ -28,28 +28,28 @@ Accompanied only by Roy Bittan on keys and Jeff Porcaro on drums (both employed 
 
 The musical effect is ominous and underscores Bruce’s lyrics, which percolate with paranoia. The narrator of “When the Lights Go Out” is the voice of our guilty conscience, that nagging instinct that tugs and tries to tell us something our conscious minds either haven’t realized yet or simply refuse to: we can’t expect fidelity from a partner we’ve been sneaking around on.
 
-*Now you say you have a best friend, you trust him with your life*  
-*You trust him with your money, you trust him with your kids*  
-*You’d even trust him with your wife*  
-*You better watch what’s goin’ on when the lights are out*  
-*When the night is dark, when there ain’t nobody lookin’ around*  
+*Now you say you have a best friend, you trust him with your life*
+*You trust him with your money, you trust him with your kids*
+*You’d even trust him with your wife*
+*You better watch what’s goin’ on when the lights are out*
+*When the night is dark, when there ain’t nobody lookin’ around*
 *Yeah when the lights are out, down in this dirty little town*
 
 The narrator warns us to be wary of our best friend, who in this case represents an allied nation. We profess our support, pledge our solidarity, and stand side-by-side in the light of day. But behind the scenes, hidden away from public scrutiny, our partner nation doesn’t always act with the integrity we expect it to.
 
 The only way to hold it accountable is to pay attention–not to what happens onstage, but to what happens *backstage.* And getting backstage might require a little stealth.
 
-*Well now the world is dark and funny, better listen up to what I say*  
-*You ain’t gonna know what’s going on by what you see in the light of day*  
-*You gotta watch what’s goin’ on when the lights are out*  
-*When the night is dark, when there ain’t nobody lookin’ around*  
+*Well now the world is dark and funny, better listen up to what I say*
+*You ain’t gonna know what’s going on by what you see in the light of day*
+*You gotta watch what’s goin’ on when the lights are out*
+*When the night is dark, when there ain’t nobody lookin’ around*
 *Yeah when the lights are out in this dirty little town*
 
 But even that’s not the true warning of “When the Lights Go Out.” In the few weeks between his performance and recording session, Bruce finalized his lyrics with very few changes, and even fewer of substance. The bridge, however, is subtly but substantially altered. Bruce dropped the reference to an off-stage Billy and switched the perspective so that the narrator addresses us instead:
 
-*Now you swear that she trusted you*  
-*Within reason I understand*  
-*But you kept slippin’ in late at night*  
+*Now you swear that she trusted you*
+*Within reason I understand*
+*But you kept slippin’ in late at night*
 *And in the mornin’ you had that smell on your hands*
 
 Hearing the narrator accuse us of betrayal so explicitly and graphically does more than just escalate the song’s stakes. It throws us off-balance as we imagine ourselves guilty of such intimate betrayal, or at least complicit in it.
@@ -58,17 +58,17 @@ It’s the key passage of the song, a restatement of the old adage about the pav
 
 When Bruce returns with the song’s final verse, he employs a fascinating device with the opening couplet, abandoning the established verse melody and meter for a pacing, stalking, thinly veiled threat:
 
-*Well now the world is turning, Rome is burning*  
+*Well now the world is turning, Rome is burning*
 *Me, I’m watching… and I’m learning*
 
 Prey or be preyed on. Betray or suffer betrayal. That’s the lesson our narrator is gradually learning, although his conscious self hasn’t yet come to grips with it. Deep down, though, he knows he’s compromising his integrity away, and it haunts his dreams.
 
-*They say sure as God’s hand and the tickin’ of the clock*  
-*The lord’s light’ll shine under every slimy rock*  
-*Well last night I slept the sleep of fear*  
-*And I heard God’s voice whispering in my ear*  
-*He said you better watch what’s going on when the lights are out*  
-*When the night is dark, when there ain’t nobody lookin’ around*  
+*They say sure as God’s hand and the tickin’ of the clock*
+*The lord’s light’ll shine under every slimy rock*
+*Well last night I slept the sleep of fear*
+*And I heard God’s voice whispering in my ear*
+*He said you better watch what’s going on when the lights are out*
+*When the night is dark, when there ain’t nobody lookin’ around*
 *Yeah when the lights are out, down in this dirty little town*
 
 When we surrender to our darker instincts, we best be on our guard, because we’re not alone in the dark. Sooner or later the truth gets out. The lights eventually come back up and we are revealed. Until then, we dwell in a state of constant low-grade fear and distrust, while we pretend all is fine on the surface. This is the price we pay for moral compromise.

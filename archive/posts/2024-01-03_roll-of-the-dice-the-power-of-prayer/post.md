@@ -18,14 +18,14 @@ Bruce constructed “The Power of Prayer” in the mold of the songs he sings ab
 
 “The Power of Prayer” boasts the strongest arrangement on [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)and one of Bruce’s best in recent years. It allows him to take an understated approach with his lyrics, trusting that the music will inform us about what the song is truly about.
 
-*Dreamy afternoon ‘neath the summer sun*  
-*We’d lie by the lake till the evening comes*  
-*I run my fingers through your sun-streaked hair*  
+*Dreamy afternoon ‘neath the summer sun*
+*We’d lie by the lake till the evening comes*
+*I run my fingers through your sun-streaked hair*
 *Baby that’s the power of prayer*
 
-*Summer nights, summer’s in the air*  
-*I stack the tables with the chairs*  
-*It’s closing time and you’re standing there*  
+*Summer nights, summer’s in the air*
+*I stack the tables with the chairs*
+*It’s closing time and you’re standing there*
 *Baby that’s the power of prayer*
 
 At no point in those first two verses does Bruce tell us what he’s referring to as the power of prayer. It’s not until the final verse that he explicitly connects the dots, but we still sense it at first listen.
@@ -36,29 +36,29 @@ We all have those magic moments, scenes we can recall vividly decades later, and
 
 The bridge–both sides of it–spurs the narrator to go all in on love, with a clever card game metaphor (holding hearts, playing pairs). Bruce is paying homage to the romantic pop songs of his youth, but there’s a subtext at work as well:
 
-*It’s a fixed game without any rules*  
-*An empty table on a ship of fools*  
-*I’m holding hearts, I play the pair*  
+*It’s a fixed game without any rules*
+*An empty table on a ship of fools*
+*I’m holding hearts, I play the pair*
 *Darling it’s just the power of prayer*
 
-*It’s a fixed game without any rules*  
-*An empty table on a ship of fools*  
-*I’m holding hearts, I play the pair*  
-*I’m going all in ’cause I don’t care*  
-*They say that love, love comes and goes*  
-*But darling what, what do they know*  
-*I’m reaching for heaven, we’ll make it there*  
-*Darling it’s just the power of prayer*  
-*Baby it’s just the power of prayer*  
+*It’s a fixed game without any rules*
+*An empty table on a ship of fools*
+*I’m holding hearts, I play the pair*
+*I’m going all in ’cause I don’t care*
+*They say that love, love comes and goes*
+*But darling what, what do they know*
+*I’m reaching for heaven, we’ll make it there*
+*Darling it’s just the power of prayer*
+*Baby it’s just the power of prayer*
 *Darling it’s just the power of prayer*
 
 That passage works equally well as the songwriter’s manifesto as it does the narrator’s love letter.
 
 The final verse is the reveal, and Bruce’s choice of songs is a deliberate wink.
 
-*Last call, the bouncer shuts the door*  
-*“This Magic Moment” drifts across the floor*  
-*As Ben E. King’s voice fills the air*  
+*Last call, the bouncer shuts the door*
+*“This Magic Moment” drifts across the floor*
+*As Ben E. King’s voice fills the air*
 *Baby that’s the power of prayer*
 
 Music can elevate even the most prosaic of moments into the realm of magic. Is there anything else in life with that kind of power?

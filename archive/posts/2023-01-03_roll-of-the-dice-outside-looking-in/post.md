@@ -16,26 +16,26 @@ The irony of “Outside Looking In,” however, is that content-wise it’s the 
 
 “Peggy Sue” is a doe-eyed, devotional mash note of a song; “Outside Looking In”… well, let’s just say the narrator’s girl left him feeling a different kind of blue.
 
-*It’s all over now, the things we had*  
-*I ain’t sorry, girl, I just feel mad*  
-*You walk real pretty and you talk real fine*  
-*But night after night babe I’m on the line*  
-*My life’s the same story, again and again*  
+*It’s all over now, the things we had*
+*I ain’t sorry, girl, I just feel mad*
+*You walk real pretty and you talk real fine*
+*But night after night babe I’m on the line*
+*My life’s the same story, again and again*
 *I’m on the outside looking in*
 
-*Well every day just brings the same*  
-*You go out looking for some strange new games*  
-*Pretty soon them games ain’t fun anymore*  
-*And it’s something else that you’re looking for*  
-*You’ve got all the answers, you and your friends*  
+*Well every day just brings the same*
+*You go out looking for some strange new games*
+*Pretty soon them games ain’t fun anymore*
+*And it’s something else that you’re looking for*
+*You’ve got all the answers, you and your friends*
 *And I’m on the outside looking in*
 
-*Now you’ve got the pretty things you want*  
-*The sins of the angels baby they will haunt*  
-*Those pretty eyes that they all adore*  
-*But baby not me, not anymore*  
-*I do what I want to,*  
-*I’ll be what I am*  
+*Now you’ve got the pretty things you want*
+*The sins of the angels baby they will haunt*
+*Those pretty eyes that they all adore*
+*But baby not me, not anymore*
+*I do what I want to,*
+*I’ll be what I am*
 *I’m on the outside looking in*
 
 Now if you’re a romantic, feel free to interpret Bruce’s lyrics as giving up on an emotionally distant girl who refuses to let her guard down. It’s certainly possible to read the song that way.
@@ -48,11 +48,11 @@ The only thing that’s crystal clear is that our narrator has had enough of try
 
 (An earlier take of the song included a verse that makes the narrator appear a bit vulnerable, but it also made him appear a bit of a victim. Bruce wisely decided to jettison it from the final version.)
 
-*Hey, you may believe it ain’t real*  
-*I don’t doubt the way I feel*  
-*You walk real pretty and you talk real sweet*  
-*Well baby I was born in the driving seat*  
-*My life’s the same story, again and again*  
+*Hey, you may believe it ain’t real*
+*I don’t doubt the way I feel*
+*You walk real pretty and you talk real sweet*
+*Well baby I was born in the driving seat*
+*My life’s the same story, again and again*
 *I’m on the outside looking in*
 
 [Watch on Youtube: Bruce Springsteen - Outside Lookin' In](https://www.youtube.com/watch?v=Ye66WuPgyJo)

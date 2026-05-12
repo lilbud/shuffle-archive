@@ -26,9 +26,9 @@ We don’t need the video to tell us we’re on an open road–we realize that f
 
 After a few seconds, Ron Aniello’s bossa nova bass line kicks in with a simple riff that merges with Chamberlain’s percussion to form a rhythm line that literally *sounds* like the open road.
 
-*Had enough of heartbreak and pain*  
-*I had a little sweet spot for the rain*  
-*For the rain and skies of gray*  
+*Had enough of heartbreak and pain*
+*I had a little sweet spot for the rain*
+*For the rain and skies of gray*
 *Hello sunshine, won’t you stay*
 
 As with most of *Western Stars*, we’re immediately struck by the warmth of Bruce’s vocals. By this point in the album (“Hello Sunshine” is the penultimate track) you’d think we’d be used to it, but Bruce positively croons his way through this song.
@@ -37,9 +37,9 @@ The first verse introduces a narrator with a great deal of self-awareness. He ac
 
 Another of the many subtle yet sublime touches throughout “Hello Sunshine”: each verse ends with a one-line chorus that concludes on an up-note rather than the down one we’re conditioned to expect, yet another signal that the narrator is in a place of optimism and contentment.
 
-*You know I always liked my walking shoes*  
-*But you can get a little too fond of the blues*  
-*You walk too far, you walk away*   
+*You know I always liked my walking shoes*
+*But you can get a little too fond of the blues*
+*You walk too far, you walk away*
 *Hello sunshine, won’t you stay*
 
 We’re used to Bruce sneaking a killer line into his songs. “Hello Sunshine” has three of them in back-to-back-to-back stanzas, starting with *you walk too far, you walk away.* That’s such an incredible line that we’re prone to miss the significant one that precedes it: *you can get a little too fond of the blues.*
@@ -48,9 +48,9 @@ That’s our cue not to take the song literally–the empty streets and lonely t
 
 He drives it home in the bridge in our second great line:
 
-*You know I always loved a lonely town*  
-*Those empty streets, no one around*  
-*You fall in love with lonely, you end up that way*  
+*You know I always loved a lonely town*
+*Those empty streets, no one around*
+*You fall in love with lonely, you end up that way*
 *Hello sunshine, won’t you stay*
 
 That third line should be enshrined with Bruce’s very best lyrics. It’s the heart of the song, as well as its message.
@@ -59,20 +59,20 @@ Luckily, our narrator has realized it in time, which Bruce conveys to us through
 
 A second bridge bookends the sentiment:
 
-*You know I always liked that empty road*  
-*No place to be and miles to go*  
-*But miles to go is miles away*   
+*You know I always liked that empty road*
+*No place to be and miles to go*
+*But miles to go is miles away*
 *Hello sunshine, won’t you stay*
 
-And here we have our third and final great line: *miles to go is miles away.* 
+And here we have our third and final great line: *miles to go is miles away.*
 
 Our narrator says so much with that line. Late in life, he no longer has much in the way of aspiration, but he still has miles to go before he sleeps. With his remaining years stretching out before him and very little left to accomplish, it’s time to enjoy the life he’s built and appreciate those who share it. (If we choose to, we can simultaneously read “Sunshine” as a term of endearment for his travelling companion. The song supports both interpretations without forcing us to choose.) While never stated, there’s a strongly implied theme of reconciliation present in “Hello Sunshine” as well.
 
 As if to underline, Bruce repeats his life-affirming mantra before closing the song:
 
-*And miles to go is miles away*  
-*Hello sunshine, won’t you stay*  
-*Hello sunshine, won’t you stay*  
+*And miles to go is miles away*
+*Hello sunshine, won’t you stay*
+*Hello sunshine, won’t you stay*
 *Hello sunshine*
 
 Bruce subverts our expectations one final time when he leaves off the “won’t you stay” we expect to hear him close with. That’s intentional–it’s Bruce’s way of letting us know that the narrator’s invitation has been accepted. He’s embraced the sunlight and no longer doubts its permanence.

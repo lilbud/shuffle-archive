@@ -33,30 +33,30 @@ Musically, “I’ll Stand By You” has a soft, easy-listening vibe–kind of l
 
 Lyrically, well…
 
-*You wake me in the night and your tears falling down, come let me dry them for you*  
-*I wish I could tell a story, chase away all those ghosts you’ve got inside of you*  
-*A story of heroes that fight on at any cost of a kingdom of love to be won or lost*  
-*We’ll fight here together ’til victory is won, come take my hand ’til the morning comes*  
+*You wake me in the night and your tears falling down, come let me dry them for you*
+*I wish I could tell a story, chase away all those ghosts you’ve got inside of you*
+*A story of heroes that fight on at any cost of a kingdom of love to be won or lost*
+*We’ll fight here together ’til victory is won, come take my hand ’til the morning comes*
 *Just close your eyes…*
 
 Yeah, I get the allusions to a make-believe world, but the references to ghosts sound a bit forced, and the references to heroes fighting at any cost and a “‘kingdom of love” make me wonder if Bruce had actually even read the books.
 
-*I’ll stand by you always, always, always*  
+*I’ll stand by you always, always, always*
 *I’ll stand by you always, always, always*
 
 The chorus is lovely enough, though. It’s just too bad about those verses…
 
-*I know here in the dark, tomorrow can seem so very far away*  
-*Here the ghosts and the goblins can rise from your dreams to steal your heart away*  
-*Together we’ll chase those thieves that won’t leave you alone out from under the bed, out from over our home*  
-*And when the light comes we’ll laugh my love about the things that the night had us so frightened of*  
+*I know here in the dark, tomorrow can seem so very far away*
+*Here the ghosts and the goblins can rise from your dreams to steal your heart away*
+*Together we’ll chase those thieves that won’t leave you alone out from under the bed, out from over our home*
+*And when the light comes we’ll laugh my love about the things that the night had us so frightened of*
 *And until then…*
 
-*I’ll stand by you always, always, always*  
+*I’ll stand by you always, always, always*
 *I’ll stand by you always, always, always*
 
-*Now I know it can feel like you’re slipping away, at night you’ll get lost in that deep dark place*  
-*We’ll let the night come and do what it may, together we’ll find the courage, we’ll find faith*  
+*Now I know it can feel like you’re slipping away, at night you’ll get lost in that deep dark place*
+*We’ll let the night come and do what it may, together we’ll find the courage, we’ll find faith*
 *Until you awake…*
 
 Also: that bridge. Ouch. So of course he repeats it.
@@ -69,7 +69,7 @@ To date, Bruce has never performed “I’ll Stand By You” in concert.
 
 Please, for the love of Clarence: nobody bring a sign.
 
-**I’ll Stand By You**  
+**I’ll Stand By You**
 **Recorded:** 2001  
 **Released:** *Blinded by the Light (Original Motion Picture Soundtrack)* (2019)  
 **Never performed**

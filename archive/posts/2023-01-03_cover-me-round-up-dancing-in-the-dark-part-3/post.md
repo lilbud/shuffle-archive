@@ -1,4 +1,4 @@
-Welcome to a new installment of *Cover Me Round-Up!* 
+Welcome to a new installment of *Cover Me Round-Up!*
 
 Today’s curated collection is my favorite one to date. When it comes to “[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)” covers, you might think you’ve heard them all–after all, we’ve featured *thirty-eight* different renditions here on the Shuffle over the past four years.
 

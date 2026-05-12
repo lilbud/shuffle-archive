@@ -14,36 +14,36 @@ Joe recorded released “I’m Not Sleeping” on his 1998 album, *Coming Home.*
 
 [Watch on Youtube: I'm Not Sleeping](https://www.youtube.com/watch?v=VCVz7Vlvyo4)
 
-*I never go out, I just stay at home*  
-*Change my address and disconnect the phone*  
-*Turn off the TV because it bothers me*  
-*I’ve seen all, seen all I want to see*  
-*And if my friends ask where I’ve been*  
+*I never go out, I just stay at home*
+*Change my address and disconnect the phone*
+*Turn off the TV because it bothers me*
+*I’ve seen all, seen all I want to see*
+*And if my friends ask where I’ve been*
 *Just say I don’t know what’s become of him*
 
-*Well I’m not sleeping*  
-*I’m only resting my eyes*  
-*Well I’m not sleeping*  
+*Well I’m not sleeping*
+*I’m only resting my eyes*
+*Well I’m not sleeping*
 *I’m only taking my time*
 
-*Well it’s so hard, so hard to be responsible*  
-*Knowing everything, everything that’s possible*  
-*When the bad wind, when it comes blowing in*  
-*I’ll pack my things and I’ll move on again*  
-*I feed the rich and fool the poor*  
+*Well it’s so hard, so hard to be responsible*
+*Knowing everything, everything that’s possible*
+*When the bad wind, when it comes blowing in*
+*I’ll pack my things and I’ll move on again*
+*I feed the rich and fool the poor*
 *Stack the bodies outside my door*
 
-*The world outside is such a dangerous place*  
-*That I don’t dare, I don’t dare show my face*  
-*They got my number, they know where I live*  
+*The world outside is such a dangerous place*
+*That I don’t dare, I don’t dare show my face*
+*They got my number, they know where I live*
 *Well I’ve got no more to say, I’ve got no more to give*
 
 *But I’m not sleeping*
 
-*Another night comes drawing near*  
+*Another night comes drawing near*
 *I shut my doors and then I disappear*
 
-*But I’m not sleeping*  
+*But I’m not sleeping*
 *I’m only resting my eyes*
 
 In a just world, “I’m Not Sleeping” would have been a hit single. It had all the elements, and it sounds even more relevant and fresh today than it did in 1998. (At least one of Joe’s lines also snuck its way into one of Bruce’s songs almost a decade later. Can you spot it?)

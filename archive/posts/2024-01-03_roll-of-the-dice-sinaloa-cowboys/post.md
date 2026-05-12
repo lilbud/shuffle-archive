@@ -38,38 +38,38 @@ Something about his transient friend’s intimately personal tragedy combined wi
 
 “Sinaloa Cowboys” is the tragic three-act story of Miguel and Louis Rosales, two fictional young brothers from northern Mexico who cross the border to make a decent living as field workers in California, despite their father’s warning that no gift comes without a price. It’s a somber, contemplative performance, performed entirely by Bruce and solely on his acoustic guitar and keyboard.
 
-*Well Miguel came from a small town in northern Mexico*  
-*He came north with his brother Louis to California three years ago*  
-*They crossed at the river levee when Louis was just sixteen*  
+*Well Miguel came from a small town in northern Mexico*
+*He came north with his brother Louis to California three years ago*
+*They crossed at the river levee when Louis was just sixteen*
 *And found work together in the fields of the San Joaquin*
 
-*They left their homes and family, their father said, “My sons one thing you will learn*  
-*For everything the north gives, it exacts a price in return”*  
-*They worked side by side in the orchards from morning till the day was through*  
+*They left their homes and family, their father said, “My sons one thing you will learn*
+*For everything the north gives, it exacts a price in return”*
+*They worked side by side in the orchards from morning till the day was through*
 *Doing the work the hueros wouldn’t do*
 
 Before long, the brothers hear of an opportunity to earn far greater rewards for far less work, cooking meth for the Sinaloa cartel. Bruce threads detail from Arax and Gorman’s article throughout Act Two, and it’s a testament to his craft that Bruce is able to rhyme *methamphetamine* in service of the story and make *hydriodic acid* sound melodic.
 
-*Word was out some men in from Sinaloa were looking for some hands*  
-*Well deep in Fresno County there was a deserted chicken ranch*  
-*And there in a small tin shack on the edge of a ravine*  
+*Word was out some men in from Sinaloa were looking for some hands*
+*Well deep in Fresno County there was a deserted chicken ranch*
+*And there in a small tin shack on the edge of a ravine*
 *Miguel and Louis stood cooking methamphetamine*
 
-*You could spend a year in the orchards or make half as much in one ten-hour shift*  
-*Working for the men from Sinaloa, ah but if you slipped*  
-*The hydriodic acid could burn right through your skin*  
+*You could spend a year in the orchards or make half as much in one ten-hour shift*
+*Working for the men from Sinaloa, ah but if you slipped*
+*The hydriodic acid could burn right through your skin*
 *They’d leave you spitting up blood in the desert if you breathed those fumes in*
 
 As I noted above, this is not a tale that ends well, and we can tell where it’s going based on the detail Bruce chooses to include. Sure enough, disaster strikes in the song’s final act: an explosion in the laboratory claims the life of Louis Rosales. Miguel kisses his brother goodbye and buries him in an unmarked grave.
 
-*It was early one winter evening as Miguel stood watch outside*  
-*When the shack exploded, lighting up the valley night*  
-*Miguel carried Louis’s body over his shoulder down a swale to the creek side*  
+*It was early one winter evening as Miguel stood watch outside*
+*When the shack exploded, lighting up the valley night*
+*Miguel carried Louis’s body over his shoulder down a swale to the creek side*
 *And there in the tall grass Louis Rosales died*
 
-*Miguel lifted Louis’s body into his truck and then he drove*  
-*To where the morning sunlight fell on a eucalyptus grove*  
-*There in the dirt he dug up ten thousand dollars, all that they’d saved*  
+*Miguel lifted Louis’s body into his truck and then he drove*
+*To where the morning sunlight fell on a eucalyptus grove*
+*There in the dirt he dug up ten thousand dollars, all that they’d saved*
 *Kissed his brother’s lips and placed him in his grave*
 
 A life in exchange for ten thousand dollars–that’s the price exacted by the North.

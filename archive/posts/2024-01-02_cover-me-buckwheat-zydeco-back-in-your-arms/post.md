@@ -1,4 +1,4 @@
-The late, great Buckwheat Zydeco covered one of Bruce’s more obscure tracks on his final studio album, *Lay Your Burden Down.* 
+The late, great Buckwheat Zydeco covered one of Bruce’s more obscure tracks on his final studio album, *Lay Your Burden Down.*
 
 For an artist with a distinct sound of his own, Zydeco’s version of “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)” is surprisingly faithful to the original… for about thirty seconds. Then Zydeco shifts the song into a reggae arrangement and never looks back.
 

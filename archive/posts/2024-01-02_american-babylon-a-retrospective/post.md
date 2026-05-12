@@ -149,7 +149,7 @@ With the stuff I did for MCA when I was on Cleveland International, they would a
 
 I'm really happy with both of those.
 
-**I love the fact that "Chain Smokin’" *sounds* like someone chain smoking. It's just… musically tremendous.** 
+**I love the fact that "Chain Smokin’" *sounds* like someone chain smoking. It's just… musically tremendous.**
 
 [Watch on Youtube: Chain Smokin'](https://www.youtube.com/watch?v=8wQfzwQSSAU)
 

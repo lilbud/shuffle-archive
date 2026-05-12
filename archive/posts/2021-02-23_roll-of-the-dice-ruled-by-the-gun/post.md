@@ -8,15 +8,15 @@ There are two home demos of “Ruled by the Gun” circulating in the wild, and 
 
 In the outtake above, Bruce sings:
 
-*Every where I look I see people crying*  
-*Every step I take I see young men dying*  
-*On the cathedral steps in the sun*  
+*Every where I look I see people crying*
+*Every step I take I see young men dying*
+*On the cathedral steps in the sun*
 *In a world ruled by gun*
 
-*You can build your walls, build ’em high baby*  
-*Brick by brick, one by one*  
-*Broke your fences in half*  
-*Till they reach the sun*  
+*You can build your walls, build ’em high baby*
+*Brick by brick, one by one*
+*Broke your fences in half*
+*Till they reach the sun*
 *In a world ruled by the gun*
 
 The cathedral steps reference suggest a linkage to “Bells of San Salvador,” but in “Ruled by the Gun” Bruce seems to be searching for a song that’s more universal than about a particular ripped-from-the-headlines tragedy.
@@ -27,8 +27,8 @@ In this next, longer outtake, Bruce’s lyrics are more confident, and he’s re
 
 There’s a new third verse now, one that seems to almost evoke “Murder Incorporated.”
 
-*I swore I’d find a place I could hide*  
-*I looked high and low but I couldn’t find none*  
+*I swore I’d find a place I could hide*
+*I looked high and low but I couldn’t find none*
 *In a world ruled by the gun*
 
 It’s possible that “Bells of San Salvador,” “Ruled by the Gun” and “Murder Incorporated” all stem from a single bothersome thread Bruce couldn’t keep from pulling.
@@ -43,7 +43,7 @@ But that’s a topic for another day.
 
 **Ruled by the Gun  
 **Recorded** September 1981 – May 1982 (demos only)  
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

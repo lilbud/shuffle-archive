@@ -6,15 +6,15 @@ While the band never recorded it, we’re fortunate to have a couple of survivin
 
 Bruce’s lyrics are pretty spare–just two verses and a one-line chorus–and content-wise, they’re about what you’d expect from a young rock band at the time: ambition, defiance, and an embrace of the life of an outsider.
 
-*I got to climb on top of that highest mountain*  
-*Gotta go somewhere where nobody gonna find me*  
-*‘Cause I’m gonna live my life in freedom, gotta live my life free*  
+*I got to climb on top of that highest mountain*
+*Gotta go somewhere where nobody gonna find me*
+*‘Cause I’m gonna live my life in freedom, gotta live my life free*
 *No, and I’m not gonna spend my life with people, people that come and spit on me*
 
 *Lord, I gotta be free!*
 
-*Well there’s a light up above and I just can’t reach it (No, I just can’t reach it)*  
-*Lotta things I wanna say what but they won’t let me preach it (No, they won’t let me preach it)*  
+*Well there’s a light up above and I just can’t reach it (No, I just can’t reach it)*
+*Lotta things I wanna say what but they won’t let me preach it (No, they won’t let me preach it)*
 *And there’s things I wanna learn but they just don’t teach it (No, they just don’t teach it)*
 
 *Oh, I gotta be free!*
@@ -22,8 +22,8 @@ Bruce’s lyrics are pretty spare–just two verses and a one-line chorus–and 
 “I Gotta Be Free” isn’t likely to be a Steel Mill’s Greatest Hits selection, but it’s another remarkably preserved document of a very young Bruce Springsteen’s ferocious guitar and emerging song-writing talent.
 
 **I Gotta Be Free  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **First performed:** November 27, 1970 (Asbury Park, NJ)  
 **Last performed:** January 22, 1971 (Asbury Park, NJ)
 

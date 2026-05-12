@@ -20,51 +20,51 @@ There’s so much to appreciate about “Ballad of the Self-Loading Pistol”:
 
 “Ballad of the Self-Loading Pistol” may not compare as strongly with the similarly darkly themed songs of *Nebraska* and *The Ghost of Tom Joad*, but it stands tall among Bruce’s earliest works and deserves an outing in concert.
 
-*Father, I have come to tell you about something I done*  
-*Well, as the night reared its light head into a baby sun*  
-*We rolled down into the town from where the Black Throats come*  
-*And you know there was a robbery, there was a holdup*  
-*Oh, there was a shootout, and there was a killing*  
-*And there’s blood on my hands*  
+*Father, I have come to tell you about something I done*
+*Well, as the night reared its light head into a baby sun*
+*We rolled down into the town from where the Black Throats come*
+*And you know there was a robbery, there was a holdup*
+*Oh, there was a shootout, and there was a killing*
+*And there’s blood on my hands*
 *Today I killed a man*
 
-*Well now, sister, you know me well*  
-*And you ask me, well, how it was I felt*  
-*Well, she had an appetite for loving only a fading beauty could possess*  
-*She knew just what she wanted and she wouldn’t take less*  
-*I figured it was a small town, it was at sundown*  
-*It was just a small crowd of people around*  
-*Oh, but he wouldn’t put his guns down*  
-*No, he wouldn’t put his guns down*  
-*Woah, he wouldn’t put his guns down*  
-*Now his blood’s on my hands*  
+*Well now, sister, you know me well*
+*And you ask me, well, how it was I felt*
+*Well, she had an appetite for loving only a fading beauty could possess*
+*She knew just what she wanted and she wouldn’t take less*
+*I figured it was a small town, it was at sundown*
+*It was just a small crowd of people around*
+*Oh, but he wouldn’t put his guns down*
+*No, he wouldn’t put his guns down*
+*Woah, he wouldn’t put his guns down*
+*Now his blood’s on my hands*
 *Today I killed a man*
 
-*And papa, you showed me the beauty of buckshot*  
-*The love song a bullet sings as she whistles*  
+*And papa, you showed me the beauty of buckshot*
+*The love song a bullet sings as she whistles*
 *And showed me the story of the self-loading pistol*
 
-*Well now, father, I have come to tell you about something I done*  
-*He had a widow running through town screaming*  
-*He had a brother and his tears were streaming*  
-*Now I’m moving on the border with a rifle on my shoulder*  
-*‘Cause daddy, you showed me the beauty of buckshot*  
-*The love song a bullet sings as she whistles*  
+*Well now, father, I have come to tell you about something I done*
+*He had a widow running through town screaming*
+*He had a brother and his tears were streaming*
+*Now I’m moving on the border with a rifle on my shoulder*
+*‘Cause daddy, you showed me the beauty of buckshot*
+*The love song a bullet sings as she whistles*
 *And showed me the glory of the self-loading pistol*
 
-*And I just come to tell you that it don’t hurt no more*  
-*No, it don’t hurt no more ’cause your son, he’s an outlaw*  
-*Oh, your son, he’s an outlaw*  
-*Yes, your son, he’s an outlaw*  
-*Oh, your son, he’s an outlaw*  
-*Now, your son, he’s an outlaw*  
-*Oh, your son, he’s an outlaw*  
-*And this blood feels good on my hands*  
+*And I just come to tell you that it don’t hurt no more*
+*No, it don’t hurt no more ’cause your son, he’s an outlaw*
+*Oh, your son, he’s an outlaw*
+*Yes, your son, he’s an outlaw*
+*Oh, your son, he’s an outlaw*
+*Now, your son, he’s an outlaw*
+*Oh, your son, he’s an outlaw*
+*And this blood feels good on my hands*
 *Today I killed a man*
 
 **Ballad of a Self-Loading Pistol  
 **Recorded** January 29-30, 1973  
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

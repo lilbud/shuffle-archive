@@ -16,7 +16,7 @@ It’s hard to see when reading linearly, because the essays weren’t written i
 
 And while some of it makes me wince, other parts make me laugh. In “Brilliant Disguise,” I wrote:
 
-*“…if you're lucky enough to make it that far, you someday come to realize that the things you try to hide aren't really hidden, and of the things you choose to show, some are true and some are just who you want to be.”* 
+*“…if you're lucky enough to make it that far, you someday come to realize that the things you try to hide aren't really hidden, and of the things you choose to show, some are true and some are just who you want to be.”*
 
 That passage rings differently for me today than it did in February 2018. But that’s not what made me laugh. It’s the paragraph that follows:
 

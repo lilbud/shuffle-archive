@@ -34,42 +34,42 @@ Regardless, once we adjust to Bruce’s lyrical verbosity, we realize: nothing h
 
 And what a street scene it is:
 
-*Sparks fly on E Street when the boy prophets walk it handsome and hot*  
-*All the little girls’ souls grow weak when the man-child gives them a double shot*  
-*Them schoolboy pops pull out all the stops on a Friday night*  
-*Them teenage tramps in skin-tight pants do the E Street dance and everything’s all right*  
-*Well, the kids down there either dancin’ or hooked up in a scuffle*  
-*Dressed in snakeskin suits packed with Detroit muscle*  
+*Sparks fly on E Street when the boy prophets walk it handsome and hot*
+*All the little girls’ souls grow weak when the man-child gives them a double shot*
+*Them schoolboy pops pull out all the stops on a Friday night*
+*Them teenage tramps in skin-tight pants do the E Street dance and everything’s all right*
+*Well, the kids down there either dancin’ or hooked up in a scuffle*
+*Dressed in snakeskin suits packed with Detroit muscle*
 *They’re doin’ the E Street Shuffle*
 
 One could easily and perhaps correctly assume that our characters are street musicians, hangers-on, and partiers, locked in some street rave cum gang skirmish like an early “Jungleland.” In *Songs*, Bruce describes these characters as “partly imagined, partly real… vaguely from Asbury Park at the turn of the decade.” (E Street itself is in nearby Belmar, the address of Sancious, the song’s MVP.) The E Street shuffle is “a dance with no exact steps… just the dance you did every day and every night to get by.”
 
 But in the second verse, the scene gets a bit seedier. Bruce’s lyrics are laced with double entrendres:
 
-*Now those E Street brats in twilight duel flashlight phantoms in full star stream*  
-*Down fire trails on silver nights with blonde girls pledged sweet sixteen*  
-*The newsboys say the heat’s been bad since Power Thirteen gave a trooper all he had in a summer scuffle*  
-*And Power’s girl, Little Angel, been on the corner keepin’ those crazy boys out of trouble*  
-*Little Angel steps the shuffle like she ain’t got no brains*  
-*She’s deaf in combat down on Lover’s Lane*  
+*Now those E Street brats in twilight duel flashlight phantoms in full star stream*
+*Down fire trails on silver nights with blonde girls pledged sweet sixteen*
+*The newsboys say the heat’s been bad since Power Thirteen gave a trooper all he had in a summer scuffle*
+*And Power’s girl, Little Angel, been on the corner keepin’ those crazy boys out of trouble*
+*Little Angel steps the shuffle like she ain’t got no brains*
+*She’s deaf in combat down on Lover’s Lane*
 *She drives all them local boys insane*
 
 There’s an argument to be made that these are simply kids continually on the run from the cops, but there’s a fair bit of intimation that Power Thirteen and Little Angel are early versions of Spanish Johnny and Puerto Rican Jane, sex workers doing their dance every day to get by on a Lover’s Lane that is likely the same ironically named locale from “[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/),” just a few album tracks away. In the eyebrow-raising bridge, Little Angel has the boys lined up to shuffle her brains out.
 
-*Little Angel say, “Oh, oh, oh, oh, oh*  
-*Everybody form a line*  
-*Oh, oh, oh, oh, oh*   
+*Little Angel say, “Oh, oh, oh, oh, oh*
+*Everybody form a line*
+*Oh, oh, oh, oh, oh*
 *Everybody form a line”*
 
 When she’s not making the rounds on Lover’s Lane, Angel hangs out at a local club, waiting for the boys to visit, flush with cash. Tonight, however, the boys are still hanging out on the street corner, so Angel grabs Power Thirteen and heads to where the action is.
 
-*When the sparks light on E Street when the boy-prophets walk it handsome and hot*  
-*All them little girls’ souls grow weak when the man-child gives them a double shot*  
-*Oh, Little Angel hangs out at Easy Joe’s, it’s a club where all the riot squad goes when they’re cashin’ in for a cheap hustle*  
-*But them boys are still on the corner loose and doin’ that lazy E Street Shuffle*  
-*And as them sweet summer nights turn into summer dreams*  
-*Little Angel picks up Power and he slips on his jeans*  
-*And they move on out down to the scene*  
+*When the sparks light on E Street when the boy-prophets walk it handsome and hot*
+*All them little girls’ souls grow weak when the man-child gives them a double shot*
+*Oh, Little Angel hangs out at Easy Joe’s, it’s a club where all the riot squad goes when they’re cashin’ in for a cheap hustle*
+*But them boys are still on the corner loose and doin’ that lazy E Street Shuffle*
+*And as them sweet summer nights turn into summer dreams*
+*Little Angel picks up Power and he slips on his jeans*
+*And they move on out down to the scene*
 *All the kids are down*
 
 And that’s “The E Street Shuffle.” The party continues, but we must soon take our leave. There are other stories nearby, both wild and innocent, and this particular party doesn’t sound like it’s going to end any time soon. The coda of “The E Street Shuffle” sounds less like the song fading out and more like the listener walking away.

@@ -10,14 +10,14 @@ But if “Santa Ana” is a dream-like fantasy seen through the eyes of a young 
 
 “Evacuation of the West” is set in the far future. The sun has become a red giant, the earth is barren, and in Texas, the age of cowboys has come to an end. (This is apparently a parallel universe in which the Old West never died.)
 
-*It was on the day the cowboys were banned from the range, metal touched the world as a master*  
-*They rode their ponies down in the cities of gold to leave them forever after*  
-*Now the sun was swollen, red and old, the earth it was windy, dark and cold*  
-*Where the highway ends the desert takes its toll, so dusty, red, and angry*  
-*It was a time when men died out on the prairie from not having a decent friend*  
+*It was on the day the cowboys were banned from the range, metal touched the world as a master*
+*They rode their ponies down in the cities of gold to leave them forever after*
+*Now the sun was swollen, red and old, the earth it was windy, dark and cold*
+*Where the highway ends the desert takes its toll, so dusty, red, and angry*
+*It was a time when men died out on the prairie from not having a decent friend*
 *At night the ghost of them ol’ rough riders was a howl in the canyon winds*
 
-*You can hear ’em crying*  
+*You can hear ’em crying*
 *Good God, I think they’re dying*
 
 If you’ve been with me a while on this multi-year exploration of Bruce’s lifelong catalog, we’ve had a chance to explore many of Bruce’s pre-label, fully formed songs. But almost all of those 1972-73 unreleased songs exist only as solo acoustic performances.
@@ -28,11 +28,11 @@ And that chorus… so powerful and emotive in its anguish. This is easily one of
 
 Let’s continue.
 
-*When them rangers down in Dallas had all but given it up and left*  
-*And those that hung on hoping were trying their best to forget*  
-*The way those outlaws and desperadoes right from the cheapest to the best*  
-*Rode in on ponies made of skin and bones, gave up their rusty guns and went back home*  
-*And the governor was sent down from Population Control and martial law was passed*  
+*When them rangers down in Dallas had all but given it up and left*
+*And those that hung on hoping were trying their best to forget*
+*The way those outlaws and desperadoes right from the cheapest to the best*
+*Rode in on ponies made of skin and bones, gave up their rusty guns and went back home*
+*And the governor was sent down from Population Control and martial law was passed*
 *Riverboat gamblers put their money on faith for the time for hope had passed*
 
 It’s tempting–very tempting–to read Bruce’s lyrics as allegory. He may very well have intended the cowboys to be stand-ins for any generation or profession on the verge of being superseded by the next. Had he written the song twenty years later, in fact, I’d argue the cowboys represented the aging rocker, long past his glory and commercial appeal. But at the tender age of 23, and with the reverence that Bruce had for those who came before, this is one case where I resist the urge to read beyond the surface.
@@ -43,15 +43,15 @@ We’re at the quiet instrumental bridge now, and it’s lovely. Garry brings us
 
 In the final verse, Bruce goes full on *Cowboys & Aliens* (I’ve always wondered if Rosenburg was a Springsteen fan), as our heroes leave behind not just the West but the Earth, and head to the unknown for one final adventure.
 
-*In the cold blue light of the desert night there was a thousand starry ships*  
-*And men came down from still I don’t know where with death on their fingertips*  
-*Now there’s no more kings in Texas, I swear they rounded up each and every one*  
-*And oh that line of Conestoga reached from the Rocky Mountains into that old dead sun*  
-*Now Anna Maria walks the plains alone, the last of a struggling people*  
+*In the cold blue light of the desert night there was a thousand starry ships*
+*And men came down from still I don’t know where with death on their fingertips*
+*Now there’s no more kings in Texas, I swear they rounded up each and every one*
+*And oh that line of Conestoga reached from the Rocky Mountains into that old dead sun*
+*Now Anna Maria walks the plains alone, the last of a struggling people*
 *She thinks of all those outlaws who wanted to reach for the sky and got stuck up on that steeple*
 
-*Oh, you can hear them crying*  
-*Good God, I think they’re dying*  
+*Oh, you can hear them crying*
+*Good God, I think they’re dying*
 *In the wind you can hear them sigh*
 
 There’s gorgeous imagery here. In fact, I’d argue that better than any of the songs that made it to Bruce’s second album, “Evacuation of the West” telegraphs Bruce’s evolving cinematic songwriting talent that would burst into full bloom on the opening track of *Born to Run*.
@@ -70,7 +70,7 @@ Let’s hope we see it soon. “Evacuation of the West” is a true early gem of
 
 **Evacuation of the West  
 **Recorded** June 22 – July 11, 1973  
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

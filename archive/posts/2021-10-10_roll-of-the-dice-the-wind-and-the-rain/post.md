@@ -20,53 +20,53 @@ There’s another set of early lyrics in existence for “The Wind and The Rain,
 
 A careful read of either version will reveal lyrics that never made it to the stage:
 
-*Clouded sky it’s been that way since you’ve been gone*  
-*I’ve served my punishment for doing you wrong*  
-*So why does the feeling keep hanging on*  
+*Clouded sky it’s been that way since you’ve been gone*
+*I’ve served my punishment for doing you wrong*
+*So why does the feeling keep hanging on*
 *The wind + rain is my only song*
 
-*Countless days now my skin has wrinkled up*  
-*Yet I haven’t had enough*  
-*The years have made me far too tough*  
+*Countless days now my skin has wrinkled up*
+*Yet I haven’t had enough*
+*The years have made me far too tough*
 *For the wind + rain is all I love*
 
 But honestly, for all that workshopping, the final verses aren’t much to write home about either. “The Wind and The Rain” is an intensely bitter post-breakup song with a central storm metaphor that didn’t really require a lot of imagination to craft a song around. (Lifting the song title from Shakespeare, however, required a little bit of chutzpah.)
 
-*The wind and rain slashing at my window pane*  
-*Lightning’s flashing, looks like the sky’s gone insane*  
-*And it seems like you have lied again*  
+*The wind and rain slashing at my window pane*
+*Lightning’s flashing, looks like the sky’s gone insane*
+*And it seems like you have lied again*
 *And now I’m left with the wind and rain*
 
-*Oh shattered truth, jagged memories of you*  
-*You know it’s hard, them dreams that just can’t come true*  
-*How long has it been since I’ve known you*  
+*Oh shattered truth, jagged memories of you*
+*You know it’s hard, them dreams that just can’t come true*
+*How long has it been since I’ve known you*
 *Now the wind and the rain is my only truth*
 
-*Summertime, summertime, that was when you were mine*  
-*And now that’s left so far behind*  
-*Can’t you see what you’ve done to my mind*  
+*Summertime, summertime, that was when you were mine*
+*And now that’s left so far behind*
+*Can’t you see what you’ve done to my mind*
 *Now the wind and the rain’s forever mine*
 
-*Then time shorn it up*  
-*The years have made me far too tough*  
-*You know where I start and I go, I got drowned*  
+*Then time shorn it up*
+*The years have made me far too tough*
+*You know where I start and I go, I got drowned*
 *Now the wind and the rain is my only love*
 
-*Wintertime*  
-*Memories of when you were mine*  
-*Let ’em shine*  
-*Golden moments lost in time*  
-*Now I hear the grandfather chime*  
+*Wintertime*
+*Memories of when you were mine*
+*Let ’em shine*
+*Golden moments lost in time*
+*Now I hear the grandfather chime*
 *Wind and rain’s forever mine*
 
-*Now the wind and the rain slashing at my window pane*  
-*Seems like you have lied again*  
-*By now I guess that it’s just the same*  
+*Now the wind and the rain slashing at my window pane*
+*Seems like you have lied again*
+*By now I guess that it’s just the same*
 *And I am left with the wind and the rain*
 
-*Hasn’t time shown you enough*  
-*The years have made me far too tough*  
-*But you know where I stood when the going got rough*  
+*Hasn’t time shown you enough*
+*The years have made me far too tough*
+*But you know where I stood when the going got rough*
 *The wind and rain is my only love*
 
 As is often the case with Bruce’s Steel Mill material, the lyrics are just a coatrack on which to hang an epic instrumental jam or three. And my oh my, these are epic jams.
@@ -82,8 +82,8 @@ But what if he’d chosen differently? Four months after that Monmouth performan
 Imagine if Bruce had dedicated himself to the guitar with the same single-minded ferocity that would come to characterize his vocal performances. He was probably always deservedly destined for fame, but in some alternate universe, there’s probably a Bruce Springsteen who is rightfully considered one of the greatest guitar players of all time.
 
 **The Wind and The Rain  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **First performed:** April 24, 1970 (West Long Branch, NJ)  
 **Last performed:** August 14, 1970 (Richmond, VA)
 

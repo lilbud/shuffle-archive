@@ -26,41 +26,41 @@ Musically, Springsteen took a completely different path than Mayfield, opting fo
 
 Lyrically, he made his baby a femme fatale–ultimately no more substantial than Mayfield’s off-screen love interest but with a world-weary wariness and aloofness that gives her the upper hand in the relationship. Right from the start, we sense that Bruce’s narrator is never truly sure whether she is, in fact, his baby. (Best line of the song: *I can tell when she’s mad, because she smiles*)
 
-*She’s cool, she’s the only girl that played me for a fool*  
-*And she’s tough, and when she loves me, don’t you know she loves me rough*  
-*She comes on fast, she plays the game hard*  
-*She once told me nothing ever lasts*  
-*I said, “But look at you, baby*  
+*She’s cool, she’s the only girl that played me for a fool*
+*And she’s tough, and when she loves me, don’t you know she loves me rough*
+*She comes on fast, she plays the game hard*
+*She once told me nothing ever lasts*
+*I said, “But look at you, baby*
 *Can’t you see that you’re battle-scarred?”*
 
-*(Well she’s a diva), I find it so hard to please her*  
-*(She’s a ???), she’s making eyes at each and every mister*  
-*Oh and she got style*  
+*(Well she’s a diva), I find it so hard to please her*
+*(She’s a ???), she’s making eyes at each and every mister*
+*Oh and she got style*
 *I can tell when she’s mad because she smiles*
 
-*She’s cold, sometimes I think that her heart’s made out of stone*  
-*But when she’s hot she loves me super warm and gives me everything that she’s got*  
-*She comes and cries to me, she says, “Honey, I got to be free”*  
-*I tell her I don’t mind*  
+*She’s cold, sometimes I think that her heart’s made out of stone*
+*But when she’s hot she loves me super warm and gives me everything that she’s got*
+*She comes and cries to me, she says, “Honey, I got to be free”*
+*I tell her I don’t mind*
 *Because that’s the only way, the only way that I can be*
 
-*(She’s a lover), don’t you know she’s a lover*  
-*(She’s a lover), she’s another kind of love*  
-*Oh she got class, I know she’s for me*  
+*(She’s a lover), don’t you know she’s a lover*
+*(She’s a lover), she’s another kind of love*
+*Oh she got class, I know she’s for me*
 *(She’s mine), that’s how I know ????*
 
-*She’s scared, I ain’t never seen a woman who was so scared*  
-*And don’t you know that she’s an outlaw*  
-*Just ask her, she’ll tell you what for*  
-*She comes on fast, she plays the game hard*  
-*She tells me baby, “Can’t you see, nothing ever lasts”*  
+*She’s scared, I ain’t never seen a woman who was so scared*
+*And don’t you know that she’s an outlaw*
+*Just ask her, she’ll tell you what for*
+*She comes on fast, she plays the game hard*
+*She tells me baby, “Can’t you see, nothing ever lasts”*
 *I said, “But babe, without you, I’m no good”*
 
-*(Can’t you hear me, can’t you hear me talking about my) baby*  
-*(I’m talking about my baby), she’s on my mind*  
-*(I’m talking about my baby)*  
-*(Can’t you hear me, can’t you hear me, can’t you hear me talking about my)*  
-*(Can’t you hear me, can’t you hear me, can’t you hear me talking about my)*  
+*(Can’t you hear me, can’t you hear me talking about my) baby*
+*(I’m talking about my baby), she’s on my mind*
+*(I’m talking about my baby)*
+*(Can’t you hear me, can’t you hear me, can’t you hear me talking about my)*
+*(Can’t you hear me, can’t you hear me, can’t you hear me talking about my)*
 *I’m talking about my baby*
 
 “Talking About My Baby” is a terrific song, suited and arranged perfectly for Springsteen’s new band. So why did it disappear so quickly? We may never know. (I doubt Bruce would even remember the song if we asked him about it.) But musically, at least, its legacy lives on.
@@ -76,8 +76,8 @@ And then of course, in late 2020, we were finally gifted with a modern, complete
 [Watch on Youtube: Bruce Springsteen - Janey Needs A Shooter (Official Audio)](https://www.youtube.com/watch?v=A_BRCRkAkAE)
 
 **Talking About My Baby  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **First performed:** October 30, 1971 (Richmond, VA)  
 **Last performed:** October 30, 1971 (Richmond, VA)
 

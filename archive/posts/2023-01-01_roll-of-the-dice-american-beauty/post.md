@@ -32,25 +32,25 @@ There’s something *there*.
 
 But “American Beauty” takes it even a step further. Listen to (or read) the lyrics closely:
 
-*Everything in your shadow turns to vapor*  
-*You pierce my heart like it was paper*  
-*Radio’s crackling with the headlines*  
-*Something on your shoulder, winds in the phone line*  
-*American beauty will you be mine*  
+*Everything in your shadow turns to vapor*
+*You pierce my heart like it was paper*
+*Radio’s crackling with the headlines*
+*Something on your shoulder, winds in the phone line*
+*American beauty will you be mine*
 *Out on this highway counting white lines*
 
-*Hot and bloody summer, drifting blue eyes*  
-*We’re in the high grass, I finger your hemline*  
-*Boot heels click clacking, honey, when you shine*  
-*Autumn blue skies, hair sweet as the southern pines*  
-*American beauty forever in time*  
+*Hot and bloody summer, drifting blue eyes*
+*We’re in the high grass, I finger your hemline*
+*Boot heels click clacking, honey, when you shine*
+*Autumn blue skies, hair sweet as the southern pines*
+*American beauty forever in time*
 *Out on this highway counting white lines*
 
-*Your hand cups your breast, pledging your time*  
-*Things we carried, shining skylines*  
-*Falling sparrow, sky torn apart*  
-*Dark shining arrow, your kiss pierces my heart*  
-*American beauty forever mine*  
+*Your hand cups your breast, pledging your time*
+*Things we carried, shining skylines*
+*Falling sparrow, sky torn apart*
+*Dark shining arrow, your kiss pierces my heart*
+*American beauty forever mine*
 *Out on this highway counting white lines*
 
 What is the American Beauty that Bruce is singing of?
@@ -75,7 +75,7 @@ And the backing track barrels forward with the power of Bruce’s most ardent an
 
 So come on, Bruce: Bring “American Beauty” to the stage on your next tour. You couldn’t have known it when you wrote it, but it’s more relevant today than ever.
 
-**American Beauty**  
+**American Beauty**
 **Recorded:** early 2013  
 **Released:** *American Beauty* (2014)  
 **First performed:** April 19, 2014 (soundcheck only)  

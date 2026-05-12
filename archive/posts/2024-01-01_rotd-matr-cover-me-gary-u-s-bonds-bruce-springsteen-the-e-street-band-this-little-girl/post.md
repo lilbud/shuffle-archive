@@ -26,45 +26,45 @@ Lyrically, though, “This Little Girl” would be borderline inappropriate if r
 
 In fact, when I was twelve and first heard the song, I was positive the song was about an overprotective father and his daughter. And in fairness, you can get about halfway through the song before I’d lose that argument, and even then, it’s only one line that causes the problem. Read the lyrics through that lens and see how it *almost* works:
 
-*Here she comes, walking down the street*  
-*You know she’s walking just like she’s walking to come and see me*  
-*Oh, she’s so young*  
-*And she’s so fine*  
-*I know what’s on your mind, know what you want to do*  
-*But if you mess with her, I’m gonna mess with you*  
+*Here she comes, walking down the street*
+*You know she’s walking just like she’s walking to come and see me*
+*Oh, she’s so young*
+*And she’s so fine*
+*I know what’s on your mind, know what you want to do*
+*But if you mess with her, I’m gonna mess with you*
 *You better watch your step, you better stay in line*
 
-*This little girl is mine*  
-*Oh oh this little girl is mine*  
+*This little girl is mine*
+*Oh oh this little girl is mine*
 *Oh oh this little girl, this little girl, this little girl is mine*
 
-*Well if the world were mine to do with what I want to do, sir*  
-*Well I’d wrap it up in a bow and give it all to her*  
-*Yeah, and all my love, all of the time*  
-*You know I’d hold her tight, I’d never let her go*  
-*And late at night you know I’d love her so*  
+*Well if the world were mine to do with what I want to do, sir*
+*Well I’d wrap it up in a bow and give it all to her*
+*Yeah, and all my love, all of the time*
+*You know I’d hold her tight, I’d never let her go*
+*And late at night you know I’d love her so*
 *Yeah I’d treat her right, so she’d never mind*
 
-*That this little girl is mine*  
-*Oh oh this little girl is mine*  
+*That this little girl is mine*
+*Oh oh this little girl is mine*
 *Oh oh this little girl, this little girl, this little girl is mine, mine, mine, mine*
 
-*Hey!*  
-*You better watch out*  
-*I’m telling you the score*  
-*Or you’re gonna be sweeping your broken heart up off the floor*  
-*Oh, and that ain’t all*  
+*Hey!*
+*You better watch out*
+*I’m telling you the score*
+*Or you’re gonna be sweeping your broken heart up off the floor*
+*Oh, and that ain’t all*
 *I’m telling you my friend*
 
-*I know what’s on your mind, know what you want to do*  
-*But if you mess with her, I’m gonna mess with you*  
-*You like the way she moves, you like to watch her walk*  
-*You better listen up, ’cause man, this ain’t just talk*  
+*I know what’s on your mind, know what you want to do*
+*But if you mess with her, I’m gonna mess with you*
+*You like the way she moves, you like to watch her walk*
+*You better listen up, ’cause man, this ain’t just talk*
 *You better watch your step, you better stay in line*
 
-*Now baby, I said*  
-*This little girl is mine*  
-*Oh oh this little girl is mine*  
+*Now baby, I said*
+*This little girl is mine*
+*Oh oh this little girl is mine*
 *This little girl, this little girl, this little girl is mine*
 
 So yeah, it’s maybe a little embarrassing that I thought Bonds was singing about his daughter, so I won’t bother sharing just how old I was before I figured out otherwise.
@@ -89,7 +89,7 @@ In fact, the only time I’m aware of that Bruce played the song *without* Bonds
 
 At this point in my Bruce concert career, I don’t have a lot left on my chase list, but “This Little Girl” is pretty close to the top of it. I wish I’d kept that 45…
 
-**This Little** **Girl**  
+**This Little** **Girl**
 **Recorded:** 1980  
 **Released:** *Dedication* (1981)  
 **First performed:** June 15, 1981 (San Francisco, CA)  

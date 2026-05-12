@@ -26,42 +26,42 @@ https://www.youtube.com/watch?v=p1WkLfVVbeghttps://www.youtube.com/watch?v=zbgcl
 
 The official studio version is a perfect fit for Bruce’s lyrics: the E Street Band rumbles and thunders, just like the first line of the song, but they never lose their cool restraint.
 
-*Well there’s a rumble in the park, there’s a thunder in the dark*  
-*The night’s so quiet, it’s chain lightning*  
-*Beneath a street light, there’s two boys bopping in the night*  
+*Well there’s a rumble in the park, there’s a thunder in the dark*
+*The night’s so quiet, it’s chain lightning*
+*Beneath a street light, there’s two boys bopping in the night*
 *They have something in ’em called chain lightning*
 
-*Though you never hear a sound, there’s a fire underground*  
-*Rambling through the town, you can’t keep it from coming down*  
-*Lovers walking through the mist, Romeo he steal a kiss*  
+*Though you never hear a sound, there’s a fire underground*
+*Rambling through the town, you can’t keep it from coming down*
+*Lovers walking through the mist, Romeo he steal a kiss*
 *Caught up in the moment of chain lightning*
 
 “Chain Lightning” is about the unbridled but undirected passion of youth, the feeling of power and vitality without any place to channel it. Such energy has to be released, else it flashes and strikes unpredictably.
 
 Accordingly, nothing happens in “Chain Lightning,” just the constant threat and search of *something.* There’s a fascinating mid-song callback to one of Bruce’s classic songs that has to be intentional, because it’s a perfectly placed reference:
 
-*Now I don’t know about romance, baby, the latest dance*  
-*Everybody’s getting up, doing it, chain lightning*  
-*All along the strand baby down in Jungleland*  
+*Now I don’t know about romance, baby, the latest dance*
+*Everybody’s getting up, doing it, chain lightning*
+*All along the strand baby down in Jungleland*
 *Everybody’s caught up in chain lightning*
 
 “Jungleland” is a full-on thunderstorm, the release of pent-up tension. Its namecheck here is a meta drive-by, the perfect way of illustrating the narrator’s frustration in a way that only Springsteen fans could appreciate. No one’s taking a stand tonight. There’s no opera, no ballet, no rendezvous–just an ominous sense of foreboding.
 
-*Ever hear the sound of a fire underground*  
-*Rumbling through the town, the big cold is coming down*  
-*Sitting at the light, I’m a rider in the night*  
+*Ever hear the sound of a fire underground*
+*Rumbling through the town, the big cold is coming down*
+*Sitting at the light, I’m a rider in the night*
 *Streaking light to light for chain lightning*
 
-*I ain’t into style, baby, I ain’t into fashion*  
-*I just got a passion for chain lightning*  
-*Sitting at the light, I’m a rider in the night*  
+*I ain’t into style, baby, I ain’t into fashion*
+*I just got a passion for chain lightning*
+*Sitting at the light, I’m a rider in the night*
 *Streaking light to light for chain lightning*
 
 It’s hard to know exactly how to place “Chain Lightning” in Bruce’s catalog. It’s clearly a song he was committed to for quite some time–he worked on it for almost a full year. But it feels more like a bridge between albums–a *Darkness* theme paired with a *River* backing track–rather than in keeping with either one, and perhaps that’s one of the reasons Bruce discarded it.
 
 Still, “Chain Lightning” practically begs for an E Street Band outing. We haven’t had one yet, but who knows what the future may hold.
 
-**Chain Lightning**  
+**Chain Lightning**
 **Recorded:** February 17, 1980  
 **Released:** *The River: Outtakes* (2015)**Never performed**
 

@@ -28,12 +28,12 @@ When I asked him what inspired him to make the connection, Silent Bear took me i
 
 *“This was not long after Ferguson and the Eric Garner murder, so police murders of people of color was in the air. So the narrative/flow of the improvisation went that way.*
 
-*The Big Man dressed in blue, shot my brother down*  
-*Right in front of his mother*  
-*Right by the Tenth Ave street line*  
+*The Big Man dressed in blue, shot my brother down*
+*Right in front of his mother*
+*Right by the Tenth Ave street line*
 *Lights flashing, sirens blaring*
 
-*“So basically, completely improvised, I found myself recreating the scene of the police shooting of a man of color in the street. The title took on another meaning in the moment and became symbolic of a shooting/murder on a city street. A whole different kind of “freeze out.”* 
+*“So basically, completely improvised, I found myself recreating the scene of the police shooting of a man of color in the street. The title took on another meaning in the moment and became symbolic of a shooting/murder on a city street. A whole different kind of “freeze out.”*
 
 Silent Bear and Bruce may never have met, but they’re only one degree separated: they both shared a friendship and working relationship with the late, great Pete Seeger.
 

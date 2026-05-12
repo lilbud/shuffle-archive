@@ -14,7 +14,7 @@ But the second take (we don’t know how much time passed between takes, unfortu
 
 The lyrics are decipherable, but they’re also mostly bluffed and don’t warrant analysis. The only lyrics close to developed are the chorus, and they betray the central conceit of the song:
 
-*Pretty soon you’ll find out a smile turns into a frown*  
+*Pretty soon you’ll find out a smile turns into a frown*
 *You better watch it, young man–love will get you down*
 
 Takes #3 and #4 are just snippets. They don’t shed much additional light, but Take #3 does at least start to develop a verse. We’re still in bluff city, but it’s clear that Bruce is trying to convey a sense of sweet agony, of the vulnerability that comes with love, and the inevitable heartbreak that will follow.
@@ -27,9 +27,9 @@ What happened to “Love Will Get You Down” after these home recordings is mur
 
 In any event, that later recording does not circulate broadly, so for now, the trail ends here.
 
-**Love Will Get You Down**  
+**Love Will Get You Down**
 **Recorded:** Early 1979 (work in progress demo only)  
-**Never released**  
-**Never performed** 
+**Never released**
+**Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

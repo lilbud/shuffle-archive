@@ -29,15 +29,15 @@ Let’s try an experiment. Put your headphones back on, take a few minutes, and 
 
 [Watch on Youtube: Born to Run](https://www.youtube.com/watch?v=z_XiRS8eF8w)
 
-Now go back and do the same thing with “Girls in Their Summer Clothes,” and realize: *that’s the same singer.* 
+Now go back and do the same thing with “Girls in Their Summer Clothes,” and realize: *that’s the same singer.*
 
 The similarity of sound between the songs only underscores the toll that age and life experience takes on all of us. “Born to Run” bristles and bursts with youthful energy and defiance; “Girls in Their Summer Clothes” is a world-weary song of acceptance–but with a flickering spark of vitality that occasionally peeks through and suggests to us: *that’s the same character*.
 
 Although I’ve never seen him comment on it, I have no doubt that Bruce very much had his breakthrough album on his mind when he wrote this song. It’s not just the music and production that’s a callback to 1975–the lyrics are laden with the echoes of Bruce’s songwriting youth:
 
-*Well, the streetlights shine down on Blessing Avenue*  
-*Lovers they walk by, holding hands two by two*  
-*A breeze crosses the porch, bicycle spokes spin ’round*  
+*Well, the streetlights shine down on Blessing Avenue*
+*Lovers they walk by, holding hands two by two*
+*A breeze crosses the porch, bicycle spokes spin ’round*
 *Jacket’s on, I’m out the door, tonight I’m gonna burn this town down*
 
 Our story begins at the very same place as the opening track of *Born to Run:* on the front porch. Notice the breeze that Bruce deliberately notes is crossing the porch–he leaves it to us to imagine a dress waving or swaying.
@@ -45,7 +45,7 @@ Our story begins at the very same place as the opening track of *Born to Run:* o
 Bruce employs the same cinematic technique here that he used in “Thunder Road,” and there’s no doubt in my mind that it’s intentional. Entranced by the magic that is the Summer Evening, lured by visions of romance, our hero puts on his jacket and is out the door. Does the screen door slam behind him?
 
 *And the girls in their summer clothes  
-in the cool of the evening light*  
+in the cool of the evening light*
 *The girls in their summer clothes  
 pass me by*
 
@@ -53,8 +53,8 @@ And here in the chorus, we have one of the many wry devices Bruce employs in thi
 
 This is the heart of the song: the singer’s realization that he’s no longer an actor but rather a spectator in his own story. Young at heart but old in body, he’s unnoticed–or worse, dismissed–by the girls who catch his eye. We realize, at this point, that this is the reason for his keen eye for detail–observing is all that’s left to him:
 
-*A kid’s rubber ball smacks off the gutter ‘neath the lamp light*  
-*Big bank clock chimes off go the sleepy front porch lights*  
+*A kid’s rubber ball smacks off the gutter ‘neath the lamp light*
+*Big bank clock chimes off go the sleepy front porch lights*
 *Downtown the stores alight as the evening’s underway*
 
 And yet… he can’t quite shake that optimism:
@@ -63,15 +63,15 @@ And yet… he can’t quite shake that optimism:
 
 Or is it bravado? Is he trying to convince us or himself? Because he still can’t help but notice:
 
-*…the girls in their summer clothes in the cool of the evening light*  
+*…the girls in their summer clothes in the cool of the evening light*
 *The girls in their summer clothes pass me by…*
 
 And now, that bridge… oh, that bridge. Go ahead, listen to it again, just to hear the full E Street Band in all their glory. There may be no better 21st-century studio recording that captures the E Street sound better than this.
 
-*Frankie’s Diner’s an old friend on the edge of town*  
-*The neon sign spinning round like a cross over the lost and found*  
-*The fluorescent lights flick above Pop’s Grill*  
-*Shaniqua brings a coffee and asks, “fill?”*  
+*Frankie’s Diner’s an old friend on the edge of town*
+*The neon sign spinning round like a cross over the lost and found*
+*The fluorescent lights flick above Pop’s Grill*
+*Shaniqua brings a coffee and asks, “fill?”*
 *And says, “penny for your thoughts now my boy, Bill”*
 
 Okay, let’s talk about Shaniqua for a moment. If you’re like me, the first time you heard “Girls in Their Summer Clothes,” you just about fell out of your chair at that line. *Shaniqua?* What happened to Mary? Was Janey busy that day?
@@ -86,9 +86,9 @@ Whether we overtly realize it or not, the warm, nostalgic “Born to Run” soun
 
 That bridge is *devastatingly* effective in its subtlety, even moreso than the overt chorus, but we barely have a chance to realize it (especially in the overly literal video) before Max barrel-rolls us into the final verse:
 
-*She went away, she cut me like a knife*  
-*Hello beautiful thing, maybe you could save my life*  
-*In just a glance down here on Magic Street*  
+*She went away, she cut me like a knife*
+*Hello beautiful thing, maybe you could save my life*
+*In just a glance down here on Magic Street*
 *Love’s a fool’s dance, I ain’t got much sense but I still got my feet*
 
 There’s so much to love in these four lines. Just from a storytelling perspective, look how much information and context we suddenly receive:
@@ -100,12 +100,12 @@ There’s so much to love in these four lines. Just from a storytelling perspect
 
 Oh, and just in case you’re skeptical about my argument that Bruce is deliberately and lyrically contrasting “Girls in Their Summer Clothes” with “Thunder Road” throughout the song, take note of those last two lines before the last chorus:
 
-*In just a glance down here on Magic **Street***  
+*In just a glance down here on Magic **Street***
 *Love’s a fool’s dance, I ain’t got much sense but I still got my **feet***
 
 …and compare it with the last two lines of “Thunder Road” before its final coda:
 
-*They scream your name at night in the **street***  
+*They scream your name at night in the **street***
 *Your graduation gown lies in rags at their **feet***
 
 Well played, Bruce. Well played.

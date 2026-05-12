@@ -8,7 +8,7 @@ It’s a wonder then that Bruce hasn’t covered Strummer and The Clash more oft
 
 That changed in Pittsburgh on the High Hopes Tour, when temporary E Streeter Tom Morello joined Bruce on vocals to open with a cover of a song Morello was more than a bit familiar with.
 
-The Clash released “Clampdown” as a single in Australia only, the second single off their landmark 1979 album, *London Calling.* 
+The Clash released “Clampdown” as a single in Australia only, the second single off their landmark 1979 album, *London Calling.*
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_lt4O-EHNnw)
 
@@ -34,9 +34,9 @@ That would change.
 
 A dozen years later, the lyrics of “Clampdown” sound eerily resonant.
 
-*In these days of evil presidentes*  
-*Working for the clampdown*  
-*But lately, one or two has fully paid their due*  
+*In these days of evil presidentes*
+*Working for the clampdown*
+*But lately, one or two has fully paid their due*
 *For working for the clampdown*
 
 It was almost certainly Morello’s suggestion to reprise “Clampdown” on the Land of Hope and Dreams American Tour, and it was a great one.

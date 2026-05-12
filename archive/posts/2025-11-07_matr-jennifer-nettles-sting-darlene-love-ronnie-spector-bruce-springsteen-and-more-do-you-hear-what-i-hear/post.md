@@ -14,13 +14,13 @@ Intended or not, “Do You Hear What I Hear” became an immensely popular holid
 
 We all know the first verse of “Do You Hear What I Hear”:
 
-*Said the night wind to the little lamb*  
-*Do you see what I see*  
-*Way up in the sky little lamb*  
-*Do you see what I see*  
-*A star, a star*  
-*Dancing in the night*  
-*With a tail as big as a kite*  
+*Said the night wind to the little lamb*
+*Do you see what I see*
+*Way up in the sky little lamb*
+*Do you see what I see*
+*A star, a star*
+*Dancing in the night*
+*With a tail as big as a kite*
 *With a tail as big as a kite*
 
 But not many realize that the “star” is actually a nuclear missile (with a trail “as big as a kite”).

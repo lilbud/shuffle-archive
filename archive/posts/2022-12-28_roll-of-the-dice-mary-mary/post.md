@@ -10,14 +10,14 @@ Set (presumably) in Boston’s Charlestown neighborhood, “Mary Mary” is the 
 
 We never learn why Mary took flight, and we’re never quite sure how the narrator feels about it, but we do know that it was serious:
 
-*All I got’s a book of love with pages worn clean through*  
+*All I got’s a book of love with pages worn clean through*
 *A circle of gold and one bleeding tattoo*
 
 There’s a lot of information in those two lines: the two have enough history to have filled a book; they were married (he still has the wedding ring), and his devotion to her was strong and recent enough for him to get a still-bleeding tattoo.
 
 Whatever the circumstances, the two ex-lovers are separated in a neighborhood large enough to lose each other but small enough to never lose word of each other.
 
-*This town’s a secret shared and shattered in a sad song*  
+*This town’s a secret shared and shattered in a sad song*
 *Just torn and tattered pieces of a love gone wrong*
 
 The song fades out on the same line it begins with:

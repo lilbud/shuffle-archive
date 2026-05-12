@@ -33,9 +33,9 @@ Musically, “I’ll Stand By You” has a soft, easy-listening vibe–kind of l
 
 Lyrically, well…
 
-*You wake me in the night and your tears falling down, come let me dry them for you*  
-*I wish I could tell a story, chase away all those ghosts you’ve got inside of you*  
-*A story of heroes that fight on at any cost of a kingdom of love to be won or lost*  
+*You wake me in the night and your tears falling down, come let me dry them for you*
+*I wish I could tell a story, chase away all those ghosts you’ve got inside of you*
+*A story of heroes that fight on at any cost of a kingdom of love to be won or lost*
 *We’ll fight here together ’til victory is won, come take my hand ’til the morning comes*  
 *Just close your eyes…*
 

@@ -20,15 +20,15 @@ There’s no story to “The Wrestler;” it’s simply a character sketch. To t
 
 Bruce introduces us to a character who knows his place in the world, aches to transcend it, but can’t let it go. He’s an aging wrestler, which means he’s an entertainer, and the way he entertains is through his physical pain. Pain is all he knows, and it infects and infuses his emotional life as well.
 
-*Have you ever seen a one-trick pony in the field so happy and free*  
-*If you’ve ever seen a one-trick pony then you’ve seen me*  
-*Have you ever seen a one-legged dog making his way down the street*  
+*Have you ever seen a one-trick pony in the field so happy and free*
+*If you’ve ever seen a one-trick pony then you’ve seen me*
+*Have you ever seen a one-legged dog making his way down the street*
 *If you’ve ever seen a one-legged dog then you’ve seen me*
 
-*Then you’ve seen me, I come and stand at every door*  
-*Then you’ve seen me, I always leave with less than I had before*  
-*Then you’ve seen me, bet I can make you smile when the blood it hits the floor*  
-*Tell me friend can you ask for anything more*  
+*Then you’ve seen me, I come and stand at every door*
+*Then you’ve seen me, I always leave with less than I had before*
+*Then you’ve seen me, bet I can make you smile when the blood it hits the floor*
+*Tell me friend can you ask for anything more*
 *Tell me can you ask for anything more*
 
 The Wrestler has no other useful skills than to serve as a vessel for violence. It’s all he knows. He’s a one-trick pony, and he’s content with his trick. He’s emotionally stunted, and it impairs him like a one-legged dog. He’s playing a losing game against time and fame, always leaving each fight with less of both, regardless of the outcome.
@@ -37,17 +37,17 @@ Oh, but the smiles. The applause. The roar of the crowd. He has those, at least,
 
 The metaphors continue:
 
-*Have you ever seen a scarecrow filled with nothing but dust and weeds*  
-*If you’ve ever seen that scarecrow then you’ve seen me*  
-*Have you ever seen a one-armed man punching at nothing but the breeze*  
+*Have you ever seen a scarecrow filled with nothing but dust and weeds*
+*If you’ve ever seen that scarecrow then you’ve seen me*
+*Have you ever seen a one-armed man punching at nothing but the breeze*
 *If you’ve ever seen a one-armed man then you’ve seen me*
 
 The Wrestler is empty, barren, and for all his physical strength, he is impotent.
 
 But he suffers no delusions. As Bruce often does, he places the emotional heart of the song in the bridge:
 
-*These things that have comforted me I drive away*  
-*This place that is my home I cannot stay*  
+*These things that have comforted me I drive away*
+*This place that is my home I cannot stay*
 *My only faith’s in the broken bones and bruises I display*
 
 The Wrestler is self-aware enough to understand the consequences he’s brought upon himself. As Mickey explained to Bruce, he’s invested in pain and toxic to love. He’s alienated his loved ones and has no constancy in his life other than the predictable comfort he finds in his own scars. The pain is familiar, constant, and loyal–the closest thing he has to family.
@@ -58,7 +58,7 @@ Bruce has often (in recent years, at least) described how analysis, pharmacology
 
 The final couplet of the song (Bruce uses one of his favorite narrative devices–the dangling couplet that ends a song on an unresolved note) is a heartbreaking one:
 
-*Have you ever seen a one-legged man trying to dance his way free*  
+*Have you ever seen a one-legged man trying to dance his way free*
 *If you’ve ever seen a one-legged man then you’ve seen me*
 
 The Wrestler knows he’s impaired. He knows he’s self-impaired, in fact. But he presses on anyway, searching for a way to transcend his damage, even as he continues to inflict it. Because it’s all he knows how to do.

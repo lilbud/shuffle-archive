@@ -18,42 +18,42 @@ Lamar’s additional lyrics add heightened resonance, and I’m sure Bruce appro
 
 In case they fly by a bit too quickly to fully appreciate, here are Lamar’s lyrics:
 
-*If I die right before I wake*  
-*Cross my heart, then I seal my fate*  
-*Life in the dark of the heartless*  
+*If I die right before I wake*
+*Cross my heart, then I seal my fate*
+*Life in the dark of the heartless*
 *Looking at the remedy for all this*
 
-*Everyday they look at you a target*  
-*Falling victim, them and*  
-*Him and her then this one, insensitivity*  
+*Everyday they look at you a target*
+*Falling victim, them and*
+*Him and her then this one, insensitivity*
 *Talk bad religion, skin identity*
 
-*Lack rash decision made by yours*  
-*Pack facility with the urban boy*  
-*Gun admitted he bear arm*  
+*Lack rash decision made by yours*
+*Pack facility with the urban boy*
+*Gun admitted he bear arm*
 *The entity, arm and leg and head made to destroy*
 
-*80% of the victim was yours*  
-*Maybe I get to relive years of war*  
-*Look on the corner, we been here before*  
+*80% of the victim was yours*
+*Maybe I get to relive years of war*
+*Look on the corner, we been here before*
 *Look at the momma, you seen tears before?*
 
-*Pain bright and early*  
-*Rain, sleet, hail, snow, worry*  
-*More storm barricade the city*  
+*Pain bright and early*
+*Rain, sleet, hail, snow, worry*
+*More storm barricade the city*
 *Prosecution, unhung jury*
 
-*These days murder keep ’em busy*  
-*Sweet blood flowed on the gurney*  
-*Yellow tape tied around the street*  
+*These days murder keep ’em busy*
+*Sweet blood flowed on the gurney*
+*Yellow tape tied around the street*
 *Colin Kaepernick was more than worthy*
 
-*I could reverse the day, reverse the time*  
-*Reverse the block, reverse the gun, reverse the shot*  
-*Reverse the law, reverse the flaw*  
+*I could reverse the day, reverse the time*
+*Reverse the block, reverse the gun, reverse the shot*
+*Reverse the law, reverse the flaw*
 *That made us all the versions of a danger flock*
 
-*Reverse the love, reverse the hate*  
-*Reverse the hope, reverse the way we playing sin*  
-*Reverse the moment, so we can live again*  
+*Reverse the love, reverse the hate*
+*Reverse the hope, reverse the way we playing sin*
+*Reverse the moment, so we can live again*
 *Life and times of the American skin*

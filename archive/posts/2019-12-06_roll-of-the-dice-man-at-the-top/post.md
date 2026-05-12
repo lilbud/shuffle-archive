@@ -14,31 +14,31 @@ If you listen to both the ’85 and studio recordings above, you’ll hear two v
 
 “Man at the Top” is a case in point. If you were to read the lyrics alone without ever hearing the song, you might think that Bruce had succumbed to the lure of unbridled wealth and ambition at the height of the 1980s:
 
-*Here comes a fireman, here comes a cop*  
-*Here comes a wrench, here comes a carhop*  
-*Been going on forever, it ain’t ever gonna stop*  
+*Here comes a fireman, here comes a cop*
+*Here comes a wrench, here comes a carhop*
+*Been going on forever, it ain’t ever gonna stop*
 *Everybody wants to be the man at the top*
 
-*Everybody wants to be the man at the top*  
-*Everybody wants to be the man at the top now*  
-*Aim your gun, son, and shoot your shot*  
+*Everybody wants to be the man at the top*
+*Everybody wants to be the man at the top now*
+*Aim your gun, son, and shoot your shot*
 *Everybody wants to be the man at the top*
 
-*Rich man, poor man, beggar man, thief*  
-*Doctor, lawyer, Indian chief*  
-*One thing in common they all got*  
+*Rich man, poor man, beggar man, thief*
+*Doctor, lawyer, Indian chief*
+*One thing in common they all got*
 *Everybody wants to be the man at the top, yeah*
 
 The bridge especially seems awfully personal, and the final verse autobiographical:
 
-*Man at the top says it’s lonely up there*  
-*If it is, man, I don’t care*  
-*From the big white house to the parking lot*  
+*Man at the top says it’s lonely up there*
+*If it is, man, I don’t care*
+*From the big white house to the parking lot*
 *Everybody wants to be the man at the top*
 
-*Here comes a banker, here comes a businessman*  
-*Here comes a kid with a guitar in his hand*  
-*Dreaming of his record in the number one spot*  
+*Here comes a banker, here comes a businessman*
+*Here comes a kid with a guitar in his hand*
+*Dreaming of his record in the number one spot*
 *Everybody wants to be the man at the top*
 
 For a man who knew that he was on the precipice of mega-stardom when he wrote it (and had already made that leap by the time of that ’85 performance), “Man at the Top” sure reads like a self-pep talk meant to give himself that final nudge to grab the brass ring. And honestly, if we listen just to the studio recording, that’s the logical read of it.

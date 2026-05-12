@@ -20,17 +20,17 @@ It didn’t come easy.
 
 In the early outtake above, “Badlands” is a shockingly callous story. Bruce felt the fire in the song’s soul but overshot its themes of self-determination and self-actualization and landed squarely in self-centeredness and just plain selfishness. In the heart of the song, Bruce dismisses his girl in his impatience to take on the world:
 
-*Hurry up and try, try to take me*  
-*Girl, I’m walkin’ by in the daytime*  
-*Honey, I’m walkin’ by, and I don’t care for you*  
+*Hurry up and try, try to take me*
+*Girl, I’m walkin’ by in the daytime*
+*Honey, I’m walkin’ by, and I don’t care for you*
 *Hey, now, I’m talking to you, baby*
 
-*I don’t give a damn, all your kiddin’ ’round*  
-*Well, I don’t care, well that you look fine*  
-*I don’t really care that you’re all mine!*  
+*I don’t give a damn, all your kiddin’ ’round*
+*Well, I don’t care, well that you look fine*
+*I don’t really care that you’re all mine!*
 *Yeah, how ’bout that, baby?*
 
-*Badlands, rip the world apart*  
+*Badlands, rip the world apart*
 *Badlands, hurry up and let it start*
 
 But the song eventually took form, and this near final outtake, “Badlands” is clearly the song we know and love–with some small but striking differences:
@@ -49,8 +49,8 @@ Now let’s take a dive into those lyrics.
 
 In Brian Hiatt’s book *Stories Behind the Songs*, Hiatt posits that the opening line might have its origins in the great New York City blackout of 1977. Perhaps he’s correct, but I prefer to believe otherwise, because those first three lines rank high among Bruce’s finest stage-setting:
 
-*Lights out tonight, trouble in the heartland*  
-*Got a head-on collision smashing in my guts man*  
+*Lights out tonight, trouble in the heartland*
+*Got a head-on collision smashing in my guts man*
 *I’m caught in a crossfire that I don’t understand*
 
 I’ve always believed that the key to understanding “Badlands” is right there in the first line. Yes, the title is almost certainly inspired by the 1973 classic Terrence Malick film; yes, Bruce probably liked the symbolism of the phrase “bad lands.” But similarly, when Bruce sings about “trouble in the heartland,” he’s really singing about “trouble in the heart land” — in other words, the conflict in “Badlands” is internal, and although the choruses are defiant, the verses are anything but.
@@ -63,37 +63,37 @@ Lights out, indeed.
 
 That existential conflict between the affirmation he received on stage and the self-determination and control he craved over his work almost certainly infused “Badlands” if not directly informed it:
 
-*But there’s one thing I know for sure*  
-*Girl, I don’t give a damn for the same old played out scenes*  
-*Baby, I don’t give a damn for just the in-betweens*  
+*But there’s one thing I know for sure*
+*Girl, I don’t give a damn for the same old played out scenes*
+*Baby, I don’t give a damn for just the in-betweens*
 *Honey, I want the heart, I want the soul, I want control right now*
 
 One has to think that as time dragged on, Bruce had to question the wisdom of his resolve and wonder if his legal ownership might come at the expense of his audience’s attention. What if he completely missed his fifteen minutes in the spotlight?
 
-*You better listen to me baby, talk about a dream, try to make it real*  
-*You wake up in the night with a fear so real*  
-*You spend your life waiting for a moment that just don’t come*  
+*You better listen to me baby, talk about a dream, try to make it real*
+*You wake up in the night with a fear so real*
+*You spend your life waiting for a moment that just don’t come*
 *Well don’t waste your time waiting*
 
 The chorus of “Badlands” is defiant, but also desperate. It’s Bruce’s refusal to back down from principle and integrity no matter the cost. It may take time, a long time even, but someday those badlands will treat him good.
 
-*Badlands, you gotta live it every day*  
-*Let the broken hearts stand as the price you’ve gotta pay*  
-*We’ll keep pushing till it’s understood*  
+*Badlands, you gotta live it every day*
+*Let the broken hearts stand as the price you’ve gotta pay*
+*We’ll keep pushing till it’s understood*
 *And these badlands start treating us good*
 
 The second verse reveals how Bruce pictured himself, laboring on stage as hard as a field worker, but ultimately for a rich man’s benefit rather than his own. Yes, that “poor man wanna be rich, rich man wanna be king” line comes from Elvis Presley’s “King of the Whole Wide World,” so if Bruce went out of his way to quote it, that notion must have been lodged in his brain for good reason.
 
-*Working in the field till you get your back burned*  
-*Working ‘neath the wheels till you get your facts learned*  
-*Baby, I got my facts learned real good right now*  
-*You better get it straight, darling*  
-*Poor man wanna be rich, rich man wanna be king*  
-*And a king ain’t satisfied till he rules everything*  
+*Working in the field till you get your back burned*
+*Working ‘neath the wheels till you get your facts learned*
+*Baby, I got my facts learned real good right now*
+*You better get it straight, darling*
+*Poor man wanna be rich, rich man wanna be king*
+*And a king ain’t satisfied till he rules everything*
 *I wanna go out tonight, I wanna find out what I got*
 
-*Well I believe in the love that you gave me*  
-*I believe in the faith that could save me*  
+*Well I believe in the love that you gave me*
+*I believe in the faith that could save me*
 *I believe in the hope and I pray that some day it may raise me above these badlands*
 
 Who’s Bruce talking to here? Whose love does he believe in? That’s easy: ours. Bruce is trusting that his audience would still be there when his legal fight was over and he returned with a long-awaited album.
@@ -118,9 +118,9 @@ Which of course is exactly what happens during this part of the song in concert.
 
 All of this, of course, is just to serve as a build-up for the song’s climax. Bruce may have written songs with final lines that are equally powerful, but certainly none more exhilarating. With all of the power marshaled within and behind him, Bruce dedicates “Badlands” to the dreamers who pursue their passion, who look past the users, and who reclaim their heart and soul from those who would hold them back:
 
-*For the ones who had a notion, a notion deep inside*  
-*That it ain’t no sin to be glad you’re alive*  
-*I wanna find one face that ain’t looking through me*  
+*For the ones who had a notion, a notion deep inside*
+*That it ain’t no sin to be glad you’re alive*
+*I wanna find one face that ain’t looking through me*
 *I wanna find one place, I wanna spit in the face of these…*
 
 **Badlands**

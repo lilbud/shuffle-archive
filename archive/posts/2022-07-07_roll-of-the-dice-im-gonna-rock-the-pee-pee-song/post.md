@@ -18,8 +18,8 @@ While he was gone, Roy Bittan vamped with some New Orleans-style honky-tonk.
 
 When he returned to the stage (with an audible sigh of relief), a much happier Springsteen improvised some lyrics on the spot:
 
-*I’m gonna rock all night long, I’m gonna rock*  
-*I’m gonna rock all night long, I’m gonna rock*  
+*I’m gonna rock all night long, I’m gonna rock*
+*I’m gonna rock all night long, I’m gonna rock*
 *I’m gonna rock all night long, I’m gonna rock, baby ’til it comes the dawn*
 
 Not the deepest lyrics in his songbook, but they did the trick and kept the crowd’s energy level up until he was ready to resume the set with “Leap of Faith.”
@@ -29,8 +29,8 @@ As far as I know, those lyrics have never appeared anywhere else in his catalog,
 He hasn’t performed it since, but I bet he’s glad he hasn’t had to.
 
 **I’m Gonna Rock (The Pee Pee Song)  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **First performed:** December 8, 1992 (Philadelphia, PA)  
 **Last performed:** December 8, 1992 (Philadelphia, PA)
 

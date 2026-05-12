@@ -10,16 +10,16 @@ That segue you hear in the final minutes blends “Drive All Night” with the S
 
 By placing it in the context of “Drive All Night,” Elysium transforms Bruce’s song of young romance into something eternal: a pledge of remembrance to a love lost.
 
-*But since it fell into my lot*  
-*That I should rise and you should not*  
-*I’ll gently rise and softly call*  
+*But since it fell into my lot*
+*That I should rise and you should not*
+*I’ll gently rise and softly call*
 *Good night and joy be to you all*
 
 *So fill to me the parting glass*
 
-*And drink a health whate’er befalls*  
-*Then gently rise and softly call*  
-*Good night and joy be to you all*  
+*And drink a health whate’er befalls*
+*Then gently rise and softly call*
+*Good night and joy be to you all*
 *Good night and joy be to you all*
 
 Released in the midst of the great pandemic of 2020, it’s hard not to hear their performance of “Drive All Night” in a completely different light–love laced with loss. It’s simultaneously healing and heart-aching.

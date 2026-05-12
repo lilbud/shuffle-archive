@@ -20,48 +20,48 @@ And the song is a confession.
 
 The narrator of “Harry’s Place” is that voice inside the addict’s head, struggling to break through his self-denial with brutally frank language and a squalid backing track.
 
-*Downtown hipsters drinking up the drug line*  
-*Down in the kitchen working in the coal mine*  
-*Got a special sin, mister, you can’t quite confess*  
-*Messy little problem, maybe baby need a new dress*  
-*Razorback diamond you shine too hard*  
-*Need a hammer help you handle little trouble in your backyard*  
+*Downtown hipsters drinking up the drug line*
+*Down in the kitchen working in the coal mine*
+*Got a special sin, mister, you can’t quite confess*
+*Messy little problem, maybe baby need a new dress*
+*Razorback diamond you shine too hard*
+*Need a hammer help you handle little trouble in your backyard*
 *(Bring it on down to Harry’s Place)*
 
 When you’re an addict, your addiction runs your life. You don’t make the rules anymore. You’re the servant, not the master. And everything you own, every dollar you possess, every person in your life is–if Addiction has anything to say about it–in service as well.
 
-*When Harry speaks it’s Harry’s streets, in Harry’s house it’s Harry’s rules*  
-*You don’t wanna be around, brother, when Harry schools*  
-*It’s Harry’s car, Harry’s wife, Harry’s dogs run Harry’s town*  
-*Your blood and money spit-shines Harry’s crown*  
-*You don’t fuck with Harry’s money, you don’t fuck Harry’s girls*  
-*These are the rules, this is the world*  
+*When Harry speaks it’s Harry’s streets, in Harry’s house it’s Harry’s rules*
+*You don’t wanna be around, brother, when Harry schools*
+*It’s Harry’s car, Harry’s wife, Harry’s dogs run Harry’s town*
+*Your blood and money spit-shines Harry’s crown*
+*You don’t fuck with Harry’s money, you don’t fuck Harry’s girls*
+*These are the rules, this is the world*
 *(When you bring it on down to Harry’s Place)*
 
 You can tell yourself that it’s medicinal. That it’s healthy to channel your frustrations and weaknesses into a single harmless outlet. That you can quit any time. But you know better.
 
-*You need a little shot of something to improve your health*  
-*A taste of that one little weakness you allow yourself*  
-*You’re looking for the key of that box you locked yourself in*  
+*You need a little shot of something to improve your health*
+*A taste of that one little weakness you allow yourself*
+*You’re looking for the key of that box you locked yourself in*
 *Just step up to the line and be one of Harry’s friends*
 
 You can’t leave “Harry’s Place,” even though you know it’s a place no one in their right mind would ever want to spend time. And the fact that you may not be there alone is small (if any) comfort. So you give in to it. You surrender to the darkness, venturing yet another flight down to where it’s darker, so you can’t see the squalor. But you know you’re in it.
 
-*Shithole on the corner, no light, no sign*  
-*Nobody on the street ‘cept the deaf, dumb, and blind*  
-*Mayor Conner’s on the couch, Father McGowan’s at the bar*  
+*Shithole on the corner, no light, no sign*
+*Nobody on the street ‘cept the deaf, dumb, and blind*
+*Mayor Conner’s on the couch, Father McGowan’s at the bar*
 *Chief Horton’s at the door checking who the fuck you are*
 
-*Seesaw Bobby dressed in drag and Mr. Nice*  
-*Carry me into the back room and dim the lights*  
-*My arms strapped to the table, a thousand angels spinning up the room*  
-*A voice whispers in my ear, “We do what we must do”*  
+*Seesaw Bobby dressed in drag and Mr. Nice*
+*Carry me into the back room and dim the lights*
+*My arms strapped to the table, a thousand angels spinning up the room*
+*A voice whispers in my ear, “We do what we must do”*
 *(When we bring it on down to Harry’s Place)*
 
 The coda is as chilling as any Bruce has ever written:
 
-*Nobody knows his number, nobody knows his name*  
-*If he didn’t exist, it’d all go on just the same*  
+*Nobody knows his number, nobody knows his name*
+*If he didn’t exist, it’d all go on just the same*
 *(Bring it on down to Harry’s Place)*
 
 Addiction transcends substance. It’s not the drug that’s the demon–it’s the lure, the promise of escape from the life you can’t face.
@@ -115,7 +115,7 @@ I’ve shared my own take with you here, but ultimately your guess is as good as
 
 And apparently as good as Bruce’s.
 
-**Harry’s Place**  
+**Harry’s Place**
 **Recorded:** 2007 and 2014  
 **Released:** *High Hopes* (2014)  
 **Never performed**

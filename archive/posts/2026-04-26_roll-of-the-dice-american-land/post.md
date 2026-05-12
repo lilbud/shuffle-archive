@@ -20,24 +20,24 @@ But Seeger’s friend and fellow song catcher Jacob Evanson knew Slovak and tran
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BHe3529OC2c)
 
-*Ah, my God! What is this land of America?*  
-*So many people traveling there*  
-*I will go too, for I am still young*  
+*Ah, my God! What is this land of America?*
+*So many people traveling there*
+*I will go too, for I am still young*
 *God, the Lord will grant me good luck there*
 
-*You, my wife, stay here ’til you hear from me*  
-*When you get my letter, put everything in order*  
-*Mount a raven-black steed, a horse like the wind*  
+*You, my wife, stay here ’til you hear from me*
+*When you get my letter, put everything in order*
+*Mount a raven-black steed, a horse like the wind*
 *Fly across the ocean to join me here*
 
-*Ah, but when she arrived in this strange land*  
-*Here in McKeesport, this valley, this valley of fire*  
-*Only his grave, his blood did she find*  
+*Ah, but when she arrived in this strange land*
+*Here in McKeesport, this valley, this valley of fire*
+*Only his grave, his blood did she find*
 *Over it bitterly she cried*
 
-*Ah, my husband, what have you done to this family of yours?*  
-*What can you say to these children, to these children you’ve orphaned?*  
-*Tell them, my wife, not to wait, not to wait, not to wait for me*  
+*Ah, my husband, what have you done to this family of yours?*
+*What can you say to these children, to these children you’ve orphaned?*
+*Tell them, my wife, not to wait, not to wait, not to wait for me*
 *Tell them I lie here, in the American land*
 
 While the first five lines are instantly recognizable as close cousins to Bruce’s first verse, Kovaly’s song takes a much darker path than Bruce’s does. In the original, the immigrant dies before his wife arrives, making the meaning of the song’s title crystal clear.
@@ -48,52 +48,52 @@ Kovaly’s song is a dirge; we recognize it as a tale of despair and tragedy fro
 
 The first third of the song conjures a romantic scene of the early New York City that greeted immigrants arriving by sea at Ellis Island.
 
-*What is this land America, so many travel there*  
-*I’m going now while I’m still young, my darling meet me there*  
-*Wish me luck my lovely, I’ll send for you when I can*  
+*What is this land America, so many travel there*
+*I’m going now while I’m still young, my darling meet me there*
+*Wish me luck my lovely, I’ll send for you when I can*
 *And we’ll make our home in the American land*
 
-*Over there the women wear silk and satin to their knees*  
-*And children dear, the sweets, I hear, are growing on the trees*  
-*Gold comes rushing out the rivers straight into your hands*  
+*Over there the women wear silk and satin to their knees*
+*And children dear, the sweets, I hear, are growing on the trees*
+*Gold comes rushing out the rivers straight into your hands*
 *If you make your home in the American land*
 
-*There’s diamonds in the sidewalks, there’s gutters lined in song*  
-*Dear, I hear that beer flows through the faucets all night long*  
-*There’s treasure for the taking, for any hard working man*  
+*There’s diamonds in the sidewalks, there’s gutters lined in song*
+*Dear, I hear that beer flows through the faucets all night long*
+*There’s treasure for the taking, for any hard working man*
 *Who’ll make his home in the American land*
 
 Of course our narrator knows that the Land of Opportunity isn’t quite as literal as he makes it out to be, but the idea of a land where reward is directly commensurate with the investment one makes in one’s work… well, to a European immigrant that must have sounded just as sweet as trees bearing candy and faucets flowing beer.
 
 In the second verse, our new American arrival is confronted with reality, and while it’s not as idyllic as he imagined, he digs in and takes pride in his work.
 
-*I docked at Ellis Island in a city of light and spire*  
-*I wandered to the valley of red-hot steel and fire*  
-*We made the steel that built the cities with the sweat of our two hands*  
+*I docked at Ellis Island in a city of light and spire*
+*I wandered to the valley of red-hot steel and fire*
+*We made the steel that built the cities with the sweat of our two hands*
 *And I made my home in the American land*
 
 In the final verses–which actually differs between the Sessions Band and E Street Band versions–Bruce name checks the clans who crossed the seas to build the United States into the country it is today. It’s important that Bruce actually names them: they are indeed the ones who built the country, and yet they are largely unknown to us.
 
-*The McNicholas, the Posalskis, the Smiths, Zerillis too*  
-*The Blacks, the Irish, Italians, the Germans and the Jews*  
-*The Rodriguezes, the ???, the Asians, Arabs miles from home*  
+*The McNicholas, the Posalskis, the Smiths, Zerillis too*
+*The Blacks, the Irish, Italians, the Germans and the Jews*
+*The Rodriguezes, the ???, the Asians, Arabs miles from home*
 *Come across the water with a fire down below*
 
-*They died building the railroads, worked to bones and skin*  
-*They died in the fields and factories, names scattered in the wind*  
-*They died to get here a hundred years ago, they’re dying now*  
+*They died building the railroads, worked to bones and skin*
+*They died in the fields and factories, names scattered in the wind*
+*They died to get here a hundred years ago, they’re dying now*
 *The hands that built the country we’re always trying to keep down*
 
 I can’t speak to whether Bruce was thinking of specific people or whether he simply chose representative names (although we certainly know the names Zerilli and McNicholas have particular family significance to him), but ascribing names–whether true or fictional–is very much a statement.
 
 When Bruce re-recorded “American Land” in the studio with the E Street Band, he altered the last verses, changing the “Rodriguezes” couplet to:
 
-*They came across the water a thousand miles from home*  
+*They came across the water a thousand miles from home*
 *With nothing in their bellies but the fire down below*
 
 …as well as making two very subtle but significant changes to the final two lines:
 
-*They died to get here a hundred years ago, they’re **still** dying now*  
+*They died to get here a hundred years ago, they’re **still** dying now*
 *The hands that built the country we’re always trying to keep **out***
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sjxlRNly3Dw)
@@ -102,9 +102,9 @@ That’s Bruce sending another message, reminding us that even today, *especiall
 
 And yet.
 
-*There’s diamonds in the sidewalk, there’s gutters lined in song*  
-*Dear, I hear that beer flows through the faucets all night long*  
-*There’s treasure for the taking, for any hard working man*  
+*There’s diamonds in the sidewalk, there’s gutters lined in song*
+*Dear, I hear that beer flows through the faucets all night long*
+*There’s treasure for the taking, for any hard working man*
 *Who’ll make his home in the American land*
 
 Bruce ends the song not with condemnation, but with a reminder of the American promise, of the country that–as Bruce once famously put it–waits for us, carried in our hearts.

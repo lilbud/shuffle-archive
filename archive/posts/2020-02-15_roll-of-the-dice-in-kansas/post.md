@@ -10,15 +10,15 @@ But here’s one that Bruce seems to have abandoned almost as soon as he started
 
 Bruce seems to be teeing up some kind of environmental message, but that’s pure speculation, since we have nothing else to go by.
 
-*In Kansas, a dust storm was raging*  
-*In West Virginia, the dam was breaking*  
-*In Arizona, a million dollars in desert was being blown into the sky*  
+*In Kansas, a dust storm was raging*
+*In West Virginia, the dam was breaking*
+*In Arizona, a million dollars in desert was being blown into the sky*
 *And in heaven, clouds were shifting*
 
 And while the composition is undated, I would peg it circa 1971-1972, based purely on the paper itself–the rounded corners, three-hole punch, and unperforated pages match closely snapshots of the notebook(s) Bruce wrote in during that time. (If you have any additional background on this composition, I’d love to know it.)
 
 **In Kansas  
-Never recorded**  
-**Never performed** 
+Never recorded**
+**Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

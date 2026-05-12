@@ -12,26 +12,26 @@ On stage with Bruce are Steve Van Zandt (on bass), Vini Lopez, and Danny Federic
 
 Bruce fashioned “Girlfriend Blues” in the classic blues mold and “my girl done left me” theme, and his lyrics clearly drew inspiration from Richard Fariña’s *Been Down So Long It Looks Like Up to Me,* which captivated the countercultural imagination upon its publication four years earlier. Bruce had undoubtedly read it by this time, as he acknowledges it post-song when an audience member catches the lyrical reference.
 
-*Been down so long*  
+*Been down so long*
 *I cannot look back up to me*
 
-*I’ve been down so long*  
-*I cannot look back up to me* 
+*I’ve been down so long*
+*I cannot look back up to me*
 
-*Since my honey left me*  
+*Since my honey left me*
 *I’ve been so sad as any poor boy would be*
 
-*She said that I treated her mean*  
+*She said that I treated her mean*
 *She said I got too many women on the side*
 
-*She said that I treated her mean*  
-*She said I got too many of them young girls on the side*   
+*She said that I treated her mean*
+*She said I got too many of them young girls on the side*
 *(Oh she’s sweet sixteen)*
 
-*Said honey it don’t mean a thing to me*  
+*Said honey it don’t mean a thing to me*
 *Oh you’re the best woman that I’ve ever seen*
 
-*It made me feel so good when you love me*  
+*It made me feel so good when you love me*
 *I just gotta let you know all about it*
 
 Bruce and the band are channeling a tremendous groove here. This is a seriously and confidently powerful performance for such a young band. But what truly makes this performance so significant is Bruce’s mid-song story.
@@ -58,11 +58,11 @@ That week of civil unrest caused more than five million dollars in property dama
 
 Let’s let Bruce continue:
 
-*“Let me see your driver’s license and registration.” I said, “You don’t have to point that shotgun at me and jump out with all them 30 state troopers to see my license and registration, especially since I wasn’t driving.”* 
+*“Let me see your driver’s license and registration.” I said, “You don’t have to point that shotgun at me and jump out with all them 30 state troopers to see my license and registration, especially since I wasn’t driving.”*
 
 *So anyway, we’re sitting there in the middle of the street, with the 30 state troopers and everybody, and they’re making all kind of cracks at us and stuff. So I said, “What’s going on?” You know, me being all unaware of the situation. So anyway, they let us ride through town.*
 
-*From what I’ve seen, there must’ve been a bargain sale in Asbury. You know: run in as fast as you can, take what you can get, and split!* 
+*From what I’ve seen, there must’ve been a bargain sale in Asbury. You know: run in as fast as you can, take what you can get, and split!*
 
 Oof. That may be Bruce Springsteen’s single cringiest on-stage moment ever.
 
@@ -70,20 +70,20 @@ There’s really no defending such disingenuousness and insensitivity, so I’m 
 
 Now let’s set that aside and get back to the music, which resumes with a very impressive guitar solo by Bruce. When his vocals resume, we thankfully flash forward in time. His girlfriend is long gone, and our narrator obsesses over how much he misses her.
 
-*Oh you know I couldn’t take her on down to the boardwalk*  
+*Oh you know I couldn’t take her on down to the boardwalk*
 *So she decided to just cut on out of town*
 
-*Oh, I sure miss that woman*  
+*Oh, I sure miss that woman*
 *She sure made me feel down*
 
-*And I’ve been down so long*  
+*And I’ve been down so long*
 *You know it looked like up to me*
 
 But wait–there might yet be hope for our lovers’ reconciliation! All our narrator has to do to earn his girl back is one little favor. What could it be?
 
-*She said, “you know, I just might forgive you honey*  
-*But please: won’t you do me a favor?*  
-*Won’t you do me a little favor first?*  
+*She said, “you know, I just might forgive you honey*
+*But please: won’t you do me a favor?*
+*Won’t you do me a little favor first?*
 *I said, won’t you do me a favor?”*
 
 *I said, “what do you want from me?”  
@@ -102,8 +102,8 @@ Sigh. Oh, Bruce…
 *(h/t to Eddy at Springsteenlyrics.com for his great work transcribing and documenting this one)*
 
 **Girlfriend Blues  
-Never recorded**  
-**Never released**  
+Never recorded**
+**Never released**
 **First performed:** July 17, 1970 (Asbury Park, NJ)  
 **Last performed:** July 17, 1970 (Asbury Park, NJ)
 

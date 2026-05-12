@@ -18,9 +18,9 @@ Bruce’s lyrics for “Vibes Man” are so very close to what would become “N
 
 But there are a couple of differences that bear mention–the first of which is the “fish lady verse.” Besides the change from third person to second person narration (which places the singer more immediately in the action), there’s that stunning second couplet:
 
-*Fish lady, don’t you bait those tenement walls*  
-*Don’t take corner boys, because they’re too easy*  
-*You were born black and blue*  
+*Fish lady, don’t you bait those tenement walls*
+*Don’t take corner boys, because they’re too easy*
+*You were born black and blue*
 *You didn’t have to wait for somebody to hit you*
 
 That’s a terrific (if disturbing) metaphor, and I’m genuinely surprised that Bruce never found a home for it another song. (Why he even dropped it for “New York City Serenade” is a mystery.)
@@ -29,20 +29,20 @@ The other part of the song that interests me is the extended “she won’t take
 
 But in “Vibes Man” the train is more literal–it’s the train that would take Fish Lady to the narrator’s home (and presumably bed) if she’d only take it. The tracks, however, are as metaphorical as ever.
 
-*Won’t you come home with me?*  
-*Won’t you come home with me?*  
-*But no, ’cause she won’t take a train*  
-*Oh, she won’t take that train*  
-*She won’t take a train*  
-*No, she won’t take that train*  
-*She won’t take a train*  
-*Oh, no, she won’t take that train*  
-*Lord, she won’t take a train*  
-*Oh, ah, no, she won’t take that train*  
-*You won’t take the train*  
-*She won’t take the train*  
-*Cause she’s afraid those tracks are gonna slow her down*  
-*And when she turns around*  
+*Won’t you come home with me?*
+*Won’t you come home with me?*
+*But no, ’cause she won’t take a train*
+*Oh, she won’t take that train*
+*She won’t take a train*
+*No, she won’t take that train*
+*She won’t take a train*
+*Oh, no, she won’t take that train*
+*Lord, she won’t take a train*
+*Oh, ah, no, she won’t take that train*
+*You won’t take the train*
+*She won’t take the train*
+*Cause she’s afraid those tracks are gonna slow her down*
+*And when she turns around*
 *I’m gonna be gone like the notes in any man’s song*
 
 But oh, that last line: as gorgeous as the music is that accompanies its replacement line (“So long… sometimes you just gotta walk on”), Bruce’s first attempt above was much stronger.
@@ -53,7 +53,7 @@ But lyrically, it reflects Bruce’s rapidly developing songwriting skill and pr
 
 **Vibes Man  
 **Recorded** February 1973 (demo)  
-**Never released**  
+**Never released**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
