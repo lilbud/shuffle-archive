@@ -1,16 +1,12 @@
-
-
 For the most part, I made it through years of daily blogging without confronting my earlier writing. But curating these volumes requires revisiting everything I’ve written since 2018.
 
 It’s an uncomfortable exercise at times.
 
-If I squint while reading , I can see glimpses of who I was at the time I wrote each essay, and hints of things changing within and around me.
-
-*Roll of the Dice Volume 1: Greetings From Asbury Park, N.J.*
+If I squint while reading *Roll of the Dice Volume 1: Greetings From Asbury Park, N.J.*, I can see glimpses of who I was at the time I wrote each essay, and hints of things changing within and around me.
 
 This volume, though, dares me to to maintain eye contact. Fittingly, given the video for its lead single.
 
-[https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed](https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
 It’s not the writing per se. I think this collection contains some of my best essays, including the first one I was truly proud of (“Brilliant Disguise,” written barely one month into the blog).
 
@@ -20,17 +16,15 @@ It’s hard to see when reading linearly, because the essays weren’t written i
 
 And while some of it makes me wince, other parts make me laugh. In “Brilliant Disguise,” I wrote:
 
-*“…if you’re lucky enough to make it that far, you someday come to realize that the things you try to hide aren’t really hidden, and of the things you choose to show, some are true and some are just who you want to be.”*
+*“…if you're lucky enough to make it that far, you someday come to realize that the things you try to hide aren't really hidden, and of the things you choose to show, some are true and some are just who you want to be.”* 
 
 That passage rings differently for me today than it did in February 2018. But that’s not what made me laugh. It’s the paragraph that follows:
 
-*“At least that’s how it feels to me today. But I won’t be surprised if I have still another take down the road. That’s the way it goes with Brilliant Disguise.'”*
+*“At least that's how it feels to me today. But I won't be surprised if I have still another take down the road. That's the way it goes with Brilliant Disguise.'”*
 
 It is indeed.
 
-And that doesn’t apply only to “Brilliant Disguise.” is a chameleon of an album. If it reveals its author’s internal life at the time he wrote it, it also lays bare our own at the time we hear it. Every time we hear it
-
-*Tunnel of Love*
+And that doesn’t apply only to “Brilliant Disguise.” *Tunnel of Love* is a chameleon of an album. If it reveals its author’s internal life at the time he wrote it, it also lays bare our own at the time we hear it. Every time we hear it
 
 Pick a song from the album and ask me what it’s about. The answer I give will be different today than it would have been ten years ago, five years ago, or almost certainly five years from now.
 

@@ -23,13 +23,13 @@ In the early 1970s, Bruce had a fascination with seamy street scenes and sordid 
 
 “The Angel” is very much in this vein, a portrait rather than a story, about a Hell’s Angel biker whose bravado may mask some inner insecurity.
 
-*The angel rides with hunchback children*
-*Poison oozing from his engine*
-*Wieldin’ love as a lethal weapon*
-*On his way to Hubcap Heaven*
-*Baseball cards poked in his spokes*
-*His boots in oil he’s patiently soaked*
-*The roadside attendant nervously jokes*
+*The angel rides with hunchback children*  
+*Poison oozing from his engine*  
+*Wieldin’ love as a lethal weapon*  
+*On his way to Hubcap Heaven*  
+*Baseball cards poked in his spokes*  
+*His boots in oil he’s patiently soaked*  
+*The roadside attendant nervously jokes*  
 *As the angel’s tires stroke his precious pavement*
 
 “The Angel” is often derided as at best pretentious, at worst as crude. But there’s much to admire and appreciate here as well; Bruce isn’t altogether wrong when he deemed it one of his more sophisticated songs.
@@ -46,9 +46,9 @@ But I digress.
 
 Let’s get back to the song, because we’re about to get to the part where Bruce hints at glory still to come.
 
-*Well, the interstate’s choked with nomadic hordes*
-*In Volkswagen vans with full running boards dragging great anchors*
-*Followin’ dead-end signs into the sores*
+*Well, the interstate’s choked with nomadic hordes*  
+*In Volkswagen vans with full running boards dragging great anchors*  
+*Followin’ dead-end signs into the sores*  
 *The angel rides by humpin’ his hunk metal whore*
 
 It’s only a hop and a skip–not even a jump–from *the interstate’s choked with nomadic hordes* to *the highway’s jammed with broken heroes,* and I’d argue that the imagery of the angel weaving effortlessly in and around the endless procession of VW vans (with a grace only elevated by the delicate, almost slow-motion melody) conveys a far more visceral freedom than “Born to Run” does.
@@ -57,13 +57,13 @@ It’s only a hop and a skip–not even a jump–from *the interstate’s choked
 
 The crude “hunk metal whore” metaphor is both apt (the angel is almost fetishistic toward his bike) and an ironic contrast to the intentionally nameless woman he’s about to pick up.
 
-*Madison Avenue’s claim to fame*
-*In a trainer bra with eyes like rain*
-*She rubs against the weather-beaten frame*
-*And asks the angel for his name*
-*Off in the distance the marble dome*
-*Reflects across the flatlands with a naked feel off into parts unknown*
-*The woman strokes his polished chrome*
+*Madison Avenue’s claim to fame*  
+*In a trainer bra with eyes like rain*  
+*She rubs against the weather-beaten frame*  
+*And asks the angel for his name*  
+*Off in the distance the marble dome*  
+*Reflects across the flatlands with a naked feel off into parts unknown*  
+*The woman strokes his polished chrome*  
 *And lies beside the angel’s bones*
 
 Note that the woman asks the angel for his name; not only does he not provide it, he doesn’t ask for hers either. She’s not the love interest in the story. Even though this last verse is clearly and intentionally laced with double entendre (in another early instance of a someday classic line, Bruce somehow manages to make *wrap your legs ’round these velvet rims and strap your hands across my engines* even more overtly sexual having Madison Avenue’s claim to fame rub against the angel’s frame and stroking his polished chrome), Bruce deliberately avoids pronouns that would indicate whether the sexual connotations refer to the biker or the bike.
@@ -92,9 +92,9 @@ That night–[November 22, 2009](https://estreetshuffle.com/index.php/2018/11/22
 Bruce would continue to reach far back into his catalog (and even earlier) in the years to come, but that perfect performance of “The Angel” felt like a farewell and a fond send-off from a once-desperate, hungry songwriter to a song that had long since served its purpose.
 
 **The Angel  
-**Recorded:** June 27 – October 26, 1972<br>
-**Released:** [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1973)<br>
-**First performed:** February 14, 1972 (New York City, NY)<br>
+**Recorded** June 27 – October 26, 1972  
+**Released:** [*Greetings from Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1973)  
+**First performed:** February 14, 1972 (New York City, NY)  
 **Last performed:** November 22, 2009 (Buffalo, NY)
 
 © September 26, 2020

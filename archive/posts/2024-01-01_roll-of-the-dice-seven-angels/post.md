@@ -6,7 +6,7 @@ Recorded in 1990 during the *Human Touch* sessions, it’s a mystery why Bruce c
 
 Lyrically, “Seven Angels” is the tale of a man in the early stages of love, caught up in the insecurities and indecision that both protect us and isolate us from each other. Bruce wastes no time setting the stage:
 
-*Seven angels got my number since I fell in love with you*
+*Seven angels got my number since I fell in love with you*  
 *Seven angels got my number, they’re all telling me what to do*
 
 That’s it–that’s the song right there: Seven different internal monologues all battling for the attention of the narrator’s conscious mind and heart. The rest of the song is just a transcript of those monologues. If they were dwarves, we’d give them names:
@@ -33,10 +33,10 @@ That’s indeed what it all boils down to: trust or distrust. Which angel does t
 
 Here’s hoping we see an encore performance soon!
 
-**Seven Angels**
-**Recorded:** June 29, 1990<br>
-**Released:** *Tracks* (1998)<br>
-**First performed:** May 18, 2014 (Uncasville, CT)<br>
+**Seven Angels**  
+**Recorded:** June 29, 1990  
+**Released:** *Tracks* (1998)  
+**First performed:** May 18, 2014 (Uncasville, CT)  
 **Last performed:** May 18, 2014 (Uncasville, CT)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,10 +1,10 @@
 Editor's Note
 
-***Editor's Note:*** *Today's guest blogger is my long-time friend (and I'm pretty sure this blog's first subscriber) Marietta Phillips.*
+***Editor’s Note:*** *Today’s guest blogger is my long-time friend (and I’m pretty sure this blog’s first subscriber) Marietta Phillips.*
 
-*Marietta has been to a lot of Springsteen shows over the years, but none as unusual or intimate as this one from a decade ago today. Read on...*
+*Marietta has been to a lot of Springsteen shows over the years, but none as unusual or intimate as this one from a decade ago today. Read on…*
 
-It's all cold along the beach....the wind's whipping down the boardwalk....
+It's all cold along the beach….the wind's whipping down the boardwalk….
 
 This wasn't Bruce asking the band if they knew it was Christmastime. On this cold, clear December day in Asbury Park ten years ago, it was a few hundred fans swarming the Carousel House in the freezing cold hoping for a way to get inside for a rare and special performance from Bruce Springsteen and some version of the E Street Band.
 
@@ -22,7 +22,7 @@ Much has been written and questioned over the years about the stiffness of the u
 
 [Watch on Youtube: Bruce Springsteen - The Promise (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=-X3m6mjtFFs)
 
-Bruce and the band performed all songs twice, and with the exception of "[Blue Christmas](https://estreetshuffle.com/index.php/2020/11/29/cover-me-blue-christmas/)" to close, all of the songs were from *The Promise*. Hearing Bruce's direction to the band in between takes was as magnificent as the songs themselves. It took a bit for Steve to get the harmony down for "[Gotta Get That Feeling](https://estreetshuffle.com/index.php/2021/02/08/roll-of-the-dice-gotta-get-that-feeling/)," but he nailed it on the second performance, and it was fantastic.
+Bruce and the band performed all songs twice, and with the exception of “[Blue Christmas](https://estreetshuffle.com/index.php/2020/11/29/cover-me-blue-christmas/)” to close, all of the songs were from *The Promise*. Hearing Bruce's direction to the band in between takes was as magnificent as the songs themselves. It took a bit for Steve to get the harmony down for "[Gotta Get That Feeling](https://estreetshuffle.com/index.php/2021/02/08/roll-of-the-dice-gotta-get-that-feeling/)," but he nailed it on the second performance, and it was fantastic.
 
 [Watch on Youtube: Bruce Springsteen - Gotta Get That Feeling (Live At The Carousel, Asbury Park, NJ - 2010)](https://www.youtube.com/watch?v=itpktRH1iig)
 
@@ -46,4 +46,4 @@ As I walked out, I was full of gratitude, knowing we'd just had a genuine once-i
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*

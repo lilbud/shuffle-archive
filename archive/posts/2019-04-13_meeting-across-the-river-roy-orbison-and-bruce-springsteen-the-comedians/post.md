@@ -1,16 +1,9 @@
-
-
 Bruce takes a backing guitar role only on this one, but it’s too beautiful a performance not to include:
 
-From , “The Comedians.”
+From *Black and White Night*, “The Comedians.”
 
-*Black and White Night*
+[Watch on Youtube: Roy Orbison The Comedians .](https://www.youtube.com/watch?v=kTsEPS1SZbw)
 
-[https://www.youtube.com/embed/kTsEPS1SZbw?feature=oembed](https://www.youtube.com/embed/kTsEPS1SZbw?feature=oembed)
-
-September 30, 1987 (Los Angeles, CA)
-September 30 ,1987 (Los Angeles, CA)
-
-**The Comedians**
-**First performed:** <br>
-**Last performed:**<br>
+**The Comedians**  
+**First performed:** September 30, 1987 (Los Angeles, CA)  
+**Last performed:** September 30 ,1987 (Los Angeles, CA)

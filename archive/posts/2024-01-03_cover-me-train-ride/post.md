@@ -1,5 +1,3 @@
-
-
 I’m sort of at a loss for how to classify today’s entry. Is it an original? A cover? A team-up?
 
 It’s kind of all of the above.
@@ -16,21 +14,21 @@ Bruce was increasingly impressed by Robbin’s vocals and songwriting and grappl
 
 But Robbin brought more than just his vocal talents to the band–he also brought material. One of the songs to make the leap from Mercy Flight to Steel Mill was Robbin’s “Train Ride,” his former band’s most popular song. Here’s a vintage recording of Mercy Flight performing it:
 
+[https://estreetshuffle.com/wp-content/uploads/2021/09/TRAIN-RIDE.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2021/09/TRAIN-RIDE.mp3?_=3)
+
 <https://estreetshuffle.com/wp-content/uploads/2021/09/TRAIN-RIDE.mp3>
 
-Steel Mill’s version of “Train Ride” was a far cry from Mercy Flight’s. Robbin’s new band was a band, not a rock-and-roll band; Steel Mill’s version of “Train Ride” is a fourteen-minute hard-rocking guitar jam that would be unrecognizable if not for its lyrics.
+Steel Mill’s version of “Train Ride” was a far cry from Mercy Flight’s. Robbin’s new band was a *rock* band, not a rock-and-roll band; Steel Mill’s version of “Train Ride” is a fourteen-minute hard-rocking guitar jam that would be unrecognizable if not for its lyrics.
 
-*rock*
-
-[https://www.youtube.com/embed/uZV-rKsHjEg?feature=oembed](https://www.youtube.com/embed/uZV-rKsHjEg?feature=oembed)
+[Watch on Youtube: Bruce Springsteen and Steel Mill: Train Ride 1970 11 27, Sunshine In, Asbury Park, NJ](https://www.youtube.com/watch?v=uZV-rKsHjEg)
 
 That’s Robbin on lead vocals (it’s his song, after all), but Bruce is clearly present on guitar and backing vocals. Steel Mill continued to cover (if we can use that term when the song’s author is actually in the band) “Train Ride” through their very last shows in early 1971.
 
 When Steel Mill disbanded, Bruce formed The Bruce Springsteen Band before landing a recording contract with Columbia Records the following year. Robbin landed his own record deal a few years later and had some modest success both under his own name and with his eponymous band. In 1982, he finally released his 1969 composition under his own name.
 
-[https://www.youtube.com/embed/jAUWgythA9I?feature=oembed](https://www.youtube.com/embed/jAUWgythA9I?feature=oembed)
+[Watch on Youtube: Trainride](https://www.youtube.com/watch?v=jAUWgythA9I)
 
-[https://www.youtube.com/embed/P1kRXUzgf-Q?feature=oembed](https://www.youtube.com/embed/P1kRXUzgf-Q?feature=oembed)
+[Watch on Youtube: Robbin Thompson Band - "Train Ride" (1981)](https://www.youtube.com/watch?v=P1kRXUzgf-Q)
 
 Robbin and Bruce made a few appearances together over the decades that followed, as recently as the Magic Tour. Sadly, he passed away in 2015, the second of Bruce’s Steel Mill bandmates lost to the great hereafter.
 
@@ -40,10 +38,8 @@ When Vini Lopez ran into some legal trouble and had to miss a few shows, Bruce t
 
 Hazy Dave is still active today, along with his group called (I kid you not) The Mission Band.
 
-October 17, 1970 (West Long Branch, NJ)
-January 22, 1971 (Asbury Park, NJ)
+**Train Ride  
+**First performed:** October 17, 1970 (West Long Branch, NJ)  
+**Last performed:** January 22, 1971 (Asbury Park, NJ)
 
-**Train Ride**
-**First performed:**<br>
-
-**Last performed:**<br>
+ 

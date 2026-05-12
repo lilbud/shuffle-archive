@@ -1,134 +1,86 @@
+> “Any song… that you don’t understand the meaning to is always about sex.'” *–Bruce Springsteen introducing “Does This Bus Stop on 82nd Street?”, February 19, 2003*
 
+On the evening of March 23, 2012 in Tampa, early in the Wrecking Ball Tour, Bruce swapped out “[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)” for a tour premiere of “Does This Bus Stop on 82nd Street.”
 
-“Any song… that you don’t understand the meaning to is always about sex.'” *–Bruce Springsteen introducing “Does This Bus Stop on 82nd Street?”, February 19, 2003*
-
-On the evening of March 23, 2012 in Tampa, early in the Wrecking Ball Tour, Bruce swapped out “” for a tour premiere of “Does This Bus Stop on 82nd Street.”
-
-[The E Street Shuffle](https://estreetshuffle.com/index.php/2020/06/06/roll-of-the-dice-the-e-street-shuffle/)
-
-[https://www.youtube.com/embed/48hPyA5TGG0?feature=oembed](https://www.youtube.com/embed/48hPyA5TGG0?feature=oembed)
+[Watch on Youtube: Does This Bus Stop at 82nd Street? - Springsteen - Tampa March 23, 2012](https://www.youtube.com/watch?v=48hPyA5TGG0)
 
 Listening to the newly expanded, impressively tight E Street Band–complete with horn section and expanded percussion–ace the song on its first tour outing, trading solos and catching every cue, it’s easy to forget:
 
 “Does This Bus Stop on 82nd Street” used to be a runaway train, always a moment away from a complete wreck. Compare the performance above with this pulse-racing early version by the original E Street Band, from January 1974:
 
-[https://videopress.com/embed/Kou5zDLL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Kou5zDLL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/Kou5zDLL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-I’ve listened to that clip dozens of times and I keep expecting the train wreck that never comes. Vini Lopez in particular is –he gives Animal a run for his money.
+I’ve listened to that clip dozens of times and I *still* keep expecting the train wreck that never comes. Vini Lopez in particular is *all over the freaking place*–he gives Animal a run for his money.
 
-*still**all over the freaking place*
+[Watch on Youtube: Muppet Songs: Animal - Drum Solo](https://www.youtube.com/watch?v=VeQg2auVlU4)
 
-[https://www.youtube.com/embed/VeQg2auVlU4?feature=oembed](https://www.youtube.com/embed/VeQg2auVlU4?feature=oembed)
-
-But whether you prefer the pure adrenaline 1974 version or the more manageable modern arrangement, the key to understanding “Does This Bus Stop on 82nd Street” is realizing: .
-
-*it’s barely even a song*
+But whether you prefer the pure adrenaline 1974 version or the more manageable modern arrangement, the key to understanding “Does This Bus Stop on 82nd Street” is realizing: *it’s barely even a song*.
 
 The original album version clocks in at just a breath over two minutes. There’s no chorus, no plot, no point-of-view character, no message, and the song doesn’t end so much as just… stops.
 
-[https://www.youtube.com/embed/RTFUcl49L1E?feature=oembed](https://www.youtube.com/embed/RTFUcl49L1E?feature=oembed)
+[Watch on Youtube: Does This Bus Stop at 82nd Street?](https://www.youtube.com/watch?v=RTFUcl49L1E)
 
 “Does This Bus Stop at 82nd Street” sounds for all the world like what it probably was: a mental exercise for a bored young songwriter trying to pass the time on a long bus ride from Jersey to New York City.
 
 Bruce admitted as much during a radio performance when the song was brand-spanking-new, explaining that the first part of the song was indeed written on the bus to 82nd Street, the second part on the subway to a gig downtown, and the third part was written at his house.
 
-[https://www.youtube.com/embed/Cc9qJ1lz5P8?feature=oembed](https://www.youtube.com/embed/Cc9qJ1lz5P8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - DOES THIS BUS STOP AT 82nd STREET? 1973 (audio)](https://www.youtube.com/watch?v=Cc9qJ1lz5P8)
 
 But the very fact of its insubstantiality makes “Does This Bus Stop on 82nd Street” endlessly malleable, as the radio performance above proved early on. (I’m more partial to the slow, jazzy street scene version than the uptempo ones.) My theory is that Bruce uses inventive arrangements to distract the listener from thinking too hard about the song.
 
-(And if by now you’ve noticed that I’ve inverted my usual approach, that’s because I’m just following Bruce’s lead.)
+(And if by now you’ve noticed that I’ve inverted my usual *Roll of the Dice* approach, that’s because I’m just following Bruce’s lead.)
 
-*Roll of the Dice*
+“Does This Bus Stop on 82nd Street” was one of the earlier songs Bruce wrote for his first album. In fact, he first recorded a demo of it at CBS Studio on May 3, 1972, with nearly identical lyrics (but in slightly different order). That version would be released 26 years later on *Tracks*.
 
-“Does This Bus Stop on 82nd Street” was one of the earlier songs Bruce wrote for his first album. In fact, he first recorded a demo of it at CBS Studio on May 3, 1972, with nearly identical lyrics (but in slightly different order). That version would be released 26 years later on .
-
-*Tracks*
-
-[https://www.youtube.com/embed/YeicNZPARZg?feature=oembed](https://www.youtube.com/embed/YeicNZPARZg?feature=oembed)
+[Watch on Youtube: Does This Bus Stop At 82nd Street? (Demo Version - 1972)](https://www.youtube.com/watch?v=YeicNZPARZg)
 
 Okay, I guess I’ve stalled long enough: let’s take a close look at those lyrics.
 
-Ordinarily, I employ my armchair critic’s lens in breaking down a song, but today I get a break–because Bruce has already done it for us. At a special benefit performance for during a pause in the Rising Tour, Bruce went through the song line by line and explained everything.
-
-*Doubletake Magazine*
+Ordinarily, I employ my armchair critic’s lens in breaking down a song, but today I get a break–because Bruce has already done it for us. At a special benefit performance for *Doubletake Magazine* during a pause in the Rising Tour, Bruce went through the song line by line and explained everything.
 
 Sort of.
 
 Even the songwriter was forced to admit there’s not a lot of substance here:
 
-(“I was on the bus, I’m going up to 82nd Street, where a friend of mine had a crash pad he used to let me stay at. So I’m sitting on the bus watching everybody.”)
+*Hey bus driver, keep the change* (“I was on the bus, I’m going up to 82nd Street, where a friend of mine had a crash pad he used to let me stay at. So I’m sitting on the bus watching everybody.”)
 
-*Hey bus driver, keep the change*
+*Bless your children, give them names* (“I just liked that.”)
 
-(“I just liked that.”)
+*Don’t trust men who walk with canes*  
+*Drink this and you’ll grow wings on your feet* (“I just liked *that*.”)
 
-*Bless your children, give them names*
+*Broadway Mary, Joan Fontaine* (“Those New York City girls…”)
 
-(“I just liked .”)
+*Advertiser on a downtown train* (“Poor working stiff”)
 
-*Don’t trust men who walk with canes*
-*Drink this and you’ll grow wings on your feet* *that*
+*Christmas crier bustin’ cane, he’s in love again* (“Self-explanatory” (see pull quote))
 
-(“Those New York City girls…”)
+*Where dockworker’s dreams mix with panther’s schemes to someday own the rodeo* (“That’s equal opportunity for all.”)
 
-*Broadway Mary, Joan Fontaine*
+*Tainted women in Vistavision perform for out-of-state kids at the late show* (“A New Jersey boy in pre-Disney Times Square”)
 
-(“Poor working stiff”)
+*Wizard imps and sweatsock pimps, interstellar mongrel nymphs* (“42nd Street”)
 
-*Advertiser on a downtown train*
+*Oh, Rex said that lady left him limp, l**ove’s like that* (“Self explanatory”)
 
-(“Self-explanatory” (see pull quote))
+*Queen of Diamonds, Ace of Spades, newly discovered lovers of the Everglades* (“Let me refer to my notes… (pause) no discussion”)
 
-*Christmas crier bustin’ cane, he’s in love again*
+*They take out a full page ad in the trades to announce their arrival* (“New York, here I come!”)
 
-(“That’s equal opportunity for all.”)
+*And Mary Lou, she found out how to cope, she rides to heaven on a gyroscope* (“balance… It’s a talent.”)
 
-*Where dockworker’s dreams mix with panther’s schemes to someday own the rodeo*
-
-(“A New Jersey boy in pre-Disney Times Square”)
-
-*Tainted women in Vistavision perform for out-of-state kids at the late show*
-
-(“42nd Street”)
-
-*Wizard imps and sweatsock pimps, interstellar mongrel nymphs*
-
-(“Self explanatory”)
-
-*Oh, Rex said that lady left him limp, l**ove’s like that*
-
-(“Let me refer to my notes… (pause) no discussion”)
-
-*Queen of Diamonds, Ace of Spades, newly discovered lovers of the Everglades*
-
-(“New York, here I come!”)
-
-*They take out a full page ad in the trades to announce their arrival*
-
-(“balance… It’s a talent.”)
-
-*And Mary Lou, she found out how to cope, she rides to heaven on a gyroscope*
-
-
-
-*The Daily News asks her for the dope*
+*The Daily News asks her for the dope*  
 *She says, “Man, the dope’s that there’s still hope”*
 
-“That’s the song. The song that you get on the album… I don’t have it. I got to it, but I didn’t have it. But somebody once said that a good rock song is really only one good line, you just need one good line that takes you where you want to go and the other stuff is like, kinda getting there, you know, and I think that’s true. As long as you find that one good one, that takes it and puts it on the record.”
-
-*close*
+“That’s the song. The song that you get on the album… I don’t have it. I got *close* to it, but I didn’t have it. But somebody once said that a good rock song is really only one good line, you just need one good line that takes you where you want to go and the other stuff is like, kinda getting there, you know, and I think that’s true. As long as you find that one good one, that takes it and puts it on the record.”
 
 And that’s pretty much the story of “Does This Bus Stop on 82nd Street” right there: it’s about that one line, really, not the song itself. For a struggling songwriter and musician hoping to scrape together his first album, that one line must have been pretty close to a mantra for Bruce Springsteen in 1972.
 
 But wait: we’re not quite done. Remember that “third part” Bruce referred to back in 1973? Thirty years later he explained it, kind of. It’s those last two lines that just sort of peter out. Bruce wrote them at home, he told us back then, and in 2003 he added:
 
-(“my first girlfriend”)
+*Senorita, Spanish rose* (“my first girlfriend”)
 
-*Senorita, Spanish rose*
-
-
-
-*wipes her eyes and blows her nose*
+*wipes her eyes and blows her nose*  
 *Uptown in Harlem she throws a rose to some lucky young matador*
 
 (“That’s love, kisses, some fancy I got of myself as some spankin’ uptown dude and just… good things. All the joy in life.”)
@@ -137,28 +89,22 @@ Who knows why Bruce abandoned the song at that point? Perhaps his Spanish rose d
 
 In the end, and at its essence, “Does This Bus Stop on 82nd Street” is a songwriter’s exercise, a verbal painting caught by an artist’s eye. It’s also very likely heavily influenced by Bob Dylan’s songwriting style, something Bruce occasionally seems to wink at (check out the one-minute mark in the 1995 clip below).
 
-[https://www.youtube.com/embed/NJHhXqGfSvc?feature=oembed](https://www.youtube.com/embed/NJHhXqGfSvc?feature=oembed)
+[Watch on Youtube: Does This Bus Stop at 82nd Street? (Live at the Tower Theatre in Philadelphia, PA - December 1995)](https://www.youtube.com/watch?v=NJHhXqGfSvc)
 
 But the most important thing about it is: it’s just plain fun. Bruce has plenty of weighty songs in his catalog. It’s nice to occasionally lose ourselves in a trifle, and Bruce seems to agree. That’s why “Does This Bus Stop at 82nd Street” is never likely to miss a tour.
 
 Heck, Bruce even played it once on the Seeger Sessions Tour.
 
-[https://videopress.com/embed/YxzSDQZo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/YxzSDQZo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/YxzSDQZo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 So until we catch that bus again, here’s one more performance to enjoy–the last “Bus Stop” outing to date, from Perth on January 22, 2017.
 
-[https://www.youtube.com/embed/isGuAxRlZ-w?feature=oembed](https://www.youtube.com/embed/isGuAxRlZ-w?feature=oembed)
+[Watch on Youtube: Does This Bus Stop at 82nd Street - Bruce Springsteen - Perth Arena - 22-01-2017](https://www.youtube.com/watch?v=isGuAxRlZ-w)
 
-June 27-July 12, 1972
-(1972), (demo, 1998)
-August 10, 1972 (New York City, NY)
-November 9, 2024 (Ottawa, Ontario)
-
-**Does This Bus Stop at 82nd Street?**
-**Recorded:** <br>
-
-**Released:**[](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings From Asbury Park, N.J.* *Tracks*<br>
-**First performed:**<br>
-**Last performed:**<br>
+**Does This Bus Stop at 82nd Street?  
+**Recorded** June 27-July 12, 1972  
+**Released:** [*Greetings From Asbury Park, N.J.*](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)(1972), *Tracks* (demo, 1998)  
+**First performed:** August 10, 1972 (New York City, NY)  
+**Last performed:** November 9, 2024 (Ottawa, Ontario)
 
 © March 30, 2020

@@ -68,16 +68,16 @@ That original version of “She’s the One” (which Bruce performed regularly 
 
 It was also clearly a work in progress. It isn’t just that we’re used to hearing the final lyrics–these early lyrics are clunky and awkward, especially the second verse:
 
-*Well it was not distance, and it was not length*
-*That brought down that wonder girl*
-*It was a date last night and a lover's fight*
-*In a mixed-up baby's world*
-*And you were with me in New York*
-*That time we pushed real hard and baby I got beat*
-*You ran and left me wasted*
-*Wasted, burning right there in the street*
-*A ghost like dust, oh baby with that smile*
-*Oh you were born to run*
+*Well it was not distance, and it was not length*  
+*That brought down that wonder girl*  
+*It was a date last night and a lover's fight*  
+*In a mixed-up baby's world*  
+*And you were with me in New York*  
+*That time we pushed real hard and baby I got beat*  
+*You ran and left me wasted*  
+*Wasted, burning right there in the street*  
+*A ghost like dust, oh baby with that smile*  
+*Oh you were born to run*  
 *Oh, oh she's the one*
 
 That may be a contender for the worst verse Bruce has ever written.
@@ -86,24 +86,24 @@ If we can get past its awkwardness, though, there are a couple of interesting th
 
 That scent is about to get a lot stronger:
 
-*We hated your ma, we hated your pa*
-*We hated the kids, we hated the cops*
-*I hated the lies and I hated the truth that ran us down*
-*Most of all I hated the town for what they did*
-*I hated the way they made us live*
-*I hated him for his fancy ways*
+*We hated your ma, we hated your pa*  
+*We hated the kids, we hated the cops*  
+*I hated the lies and I hated the truth that ran us down*  
+*Most of all I hated the town for what they did*  
+*I hated the way they made us live*  
+*I hated him for his fancy ways*  
 *And I hated you when you went away*
 
-*Now you're back and you're huddled in the corner*
-*Where you hated me baby, just like a child*
-*Get back on your feet, come out into the street*
-*Where love was dangerous and wild*
-*Remember all the movies, all them movies, baby*
-*That we'd go see, tryin' to learn how to walk*
-*Talk, talk rough, just like all the heroes*
-*We thought we had to be*
-*A smile that shines upon me*
-*One that burns just like the sun*
+*Now you're back and you're huddled in the corner*  
+*Where you hated me baby, just like a child*  
+*Get back on your feet, come out into the street*  
+*Where love was dangerous and wild*  
+*Remember all the movies, all them movies, baby*  
+*That we'd go see, tryin' to learn how to walk*  
+*Talk, talk rough, just like all the heroes*  
+*We thought we had to be*  
+*A smile that shines upon me*  
+*One that burns just like the sun*  
 *Oh, she's the one*
 
 Now, we’ve heard Bruce borrow his own lyrics when working on new music before. But all evidence suggests that this is different–although Bruce is known to have been working on “Backstreets” as early as October 1974 (the same time he was road-testing “She’s the One” in concert), it’s likely that “Backstreets” had different lyrics at that time, and that the lyrics we know and love from that epic were originally created for its poppier album-mate.
@@ -132,37 +132,37 @@ The album was on sale a month to the day later, featuring a dramatically transfo
 
 The differences in the first verse are subtle but significant: whoever *She* is, the girls no longer want to rip her apart. The emphasis is on the narrator’s inner turmoil now–he’s no longer angry, he’s just in over his head.
 
-*With her killer graces and her secret places*
-*That no boy can fill with her hands on her hips*
-*Oh and that smile on her lips*
-*Because she knows that it kills me*
-*With her soft French cream*
-*Standing in that doorway like a dream*
-*I wish she’d just leave me alone*
-*Because French cream won’t soften them boots*
-*And French kisses will not break that heart of stone*
-*With her long hair falling*
-*And her eyes that shine like a midnight sun*
+*With her killer graces and her secret places*  
+*That no boy can fill with her hands on her hips*  
+*Oh and that smile on her lips*  
+*Because she knows that it kills me*  
+*With her soft French cream*  
+*Standing in that doorway like a dream*  
+*I wish she’d just leave me alone*  
+*Because French cream won’t soften them boots*  
+*And French kisses will not break that heart of stone*  
+*With her long hair falling*  
+*And her eyes that shine like a midnight sun*  
 *She’s the one*
 
 From the second verse forward, however, this new version is a completely different song. No longer a post-breakup song, “She’s the One” is now the story of two fierce spirits, both of whom refuse to be tamed, one of whom may secretly want to be.
 
-*That thunder in your heart*
-*At night when you’re kneeling in the dark*
-*It says you’re never gonna leave her*
-*But there’s this angel in her eyes*
-*That tells such desperate lies*
-*And all you want to do is believe her*
-*And tonight you’ll try just one more time*
-*To leave it all behind and to break on through*
-*Oh she can take you, but if she wanna break you*
-*She gonna find out that ain’t so easy to do*
-*And no matter where you sleep tonight or how far you run*
+*That thunder in your heart*  
+*At night when you’re kneeling in the dark*  
+*It says you’re never gonna leave her*  
+*But there’s this angel in her eyes*  
+*That tells such desperate lies*  
+*And all you want to do is believe her*  
+*And tonight you’ll try just one more time*  
+*To leave it all behind and to break on through*  
+*Oh she can take you, but if she wanna break you*  
+*She gonna find out that ain’t so easy to do*  
+*And no matter where you sleep tonight or how far you run*  
 *She’s the one*
 
-*And just one kiss*
-*She’d fill them long summer nights*
-*With her tenderness that secret pact you made*
+*And just one kiss*  
+*She’d fill them long summer nights*  
+*With her tenderness that secret pact you made*  
 *Back when her love could save you from the bitterness*
 
 “She’s the One” is ultimately still a break-up song, but Bruce has shifted his characters earlier in their story. Now the focus is on the inevitability of the split, rather than the fallout.
@@ -197,10 +197,10 @@ But even (and perhaps especially) without any build-up or introduction), “She�
 
 There’s a reason why “She’s the One” is one of Bruce’s most performed songs, even if its lyrics don’t rank in the top half of his catalog. It’s a guaranteed crowd-pleaser and roof-raiser that isn’t likely to disappear from Bruce’s sets anytime soon.
 
-**She’s the One**
-**Recorded:** April-July 1975<br>
-**Released:** *Born to Run* (1975)<br>
-**First performed:** October 4, 1974 (New York City, NY)<br>
+**She’s the One**  
+**Recorded:** April-July 1975  
+**Released:** *Born to Run* (1975)  
+**First performed:** October 4, 1974 (New York City, NY)  
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

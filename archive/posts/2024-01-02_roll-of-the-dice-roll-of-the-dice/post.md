@@ -17,28 +17,28 @@ This was December 1989, though, and it be more than another two years before the
 
 “Desperate fun” is as good a descriptor as any for “Roll of the Dice.”
 
-*Well I’ve been a losing gambler, yeah just throwing snake eyes*
-*Oh love ain’t got me downhearted, I know up around the corner lies*
+*Well I’ve been a losing gambler, yeah just throwing snake eyes*  
+*Oh love ain’t got me downhearted, I know up around the corner lies*  
 *My fool’s paradise in just another roll of the dice (oh yeah)*
 
-*All my elevens and sevens been coming up sixes and nines (hmm yeah)*
-*Since I fell for you baby I’m coming on changing times (oh yeah)*
+*All my elevens and sevens been coming up sixes and nines (hmm yeah)*  
+*Since I fell for you baby I’m coming on changing times (oh yeah)*  
 *They’re waiting over the rise in just another roll of the dice*
 
-*I’ve stumbled and I know I made my mistakes*
+*I’ve stumbled and I know I made my mistakes*  
 *Oh but tonight I’m gonna be playing for all of the stakes*
 
-*Well it’s never too late so come on girl, the tables are waiting (oh yeah)*
-*Oh you and me and Lady Luck well tonight we’ll be celebrating*
-*Drinking champagne on ice in just another roll of the dice (ooh hoo hoo)*
+*Well it’s never too late so come on girl, the tables are waiting (oh yeah)*  
+*Oh you and me and Lady Luck well tonight we’ll be celebrating*  
+*Drinking champagne on ice in just another roll of the dice (ooh hoo hoo)*  
 *Whoa whoa whoa yeah*
 
-*High-rollers, lay down your bets and I’ll raise ’em*
+*High-rollers, lay down your bets and I’ll raise ’em*  
 *Well I know the odds ain’t in my favor (oh no)*
 
-*Maybe I’m just a clown throwing down looking to come up busted (oh no)*
-*I’m a thief in the house of love and I can’t be trusted*
-*Well I’ll be making my heist in just another roll of the dice*
+*Maybe I’m just a clown throwing down looking to come up busted (oh no)*  
+*I’m a thief in the house of love and I can’t be trusted*  
+*Well I’ll be making my heist in just another roll of the dice*  
 *Just another roll of the dice*
 
 Truth be told, this isn’t Bruce at his lyrical best: Although there some genuinely clever turns of phrase (“my elevens and sevens been coming up sixes and nines” and “I’m a thief in the house of love and I can’t be trusted” are as good as any lines he’s ever written), he strains the gambling metaphor to its breaking point, there’s some awkward phrasing (“all of the stakes”) and a lazy rhyme in the bridge (“raise ’em” and “favor”).
@@ -86,9 +86,9 @@ The first is an electric piano performance from 2005:
 But it holds the distinction of kickstarting a new era in Bruce’s career and captures the artist at a point were he’s only beginning to reconcile his internal emotional struggle, betting on himself and his partner, and allowing himself to love and be loved. For that, “Roll of the Dice” hold a special place in Bruce’s catalog.
 
 **Roll of the Dice  
-**Recorded:** December 1989<br>
-**Released:** *Human Touch* (1992)<br>
-**First performed:** May 6, 1992 (New York City, NY)<br>
+**Recorded** December 1989  
+**Released:** *Human Touch* (1992)  
+**First performed:** May 6, 1992 (New York City, NY)  
 **Last performed:** February 16, 2017 (Brisbane, Australia)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

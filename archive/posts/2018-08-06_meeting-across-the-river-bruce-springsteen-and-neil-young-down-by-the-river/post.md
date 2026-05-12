@@ -8,5 +8,6 @@ Neil and Bruce's acoustic rendition is moodier and broodier than the guitar-fuel
 
 [Watch on Youtube: Down by the River (2009 Remaster)](https://www.youtube.com/watch?v=KflCXmEX6BY)
 
-**Down By the River****First performed:** [March 22](https://estreetshuffle.com/index.php/2018/03/22/kingdom-of-days-march-22/), 1985 (Sydney, Australia)<br>
+**Down By the River**
+**First performed:** [March 22](https://estreetshuffle.com/index.php/2018/03/22/kingdom-of-days-march-22/), 1985 (Sydney, Australia)<br>
 **Last performed:** October 28, 1995 (Mountain View, CA)<br>

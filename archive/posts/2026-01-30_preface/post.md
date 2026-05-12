@@ -1,24 +1,16 @@
-
-
 It seemed like a good idea at the time.
 
-I mean, I’d written essays on almost all of the songs on at one point or another over the life of the blog,
-
-*L.A. Garage Sessions ’83*
+I mean, I’d written essays on almost all of the songs on *L.A. Garage Sessions ’83* at one point or another over the life of the blog,
 
 Sure there were two (“Follow That Dream” and “Sugarland”) I never got around to, but I knew what my hook would be for those songs years ago. I could write them pretty quickly.
 
 I also knew that a couple of songs differed from their earlier bootleg versions. No worries, I could lightly update those essays, too.
 
-I convinced myself that in a hour or three, I could polish a ragtag group of essays that would otherwise be destined for “miscellaneous” status into a volume written I’d presciently written years before the release of the album it examines.
-
-*Roll of the Dice*
+I convinced myself that in a hour or three, I could polish a ragtag group of essays that would otherwise be destined for “miscellaneous” status into a *Roll of the Dice* volume written I’d presciently written years before the release of the album it examines.
 
 How could I resist that?
 
-Brimming with confidence and cushioned by an almost three-month lead time buffer, I announced this book as Volume 4 in the series, and I started to write.
-
-*Roll of the Dice*
+Brimming with confidence and cushioned by an almost three-month lead time buffer, I announced this book as Volume 4 in the *Roll of the Dice* series, and I started to write.
 
 And that’s when reality set in.
 

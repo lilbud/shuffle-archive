@@ -46,33 +46,33 @@ But in real life, Bruce knew, fame and fortune often led to more tragic outcomes
 
 Bruce lifted Berry’s first verse verbatim (Berry would eventually receive a co-writing credit), starting off his hero’s journey with all of the idealism and promise of youth:
 
-*Well she drew out all her money from the Southern Trust*
-*And she put her little boy on a Greyhound Bus*
-*Leaving Memphis with a guitar in his hand*
+*Well she drew out all her money from the Southern Trust*  
+*And she put her little boy on a Greyhound Bus*  
+*Leaving Memphis with a guitar in his hand*  
 *On a one-way ticket to the promised land*
 
 …and followed that with his original two verses from “Come On (Let’s Go Tonight)”:
 
-*Now hey little girlie with your red dress on*
-*There’s a party tonight down in Memphis town*
-*I’ll be going down there if you need a ride*
+*Now hey little girlie with your red dress on*  
+*There’s a party tonight down in Memphis town*  
+*I’ll be going down there if you need a ride*  
 *Come on, come on, let’s go tonight*
 
-*How many have fallen with their dream denied*
-*Now tell me baby are you lonesome tonight*
-*‘Cause the man on the radio says Elvis Presley died*
+*How many have fallen with their dream denied*  
+*Now tell me baby are you lonesome tonight*  
+*‘Cause the man on the radio says Elvis Presley died*  
 *Come on, come on, let’s go tonight*
 
 It’s an abrupt change of setting and context, and it comes without explanation. Only at the end of the last of the two new verses that end the song do we make the connection:
 
-*Down in Dixie tonight the sky is hard and black*
-*Come on up over the ridge one long white Cadillac*
-*They stand on the roadside waiting in the heat*
+*Down in Dixie tonight the sky is hard and black*  
+*Come on up over the ridge one long white Cadillac*  
+*They stand on the roadside waiting in the heat*  
 *Bound together forever in the promise of an endless sleep*
 
-*Well they found him slumped up against the drain*
-*With a whole lot of nothing running through his veins*
-*Well bye-bye Johnny, oh Johnny bye-bye*
+*Well they found him slumped up against the drain*  
+*With a whole lot of nothing running through his veins*  
+*Well bye-bye Johnny, oh Johnny bye-bye*  
 *You didn’t have to die, you didn’t have to die*
 
 There are actually two references to the dangers of fame-fueled excess at play in “Johnny Bye Bye.” The Elvis reference is the obvious one, because he’s name-checked in the third verse and has his death scene re-enacted in the final verse.
@@ -110,9 +110,9 @@ Bruce replied: “I don't know… Everybody makes their maps, and people will lo
 He paused and added: “And everybody struggles.”
 
 **Johnny Bye-Bye  
-**Recorded:** January 1983<br>
-**Released:** *I’m on Fire* (1985), *Tracks* (1998)<br>
-**First performed:** May 13, 1981 (Manchester, England)<br>
+**Recorded** January 1983  
+**Released:** *I’m on Fire* (1985), *Tracks* (1998)  
+**First performed:** May 13, 1981 (Manchester, England)  
 **Last performed:** April 3, 1985 (Melbourne, Australia)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

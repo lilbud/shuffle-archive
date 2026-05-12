@@ -1,8 +1,6 @@
-
-
 “Warm and Tender Love” should have made Joe Haywood’s career when he released it in 1964. His original version is one of the most beautiful soul ballads of the early sixties.
 
-[https://www.youtube.com/embed/LAOZgoMg-Gk?feature=oembed](https://www.youtube.com/embed/LAOZgoMg-Gk?feature=oembed)
+[Watch on Youtube: Warm And Tender Love Joe Haywood original version](https://www.youtube.com/watch?v=LAOZgoMg-Gk)
 
 It didn’t, though, and when the great Percy Sledge released his own version shortly after as the follow-up to his smash hit “When a Man Loves a Woman,” it became Sledge’s second consecutive Top 20 hit and an enduring romantic soul classic.
 
@@ -14,13 +12,11 @@ Still, “Warm and Tender Love” helped cement Sledge’s R&B immortality, whil
 
 So it was almost certainly Sledge’s version that Bruce was familiar with, and the one he had in mind when he covered it in 1993.
 
-Well, covered it. Bruce never actually played “Warm and Tender Love” in concert, but during the soundcheck for his first show of 1993, a benefit concert at the Count Basie Theater in Red Bank, Bruce started with a seemingly impromptu “Warm and Tender Love.” Thankfully, someone was on hand with a camera, and we can actually watch that performance.
-
-*sort of*
+Well, *sort of* covered it. Bruce never actually played “Warm and Tender Love” in concert, but during the soundcheck for his first show of 1993, a benefit concert at the Count Basie Theater in Red Bank, Bruce started with a seemingly impromptu “Warm and Tender Love.” Thankfully, someone was on hand with a camera, and we can actually watch that performance.
 
 Pay attention to the clip below, and you’ll notice something subtle but very significant in Bruce’s cover..
 
-[https://www.youtube.com/embed/olIt2rI2IcE?feature=oembed](https://www.youtube.com/embed/olIt2rI2IcE?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Warm and Tender Love](https://www.youtube.com/watch?v=olIt2rI2IcE)
 
 Did you notice? Bruce actually rewrote the lyrics. Both Haywood’s and Sledge’s versions are pledges, but Bruce’s is a plea. Instead of asking his partner to let him wrap her in his love, he asks her to love him instead. He even changed the verses to suit the song’s new message.
 
@@ -28,10 +24,8 @@ It’s always been a mystery to me why Bruce re-wrote “Warm and Tender Love”
 
 To this day, we’ve never heard Bruce perform this immortal classic in concert, so what could have been a standout performance remains an intimate curiosity, thankfully captured on video for posterity.
 
-March 23, 1993 (Red Bank, NJ) (soundcheck only)
-March 23, 1993 (Red Bank, NJ) (soundcheck only)
+**Warm and Tender Love  
+**First performed:** March 23, 1993 (Red Bank, NJ) (soundcheck only)  
+**Last performed:** March 23, 1993 (Red Bank, NJ) (soundcheck only)
 
-**Warm and Tender Love**
-**First performed:**<br>
-
-**Last performed:**<br>
+ 

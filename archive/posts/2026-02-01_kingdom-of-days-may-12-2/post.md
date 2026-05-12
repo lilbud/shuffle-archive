@@ -1,143 +1,97 @@
+**1973:** Bruce and the E Street Band perform a free concert at Niagara University in Lewiston, New York.
 
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1973-0512.jpg)
 
-Bruce and the E Street Band perform a free concert at Niagara University in Lewiston, New York.
+**1974:** Bruce cancels a scheduled gig at Glassboro State College to make room for recording sessions for *Born to Run*.
 
-**1973:**
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1974-05-12.jpg)
 
+**1977:** When Southside Johnny takes ill and can’t perform, Steve Van Zandt transforms their show in Red Bank into The Asbury Park All-Star Revue, featuring the Jukes, Bruce and the E Street Band, and Ronnie Spector. Steve performs lead vocals for most of the show, with Bruce on guitar and backing vocals. Bruce steps up to the mic when the band plays his own songs.
 
+[Watch on Youtube: Southside Johnny Little Steven Springsteen Spector Live 05 12 1977 Red Bank NJ Full Remastered](https://www.youtube.com/watch?v=9lkVrhUwyAU)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1973-0512.jpg?resize=257%2C225&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1977-05-12a.jpg)
 
-Bruce cancels a scheduled gig at Glassboro State College to make room for recording sessions for .
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1977-05-12b.jpg)
 
-**1974:** *Born to Run*
+**1982:** Bruce and the E Street Band are in the studio at the Power Station in New York City, recording for what will eventually become *Born in the U.S.A.*
 
+**1984:** Bruce and the band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man’s West in Red Bank, New Jersey.
 
+**1987:** The BBC premieres a new documentary on Bruce, entitled *Glory Days*. It’s well worth a watch–check it out below.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1974-05-12.jpg?resize=758%2C720&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/6s57razJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-When Southside Johnny takes ill and can’t perform, Steve Van Zandt transforms their show in Red Bank into The Asbury Park All-Star Revue, featuring the Jukes, Bruce and the E Street Band, and Ronnie Spector. Steve performs lead vocals for most of the show, with Bruce on guitar and backing vocals. Bruce steps up to the mic when the band plays his own songs.
+Also today, Little Steven releases his third solo album, *Freedom–No Compromise*. Bruce contributes vocals to one track, “Native American.”
 
-**1977:**
+[Watch on Youtube: Native American](https://www.youtube.com/watch?v=_2CmMfqwVn8)
 
-[https://www.youtube.com/embed/9lkVrhUwyAU?feature=oembed](https://www.youtube.com/embed/9lkVrhUwyAU?feature=oembed)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1987-05-12.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1977-05-12a.jpg?resize=758%2C347&amp;ssl=1)
+**1997:** Bruce plays his first-ever show in the Czech Republic, an acoustic show at Prague’s Congress Center. After the show, he meets the Czech president backstage.
 
+[Watch on Youtube: Bruce Springsteen - Televizní noviny 1997](https://www.youtube.com/watch?v=eMbKtLHR_9A)
 
+[Watch on Youtube: Bruce Springsteen v Praze](https://www.youtube.com/watch?v=Yl1jZh9yCkU)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1977-05-12b.jpg?resize=758%2C466&amp;ssl=1)
+[Watch Video Highlight](https://videopress.com/embed/xuNzuoki?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Bruce and the E Street Band are in the studio at the Power Station in New York City, recording for what will eventually become 
+[Watch on Youtube: Prague 12/05/1997](https://www.youtube.com/watch?v=videoseries)
 
-**1982:** *Born in the U.S.A.*
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1997-0512.jpg)
 
-Bruce and the band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man’s West in Red Bank, New Jersey.
+![](https://estreetshuffle.com/wp-content/uploads/2025/05/Philadelphia_Daily_News_1997_05_14_Page_40-scaled.jpg)
 
-**1984:**
+**2003:** The Rising Tour makes a stop in Brussels, and Bruce pulls out the tour premiere of “4th of July, Asbury Park (Sandy)” for the occasion. The show opener is special as well: an beautiful acoustic version of “The River.”
 
-The BBC premieres a new documentary on Bruce, entitled . It’s well worth a watch–check it out below.
+[Watch Video Highlight](https://videopress.com/embed/zFmXQFNE?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1987:** *Glory Days*
+[Watch on Youtube: Bruce Springsteen 4th Of July Asbury Park (Sandy) Brussels 12/05/2003](https://www.youtube.com/watch?v=3UyaIHDMex0)
 
-[https://videopress.com/embed/6s57razJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6s57razJ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+**2006:** Bruce and the Sessions Band deliver one of the best shows of the early Seeger Sessions Tour in Milan. Check out highlights below, including the tour premiere of “Ramrod” and a beautiful “If I Should Fall Behind.”
 
-Also today, Little Steven releases his third solo album, . Bruce contributes vocals to one track, “Native American.”
+[Watch Video Highlight](https://videopress.com/embed/Z15AQne0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-*Freedom–No Compromise*
+[Watch on Youtube: Bruce Springsteen - Ramrod](https://www.youtube.com/watch?v=fn2BWMpm5_I)
 
-[https://www.youtube.com/embed/_2CmMfqwVn8?feature=oembed](https://www.youtube.com/embed/_2CmMfqwVn8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - If I Should Fall Behind](https://www.youtube.com/watch?v=9OCnm6cdZvQ)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1987-05-12.jpg?resize=619%2C959&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - Open All Night](https://www.youtube.com/watch?v=RvwKQkzSUlM)
 
-Bruce plays his first-ever show in the Czech Republic, an acoustic show at Prague’s Congress Center. After the show, he meets the Czech president backstage.
+**2007:** At a benefit show for the Count Basie Theater Foundation in Red Bank, Bruce joins Brian Wilson on stage for “Barbara Ann” and “Love and Mercy.”
 
-**1997:**
+[Watch on Youtube: Brian Wilson & Band Red Bank NJ w/ Bruce Springsteen Dennis Diken Red Bank NJ 5/12/07](https://www.youtube.com/watch?v=u4dlmQwN64c)
 
-[https://www.youtube.com/embed/eMbKtLHR_9A?feature=oembed](https://www.youtube.com/embed/eMbKtLHR_9A?feature=oembed)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2007-05-12a.jpg)
 
-[https://www.youtube.com/embed/Yl1jZh9yCkU?feature=oembed](https://www.youtube.com/embed/Yl1jZh9yCkU?feature=oembed)
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2007-05-12b.jpg)
 
-[https://videopress.com/embed/xuNzuoki?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xuNzuoki?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+**2009:** At the United Center in Chicago, fans witness the E Street Band premiere of “Mony Mony.”
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC36AplaadJ9eWS7-rQOSpb](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC36AplaadJ9eWS7-rQOSpb)
+[Watch on Youtube: Bruce Springsteen - Mony Mony - Live from Chicago - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=yVdKRebTKx4)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1997-0512.jpg?resize=500%2C427&amp;ssl=1)
+[Watch on Youtube: Springsteen "Waiting on a Sunny Day" CHicago 5/12/09](https://www.youtube.com/watch?v=qbl7Dfzv0jU)
 
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2009-05-12a.jpg)
 
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/2009-05-12b.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/Philadelphia_Daily_News_1997_05_14_Page_40-scaled.jpg?resize=758%2C989&amp;ssl=1)
+**2011:** Bruce and Patti attend Jessica’s equestrian competition in Windsor, England.
 
-The Rising Tour makes a stop in Brussels, and Bruce pulls out the tour premiere of “4th of July, Asbury Park (Sandy)” for the occasion. The show opener is special as well: an beautiful acoustic version of “The River.”
+[Watch on Youtube: Bruce Springsteen Windsor Day 3 May 13, 2011](https://www.youtube.com/watch?v=Vf0CH2Bn6vU)
 
-**2003:**
+**2012:** Bruce and the band play a short warm-up show/soundcheck in Seville before kicking off the European leg of the Wrecking Ball Tour.
 
-[https://videopress.com/embed/zFmXQFNE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zFmXQFNE?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch on Youtube: Bruce Springsteen & The E Street Band soundcheck in Seville](https://www.youtube.com/watch?v=Cc_f-UPwTgY)
 
-[https://www.youtube.com/embed/3UyaIHDMex0?feature=oembed](https://www.youtube.com/embed/3UyaIHDMex0?feature=oembed)
+[Watch on Youtube: Springsteen Soundcheck Sevilla Spain May 12 - The Promise](https://www.youtube.com/watch?v=3i0dEl9pTB0)
 
-Bruce and the Sessions Band deliver one of the best shows of the early Seeger Sessions Tour in Milan. Check out highlights below, including the tour premiere of “Ramrod” and a beautiful “If I Should Fall Behind.”
+[Watch on Youtube: Bruce Springsteen - Soundcheck Sevilla, Ap 12, 2012 - TVe.mpg](https://www.youtube.com/watch?v=5m-srS5arMo)
 
-**2006:**
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Daily_Telegraph_Tue__May_15__2012_-scaled.jpg)
 
-[https://videopress.com/embed/Z15AQne0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Z15AQne0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/fn2BWMpm5_I?feature=oembed](https://www.youtube.com/embed/fn2BWMpm5_I?feature=oembed)
+**2024:** Bruce opens his show in Kilkenny with his first-ever performance of “A Rainy Night in Soho,” a tribute to songwriter and original artist Shane MacGowan of The Pogues.
 
-[https://www.youtube.com/embed/9OCnm6cdZvQ?feature=oembed](https://www.youtube.com/embed/9OCnm6cdZvQ?feature=oembed)
-
-[https://www.youtube.com/embed/RvwKQkzSUlM?feature=oembed](https://www.youtube.com/embed/RvwKQkzSUlM?feature=oembed)
-
-At a benefit show for the Count Basie Theater Foundation in Red Bank, Bruce joins Brian Wilson on stage for “Barbara Ann” and “Love and Mercy.”
-
-**2007:**
-
-[https://www.youtube.com/embed/u4dlmQwN64c?feature=oembed](https://www.youtube.com/embed/u4dlmQwN64c?feature=oembed)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2007-05-12a.jpg?resize=147%2C987&amp;ssl=1)
-
-
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2007-05-12b.jpg?resize=689%2C825&amp;ssl=1)
-
-At the United Center in Chicago, fans witness the E Street Band premiere of “Mony Mony.”
-
-**2009:**
-
-[https://www.youtube.com/embed/yVdKRebTKx4?feature=oembed](https://www.youtube.com/embed/yVdKRebTKx4?feature=oembed)
-
-[https://www.youtube.com/embed/qbl7Dfzv0jU?feature=oembed](https://www.youtube.com/embed/qbl7Dfzv0jU?feature=oembed)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2009-05-12a.jpg?resize=758%2C323&amp;ssl=1)
-
-
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2009-05-12b.jpg?resize=758%2C772&amp;ssl=1)
-
-Bruce and Patti attend Jessica’s equestrian competition in Windsor, England.
-
-**2011:**
-
-[https://www.youtube.com/embed/Vf0CH2Bn6vU?feature=oembed](https://www.youtube.com/embed/Vf0CH2Bn6vU?feature=oembed)
-
-Bruce and the band play a short warm-up show/soundcheck in Seville before kicking off the European leg of the Wrecking Ball Tour.
-
-**2012:**
-
-[https://www.youtube.com/embed/Cc_f-UPwTgY?feature=oembed](https://www.youtube.com/embed/Cc_f-UPwTgY?feature=oembed)
-
-[https://www.youtube.com/embed/3i0dEl9pTB0?feature=oembed](https://www.youtube.com/embed/3i0dEl9pTB0?feature=oembed)
-
-[https://www.youtube.com/embed/5m-srS5arMo?feature=oembed](https://www.youtube.com/embed/5m-srS5arMo?feature=oembed)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Daily_Telegraph_Tue__May_15__2012_-scaled.jpg?resize=758%2C515&amp;ssl=1)
-
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Bruce opens his show in Kilkenny with his first-ever performance of “A Rainy Night in Soho,” a tribute to songwriter and original artist Shane MacGowan of The Pogues.
-
-**2024:**
-
-[https://www.youtube.com/embed/JRB1_f_NgME?feature=oembed](https://www.youtube.com/embed/JRB1_f_NgME?feature=oembed)
+[Watch on Youtube: a rainy night in soho. bruce springsteen. kilkenny 12.05.2024](https://www.youtube.com/watch?v=JRB1_f_NgME)

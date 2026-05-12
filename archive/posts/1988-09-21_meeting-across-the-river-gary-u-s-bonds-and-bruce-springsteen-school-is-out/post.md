@@ -14,7 +14,8 @@ The sound quality is terrible, but it’s the only document we have of Bruce per
 
 [https://www.youtube.com/embed/k_hSYvYqZ-Q?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/k_hSYvYqZ-Q?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**School Is Out****First performed:** June 15, 1981 (San Francisco, CA)<br>
+**School Is Out**
+**First performed:** June 15, 1981 (San Francisco, CA)<br>
 **Last performed:** June 15, 1981 (San Francisco, CA)<br>
 
 © September 29, 2018

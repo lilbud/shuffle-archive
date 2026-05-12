@@ -12,9 +12,9 @@ Bruce wrote “Fade to Black” during his *Nebraska* songwriting period, and ha
 
 “Fade to Black” begins where “Be True” ends: in a movie theater.
 
-*Sunday matinee in a one-dog town*
-*You’re two seats away, I move two seats down*
-*Wipe the tears from your eyes, the first kiss I stole*
+*Sunday matinee in a one-dog town*  
+*You’re two seats away, I move two seats down*  
+*Wipe the tears from your eyes, the first kiss I stole*  
 *I walk you home, the credits roll*
 
 *Fade to black*
@@ -25,10 +25,10 @@ In a nice bit of symmetry, “Fade to Black” begins with a meet-cute that lead
 
 Or even a happy middle.
 
-*I hear my voice on the telephone*
-*But I’m just running the same old business*
-*I feel like I’m off somewhere so alone*
-*Just watching us both running the distance*
+*I hear my voice on the telephone*  
+*But I’m just running the same old business*  
+*I feel like I’m off somewhere so alone*  
+*Just watching us both running the distance*  
 *Watching us both slowly pull back*
 
 *Fade to black*
@@ -37,23 +37,23 @@ It’s not clear how much time has passed between the first two verses, but the 
 
 It all comes to a head in the third verse and the half-verse that follows:
 
-*I come home, clothes all over the place*
-*You’re crying in the corner, makeup running down your face*
-*Your case is packed, the fight starts, I end up cursing*
-*Baby is this the scene which we’ve been rehearsing*
-*Is this the one or have I lost track*
+*I come home, clothes all over the place*  
+*You’re crying in the corner, makeup running down your face*  
+*Your case is packed, the fight starts, I end up cursing*  
+*Baby is this the scene which we’ve been rehearsing*  
+*Is this the one or have I lost track*  
 *Waiting for us to fade to black*
 
-*A face lit with shame, eyes filled with hurt*
+*A face lit with shame, eyes filled with hurt*  
 *I scream out your name, you rip my shirt*
 
 This is the break-up moment… or is it? It’s obviously not their first go-round; they’ve been here so many times that our characters are like weary actors after dozens of takes before a demanding director, wondering whether this is final cut or just another dress rehearsal. (*Baby is this the scene which we’ve been rehearsing* is the most devastating line of the song.)
 
 If that wasn’t the break-up moment, it came soon after.
 
-*In a small bungalow, a late afternoon*
-*The sunlight falls like a bright veil*
-*A camera pans an empty room*
+*In a small bungalow, a late afternoon*  
+*The sunlight falls like a bright veil*  
+*A camera pans an empty room*  
 *The picture dissolves and slowly pulls back*
 
 *Fade to black*
@@ -67,8 +67,8 @@ It’s a disquieting note on which to end, and an atypical one too. More often t
 Why it didn’t make *Nebraska* or a later album is still a mystery, but if Bruce’s session logs (which indicate a studio version was recorded in 1982) are to be believed, we might yet someday get to hear the finished version.
 
 **Fade to Black  
-**Recorded:** Late 1981 (demo only)<br>
-**Never released**
+**Recorded** Late 1981 (demo only)  
+**Never released**  
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

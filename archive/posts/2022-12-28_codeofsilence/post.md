@@ -18,23 +18,23 @@ Bruce brought it back for two outings on the Rising tour (one of them, unsurpris
 
 “Code of Silence” is so fierce, so strong, that you might not even realize for a few listens that there are surprisingly very few lyrics. The song is essentially a scream of frustration by a lover feeling increasingly disconnected from his partner, trying desperately to bridge the widening gulf and scale the growing wall–but ultimately, he’s just as complicit.
 
-*There’s a code of silence that we don’t dare speak*
-*There’s a wall between us and a river so deep*
-*And we keep pretending that there’s nothing wrong*
+*There’s a code of silence that we don’t dare speak*  
+*There’s a wall between us and a river so deep*  
+*And we keep pretending that there’s nothing wrong*  
 *Man, there’s a code of silence and it can’t go on*
 
-*Well, s the truth so elusive, so elusive you see*
-*That it ain’t enough, baby, to bridge the distance between you and me*
-*There’s a list of grievance a hundred miles long*
+*Well, s the truth so elusive, so elusive you see*  
+*That it ain’t enough, baby, to bridge the distance between you and me*  
+*There’s a list of grievance a hundred miles long*  
 *There’s a code of silence and it can’t go on*
 
-*Well you walk with your eyes open*
-*But your lips they remain sealed*
-*Beneath the promises we made are broken*
-*Someday the truth will be revealed*
-*Well I need to know now darlin’*
-*I need to know what’s going on*
-*So come on, come on, come on, come on*
+*Well you walk with your eyes open*  
+*But your lips they remain sealed*  
+*Beneath the promises we made are broken*  
+*Someday the truth will be revealed*  
+*Well I need to know now darlin’*  
+*I need to know what’s going on*  
+*So come on, come on, come on, come on*  
 *Come on, come on, come on*
 
 Nothing happens in “Code of Silence,” and nothing is resolved–the song is merely and powerfully a depiction of what it feels like to be caught and drowning in that “river so deep.”
@@ -45,10 +45,10 @@ The arrangement is identical, the vocals are clearer, and the song is just as fe
 
 [Watch on Youtube: Code of Silence](https://www.youtube.com/watch?v=yi4UJ5_Fd6E)
 
-**Code of Silence**
-**Recorded:** June 29, 2000 (live version)<br>
-**Released:** *The Essential Bruce Springsteen* (2003, live version), *A Good Life* (2006, studio version)<br>
-**First performed:** June 12, 2000 (New York City, NY)<br>
+**Code of Silence**  
+**Recorded:** June 29, 2000 (live version)  
+**Released:** *The Essential Bruce Springsteen* (2003, live version), *A Good Life* (2006, studio version)  
+**First performed:** June 12, 2000 (New York City, NY)  
 **Last performed:** July 18, 2015 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

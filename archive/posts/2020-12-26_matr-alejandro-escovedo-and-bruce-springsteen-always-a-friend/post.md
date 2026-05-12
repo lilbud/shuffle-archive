@@ -1,6 +1,4 @@
-
-
-“Those four minutes on stage with Bruce were more important than the 33 years I’ve been playing music. It just changed my life. It was like being blessed by the Dalai Lama. Suddenly all those years of working really hard and struggling, someone said, ‘You’re alright. You’re good at what you do. You deserve to be up here.'” *–Alejandro Escovedo, Backstreets interview, July 2008*
+> "Those four minutes on stage with Bruce were more important than the 33 years I’ve been playing music. It just changed my life. It was like being blessed by the Dalai Lama. Suddenly all those years of working really hard and struggling, someone said, ‘You’re alright. You’re good at what you do. You deserve to be up here.'” *–Alejandro Escovedo, Backstreets interview, July 2008*
 
 Bruce Springsteen has long been a fan of Alejandro Escovedo. The two singer-songwriters performed together five times in as many years, trading stages in their home states of New Jersey and Texas.
 
@@ -8,11 +6,9 @@ Their stage collaborations started in April 2008–prompted, no doubt, by Jon La
 
 Escovedo was already a Springsteen fan, but he had no idea that he was on Bruce’s radar, too. On April 14, 2008, he was on his way to see Bruce’s Magic Tour stop in Houston, when Landau texted him: Bruce wanted to play “Always a Friend” that night.
 
-“Always a Friend” was set to be the lead single for , Alejandro’s next album that was still weeks away. To get that kind of boost from The Boss is something artists dream of.
+“Always a Friend” was set to be the lead single for *Real Animal*, Alejandro’s next album that was still weeks away. To get that kind of boost from The Boss is something artists dream of.
 
-*Real Animal*
-
-[https://www.youtube.com/embed/iTgpgPeCIt8?feature=oembed](https://www.youtube.com/embed/iTgpgPeCIt8?feature=oembed)
+[Watch on Youtube: Alejandro Escovedo - Always a Friend](https://www.youtube.com/watch?v=iTgpgPeCIt8)
 
 Could Alejandro possibly make it to soundcheck in 45 minutes, Landau asked?
 
@@ -22,25 +18,21 @@ Could Alejandro possibly make it to soundcheck in 45 minutes, Landau asked?
 
 Then came the big moment: when Bruce returned to the stage after the encore break, he brought Alejandro with him. There was only a single tentative moment that betrayed their lack of rehearsal opportunity when Bruce checked to make sure the band was ready. But from the moment Nils played the opening chords, you’d swear the E Street Band had been playing “Always a Friend” for the entire tour.
 
-Their performance was so strong, in fact, that Bruce officially released it both on his YouTube channel and on his EP a couple of months later.
+Their performance was so strong, in fact, that Bruce officially released it both on his YouTube channel and on his *Magic Tour Highlights* EP a couple of months later.
 
-*Magic Tour Highlights*
+[Watch on Youtube: Bruce Springsteen & The E Street Band - Always A Friend (Live)](https://www.youtube.com/watch?v=peRuSFeOm9o)
 
-[https://www.youtube.com/embed/peRuSFeOm9o?feature=oembed](https://www.youtube.com/embed/peRuSFeOm9o?feature=oembed)
+That was the first time Bruce and Alejandro performed “Always a Friend” together, but it wouldn’t be the last. Two summers later, Alejandro played The Stone Pony in Asbury Park to support his *Street Songs of Love* album (featuring a vocal contribution from Bruce on “[Faith](https://estreetshuffle.com/index.php/2019/11/04/matr-alejandro-escovedo-and-bruce-springsteen-faith/)“), and Bruce joined him on stage for three songs, starting with “Always a Friend.”
 
-That was the first time Bruce and Alejandro performed “Always a Friend” together, but it wouldn’t be the last. Two summers later, Alejandro played The Stone Pony in Asbury Park to support his album (featuring a vocal contribution from Bruce on ““), and Bruce joined him on stage for three songs, starting with “Always a Friend.”
-
-*Street Songs of Love*[Faith](http://estreetshuffle.com/index.php/2019/11/04/matr-alejandro-escovedo-and-bruce-springsteen-faith/)
-
-[https://www.youtube.com/embed/aKRtfceQSrM?feature=oembed](https://www.youtube.com/embed/aKRtfceQSrM?feature=oembed)
+[Watch on Youtube: Alejandro Escovedo and Bruce Stone Pony July 23, 2010](https://www.youtube.com/watch?v=aKRtfceQSrM)
 
 Not even six months later, they reprised “Always a Friend” once again at Light of Day in January 2011, this time in a wonderful acoustic arrangement.
 
-[https://www.youtube.com/embed/WmD9S8cDDhQ?feature=oembed](https://www.youtube.com/embed/WmD9S8cDDhQ?feature=oembed)
+[Watch on Youtube: Escovedo, Springsteen - Always a Friend Light Of Day 11](https://www.youtube.com/watch?v=WmD9S8cDDhQ)
 
 But it was likely their final performance (to date, at least) that got the most notice, when they performed “Always a Friend” together in 2012, televised live at the South by Southwest Festival. (Fortunately, their earlier Light of Day performance wasn’t televised, so no one noticed Bruce was wearing the same shirt!)
 
-[https://www.youtube.com/embed/5OvAyeZqCQE?feature=oembed](https://www.youtube.com/embed/5OvAyeZqCQE?feature=oembed)
+[Watch on Youtube: ALEJANDRO ESCOVEDO, JOE ELY, BRUCE SPRINGSTEEN "Always A Friend" at Austin Music Awards, 3/14/12](https://www.youtube.com/watch?v=5OvAyeZqCQE)
 
 Tragically, life took a dire turn for Escovedo shortly after his last performance with Bruce. After meeting and marrying his third wife the following year, their Mexican honeymoon in early 2014 was cut abruptly short by a catastrophic hurricane that destroyed their villa and stranded them in a muddy landscape laden with rattlesnakes.
 
@@ -50,7 +42,8 @@ Alejandro eventually recovered, the tour finally happened, and he resumed his re
 
 Prior to the pandemic, Escovedo’s career was back on track, but it’s been a long eight years since he and Bruce last performed together. Let’s hope for the speedy return of live music and the chance to see these great artists perform together once more.
 
-**Always a Friend**
-**Released:** *Magic Tour Highlights* (2008)<br>
-**First performed:** April 14, 2008 (Houston, TX)<br>
-**Last performed:** March 14, 2012 (Austin, TX)<br>
+**Always a Friend  
+**Released:** *Magic Tour Highlights* (2008)**First performed:** April 14, 2008 (Houston, TX)  
+**Last performed:** March 14, 2012 (Austin, TX)
+
+ 

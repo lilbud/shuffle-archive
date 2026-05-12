@@ -10,12 +10,12 @@ Heartbreaker Mike Campbell also plays guitar on the track, as does Tim Pierce, w
 
 But Bruce certainly does carry the song on guitar and keyboards, lifting and supporting–but never outshining–Patti’s soulful vocals.
 
-[https://www.youtube.com/embed/359_qS82zBA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/359_qS82zBA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=359_qS82zBA)
 
 In an interview with *Rolling Stone’s* Steve Pond shortly after the album’s release, Patti spoke to the inspiration behind the songs.
 
-***Pond: The persona on this record seems to be that of a woman who feels disconnected and isolated, initially waiting for a man to rescue her but then becoming more realistic.***
-*Scialfa: Yeah. It’s a person who feels pretty invisible and doesn’t know how to fit in. Maybe [she] thinks that somebody’s going to come along and change that, but by the end of the record, I wanted to wash away all those illusions and expectations.*
+***Pond: The persona on this record seems to be that of a woman who feels disconnected and isolated, initially waiting for a man to rescue her but then becoming more realistic.***  
+*Scialfa: Yeah. It's a person who feels pretty invisible and doesn't know how to fit in. Maybe [she] thinks that somebody's going to come along and change that, but by the end of the record, I wanted to wash away all those illusions and expectations.*
 
 “Talk To Me Like the Rain” is sequenced very late in the album, and as such its protagonist spends the song coming to terms with the idea that the object of her devotion is ultimately not going to be able to reciprocate.
 
@@ -25,14 +25,14 @@ Setting aside the temptation to read personal history into her lyrics, there sho
 
 Pond asked Patti a follow-up question to her previous answer…
 
-***Pond: Have you felt that way yourself?***
-*Scialfa: Oh, definitely. I grew up in an era where you had to find your own way as a woman. When I was a kid, there was this whole physical and emotional neatness and purity that a woman was supposed to have, and I didn’t fit into that. So where do people go who feel ungainly and emotionally untidy and all those things? There was such a lack of modern, recognizable role models for a young girl in the 1950s. I mean, Leave It to Beaver didn’t speak to me. That’s why I latched on to music. That was the key to show me you can go a different way: Grace Slick, Janis Joplin … and Dusty Springfield was very cool. When she sang, it was very womanly. She didn’t sing girlie. She was great. I wanted to name our little girl Dusty. But Dusty Springsteen? I couldn’t.*
+***Pond: Have you felt that way yourself?***  
+*Scialfa: Oh, definitely. I grew up in an era where you had to find your own way as a woman. When I was a kid, there was this whole physical and emotional neatness and purity that a woman was supposed to have, and I didn't fit into that. So where do people go who feel ungainly and emotionally untidy and all those things? There was such a lack of modern, recognizable role models for a young girl in the 1950s. I mean, Leave It to Beaver didn't speak to me. That's why I latched on to music. That was the key to show me you can go a different way: Grace Slick, Janis Joplin … and Dusty Springfield was very cool. When she sang, it was very womanly. She didn't sing girlie. She was great. I wanted to name our little girl Dusty. But Dusty Springsteen? I couldn't.*
 
 …which doesn’t have anything to do with “Talk to Me Like the Rain.” I just needed to share, because I’m still giggling over it. Dusty Springsteen… that would have been some name to live up to!
 
-**Talk to Me Like the Rain**
-**Recorded:** <br>
-**Released:** *Rumble Doll* (1993)<br>
+**Talk to Me Like the Rain  
+**Recorded**   
+**Released:** *Rumble Doll* (1993)  
 **Never performed**
 
 © September 9, 2021

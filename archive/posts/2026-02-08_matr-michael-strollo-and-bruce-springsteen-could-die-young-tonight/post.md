@@ -1,12 +1,8 @@
-
-
 In the early 2000s, Michael Strollo made a local name for himself as the lead singer of Exit 105, a terrific Jersey Shore-based rock band. (Where else would a band with that name be from?)
 
-Strollo went solo in 2008 and released his first album, in 2010. Among the standout songs on that album is a sad, beautiful ballad called “Could Die Young Tonight.”
+Strollo went solo in 2008 and released his first album, *Bedroom Eyes,* in 2010. Among the standout songs on that album is a sad, beautiful ballad called “Could Die Young Tonight.”
 
-*Bedroom Eyes,*
-
-[https://www.youtube.com/embed/SYn3Jp8Gqbc?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/SYn3Jp8Gqbc?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=SYn3Jp8Gqbc)
 
 Although Exit 105 had already once shared a stage with Bruce (at Joe Grushecky’s 2004 Flood Aid concert in Pittsburgh), Strollo probably never imagined he’d have the opportunity to do so again as a singer-songwriter. And given the circumstances that led to it, he certainly wouldn’t have wished for it.
 
@@ -16,14 +12,10 @@ To celebrate his brother, Michael performed “Could Die Young Tonight,” and B
 
 Here’s their poignant, one-time-only performance of “Could Die Young Tonight.”
 
-[https://www.youtube.com/embed/d9Lw3sUj-Q8?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/d9Lw3sUj-Q8?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=d9Lw3sUj-Q8)
 
-February 25, 2012 (Asbury Park, NJ)
-February 25, 2012 (Asbury Park, NJ)
-
-**Could Die Young Tonight**
-**First performed:**<br>
-
-**Last performed:**<br>
+**Could Die Young Tonight  
+**First performed:** February 25, 2012 (Asbury Park, NJ)  
+**Last performed:** February 25, 2012 (Asbury Park, NJ)
 
 © June 1, 2020

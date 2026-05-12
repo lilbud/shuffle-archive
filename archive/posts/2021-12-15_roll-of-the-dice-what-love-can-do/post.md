@@ -14,47 +14,47 @@ The song is ultimately a moral lesson, a pep talk for the disheartened–or as B
 
 When Bruce waxes moralistic, he tends to go biblical in the process. He wastes no time doing so here:
 
-*There’s a pillar in the temple where I carved your name*
-*There’s a soul sitting sad and blue*
-*Now the remedies you’ve taken are all in vain*
-*Let me show you what love can do*
+*There’s a pillar in the temple where I carved your name*  
+*There’s a soul sitting sad and blue*  
+*Now the remedies you’ve taken are all in vain*  
+*Let me show you what love can do*  
 *Let me show you what love can do*
 
 The “pillar in the temple” is a promise of eternal faith, loyalty, service, and love. (Bruce will contrast it with another eternal mark in the final verse.)
 
 And it sounds like it’s sorely needed, because whoever Bruce is singing to is dejected and despondent. She’s done everything she could, tried every measure, to no avail. The singer’s declaration must strike her (as it does us) as naïve and hollow. But Bruce knows that, too–which is why he qualifies it:
 
-*Darling I can’t stop the rain*
-*Or turn your black sky blue*
-*Well let me show you what love can do*
+*Darling I can’t stop the rain*  
+*Or turn your black sky blue*  
+*Well let me show you what love can do*  
 *Let me show you what love can do*
 
 And that’s the message of the song right there. In many of Bruce’s songs, the payoff comes at the end, but nothing’s hidden here. There are no plot twists.
 
 In an age where the deck seems stacked against us, in a world where hard work can’t earn us a fair shake, where hate and fear are allowed to take root and score points, love alone can’t fix things. But it can give us the strength and support we need to keep fighting.
 
-*Well now our truth lay shattered, you stood at world’s end*
-*As the dead sun rose in view*
-*Well if any of this matters, with a kiss my friend*
-*Let me show you what love can do*
+*Well now our truth lay shattered, you stood at world’s end*  
+*As the dead sun rose in view*  
+*Well if any of this matters, with a kiss my friend*  
+*Let me show you what love can do*  
 *Let me show you what love can do*
 
-*Darling we can’t stop this train*
-*When it comes crashing through*
-*But let me show you what love can do*
+*Darling we can’t stop this train*  
+*When it comes crashing through*  
+*But let me show you what love can do*  
 *Let me show you what love can do*
 
 Our narrator humbly sings “if any of this matters,” but he knows it does. Love can’t stop a train but it can keep you from being knocked down by the force of it.
 
-*When the bed you lie on is nails and rust*
-*And the love you’ve given’s turned to ashes and dust*
-*When the hope you’ve gathered’s drifted to the wind*
-*It’s you and I my friend (you and I my friend)*
+*When the bed you lie on is nails and rust*  
+*And the love you’ve given’s turned to ashes and dust*  
+*When the hope you’ve gathered’s drifted to the wind*  
+*It’s you and I my friend (you and I my friend)*  
 *You and I now friend*
 
-*Here our memory lay corrupted and our city lay dry*
-*Let me make this vow to you*
-*Here where it’s blood for blood and an eye for an eye*
+*Here our memory lay corrupted and our city lay dry*  
+*Let me make this vow to you*  
+*Here where it’s blood for blood and an eye for an eye*  
 *Let me show you what love can do*
 
 Make no mistake: while the song is written as an intimate conversation, Bruce isn’t speaking to one person–he’s speaking to his country. “What Love Can Do” was written and recorded before *Magic* was even released, and politics were certainly on his mind as he wrote it.
@@ -63,9 +63,9 @@ The timing is important: especially with the “hope” reference, it’s easy t
 
 Bruce bookends the song with another biblical reference to eternal remembrance, this time noting that none of us are without sin, none of us perfect–but despite that we can still choose at any time to embrace our better nature:
 
-*Here we bear the mark of Cain*
-*We’ll let the light shine through*
-*Let me show you what love can do*
+*Here we bear the mark of Cain*  
+*We’ll let the light shine through*  
+*Let me show you what love can do*  
 *Let me show you what love can do*
 
 Given the turn of events in the world these past few years, as nations shift rightward after years of progress, one might accuse Bruce of being naive in releasing this song when he did.
@@ -82,10 +82,10 @@ For now, though, enjoy the one and only time Bruce performed the song live–in 
 
 [Watch Video Highlight](https://videopress.com/embed/peRsvJRB?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**What Love Can Do**
-**Recorded:** mid-2007<br>
-**Released:** *Working on a Dream* (2009)<br>
-**First performed:** October 14, 2009<br>
+**What Love Can Do**  
+**Recorded:** mid-2007  
+**Released:** *Working on a Dream* (2009)  
+**First performed:** October 14, 2009  
 **Last performed:** October 14, 2009
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

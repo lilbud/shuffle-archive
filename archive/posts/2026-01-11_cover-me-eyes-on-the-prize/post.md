@@ -1,4 +1,4 @@
-*The only thing I did was wrong*
+*The only thing I did was wrong*  
 *Was staying the wilderness too long.*
 
 “Keep Your Eyes on the Prize” may be the unofficial anthem of the Civil Rights movement, but it dates back at least a few decades earlier to an African-American spiritual called “Gospel Plow,” with known recordings going back to the 1930s.
@@ -56,9 +56,9 @@ Their performances grew in power and potency throughout the tour, and by the end
 Other than a Magic Tour cameo, Thompson hasn’t performed with Bruce since the end of the way-too-short Seeger Sessions Tour, but he’s continued to release great music. Check out his catalog on your favorite streaming service–you’ll be glad you did.
 
 **Eyes on the Prize  
-**Recorded:** January 21, 2006<br>
-**Released:** *We Shall Overcome: The Seeger Sessions* (2006)<br>
-**First performed:** April 20, 2006 (Asbury Park, NJ)<br>
+**Recorded** January 21, 2006  
+**Released:** *We Shall Overcome: The Seeger Sessions* (2006)  
+**First performed:** April 20, 2006 (Asbury Park, NJ)  
 **Last performed:** November 21, 2006 (Belfast, Northern Ireland)
 
 © November 1, 2021

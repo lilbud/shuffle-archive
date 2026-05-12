@@ -51,7 +51,7 @@ While the central anchor of “Follow that dream wherever it may lead” may be 
 Springsteen also adds an entirely new verse:
 
 *Now every man has the right to live  
-The right to a chance to give what he has to give*
+The right to a chance to give what he has to give*  
 *The right to fight for the things he believes  
 For things that come to him in dreams*
 
@@ -80,9 +80,9 @@ While fans would have to wait until 2025 to hear the official studio recording, 
 [Watch on Youtube: Follow That Dream - Bruce Springsteen - Brisbane - 16th February 2017](https://www.youtube.com/watch?v=fJNqfH_m7EM)
 
 **Follow That Dream  
-**Recorded:** January 30, 1983<br>
-**Released:** *L.A. Garage Sessions ’83* (2025)<br>
-**First performed:** April 19, 1981 (Paris, France)<br>
+**Recorded** January 30, 1983  
+**Released:** *L.A. Garage Sessions ’83* (2025)  
+**First performed:** April 19, 1981 (Paris, France)  
 **Last performed:** February 16, 2017 (Brisbane, Australia)
 
 © January 18, 2026

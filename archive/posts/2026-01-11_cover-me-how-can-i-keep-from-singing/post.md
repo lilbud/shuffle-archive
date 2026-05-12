@@ -2,10 +2,10 @@ Here’s one of the most under-the-radar officially released Springsteen tracks:
 
 The most notable recording–and probably the one that caught Bruce’s attention–was Pete Seeger’s rendition. Seeger’s version of “How Can I Keep From Singing” updates the song with a modern verse that refers to persecution that’s more political than religious:
 
-*When tyrants tremble, sick with fear, and hear their death-knell ringing*
+*When tyrants tremble, sick with fear, and hear their death-knell ringing*  
 *When friends rejoice both far and near, how can I keep from singing?*
 
-*In prison cell and dungeon vile, our thoughts to them go winging*
+*In prison cell and dungeon vile, our thoughts to them go winging*  
 *When friends by shame are undefiled, how can I keep from singing?*
 
 [Watch on Youtube: How Can I Keep from Singing (Live)](https://www.youtube.com/watch?v=SRIY2SrYq98)
@@ -25,9 +25,9 @@ When performed live, “How Can I Keep From Singing” provided a rare spotlight
 Those lucky Brits–they’re the only ones who got to experience this song live in all three of its only performances ever.
 
 **How Can I Keep From Singing?  
-**Recorded:** January 21, 2006<br>
-**Released:** *We Shall Overcome: The Seeger Sessions (American Land Edition)* (2006)<br>
-**First performed:** May 7, 2006 (Manchester, England)<br>
+**Recorded** January 21, 2006  
+**Released:** *We Shall Overcome: The Seeger Sessions (American Land Edition)* (2006)  
+**First performed:** May 7, 2006 (Manchester, England)  
 **Last performed:** May 9, 2006 (London, England)
 
 © November 21, 2019

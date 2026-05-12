@@ -10,11 +10,13 @@ Add four more shows to the list of postponements that have plagued Bruce’s 202
 
 Even the shows that go on sometimes aren’t always hitch-less: in Amsterdam, Bruce fell and had to be helped up.
 
-[https://www.youtube.com/embed/V1SDWUdIolE?feature=oembed](https://www.youtube.com/embed/V1SDWUdIolE?feature=oembed)
+[Watch on Youtube: Bruce Springsteen falls on stage while performing in Amsterdam](https://www.youtube.com/watch?v=V1SDWUdIolE)
+
+
 
 And in Kilkenny, he had to stop the show when he realized he was physically incapable of escaping the pit.
 
-[https://www.youtube.com/embed/kVyG3Lf_Fvg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/kVyG3Lf_Fvg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kVyG3Lf_Fvg)
 
 It’s been a decade since Bruce last scheduled his shows on back-to-back nights; now he needs at least three days to recover between shows.
 
@@ -24,11 +26,11 @@ And yet each night, at the end of a setlist laced with loss and remembrance, Bru
 
 Or does it?
 
-[https://www.youtube.com/embed/6vQpW9XRiyM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/6vQpW9XRiyM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 
 “Glory Days” is of course associated with Bruce’s *Born in the U.S.A.* period, reaching #5 on the Billboard Hot 100 at the peak of his glory days in the summer of 1985. But it actually dates back to the *Nebraska* era. That might surprise, given the song’s lyrical lightness and unmistakably eighties pop sound, but Springsteen’s original 1981 acoustic home demo reveals a much darker origin.
 
-[https://www.youtube.com/embed/HAMpifa4sko?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/HAMpifa4sko?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HAMpifa4sko)
 
 We can only guess (until we get a chance to ask him) that “Glory Days” wasn’t the song’s original title, and nostalgia certainly wasn’t its central conceit.
 
@@ -40,22 +42,22 @@ By the time Bruce finished the song and brought it to the E Street Band to recor
 
 Mostly anyway. Although he wisely dropped the song’s location, allowing it to resonate more broadly than it might have otherwise, Bruce couldn’t bring himself to drop the verse about his dad until the last minute.
 
-*My old man worked 20 years on the line and they let him go*
-*Now everywhere he goes out looking for work they just tell him that he’s too old*
-*I was 9 years old when he was working at the Metuchen Ford plant assembly line*
+*My old man worked 20 years on the line and they let him go*  
+*Now everywhere he goes out looking for work they just tell him that he’s too old*  
+*I was 9 years old when he was working at the Metuchen Ford plant assembly line*  
 *Now he just sits on a stool down at the Legion Hall, but I can tell what’s on his mind*
 
 It actually made it to the final recording–you can hear it below, before it was edited out of the released track.
 
-[https://www.youtube.com/embed/kOiJXGPZ80Y?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/kOiJXGPZ80Y?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kOiJXGPZ80Y)
 
 Even though it was dropped from the final cut, that verse featured one of three true (or “mostly true”) vignettes that inspired the song.
 
 The first one was from eight years earlier.
 
-*I had a friend was a big baseball player back in high school*
-*He could throw that speedball by you, make you look like a fool boy*
-*Saw him the other night at this roadside bar, I was walking in, he was walking out*
+*I had a friend was a big baseball player back in high school*  
+*He could throw that speedball by you, make you look like a fool boy*  
+*Saw him the other night at this roadside bar, I was walking in, he was walking out*  
 *We went back inside, sat down, had a few drinks, but all he kept talking about was glory days*
 
 Joe DePugh and Bruce Springsteen were childhood friends and little league teammates in Freehold, New Jersey. Bruce and Joe shared a love of the game, but their athletic skills were worlds apart. Joe developed into a high school sports star, courted by colleges and invited to try out for the Los Angeles Dodgers. And Bruce… well, let’s just say he earned an appropriate yet affectionate nickname from his friend: “Saddie.”
@@ -74,9 +76,9 @@ Although Bruce had walked in with an entourage, the pair talked for hours alone 
 
 Bruce and Joe wouldn’t talk again for more than thirty years.
 
-*Well there’s a girl that lives up the block, back in school she could turn all the boys’ heads*
-*Sometimes on a Friday I’ll stop by and have a few drinks after she put her kids to bed*
-*Her and her husband Bobby, well, they split up, I guess it’s two years gone by now*
+*Well there’s a girl that lives up the block, back in school she could turn all the boys’ heads*  
+*Sometimes on a Friday I’ll stop by and have a few drinks after she put her kids to bed*  
+*Her and her husband Bobby, well, they split up, I guess it’s two years gone by now*  
 *We just sit around talking about the old times, she says when she feels like crying, she starts laughing thinking about glory days*
 
 We know who the first verse is about, and we know who the excised verse is about. As for the verse that “mostly happened”… well, Bruce has never volunteered that information.
@@ -89,11 +91,11 @@ Author Clinton Heylin has a theory, and to my mind it’s a plausible one.
 
 In town a day early for his St. Louis show on the original River Tour, Bruce went out driving and ended up at a movie theater, where he saw *Stardust Memories.* In what has become a well chronicled and often told encounter, Bruce struck up a conversation with a fellow theater-goer and ended up following him home for a late-night dinner.
 
-[https://www.youtube.com/embed/ezPRW1wt0NE?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/ezPRW1wt0NE?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ezPRW1wt0NE)
 
 Bruce’s post-movie evening with the Satanovskys is well-known among his fans, but less so the impression the film made on Springsteen and (possibly) one of his greatest hits. Midway through the film, Woody Allen’s character, a famous film director, has a chance encounter with an old childhood friend. Only one of them had found success in life, and Allen is awkwardly apologetic for his good fortune.
 
-[https://videopress.com/embed/RIyIeVxo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RIyIeVxo?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/RIyIeVxo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 I wouldn’t be at all surprised if that scene jogged Bruce’s memory of his run-in with DePugh seven years earlier, because he recorded that acoustic home demo of “Glory Days” about six months later.
 
@@ -105,27 +107,27 @@ Jimi Hendrix and Buddy Holly both died years before their thirtieth birthdays; J
 
 So we can forgive Bruce for wondering at the ripe age of 31 how many glory days he still had in front of him, and we can feel his carpe diem resolve in the final verse.
 
-*Think I’m going down to the well tonight and I’m gonna drink till I get my fill*
-*And I hope when I get old I don’t sit around thinking about it, but I probably will*
-*Yeah just sitting back trying to recapture a little of the glory of*
+*Think I’m going down to the well tonight and I’m gonna drink till I get my fill*  
+*And I hope when I get old I don’t sit around thinking about it, but I probably will*  
+*Yeah just sitting back trying to recapture a little of the glory of*  
 *Well but time slips away and leaves you with nothing mister but boring stories of glory days*
 
 That first line is often misunderstood by fans who in their mind’s eye picture the narrator at a local bar, already looking back on his better days. (In their defense, it doesn’t help that the heavy-rotation MTV video sets that verse in a bar.)
 
-[https://www.youtube.com/embed/NeJrkyzmyS0?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;start=123&#038;wmode=transparent](https://www.youtube.com/embed/NeJrkyzmyS0?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;start=123&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NeJrkyzmyS0)
 
 But while the “well” is indeed metaphorical, it’s not a stand-in for a bottle. To its world-famous author, the well is the concert stage, and to this day each time Bruce steps on it he drinks until he gets his fill, determined to make this day better than the last time he stood here.
 
-*Glory days*
-*Well they’ll pass you by, glory days*
-*In the wink of a young girl’s eye, glory days*
+*Glory days*  
+*Well they’ll pass you by, glory days*  
+*In the wink of a young girl’s eye, glory days*  
 *Glory days*
 
 Maybe so. But what the singer suspected then and surely knows now, is that if you focus on the best and the beauty of the day in front of you rather than the ones behind you, every day is a glory day.
 
 When it makes its nightly appearance, “Glory Days” is a shared moment for the tens of thousands in attendance, many of whom are well past their own glory days, many yet to reach them.
 
-[https://www.youtube.com/embed/iYYl09XNVik?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/iYYl09XNVik?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iYYl09XNVik)
 
 For Springsteen, who can’t possibly help but remember the moments he stood on each stage over the decades, it’s not just a “remember when” moment. It’s a “remember *now* ” moment.
 
@@ -133,7 +135,7 @@ And if we’re wise, fully present with phones firmly pocketed, it is for us too
 
 During the early years following the song’s release, Bruce leaned into the irony of a 35-year-old waxing nostalgic, fully aware of the Peter Pan life he’d led up to that point.
 
-[https://www.youtube.com/embed/qMUxvDBFQYs?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/qMUxvDBFQYs?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qMUxvDBFQYs)
 
 But as the story goes, all boys grow up. Today Bruce plays a Peter who refuses to acknowledge it, winking at us all the while. And it works: in the pit, with backs aching and legs throbbing, the lost boys dance with one swollen foot on either side of the fourth wall.
 
@@ -151,12 +153,14 @@ DePugh was speechless, managing only a feeble “Thanks, Saddie” as he watched
 
 Glory days.
 
-[https://open.spotify.com/embed/track/5yZg1t3WCLLRv0J167GGzK?si=8f82d1cd8bbf43a2&amp;utm_source=oembed](https://open.spotify.com/embed/track/5yZg1t3WCLLRv0J167GGzK?si=8f82d1cd8bbf43a2&amp;utm_source=oembed)
+[Spotify Embed: Glory Days - feat. Bruce Springsteen and Patti Scialfa](https://open.spotify.com/embed/track/5yZg1t3WCLLRv0J167GGzK?si=8f82d1cd8bbf43a2&utm_source=oembed)
 
-**Glory Days**
-**Recorded:** May 5, 1982<br>
-**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
-**First performed:** June 8, 1984 (Asbury Park, NJ)<br>
-**Last performed:** June 24, 2025 (San Sebastian, Spain)<br>
+
+
+**Glory Days  
+**Recorded** May 5, 1982  
+**Released:** *Born in the U.S.A.* (1984), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
+**First performed:** June 8, 1984 (Asbury Park, NJ)  
+**Last performed:** June 24, 2025 (San Sebastian, Spain)
 
 © June 4, 2024

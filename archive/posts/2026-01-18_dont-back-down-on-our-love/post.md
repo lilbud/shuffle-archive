@@ -22,22 +22,22 @@ Let’s check box #3: this is the same arrangement we’ll hear when we reach �
 
 As for Box Four, let’s examine the song’s verses and bridge.
 
-*When the night winds rustle the far away leaves*
-*Rolling down the Kayona Valley through the cottonwood trees*
-*And the wild river rises with the last season’s rains*
+*When the night winds rustle the far away leaves*  
+*Rolling down the Kayona Valley through the cottonwood trees*  
+*And the wild river rises with the last season’s rains*  
 *I awake in the darkness and I call your name*
 
-*I awake and I know that sleep won’t come soon*
-*So I watch the headlights crawl up and down the wall of the lonesome room*
-*Think of that club by the river where we danced on and on*
+*I awake and I know that sleep won’t come soon*  
+*So I watch the headlights crawl up and down the wall of the lonesome room*  
+*Think of that club by the river where we danced on and on*  
 *Swore our love would last forever and you laughed on and on*
 
-*Yeah I wanna weep but I’m broke inside and my tears won’t run*
+*Yeah I wanna weep but I’m broke inside and my tears won’t run*  
 *I wanna sleep but there ain’t no dream and the sleep won’t come*
 
-*Last night I stood on Black Mountain and looked out to the sea*
-*Where the waters of Mystery River go rushing endlessly*
-*And the love we swore would last as long as those waters roared on*
+*Last night I stood on Black Mountain and looked out to the sea*  
+*Where the waters of Mystery River go rushing endlessly*  
+*And the love we swore would last as long as those waters roared on*  
 *I awoke in the darkness, it was gone, gone, gone*
 
 Content-wise, “Don’t Back Down on Our Love” is an early example (even if only recently released) of thematic ground Bruce would travel over often in the years to come.
@@ -52,9 +52,9 @@ Black Mountain? Mystery River? Bruce is obviously writing in dream metaphor (the
 
 Every close and distant relative to “Don’t Back Down on Our Love” improves on the DNA it inherited, so we can consider this early track a gift to those of us fascinated by Bruce’s artistic process.
 
-**Don’t Back Down on Our Love**
-**Recorded:** January-March 1983<br>
-**Released:** *L.A. Garage Sessions ’83* (2025)<br>
+**Don’t Back Down on Our Love**  
+**Recorded:** January-March 1983  
+**Released:** *L.A. Garage Sessions ’83* (2025)  
 **Never performed**
 
 © January 18, 2026

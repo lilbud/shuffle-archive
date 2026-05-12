@@ -16,30 +16,30 @@ Bruce’s life had changed dramatically for the better, but his art was adrift, 
 
 As the song begins, Bruce recalls the ennui that enveloped him in the 1980s. He may have been a force of nature on stage, but his inner life was lacking:
 
-*Well my soul checked out missing as I sat listening to the hours and minutes ticking away*
-*Just sitting around waiting for my life to begin while it was all just slipping away*
-*I’m tired of waiting for tomorrow to come or that train to come roaring ’round the bend*
+*Well my soul checked out missing as I sat listening to the hours and minutes ticking away*  
+*Just sitting around waiting for my life to begin while it was all just slipping away*  
+*I’m tired of waiting for tomorrow to come or that train to come roaring ’round the bend*  
 *I got a new suit of clothes and a pretty red rose and a woman I can call my friend*
 
 …and right there, we have the key: Patti Scialfa. (Note: I realize it’s dangerous to extrapolate autobiography from a song–if that were always true, we’d have had serious cause for worry after “[Nebraska](https://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)” and most of the Tom Joad album–but in this case, I think we’re on pretty solid ground.)
 
-*These are better days, baby*
-*Yeah there’s better days shining through*
-*These are better days, baby*
+*These are better days, baby*  
+*Yeah there’s better days shining through*  
+*These are better days, baby*  
 *Better days with a girl like you*
 
 The next two verses feature (in my opinion) some of the best lyrics from Bruce’s entire catalog. First, he cops self-deprecatingly to the irony of being dissatisfied with a life most would kill for:
 
-*Well I took a piss at fortune’s sweet kiss, it’s like eating caviar and dirt*
+*Well I took a piss at fortune’s sweet kiss, it’s like eating caviar and dirt*  
 *It’s a sad funny ending to find yourself pretending a rich man in a poor man’s shirt*
 
 That coupling of rhyming metaphors–“eating caviar and dirt” and “a rich man in a poor man’s shirt”–that’s lyrical gold. Easily in my Top Springsteen Lyrics list (if I had one).
 
 The runners up:
 
-*Now a life of leisure and a pirate’s treasure don’t make much for tragedy*
-***It’s a sad man my friend who’s living in his own skin and can’t stand the company***
-*Every fool’s got a reason to feeling sorry for himself and turning his heart to stone*
+*Now a life of leisure and a pirate’s treasure don’t make much for tragedy*  
+***It’s a sad man my friend who’s living in his own skin and can’t stand the company***  
+*Every fool’s got a reason to feeling sorry for himself and turning his heart to stone*  
 ***Tonight this fool’s halfway to heaven and just a mile outta hell and I feel like I’m coming home***
 
 Those lines in bold–that’s just some killer imagery. But look past them, and realize what Bruce is saying. Decades before he shared his bouts with depression in his autobiography, here’s Bruce confessing that he’s not comfortable in his own skin, and that he realizes that he can’t share that fact with anyone–because who would understand? Who would feel sorry for the rich, talented, admired, and fabulously successful rock star?
@@ -54,10 +54,10 @@ In concert, “Better Days” was a staple of the 1992 and 1993 tours, but it’
 
 [Watch Video Highlight](https://videopress.com/embed/OBaFOsgK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Better Days**
-**Recorded:** 1991-1992<br>
-**Released:** *Lucky Town* (1992), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)<br>
-**First performed:** May 6, 1992 (New York City, NY)<br>
-**Last performed:** November 6, 2024 (Toronto, ON)<br>
+**Better Days  
+**Recorded** 1991-1992  
+**Released:** *Lucky Town* (1992), *Greatest Hits* (1995), *The Essential Bruce Springsteen* (2003)  
+**First performed:** May 6, 1992 (New York City, NY)  
+**Last performed:** November 6, 2024 (Toronto, ON)
 
 © March 17, 2018

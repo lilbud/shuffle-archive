@@ -1,14 +1,10 @@
-
-
 There are 338 members of the Rock and Roll Hall of Fame.
 
-But only one artist has been honored by the Hall of Fame.
-
-*Baseball*
+But only one artist has been honored by the *Baseball* Hall of Fame.
 
 That honor belongs to lifelong baseball fan John Fogerty and his 1985 hit single, “Centerfield.”
 
-[https://www.youtube.com/embed/Xq3hEMUeBGQ?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/Xq3hEMUeBGQ?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Xq3hEMUeBGQ)
 
 “Centerfield” didn’t make the Top 40 when it was released (it peaked at #44), but it quickly became a standard in just about every American ballpark, where crowds clap, sing, and dance along between innings.
 
@@ -20,7 +16,7 @@ That tour had a decidedly political message, with tight and carefully constructe
 
 The chance to perform “Centerfield” with the song’s original artist was probably too tempting to pass up, and the song became Fogerty’s first number upon taking the stage each night.
 
-[https://www.youtube.com/embed/ExdLcwIZdsk?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/ExdLcwIZdsk?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ExdLcwIZdsk)
 
 Six years later, Fogerty was surprised to learn his song had been inducted into the Baseball Hall of Fame–surprised mostly because the Hall of Fame had never honored a song or musician before.
 
@@ -28,12 +24,8 @@ When asked for his reaction to the news in an interview at the time, Fogerty dea
 
 “It came out of left field.”
 
-October 1, 2004 (Philadelphia, PA)
-October 13, 2004 (East Rutherford, NJ)
-
 **Centerfield**
-**First performed:**<br>
-
-**Last performed:**<br>
+**First performed:** October 1, 2004 (Philadelphia, PA)  
+**Last performed:** October 13, 2004 (East Rutherford, NJ)
 
 © June 22, 2021

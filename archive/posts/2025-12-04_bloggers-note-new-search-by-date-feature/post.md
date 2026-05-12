@@ -1,5 +1,3 @@
-
-
 The shows were the easy part.
 
 Thankfully, the good folks at Brucebase have them cataloged from top to bottom, so I know exactly what to look for in YouTube, newspaper archives, and the like.
@@ -8,9 +6,7 @@ The challenge–and the fun–was the stuff in between.
 
 Touring musicians are bound to explore new cities on their days off or vent some steam after a show, so I learned to search local newspapers for Springsteen sightings the days preceding and following a show.
 
-Most of the time, I came up empty. But once in a while I found a gem like Bruce leaving his expired Amex in an L.A. restaurant. And who would have expected him to turn up backstage at a Melissa Manchester taping? Both of those anecdotes turn up in these pages, and discovering them was my absolute favorite part of compiling .
-
-*Kingdom of Days*
+Most of the time, I came up empty. But once in a while I found a gem like Bruce leaving his expired Amex in an L.A. restaurant. And who would have expected him to turn up backstage at a Melissa Manchester taping? Both of those anecdotes turn up in these pages, and discovering them was my absolute favorite part of compiling *Kingdom of Days*.
 
 Also fun: reading all the newspaper reviews. Often I had several to choose from. (In the early days of Bruce’s career, it wasn’t unusual for a city to have multiple local papers plus independent suburban ones.)
 

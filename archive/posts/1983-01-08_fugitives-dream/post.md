@@ -10,18 +10,18 @@ So if you want to read about the songs and listen to them in the order Bruce wro
 
 Got all that? Good. Let’s take a listen to “Fugitive’s Dream” the second installment in the evolution of a song.
 
-[https://www.youtube.com/embed/iMZDDrGXJv8?feature=oembed](https://www.youtube.com/embed/iMZDDrGXJv8?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Fugitives Dream (Official Audio)](https://www.youtube.com/watch?v=iMZDDrGXJv8)
 
 “Fugitive’s Dream” is the tightest of the three songs, and the only one paired to a sinister melody befitting its lyrics.
 
 The plot and opening lines are the same across all three songs: a stranger comes to down and reminds our narrator of a long-buried sin.
 
-*Sir I’m a pilgrim and a stranger in this land*
-*Once I had a home here and my salvation was at hand*
-*I lived in a fine home on a far hillside*
+*Sir I’m a pilgrim and a stranger in this land*  
+*Once I had a home here and my salvation was at hand*  
+*I lived in a fine home on a far hillside*  
 *I had two beautiful children and a kind and loving wife*
 
-*One day a man came to town with nothing and nowhere to go*
+*One day a man came to town with nothing and nowhere to go*  
 *He came to me and he mentioned something I’d done a long time ago*
 
 (Those last two lines will appear on yet another *Lost Albums* track, in a most unlikely place: the magnificent *High Sierra*, recorded decades later. One wonders if Bruce was already at work compiling this collection when he wrote that song.)
@@ -30,22 +30,22 @@ From here, the songs diverge, although the general plot remains the same. In “
 
 But here in “Fugitive’s Dream,” Joe is simply haunted by his past, unable to shake a memory (or is it an urge?) once awakened.
 
-*I allowed him into my home on his vow our secret would never see the light*
+*I allowed him into my home on his vow our secret would never see the light*  
 *At night I’d lay awake in my wife’s arms, she sighed, “Joe, are you alright?”*
 
-*I thought I could hold on, my vows I tried to keep*
-*Day after day I felt myself grow weak*
-*One night I dressed by moonlight and kissed my wife on the cheek*
+*I thought I could hold on, my vows I tried to keep*  
+*Day after day I felt myself grow weak*  
+*One night I dressed by moonlight and kissed my wife on the cheek*  
 *And I fled into the darkness of Union Street*
 
-*And night after night the same dream keeps coming ’round*
-*I’m standing high in the green hills on the outskirts of town*
-*The night air fills my lungs and rustles my shirt*
+*And night after night the same dream keeps coming ’round*  
+*I’m standing high in the green hills on the outskirts of town*  
+*The night air fills my lungs and rustles my shirt*  
 *In the distance I can see the building where I used to work*
 
-*I break through the open fields and out onto Old Town Road*
-*I run faster and faster ’til I feel like my chest will explode*
-*As I draw near the town’s lit by a red summer moon*
+*I break through the open fields and out onto Old Town Road*  
+*I run faster and faster ’til I feel like my chest will explode*  
+*As I draw near the town’s lit by a red summer moon*  
 *I feel your arms around me, I wake up in this room*
 
 Although this version lacks the moment of intimacy between Joe and his houseguest that heightens “Fugitive’s Dream (Ballad),” Bruce uses the word “vows” in a different context here that strongly implies he’s referring to marital ones.
@@ -54,9 +54,9 @@ We follow a slightly different path, but it still leads to a moment of weakness 
 
 The title “Fugitive’s Dream” conditions us to expect a more black-and-white crime fiction. What we witness instead is a man on the run from himself.
 
-**Fugitive’s Dream**
-**Recorded:** March 24, 1983<br>
-**Released:** *L.A. Garage Sessions ’83* (2025)<br>
+**Fugitive’s Dream  
+**Recorded** March 24, 1983  
+**Released:** *L.A. Garage Sessions ’83* (2025)  
 **Never performed**
 
 © January 19, 2026

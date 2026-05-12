@@ -20,7 +20,7 @@ Okay, enough tangents. Although I’ve dreaded this moment, it’s time to take 
 
 Don’t make me do it alone, okay?
 
-[https://www.youtube.com/embed/s3tqIk8TPWM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/s3tqIk8TPWM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s3tqIk8TPWM)
 
 Why does this song elicit such a visceral reaction from me?
 
@@ -28,40 +28,40 @@ Well, it’s not the lyrics. I mean, they’re not particularly profound, but th
 
 In fact, Bruce himself made that argument implicitly, when he recast “Cover Me” almost a year and a half after he recorded it, as the unreleased outtake “Drop On Down and Cover Me.”
 
-[https://www.youtube.com/embed/4iQh-UzJiH4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/4iQh-UzJiH4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4iQh-UzJiH4)
 
 “Drop on Down and Cover Me” is so far superior to “Cover Me” in every way that I am to this day mystified as to what made Bruce revert to the earlier version instead. Heck, even the guitar solo (the sole redeeming feature of “Cover Me”) is stronger in “Drop on Down and Cover Me.”
 
 In either form, however, Bruce’s lyrics are inoffensively slight, revolving around a single gimmick: the use of wartime metaphor in what is otherwise a straightforward pop song about taking refuge from a harsh world in a nameless lover’s arms.
 
-*The times are tough now, just getting tougher*
-*This old world is rough, it’s just getting rougher*
-*Cover me, come on baby cover me*
+*The times are tough now, just getting tougher*  
+*This old world is rough, it’s just getting rougher*  
+*Cover me, come on baby cover me*  
 *Well I’m looking for a lover who will come on in and cover me*
 
-*Now promise me baby you won’t let them find us*
-*Hold me in your arms, let’s let our love blind us*
-*Cover me, shut the door and cover me*
+*Now promise me baby you won’t let them find us*  
+*Hold me in your arms, let’s let our love blind us*  
+*Cover me, shut the door and cover me*  
 *I’m looking for a lover who will come on in and cover me*
 
-*Outside’s the rain, the driving snow*
-*I can hear the wild wind blowing*
-*Turn out the light, bolt the door*
+*Outside’s the rain, the driving snow*  
+*I can hear the wild wind blowing*  
+*Turn out the light, bolt the door*  
 *I ain’t going out there no more*
 
-*This whole world is out there just trying to score*
-*I’ve seen enough, I don’t wanna see any more*
-*Cover me, come on and cover me*
+*This whole world is out there just trying to score*  
+*I’ve seen enough, I don’t wanna see any more*  
+*Cover me, come on and cover me*  
 *I’m looking for a lover who will come on in and cover me*
 
 I called “Cover Me” lyrically slight for a reason: aside from the repeated chorus, the song consists of a grand total of ten unique lines, the first two of which are awfully lazy, and the last two of which are basically restatements of the first two. (The rest isn’t particularly ambitious, either.)
 
 Interestingly, even though the verses are essentially identical between “Cover Me” and “Drop on Down and Cover Me,” Bruce rewrote the bridge for the later song:
 
-*Inside I feel the pain that*
-*The hatred and the sorrow*
-*I wanna shut the light, baby*
-*C’mon and shut the door*
+*Inside I feel the pain that*  
+*The hatred and the sorrow*  
+*I wanna shut the light, baby*  
+*C’mon and shut the door*  
 *Drop on down and cover me*
 
 It’s a moment of vulnerability for the narrator–he drops the metaphor just long enough for us to feel his inner pain and turmoil, and I think the song is stronger for it.
@@ -86,33 +86,33 @@ Lacking any substantive lyrics to distract from or elevate the backing track, �
 
 It wasn’t enough. After a rough opening, Baker finds his footing for a couple of minutes, but it quickly goes off the rails at around the 2:40 mark and becomes almost a parody of an 80s dance song.
 
-[https://www.youtube.com/embed/G_TZnp6AZaY?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/G_TZnp6AZaY?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G_TZnp6AZaY)
 
 Baker’s “Undercover” mix was accompanied by two shorter “dub” mixes. They weren’t much better.
 
-[https://www.youtube.com/embed/FpLXbQ119xc?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/FpLXbQ119xc?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FpLXbQ119xc)
 
-[https://www.youtube.com/embed/fpscKAcLEBE?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/fpscKAcLEBE?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fpscKAcLEBE)
 
 Caught between worlds, “Cover Me” works in neither its rock nor club mix form. And yet, it was a bona fide hit, peaking at #7 in the summer of 1984, the second of a record-tying string of seven Top Ten singles from a single album. Only Michael Jackson, Janet Jackson, and Drake have ever equaled that feat. (Strangely, though, for the peak era of MTV, Bruce never filmed a video for “Cover Me.”)
 
 So naturally, Bruce kept “Cover Me” in his set lists throughout the Born in the U.S.A. Tour, prefixing it with an ominous introduction that only served to raise expectations before dashing them. (Bruce’s guitar solo worked pretty well live, though.)
 
-[https://www.youtube.com/embed/betZWo0gZrc?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/betZWo0gZrc?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=betZWo0gZrc)
 
 “Cover Me” stuck around on the next tour, too. On the Tunnel of Love Express Tour, Bruce gave Patti one of her first spotlight moments with a Martha Reeves-inspired intro, and the horn section made the riff sound slightly less dated. Otherwise, though, the arrangement was the same.
 
-[https://www.youtube.com/embed/O0zH44ofACI?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/O0zH44ofACI?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=O0zH44ofACI)
 
 Bruce kept “Cover Me” in heavy rotation through one last tour in 1992, and I actually think it fared somewhat better in the hands of his new touring band.
 
-[https://www.youtube.com/embed/ZGmUQEQy1gs?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/ZGmUQEQy1gs?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZGmUQEQy1gs)
 
 But as the 1980s faded further and firmly into the rearview mirror, “Cover Me” thankfully became a rarity, making only a handful of appearances per tour from the Magic Tour forward. (Maddeningly, I seemed to have a knack for catching them.)
 
 Credit Bruce for always playing it straight, at least. He never gave anything but his all to each performance.
 
-[https://www.youtube.com/embed/_7Qk9MdyiOM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/_7Qk9MdyiOM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_7Qk9MdyiOM)
 
 It’s been about four years since we last heard Bruce perform “Cover Me” in concert, but then again Bruce hasn’t played a whole lot of concerts in that time.
 
@@ -123,12 +123,12 @@ I’m thinking this is a streak worth extending.
 
 **Bonus:** Here’s an alternate, unreleased mix of “Cover Me.” I present it here for the catharsis of hearing the E Street Band bring the song to a satisfying halt. You can almost hear the sigh of relief.
 
-[https://videopress.com/embed/e3V4yBk8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/e3V4yBk8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/e3V4yBk8?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Cover Me**
-**Recorded:** January 25, 1982<br>
-**Released:** *Born in the U.S.A.* (1984)<br>
-**First performed:** July 2, 1984 (St. Paul, MN)<br>
-**Last performed:** June 27, 2024 (Nijmegen, The Netherlands)<br>
+**Cover Me  
+**Recorded** January 25, 1982  
+**Released:** *Born in the U.S.A.* (1984)  
+**First performed:** July 2, 1984 (St. Paul, MN)  
+**Last performed:** June 27, 2024 (Nijmegen, The Netherlands)
 
 © January 13, 2021

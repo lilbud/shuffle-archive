@@ -13,5 +13,5 @@ IMO, those particular nights (two back-to-back shows) didn't feature Bruce at hi
 Even with a week off to recover and despite a spectacular set list, he seemed less animated on-stage than usual, so I'm holding out hope that Joe and Bruce will give "Junior's Bar" another go someday–I'd love to be there when they both cut loose on it.
 
 **Junior's Bar**
-First performed: May 23, 2014** (Pittsburgh, PA)
-**Last performed: May 23, 2014** (Pittsburgh, PA)
+**First performed:** May 23, 2014 (Pittsburgh, PA)
+**Last performed:** May 23, 2014 (Pittsburgh, PA)

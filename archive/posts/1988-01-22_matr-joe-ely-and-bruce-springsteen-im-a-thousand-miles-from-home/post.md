@@ -6,14 +6,14 @@ It’s the opening track that gets all the attention, and it’s hard to argue t
 
 “I’m a Thousand Miles From Home” is everything “All Just to Get to You” isn’t: slow, simple, meditative, and world-weary.
 
-[https://www.youtube.com/embed/VJtl9sC8_KA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/VJtl9sC8_KA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VJtl9sC8_KA)
 
 It also features some *very* Springsteenian lyrics:
 
-*Travelin’ down this weary road*
+*Travelin’ down this weary road*  
 *A troubled mind is a heavy load*
 
-*Hold my ticket in my hand*
+*Hold my ticket in my hand*  
 *Lookin’ for the Promised Land*
 
 *I’m a thousand miles from home*
@@ -22,9 +22,9 @@ It’s pretty easy to see why Bruce would be attracted to a song like this. Bruc
 
 Unlike “All Just to Get to You,” which Bruce has performed with Ely seven times in concert, Bruce has yet to perform “I’m a Thousand Miles From Home.” But that’s okay: this is a delicately crafted studio track that’s perfect in its original form.
 
-**I’m a Thousand Miles From Home**
-**Recorded:** April 1995<br>
-**Released:** *Letter to Laredo* (1995)<br>
+**I’m a Thousand Miles From Home  
+**Recorded** April 1995  
+**Released:** *Letter to Laredo* (1995)  
 **Never performed**
 
 © November 3, 2021

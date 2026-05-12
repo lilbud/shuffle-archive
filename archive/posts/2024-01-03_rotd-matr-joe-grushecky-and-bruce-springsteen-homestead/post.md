@@ -46,30 +46,30 @@ Bruce may have decided not to release his own version of “Homestead,” but Jo
 
 Youngstown, Ohio is only a ninety-minute drive from Homestead, Pennsylvania, and the two songs bear some remarkable thematic and lyrical similarities. Compare Joe’s first verse…
 
-*I was born in the corn fields of Kentucky*
-*I moved north in ’73*
-*The war was still going strong so I found a job*
+*I was born in the corn fields of Kentucky*  
+*I moved north in ’73*  
+*The war was still going strong so I found a job*  
 *Rolling steel in a foundry in Homestead*
 
 …with Bruce’s:
 
-*Here in northeast Ohio, back in eighteen-o-three*
-*James and Danny Heaton found the ore that was lining Yellow Creek*
-*They built a blast furnace here along the shore*
+*Here in northeast Ohio, back in eighteen-o-three*  
+*James and Danny Heaton found the ore that was lining Yellow Creek*  
+*They built a blast furnace here along the shore*  
 *And they made the cannon balls that helped the Union win the war*
 
 Or this verse of Joe’s:
 
-*And the steel glowed in the white hot chambers*
-*The furnace spit fire and smoke*
-*And the sunlight came through the cracks in the roof*
+*And the steel glowed in the white hot chambers*  
+*The furnace spit fire and smoke*  
+*And the sunlight came through the cracks in the roof*  
 *And the dust was so thick you could choke*
 
 …with Bruce’s “Youngstown” verse:
 
-*Well my daddy worked the furnaces, kept ’em hotter than hell*
-*I come home from ‘Nam worked my way to scarfer, a job that’d suit the devil as well*
-*Well taconite coke and limestone fed my children and made my pay*
+*Well my daddy worked the furnaces, kept ’em hotter than hell*  
+*I come home from ‘Nam worked my way to scarfer, a job that’d suit the devil as well*  
+*Well taconite coke and limestone fed my children and made my pay*  
 *Them smokestacks reaching like the arms of God into a beautiful sky of soot and clay*
 
 It’s not hard to see Joe’s influence on Bruce’s songwriting.
@@ -85,9 +85,9 @@ It’s been more than a decade since we’ve last seen them perform it together 
 **The 25th Anniversary Edition of *American Babylon* is available now on vinyl, CD, and digital–get it [here](https://www.joegrushecky.com/store). Catch Joe and The Houserockers[on stage this summer](https://www.joegrushecky.com/shows), including a night at The Wonder Bar in Asbury Park on July 9th!**
 
 **Homestead**
-**Recorded:** November 1993 (Grushecky version), Unknown (Springsteen version)<br>
-**Released:** *American Babylon* (1995) (Grushecky version)<br>
-**First performed:** October 17, 1995 (Asbury Park, NJ)<br>
+**Recorded** November 1993 (Grushecky version), Unknown (Springsteen version)  
+**Released:** *American Babylon* (1995) (Grushecky version)  
+**First performed:** October 17, 1995 (Asbury Park, NJ)  
 **Last performed:** November 3, 2011 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

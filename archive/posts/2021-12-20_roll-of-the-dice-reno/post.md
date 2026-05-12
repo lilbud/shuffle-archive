@@ -16,17 +16,17 @@ Before we jump into the lyrics, go back and take a close listen to the instrumen
 
 “Reno” begins in a hotel room, although we don’t learn this until the end of the first verse. Pay attention to the way Bruce parcels out exposition, because the master is at work:
 
-*She took off her stockings*
-*I held them to my face*
-*She had your ankles*
-*I felt filled with grace*
-*“Two hundred dollars straight in, $250 up the ass,” she smiled and said*
-*She unbuckled my belt, pulled back her hair and sat in front of me on the bed*
-*She said, “Honey, how’s that feel? Do you want me to go slow?”*
-*My eyes drifted out the window and down to the road below*
-*I felt my stomach tighten*
-*The sun bloodied the sky*
-*Sliced through the hotel blinds*
+*She took off her stockings*  
+*I held them to my face*  
+*She had your ankles*  
+*I felt filled with grace*  
+*“Two hundred dollars straight in, $250 up the ass,” she smiled and said*  
+*She unbuckled my belt, pulled back her hair and sat in front of me on the bed*  
+*She said, “Honey, how’s that feel? Do you want me to go slow?”*  
+*My eyes drifted out the window and down to the road below*  
+*I felt my stomach tighten*  
+*The sun bloodied the sky*  
+*Sliced through the hotel blinds*  
 *I closed my eyes*
 
 Where to begin? Fifteen words in, we already know that the narrator is having a tryst, but his mind is somewhere else. Or rather, with *someone* else. And we know whoever it is he’s thinking of, it’s clearly someone who means a lot to him, because he’s memorized her in such detail that he can summon the shape of her ankles, and because even that lone resemblance in the woman he’s with is enough to take him back in time.
@@ -39,13 +39,13 @@ Notice, at this point, how the music swells as we transition from the hotel room
 
 Bruce is playing cinematographer here: “Reno” is a three-act story, and Act Two is all flashback–vibrant, verdant, sunlit, and packed with all the color and detail deliberately missing from Acts One and Three. The change in the music–Bruce is joined by horns and strings now–is the equivalent of a camera lens pulling back from a tight close-up to a wide vista. This is Bruce Springsteen at his most cinematic:
 
-*Sunlight on the Amatitlan*
-*Sunlight streaming through your hair*
-*In the Valle de los Rios*
-*Smell of mock orange filled the air*
-*We rode with the vaqueros down into cool rivers of green*
-*I was sure the work and that smile coming out ‘neath your hat was all I’d ever need*
-*Somehow all you ever need’s never really quite enough, you know*
+*Sunlight on the Amatitlan*  
+*Sunlight streaming through your hair*  
+*In the Valle de los Rios*  
+*Smell of mock orange filled the air*  
+*We rode with the vaqueros down into cool rivers of green*  
+*I was sure the work and that smile coming out ‘neath your hat was all I’d ever need*  
+*Somehow all you ever need’s never really quite enough, you know*  
 *You and I, Maria, we learned it’s so*
 
 Again, let’s not break out the atlas, because Bruce’s name-dropping is more for emotional context rather than geographical precision.
@@ -78,13 +78,13 @@ Which is Bruce’s way of saying “the love interests in my songs are *your* lo
 
 We’ve digressed enough. Let’s return to the hotel room for Act Three:
 
-*She slipped me out of her mouth*
-*“You’re ready,” she said*
-*She took off her bra and panties*
-*Wet her finger, slipped it inside and crawled over me on the bed*
-*She poured me another whisky*
-*Said, “Here’s to the best you ever had,” we laughed and made a toast*
-*It wasn’t the best I ever had*
+*She slipped me out of her mouth*  
+*“You’re ready,” she said*  
+*She took off her bra and panties*  
+*Wet her finger, slipped it inside and crawled over me on the bed*  
+*She poured me another whisky*  
+*Said, “Here’s to the best you ever had,” we laughed and made a toast*  
+*It wasn’t the best I ever had*  
 *Not even close*
 
 Again, Bruce is overly clinical with his language, drawing our attention to the mechanics of sex rather than the emotion. There’s another reason he does this: it forces us to notice that he completely skips over the act itself. Ordinarily, we’d consider this an act of tact, but Bruce has already made it clear that he’s not shying away from explicit language.
@@ -107,9 +107,9 @@ It’s very different from Bruce’s nightly performance on tour, and the only l
 [Watch on Youtube: Bruce Springsteen - Reno ("Devils & Dust" Acoustic Performances)](https://www.youtube.com/watch?v=mfJ0_WREIEg)
 
 **Reno**
-**Recorded:** 1997-2004<br>
-**Released:** *Devils & Dust* (2005)<br>
-**First performed:** April 22, 2005 (Asbury Park, NJ)<br>
+**Recorded** 1997-2004  
+**Released:** *Devils & Dust* (2005)  
+**First performed:** April 22, 2005 (Asbury Park, NJ)  
 **Last performed:** November 22, 2005 (Trenton, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

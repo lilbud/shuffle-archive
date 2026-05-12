@@ -1,4 +1,4 @@
-> [“Valerie” is] a very heavy song in our history… I was visiting you in your apartment in New York (probably when I shouldn’t have been visiting you in your apartment in New York). Under the guise of rehearsing for *Tunnel of Love*, I’m teaching you the guitar parts. But somehow, you got around to playing me this next song, and I remember thinking, “Oh my God, this woman can write.” And it totally made me twice as scared as I was anyway. It was like, whoa, I think I saw your talent for the first time, outside of just your voice. It was a pretty intense moment. — *Bruce Springsteen to Patti Scialfa, From My Home to Yours Volume 9*
+> [“Valerie” is] a very heavy song in our history… I was visiting you in your apartment in New York (probably when I shouldn't have been visiting you in your apartment in New York). Under the guise of rehearsing for *Tunnel of Love*, I'm teaching you the guitar parts. But somehow, you got around to playing me this next song, and I remember thinking, “Oh my God, this woman can write.” And it totally made me twice as scared as I was anyway. It was like, whoa, I think I saw your talent for the first time, outside of just your voice. It was a pretty intense moment. — *Bruce Springsteen to Patti Scialfa, From My Home to Yours Volume 9*
 
 Until that revelatory confession, I’d always wondered why Patti chose to play “Valerie” during her promotional tour for *Rumble Doll*, her 1993 debut album.
 
@@ -6,7 +6,7 @@ Not that “Valerie” is a bad song–quite the opposite, as illustrated by Bru
 
 In fact, “Valerie” was never released as a single, and yet during a rare in-studio radio appearance in July 1993 (the month that *Rumble Doll* was released), “Valerie” is the song she chose to play.
 
-[https://videopress.com/embed/6l1B7wRG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6l1B7wRG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/6l1B7wRG?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 Infatuation with its songwriter aside, it’s no wonder that Bruce was so taken with “Valerie.” With its gorgeous, evocative metaphor-rich lyrics, lush backing track, and failed love affair set against an exotic backdrop, “Valerie” is exactly the kind of song Bruce loved to write himself.
 
@@ -14,14 +14,14 @@ Patti was kind when the DJ called “Valerie” a “buddy-girl type of song” 
 
 The narrator of “Valerie” followed her lover on a great adventure, only to find herself alone and abandoned. He’s been gone for three years now, but she’d still sacrifice anything and everything to recapture that feeling of intense love.
 
-[https://www.youtube.com/embed/RXQyuidSUFw?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/RXQyuidSUFw?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RXQyuidSUFw)
 
 The second verse of “Valerie” may be the most artful lyric Patti has ever written:
 
-*Sixteen days since I left Corona*
-*And I traveled to this carnival town near Alberndeel*
-*And I rode the coaster there on the fairground*
-*Twisted backbone of a beast that never heels*
+*Sixteen days since I left Corona*  
+*And I traveled to this carnival town near Alberndeel*  
+*And I rode the coaster there on the fairground*  
+*Twisted backbone of a beast that never heels*  
 *And I left some skin on fortune’s wheel*
 
 I mean, come on: whose jaw *wouldn’t* drop when hearing that verse for the first time?
@@ -38,16 +38,16 @@ That song, of course, was “Valerie,” and thanks to Bruce’s radio show this
 
 Enjoy Patti Scialfa, backed by Bruce Springsteen and The Sessions Band, performing “Valerie.”
 
-[https://videopress.com/embed/VEBgViEj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VEBgViEj?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/VEBgViEj?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**Bonus:** Patti’s catalog hasn’t been covered nearly as much as Bruce’s has, but in 1999 Emmylou Harris and Linda Ronstadt chose “Valerie” for their duet album, *Western Wall: The Tucson Sessions.”*
+**Bonus:** Patti’s catalog hasn’t been covered nearly as much as Bruce’s has, but in 1999 Emmylou Harris and Linda Ronstadt chose “Valerie” for their duet album, *Western Wall: The Tucson Sessions.”* 
 
 The song loses some of its power when performed as a duet, however, and even though Harris and Ronstadt are both superb vocalists, neither quite manage to summon the brave vulnerability that “Valerie” (like much of Patti’s catalog) requires.
 
-[https://www.youtube.com/embed/oCTK3Rl0yms?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/oCTK3Rl0yms?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=oCTK3Rl0yms)
 
 **Valerie**
-**First performed:** October 5, 2006 (Verona, Italy)<br>
-**Last performed:** October 5, 2006 (Verona, Italy)<br>
+**First performed:** October 5, 2006 (Verona, Italy)  
+**Last performed:** October 5, 2006 (Verona, Italy)
 
 © December 13, 2020

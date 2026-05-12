@@ -28,25 +28,25 @@ Let’s be honest, though: the song’s surprising staying power is more due to 
 
 The story itself (such as it is) is simply the desperate drive of a newly unemployed young man eager to get laid, racing to Galveston, Texas, where his brother works and assures him that the girls are pretty hot.
 
-*Well I’ve been out of the woods for six days and nights now*
-*Well I’m a little hot wired, but I’m feeling alright*
-*I got some money in my pocket and a long lean ride*
+*Well I’ve been out of the woods for six days and nights now*  
+*Well I’m a little hot wired, but I’m feeling alright*  
+*I got some money in my pocket and a long lean ride*  
 *I got to make it down to Galveston by Saturday night, now*
 
-*Been driving five hundred miles, got five hundred to go, yeah*
-*I got rock and roll music on the radio*
-*I got a brother on a rig just off the gulf coast*
+*Been driving five hundred miles, got five hundred to go, yeah*  
+*I got rock and roll music on the radio*  
+*I got a brother on a rig just off the gulf coast*  
 *He says the girls down there, well they’re really the most, man*
 
 Our hero has had a bad run of luck lately, but he’s optimistic about the future–or about Saturday night, at least. He’s not even 100% sure whether his brother was serious about the girls, but he doesn’t care–at this point, it’s the only thing he has to look forward to:
 
-*Well I got thrown out of work on the Kokomo*
-*Don’t ask me what I’m doing, I don’t know*
-*I hope he wasn’t joking when he wrote me that letter*
+*Well I got thrown out of work on the Kokomo*  
+*Don’t ask me what I’m doing, I don’t know*  
+*I hope he wasn’t joking when he wrote me that letter*  
 *Things can’t get any worse, they got to get better*
 
-*Well I’m a little down under, but I’m feeling O.K.*
-*I got a little lost along the way*
+*Well I’m a little down under, but I’m feeling O.K.*  
+*I got a little lost along the way*  
 *I’m just around the corner to the light of day*
 
 (Note: there several Kokomos in the U.S., but I did the math, and the only one that appears to be 1,000 miles away (or even close to it) is in Indiana. You’re welcome.)
@@ -78,8 +78,8 @@ May it always be just around the corner.
 [Watch on Youtube: Joe Grushecky and The Houserockers - Light Of Day (feat. Bruce Springsteen) [Live]](https://www.youtube.com/watch?v=sk523KCgNFM)
 
 **Light of Day  
-**Recorded:** September 22, 1992 (live performance)<br>
-**Released:** *In Concert: MTV xxPlugged* (1993)**First performed:** April 12, 1987 (Asbury Park, NJ)<br>
+**Recorded** September 22, 1992 (live performance)  
+**Released:** *In Concert: MTV xxPlugged* (1993)**First performed:** April 12, 1987 (Asbury Park, NJ)  
 **Last performed:** January 18, 2020 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

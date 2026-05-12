@@ -12,15 +12,15 @@ And that’s too bad, because “Linda” would have fit perfectly on *Born to R
 
 But it’s more than the beat: “Linda Let Me Be The One” is a perfectly constructed Spectorian girl group song from its lush, romantic backing track to its lyrical melodrama. (I’ve always considered “Linda” to be an answer song of sorts to “Leader of the Pack.”) Even the title and chorus are hat tips to Spector–there’s not a lot of difference between “will you let me be the one” and “won’t you please be my baby.”
 
-*The midnight boys are outside scraping tears up off the street*
-*Standing guard beneath the window where only Linda sleeps*
-*The leader is a kid named Eddie walking like an angel in defeat*
-*He trashes her old man’s car, slashes Linda’s name in the seat*
+*The midnight boys are outside scraping tears up off the street*  
+*Standing guard beneath the window where only Linda sleeps*  
+*The leader is a kid named Eddie walking like an angel in defeat*  
+*He trashes her old man’s car, slashes Linda’s name in the seat*  
 *Calling out:*
 
-*Linda, will you let me be the one*
-*Linda, will you let me be the one*
-*Linda, will you let me be the one*
+*Linda, will you let me be the one*  
+*Linda, will you let me be the one*  
+*Linda, will you let me be the one*  
 *Linda, will you let me be the one*
 
 Eddie certainly isn’t the first of Bruce’s bad boy protagonists, and he wouldn’t be the last. But geez, someone needs to give poor Eddie some dating tips. I’m no one’s Casanova, but I know that vandalizing a girl’s father’s car probably isn’t the best way to win her affection.
@@ -29,9 +29,9 @@ There’s almost certainly some unstated backstory here: we can assume that like
 
 That’s a lot of information conveyed in just five lines. It’s a brilliant set-up, but if we’re honest, the rest of the song never quite lives up to either the standard or the premise of that beautiful first verse.
 
-*In a room full of contenders… Eddie spars*
-*‘Til he drops to his bed and surrenders draped in the scarves*
-*He stole from Linda’s bedroom the night he laid at her feet*
+*In a room full of contenders… Eddie spars*   
+*‘Til he drops to his bed and surrenders draped in the scarves*  
+*He stole from Linda’s bedroom the night he laid at her feet*  
 *When the midnight boys were stranded down on Cason Street*
 
 There’s something distractingly curious about that first line: the “…Eddie spars” is so disconnected from the rest of the lyric that we can intuitively sense that something else was meant to go in the empty space.
@@ -50,9 +50,9 @@ If the second verse lyrically stumbles, the bridge makes up for it with what cou
 
 Bruce’s final verse offers no resolution and only hints at absolution (along with a “[Spare Parts](https://estreetshuffle.com/index.php/2019/01/08/roll-of-the-dice-spare-parts/)” foreshadow in the third line):
 
-*In the basement of St. Mary’s, Eddie hides from the rain*
-*In with the stolen sisters ’til the streets are dry again*
-*Talking fast cars and spare parts, empty homes and broken hearts*
+*In the basement of St. Mary’s, Eddie hides from the rain*  
+*In with the stolen sisters ’til the streets are dry again*  
+*Talking fast cars and spare parts, empty homes and broken hearts*  
 *Distant worlds with strange girls and kneeling with Linda in the dark*
 
 Now that was unexpected. We think we’re about to get either a romantic reunion or a tragic break-up, but the die was cast before the song even started. “Linda Let Me Be The One” is a post-breakup song, so poor Eddie looks to the church to provide solace for his heartbreak.
@@ -74,9 +74,9 @@ But while Bruce may have kept “Linda” in the vault until 1998, he liberated 
 (I have no idea why he thought they were written twenty years apart though. It was five at most.)
 
 **Linda Let Me Be The One  
-**Recorded:** May-July, 1975<br>
-**Released:** *Tracks* (1998)<br>
-**First performed:** April 29, 2014 (Sunrise, FL)<br>
+**Recorded** May-July, 1975  
+**Released:** *Tracks* (1998)  
+**First performed:** April 29, 2014 (Sunrise, FL)  
 **Last performed:** April 29, 2014 (Sunrise, FL)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

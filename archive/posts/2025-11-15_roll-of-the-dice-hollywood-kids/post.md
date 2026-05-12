@@ -12,23 +12,23 @@ Not much I can say about this track. It’s never been released in any format, a
 
 Lyrically, it fits right in with Bruce’s early work, rife with alliteration…
 
-*Lonely hard-head losers dressed in the tinsel of the times*
+*Lonely hard-head losers dressed in the tinsel of the times*  
 *Learn all the latest lines and the order in which they come*
 
 …and colorful imagery limning seamy street life.
 
-*So perfumed sweet and so obscene*
+*So perfumed sweet and so obscene*  
 *Like the fancy dancers of our dirty green  
-Oh they know hello and goodbye but not what goes in between*
+Oh they know hello and goodbye but not what goes in between*  
 *Yeah, and its such a scene on Saturday night*
 
 For most of the song, it seems like “Hollywood Kids” is just a street scene painting without any real narrative or message, perhaps simply a songwriting practice exercise.
 
 …and then the last verse hits:
 
-*And on Monday here I stand alone on this littered stage*
-*Like an animal who forgot he was in a cage*
-*Just a restless soul, just waiting for ’em to come*
+*And on Monday here I stand alone on this littered stage*  
+*Like an animal who forgot he was in a cage*  
+*Just a restless soul, just waiting for ’em to come*  
 *Them Hollywood kids each and everyone*
 
 And the song flips on itself, as you realize that you have indeed been listening to a painting, as seen from the vantage point of the singer who now stands alone on a Monday-morning stage, waiting…. just waiting, restlessly, for those so-foreign Hollywood Kids to come back. Waiting, with nowhere to go, like an animal who forgot he was in a cage.
@@ -38,8 +38,8 @@ A twist of alienation and fascination that could only come from a 22-year-old Ne
 As the singer signs off: Yeah, that’s it for that one.
 
 **Hollywood Kids  
-**Recorded:** April 1972<br>
-**Never released**
+**Recorded** April 1972  
+**Never released**  
 **Never performed**
 
 © January 9, 2018

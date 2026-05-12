@@ -10,7 +10,7 @@ Which was precisely Bruce’s intention of course, but I didn’t know that then
 
 A day or two later, I listened to *Lucky Town* again. And this time, I must have been paying closer attention, because when I listened to “Local Hero,” I laughed out loud. *There you are*, I thought: “Local Hero” is such a delightfully meta commentary on the downhill side of fame that I still chuckle every time I hear it, even decades later. It also has some of Bruce’s cleverest, most incisive lyrics on record.
 
-[https://www.youtube.com/embed/BExTE1vDhxs?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/BExTE1vDhxs?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BExTE1vDhxs)
 
 It’s funny to think about it now, but there actually was a time when it seemed–both to fans and to the artist–that Bruce Springsteen was in his post-stardom period. His fame and popularity peaked during the *Born in the U.S.A.* era, and his critical acclaim crested with his follow-up, *Tunnel of Love*. Four years is like a generation in music, and that’s how long it had been since Bruce had released an album. “Local Hero” chronicles what it must have felt like to be Bruce at that time. (The irony, of course, is that Bruce was only in a mid-career lull–he’d go on to even greater heights in terms of stature and ticket sales if not in album sales–but it would take the better part of a decade to reclaim his position.)
 
@@ -18,17 +18,17 @@ I’ve read takes on “Local Hero” that interpret the song literally–and ce
 
 Let’s dig into the lyrics, but let’s first take one more listen to the song–this time in one of its earliest live performances, on *MTV Unplugged*.
 
-[https://www.youtube.com/embed/96abVWWm8UA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/96abVWWm8UA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=96abVWWm8UA)
 
 To me, this live 1992 live performance will always be the definitive version of the song. His new band is firing on all cylinders, and “Local Hero” in particular seems perfectly suited to their sound. While the E Street Band would tackle it in later years, they would never match the lean taut power of the 1992-93 band arrangement, and Bruce in particular seems so carefree and liberated from the audience expectations that he’d carried for so long. There’s a *freedom* in this performance that seems very much tied to this period in Bruce’s career.
 
 It probably had a lot to do with the song, though, as well. It had to be therapeutic to write, much less sing, lyrics like these:
 
-*I was driving through my hometown, I was just kinda killing time*
-*When I seen a face staring out of a black velvet painting from the window of the Five And Dime*
-*I couldn’t quite recall the name but the pose looked familiar to me*
-*So I asked the salesgirl “Who was that man between the Doberman and Bruce Lee?”*
-*She said “Just a local hero”, “Local hero” she said with a smile*
+*I was driving through my hometown, I was just kinda killing time*  
+*When I seen a face staring out of a black velvet painting from the window of the Five And Dime*  
+*I couldn’t quite recall the name but the pose looked familiar to me*  
+*So I asked the salesgirl “Who was that man between the Doberman and Bruce Lee?”*  
+*She said “Just a local hero”, “Local hero” she said with a smile*  
 *“Yeah a local hero, he used to live here for a while”*
 
 Yeah, this was based on an actual event that preceded Bruce’s move from New Jersey to California (although I personally believe the conversation is too cute to be anything but apocryphal). And there’s certainly something appealing in the notion of time having moved on so much that even in his own stomping grounds, Bruce might go unrecognized, considered just a has-been local hero.
@@ -37,29 +37,29 @@ But read it again, and this time consider his hometown as “rock music” inste
 
 Bruce had very much been killing time in the realm of popular music; for some time, he’d had nothing to say and no compelling reason to say it. His life had changed so much–he was now a parent and a husband, he’d moved to California, he’d broken up his band–that it’s easy to see how he might be unrecognizable to himself. While he might not be finished as a musician, he might very well have believed that he was past his icon phase. He’d blown it all up to free himself and try something new.
 
-*I met a stranger dressed in black at the train station, he said “Son your soul can be saved”*
-*There’s beautiful women, nights of low living, and some dangerous money to be made*
-*There’s a big town ‘cross the whiskey line and if we turn the right cards up*
-*Well they make us boss, the devil pays off, and them folks that are real hard up*
-*They get their local hero, yeah somebody with the right style*
+*I met a stranger dressed in black at the train station, he said “Son your soul can be saved”*  
+*There’s beautiful women, nights of low living, and some dangerous money to be made*  
+*There’s a big town ‘cross the whiskey line and if we turn the right cards up*  
+*Well they make us boss, the devil pays off, and them folks that are real hard up*  
+*They get their local hero, yeah somebody with the right style*  
 *They get their local hero, yeah somebody with just the right smile*
 
 Now certainly this verse is symbolic, but it’s also insightful. Bruce saw himself as having made a deal with the devil, and it paid off. He’d achieved fame, fortune, adventure, and misadventure–he’d was made the “boss” (a clever wink, there) and became the hero that music needed at that time and place.
 
 The bridge that follows is one of Bruce’s best ever:
 
-*Well I learned my job, I learned it well*
-*Fit myself with religion and a story to tell*
-*First they made me the king then they made me pope*
+*Well I learned my job, I learned it well*  
+*Fit myself with religion and a story to tell*  
+*First they made me the king then they made me pope*  
 *Well then they brought the rope*
 
 How fortunate to be self-aware enough to know the arc of your life as you’re travelling along it. The irony, of course, is that Bruce was still too much on the curve to know that he hadn’t been made pope yet, only king. Papacy still awaited off in the future, and the rope… well, we’ve seen hints of it from time to time, but Bruce has escaped the noose time and again as well.
 
 Bruce’s final verse trades the humor for courageous confession:
 
-*I woke to a gypsy girl saying “Drink this”, well my hands had lost all sensation*
-*These days I’m feeling all right except I can’t tell my courage from my desperation*
-*From the tainted chalice well I drunk some heady wine*
+*I woke to a gypsy girl saying “Drink this”, well my hands had lost all sensation*  
+*These days I’m feeling all right except I can’t tell my courage from my desperation*  
+*From the tainted chalice well I drunk some heady wine*  
 *Tonight I’m laying here but there’s something in my ear saying there’s a little town just beneath the floodline*
 
 Bruce intentionally uprooted his life and career, and he was happy with his new life, home, and family. But if it seemed like he’d made peace with post-stardom… well, his muse may have gone walkabout, but she was never far away. That gypsy girl kept feeding him sips of wine, the same “wine” he’d drink in while on stage, in his element. And while he might never play to the crowds he’d entertained at his peak, there was always a little town… and a little town… and a little town. All waiting for him.
@@ -82,20 +82,20 @@ The first 21st century appearance of “Local Hero” was at the tail end of the
 
 But while Soozie’s violin was a nice addition to the arrangement, the performance was stately, and Bruce seemed disconnected from the spirit of the song. If he was feeling it, it didn’t show.
 
-[https://www.youtube.com/embed/PDHsvzZGpPk?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/PDHsvzZGpPk?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=PDHsvzZGpPk)
 
 It was almost a full decade before Bruce tried again, this time by request on the Wrecking Ball Tour in Leeds. Bruce certainly had fun with the arrangement, particularly with the horns, and the pro-shot clip below is a hoot to watch. But by now, firmly cemented in rock and roll immortality, Bruce almost seems sheepish singing it–a cautionary tale that never quite came true in the way he expected it to.
 
-[https://www.youtube.com/embed/ELEGhf7dMJw?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/ELEGhf7dMJw?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ELEGhf7dMJw)
 
-[https://www.youtube.com/embed/4K_YwhK4ffM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/4K_YwhK4ffM?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4K_YwhK4ffM)
 
-[https://www.youtube.com/embed/u45c-Owpl40?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/u45c-Owpl40?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=u45c-Owpl40)
 
-**Local Hero**
-**Recorded:** Late 1991<br>
-**Released:** *Lucky Town* (1992), *In Concert/MTV Plugged* (1993)<br>
-**First performed:** May 6, 1992 (New York City, NY)<br>
-**Last performed:** September 15, 2024 (Asbury Park, NJ)<br>
+**Local Hero**  
+**Recorded:** Late 1991  
+**Released:** *Lucky Town* (1992), *In Concert/MTV Plugged* (1993)  
+**First performed:** May 6, 1992 (New York City, NY)  
+**Last performed:** September 15, 2024 (Asbury Park, NJ)
 
 © January 17, 2019

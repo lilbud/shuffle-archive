@@ -1,18 +1,12 @@
-
-
 It seemed like a good idea at the time.
 
-I mean, I’d written essays on almost all of the songs on at one point or another over the life of the blog,
-
-*L.A. Garage Sessions ’83*
+I mean, I’d written essays on almost all of the songs on *L.A. Garage Sessions ’83* at one point or another over the life of the blog,
 
 Sure there were two (“Follow That Dream” and “Sugarland”) I never got around to, but I knew what my “hook” would be for those songs years ago. I could write them pretty quickly.
 
 And yes, I knew that a couple of the songs differed from their earlier bootleg versions. No worries, I could lightly update those essays.
 
-I convinced myself that in a hour or three, I could polish a ragtag group of essays that would otherwise be destined for “miscellaneous” status into a volume written years the release of the album it examines.
-
-*Roll of the Dice**before*
+I convinced myself that in a hour or three, I could polish a ragtag group of essays that would otherwise be destined for “miscellaneous” status into a *Roll of the Dice* volume written years *before* the release of the album it examines.
 
 How could I resist that?
 
@@ -33,3 +27,5 @@ I discovered that in some cases, I’d put an earlier song’s backstory buried 
 I quickly became mired in confusion and started swapping paragraphs between essays like body parts in Frankenstein’s monster. And the essays started to reflect it. So I started polishing, scrubbing, deleting, rewriting, to the point where in some cases I lost track of what was original and what was new.
 
 The upshot is that this book contains more new writing than I ever intended, something I’m not likely to repeat in this year’s remaining volumes.
+
+ 

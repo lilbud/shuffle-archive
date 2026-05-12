@@ -28,40 +28,40 @@ In early performance, Bruce called for the audience to create lots of “party n
 
 “Sherry Darling” is raucous by design–we have too much fun to take issue with the callousness and short fuse of the protagonist, who is nearing his limit of what he’ll put up with for his girl:
 
-*Your Mamma’s yapping in the back seat*
-*Tell her to push over and move them big feet*
-*Every Monday morning I gotta drive her down to the unemployment agency*
-*Well this morning I ain’t fighting, tell her I give up*
-*Tell her she wins if she’ll just shut up*
+*Your Mamma’s yapping in the back seat*  
+*Tell her to push over and move them big feet*  
+*Every Monday morning I gotta drive her down to the unemployment agency*  
+*Well this morning I ain’t fighting, tell her I give up*  
+*Tell her she wins if she’ll just shut up*  
 *But it’s the last time that she’s gonna be riding with me*
 
 He talks a good game, doesn’t he? But listen to his tone soften toward the end of the chorus, and you can’t help but suspect he’s perhaps bluffing a bit:
 
-*And you can tell her there’s a hot sun beating on the black top*
-*She keeps talking she’ll be walking that last block*
-*And she can take a subway back to the ghetto tonight*
-*Well I got some beer and the highway’s free*
-*And I got you and baby you’ve got me*
+*And you can tell her there’s a hot sun beating on the black top*  
+*She keeps talking she’ll be walking that last block*  
+*And she can take a subway back to the ghetto tonight*  
+*Well I got some beer and the highway’s free*  
+*And I got you and baby you’ve got me*  
 *Hey, hey, hey, what you say, Sherry Darling*
 
 When you’re young, and you have nothing but time, a car, a girl, and some beer… it’s pretty clear that our hero’s frustration is less about his girl’s mom, and more about the fleetingness of summer:
 
-*Now there’s girls melting on the beach*
-*And they’re so fine but so out of reach*
-*‘Cause I’m stuck in traffic down here on 53rd Street*
-*Now Sherry my love for you is real*
-*But I didn’t count on this package deal*
+*Now there’s girls melting on the beach*  
+*And they’re so fine but so out of reach*  
+*‘Cause I’m stuck in traffic down here on 53rd Street*  
+*Now Sherry my love for you is real*  
+*But I didn’t count on this package deal*  
 *And baby this car just ain’t big enough for her and me*
 
 There’s just a *bit* of doubt here: so many girls, so little summertime! Is Sherry really worth the aggravation?
 
 Bruce answers that in the last chorus, where the protagonist suddenly lapses into romantic rhapsody:
 
-*Well let there be sunlight, let there be rain*
-*Let the brokenhearted love again*
-*Sherry, we can run with our arms open wide before the tide*
-*To all the girls down at Sacred Heart*
-*And all you operators back in the park*
+*Well let there be sunlight, let there be rain*  
+*Let the brokenhearted love again*  
+*Sherry, we can run with our arms open wide before the tide*  
+*To all the girls down at Sacred Heart*  
+*And all you operators back in the park*  
 *Say hey, hey, hey, what you say, Sherry Darling*
 
 Sorry, girls–and enjoy your conquests, you operators–our guy has Sherry, and that’s all he needs and wants.
@@ -72,16 +72,16 @@ And can we talk about the band for a minute? It takes a lot of practice and a to
 
 “Sherry Darling” continues to be a summer staple–outside of both River tours (1980-81 and 2016), it pretty much only ever gets performed in the hotter months–and when she comes out, you know you’re in for a loose, fun evening.
 
-**Bonus clip:**
+**Bonus clip:** 
 
 On his 2005 solo tour stop in Grand Rapids, Bruce performed “Sherry Darling” by himself on electric piano for the first and only time. It’s novel, but far from essential. “Sherry Darling” needs a peanut gallery.
 
 [Watch on Youtube: Bruce Springsteen - Sherry Darling](https://www.youtube.com/watch?v=TlYjluwtyls)
 
-**Sherry Darling**
-**Recorded:** May 1979 – April 1980<br>
-**Released:** *The River* (1980)<br>
-**First performed:** August 4, 1978 (Charleston, WV)<br>
+**Sherry Darling**  
+**Recorded:** May 1979 – April 1980  
+**Released:** *The River* (1980)  
+**First performed:** August 4, 1978 (Charleston, WV)  
 **Last performed:** August 30, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -12,9 +12,9 @@ Let’s take a listen to the under-recognized and under-appreciated “Shut Out 
 
 Although it’s a much quieter song than its better-known A-side, it’s just as powerful, and perhaps even more harrowing. It’s certainly more cinematic, loaded with small details that project a clear scene in our mind’s eye:
 
-*The runway rushed up at him as he felt the wheels touch down*
-*He stood out on the blacktop and took a taxi into town*
-*He got out down on Main Street and went into a local bar*
+*The runway rushed up at him as he felt the wheels touch down*  
+*He stood out on the blacktop and took a taxi into town*  
+*He got out down on Main Street and went into a local bar*  
 *He bought a drink and found a seat in a corner in the dark*
 
 “Shut Out the Light” is the story of Johnson “Johnny” Lineir (we’ll learn his full name towards the end of the song), and our story begins at the end of another: Johnny has just landed on hometown soil after a tour of duty in Vietnam. (At no point in the song does Bruce actually state this, but context is more than enough for us to arrive at this conclusion.)
@@ -29,9 +29,9 @@ It’s also important to note the details Bruce *doesn’t* include: no family o
 
 The action shifts now, and Johnny’s wife (or at least his girlfriend) briefly becomes our point-of-view character.
 
-*Well she called up her mama to make sure the kids were out of the house*
-*She checked herself out in the dining room mirror and undid an extra button on her blouse*
-*He felt her lying next to him when the clock said 4 a.m.*
+*Well she called up her mama to make sure the kids were out of the house*  
+*She checked herself out in the dining room mirror and undid an extra button on her blouse*  
+*He felt her lying next to him when the clock said 4 a.m.*  
 *He was staring at the ceiling, he couldn’t move his hands*
 
 This is a remarkable verse. Bruce accomplishes a lot in four artful lines, so let’s take a moment to admire a songwriter at the peak of his craft.
@@ -44,18 +44,18 @@ The magic of this verse is in the way Bruce conveys so much inner emotion–both
 
 In the chorus–which never varies throughout the song–Johnny reverts to a small, frightened boy, calling to his mother for protection and comfort, pleading for the lights to remain on.
 
-*Oh Mama, Mama, Mama, come quick*
-*I’ve got the shakes and I’m gonna be sick*
-*Throw your arms around me in the cold dark night*
-*Hey now, Mama, don’t shut out the light*
-*Don’t you shut out the light, don’t you shut out the light*
+*Oh Mama, Mama, Mama, come quick*  
+*I’ve got the shakes and I’m gonna be sick*  
+*Throw your arms around me in the cold dark night*  
+*Hey now, Mama, don’t shut out the light*  
+*Don’t you shut out the light, don’t you shut out the light*  
 *Don’t you shut out the light, don’t you shut out the light*
 
 In the remaining verse, Johnny attempts to restart his life, and during the day, at least, things seem hopeful.
 
-*Well on his porch they stretched a banner that said “Johnny, Welcome Home”*
-*Bobby pulled his Ford out of the garage and they polished up the chrome*
-*His mama said, “Johnny, oh Johnny, I’m so glad to have you back with me”*
+*Well on his porch they stretched a banner that said “Johnny, Welcome Home”*  
+*Bobby pulled his Ford out of the garage and they polished up the chrome*  
+*His mama said, “Johnny, oh Johnny, I’m so glad to have you back with me”*  
 *His pa said he was sure they’d give him his job back down at the factory*
 
 There are at least two things worth noting in this verse. The first is the second line, which Bruce will recycle more than two decades later in “Gypsy Biker,” which itself bears quite a bit of thematic resemblance to “Shut Out the Light.”
@@ -64,10 +64,10 @@ The second is Johnny’s pa’s optimism. Because “Shut Out the Light” was p
 
 If you noticed at this point that Bruce breaks the verse-verse-chorus pattern that he established at the beginning of the song with a simple verse-chorus pattern hereafter, well done. Bruce actually did record the entire song in verse-verse-chorus, but presumably for time (and perhaps for content), he edited out verses four and six from the final version. It’s disappointing, though, because the verse that Bruce excised at this point makes it painfully clear how much Johnny is suffering. Johnny resorts to drugs at night to keep the pain away:
 
-*Now every evening, well just after supper time*
-*He’d go into the back bedroom and he’d lock the door behind*
-*He’d lie with a telephone wire stretched out across a chair*
-*Just him and a few bad habits he’d brought back from over there*
+*Now every evening, well just after supper time*  
+*He’d go into the back bedroom and he’d lock the door behind*  
+*He’d lie with a telephone wire stretched out across a chair*  
+*Just him and a few bad habits he’d brought back from over there* 
 
 This earlier version was eventually released decades later on *L.A. Garage Sessions ’83.* It includes the extra verses but omits Soozie Tyrell’s contribution.
 
@@ -75,16 +75,16 @@ This earlier version was eventually released decades later on *L.A. Garage Sessi
 
 We’re not certain whether the final verse is dream or reality…
 
-*Well deep in a dark forest, a forest filled with rain*
-*Beyond a stretch of Maryland pines, there’s a river without a name*
-*In the cold black water now Johnson Lineir stands*
+*Well deep in a dark forest, a forest filled with rain*  
+*Beyond a stretch of Maryland pines, there’s a river without a name*  
+*In the cold black water now Johnson Lineir stands*  
 *He stares across the lights of the city and dreams of where he’s been*
 
 …but the message itself is clear: Johnny feels far removed from home, and in the darkness of his dreams, he hasn’t left Vietnam. In the original studio recording released on *L.A. Garage Sessions ’83*, there’s another verse that Bruce excised for the final version. In it, the stars try to penetrate the darkness only to be engulfed and extinguished by the void–surely a metaphor for the inability of Johnny’s family and friends to rescue him from the dark emptiness he feels inside.
 
-*As the grey moon disappears beyond that town hillside*
-*Stars rise, grow brighter then gone, gone, gone in a black and endless sky*
-*Like the others before him he’d gone and done his best*
+*As the grey moon disappears beyond that town hillside*  
+*Stars rise, grow brighter then gone, gone, gone in a black and endless sky*  
+*Like the others before him he’d gone and done his best*  
 *Now he watches the water of that nameless river rise above his chest*
 
 Is that final line metaphorical or literal? Is Johnny struggling to stave off his dread or is he considering surrendering himself to a fatal current? Either way, had Bruce chosen to end the song with those lines, “Shut Out the Light” would be even more unsettling than it already is.
@@ -116,10 +116,10 @@ Here’s Bruce’s last performance of “Shut Out the Light” to date, a sombe
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jq-DS8-CUiI)
 
-**Shut Out the Light**
-**Recorded:** January 19, 1983<br>
-**Released:** *Tracks* (1998) “Born in the U.S.A.” (B-side, 1984); *L.A. Garage Sessions ’83* (2025)<br>
-**First performed:** October 22, 1984 (Oakland, CA)<br>
-**Last performed:** August 7, 2005 (Milwaukee, WI)<br>
+**Shut Out the Light  
+**Recorded** January 19, 1983  
+**Released:** *Tracks* (1998) “Born in the U.S.A.” (B-side, 1984); *L.A. Garage Sessions ’83* (2025)  
+**First performed:** October 22, 1984 (Oakland, CA)  
+**Last performed:** August 7, 2005 (Milwaukee, WI)
 
 © October 14, 2020 / December 21, 2025

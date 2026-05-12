@@ -1,149 +1,111 @@
-
-
-John Hammond sends the demos that Bruce recorded on May 3 to Clive Davis, president of Columbia Records. He includes a note that reads:
-
-**1972:**
-
-
+**1972:** John Hammond sends the demos that Bruce recorded on May 3 to Clive Davis, president of Columbia Records. He includes a note that reads:
 
 *Here is a copy of a couple of the reels of Bruce Springsteen, a very talented kid who recorded these twelve songs in a period of around two hours last Wednesday . . . I think we better act quickly because many people heard the boy at The Gaslight so that his fame is beginning to spread.*
 
-Bruce records an early take of “Linda Let Me Be the One” at the Record Plant in New York City.
+**1975:** Bruce records an early take of “Linda Let Me Be the One” at the Record Plant in New York City.
 
-**1975:** <https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3>
+[https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3?_=2)
 
-Bruce continues his Chicken Scratch Tour of the south with a show at Louisiana State University in Baton Rouge.
+<https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3>
 
-**1976:**
+**1976:** Bruce continues his Chicken Scratch Tour of the south with a show at Louisiana State University in Baton Rouge.
 
+![](https://estreetshuffle.com/wp-content/uploads/2021/05/1976-0508.jpg)
 
+**1981:** Night Two in Stockholm for the original River Tour opens with Bruce’s last known performance of “Run Through the Jungle” and features the European debut of “The Price You Pay.”
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1976-0508.jpg?resize=183%2C275&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - Live in Stockholm - May 8th, 1981](https://www.youtube.com/watch?v=9sE_NKOV_8o)
 
-Night Two in Stockholm for the original River Tour opens with Bruce’s last known performance of “Run Through the Jungle” and features the European debut of “The Price You Pay.”
+[Watch on Youtube: Bruce Springsteen - Point Blank 1981 (Intro Speech, audio)](https://www.youtube.com/watch?v=c79ved0jczQ)
 
-**1981:**
+**1982:** Bruce guests with Beaver Brown at The Fast Lane in Asbury Park for “Jole Blon,” “Jersey Girl,” “Lucille,” and “Around and Around.”
 
-[https://www.youtube.com/embed/9sE_NKOV_8o?feature=oembed](https://www.youtube.com/embed/9sE_NKOV_8o?feature=oembed)
+[Watch Video Highlight](https://videopress.com/embed/FYSJTZ6R?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://www.youtube.com/embed/c79ved0jczQ?feature=oembed](https://www.youtube.com/embed/c79ved0jczQ?feature=oembed)
+![](https://estreetshuffle.com/wp-content/uploads/2018/05/1982-0508.jpg)
 
-Bruce guests with Beaver Brown at The Fast Lane in Asbury Park for “Jole Blon,” “Jersey Girl,” “Lucille,” and “Around and Around.”
+**1992:** MTV’s *Week in Rock* features an interview with Bruce to promote his upcoming tour and *Saturday Night Live* appearance.
 
-**1982:**
+[Watch on Youtube: Week in Rock - Bruce Springsteen, May 8, 1992](https://www.youtube.com/watch?v=RPaGEiLEgFE)
 
-[https://videopress.com/embed/FYSJTZ6R?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/FYSJTZ6R?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+**1996:** Bruce wraps the first European leg of his solo acoustic tour with a show in Madrid. After the show, Bruce heads to a local nightclub where Sony is holding a reception for him. At the party, Bruce receives his official award for *The Ghost of Tom Joad* reaching platinum sales status in Europe. Watch the Spanish TV interview footage below, along with video from the show.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1982-0508.jpg?resize=499%2C310&amp;ssl=1)
+[Watch on Youtube: bruce springsteen madrid 96 tve2 1part](https://www.youtube.com/watch?v=9poZSNAqnVo)
 
-MTV’s features an interview with Bruce to promote his upcoming tour and appearance.
+[Watch on Youtube: bruce springsteen madrid 96 tve2 2part](https://www.youtube.com/watch?v=JxriAH01Gvc)
 
-**1992:** *Week in Rock**Saturday Night Live*
+[Watch on Youtube: Bruce Springsteen - Ghost of Tom Joad on Spanish TV, May 1996](https://www.youtube.com/watch?v=mutcojFEMwk)
 
-[https://www.youtube.com/embed/RPaGEiLEgFE?feature=oembed](https://www.youtube.com/embed/RPaGEiLEgFE?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Straight Time, Madrid, May 8, 1996](https://www.youtube.com/watch?v=VzYVorPmGiE)
 
-Bruce wraps the first European leg of his solo acoustic tour with a show in Madrid. After the show, Bruce heads to a local nightclub where Sony is holding a reception for him. At the party, Bruce receives his official award for reaching platinum sales status in Europe. Watch the Spanish TV interview footage below, along with video from the show.
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/La_Prensa_Mon__May_13__1996_-scaled.jpg)
 
-**1996:** *The Ghost of Tom Joad*
+**2000:** Bruce and the E Street band play their second of two shows at the Hartford Civic Center, opening with the first performance of “Roulette” in almost twelve years.
 
-[https://www.youtube.com/embed/9poZSNAqnVo?feature=oembed](https://www.youtube.com/embed/9poZSNAqnVo?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Live In Hartford 08/05/2000 - Full Concert (4K Remastered)](https://www.youtube.com/watch?v=edCybrLZ0yg)
 
-[https://www.youtube.com/embed/JxriAH01Gvc?feature=oembed](https://www.youtube.com/embed/JxriAH01Gvc?feature=oembed)
-
-[https://www.youtube.com/embed/mutcojFEMwk?feature=oembed](https://www.youtube.com/embed/mutcojFEMwk?feature=oembed)
-
-[https://www.youtube.com/embed/VzYVorPmGiE?feature=oembed](https://www.youtube.com/embed/VzYVorPmGiE?feature=oembed)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/La_Prensa_Mon__May_13__1996_-scaled.jpg?resize=758%2C553&amp;ssl=1)
-
-Bruce and the E Street band play their second of two shows at the Hartford Civic Center, opening with the first performance of “Roulette” in almost twelve years.
-
-**2000:**
-
-[https://www.youtube.com/embed/edCybrLZ0yg?feature=oembed](https://www.youtube.com/embed/edCybrLZ0yg?feature=oembed)
+[https://estreetshuffle.com/wp-content/uploads/2025/05/101-Roulette.flac?_=3](https://estreetshuffle.com/wp-content/uploads/2025/05/101-Roulette.flac?_=3)
 
 <https://estreetshuffle.com/wp-content/uploads/2025/05/101-Roulette.flac>
 
-[https://www.youtube.com/embed/AlovvAjOezk?feature=oembed](https://www.youtube.com/embed/AlovvAjOezk?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Leavin' Train 2000-05-08 Hartford Soundcheck](https://www.youtube.com/watch?v=AlovvAjOezk)
 
-[https://www.youtube.com/embed/bxnQIpfDOTU?feature=oembed](https://www.youtube.com/embed/bxnQIpfDOTU?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Brilliant Disguise (Live 2000 05 08)](https://www.youtube.com/watch?v=bxnQIpfDOTU)
 
-[https://www.youtube.com/embed/pai9_124wjk?feature=oembed](https://www.youtube.com/embed/pai9_124wjk?feature=oembed)
+[Watch on Youtube: Bruce Springsteen Land Of Hope And Dreams (Live 2000 05 08)](https://www.youtube.com/watch?v=pai9_124wjk)
 
-The second of two Rising shows at Stadion Feyenoord in Rotterdam features a solo acoustic “Darkness on the Edge of Town.”
+**2003:** The second of two Rising shows at Stadion Feyenoord in Rotterdam features a solo acoustic “Darkness on the Edge of Town.”
 
-**2003:**
+[Watch on Youtube: Rotterdam 08/05/2003](https://www.youtube.com/watch?v=videoseries)
 
-[https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD22QfINKskZMkqSLOVo7RF](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD22QfINKskZMkqSLOVo7RF)
+**2005:** *Devils & Dust* captures the Number One slot on the U.S. album chart, Bruce’s 13th studio album to accomplish that feat.
 
-captures the Number One slot on the U.S. album chart, Bruce’s 13th studio album to accomplish that feat.
+**2006:** As the Seeger Sessions Tour rolls into London, Bruce plays his first show at the Hammersmith Odeon (now called the Hammersmith Apollo) since his original famed 1975 stand.
 
-**2005:** *Devils & Dust*
+[Watch on Youtube: Bruce 'The Boss' Springsteen at Hammersmith May 8th 2006](https://www.youtube.com/watch?v=niCOPuhUF50)
 
-As the Seeger Sessions Tour rolls into London, Bruce plays his first show at the Hammersmith Odeon (now called the Hammersmith Apollo) since his original famed 1975 stand.
+**2009:** Bruce takes the Working on a Dream Tour to Penn State University, where he performs “My Generation” for the first time. The set also includes the tour premieres of “This Life,” “Bobby Jean,” and “Wooly Bully.”
 
-**2006:**
+[Watch on Youtube: Bruce Springsteen - My Generation - Live from University Park - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=21ShrNP31CY)
 
-[https://www.youtube.com/embed/niCOPuhUF50?feature=oembed](https://www.youtube.com/embed/niCOPuhUF50?feature=oembed)
+[Watch on Youtube: Springsteen Wooly Bully Penn State U 20090508](https://www.youtube.com/watch?v=Oj5rS8-3xPI)
 
-Bruce takes the Working on a Dream Tour to Penn State University, where he performs “My Generation” for the first time. The set also includes the tour premieres of “This Life,” “Bobby Jean,” and “Wooly Bully.”
+![](https://estreetshuffle.com/wp-content/uploads/2024/05/Centre_Daily_Times_Sat__May_9__2009_-scaled.jpg)
 
-**2009:**
+**2013:** The second Wrecking Ball show in Turku features the live premiere of “[Wages of Sin](https://estreetshuffle.com/index.php/2020/02/07/roll-of-the-dice-wages-of-sin/),” the tour debut of “I’ll Work For Your Love,” and a rare “Ain’t Good Enough for You.” (photo credit: Jan Alin)
 
-[https://www.youtube.com/embed/21ShrNP31CY?feature=oembed](https://www.youtube.com/embed/21ShrNP31CY?feature=oembed)
+![](https://estreetshuffle.com/wp-content/uploads/2019/05/jan.jpg)
 
-[https://www.youtube.com/embed/Oj5rS8-3xPI?feature=oembed](https://www.youtube.com/embed/Oj5rS8-3xPI?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - "Wages of Sin" (Turku 05/08/13)](https://www.youtube.com/watch?v=cVVeytSe2wc)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Centre_Daily_Times_Sat__May_9__2009_-scaled.jpg?resize=758%2C818&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen 2013-05-08 Turku - Ain't Good Enough For You](https://www.youtube.com/watch?v=mp5c1fVFNyc)
 
-The second Wrecking Ball show in Turku features the live premiere of “,” the tour debut of “I’ll Work For Your Love,” and a rare “Ain’t Good Enough for You.”
+[Watch on Youtube: Bruce Springsteen 2013-05-08 Turku - Blinded By The Light](https://www.youtube.com/watch?v=c00wiFx8Lv0)
 
-**2013:** [Wages of Sin](http://estreetshuffle.com/index.php/2020/02/07/roll-of-the-dice-wages-of-sin/) (photo credit: Jan Alin)
+[Watch on Youtube: Bruce Springsteen -Open All Night- Turku 08.05.2013](https://www.youtube.com/watch?v=T37po4PoDGA)
 
+[Watch on Youtube: Bruce Springsteen Turku 08/05/2013 Full Concert](https://www.youtube.com/watch?v=z9gAZPL3vIk)
 
+**2017:** At The Upstage in Asbury Park, Bruce films an interview for the documentary *Just Before the Dawn: Riot, Redemption, Rock ‘n’ Roll*.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/05/jan.jpg?resize=758%2C569&amp;ssl=1)
+[Watch on Youtube: Just Before The Dawn Trailer](https://www.youtube.com/watch?v=Ion1vlKrsgM)
 
-[https://www.youtube.com/embed/cVVeytSe2wc?feature=oembed](https://www.youtube.com/embed/cVVeytSe2wc?feature=oembed)
+[Watch on Youtube: APTV Preview "Asbury Park: Riot. Redemption. Rock 'N Roll."](https://www.youtube.com/watch?v=5-lZZEYv7Ns)
 
-[https://www.youtube.com/embed/mp5c1fVFNyc?feature=oembed](https://www.youtube.com/embed/mp5c1fVFNyc?feature=oembed)
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-[https://www.youtube.com/embed/c00wiFx8Lv0?feature=oembed](https://www.youtube.com/embed/c00wiFx8Lv0?feature=oembed)
+**2019:** Three days after joining them on stage in Los Angeles, Bruce guest-stars with Little Steven & The Disciples of Soul at the Paramount Theater in Asbury Park, playing the same three songs as in Los Angeles.
 
-[https://www.youtube.com/embed/T37po4PoDGA?feature=oembed](https://www.youtube.com/embed/T37po4PoDGA?feature=oembed)
+[Watch on Youtube: Bruce Springsteen/Stevie Van Zandt - "Tenth Avenue Freeze-Out" - Asbury Park, NJ - 5/8/19](https://www.youtube.com/watch?v=RiMw0dsT8_s)
 
-[https://www.youtube.com/embed/z9gAZPL3vIk?feature=oembed](https://www.youtube.com/embed/z9gAZPL3vIk?feature=oembed)
+[Watch on Youtube: Sun City Bruce Springsteen & Little Steven Paramount Theater Asbury Park, NJ 5/8/2019](https://www.youtube.com/watch?v=CjtJx_imZgs)
 
-At The Upstage in Asbury Park, Bruce films an interview for the documentary .
+[Watch on Youtube: I Don't Want To Go Home Bruce Springsteen & Little Steven Paramount Theater Asbury Park, NJ 5/8/2019](https://www.youtube.com/watch?v=moICCVDSiXM)
 
-**2017:** *Just Before the Dawn: Riot, Redemption, Rock ‘n’ Roll*
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2019-05-08a.jpg)
 
-[https://www.youtube.com/embed/Ion1vlKrsgM?feature=oembed](https://www.youtube.com/embed/Ion1vlKrsgM?feature=oembed)
+![](https://estreetshuffle.com/wp-content/uploads/2020/05/2019-05-08b.jpg)
 
-[https://www.youtube.com/embed/5-lZZEYv7Ns?feature=oembed](https://www.youtube.com/embed/5-lZZEYv7Ns?feature=oembed)
+**2021:** Bruce joins Nona Hendryx and Lauren Onkey on a panel discussion about the work and impact of Dave Marsh.
 
-continues its theatrical run at the Walter Kerr Theater in New York City.
-
-**2018:** *Springsteen on Broadway*
-
-Three days after joining them on stage in Los Angeles, Bruce guest-stars with Little Steven & The Disciples of Soul at the Paramount Theater in Asbury Park, playing the same three songs as in Los Angeles.
-
-**2019:**
-
-[https://www.youtube.com/embed/RiMw0dsT8_s?feature=oembed](https://www.youtube.com/embed/RiMw0dsT8_s?feature=oembed)
-
-[https://www.youtube.com/embed/CjtJx_imZgs?feature=oembed](https://www.youtube.com/embed/CjtJx_imZgs?feature=oembed)
-
-[https://www.youtube.com/embed/moICCVDSiXM?feature=oembed](https://www.youtube.com/embed/moICCVDSiXM?feature=oembed)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2019-05-08a.jpg?resize=697%2C961&amp;ssl=1)
-
-
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2019-05-08b.jpg?resize=758%2C449&amp;ssl=1)
-
-Bruce joins Nona Hendryx and Lauren Onkey on a panel discussion about the work and impact of Dave Marsh.
-
-**2021:**
-
-[https://www.youtube.com/embed/ZlzthgTFGlU?feature=oembed](https://www.youtube.com/embed/ZlzthgTFGlU?feature=oembed)
+[Watch on Youtube: Spotlight Conversation: Bruce Springsteen, Nona Hendryx, and Lauren Onkey](https://www.youtube.com/watch?v=ZlzthgTFGlU)

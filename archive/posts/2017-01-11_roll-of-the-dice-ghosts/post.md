@@ -10,7 +10,7 @@ But it’s also haunted.
 
 So is its singer, from the very first line: *I hear the sound of your guitar coming in from the mystic far.*
 
-[https://www.youtube.com/embed/wIus3pSADi8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/wIus3pSADi8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wIus3pSADi8)
 
 “Ghosts is about the beauty and joy of being in a band,” explained Springsteen when the single first dropped. But he also added, “and the pain of losing one another to illness and time.”
 
@@ -36,14 +36,14 @@ That’s the specter that haunts “Ghosts.” Not the surface joy, nor the subt
 
 We don’t hear it immediately, though. As “Ghosts” opens, Bruce speaks to his fallen friend, who visits him in a dream.
 
-*I hear the sound of your guitar*
-*Coming in from the mystic far*
-*The stone and the gravel in your voice*
+*I hear the sound of your guitar*  
+*Coming in from the mystic far*  
+*The stone and the gravel in your voice*  
 *Come in my dreams and I rejoice*
 
-*It’s your ghost moving through the night*
-*Spirit filled with light*
-*I need you by my side*
+*It’s your ghost moving through the night*  
+*Spirit filled with light*  
+*I need you by my side*  
 *Your love and I’m alive*
 
 It’s territory Bruce has trod elsewhere–even on the same album, in fact. “[I’ll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)” is essentially a song-length expansion of the first verse of “Ghosts.” The notion of ghosts as friendly companions has been part of his private and public musings since at least the passing of Clarence Clemons in 2011.
@@ -56,8 +56,8 @@ Bruce has always known a good hook when he stumbles on one, but even he couldn�
 
 Maybe it’s the catharsis in those words, but it’s all too easy to focus all of our attention on them and miss the remainder of the chorus. That’s where the true haunting begins.
 
-*I can feel the blood shiver in my bones*
-*I’m alive and I’m out here on my own*
+*I can feel the blood shiver in my bones*  
+*I’m alive and I’m out here on my own*  
 *I’m alive and I’m coming home*
 
 Even as he rejoices, Bruce feels a chill in his bones. He’s alive, but the rest of his original bandmates aren’t. (Ordinarily in these essays, I differentiate between the songwriter and his point-of-view character, but “Ghosts” is so clearly autobiographical that it seems silly to do so here.)
@@ -68,19 +68,19 @@ The last line of the chorus–and the song–reveals the song’s haunted heart:
 
 And at this point, his awareness subtly but powerfully transforms the song.
 
-*Old buckskin jacket you always wore*
-*Hangs on the back of my bedroom door*
-*Boots and the spurs you used to ride*
+*Old buckskin jacket you always wore*  
+*Hangs on the back of my bedroom door*  
+*Boots and the spurs you used to ride*  
 *Click down the hall but never arrive*
 
-*Your old Fender Twin from Johnny’s Music downtown*
-*Still set on 10 to burn this house down*
-*Count the band in then kick into overdrive*
+*Your old Fender Twin from Johnny’s Music downtown*  
+*Still set on 10 to burn this house down*  
+*Count the band in then kick into overdrive*  
 *By the end of the set we leave no one alive*
 
-*Ghosts running through the night*
-*Our spirits filled with light*
-*I need, need you by my side*
+*Ghosts running through the night*  
+*Our spirits filled with light*  
+*I need, need you by my side*  
 *Your love and I’m alive*
 
 We notice the continued use of spectral imagery: a pair of cowboy boots clicking down the hall is a delightfully spooky, almost Scooby-Doo-ish trope, but it’s also (we assume) completely apropos for Theiss’ younger self.
@@ -91,14 +91,14 @@ But perhaps we miss the subtle shift of the second chorus: it’s no longer *you
 
 The E Street Band hushes here, so that Bruce might have his final moments of communion with his former bandmates.
 
-*I shoulder your Les Paul and finger the fretboard*
-*I make my vows to those who’ve come before*
-*I turn up the volume, let the spirits be my guide*
+*I shoulder your Les Paul and finger the fretboard*  
+*I make my vows to those who’ve come before*  
+*I turn up the volume, let the spirits be my guide*  
 *Meet you brother and sister on the other side*
 
 This is where past becomes present. Bruce is deliberately vague in his reference to “those who’ve come before.” It refers to both the musical influences of a high-school guitarist and the fallen comrades of a septuagenarian rock star, allowing the singer a moment of temporal confluence before the final chorus and “la la” coda, in which the entire E Street Band join him, playing the roles of ghosts themselves.
 
-[https://www.youtube.com/embed/Lo5QNcFioZ4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/Lo5QNcFioZ4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Lo5QNcFioZ4)
 
 Let’s talk about the band for a moment.
 
@@ -112,9 +112,9 @@ For years, Bruce would tell interviewers he played for each audience in the beli
 
 I’ve seen ten shows–so far–on this tour, each one unique, indelible and impossible to fully capture on YouTube or streaming audio, and certainly not on social media setlist discussion threads.
 
-[https://www.youtube.com/embed/DwkEeHHwnKU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/DwkEeHHwnKU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=DwkEeHHwnKU)
 
-[https://www.youtube.com/embed/GcTMYrx4deU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/GcTMYrx4deU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GcTMYrx4deU)
 
 To criticize a static setlist or hold up a sign for an obscure favorite is to miss the beauty of a living forest because we’re searching for our favorite tree.
 
@@ -129,9 +129,9 @@ Remind yourself, like Bruce does: *I’m alive!*
 Someday we’ll be out there on our own.
 
 **Ghosts**
-**Recorded:** November 2019<br>
-**Released:** *Letter to You* (2020)<br>
-**First performed:** December 12, 2020 (New York City, NY)<br>
-**Last performed:** June 11, 2025 (Berlin, Germany)<br>
+**Recorded** November 2019  
+**Released:** *Letter to You* (2020)  
+**First performed:** December 12, 2020 (New York City, NY)  
+**Last performed:** June 11, 2025 (Berlin, Germany)
 
 © July 6, 2023

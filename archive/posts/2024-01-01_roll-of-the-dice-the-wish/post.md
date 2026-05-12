@@ -1,11 +1,9 @@
-
-
 I’m about to break my own rules–three of them, in fact:
 
 - I’m ignoring the randomizer and choosing the song I want to write about, something I haven’t done since my very first post.
 - I’m focusing less on the history of the song and more on its significance today.
-- There are spoilers below for anyone who hasn’t yet seen you are hereby warned.
-*Springsteen on Broadway–*
+- There are spoilers below for anyone who hasn’t yet seen *Springsteen on Broadway–*you are hereby warned.
+
 
 But I saw Bruce’s Broadway show for the fourth time the other night, and while I frequently teared up the first three times I saw it, I outright bawled last night when Bruce played “The Wish.”
 
@@ -15,62 +13,48 @@ You don’t have to know much of Bruce’s backstory to understand “The Wish.�
 
 Here’s the very first time Bruce played “The Wish,” eight years before he released it officially:
 
-[https://www.youtube.com/embed/8QZMvgAu1lA?feature=oembed](https://www.youtube.com/embed/8QZMvgAu1lA?feature=oembed)
+[Watch on Youtube: Springsteen The Wish](https://www.youtube.com/watch?v=8QZMvgAu1lA)
 
-*Dirty old street all slushed up in the rain and snow*
-*Little boy and his ma shivering outside a rundown music store window*
-*That night on top of a Christmas tree shines one beautiful star*
+*Dirty old street all slushed up in the rain and snow*  
+*Little boy and his ma shivering outside a rundown music store window*  
+*That night on top of a Christmas tree shines one beautiful star*  
 *And lying underneath a brand-new Japanese guitar*
 
-
-
-*I remember in the morning, ma, hearing your alarm clock ring*
-*I’d lie in bed and listen to you gettin’ ready for work*
-*The sound of your makeup case on the sink*
-*And the ladies at the office, all lipstick, perfume and rustlin’ skirts*
+*I remember in the morning, ma, hearing your alarm clock ring*  
+*I’d lie in bed and listen to you gettin’ ready for work*  
+*The sound of your makeup case on the sink*  
+*And the ladies at the office, all lipstick, perfume and rustlin’ skirts*  
 *And how proud and happy you always looked walking home from work*
 
-
-
-*If pa’s eyes were windows into a world so deadly and true*
-*You couldn’t stop me from looking but you kept me from crawlin’ through*
-*And if it’s a funny old world, mama, where a little boy’s wishes come true*
+*If pa’s eyes were windows into a world so deadly and true*  
+*You couldn’t stop me from looking but you kept me from crawlin’ through*  
+*And if it’s a funny old world, mama, where a little boy’s wishes come true*  
 *Well I got a few in my pocket and a special one just for you*
 
-
-
-*It ain’t no phone call on Sunday, flowers or a mother’s day card*
-*It ain’t no house on a hill with a garden and a nice little yard*
-*I got my hot rod down on Bond Street, I’m older but you’ll know me in a glance*
+*It ain’t no phone call on Sunday, flowers or a mother’s day card*  
+*It ain’t no house on a hill with a garden and a nice little yard*  
+*I got my hot rod down on Bond Street, I’m older but you’ll know me in a glance*  
 *We’ll find us a little rock ‘n roll bar and baby we’ll go out and dance*
 
-
-
-*Well it was me in my Beatle boots, you in pink curlers and matador pants*
-*Pullin’ me up of the couch to do the twist for my uncles and aunts*
-*Well I found a girl of my own now, ma, I popped the question on your birthday*
-*She stood waiting on the front porch while you were telling me to get out there*
+*Well it was me in my Beatle boots, you in pink curlers and matador pants*  
+*Pullin’ me up of the couch to do the twist for my uncles and aunts*  
+*Well I found a girl of my own now, ma, I popped the question on your birthday*  
+*She stood waiting on the front porch while you were telling me to get out there*  
 *And say what it was that I had to say*
 
-
-
-*Last night we all sat around laughing at the things that guitar brought us*
-*And I layed awake thinking ’bout the other things it’s brought us*
-*Well tonight I’m takin’s requests here in the kitchen*
-*This one’s for you, ma, let me come right out and say it*
+*Last night we all sat around laughing at the things that guitar brought us*  
+*And I layed awake thinking ’bout the other things it’s brought us*  
+*Well tonight I’m takin’s requests here in the kitchen*  
+*This one’s for you, ma, let me come right out and say it*  
 *It’s overdue, but baby, if you’re looking for a sad song, well I ain’t gonna play it*
 
-Bruce recorded the song during the sessions, but he sat on the song for more than a decade before releasing it on .
+Bruce recorded the song during the [*Tunnel of Love*](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/) sessions, but he sat on the song for more than a decade before releasing it on *Tracks*.
 
-[](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love**Tracks*
-
-[https://www.youtube.com/embed/KgkOPd5nHJk?feature=oembed](https://www.youtube.com/embed/KgkOPd5nHJk?feature=oembed)
+[Watch on Youtube: The Wish (Studio Outtake - 1987)](https://www.youtube.com/watch?v=KgkOPd5nHJk)
 
 Until Broadway, he performed it only rarely–ostensibly because it’s considered uncool to sing about one’s mother (as he’d typically explain by way of introducing the song), but I suspect more likely because the song is so bravely autobiographical. It’s one thing to write so openly; it’s another to perform that way.
 
-The first time I saw was the very first show of the run, and every song was a surprise–but none more so than “The Wish.” I was delighted to finally hear Bruce play it live, and I was touched by how lovingly he described his mom by way of introducing the song.
-
-*Springsteen on Broadway*
+The first time I saw *Springsteen on Broadway* was the very first show of the run, and every song was a surprise–but none more so than “The Wish.” I was delighted to finally hear Bruce play it live, and I was touched by how lovingly he described his mom by way of introducing the song.
 
 I saw the show twice more over the following month, and each time Bruce grew more detailed, confident, and open when he shared stories about his mom. But emotionally, I always felt the emotional heft of the show was when he talked about his dad.
 
@@ -82,18 +66,16 @@ But then he revealed something I’d known and read about but never heard him sa
 
 At that very moment, I instantly recollected a story and video that went viral a few months ago. You might remember it: in the middle of an ordinary Saturday afternoon, Bruce showed up with his mom at the Wonder Bar in Asbury park, where they danced at an Eddie Testa Band concert until the power went out from a storm.
 
-[https://www.youtube.com/embed/KTRrWFRSS3c?feature=oembed](https://www.youtube.com/embed/KTRrWFRSS3c?feature=oembed)
+[Watch on Youtube: Bruce Springsteen, Wonder Bar, Asbury Park, April 15, 2018](https://www.youtube.com/watch?v=KTRrWFRSS3c)
 
 I remembered that video, and I remember wondering why Bruce would brave the cameras and the elements just to dance at a Saturday afternoon bar gig. And as Bruce started to sing, I knew what lyrics were coming up:
 
-*It ain’t no phone call on Sunday, flowers or a mother’s day card*
-*It ain’t no house on a hill with a garden and a nice little yard*
-*I got my hot rod down on Bond Street, I’m older but you’ll know me in a glance*
+*It ain’t no phone call on Sunday, flowers or a mother’s day card*  
+*It ain’t no house on a hill with a garden and a nice little yard*  
+*I got my hot rod down on Bond Street, I’m older but you’ll know me in a glance*  
 *We’ll find us a little rock ‘n roll bar and baby we’ll go out and dance*
 
-And I knew… I absolutely what was about to happen. And I started crying before it even happened.
-
-*knew*
+And I knew… I absolutely *knew* what was about to happen. And I started crying before it even happened.
 
 Bruce got to that verse, and he did something I’d never seen or heard him do.
 
@@ -107,7 +89,7 @@ More silence.
 
 And then he finished the verse, ignoring the audience for a few moments so he could dance with his mom in an imagined rock and roll bar, like he did that Saturday in April.
 
-[https://www.youtube.com/embed/9wpcA2rfMfc?feature=oembed](https://www.youtube.com/embed/9wpcA2rfMfc?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - The Wish (Springsteen on Broadway - Official Audio)](https://www.youtube.com/watch?v=9wpcA2rfMfc)
 
 I’m pretty sure there wasn’t a dry eye in the house. Certainly not mine, and not Bruce’s either, who had to wipe his when he finished the song.
 
@@ -125,14 +107,7 @@ My wish for you: that you someday, somehow have the opportunity to see this rema
 
 And that we all find our little rock and roll bar, where we can dance ever after with the ones we love.
 
-February 22, 1987 (1998)November 17, 1990 (Los Angeles, CA)September 4, 2021 (New York City, NY)
+**The Wish  
+**Recorded** February 22, 1987**Released:** *Tracks* (1998)**First performed:** November 17, 1990 (Los Angeles, CA)**Last performed:** September 4, 2021 (New York City, NY)
 
-**The Wish**
-**Recorded:** <br>
-**Released:** <br>
-*Tracks* **First performed:** <br>
-**Last performed:** <br>
-
-
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
-
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -1,4 +1,4 @@
-Today it's one of our most iconic protest songs, but Patti Smith's "People Have the Power" didn't start out that way.
+Today it’s one of our most iconic protest songs, but Patti Smith’s “People Have the Power” didn’t start out that way.
 
 Not for lack of intent, though–Patti remembers the inspiration for the song:
 
@@ -6,26 +6,26 @@ Not for lack of intent, though–Patti remembers the inspiration for the song:
 
 [Watch on Youtube: Patti Smith - People Have The Power (Official Audio)](https://www.youtube.com/watch?v=pPR-HyGj2d0)
 
-At the time, "People Have the Power" didn't attract much attention upon its release in 1988–it peaked at #19 on the Mainstream Rock chart but otherwise received only modest radio airplay.
+At the time, “People Have the Power” didn’t attract much attention upon its release in 1988–it peaked at #19 on the Mainstream Rock chart but otherwise received only modest radio airplay.
 
-Patti is often quoted stating that her husband never lived to see their song performed live, but the pair actually did perform it once in 1990 at a special concert for Arista Records at New York City's Radio City Music Hall.
+Patti is often quoted stating that her husband never lived to see their song performed live, but the pair actually did perform it once in 1990 at a special concert for Arista Records at New York City’s Radio City Music Hall.
 
 [Watch on Youtube: Patti Smith & Fred "Sonic" Smith - People Have the Power [Live 3-16-90]](https://www.youtube.com/watch?v=yEX_f4_5Yio)
 
-Over time, though, "People Have the Power" became one of Patti Smith's most recognized and frequently covered songs, and when R.E.M. and Bruce Springsteen toured together in 2004 as part of the Vote for Change network of tours, it wasn't surprising that "People Have the Power" became a nightly encore ensemble piece for the assembled artists. (Both Bruce and Michael Stipe are Patti's long-time friends and fans.)
+Over time, though, “People Have the Power” became one of Patti Smith’s most recognized and frequently covered songs, and when R.E.M. and Bruce Springsteen toured together in 2004 as part of the Vote for Change network of tours, it wasn’t surprising that “People Have the Power” became a nightly encore ensemble piece for the assembled artists. (Both Bruce and Michael Stipe are Patti’s long-time friends and fans.)
 
 [Watch on Youtube: Bruce Springsteen - People Have the Power](https://www.youtube.com/watch?v=MpK8Z2vOvAo)
 
-But as amazing as those 2004 performances were, the absence of the song's co-writer and original singer was notable.
+But as amazing as those 2004 performances were, the absence of the song’s co-writer and original singer was notable.
 
-Bruce and Michael fixed that fourteen years later when they both joined Patti on stage at her concert at New York City's Beacon Theater.
+Bruce and Michael fixed that fourteen years later when they both joined Patti on stage at her concert at New York City’s Beacon Theater.
 
-There's a lot that I love about their performance that night, but I think my favorite is how Patti tries to encourage Bruce and Michael to take the spotlight several times during the song, and how each time they refuse–rightfully ensuring that Patti remains the center of attention in a sign of respect and admiration among rock royalty.
+There’s a lot that I love about their performance that night, but I think my favorite is how Patti tries to encourage Bruce and Michael to take the spotlight several times during the song, and how each time they refuse–rightfully ensuring that Patti remains the center of attention in a sign of respect and admiration among rock royalty.
 
 [Watch on Youtube: Patti Smith Bruce Springsteen Michael Stipe 2018-04-23 PEOPLE HAVE THE POWER Beacon Th NYC](https://www.youtube.com/watch?v=FDu8kQOEDa4)
 
-**People Have the Power**
-**First performed:** October 1, 2004 (Philadelphia, PA)<br>
-**Last performed:** April 23, 2008 (New York City, NY)<br>
+**People Have the Power  
+**First performed:** October 1, 2004 (Philadelphia, PA)  
+**Last performed:** April 23, 2008 (New York City, NY)
 
 (c) January 9, 2020

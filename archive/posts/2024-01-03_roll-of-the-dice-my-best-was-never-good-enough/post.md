@@ -40,14 +40,14 @@ Rather than mine the societal and political veins that run throughout the rest o
 
 Bruce’s narrator is romantically involved with what Thompson would call a corny bore.
 
-*“Every cloud has a silver lining, every dog has his day.”*
-*She said, “Now don’t say nothing if you don’t have something nice to say*
-*The tough now they get going when the going gets tough.”*
+*“Every cloud has a silver lining, every dog has his day.”*  
+*She said, “Now don’t say nothing if you don’t have something nice to say*  
+*The tough now they get going when the going gets tough.”*  
 *But for you my best was never good enough*
 
-*“Now don’t try for a home run baby if you can get the job done with a hit*
-*Remember a quitter never wins and a winner never quits*
-*The sun don’t shine on a sleeping dog’s ass,” and all the rest of that stuff*
+*“Now don’t try for a home run baby if you can get the job done with a hit*  
+*Remember a quitter never wins and a winner never quits*  
+*The sun don’t shine on a sleeping dog’s ass,” and all the rest of that stuff*  
 *But for you my best was never good enough*
 
 Our unnamed, off-screen love interest speaks only in pep talks and platitudes, and over the course of the brief song we realize that each adage is directed at our narrator, who never seems to measure up.
@@ -56,11 +56,11 @@ At first she sounds encouraging, but we soon sense more condescension than faith
 
 Realization swiftly turns to resentment, as our narrator peppers his mocking speech with expletives and his significant other swipes clichés from a slow-witted movie hero.
 
-*“If God gives you nothing but lemons then make some lemonade*
-*The early bird catches the fucking worm, Rome wasn’t built in a day*
-*Now life’s like a box of chocolates, you never know what you’re gonna get*
-*Stupid is as stupid does,” and all the rest of that shit*
-*Come on pretty baby call my bluff*
+*“If God gives you nothing but lemons then make some lemonade*  
+*The early bird catches the fucking worm, Rome wasn’t built in a day*  
+*Now life’s like a box of chocolates, you never know what you’re gonna get*  
+*Stupid is as stupid does,” and all the rest of that shit*  
+*Come on pretty baby call my bluff*  
 *‘Cause for you my best was never good enough*
 
 By the end of the song, our narrator has had enough. He stands his ground and tells his girl: *What you see is what you get. Take it or leave it.*
@@ -76,9 +76,9 @@ Still waters run deep.
 [Watch on Youtube: Bruce Springsteen - My Best Was Never Good Enough - Live 2005 (opening night) video](https://www.youtube.com/watch?v=TqJeHXifgLk)
 
 **My Best Was Never Good Enough  
-**Recorded:** March – August 1995<br>
-**Released:** *The Ghost of Tom Joad* (1995)<br>
-**First performed:** November 21, 1995 (New Brunswick, NJ)<br>
+**Recorded** March – August 1995  
+**Released:** *The Ghost of Tom Joad* (1995)  
+**First performed:** November 21, 1995 (New Brunswick, NJ)  
 **Last performed:** November 16, 2005 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

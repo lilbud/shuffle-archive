@@ -12,9 +12,9 @@ Perhaps that’s when Bruce first became fully aware of the depression that had 
 
 It’s also hard to imagine a more aptly poetic description of depression than the song’s title.
 
-*Well I’m riding down Kingsley figuring I’ll get a drink*
-*Well I turn the radio up loud so I don’t have to think at all*
-*And I take her to the floor looking for a moment when the world seems right*
+*Well I’m riding down Kingsley figuring I’ll get a drink*  
+*Well I turn the radio up loud so I don’t have to think at all*  
+*And I take her to the floor looking for a moment when the world seems right*  
 *And I tear into the guts of something in the night*
 
 As anyone who’s made the pilgrimage knows, Bruce sets his song in his adopted hometown of Asbury Park, which is often a giveaway that a song leans towards autobiography.
@@ -23,9 +23,9 @@ But don’t pay so much attention to the backdrop that you miss the metaphor. In
 
 But only for a moment.
 
-*Well you’re born with nothing, and better off that way*
-*Soon as you’ve got something they send someone to try and take it away*
-*Well you can ride this road ’till dawn without another human being in sight*
+*Well you’re born with nothing, and better off that way*  
+*Soon as you’ve got something they send someone to try and take it away*  
+*Well you can ride this road ’till dawn without another human being in sight*  
 *Yeah just kids wasted on something in the night*
 
 We’re going to need to take a detour at this point, because this verse is significant–not so much for what it represents in the song itself but for what it reveals about the songwriter’s state of mind at the time he wrote it.
@@ -50,7 +50,7 @@ Two days after that August 7th performance above, Bruce’s former manager Mike 
 
 What became known as the Lawsuit Tour started just eleven days later, and at the second show of the tour, some new lyrics made their debut:
 
-*Said she was born with nothing, said she was better off that way*
+*Said she was born with nothing, said she was better off that way*  
 *As soon as you got something, somebody comes along and they try to take it away*
 
 [Watch Video Highlight](https://videopress.com/embed/qFe8KwC4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
@@ -59,28 +59,28 @@ Although Bruce would demur when asked, it requires credulity to suggest that tho
 
 Over the weeks that followed, “Something in the Night” grew progressively darker and angrier. By the end of October, Bruce was singing lyrics like:
 
-*And now all them folks out on the island, they lock their doors and take their children by hand*
-*And put on your red dress behind that seat, tonight the devil will walk these streets like a man*
-*Bring along my switchblade in case that old fool wants to fight*
+*And now all them folks out on the island, they lock their doors and take their children by hand*  
+*And put on your red dress behind that seat, tonight the devil will walk these streets like a man*  
+*Bring along my switchblade in case that old fool wants to fight*  
 *I’ll take him, I’m gonna take him, I’m gonna take him out at the parking lot somewhere in the night*
 
 The 1976 leg of the tour ended shortly after that, and when it resumed in February 1977, “Something in the Night” was re-arranged in its close-to-final form, its lyrics still filled with anger but now also with resignation. His narrator had given up:
 
-*Well God’s angels can tear this town down and blow it all into the sea*
-*Well I don’t give a damn, yeah that’s alright with me*
-*But the street’s a living soul, there’s nothing here in sight*
+*Well God’s angels can tear this town down and blow it all into the sea*  
+*Well I don’t give a damn, yeah that’s alright with me*  
+*But the street’s a living soul, there’s nothing here in sight*  
 *Just mutations that gone wrong something in the night*
 
 [Watch Video Highlight](https://videopress.com/embed/6hwGAQgh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 We have a new bridge and final verse, too (although Bruce had added them in late ’76), and these would survive to the final version:
 
-*Nothing is forgotten or forgiven when it’s your last time around*
+*Nothing is forgotten or forgiven when it’s your last time around*  
 *And I got stuff running ’round my head that I just can’t live down*
 
-*When we found the things we loved, they were crushed and dying in the dirt*
-*We tried to pick up the pieces and get away without getting hurt*
-*But they caught us at the state line and burned our cars in one last fight*
+*When we found the things we loved, they were crushed and dying in the dirt*  
+*We tried to pick up the pieces and get away without getting hurt*  
+*But they caught us at the state line and burned our cars in one last fight*  
 *And left us running burned and blind chasing something in the night*
 
 There’s a new vein of self-loathing in Bruce’s lyrics, along with hints that our narrator was the one who crushed his loved ones. (There’s a curious switch from first-person singular to plural narration here, as if the narrator can’t quite bring himself to claim sole ownership.) “Something in the Night” had surrendered to despair, and it says a lot about Bruce’s outlook at that time that he frequently *opened his shows* with this version.
@@ -113,9 +113,9 @@ There’s something about the darkness, the emptiness, and of course that album-
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Something in the Night (Live at The Paramount Theatre 2009)](https://www.youtube.com/watch?v=8yYz7ST5ByY)
 
 **Something in the Night  
-**Recorded:** June 1, 1977<br>
-**Released:** *Darkness on the Edge of Town* (1978)<br>
-**First performed:** August 1, 1976 (Red Bank, NJ)<br>
+**Recorded** June 1, 1977  
+**Released:** *Darkness on the Edge of Town* (1978)  
+**First performed:** August 1, 1976 (Red Bank, NJ)  
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

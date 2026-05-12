@@ -27,29 +27,29 @@ When I wrote about “[Little Girl (Like You)](https://estreetshuffle.com/index.
 
 “One Love” doesn’t demand much in the way of lyrical analysis; Bruce never even dips a toe into metaphor.
 
-*One girl, one love*
-*One dream in our heart*
-*Two hearts as one*
+*One girl, one love*  
+*One dream in our heart*  
+*Two hearts as one*  
 *One hope, never to be torn apart*
 
-*Yeah, come on baby, rock me the way I love*
-*Shake me darling, shake me, don’t let me go*
+*Yeah, come on baby, rock me the way I love*  
+*Shake me darling, shake me, don’t let me go*  
 *You’re the one, yeah, you’re the one for me*
 
 By the time we’ve finished that first verse, we pretty much get the idea: like the man says (here and elsewhere), two hearts are better than one. But just to make sure that we don’t miss the point, the song continues:
 
-*One dream, one dream*
-*Is all, is all I need*
-*One reason to believe*
+*One dream, one dream*  
+*Is all, is all I need*  
+*One reason to believe*  
 *In you, I’ve found the thing I need*
 
-*Once I was alone*
-*So alone, so all alone*
-*Then you came along*
+*Once I was alone*  
+*So alone, so all alone*  
+*Then you came along*  
 *With a love you said I could call home*
 
-*Come on baby, rock me all night long*
-*I’ve been searching for you for so long*
+*Come on baby, rock me all night long*  
+*I’ve been searching for you for so long*  
 *You’re the one, yeah, you’re the one for me*
 
 Perhaps Bruce worked on the song a bit more after recording the home demo above. Maybe we’ll find out if we ever get the long-rumored *Born in the U.S.A.* anniversary box set.
@@ -57,8 +57,8 @@ Perhaps Bruce worked on the song a bit more after recording the home demo above.
 But as it stands now, the best we can say about “One Love” is that it’s a simple but earnest, bouncy love song that probably wouldn’t have stood the test of time had it been released as a B-side as intended back in the mid-eighties.
 
 **One Love  
-**Recorded:** January 19, 1983<br>
-**Never released**
+**Recorded** January 19, 1983  
+**Never released**  
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

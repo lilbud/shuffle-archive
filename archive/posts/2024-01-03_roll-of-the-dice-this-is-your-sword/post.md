@@ -16,14 +16,14 @@ Apart from its Celtic music and medieval lyrics, I don’t find “This Is Your 
 
 I’ve read several reviews and accounts that suggest that “This Is Your Sword” is sung by a father to his children, but I don’t subscribe to that interpretation. The song is more universal than that, something Bruce makes clear in the very first line:
 
-*Now brothers and sisters, listen to me*
-*These are the few things that I leave to thee*
-*The sword of our fathers with lessons hard taught*
+*Now brothers and sisters, listen to me*  
+*These are the few things that I leave to thee*  
+*The sword of our fathers with lessons hard taught*  
 *The shield strong and sturdy from battles well fought*
 
-*Well this is your sword, this is your shield*
-*This is the power of love revealed*
-*Carry them with you wherever you go*
+*Well this is your sword, this is your shield*  
+*This is the power of love revealed*  
+*Carry them with you wherever you go*  
 *And give all the love that you have in your soul*
 
 Bruce addresses his message to “brothers and sisters,” suggesting that he’s imparting a lesson to his fellow folk rather than to his own children.
@@ -32,21 +32,21 @@ His sword and shield are metaphors, both for the same thing: the human heart. Te
 
 And we are beset these days more than ever before.
 
-*The times they are dark, darkness covers the earth*
-*This world’s filled with the beauty of God’s work*
-*Hold tight to your promise, stay righteous, stay strong*
+*The times they are dark, darkness covers the earth*  
+*This world’s filled with the beauty of God’s work*  
+*Hold tight to your promise, stay righteous, stay strong*  
 *For the days of miracles will come along*
 
 “This Is Your Sword” reminds us that even in the darkest of times, there’s enough beauty and love in the world to sustain us and lead us to the light. In the bridge, Bruce acknowledges this is easier said than done (in a passage that especially resonates coming from someone locked in lifelong battle with depression).
 
-*In the days of despair you can grow hard*
-*Till you close your mind and empty your heart*
-*If you find yourself staring in the abyss*
+*In the days of despair you can grow hard*  
+*Till you close your mind and empty your heart*  
+*If you find yourself staring in the abyss*  
 *Hold tight to your loved ones and remember this*
 
-*This shield will protect your sacred heart*
-*The sword will defend from what comes in the dark*
-*Should you grow weary on the battlefield*
+*This shield will protect your sacred heart*  
+*The sword will defend from what comes in the dark*  
+*Should you grow weary on the battlefield*  
 *Well do not despair, our love is real*
 
 There’s something about that last line that lingers in our memory, even if the song itself doesn’t.
@@ -64,9 +64,9 @@ That may be why Bruce only tried it twice more; while the latter two went more s
 But context is king, and if we’re lucky enough to get at least one more Sessions Band tour out of Bruce, I’d be interested in seeing what they can do with “This Is Your Sword.” With their expansive instrumental range and comfort with this type of arrangement (Sessions Band violinist Sam Bardfeld even plays on the studio track), I suspect it’d be right at home in their sets.
 
 **This Is Your Sword  
-**Recorded:** 2013<br>
-**Released:** *High Hopes* (2014)<br>
-**First performed:** January 29, 2014 (Cape Town, South Africa)<br>
+**Recorded** 2013  
+**Released:** *High Hopes* (2014)  
+**First performed:** January 29, 2014 (Cape Town, South Africa)  
 **Last performed:** May 13, 2014 (Albany, NY)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

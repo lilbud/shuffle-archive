@@ -40,22 +40,22 @@ So maybe it’s the lyrics. Unlike “Hungry Heart” and “Dancing in the Dark
 
 It’s almost silly to try and analyze “I’m on Fire,” so blatant are its lyrics.
 
-*Hey little girl is your daddy home*
-*Did he go away and leave you all alone*
-*I got a bad desire*
+*Hey little girl is your daddy home*  
+*Did he go away and leave you all alone*  
+*I got a bad desire*  
 *Oh I’m on fire*
 
-*Tell me now baby is he good to you*
-*Can he do to you the things that I do*
-*I can take you higher*
+*Tell me now baby is he good to you*  
+*Can he do to you the things that I do*  
+*I can take you higher*  
 *Oh I’m on fire*
 
-*Sometimes it’s like someone took a knife baby edgy and dull*
+*Sometimes it’s like someone took a knife baby edgy and dull*  
 *And cut a six-inch valley through the middle of my soul*
 
-*At night I wake up with the sheets soaking wet*
-*And a freight train running through the middle of my head*
-*Only you can cool my desire*
+*At night I wake up with the sheets soaking wet*  
+*And a freight train running through the middle of my head*  
+*Only you can cool my desire*  
 *Oh I’m on fire*
 
 The entire song boils down to:
@@ -100,10 +100,10 @@ But in a nice bit of circle closure, shortly before his death Johnny Cash record
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VN9RKaL1wD4)
 
-**I’m on Fire**
-**Recorded:** May 11, 1982<br>
-**Released:** *Born in the U.S.A.* (1984)<br>
-**First performed:** June 29, 1984 (Saint Paul, MN)<br>
-**Last performed:** June 30, 2025 (Milan, Italy)<br>
+**I’m on Fire  
+**Recorded** May 11, 1982  
+**Released:** *Born in the U.S.A.* (1984)  
+**First performed:** June 29, 1984 (Saint Paul, MN)  
+**Last performed:** June 30, 2025 (Milan, Italy)
 
 © September 11, 2021

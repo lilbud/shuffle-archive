@@ -1,12 +1,8 @@
-
-
-A deep cut from an underrated album, “With Every Wish” escaped my understanding when it debuted on the album in 1992.
-
-*Human Touch*
+A deep cut from an underrated album, “With Every Wish” escaped my understanding when it debuted on the *Human Touch* album in 1992.
 
 I was 23, very newly wed, and invincible. When I first heard “With Every Wish,” I focused on the chorus:
 
-*Before you choose your wish, son, you better think first:*
+*Before you choose your wish, son, you better think first:*  
 *With every wish there comes a curse.*
 
 …and thought, incorrectly, that the song was a warning to choose wisely, that making the wrong choice can have unforeseen consequences.
@@ -21,14 +17,14 @@ Both the girl and the “angel of the lake” taught him the same lesson: think 
 
 At 23, I completely missed the word “every,” and I didn’t grok the third verse at all:
 
-*These days I sit around and laugh a**t the many rivers I’ve crossed*
-*But on the far banks there’s always another forest w**here a man can get lost*
-*Well there in the high trees love’s bluebird glides*
-*Guiding us ‘cross to another river on the other side*
-*And there someone is waitin’ with a look in her eyes*
-*And though my heart’s grown weary a**nd more than a little bit shy*
-*Tonight I’ll drink from her waters to quench my thirst*
-*And leave the angels to worry*
+*These days I sit around and laugh a**t the many rivers I’ve crossed*  
+*But on the far banks there’s always another forest w**here a man can get lost*  
+*Well there in the high trees love’s bluebird glides*  
+*Guiding us ‘cross to another river on the other side*  
+*And there someone is waitin’ with a look in her eyes*  
+*And though my heart’s grown weary a**nd more than a little bit shy*  
+*Tonight I’ll drink from her waters to quench my thirst*  
+*And leave the angels to worry*  
 *With every wish…*
 
 A quarter-century down the road, though, I get it.
@@ -41,9 +37,8 @@ Bruce isn’t encouraging us to not wish–he’s urging us to lean in and accep
 
 This is a cautionary tale about caution.
 
-We have crossed many rivers, but there are many more ahead.
+We have crossed many rivers, but there are many more ahead.  
 We’ve been burned and broken-hearted, but we can’t help but hope and risk love again.
-
 
 Bruce closes the song by returning to the lake he fell into as a boy, this time deliberately drinking from it and ignoring the voice of the lake’s angel.
 
@@ -53,7 +48,7 @@ No need to wait around for the rest of that sentence.
 
 (Note: this is a great example of a literary device Bruce uses frequently–establishing a chorus and cadence, then ending the song prematurely, leaving the listener to supply the rest and ponder the omission. Here, the effect is profound.)
 
-[https://www.youtube.com/embed/KVOScysEq2E?feature=oembed](https://www.youtube.com/embed/KVOScysEq2E?feature=oembed)
+[Watch on Youtube: With Every Wish](https://www.youtube.com/watch?v=KVOScysEq2E)
 
 Musically, this is a spare arrangement. Bruce on guitar, Doug Lunn on bass, Kurt Wortman on drums, Roy Bittan on keyboard, are all quiet and restrained, allowing Mark Isham’s gorgeous, muted trumpet to soar above and between the verses, conveying a sense of forward motion through the song and off into the horizon as the final line trails off.
 
@@ -61,12 +56,11 @@ In concert, “With Every Wish” has only been performed a half-dozen times, al
 
 But when he tries to skip over the sad parts, his son makes him go back and read them. Because he knows they’re there for a reason.
 
-[https://videopress.com/embed/G9xPqO8U?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/G9xPqO8U?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/G9xPqO8U?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**With Every Wish**
-**Recorded:** Late 1989-1992<br>
-**Released:** *Human Touch* (1992)<br>
-**First Performed:** June 15, 1992 (Stockholm)<br>
-**Last Performed:** July 23, 1992 (East Rutherford, NJ)<br>
+**With Every Wish  
+**Recorded** Late 1989**Released:** *Human Touch,* 1992  
+**First Performed:** June 15, 1992 (Stockholm)  
+ **Last Performed:** July 23, 1992 (East Rutherford, NJ)
 
-Looking for your favorite Bruce song? Check our [full index](http://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!
+Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

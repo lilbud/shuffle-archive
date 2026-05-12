@@ -18,16 +18,16 @@ It seems that both recordings of “Waiting” were poorly timed, and that’s t
 
 Lyrically, “Waiting on the End of the World” requires close attention and invites interpretation:
 
-*For one deadly love like a disease*
-*I came to you crawling on my knees*
-*Your eyes filled with rain*
+*For one deadly love like a disease*  
+*I came to you crawling on my knees*  
+*Your eyes filled with rain*  
 *I can feel poison running through my veins*
 
 *I’m waiting, I’m waiting, I’m waiting, waiting on the end of the world*
 
-*For one deadly kiss what would we give*
-*Your skin trembling ‘neath my fingertips*
-*All I know is someday*
+*For one deadly kiss what would we give*  
+*Your skin trembling ‘neath my fingertips*  
+*All I know is someday*  
 *For love, baby, everybody pays*
 
 *I’m waiting, I’m waiting, I’m waiting, waiting on the end of the world*
@@ -42,25 +42,25 @@ Remember that “Waiting on the Edge of the World” was first recorded in 1994�
 
 And the check out the next verse:
 
-*We hide from truth in our hearts*
-*Like one look and everything will fall apart*
-*Here in your arms, soft decay*
+*We hide from truth in our hearts*  
+*Like one look and everything will fall apart*  
+*Here in your arms, soft decay*  
 ***I can feel myself wasting away***
 
 That last line echoes “Streets of Philadelphia” as well: “So brother are you gonna leave me wasting away”
 
 Through this lens, that key line in “Waiting” becomes even more sinister and layered:
 
-*All I know is someday*
+*All I know is someday*  
 *For love, baby, everybody pays*
 
 The similarities in language and imagery sways me toward believing that “Waiting on the End of the World” is an alternate universe “Streets of Philadelphia,” and that Bruce chose to release the stronger of the two. The only reason I have any pause is that Bruce continued to work on “Waiting” for a full year after “Streets of Philadelphia” was released, and it strikes me as a bit odd that Bruce would follow up a song about a lover stricken with AIDS with another song about the same subject so quickly. It certainly wouldn’t have been the first or last time that Bruce would cross-pollinate his songs, though. To my knowledge Bruce has never discussed this song specifically, so it remains open to debate.
 
 What do you think?
 
-**Waiting on the End of the World**
-**Recorded:** January 1995<br>
-**Never Released**
+**Waiting on the End of the World**  
+**Recorded:** January 1995  
+**Never Released**  
 **Never Performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

@@ -6,7 +6,7 @@ It’s easy to understand why they enjoy working together so much: their songwri
 
 And then there are the songs that are just plain fun, and no Grushecky song brings the smiles like “Talking to the King,” the lead-off track from Joe’s 1992 album *End of the Century.*
 
-[https://www.youtube.com/embed/twQ8p-R0BtU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/twQ8p-R0BtU?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=twQ8p-R0BtU)
 
 With its immediately infectious riff and sweet, fantastical lyrics, “Talking to the King” is exactly the kind of dream you’d expect an *almost-*made-it-big rocker to have in the dark of night.
 
@@ -16,13 +16,13 @@ Of course, they jam.
 
 But the silly set-up is just that: a set-up for a surprisingly sweet second half. Elvis warns Joe to be careful what he wishes for–success doesn’t necessarily bring happiness, and it almost certainly brings its own problems.
 
-*You better be careful or you’ll lose everything*
-*It ain’t no fun being a king*
-*You make me mad when you start to complain*
-*You should be glad nobody who knows your name*
-*You got two lovely kids and a wife at home*
-*And I died alone on my throne*
-*Sometimes I think I sold my soul*
+*You better be careful or you’ll lose everything*  
+*It ain’t no fun being a king*  
+*You make me mad when you start to complain*  
+*You should be glad nobody who knows your name*  
+*You got two lovely kids and a wife at home*  
+*And I died alone on my throne*  
+*Sometimes I think I sold my soul*  
 *To become the king of rock and roll*
 
 At its big heart, “Talking to the King” is a song of acceptance and appreciation of a good life, with only a good-natured nod to what might have been.
@@ -33,13 +33,13 @@ We’ll leave aside the irony of Joe performing a “Thank goodness I didn’t m
 
 Instead, let’s just enjoy these longtime friends playing “Talking to the King” in one of their earliest performances together, back on the October Assault mini-tour for *American Babylon* in 1995.
 
-[https://videopress.com/embed/a5fl9cA4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/a5fl9cA4?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/a5fl9cA4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 Following their handful of performances on the American Babylon Tour, Bruce and Joe could be counted on to play “Talking to the King” pretty much any time they played together–and they played together often.
 
 You’d need to be in one of their stomping grounds to catch them, though: every one of their 22 performances in the past 22 years has been either on the Jersey Shore or Joe’s native Pittsburgh. Here’s Bruce, Joe, and the Houserockers performing “Talking to the King” at Light of Day 2011 in Asbury Park, and you can see how much Bruce enjoys playing Joe’s song.
 
-[https://www.youtube.com/embed/sPrkW8y9IdA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/sPrkW8y9IdA?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sPrkW8y9IdA)
 
 There’s no reason to expect Bruce and Joe will ever stop performing together, and no reason to expect that “Talking to the King” won’t always be part of their sets.
 
@@ -47,10 +47,10 @@ It was even one of the very last songs Bruce performed live before the great pan
 
 I’ll leave you with Bruce and Joe performing “Talking to the King” at Light of Day 20, Bruce’s last public performance to date.
 
-[https://www.youtube.com/embed/JnFv1WiWmeo?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/JnFv1WiWmeo?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=JnFv1WiWmeo)
 
-**Talking to the King**
-**First performed:** October 17, 1995 (Asbury Park, NJ)<br>
-**Last performed:** January 18, 2020 (Asbury Park, NJ)<br>
+**Talking to the King  
+**First performed:** October 17, 1995 (Asbury Park, NJ)  
+**Last performed:** January 18, 2020 (Asbury Park, NJ)
 
 © June 12, 2020

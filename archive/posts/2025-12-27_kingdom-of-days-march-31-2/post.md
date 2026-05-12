@@ -1,125 +1,91 @@
+**1960:** Bruce receives his bear merit badge at the monthly meeting for Cub Scout Pack 18 at St. Rose of Lima in Freehold.
 
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1960-03-31.jpg)
 
-Bruce receives his bear merit badge at the monthly meeting for Cub Scout Pack 18 at St. Rose of Lima in Freehold.
+**1981:** Bruce postpones a show in Newcastle to recover from the previous leg of the River Tour.
 
-**1960:**
+**1985:** Bruce and the E Street Band play the biggest concert in Brisbane’s history (at the time) at QEII Sports Center.
 
+[Watch on Youtube: Bruce Springsteen Born in the USA Tour. 1985 TV report from Brisbane, AUSTRALIA](https://www.youtube.com/watch?v=xm7UGF0JCAo)
 
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1985-03-31.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1960-03-31.jpg?resize=758%2C471&amp;ssl=1)
+**1992:** Bruce releases both his *Human Touch* and *Lucky Town* albums.
 
-Bruce postpones a show in Newcastle to recover from the previous leg of the River Tour.
+[Watch on Youtube: Commercial for Bruce Springsteen's Human Touch and Lucky Town](https://www.youtube.com/watch?v=No2kvmcdn0Y)
 
-**1981:**
+[Watch on Youtube: Human Touch](https://www.youtube.com/watch?v=videoseries)
 
-Bruce and the E Street Band play the biggest concert in Brisbane’s history (at the time) at QEII Sports Center.
+[Watch on Youtube: Lucky Town](https://www.youtube.com/watch?v=videoseries)
 
-**1985:**
+[Watch on Youtube: Bruce Springsteen Lucky Town and Human Touch record sales](https://www.youtube.com/watch?v=6pu2LR1Sc6M)
 
-[https://www.youtube.com/embed/xm7UGF0JCAo?feature=oembed](https://www.youtube.com/embed/xm7UGF0JCAo?feature=oembed)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/1992-03-31.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1985-03-31.jpg?resize=447%2C500&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/Springsteen-Lucky-Human-Buy-Sheets_0003.jpg)
 
-Bruce releases both his and albums.
-
-**1992:** *Human Touch**Lucky Town*
-
-[https://www.youtube.com/embed/No2kvmcdn0Y?feature=oembed](https://www.youtube.com/embed/No2kvmcdn0Y?feature=oembed)
-
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_kj6ltm-Txxt5ZVGGFNenYdfGLpTSSpap0](https://www.youtube.com/embed/videoseries?list=OLAK5uy_kj6ltm-Txxt5ZVGGFNenYdfGLpTSSpap0)
-
-[https://www.youtube.com/embed/videoseries?list=OLAK5uy_kklj-fI3LWp4CNV91MbMnWRQfFIssFWj8](https://www.youtube.com/embed/videoseries?list=OLAK5uy_kklj-fI3LWp4CNV91MbMnWRQfFIssFWj8)
-
-[https://www.youtube.com/embed/6pu2LR1Sc6M?feature=oembed](https://www.youtube.com/embed/6pu2LR1Sc6M?feature=oembed)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1992-03-31.jpg?resize=656%2C821&amp;ssl=1)
-
-
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/Springsteen-Lucky-Human-Buy-Sheets_0003.jpg?resize=758%2C981&amp;ssl=1)
-
-
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/Springsteen-Lucky-Human-Buy-Sheets_0010.jpg?resize=758%2C226&amp;ssl=1)
-
-
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/Springsteen-Lucky-Human-Buy-Sheets_0010.jpg)
 
 (marketing plan and USA Today scan courtesy of reader Andy Swanson)
 
-Bruce kicks off World Tour 1993 in Glasgow with an acoustic mini-set–a feature that distinguishes this year’s tour from the one that preceded it. “Lucky Town” is filmed and broadcast the following evening on .
+**1993:** Bruce kicks off World Tour 1993 in Glasgow with an acoustic mini-set–a feature that distinguishes this year’s tour from the one that preceded it. “Lucky Town” is filmed and broadcast the following evening on *Top of the Pops*.
 
-**1993:** *Top of the Pops*
+[Watch on Youtube: Lucky Town - Bruce Springsteen (live at the SEC Centre, Glasgow 1993)](https://www.youtube.com/watch?v=_7Cjtv2v-MM)
 
-[https://www.youtube.com/embed/_7Cjtv2v-MM?feature=oembed](https://www.youtube.com/embed/_7Cjtv2v-MM?feature=oembed)
+[Watch on Youtube: Bruce Springsteen If I Should Fall Behind (1993 03 31) Audio](https://www.youtube.com/watch?v=Ree-J3qcNFY)
 
-[https://www.youtube.com/embed/Ree-J3qcNFY?feature=oembed](https://www.youtube.com/embed/Ree-J3qcNFY?feature=oembed)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/45909604145_7980ef75de_o.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/45909604145_7980ef75de_o.jpg?resize=758%2C693&amp;ssl=1)
+**1996:** Bruce’s solo show in Berlin is postponed to the following month so that he can perform at this year’s Oscars ceremony.
 
-Bruce’s solo show in Berlin is postponed to the following month so that he can perform at this year’s Oscars ceremony.
+**2000:** Night Two in Denver along the Reunion Tour.
 
-**1996:**
+[Watch Video Highlight](https://videopress.com/embed/iEHmZAcg?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Night Two in Denver along the Reunion Tour.
+If you aren’t in Denver tonight, you still have a chance to see The Boss: the movie *High Fidelity* premieres today, and Bruce has a pivotal cameo.
 
-**2000:**
+[Watch Video Highlight](https://videopress.com/embed/e9i42Z2L?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/iEHmZAcg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iEHmZAcg?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+![](https://estreetshuffle.com/wp-content/uploads/2021/03/2000-03-31.png)
 
-If you aren’t in Denver tonight, you still have a chance to see The Boss: the movie premieres today, and Bruce has a pivotal cameo.
+**2008:** An “Atlantic City” opener and very rare “None But the Brave” highlight the E Street Band’s show at GM Place in Vancouver, BC on the Magic Tour.
 
-*High Fidelity*
+[Watch on Youtube: Bruce Springsteen - None But the Brave - Vancouver Mar 31/08](https://www.youtube.com/watch?v=HISYE5UmpVg)
 
-[https://videopress.com/embed/e9i42Z2L?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/e9i42Z2L?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch on Youtube: Bruce Springsteen - Trapped](https://www.youtube.com/watch?v=nXArxxN1qKE)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2000-03-31.png?resize=758%2C698&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/03/2008-03-31.jpg)
 
-An “Atlantic City” opener and very rare “None But the Brave” highlight the E Street Band’s show at GM Place in Vancouver, BC on the Magic Tour.
+**2013:** Bruce and the E Street Band wrap up the Australian leg of the Wrecking Ball Tour with a second show at Hanging Rock in Macedon. Jimmy Barnes guests for “Tougher Than the Rest.”
 
-**2008:**
+[Watch on Youtube: Tougher Than The Rest - Bruce Springsteen & Jimmy Barnes - Hanging Rock 2 - 31-03-2013](https://www.youtube.com/watch?v=NMRQgqeVd3c)
 
-[https://www.youtube.com/embed/HISYE5UmpVg?feature=oembed](https://www.youtube.com/embed/HISYE5UmpVg?feature=oembed)
+[Watch on Youtube: Jackson Cage - Bruce Springsteen - Hanging Rock 2 - 31-03-2013](https://www.youtube.com/watch?v=la7y7y9mcng)
 
-[https://www.youtube.com/embed/nXArxxN1qKE?feature=oembed](https://www.youtube.com/embed/nXArxxN1qKE?feature=oembed)
+[Watch on Youtube: Incident on 57th Street - Bruce Springsteen - Hanging Rock 2 - 31-03-2013](https://www.youtube.com/watch?v=aLg7GVv9ZWs)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2008-03-31.jpg?resize=758%2C887&amp;ssl=1)
+[Watch on Youtube: Twist and Shout - Bruce Springsteen - Hanging Rock 2 - 31-03-2013](https://www.youtube.com/watch?v=oQLunCNtjpE)
 
-Bruce and the E Street Band wrap up the Australian leg of the Wrecking Ball Tour with a second show at Hanging Rock in Macedon. Jimmy Barnes guests for “Tougher Than the Rest.”
+**2016:** The River Tour (2016 Edition) moves on to the Pepsi Center in Denver.
 
-**2013:**
+[Watch on Youtube: Bruce Springsteen Meet me in the City](https://www.youtube.com/watch?v=WOmbegC5_KA)
 
-[https://www.youtube.com/embed/NMRQgqeVd3c?feature=oembed](https://www.youtube.com/embed/NMRQgqeVd3c?feature=oembed)
+[Watch on Youtube: Springsteen - Thunder Road in Denver](https://www.youtube.com/watch?v=14fgF4WSCSM)
 
-[https://www.youtube.com/embed/la7y7y9mcng?feature=oembed](https://www.youtube.com/embed/la7y7y9mcng?feature=oembed)
+**2021:** E Street Radio premieres Episode 20 of Bruce’s *From My Home to Yours* radio show, entitled “Here Comes the Weekend.”
 
-[https://www.youtube.com/embed/aLg7GVv9ZWs?feature=oembed](https://www.youtube.com/embed/aLg7GVv9ZWs?feature=oembed)
+[https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3?_=9)
 
-[https://www.youtube.com/embed/oQLunCNtjpE?feature=oembed](https://www.youtube.com/embed/oQLunCNtjpE?feature=oembed)
+<https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3>
 
-The River Tour (2016 Edition) moves on to the Pepsi Center in Denver.
+**2024:** At Night Two in San Francisco, Bruce and the E Street Band open their show with “Light of Day.”
 
-**2016:**
+[Watch on Youtube: Bruce Springsteen Chase Center San Francisco, CA 3/31/2024-Light of Day](https://www.youtube.com/watch?v=FaQGdRu2ysI)
 
-[https://www.youtube.com/embed/WOmbegC5_KA?feature=oembed](https://www.youtube.com/embed/WOmbegC5_KA?feature=oembed)
+If you can’t be at the show tonight, you can still catch The Boss on HBO’s *Curb Your Enthusiasm,* where he makes a very funny (and completely improvised) guest appearance.
 
-[https://www.youtube.com/embed/14fgF4WSCSM?feature=oembed](https://www.youtube.com/embed/14fgF4WSCSM?feature=oembed)
+[Watch on Youtube: Curb Your Enthusiasm: Boss](https://www.youtube.com/watch?v=aTBsNMZZPf8)
 
-E Street Radio premieres Episode 20 of Bruce’s radio show, entitled “Here Comes the Weekend.”
+[Watch on Youtube: Curb Your Enthusiasm: Ken](https://www.youtube.com/watch?v=-qXmSXJ3FRo)
 
-**2021:** *From My Home to Yours* <https://estreetshuffle.com/wp-content/uploads/2022/03/2021-03-31-Bruce-E-Street-Radio-DJ-set-20.mp3>
-
-At Night Two in San Francisco, Bruce and the E Street Band open their show with “Light of Day.”
-
-**2024:**
-
-[https://www.youtube.com/embed/FaQGdRu2ysI?feature=oembed](https://www.youtube.com/embed/FaQGdRu2ysI?feature=oembed)
-
-If you can’t be at the show tonight, you can still catch The Boss on HBO’s where he makes a very funny (and completely improvised) guest appearance.
-
-*Curb Your Enthusiasm,*
-
-[https://www.youtube.com/embed/aTBsNMZZPf8?feature=oembed](https://www.youtube.com/embed/aTBsNMZZPf8?feature=oembed)
-
-[https://www.youtube.com/embed/-qXmSXJ3FRo?feature=oembed](https://www.youtube.com/embed/-qXmSXJ3FRo?feature=oembed)
-
-[https://www.youtube.com/embed/QwhX7hS1SVU?feature=oembed](https://www.youtube.com/embed/QwhX7hS1SVU?feature=oembed)
+[Watch on Youtube: Susie Essman Says Bruce Springsteen Improvised His Iconic Curb Your Enthusiasm Line](https://www.youtube.com/watch?v=QwhX7hS1SVU)

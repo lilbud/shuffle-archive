@@ -12,47 +12,47 @@ There are a few circulating acoustic demos of “Your Love Is All Around Me,” 
 
 Bruce doesn’t waste any time establishing the song’s theme: the first verse sounds like it could have been lifted from “You’re Missing” (if that song had been written two decades earlier), with a narrator surrounded by reminders of a lost love:
 
-*I wake up in the morning and your pictures there*
-*The closet’s filled baby with the clothes you used to wear*
-*I smile… I still got that ring baby on my finger*
+*I wake up in the morning and your pictures there*  
+*The closet’s filled baby with the clothes you used to wear*  
+*I smile… I still got that ring baby on my finger*  
 *Although you’re gone away your memory lingers, and ’cause*
 
-*Your love is all around me now*
-*Your love is all around me now*
-*Your love is all around me now*
+*Your love is all around me now*  
+*Your love is all around me now*  
+*Your love is all around me now*  
 *Around me now, around me now*
 
 When that first chorus comes in, we almost have to laugh: what would sound like a happy-in-love hook if quoted out of context is instead revealed to be the torment of a haunted husband who can’t escape the visible reminders of an ex-wife who abandoned him. In fact, “Your Love Is All Around Me” sounds very much like a cross between “You’re Missing” and “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/).”
 
 In the second verse, we learn the reason why our narrator can’t escape his ghost: he simply can’t bring himself to toss the only reminders he has left of the love he so desperately wants to cling to:
 
-*Baby baby when you went away*
-*I tried but I couldn’t throw these things away*
-*The color of your face, the smell of your hair*
+*Baby baby when you went away*  
+*I tried but I couldn’t throw these things away*  
+*The color of your face, the smell of your hair*  
 *I turn over at night and though there is no one there, baby*
 
-*Your love is all around me now, tonight*
-*Your love is all around me now*
-*Your love is all around me now*
+*Your love is all around me now, tonight*  
+*Your love is all around me now*  
+*Your love is all around me now*  
 *Around me now, around me now*
 
 And what’s worse, he knows full well that his emotional prison is one of his own making–but he prefers the torture to the inevitable half-life of lost love. Better to feel the pain if it helps you relive the glory than to lose even the memory of what it felt like to have it at all:
 
-*Now my friends tell me what I’m doing, right*
-*But they don’t have to walk in my shoes everyday, every night*
-*If it’s wrong or right baby I don’t know*
+*Now my friends tell me what I’m doing, right*  
+*But they don’t have to walk in my shoes everyday, every night*  
+*If it’s wrong or right baby I don’t know*  
 *But I know I’d rather live like this than let it all go, 'cause*
 
-*Your love is all around me now*
-*The love we had is gone but I still feel it*
-*Your love is all around me now*
+*Your love is all around me now*  
+*The love we had is gone but I still feel it*  
+*Your love is all around me now*  
 *Around me now, around me now*
 
 What follows is a full three minutes of self-flagellating chorus riffing, with our narrator’s plaints turning progressively (and literally) darker:
 
-*Oh somebody turn out the light on me now*
-*Oh lady let this darkness come in*
-*Oh baby let the night fall around*
+*Oh somebody turn out the light on me now*  
+*Oh lady let this darkness come in*  
+*Oh baby let the night fall around*  
 *Oh let the darkness fall on me now*
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sX-yxWSPUC0)
@@ -73,9 +73,9 @@ The early verses are more pointed (instead of gazing at the wedding ring on his 
 
 By now, most of the *Born in the U.S.A.* era outtakes have been released, so perhaps “Your Love Is All Around Me” never made it to the studio. Let’s hope it did, though. It’s a clever song, a nice companion piece to “I’m Goin’ Down,” and it would be great to hear a finished version someday.
 
-**Your Love Is All Around Me**
-**Recorded:** Early 1982 (rehearsals)<br>
-**Never released**
+**Your Love Is All Around Me  
+**Recorded** Early 1982 (rehearsals)  
+**Never released**  
 **Never performed**
 
 © July 30, 2019 / April 14, 2026

@@ -1,4 +1,4 @@
-*And in the end, the love you take*
+*And in the end, the love you take*  
 *Is equal to the love you make*
 
 It’s one of the greatest lyrical couplets in rock history, all the more remarkable because they stand alone as the final lyrics of the final track on the final album the Beatles ever recorded.
@@ -51,8 +51,8 @@ Springsteen agreed, but a global pandemic forced the festival to punt the gig tw
 
 Time will tell if we ever get a chance to see McCartney and Springsteen share a stage again, but if we don’t their 2022 performances of “The End” certainly serve as fitting final team-ups.
 
-**The End**
-**First performed:** February 12, 2012 (Los Angeles, CA)<br>
-**Last performed:** June 25, 2022 (Pilton, England)<br>
+**The End  
+**First performed:** February 12, 2012 (Los Angeles, CA)  
+**Last performed:** June 25, 2022 (Pilton, England)
 
 © June 6, 2024

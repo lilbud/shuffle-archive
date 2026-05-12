@@ -10,5 +10,6 @@ On-stage, Bruce credited the song to Clarence Clemons and the Red Bank Rockers, 
 
 [Watch on Youtube: A Woman's Got the Power](https://www.youtube.com/watch?v=5Iw1wpLauVY)
 
-**A Woman's Got the Power****First performed:** August 9, 1984 (East Rutherford, NJ)<br>
+**A Woman's Got the Power**
+**First performed:** August 9, 1984 (East Rutherford, NJ)<br>
 **Last performed:** October 22, 2011 (Asbury Park, NJ)<br>

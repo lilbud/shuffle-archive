@@ -24,7 +24,7 @@ I pause here to offer a hat tip to Brian Hiatt, who astutely attributes the orig
 
 Both the yodelesque howl that introduces “Johnny 99” as well as a shared sentence handed down with levity make the homage all but certain. From Rodgers’ recording:
 
-*When the judge read the verdict it nearly knocked me down*
+*When the judge read the verdict it nearly knocked me down*  
 *Said boy you got two six’s they’re all upside down*
 
 Still, while there’s certainly a hat-tip to “99 Years Blues,” I’d argue that Bruce was likely equally influenced by a different, earlier Rodgers song: “Blue Yodel No. 9.”
@@ -35,9 +35,9 @@ Long recognized as one of the seminal songs that shaped rock and roll, “Blue Y
 
 The two songs also share a point-of-view character run in by local law enforcement.
 
-*Standing on the corner, I didn’t mean no harm*
-*Along come the police, he took me by the arm*
-*It was down in Memphis, corner of Beale and Main*
+*Standing on the corner, I didn’t mean no harm*  
+*Along come the police, he took me by the arm*  
+*It was down in Memphis, corner of Beale and Main*  
 *He says “big boy, you’ll have to tell me your name”*
 
 Whatever the influence (with Bruce, his influences are always too many to enumerate anyway), Bruce had a clear story in mind from the beginning.
@@ -46,23 +46,23 @@ Whatever the influence (with Bruce, his influences are always too many to enumer
 
 All of this exposition comes in the song’s first eight lines, a remarkable feat of narrative economy.
 
-*Well they closed down the auto plant in Mahwah late that month*
-*Ralph went out looking for a job but he couldn’t find none*
-*He came home too drunk from mixing Tanqueray and wine*
+*Well they closed down the auto plant in Mahwah late that month*  
+*Ralph went out looking for a job but he couldn’t find none*  
+*He came home too drunk from mixing Tanqueray and wine*  
 *He got a gun, shot a night clerk, now they call him Johnny 99*
 
-*Down in the part of town where when you hit a red light you don’t stop*
-*Johnny’s waving his gun around and threatening to blow his top*
-*When an off-duty cop snuck up on him from behind*
+*Down in the part of town where when you hit a red light you don’t stop*  
+*Johnny’s waving his gun around and threatening to blow his top*  
+*When an off-duty cop snuck up on him from behind*  
 *Out in front of the Club Tip Top they slapped the cuffs on Johnny 99*
 
 While he would pare and hone the story before committing the final version to tape, Bruce originally provided more backstory for the crime itself, before undoubtedly realizing that the song needs to rely more on the circumstances that led to the crime more than on the deed itself.
 
 In the outtake below, we learn that Ralph wasn’t even trying to rob the store of its entire stash–he only demanded what he needed: two hundred dollars. We also learn that Ralph acted in what he perceived to be self-defense.
 
-*It’s only two hundred dollars, that was all I was asking for*
-*Judge, just two hundred dollars, and I’d’ve been on my way out the door*
-*He reached ‘neath the counter and I saw something shiny in his hand*
+*It’s only two hundred dollars, that was all I was asking for*  
+*Judge, just two hundred dollars, and I’d’ve been on my way out the door*  
+*He reached ‘neath the counter and I saw something shiny in his hand*  
 *He spewed blood like a fountain and I dropped my gun and I ran*
 
 [Watch Video Highlight](https://videopress.com/embed/bTFvUGLu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
@@ -73,9 +73,9 @@ Before we move on, there’s one piece of detail to which our attention must be 
 
 Our story continues with Ralph’s trial:
 
-*Well the city supplied a public defender but the judge was Mean John Brown*
-*He came into the courtroom and stared poor Johnny down*
-*Well the evidence is clear, gonna let the sentence son fit the crime*
+*Well the city supplied a public defender but the judge was Mean John Brown*  
+*He came into the courtroom and stared poor Johnny down*  
+*Well the evidence is clear, gonna let the sentence son fit the crime*  
 *Prison for 98 and a year and we’ll call it even, Johnny 99*
 
 Here, at the song’s mid-point, we learn whence the song’s title derives–from John Brown, the sarcastic judge who labels Ralph “Johnny 99,” depriving Ralph of the dignity of his name and forever associating him with his crime instead.
@@ -84,33 +84,33 @@ Here, at the song’s mid-point, we learn whence the song’s title derives–fr
 
 An uproar ensues at the reading of the sentence, as Ralph’s family (his mom and his girlfriend, although in an early outtake, Ralph’s dad stands in for the girl) realizes they’re about to say goodbye to him forever.
 
-*A fistfight broke out in the courtroom, they had to drag Johnny’s girl away*
-*His mama stood up and shouted, “Judge, don’t take my boy this way”*
-*Well son you got any statement you’d like to make*
+*A fistfight broke out in the courtroom, they had to drag Johnny’s girl away*  
+*His mama stood up and shouted, “Judge, don’t take my boy this way”*  
+*Well son you got any statement you’d like to make*  
 *Before the bailiff comes to forever take you away*
 
 This is another juncture at which Bruce tightened the song. In the outtake above, the judge taunts Ralph at this point:
 
-*‘Cause from here on after we can only hear you buddy when you shout*
+*‘Cause from here on after we can only hear you buddy when you shout*  
 *You’re going deep down deep in some hole and you ain’t ever gonna come back out*
 
 …and in a second early outtake below, the judge also answers Ralph’s mother’s plea:
 
-*“Well I’m sorry Ma’am but the law must be satisfied*
+*“Well I’m sorry Ma’am but the law must be satisfied*  
 *At your son’s murdering hands an honest man died”*
 
 [Watch Video Highlight](https://videopress.com/embed/JTKl33Gu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 As the song enters into its third act, Ralph gets his climactic courtroom monologue, and here is where Bruce’s social commentary cuts most sharply.
 
-*Now judge, judge, I got debts no honest man could pay*
-*The bank was holding my mortgage, they taking my house away*
-*Now I ain’t saying that makes me an innocent man*
+*Now judge, judge, I got debts no honest man could pay*  
+*The bank was holding my mortgage, they taking my house away*  
+*Now I ain’t saying that makes me an innocent man*  
 *But it was more and all this that put that gun in my hand*
 
-*Well your honor, I do believe I’d be better off dead*
-*And if you can take a man’s life for the thoughts that’s in his head*
-*Then won’t you sit back in that chair and think it over, Judge, one more time*
+*Well your honor, I do believe I’d be better off dead*  
+*And if you can take a man’s life for the thoughts that’s in his head*  
+*Then won’t you sit back in that chair and think it over, Judge, one more time*  
 *And let ’em shave off my hair and put me on that execution line*
 
 That first line is the key to the whole song: *I got debts no honest man could pay.*
@@ -181,9 +181,9 @@ Bruce shows no sign of reverting back to his original arrangement of “Johnny 9
 But in the back of my mind, I’ll be thinking about poor Ralph, locked away and forgotten.
 
 **Johnny 99  
-**Recorded:** January 3, 1982<br>
-**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)<br>
-**First performed:** June 29, 1984 (St. Paul, MN)<br>
+**Recorded** January 3, 1982  
+**Released:** *Nebraska* (1982), *The Essential Bruce Springsteen* (2003)  
+**First performed:** June 29, 1984 (St. Paul, MN)  
 **Last performed:** August 30, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

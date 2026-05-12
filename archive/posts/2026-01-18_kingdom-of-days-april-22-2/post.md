@@ -1,183 +1,135 @@
+**1966:** The Castiles perform and compete at a Battle of the Bands at the Matawan-Keyport Roller Drome in Matawan, New Jersey. The Castiles do not win (or even place in the top five), but Bruce meets the drummer of the second place band, Vini Lopez, and one of the judges, Vinnie Roslin, for the first time. Vini, Vinnie and Bruce (along with Danny Federici) will go on to form Steel Mill.
 
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1966-0422.jpg)
 
-The Castiles perform and compete at a Battle of the Bands at the Matawan-Keyport Roller Drome in Matawan, New Jersey. The Castiles do not win (or even place in the top five), but Bruce meets the drummer of the second place band, Vini Lopez, and one of the judges, Vinnie Roslin, for the first time. Vini, Vinnie and Bruce (along with Danny Federici) will go on to form Steel Mill.
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/48079400926_4461ce1a1b_o.jpg)
 
-**1966:**
+**1976:** Bruce and the E Street Band play a sold-out show at Virginia Tech University. After the show, Bruce zips across town to catch Nils Lofgren’s performance at Town Hall.
 
+[Watch Video Highlight](https://videopress.com/embed/XZDPhTNT?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/46715349575_b9286b453b_o.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1966-0422.jpg?resize=435%2C650&amp;ssl=1)
+**1980:** Bruce completes the mix for “Be True” at Clover Studios in Los Angeles.
 
+[Watch on Youtube: Be True (Single B-Side - 1981)](https://www.youtube.com/watch?v=Y0Cy4Zwiil0)
 
+**1983:** In newspapers across America, the comic strip *Funky Winkerbean* winks at a certain rising rock star still a year away from megastardom.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/48079400926_4461ce1a1b_o.jpg?resize=600%2C418&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2024/04/Greensboro_Daily_News_Fri__Apr_22__1983_-scaled.jpg)
 
-Bruce and the E Street Band play a sold-out show at Virginia Tech University. After the show, Bruce zips across town to catch Nils Lofgren’s performance at Town Hall.
+**1984:** Bruce sits in with Cats on a Smooth Surface for three songs at The Stone Pony in Asbury Park.
 
-**1976:**
+[Watch Video Highlight](https://videopress.com/embed/PUCyth9U?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/XZDPhTNT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/XZDPhTNT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+![](https://estreetshuffle.com/wp-content/uploads/2018/04/1984-0422.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/46715349575_b9286b453b_o.jpg?resize=758%2C432&amp;ssl=1)
+**1985:** Bruce concludes his first Japanese tour with a two-night stand in Osaka. This is Night One.
 
-Bruce completes the mix for “Be True” at Clover Studios in Los Angeles.
+[Watch Video Highlight](https://videopress.com/embed/gOCQxFdQ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1980:**
+[Watch on Youtube: Bruce Springsteen - Detroit Medley - at Osaka-Joh Hall in Japan 1985.04.22](https://www.youtube.com/watch?v=8BTntTz9fW4)
 
-[https://www.youtube.com/embed/Y0Cy4Zwiil0?feature=oembed](https://www.youtube.com/embed/Y0Cy4Zwiil0?feature=oembed)
+**1988:** Bruce brings the Tunnel of Love Express to the L.A. Sports Arena for the first of five nights. In the encore, “Detroit Medley” makes its final appearance of the tour.
 
-: In newspapers across America, the comic strip winks at a certain rising rock star still a year away from megastardom.
+[Watch on Youtube: Bruce Springsteen Tunnel of Love Express LA Sports Arena 4-22-88](https://www.youtube.com/watch?v=SfrdUdHseog)
 
-**1983***Funky Winkerbean*
+[Watch Video Highlight](https://videopress.com/embed/NoyrHe0X?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-22b.jpg)
 
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-04-22-rotated.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Greensboro_Daily_News_Fri__Apr_22__1983_-scaled.jpg?resize=758%2C306&amp;ssl=1)
+Also tonight: in Pittsburgh, *Evening Magazine* airs a segment about Bruce’s upcoming area show and recent on-sale.
 
-Bruce sits in with Cats on a Smooth Surface for three songs at The Stone Pony in Asbury Park.
+[Watch on Youtube: Bruce Springsteen - Evening Magazine (Pittsburgh), April 22, 1988](https://www.youtube.com/watch?v=DzQHe4A1mkk)
 
-**1984:**
+**1996:** Thanks to the request of a fan who snuck his way into the soundcheck, Bruce plays “The Angel” for the first time ever (and the last time for 13 years) at his solo acoustic show in Royal Albert Hall in London.
 
-[https://videopress.com/embed/PUCyth9U?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PUCyth9U?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/hWsdZ1Y5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1984-0422.jpg?resize=245%2C350&amp;ssl=1)
+**2000:** Bruce soundchecks a new song, “American Skin (41 Shots),” before the Reunion show in Raleigh. Cousin Frank Bruno guest-stars on “Hungry Heart” during the show.
 
-Bruce concludes his first Japanese tour with a two-night stand in Osaka. This is Night One.
+[Watch on Youtube: Bruce Springsteen Lucky Town Live In Raleigh 22/04/2000 Soundboard](https://www.youtube.com/watch?v=0DUdqPBb-hc)
 
-**1985:**
+[Watch Video Highlight](https://videopress.com/embed/0Yx6HV13?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-[https://videopress.com/embed/gOCQxFdQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gOCQxFdQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+ 
 
-[https://www.youtube.com/embed/8BTntTz9fW4?feature=oembed](https://www.youtube.com/embed/8BTntTz9fW4?feature=oembed)
+**2005:** At a second public rehearsal/benefit show (held in the afternoon) at Asbury Park’s Paramount Theater for his upcoming solo tour, Bruce premieres “Reno” and surprises fans with the return of the Christic arrangement of “Real World.” The bullet mic makes its debut on “Reason to Believe” and will remain a fixture on both this tour as well as the Magic Tour (albeit with very different arrangements).
 
-Bruce brings the Tunnel of Love Express to the L.A. Sports Arena for the first of five nights. In the encore, “Detroit Medley” makes its final appearance of the tour.
+[https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3?_=2)
 
-**1988:**
+<https://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3>
 
-[https://www.youtube.com/embed/SfrdUdHseog?feature=oembed](https://www.youtube.com/embed/SfrdUdHseog?feature=oembed)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2005-04-22.jpg)
 
-[https://videopress.com/embed/NoyrHe0X?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NoyrHe0X?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+**2008:** Bruce and the E Street Band play their first show since the passing of Danny Federici. The Tampa show opens with a tribute film set to “Blood Brothers” and opens with an emotional “Backstreets.” The band kicks of the encores with a gorgeous rendition of the gospel classic “I’ll Fly Away.” This show is available for purchase as part of Bruce’s official archive series-.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-22b.jpg?resize=758%2C480&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen - Backstreets (Tampa 2008) SUB ITA](https://www.youtube.com/watch?v=YEnES1datmU)
 
+[Watch on Youtube: Bruce Springsteen "Growin' Up" St. Pete Times Forum, Tampa, FL April 22, 2008](https://www.youtube.com/watch?v=JXi2TA2VMF4)
 
+[Watch on Youtube: Bruce Springsteen - Racing in the Street - Florida 2008](https://www.youtube.com/watch?v=U2F1ekZgFxU)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-22-rotated.jpg?resize=758%2C941&amp;ssl=1)
+[Watch on Youtube: I'll Fly Away (Live at St. Pete Times Forum, Tampa, FL - 4/22/2008)](https://www.youtube.com/watch?v=Z_r09RA759I)
 
-Also tonight: in Pittsburgh, airs a segment about Bruce’s upcoming area show and recent on-sale.
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2008-04-22b.jpg)
 
-*Evening Magazine*
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2008-04-22a.jpg)
 
-[https://www.youtube.com/embed/DzQHe4A1mkk?feature=oembed](https://www.youtube.com/embed/DzQHe4A1mkk?feature=oembed)
+**2009:** Night Two in Boston brings the premiere of “I Wanna Be Sedated” (by request) and a guest-spot/marriage proposal by Tim Brennan of Dropkick Murphys. Making their tour premiere: “For You,” “So Young and in Love,” and “Seven Nights to Rock.”
 
-Thanks to the request of a fan who snuck his way into the soundcheck, Bruce plays “The Angel” for the first time ever (and the last time for 13 years) at his solo acoustic show in Royal Albert Hall in London.
+[Watch on Youtube: Bruce Springsteen - I Wanna Be sedated (Boston 2009)](https://www.youtube.com/watch?v=kCvJo1-Z3B8)
 
-**1996:**
+[https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3?_=3)
 
-[https://videopress.com/embed/hWsdZ1Y5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/hWsdZ1Y5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+<https://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3>
 
-Bruce soundchecks a new song, “American Skin (41 Shots),” before the Reunion show in Raleigh. Cousin Frank Bruno guest-stars on “Hungry Heart” during the show.
+[Watch on Youtube: Bruce Springsteen ~ So Young and In Love - 4/22/09](https://www.youtube.com/watch?v=t7UzgZmNacY)
 
-**2000:**
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2009-04-22-rotated.jpg)
 
-[https://www.youtube.com/embed/0DUdqPBb-hc?feature=oembed](https://www.youtube.com/embed/0DUdqPBb-hc?feature=oembed)
+**2010:** Bruce receives the Ellis Island Family Heritage Award on Ellis Island in New York City.
 
-[https://videopress.com/embed/0Yx6HV13?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0Yx6HV13?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch on Youtube: Bruce Springsteen accepting the 2010 Ellis Island Family Heritage Award](https://www.youtube.com/watch?v=oAmVK4JCHbA)
 
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2010-04-22.jpg)
 
+**2014:** The High Hopes Tour continues to deliver an amazing run of surprises and great performances. This show at the Consol Energy Center in Pittsburgh opens with the premiere of “Clampdown” by The Clash and features the tour premieres of “Stand On It” and “I Wanna Be With You,” along with a rare “Back in Your Arms” and some adorable Bruce and Patti interplay on “Seven Nights to Rock.”
 
-At a second public rehearsal/benefit show (held in the afternoon) at Asbury Park’s Paramount Theater for his upcoming solo tour, Bruce premieres “Reno” and surprises fans with the return of the Christic arrangement of “Real World.” The bullet mic makes its debut on “Reason to Believe” and will remain a fixture on both this tour as well as the Magic Tour (albeit with very different arrangements).
+[Watch on Youtube: Bruce Springsteen_ Pittsburgh 2014](https://www.youtube.com/watch?v=YC6QL4hrHJ0)
 
-**2005:** <http://estreetshuffle.com/wp-content/uploads/2019/04/1-12-Real-World-Piano.mp3>
+[Watch on Youtube: Bruce Springsteen - "Clampdown" and "Badlands" - Pittsburgh - April 22, 2014](https://www.youtube.com/watch?v=IuVkCxZL53o)
 
+[Watch on Youtube: Bruce Springsteen 2014-04-22 "I Wanna Be With You" Pittsburgh](https://www.youtube.com/watch?v=o5PietUe3Ks)
 
+[Watch on Youtube: Bruce Springsteen Live from Pittsburgh 4/22/2014 Front row - Back in Your Arms](https://www.youtube.com/watch?v=ESj8x-RRAn8)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2005-04-22.jpg?resize=607%2C946&amp;ssl=1)
+[Watch on Youtube: Bruce Springsteen-Light of Day, Pittsburgh, April 22, 2014](https://www.youtube.com/watch?v=tg8OPXqieAw)
 
-Bruce and the E Street Band play their first show since the passing of Danny Federici. The Tampa show opens with a tribute film set to “Blood Brothers” and opens with an emotional “Backstreets.” The band kicks of the encores with a gorgeous rendition of the gospel classic “I’ll Fly Away.” This show is available for purchase as part of Bruce’s official archive series-.
+[Watch on Youtube: Bruce Springsteen - Patti Scialfa 2014-04-22 "Seven Nights To Rock" Pittsburgh](https://www.youtube.com/watch?v=NpE3_6UXHrc)
 
-**2008:**
-
-[https://www.youtube.com/embed/YEnES1datmU?feature=oembed](https://www.youtube.com/embed/YEnES1datmU?feature=oembed)
-
-[https://www.youtube.com/embed/JXi2TA2VMF4?feature=oembed](https://www.youtube.com/embed/JXi2TA2VMF4?feature=oembed)
-
-[https://www.youtube.com/embed/U2F1ekZgFxU?feature=oembed](https://www.youtube.com/embed/U2F1ekZgFxU?feature=oembed)
-
-[https://www.youtube.com/embed/Z_r09RA759I?feature=oembed](https://www.youtube.com/embed/Z_r09RA759I?feature=oembed)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-22b.jpg?resize=671%2C1639&amp;ssl=1)
-
-
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-04-22a.jpg?resize=758%2C537&amp;ssl=1)
-
-Night Two in Boston brings the premiere of “I Wanna Be Sedated” (by request) and a guest-spot/marriage proposal by Tim Brennan of Dropkick Murphys. Making their tour premiere: “For You,” “So Young and in Love,” and “Seven Nights to Rock.”
-
-**2009:**
-
-[https://www.youtube.com/embed/kCvJo1-Z3B8?feature=oembed](https://www.youtube.com/embed/kCvJo1-Z3B8?feature=oembed)
-
-<http://estreetshuffle.com/wp-content/uploads/2019/03/2009-04-22-D1Track10-I-Wanna-Be-Sedated-online-audio-converter.com_.mp3>
-
-[https://www.youtube.com/embed/t7UzgZmNacY?feature=oembed](https://www.youtube.com/embed/t7UzgZmNacY?feature=oembed)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2009-04-22-rotated.jpg?resize=712%2C1645&amp;ssl=1)
-
-Bruce receives the Ellis Island Family Heritage Award on Ellis Island in New York City.
-
-**2010:**
-
-[https://www.youtube.com/embed/oAmVK4JCHbA?start=2&amp;feature=oembed](https://www.youtube.com/embed/oAmVK4JCHbA?start=2&amp;feature=oembed)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2010-04-22.jpg?resize=758%2C487&amp;ssl=1)
-
-The High Hopes Tour continues to deliver an amazing run of surprises and great performances. This show at the Consol Energy Center in Pittsburgh opens with the premiere of “Clampdown” by The Clash and features the tour premieres of “Stand On It” and “I Wanna Be With You,” along with a rare “Back in Your Arms” and some adorable Bruce and Patti interplay on “Seven Nights to Rock.”
-
-**2014:**
-
-[https://www.youtube.com/embed/YC6QL4hrHJ0?feature=oembed](https://www.youtube.com/embed/YC6QL4hrHJ0?feature=oembed)
-
-[https://www.youtube.com/embed/IuVkCxZL53o?feature=oembed](https://www.youtube.com/embed/IuVkCxZL53o?feature=oembed)
-
-[https://www.youtube.com/embed/o5PietUe3Ks?feature=oembed](https://www.youtube.com/embed/o5PietUe3Ks?feature=oembed)
-
-[https://www.youtube.com/embed/ESj8x-RRAn8?feature=oembed](https://www.youtube.com/embed/ESj8x-RRAn8?feature=oembed)
-
-[https://www.youtube.com/embed/tg8OPXqieAw?feature=oembed](https://www.youtube.com/embed/tg8OPXqieAw?feature=oembed)
-
-[https://www.youtube.com/embed/NpE3_6UXHrc?feature=oembed](https://www.youtube.com/embed/NpE3_6UXHrc?feature=oembed)
-
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2014-04-22.jpg?resize=758%2C559&amp;ssl=1)
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/2014-04-22.jpg)
 
 The video for “American Beauty” also premieres on this date.
 
-[https://www.youtube.com/embed/JYMc4FkSObM?feature=oembed](https://www.youtube.com/embed/JYMc4FkSObM?feature=oembed)
+[Watch on Youtube: American Beauty](https://www.youtube.com/watch?v=JYMc4FkSObM)
 
-At a party with his mom at a local restaurant in Marlboro, New Jersey, Bruce joins the Eddie Tesla Band on stage briefly for a “In the Midnight Hour” and “Soul Man.” Later, he watches Little Steven’s show at the Paramount and joins him on-stage for the encores.
+**2017:** At a party with his mom at a local restaurant in Marlboro, New Jersey, Bruce joins the Eddie Tesla Band on stage briefly for a “In the Midnight Hour” and “Soul Man.” Later, he watches Little Steven’s show at the Paramount and joins him on-stage for the encores.
 
-**2017:**
+[Watch on Youtube: Little Steven & the Disciples of Soul w/Bruce Springsteen, Asbury Park, NJ 04/22/2017](https://www.youtube.com/watch?v=GDOEFWUmXUU)
 
-[https://www.youtube.com/embed/GDOEFWUmXUU?feature=oembed](https://www.youtube.com/embed/GDOEFWUmXUU?feature=oembed)
+![](https://estreetshuffle.com/wp-content/uploads/2021/04/2017-04-22.jpg)
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2017-04-22.jpg?resize=758%2C1130&amp;ssl=1)
+**2019:** Bruce’s official Twitter account posts a mysterious image with no explanation. What could it mean?
 
-Bruce’s official Twitter account posts a mysterious image with no explanation. What could it mean?
+![](https://estreetshuffle.com/wp-content/uploads/2020/04/april22.jpg)
 
-**2019:**
+**2020:** Bruce and Patti perform “Land of Hope and Dreams” and “Jersey Girl” at the virtual Jersey 4 Jersey benefit for pandemic relief.
 
+[Watch on Youtube: Jersey 4 Jersey - Bruce Springsteen & Patti Scialfa](https://www.youtube.com/watch?v=8hHfTEYt52w)
 
+**2025:** Bruce performs the complete *Nebraska* album live by himself at the Count Basie Theater in Red Bank, New Jersey. It will be released later in the year as part of the *Nebraska ’82: Expanded Edition* box set.
 
-![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/april22.jpg?resize=758%2C717&amp;ssl=1)
-
-Bruce and Patti perform “Land of Hope and Dreams” and “Jersey Girl” at the virtual Jersey 4 Jersey benefit for pandemic relief.
-
-**2020:**
-
-[https://www.youtube.com/embed/8hHfTEYt52w?feature=oembed](https://www.youtube.com/embed/8hHfTEYt52w?feature=oembed)
-
-Bruce performs the complete album live by himself at the Count Basie Theater in Red Bank, New Jersey. It will be released later in the year as part of the box set.
-
-**2025:** *Nebraska* *Nebraska ’82: Expanded Edition*
-
-[https://www.youtube.com/embed/6PtSo87mXGE?feature=oembed](https://www.youtube.com/embed/6PtSo87mXGE?feature=oembed)
+[Watch on Youtube: Bruce Springsteen - Open All Night (Nebraska Live - Official Video)](https://www.youtube.com/watch?v=6PtSo87mXGE)

@@ -20,47 +20,47 @@ I’d argue that “The Big Payback” is just as taut and edgy as “Open All N
 
 In typical Nebraska fashion, “The Big Payback” features an anti-hero, but it’s a slow burn until we realize that. At first, we think we’re just being introduced to another of Bruce’s stock working stiff characters:
 
-*I bought a scooter and I rented a shack*
-*Out in the sun by the railroad track*
-*I got a job and I’m a-breaking my back*
+*I bought a scooter and I rented a shack*  
+*Out in the sun by the railroad track*  
+*I got a job and I’m a-breaking my back*  
 *Working and working for the big payback*
 
-*I keep a-putting and a-puttin’ out*
-*I keep a-sweating like all get out*
-*I work so long that I’m a-losing track*
+*I keep a-putting and a-puttin’ out*  
+*I keep a-sweating like all get out*  
+*I work so long that I’m a-losing track*  
 *Waiting waiting on the big payback*
 
 Our narrator, Bobby (we’ll soon learn his name), is doing hard, honest labor with the expectation of a big payday. But it never comes. His job uses him, drains him, and he knows it will someday discard him like a cheap one-night stand once it’s taken all it can take from him:
 
-*Well it’s a wham-bam, thank you ma’am, goddamn, look out Sam*
-*It’s a gone dead train rumbling down this track*
-*They got your neck in the noose, you’re dragging long in back*
+*Well it’s a wham-bam, thank you ma’am, goddamn, look out Sam*  
+*It’s a gone dead train rumbling down this track*  
+*They got your neck in the noose, you’re dragging long in back*  
 *Chasing and chasing the big payback*
 
 Now it’d be one thing if Bobby had some solidarity out there on the line. But he seems to be on his own, sweating and toiling while his foreman… well, I’m pretty sure we don’t need Urban Dictionary to tell us what “diddy wack wack” is in reference to. (But I’m dying to know how Bruce came up with the phrase.)
 
-*Oh what my foreman does well I don’t know*
-*He just throws me a shovel and yells “Go, Bobby, Go”*
-*Oh well-a all day long he’s just a diddy wack wack*
+*Oh what my foreman does well I don’t know*  
+*He just throws me a shovel and yells “Go, Bobby, Go”*  
+*Oh well-a all day long he’s just a diddy wack wack*  
 *While I’m sweating and sweating for the big payback*
 
-*Yeah it’s a wham bam, thank you ma’am, god damn, look out Sam*
-*It’s a gone dead train rumbling down the track*
-*They got your neck in the noose, your hands are tied up in back*
+*Yeah it’s a wham bam, thank you ma’am, god damn, look out Sam*  
+*It’s a gone dead train rumbling down the track*  
+*They got your neck in the noose, your hands are tied up in back*  
 *And you’re a-working and working for the big payback*
 
 And now the song turns sinister, both lyrically and vocally:
 
-*I quit that job and Mister I ain’t going back*
-*Got me a knife and she’s a long and black*
-*I’ll tell you how I make my piece at night Mac*
+*I quit that job and Mister I ain’t going back*  
+*Got me a knife and she’s a long and black*  
+*I’ll tell you how I make my piece at night Mac*  
 *Down in the alley of the big payback*
 
 Bobby’s looking for the easy money now, lying in wait in a dark alley with long knife. And those “gone dead train” and “neck in the noose” metaphors… well, they don’t seem so metaphorical now that they’re turned around:
 
-*I go a wham bam, thank you ma’am, god damn, c’mon man*
-*You’re a gone dead train rumbling down this track*
-*I got your neck in the noose and I don’t give a damn Jack*
+*I go a wham bam, thank you ma’am, god damn, c’mon man*  
+*You’re a gone dead train rumbling down this track*  
+*I got your neck in the noose and I don’t give a damn Jack*  
 *I’m on that long lost highway of the big payback*
 
 Bobby repeats that last line as the song fades, heading farther down the dark path he’s chosen, paying back the world in violence for the perceived injustice done to him.
@@ -71,9 +71,9 @@ Like I said: this is *Nebraska* material through and through. It’s also some o
 
 So maybe Bruce will someday remember about “The Big Payback” and give Bobby a chance to make it big on stage. But given Bobby’s bad luck and karma, it’s more likely he’ll stay condemned to lurking in the dark alleys of B-sides and bonus discs.
 
-**The Big Payback**
-**Recorded:** January-April 1982<br>
-**Released:** *The Essential Bruce Springsteen* (2003)<br>
+**The Big Payback**  
+**Recorded:** January-April 1982  
+**Released:** *The Essential Bruce Springsteen* (2003)  
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

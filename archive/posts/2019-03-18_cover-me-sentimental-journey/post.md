@@ -13,5 +13,5 @@ From March 9, 1974 at Station KLOL-FM in Houston, in crystal clarity, here's Bru
 *There is a surviving but undated setlist from Bruce's high school days with The Castiles that indicates he may have played "Sentimental Journey" at a wedding in 1965 (Bruce would have *just* turned sixteen), but it cannot be definitively dated and no recording exists.
 
 **Sentimental Journey**
-First performed: March 9, 1974 (Houston, TX)
-Last performed: March 9, 1974 (Houston, TX)
+**First performed:** March 9, 1974 (Houston, TX)
+**Last performed:** March 9, 1974 (Houston, TX)

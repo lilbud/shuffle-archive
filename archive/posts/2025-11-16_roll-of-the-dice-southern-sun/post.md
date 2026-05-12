@@ -16,29 +16,29 @@ Although he recorded it, Hammond wasn’t particularly impressed with “Souther
 
 “Southern Sun” is based on the premise that people and places don’t always live up to our romanticized notions of them. It’s the story of a northern city boy with a streak of southern heritage via his grandmother (on which side, Bruce never makes clear), who regales him with tales that inspire his imagination.
 
-*Born on the Hudson twenty-two years gone*
-*Bred and raised in the city*
-*From my daddy’s knee I learned the Union songs*
-*But Grandma sang lullabies of Dixie*
-*And though the northern winter fills my heart with joy*
+*Born on the Hudson twenty-two years gone*  
+*Bred and raised in the city*  
+*From my daddy’s knee I learned the Union songs*  
+*But Grandma sang lullabies of Dixie*  
+*And though the northern winter fills my heart with joy*  
 *It’s a southern sun that shines down on this Yankee boy*
 
 Although he loves the north, our narrator dreams of the south. He imagines escaping there someday, although he recognizes and accepts it may never happen, just as his mother dreams of starting a new life in Paris.
 
-*Mama dreamed of Paris nights and boatin’ on the Seine*
-*She said, “we’re gonna make it there too soon as Papa comes home again”*
-*And she’d speak to me in broken French, dressed like a painting of Lautrec’s*
-*In the night she’d clutch me to her breast and say, “we’ll make it outta here yet”*
-*And though the Parisian women strut so fine down the Eiffel mall*
+*Mama dreamed of Paris nights and boatin’ on the Seine*  
+*She said, “we’re gonna make it there too soon as Papa comes home again”*  
+*And she’d speak to me in broken French, dressed like a painting of Lautrec’s*  
+*In the night she’d clutch me to her breast and say, “we’ll make it outta here yet”*  
+*And though the Parisian women strut so fine down the Eiffel mall*  
 *It’s a southern one I sing my songs for*
 
 When he does escape, our narrator heads west, with companions that sound suspiciously like a travelling band. Their route appears to take them through the south, where he has a brief dalliance with a local girl that doesn’t seem to end well.
 
-*With a local bunch of do-good boys and an old man from the West*
-*We crossed the land in a caravan, yes, we traveled with the best*
-*With circus acts and vaudeville hacks and a Mississippi Delta Queen*
-*She told me the news and sold me the blues in an alley in New Orleans*
-*And though the western plains are still stained with the blood of great cowboys*
+*With a local bunch of do-good boys and an old man from the West*  
+*We crossed the land in a caravan, yes, we traveled with the best*  
+*With circus acts and vaudeville hacks and a Mississippi Delta Queen*  
+*She told me the news and sold me the blues in an alley in New Orleans*  
+*And though the western plains are still stained with the blood of great cowboys*  
 *It’s a southern sun that shines down on this Yankee boy*
 
 But our narrator wears his broken heart as a badge of honor, and he refuses to let one sour romance ruin his infatuation with the South of his imagination.
@@ -54,9 +54,9 @@ Still, Bruce took another crack at recording the song a few weeks later. This is
 By now, I should know not to make absolute statements–after all, “If I Was the Priest” eventually saw the light of day–but I’ll go out on a limb and predict we’re not likely to hear any official studio or live recording of “Southern Sun” any time soon.
 
 **Southern Sun  
-**Recorded:** May-June 1972<br>
-**Never released**
-**First performed:** February 5, 1972 (Richmond, VA)<br>
+**Recorded** May-June 1972  
+**Never released**  
+**First performed:** February 5, 1972 (Richmond, VA)  
 **Last performed:** February 17, 1972 (Freehold, NJ)
 
 © September 7, 2021

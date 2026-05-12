@@ -20,57 +20,57 @@ Originally recorded titled (and recorded) under the name “Gone, Gone, Gone” 
 
 Our point of view character is an unemployed worker, lured from his home up north (probably working in the steel mills or coal mines) by the promise of plentiful and secure work in Texas. He heads south with nothing to his name other than his family, only to find that by the time he gets there, the price of oil had dropped and the jobs along with it. With no work to do and no place to go, he and his family find themselves homeless in Houston.
 
-*Well a great black river a man had found*
-*So he put all his money in a hole in the ground*
-*Sent a big steel arm driving down down down*
+*Well a great black river a man had found*  
+*So he put all his money in a hole in the ground*  
+*Sent a big steel arm driving down down down*  
 *Now I live on the streets of Houston town*
 
-*Packed up my wife and kids when winter came along*
-*And I headed down south with just spit and a song*
-*But they said, “Sorry son it’s gone gone gone,*
+*Packed up my wife and kids when winter came along*  
+*And I headed down south with just spit and a song*  
+*But they said, “Sorry son it’s gone gone gone,*  
 *Yeah it’s all gone… all work is gone”*
 
 The scene on the streets is grim. The homeless huddle by the railroad tracks or in tents by the highway. Our narrator’s family sleeps in the only thing they have to their name: their car. His kids are sick–perhaps seriously so–from exposure to the elements, but they have nowhere else to go. And even the parking lot is no longer an option when a passing patrolman forces them to go somewhere, *anywhere* else.
 
-*There’s men hunkered down by the railroad tracks*
-*The Elkhorn Special blowing my hair back*
-*Tents pitched on the highway in the dirty moonlight*
+*There’s men hunkered down by the railroad tracks*  
+*The Elkhorn Special blowing my hair back*  
+*Tents pitched on the highway in the dirty moonlight*  
 *And I don’t know where I’m gonna sleep tonight*
 
-*Parked in the lumberyard freezing our asses off*
-*Kids in the back seat got a graveyard cough*
-*I’m sleeping up in front with my wife*
-*Billy club tapping on the windshield in the middle of the night*
+*Parked in the lumberyard freezing our asses off*  
+*Kids in the back seat got a graveyard cough*  
+*I’m sleeping up in front with my wife*  
+*Billy club tapping on the windshield in the middle of the night*  
 *He says, “Move along son, move along”*
 
 (Note, by the way, the tracks/back paring that Bruce would use again a decade later in “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/).” The imagery in “Seeds” rhymes with “The Ghost of Tom Joad” even more than the words do.)
 
 At this point, a limousine passes by (presumably carrying an oil executive, whose employment is secure), adding insult to injury.
 
-*Big limousine, long shiny and black*
+*Big limousine, long shiny and black*  
 *You don’t look ahead, you don’t look back*
 
 The bigwig doesn’t even acknowledge the presence of his former workers now out on the street. Presumably the exec is rich enough to forget their names, a notion that Bruce would make more explicit in another song on *The Ghost of Tom Joad.*
 
 But Bruce’s next lines are a callback to one of his most popular contemporary songs. Like the narrator of “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/),” our hero in “Seeds” feels like a dog who’s been beat too much and has hit the ground too many times. These next lines are among Bruce’s angriest and most bitter:
 
-*How many times can you get up after you’ve been hit*
-*Well I swear if I could spare the spit*
-*I’d lay one on your shiny chrome*
+*How many times can you get up after you’ve been hit*  
+*Well I swear if I could spare the spit*  
+*I’d lay one on your shiny chrome*  
 *And send you on your way back home*
 
-*If you’re gonna leave your town where the north wind blow*
-*To come on down where the sweet soda river flow*
-*You better think twice on it, Jack*
+*If you’re gonna leave your town where the north wind blow*  
+*To come on down where the sweet soda river flow*  
+*You better think twice on it, Jack*  
 *You’re better off buying a shotgun straight off a rack*
 
 Seething with frustration and regret, our hero wishes he could spit on the passing limousine (or possibly the bald head of its passenger, so clever is the metaphor), but we know what he *really* wants is just to be seen and acknowledged for the economic injustice that’s been done him.
 
 And for anyone else tempted to make the migration south, he offers sobering advice: you’re better off just buying a gun and ending it slowly instead of drawn out. Because as Bruce points out in a final verse that reveals the reason for the song’s title (but is too poetic for such an angry arrangement), all the jobs have scattered to the wind like dandelion seeds, the workers now rootless in more than one sense.
 
-*The only thing you’re gonna find here, friend*
-*The seeds blowing up the highway in the south wind*
-*Moving on, moving on*
+*The only thing you’re gonna find here, friend*  
+*The seeds blowing up the highway in the south wind*  
+*Moving on, moving on*  
 *Now it’s gone gone gone*
 
 Bruce played “Seeds” so regularly during the last leg of the Born in the U.S.A. Tour that fans quickly accepted the song as if it had been in Bruce’s catalog all along. So it wasn’t surprising that Bruce would continue playing it long after the tour ended.
@@ -110,9 +110,9 @@ That arrangement has stuck ever since. “Seeds” has continued to make appeara
 Given the state of the economy, however, and its likely prolonged recovery, I suspect “Seeds” may once again become a set list staple when Bruce tours once again.
 
 **Seeds**
-**Recorded:** May 25, 1983<br>
-**Never released** (Live version released on *Live 1975-85*)
-**First performed:** July 3, 1985 (London, England)<br>
+**Recorded** May 25, 1983  
+**Never released** (Live version released on *Live 1975-85*)  
+**First performed:** July 3, 1985 (London, England)  
 **Last performed:** June 5, 2016 (London, England)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

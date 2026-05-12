@@ -16,9 +16,9 @@ It almost feels silly to analyze a song that’s basically a lark, but let’s t
 
 “TV Movie” starts with a literal nightmare and quickly segues into a metaphorical one:
 
-*I woke up last night shaking from a dream, for in that dream I died*
-*My wife rolled over and told me that my life would be immortalized*
-*Not in some major motion picture, or great American novel, you see*
+*I woke up last night shaking from a dream, for in that dream I died*  
+*My wife rolled over and told me that my life would be immortalized*  
+*Not in some major motion picture, or great American novel, you see*  
 *No, they’re gonna make a TV movie out of me*
 
 We know already that Bruce’s narrator is famous enough to warrant a biopic, but in her attempt to console her husband (although still a few years away from marriage, we can probably safe assume “TV Movie” is thematically autobiographical), our hero’s wife damns with faint praise.
@@ -27,34 +27,34 @@ In those pre-HBO and Netflix days, the quality divide between movies made for te
 
 But TV movies were prolific, and celebrities were popular and profitable fodder for biographical adaptations:
 
-*Well now it’s a one-two-three you take the money*
-*Yeah, it’s as easy as A-B-C*
+*Well now it’s a one-two-three you take the money*  
+*Yeah, it’s as easy as A-B-C*  
 *Yeah, they’re gonna make a TV movie out of me*
 
 Bruce’s narrator knows he has little control over how he’s portrayed, and he frets over it… or so we think.
 
-*Well, they can change my name or they can leave it, yeah they can change my story too*
-*Or they can make me black or Chinese and do things that I never gonna do*
-*They’re gonna give my life a whole new ending and put me in prime-time first-run*
+*Well, they can change my name or they can leave it, yeah they can change my story too*  
+*Or they can make me black or Chinese and do things that I never gonna do*  
+*They’re gonna give my life a whole new ending and put me in prime-time first-run*  
 *And when it’s over, what I did there will be what I done*
 
 In later years, Bruce would quote the famous line from *The Man Who Shot Liberty Valance*: “When the legend becomes fact, print the legend.” By that time, the legend of Bruce Springsteen had indeed become fact; in 1983, Bruce could see it coming.
 
 But here’s where Bruce throws a curve ball right down the middle of “TV Movie,” as we learn that our protagonist doesn’t fear being misportrayed at all–in fact, he welcomes it as the price of fame:
 
-*Well, now I don’t want my name in a history book*
-*Nobody’s ever gonna see*
+*Well, now I don’t want my name in a history book*  
+*Nobody’s ever gonna see*  
 *No, they’re gonna make a TV movie out of me*
 
 In 1983, television may not have offered the critical respect that movies afforded, but it offered something more important: *popular* respect. From this point forward, our hero embraces the notion of living forever in a TV movie that will air forever in late-night re-runs, and the band lets loose in celebration during the bridge. One almost suspects they’d revel endlessly if Bruce hadn’t reined them back in with a “one more verse now!”
 
-*Well, I’m a shoe-in for a sponsor, Goodyear blimp and radial wheels*
-*Somebody had a meeting somewhere, somehow somebody made a deal*
-*Well, I was one of them kinds of stories that everybody liked to see*
+*Well, I’m a shoe-in for a sponsor, Goodyear blimp and radial wheels*  
+*Somebody had a meeting somewhere, somehow somebody made a deal*  
+*Well, I was one of them kinds of stories that everybody liked to see*  
 *Yeah, they’re gonna make a TV movie out of me*
 
-*Now I don’t want no inscription on my gravestone*
-*No long soliloquy*
+*Now I don’t want no inscription on my gravestone*  
+*No long soliloquy*  
 *Now they’re gonna make a TV movie out of me*
 
 Our hero sees dollar signs in his future, and more importantly: late-night immortality. Ironically, the world would change over the decades that followed. Today, most of those TV movies are lost to pre-streaming history, relegated to studio archives and old VHS tapes.
@@ -78,9 +78,9 @@ So why did Bruce change his mind forty years later and spotlight Jake instead of
 Regardless, “TV Movie” needs at least one more outing to set things right. Let’s hope we get it soon.
 
 **TV Movie  
-**Recorded:** June 13, 1983<br>
-**Released:** *Tracks* (1998)<br>
-**First performed:** July 23, 2013 (Cardiff, Wales)<br>
+**Recorded** June 13, 1983  
+**Released:** *Tracks* (1998)  
+**First performed:** July 23, 2013 (Cardiff, Wales)  
 **Last performed:** July 23, 2013 (Cardiff, Wales)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

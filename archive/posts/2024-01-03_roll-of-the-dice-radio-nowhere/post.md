@@ -14,9 +14,9 @@ And perhaps rockers past as well.
 
 Because if the chorus of “Radio Nowhere” is about connection, its verses are about alienation.
 
-*I was trying to find my way home*
-*But all I heard was a drone*
-*Bouncing off a satellite*
+*I was trying to find my way home*  
+*But all I heard was a drone*  
+*Bouncing off a satellite*  
 *Crushing the last lone American night*
 
 The first and most important thing we learn about our narrator is that he’s lost.
@@ -37,9 +37,9 @@ Springsteen fans recognize the chorus on first listen with a thrill: it’s the 
 
 But in this song, it’s a desperate and lonely plaint: *I’m alone. Is there **anyone** out there for me?*
 
-*I was spinning ’round a dead dial*
-*Just another lost number in a file*
-*Dancing down a dark hole*
+*I was spinning ’round a dead dial*  
+*Just another lost number in a file*  
+*Dancing down a dark hole*  
 *Just searching for a world with some soul*
 
 I love this verse, because it’s deceptive in its pop simplicity. There’s a lot of songwriting artistry at work here, however, and it’s worth taking a moment to admire it.
@@ -52,15 +52,15 @@ That first couplet is especially clever: The dead dial belongs to both a radio a
 
 The vocal bridge is a scream into the void:
 
-*I just want to hear some rhythm!*
-*I just want to hear some rhythm!*
-*I just want to hear some rhythm!*
+*I just want to hear some rhythm!*  
+*I just want to hear some rhythm!*  
+*I just want to hear some rhythm!*  
 *I just want to hear some rhythm!*
 
 What’s another word for *rhythm*? Beat. Pulse. These are signs of life we’re looking for.
 
-*I want a thousand guitars*
-*I want pounding drums*
+*I want a thousand guitars*  
+*I want pounding drums*  
 *I want a million different voices speaking in tongues*
 
 There’s a world out there somewhere, and we’re not part of it.
@@ -71,9 +71,9 @@ Bruce’s revealing video for “Radio Nowhere” shows a bustling city of anony
 
 In a contemporaneous interview, Bruce described “Radio Nowhere” as apocalyptic, “an end of the world scenario,” but that’s just its window dressing. Zimny’s video gives away the song’s true significance.
 
-*I was driving through the misty rain*
-*Searching for a mystery train*
-*Bopping through the wild blue*
+*I was driving through the misty rain*  
+*Searching for a mystery train*  
+*Bopping through the wild blue*  
 *Trying to make a connection with you*
 
 Our narrator searches high and low for connection: to music (the mystery train refers to the [iconic rock song](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)) and to people.
@@ -113,9 +113,9 @@ The failure of “Radio Nowhere” to chart signaled that Bruce’s days of comm
 Is there anybody alive out there?
 
 **Radio Nowhere  
-**Recorded:** March 2007<br>
-**Released:** *Magic* (2007), *The Essential Bruce Springsteen* (2015)<br>
-**First performed:** September 24, 2007 (Asbury Park, NJ)<br>
+**Recorded** March 2007  
+**Released:** *Magic* (2007), *The Essential Bruce Springsteen* (2015)  
+**First performed:** September 24, 2007 (Asbury Park, NJ)  
 **Last performed:** February 21, 2017 (Christchurch, New Zealand)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

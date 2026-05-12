@@ -2,26 +2,26 @@
 
 That’s a pretty good distillation of what long-term relationships are like, and that’s exactly what “Town Called Heartbreak” is about.
 
-[https://www.youtube.com/embed/L7Dh17orH-g?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/L7Dh17orH-g?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=L7Dh17orH-g)
 
 Patti Scialfa recorded “Town Called Heartbreak” for her 2007 album, *Play It As It Lays*, but she wrote it long before. A bit tougher in tone than her earlier material, Patti found a home for it on her third album and released it as the album’s first single.
 
 “Town Called Heartbreak” isn’t a title you’d expect for a love song, and frankly its lyrics don’t scream romance either.
 
-*They say love*
-*A love has its very own light*
-*That can shine through the darkest night*
-*That we’ve heard of*
-*And that light*
-*That you may want so much*
-*Well maybe you can never touch*
-*Though you may try*
-*Now at night I dream*
-*I’m all alone*
-*Big sledgehammer and a cold dark stone*
-*Man swing the hammer*
-*World begin to shake*
-*I’m just living in a town called Heartbreak*
+*They say love*  
+*A love has its very own light*  
+*That can shine through the darkest night*  
+*That we’ve heard of*  
+*And that light*  
+*That you may want so much*  
+*Well maybe you can never touch*  
+*Though you may try*  
+*Now at night I dream*  
+*I’m all alone*  
+*Big sledgehammer and a cold dark stone*  
+*Man swing the hammer*  
+*World begin to shake*  
+*I’m just living in a town called Heartbreak* 
 
 And yet in a way, “Town Called Heartbreak” very much is a love song. It’s about the reality of love, rather than the cliche of it. Maybe we can’t be complete without our partners, but they’re not all it takes to make us complete.
 
@@ -29,7 +29,7 @@ We change, we grow, and our marriages and relationships need to evolve as we do.
 
 There’s a tag at the end of Patti’s song that comes directly from the end of Janis Ian’s “Society’s Child,” and it ends the song on an ominously unsettled note. “Society’s Child” is about an inter-racial relationship that doesn’t end well.
 
-[https://www.youtube.com/embed/-QPF-duKQro?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/-QPF-duKQro?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-QPF-duKQro)
 
 Perhaps Patti’s inclusion of it–besides serving as a hat tip to an influence–is her way of signalling that love on its own isn’t enough. There are always other forces at play, and to make a relationship work…
 
@@ -46,20 +46,20 @@ Fans by and large didn’t respond to the Scialfa spotlight, however, and within
 
 That’s too bad, because the E Street version is gloriously gritty and features some terrific guitar work from Nils and a rare true duet between Patti and Bruce.
 
-[https://videopress.com/embed/KsoFxqp5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/KsoFxqp5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/KsoFxqp5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 “Town Called Heartbreak” is one of Patti’s strongest tracks, and her live performances with Bruce were highlights of the early Magic Tour. This one deserves to be heard from again soon.
 
 **Bonus:** Here’s a rare live, televised solo Scialfa performance of “Town Called Heartbreak” from 2007 (with some familiar faces in her backing band).
 
-[https://www.youtube.com/embed/1J8a884WInk?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/1J8a884WInk?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1J8a884WInk)
 
+ 
 
-
-**Town Called Heartbreak**
-**Recorded:** Early 2007<br>
-**Released:** *Play It As It Lays* (2007)<br>
-**First performed:** September 25, 2007 (Asbury Park, NJ)<br>
-**Last performed:** November 12, 2007 (Washington, DC)<br>
+**Town Called Heartbreak**  
+**Recorded:** Early 2007  
+**Released:** *Play It As It Lays* (2007)  
+**First performed:** September 25, 2007 (Asbury Park, NJ)  
+**Last performed:** November 12, 2007 (Washington, DC)
 
 © August 9, 2020

@@ -22,19 +22,19 @@ The track opens with a crisp, snapping rhythm that feels decidedly un-E Street. 
 
 Lyrically, our narrator is grappling with a fundamental truth he'd been circling since *Tunnel of Love*: the difference between *falling in love* and *standing in love*. The former is passive; the second requires work.
 
-*All over the world the rain was pouring*
-*I was scratching where it itched*
-*Oh heartbreak and despair got nothing but boring*
+*All over the world the rain was pouring*  
+*I was scratching where it itched*  
+*Oh heartbreak and despair got nothing but boring*  
 *So I grabbed you baby like a wild pitch*
 
-*It takes a leap of faith to get things going*
-*It takes a leap of faith you gotta show some guts*
-*It takes a leap of faith to get things going*
+*It takes a leap of faith to get things going*  
+*It takes a leap of faith you gotta show some guts*  
+*It takes a leap of faith to get things going*  
 *Yeah, in your heart baby you must trust*
 
-*Now your legs were heaven your breasts were the altar*
-*Your body was the holy land*
-*You shouted “jump” but my heart faltered*
+*Now your legs were heaven your breasts were the altar*  
+*Your body was the holy land*  
+*You shouted “jump” but my heart faltered*  
 *You laughed and said “Baby don’t you understand?”*
 
 At first listen, this isn’t Bruce at his most subtle. His narrator is a randy horndog, whose idea of guts is propositioning a girl he both sexualizes and deifies.
@@ -45,16 +45,16 @@ Suddenly the song’s context shifts from carnal to emotional, and our narrator 
 
 Now comes the bridge:
 
-*Now you were the Red Sea I was Moses*
-*I kissed you and slipped into a bed of roses*
-*The waters parted and love rushed inside*
+*Now you were the Red Sea I was Moses*  
+*I kissed you and slipped into a bed of roses*  
+*The waters parted and love rushed inside*  
 *I was Jesus’ son yeah sanctified*
 
 There aren’t many (if any) passages in the Springsteen songbook more graphically (if metaphorically) sexual than this, but it succeeds not only in conveying a moment of sexual climax, but emotional as well. It’s a turning point for our narrator: his lover now represents the gateway to a new and better life of companionship, a moment of true rebirth which Bruce explicitly and uncharacteristically states in the song’s final passage.
 
-*Tonight the moon’s looking young but I’m feeling younger*
-*‘Neath a veil of dreams sweet blessings rain*
-*Honey I can feel the first breeze of summer*
+*Tonight the moon’s looking young but I’m feeling younger*  
+*‘Neath a veil of dreams sweet blessings rain*  
+*Honey I can feel the first breeze of summer*  
 *And in your love I’m born again*
 
 Appropriately, beneath its rock veneer, “Leap of Faith” leans into gospel, particularly in its call-and-response chorus. When the backing vocalists (including Patti Scialfa) swell during the chorus, they provide the safety the lyrics promise.
@@ -83,10 +83,10 @@ In later years, Bruce would revisit with greater craft and subtlety the ground h
 
 But we all get better at things in time. It takes some guts to get things going.
 
-**Leap of Faith**
-**Recorded:** Late 1991<br>
-**Released:** *Lucky Town* (1992)<br>
-**First performed:** May 6, 1992 (New York City, NY)<br>
-**Last performed:** February 14, 2017 (Brisbane, Australia)<br>
+**Leap of Faith  
+**Recorded** Late 1991  
+**Released:** *Lucky Town* (1992)  
+**First performed:** May 6, 1992 (New York City, NY)  
+**Last performed:** February 14, 2017 (Brisbane, Australia)
 
 © February 15, 2026

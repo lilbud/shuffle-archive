@@ -8,7 +8,8 @@ Neil and Bruce’s acoustic rendition is moodier and broodier than the guitar-fu
 
 [https://www.youtube.com/embed/KflCXmEX6BY?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/KflCXmEX6BY?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-**Down By the River****First performed:** March 22, 1985 (Sydney, Australia)<br>
+**Down By the River**
+**First performed:** March 22, 1985 (Sydney, Australia)<br>
 **Last performed:** October 28, 1995 (Mountain View, CA)<br>
 
 © August 6, 2018

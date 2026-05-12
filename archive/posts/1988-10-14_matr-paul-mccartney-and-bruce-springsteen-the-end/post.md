@@ -1,4 +1,4 @@
-*And in the end, the love you take*
+*And in the end, the love you take*  
 *Is equal to the love you make*
 
 It’s one of the greatest lyrical couplets in rock history, all the more remarkable because they stand alone as the final lyrics of the final track on the final album the Beatles ever recorded.
@@ -7,7 +7,7 @@ Even the name of the song (if we can call it a song) conveys finality: *The End*
 
 So we can’t fault the fans who hear the last lines of *Abbey Road* as a farewell from one of the greatest rock and roll bands of all time.
 
-[https://www.youtube.com/embed/12R4FzIhdoQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/12R4FzIhdoQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=12R4FzIhdoQ)
 
 It wasn’t, though. The Beatles hadn’t intended for “The End” to close out the album (let alone their career) at the time they recorded it, and by all accounts Paul was simply looking for a satisfying way to cap off the medley. He took his inspiration from The Bard, who liked to close his plays with a standalone couplet.
 
@@ -27,7 +27,9 @@ In the end, he had *six* guitar heroes on stage: besides himself and his two out
 
 Bruce easily held his own against that formidable line-up, and in the clip below we can clearly see him having the time of his life.
 
-[https://videopress.com/embed/0ABz94N6?at=216&amp;hd=0&amp;cover=1](https://videopress.com/embed/0ABz94N6?at=216&amp;hd=0&amp;cover=1)
+[Watch Video Highlight](https://videopress.com/embed/0ABz94N6?at=216&hd=0&cover=1)
+
+
 
 For a kid who grew up idolizing The Beatles, the chance to support McCartney on stage like that even once would be a bucket list dream.
 
@@ -37,7 +39,7 @@ Bruce had already been on stage for a couple of songs (including his own “Glor
 
 With only four guitarists at the fore for an extra-long jam, Bruce had even more at-bats than he did at The Grammys, and the hometown crowd went wild for it.
 
-[https://www.youtube.com/embed/whSVXfetz4g?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/whSVXfetz4g?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=whSVXfetz4g)
 
 Just nine days later, Bruce reprised his guest appearance at McCartney’s headlining gig across the pond at Glastonbury.
 
@@ -45,12 +47,12 @@ That appearance was actually a promise kept: McCartney had asked Bruce to join h
 
 Springsteen agreed, but a global pandemic forced the festival to punt the gig two years down the road. Bruce remembered his promise, however, and showed up for his songwriting idol. This time, Dave Grohl was there too, lending some extra guitar power to the final number.
 
-[https://www.youtube.com/embed/QfArWz_088U?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;start=6&#038;wmode=transparent](https://www.youtube.com/embed/QfArWz_088U?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;start=6&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QfArWz_088U)
 
 Time will tell if we ever get a chance to see McCartney and Springsteen share a stage again, but if we don’t their 2022 performances of “The End” certainly serve as fitting final team-ups.
 
-**The End**
-**First performed:** February 12, 2012 (Los Angeles, CA)<br>
-**Last performed:** June 25, 2022 (Pilton, England)<br>
+**The End  
+**First performed:** February 12, 2012 (Los Angeles, CA)  
+**Last performed:** June 25, 2022 (Pilton, England)
 
 © June 6, 2024

@@ -1,10 +1,10 @@
 Editor's Note
 
-***Editor's Note:*** *This is Part Two of guest blogger Dan French's incredible E Street adventure from 1981. If you haven't already, be sure to read* *[Part One](https://estreetshuffle.com/index.php/2021/04/14/where-the-band-was-frankfurt-april-141981-dans-story/)* *before continuing on.*
+***Editor’s Note:*** *This is Part Two of guest blogger Dan French’s incredible E Street adventure from 1981. If you haven’t already, be sure to read* *[Part One](https://estreetshuffle.com/index.php/2021/04/14/where-the-band-was-frankfurt-april-141981-dans-story/)* *before continuing on.*
 
 *Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant* *[Facebook community](https://www.facebook.com/groups/290908270798)**.*
 
-*Dan's story has to be read (and re-read) to be believed, so without further ado, Dan's adventure continues.*
+*Dan’s story has to be read (and re-read) to be believed, so without further ado, Dan’s adventure continues.*
 
 The next morning we had a late breakfast, took photos outside the hotel, and left – but not before I encountered Roy by the postcards and asked him for a scribble. 'Sure,' he smiled. 'Take it easy.' No one else was there.
 
@@ -12,9 +12,9 @@ We took a train back to Rena's place in Mannheim, and I met Ilona and Hubert, he
 
 So Hubert drove Ilona, Rena and I the 200km to Munich that evening! We got to the Olympiahalle just before 8 o'clock, and found Glen – but only three tickets and passes. A misunderstanding: Glen found another set, and we went in.
 
-There was quite a different feel from the Frankfurt atmosphere – moody. Early into the show the crowd surged into a space near the front and Bruce had to stop before introducing "[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" and ask people to go back to their seats. Rena and I moved from our places in the guest rows on the side down into the stalls where there was room to stand and dance.
+There was quite a different feel from the Frankfurt atmosphere – moody. Early into the show the crowd surged into a space near the front and Bruce had to stop before introducing “[Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)” and ask people to go back to their seats. Rena and I moved from our places in the guest rows on the side down into the stalls where there was room to stand and dance.
 
-[Watch Video Highlight](https://videopress.com/embed/IahVMWyt)
+[Watch Video Highlight](https://videopress.com/embed/IahVMWyt?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 As it was the last night in Germany, there was a big reception laid on backstage, and as guests we took the chance to eat and spot Roy, Max, Danny, Garry and Clarence mingling. Bruce and Steve didn't show up this time: we spent a while hunting for the dressing-rooms in the large backstage area, but no luck.
 
@@ -24,7 +24,7 @@ So we drove to CC's hotel, went up to his room, and he welcomed us all with cham
 
 We sat and listened to his latest recordings on *Dedication*: 'That's me!' he'd say, on a sax solo. His other cassettes included the Fabulous Thunderbirds and Stevie Wonder.
 
-Rena took photos and got Ilona and Hubert to take some of us. I saw the tour handbook and made a mental note that a second Stafford gig had been penciled in for 22nd May. Entries included: "Tuesday – day off – have a good time!"
+Rena took photos and got Ilona and Hubert to take some of us. I saw the tour handbook and made a mental note that a second Stafford gig had been penciled in for 22nd May. Entries included: “Tuesday – day off – have a good time!”
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/04/df6.png)
 
@@ -40,8 +40,8 @@ No sign of any posters or ads for the show, but we walked up the drive as far as
 
 Quickly I borrowed some money from John (which was to take me six months to repay!) and we bought three extra tickets for each show, plus one for John for the Sunday night; we knew that Geoff N and Kristina V were coming and didn't have tickets. We couldn't believe our luck! I was going to see Bruce twice more before I had to go back!
 
-*To be concluded...*
+*To be concluded…*
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*

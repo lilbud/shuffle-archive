@@ -1,6 +1,6 @@
 I like to think of “I’m Goin’ Down” as the inevitable bookend to “Fire,” just desserts for the earlier song’s creepy narrator.
 
-[https://www.youtube.com/embed/FDePd-mHOL4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/FDePd-mHOL4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=FDePd-mHOL4)
 
 The sixth of an astonishing seven consecutive Top Ten singles from *Born in the U.S.A.,* “I’m Goin’ Down” is tied with the album’s title track for worst performing on the Billboard Hot 100, peaking “only” at #9. (I still can’t wrap my head around how “Cover Me” fared so well by comparison.)
 
@@ -19,17 +19,17 @@ Both songs even start in the same place: the narrator’s car. And if you compar
 
 The songs diverge from there, and neither rewards lyrical analysis. “Fire” and “I’m Goin’ Down” are both pop songs, and Bruce puts everything on the surface.
 
-*We get dressed up and we go out, baby, for the night*
-*We come home early burning, burning, burning in some fire fight*
-*I’m sick and tired of you setting me up, yeah, setting me up just to*
-*Knock-a, knock-a, knock-a me down, down, down, down*
+*We get dressed up and we go out, baby, for the night*  
+*We come home early burning, burning, burning in some fire fight*  
+*I’m sick and tired of you setting me up, yeah, setting me up just to*  
+*Knock-a, knock-a, knock-a me down, down, down, down*  
 *I’m going down, down, down, down*
 
-*I pull you close now baby, but when we kiss I can feel a doubt*
-*I remember back when we started, my kisses used to turn you inside out*
-*I used to drive you to work in the morning, Friday night I’d drive you all around and*
-*You used to love to drive me wild, yeah, but lately girl you get your kicks from just*
-*Driving me down, down, down, down*
+*I pull you close now baby, but when we kiss I can feel a doubt*  
+*I remember back when we started, my kisses used to turn you inside out*  
+*I used to drive you to work in the morning, Friday night I’d drive you all around and*  
+*You used to love to drive me wild, yeah, but lately girl you get your kicks from just*  
+*Driving me down, down, down, down*  
 *I’m going down, down, down, down*
 
 But just because “I’m Goin’ Down” is lyrically light doesn’t mean it isn’t skillfully crafted. There’s a reason why it became a big radio hit, and it’s the same reason you probably love singing along to it on the radio or in concert.
@@ -42,7 +42,7 @@ It’s not the only vocalised trick Bruce pulls out of his hat–there’s also 
 
 Bruce took lessons from the genre and added a couple of his own twists: first, he turned nonsense syllables into actual words–achieving the same phonic impact of songs like Barry Mann and Gerry Goffin’s “Who Put the Bomp” without it seeming gratuitous.
 
-[https://www.youtube.com/embed/lXmsLe8t_gg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/lXmsLe8t_gg?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lXmsLe8t_gg)
 
 Secondly, there’s irony on display: as Mann and Goffin note in their song, doo wop syllables typically have an alluring rather than off-putting effect, which helps explain why even though it’s an angry song, “I’m Goin’ Down” is just a ton of fun to sing.
 
@@ -52,7 +52,7 @@ Every E Streeter shines throughout. Max is the most prominent, but Clarence take
 
 The best part of the song is the song’s final minute, where the band vamps in tight formation while Bruce scats his way into the sunset. It’s one of my favorite E Street studio minutes, and like I mentioned earlier, it’s even better in its unabridged form. Here’s an unreleased take featuring an outro that’s as long as the song itself–turn up the volume and enjoy.
 
-[https://www.youtube.com/embed/aaKRByNhb0Y?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/aaKRByNhb0Y?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aaKRByNhb0Y)
 
 And to think “I’m Goin’ Down” almost didn’t make the record.
 
@@ -60,20 +60,20 @@ It wasn’t an afterthought–in fact, it was one of the earlier songs recorded 
 
 In concert, “I’m Goin’ Down” was an immediate hit. Bruce typically hammed it up with an introductory explanation (as if the song required any).
 
-[https://videopress.com/embed/ZN88tTQy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ZN88tTQy?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
+[Watch Video Highlight](https://videopress.com/embed/ZN88tTQy?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 And while it’s been a lot more difficult to catch “I’m Goin’ Down” in concert since the Born in the U.S.A. tour ended (it didn’t even show up again until the Rising Tour), it’s made enough appearances over the last decade and a half to be considered a decent-odds selection if you’re chasing it.
 
 Here’s one of Bruce’s best recent performances, from the Wrecking Ball Tour in 2013.
 
-[https://www.youtube.com/embed/j6-9p9O-nYw?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/j6-9p9O-nYw?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j6-9p9O-nYw)
 
 “I’m Goin’ Down” continued to turn up throughout Bruce’s 2016 River Tour and 2017 Australian Tour, so here’s hoping it’ll be back for another go-round soon.
 
-**I’m Goin’ Down**
-**Recorded:**May 13, 1982<br>
-**Released:** *Born in the U.S.A.* (1984)<br>
-**First performed:** August 17, 1984 (East Rutherford, NJ)<br>
-**Last performed:** April 21, 2024 (Columbus, OH)<br>
+**I’m Goin’ Down  
+**Recorded**May 13, 1982  
+**Released:** *Born in the U.S.A.* (1984)  
+**First performed:** August 17, 1984 (East Rutherford, NJ)  
+**Last performed:** April 21, 2024 (Columbus, OH)
 
 © June 5, 2021

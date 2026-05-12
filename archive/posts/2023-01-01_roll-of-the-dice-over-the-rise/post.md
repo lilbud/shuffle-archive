@@ -16,23 +16,23 @@ When Bruce wrote “Over the Rise” he was a second-time newlywed, determined t
 
 Almost immediately, we meet a gypsy. Is this the same gypsy from “Brilliant Disguise?” Very possibly–we may even be hearing from the same narrator.
 
-*I walk along the levee to see the gypsy man*
-*The dirt ‘neath my feet, baby, is turnin’ to quicksand*
-*He looked into my palm, then looked me in the eye*
+*I walk along the levee to see the gypsy man*  
+*The dirt ‘neath my feet, baby, is turnin’ to quicksand*  
+*He looked into my palm, then looked me in the eye*  
 *Told me you were gone, gone over the rise*
 
 It’s not a stretch to assume that “Over the Rise” may take place just a short distance into the future from “Brilliant Disguise,” suspicion having turned into separation.
 
-*Once we stood together at the wishing well*
-*Our wishes like dreams, baby, into the water fell*
-*Oh then I kissed your lips, but when I looked into your eyes*
+*Once we stood together at the wishing well*  
+*Our wishes like dreams, baby, into the water fell*  
+*Oh then I kissed your lips, but when I looked into your eyes*  
 *They were gone, gone over the rise*
 
 We hear callbacks to “If I Should Fall Behind” next (although Bruce recorded that classic after he recorded “Over the Rise,” he actually wrote it earlier for his wedding the previous summer), with Bruce using similar imagery of two life travelers by the river’s edge.
 
-*Tonight the blackbirds fly low on the water’s edge*
-*Oh we walked this path not knowing where it led*
-*Now at the bottom of the river deep lies something shiny and golden*
+*Tonight the blackbirds fly low on the water’s edge*  
+*Oh we walked this path not knowing where it led*  
+*Now at the bottom of the river deep lies something shiny and golden*  
 *Is a promise that love couldn’t keep same as a promise broken*
 
 Those last two lines are devastatingly sad: first, we get the song’s big reveal: unlike “Brilliant Disguise,” in which the lovers are drifting apart, here we see a wedding ring at the bottom of a river. Lest we miss the loaded symbolism of that river, we also get an extremely direct reference to one of Bruce’s most poignant songs in the final line.
@@ -41,9 +41,9 @@ Can a vow be considered broken if their love was never strong enough to keep it 
 
 We end “Over the Rise” on one of the saddest notes in Bruce’s catalog: alone in the dark, in the rain, without even the tears of our lost love to remind us of what we miss.
 
-*Well I woke last night to the sound of rain*
-*The wind rustling branches against the window pane*
-*I searched the pillow beside me for the tears we cried*
+*Well I woke last night to the sound of rain*  
+*The wind rustling branches against the window pane*  
+*I searched the pillow beside me for the tears we cried*  
 *Baby they were gone, gone over the rise*
 
 Placed in the perspective of his catalog, “Over the Rise” is a strange song–it echoes so many of Bruce’s previous songs without actually saying anything new, yet the very recurrence of some of his most prevalent themes and metaphors suggests that it’s one of his more personally revealing songs.
@@ -52,9 +52,9 @@ Bruce has never performed “Over the Rise” in public. I suspect he never will
 
 (I certainly don’t expect anyone to request it.)
 
-**Over the Rise**
-**Recorded:** December 7, 1990<br>
-**Released:** *Tracks* (1998)<br>
+**Over the Rise**  
+**Recorded:** December 7, 1990  
+**Released:** *Tracks* (1998)  
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

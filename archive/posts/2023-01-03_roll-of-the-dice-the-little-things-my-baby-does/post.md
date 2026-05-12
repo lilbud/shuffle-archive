@@ -16,46 +16,46 @@ This is a love letter to the girl groups of the 1960s, from Max’s abrupt, mach
 
 It’s a gorgeous track from any angle, so let’s not diminish it by analyzing the lyrics, because they’re secondary at best. There’s not a lot to analyze, anyway:
 
-*The way she kisses so tenderly*
-*The way she gives her love to me*
-*I been felt by the graces and angels up above*
-*The little things my baby does*
-*The little things my baby does*
-*The little things my baby does*
+*The way she kisses so tenderly*  
+*The way she gives her love to me*  
+*I been felt by the graces and angels up above*  
+*The little things my baby does*  
+*The little things my baby does*  
+*The little things my baby does*  
 *That make me love her*
 
-*The way she sighs when I hold her tight*
-*Good times and bad will be alright*
-*Faces on the street they push hard and they shove*
-*Disappear with the little things my baby does*
-*The little things my baby does*
-*The little things my baby does*
+*The way she sighs when I hold her tight*  
+*Good times and bad will be alright*  
+*Faces on the street they push hard and they shove*  
+*Disappear with the little things my baby does*  
+*The little things my baby does*  
+*The little things my baby does*  
 *I know I love her*
 
-*The soft summer breeze fills her every sigh*
+*The soft summer breeze fills her every sigh*  
 *Her eyes are bluer than the summer sky*
 
-*I been felt by the graces and angels up above*
-*The little things my baby does*
-*The little things my baby does*
-*The little things my baby does*
+*I been felt by the graces and angels up above*  
+*The little things my baby does*  
+*The little things my baby does*  
+*The little things my baby does*  
 *That make me love her*
 
-*And when the night closes in*
-*I’m drifting and I can’t find a friend*
-*On the wings of the angels I’m saved by her love*
-*The little things my baby does*
-*The little things my baby does*
-*The little things my baby does*
+*And when the night closes in*  
+*I’m drifting and I can’t find a friend*  
+*On the wings of the angels I’m saved by her love*  
+*The little things my baby does*  
+*The little things my baby does*  
+*The little things my baby does*  
 *That make me love her*
 
 If there’s anything of interest here, it’s the similarity in content and structure to another of Bruce’s contemporaneous songs, “[The Way](https://estreetshuffle.com/index.php/2021/08/06/roll-of-the-dice-the-way/).” Recorded only a couple of months apart, an argument can be made for the evolution of “The Little Things (My Baby Does)” into “The Way,” even though there are no actual common lyrics or melodic elements.
 
 Locked in the vault for decades, Bruce finally released “The Little Things (My Baby Does)” on his double-album *The Promise* in 2010, along with the similarly romantic and nostalgic “[Someday (We’ll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/), “[Gotta Get That Feeling](https://estreetshuffle.com/index.php/2021/02/08/roll-of-the-dice-gotta-get-that-feeling/)” and “Spanish Eyes.” All of them remain un- or under-played roadside attractions on a highway not taken.
 
-**The Little Things (My Baby Does)
-**Recorded:** August 15, 1977 (core track), July 2010 (vocals)<br>
-**Released:** *The Promise* (2010)<br>
+**The Little Things (My Baby Does)  
+**Recorded** August 15, 1977 (core track), July 2010 (vocals)  
+**Released:** *The Promise* (2010)  
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

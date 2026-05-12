@@ -1,21 +1,15 @@
-
-
 Today’s meeting across the river comes from the city of three rivers: Pittsburgh, PA.
 
-For a brief time in 1995, Bruce Springsteen joined Joe Grushecky and the Houserockers, taking a supporting role during Joe’s tour. (Bruce produced the album, played and sang on several tracks, and wrote two of them.)
+For a brief time in 1995, Bruce Springsteen joined Joe Grushecky and the Houserockers, taking a supporting role during Joe’s *American Babylon* tour. (Bruce produced the album, played and sang on several tracks, and wrote two of them.)
 
-*American Babylon*
+This audio clip is the final encore from the October 20, 1995 show at Nick’s Fat City, “Lighten Up” from Joe’s album, *End of the Century*. Bruce is on background vocals and guitar, but you can hear him clearly. The song starts about a minute in.
 
-This audio clip is the final encore from the October 20, 1995 show at Nick’s Fat City, “Lighten Up” from Joe’s album, . Bruce is on background vocals and guitar, but you can hear him clearly. The song starts about a minute in.
+[https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3?_=2)
 
-*End of the Century*<http://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3>
+<https://estreetshuffle.com/wp-content/uploads/2018/02/208-Lighten-Up-online-audio-converter.com_.mp3>
 
-October 20, 1995 (Pittsburgh, PA)
-October 20, 1995 (Pittsburgh, PA)
-
-**Lighten Up**
-**First performed:**<br>
-
-**Last performed:**<br>
+**Lighten Up  
+**First performed:** October 20, 1995 (Pittsburgh, PA)  
+**Last performed:** October 20, 1995 (Pittsburgh, PA)
 
 © February 5, 2018

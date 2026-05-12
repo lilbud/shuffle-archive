@@ -1,8 +1,4 @@
-
-
-“As much as it is the writer’s job to write well, it is the listener’s job to listen well.” — 
-
-*Bruce Springsteen, New York Times, October 18, 2020*
+> “As much as it is the writer's job to write well, it is the listener's job to listen well.” — *Bruce Springsteen, New York Times, October 18, 2020*
 
 “Why don’t you start a blog?” my wife asked.
 
@@ -10,15 +6,11 @@ It was in both response and interruption to some Bruce-related fact or anecdote 
 
 Looking back on it, I’m not entirely sure she meant it as helpfully and encouraging as I received it. (I have notoriously poor sarcasm radar.) But whether she did or not, that was my Mayor Goldie Wilson moment.
 
-[https://www.youtube.com/embed/6rvVPqdl2iw?feature=oembed](https://www.youtube.com/embed/6rvVPqdl2iw?feature=oembed)
+[Watch on Youtube: Back to the Future - Mayor](https://www.youtube.com/watch?v=6rvVPqdl2iw)
 
-I thought. 
+*A blogger…* I thought. *I like the sound of that!*
 
-*A blogger…**I like the sound of that!*
-
-Now if you know me at all in real life, you know that ideas like this fly through my head on a fairly regular basis. And by I mean: into and then out of. I have enough self-awareness to know that any seemingly great idea that holds my enthusiasm captive today is 99% likely to be forgotten within a day or two.
-
-*through*
+Now if you know me at all in real life, you know that ideas like this fly through my head on a fairly regular basis. And by *through* I mean: into and then out of. I have enough self-awareness to know that any seemingly great idea that holds my enthusiasm captive today is 99% likely to be forgotten within a day or two.
 
 But every once in a while… it sticks.
 
@@ -34,25 +26,15 @@ But when I recently and serendipitously discovered a publishing partner who shar
 
 And within a matter of days… here we are.
 
-Volume One of .
+Volume One of *The E Street Shuffle Bookshelf Collection*.
 
-*The E Street Shuffle Bookshelf Collection*
+From the very beginning, the blog featured several sub-blogs, but all of them were sort of in service to what I considered the flagship: *Roll of the Dice,* an exhaustive and comprehensive series of essays delving into every original Springsteen song.
 
-From the very beginning, the blog featured several sub-blogs, but all of them were sort of in service to what I considered the flagship: an exhaustive and comprehensive series of essays delving into every original Springsteen song.
+*Kingdom of Days* was originally intended just as an organizational tool for my linked media, and to maybe serve as a little clickbait to attract readers so they might discover what I considered the more serious work.
 
-*Roll of the Dice,*
+*Cover Me* was originally intended to fill space between *Roll of the Dice* entries in the days when I believed (because I was authoritatively told by other bloggers) that it was important to “feed the beast” daily. Ironically, *Cover Me* evolved over time into the series I enjoyed writing the most, for reasons I’ll explain in the introduction to Volume One of that book.
 
-was originally intended just as an organizational tool for my linked media, and to maybe serve as a little clickbait to attract readers so they might discover what I considered the more serious work.
-
-*Kingdom of Days*
-
-was originally intended to fill space between entries in the days when I believed (because I was authoritatively told by other bloggers) that it was important to “feed the beast” daily. Ironically, evolved over time into the series I enjoyed writing the most, for reasons I’ll explain in the introduction to Volume One of that book.
-
-*Cover Me**Roll of the Dice* *Cover Me*
-
-But was and is the series I’m most proud of.
-
-*Roll of the Dice*
+But *Roll of the Dice* was and is the series I’m most proud of.
 
 There have been lots of “all the songs” books. I think I probably own them all, and each has their own virtues. I needed to figure out mine.
 
@@ -72,27 +54,19 @@ In preparation for writing the blog (although I didn’t know it at the time), I
 
 I can’t say my takes on Bruce’s songs are more accurate than anyone else’s. But I am confident that they are deeply considered and informed, with even “minor” tracks and castoffs given the same attention, research, and analysis as “epics.” I think perhaps that more than anything else sets the essays in this volume apart from similar volumes that tend to focus on officially released or even just “major” tracks.
 
-This first volume features some of my personal favorite essays. I remember gaining a deeper appreciation for “Mary Queen of Arkansas” through the process of writing about it; the light bulb above my head when I placed the writing of “For You” against the backdrop of a toxic breakup shortly before; the literary rabbit hole I plunged into writing “Spirit in the Night.” I can’t always look back over a collection of my own writing without a least a couple of cringes, but I can with this group.
-
-*Roll of the Dice*
+This first *Roll of the Dice* volume features some of my personal favorite essays. I remember gaining a deeper appreciation for “Mary Queen of Arkansas” through the process of writing about it; the light bulb above my head when I placed the writing of “For You” against the backdrop of a toxic breakup shortly before; the literary rabbit hole I plunged into writing “Spirit in the Night.” I can’t always look back over a collection of my own writing without a least a couple of cringes, but I can with this group.
 
 That wouldn’t be the case without the contributions of two very important behind-the-scenes contributors.
 
-Almost since the very beginning of the blog, Lori Pierce has graced my inbox within an hour of the publication of any new essay, her eagle eye catching each and every typo–and there are typos–so that I could quickly correct them before most of you noticed. I am sure that as soon as she receives her copy of this book, I will learn what typos infest this introduction.
-
-*always*
+Almost since the very beginning of the blog, Lori Pierce has graced my inbox within an hour of the publication of any new essay, her eagle eye catching each and every typo–and there are *always* typos–so that I could quickly correct them before most of you noticed. I am sure that as soon as she receives her copy of this book, I will learn what typos infest this introduction.
 
 Starting in Year Four onward, Robyn Sherer started reviewing my drafts before I published them. She become my substantive editor and excelled at pointing out where the dots on the page didn’t connect nearly as well as they did in my brain. She flagged where sentences were run-on or unclear, and she called me out when my choice of words was overly sesquipedalian.
 
 Both Lori and Robyn have my continued and renewed gratitude. They’ve ensured these essays are much more polished than they otherwise would be.
 
-Although I’ve wanted to compile these essays in print for several years, I waited until I found a publishing platform that could recreate the interactive, multi-media blog experience. You’ll find QR codes embedded throughout this book. I recommend scanning each one with your mobile device as you encounter them, because they bring this book to life in ways the text alone can’t.
+Although I’ve wanted to compile these essays in print for several years, I waited until I found a publishing platform that could recreate the interactive, multi-media blog experience. You’ll find QR codes embedded throughout this book. I *highly* recommend scanning each one with your mobile device as you encounter them, because they bring this book to life in ways the text alone can’t.
 
-*highly*
-
-(Note: The video and audio links are hosted by a variety of channels and posters, so I can’t guarantee that every QR code will work as time goes on. In fact, I pretty much guarantee that someday they won’t. Every year, I’ve had to repair around ten percent of the links, so that’s probably a pretty good benchmark for the “QR decay” over time. I hope you’re able to enjoy the full experience now, and that the essays hold up as good reading even when the media someday expires.)
-
-*can*
+(Note: The video and audio links are hosted by a variety of channels and posters, so I can’t guarantee that every QR code will work as time goes on. In fact, I pretty much *can* guarantee that someday they won’t. Every year, I’ve had to repair around ten percent of the links, so that’s probably a pretty good benchmark for the “QR decay” over time. I hope you’re able to enjoy the full experience now, and that the essays hold up as good reading even when the media someday expires.)
 
 I hope you enjoy this book as much as I enjoyed creating it over the last eight years. Volume 2 is coming soon, but it won’t cover Bruce’s second album.
 

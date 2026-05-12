@@ -12,5 +12,6 @@ Here's the original 1964 B-side(!) by Them.
 
 [Watch on Youtube: Them - Gloria (Original version)](https://www.youtube.com/watch?v=WkaMVLHxzWE)
 
-**Gloria****First performed:** December 26, 1975 (New York City, NY)<br>
+**Gloria**
+**First performed:** December 26, 1975 (New York City, NY)<br>
 **Last performed:** May 1, 2014 (Tampa, FL)<br>

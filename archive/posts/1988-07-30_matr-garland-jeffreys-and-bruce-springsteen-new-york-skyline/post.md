@@ -12,6 +12,7 @@ So ignore the boorish fans and give a listen to the beautiful performance belowâ
 
 <http://estreetshuffle.com/wp-content/uploads/2019/04/09-NYC-Skyline-Garland-Jeffries.mp3>
 
-**New York Skyline****First performed:** December 3, 2001 (Asbury Park, NJ)**Last performed:** December 8, 2001 (Asbury Park, NJ)<br>
+**New York Skyline**
+**First performed:** December 3, 2001 (Asbury Park, NJ)**Last performed:** December 8, 2001 (Asbury Park, NJ)<br>
 
 Â© April 27, 2019

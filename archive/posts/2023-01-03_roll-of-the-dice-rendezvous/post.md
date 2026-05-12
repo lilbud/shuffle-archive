@@ -20,42 +20,42 @@ Astute listeners with the patience to listen to dozens of bootlegs know that Bru
 
 Curiously, though, the studio version features its own unique lyrics–it seems Bruce worked on “Rendezvous” during the touring break in which he recorded it, but when he brought it back on the Darkness Tour, he reverted to the original lyrics. That makes the studio version a lyrical curiosity, and it’s the weaker for it:
 
-*I had a dream our love would last forever*
-*I had a dream last night, she had a dream too*
-*She’ll be there tonight*
-*If I’m down then she’ll make me feel right*
+*I had a dream our love would last forever*  
+*I had a dream last night, she had a dream too*  
+*She’ll be there tonight*  
+*If I’m down then she’ll make me feel right*  
 *Ooh, rendezvous*
 
 Bruce’s studio lyrics inexplicably break the song’s second-person connection that makes it so powerful in concert. (Pop songs are stronger when sung *to* the object of one’s affection rather than *about* them.)
 
 Both before and after recording “Rendezvous” in the studio, Bruce began the song with:
 
-*I had a dream our love would last forever*
-*I had a dream, tonight my dream comes true*
-*And if you’ll hold me tight*
-*We’ll be riders, girl, on the night*
+*I had a dream our love would last forever*  
+*I had a dream, tonight my dream comes true*  
+*And if you’ll hold me tight*  
+*We’ll be riders, girl, on the night*  
 *Ooh, I want a rendezvous*
 
 …a *much* stronger verse.
 
 Bruce goes third-person in the third verse, too:
 
-*Because I had a dream our love would last forever*
-*I had a dream, tonight she had a dream too*
-*So come on hold me tight*
-*We’ll be riders, girl, on the night*
+*Because I had a dream our love would last forever*  
+*I had a dream, tonight she had a dream too*  
+*So come on hold me tight*  
+*We’ll be riders, girl, on the night*  
 *Ooohh, rendezvous*
 
 On stage, Bruce sang “I had a dream, tonight my dream comes true.” Why Bruce felt compelled to make these changes is a mystery we’ll likely never have an answer for.
 
 Those aren’t the only lyrical tweaks Bruce made. If you listened carefully to the debut performance above, you probably noticed a different bridge as well:
 
-*I got a feeling that we’ll be forever*
+*I got a feeling that we’ll be forever*  
 *Because I know that we should be together*
 
 Before long, Bruce would re-write it as:
 
-*You deserve so much more than this, girl*
+*You deserve so much more than this, girl*  
 *Well, I’m riding on the power and living on the promise in your last kiss*
 
 By the end of the Darkness Tour, “Rendezvous” had lyrically gelled, but I’d wager most fans hadn’t even noticed its evolution. To analyze the lyrics to “Rendezvous” is to miss the point of the song–the only lyrics that really matter are those soaring “ooohs” and “rendezvous” (which must rank among the top ten most fun words to sing).
@@ -89,9 +89,9 @@ But he also tried giving “Rendezvous” to The Knack in 1978, offering the ban
 [Watch Video Highlight](https://videopress.com/embed/d4wU6cXH?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 **Rendezvous**
-**Recorded:** September 29, 1977<br>
-**Released:** *The Promise* (2010)<br>
-**First performed:** August 1, 1976 (Red Bank, NJ)<br>
+**Recorded** September 29, 1977  
+**Released:** *The Promise* (2010)  
+**First performed:** August 1, 1976 (Red Bank, NJ)  
 **Last performed:** November 16, 2019 (Asbury Park, NJ)
 
 Looking for your favorite Bruce song? Check our full index [here](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

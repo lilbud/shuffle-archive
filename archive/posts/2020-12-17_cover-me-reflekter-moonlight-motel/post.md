@@ -1,20 +1,14 @@
-
-
 Okay, so here’s the thing: I really want to like this cover.
 
-Although I wasn’t familiar with Reflekter before their frontman’s acoustic cover of “” brought them to my attention, I rather like the stuff I’ve heard as I’ve investigated them.
+Although I wasn’t familiar with Reflekter before their frontman’s acoustic cover of “[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)” brought them to my attention, I rather like the stuff I’ve heard as I’ve investigated them.
 
-[Moonlight Motel](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)
-
-And while “Moonlight Motel” would be tough for to cover, it’s an especially tough challenge for someone so young. The song is loaded with life experience that requires a nuanced, empathic vocal performance that typically only comes to performers far, far into their careers.
-
-*anyone*
+And while “Moonlight Motel” would be tough for *anyone* to cover, it’s an especially tough challenge for someone so young. The song is loaded with life experience that requires a nuanced, empathic vocal performance that typically only comes to performers far, far into their careers.
 
 So when he sat down to cover it, James Gooch made an incredibly ballsy decision that frankly appalled me initially–but which upon reflection strikes me as a wise move.
 
 I’ll say no more until you listen to it for yourself.
 
-[https://www.youtube.com/embed/HauSPkqQm3A?feature=oembed](https://www.youtube.com/embed/HauSPkqQm3A?feature=oembed)
+[Watch on Youtube: Reflekter - Moonlight Motel (Cover)](https://www.youtube.com/watch?v=HauSPkqQm3A)
 
 See what I mean?
 
@@ -32,9 +26,7 @@ But Gooch doesn’t share that life experience, so it wouldn’t surprise me if 
 
 My mantra on this blog regarding Springsteen covers has always been: make it better, or make it your own.
 
-I don’t think it’s possible to do “Moonlight Motel” better. (See my for why I think it’s one of Bruce’s very best songs and performances across his entire career.)
-
-[essay](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/)
+I don’t think it’s possible to do “Moonlight Motel” better. (See my [essay](https://estreetshuffle.com/index.php/2020/09/30/roll-of-the-dice-moonlight-motel/) for why I think it’s one of Bruce’s very best songs and performances across his entire career.)
 
 But Gooch certainly makes it his own.
 

@@ -6,7 +6,7 @@ There’s probably no better example of this duality at work in his music than �
 
 Let’s take a listen, and then we’ll break it down:
 
-[https://www.youtube.com/embed/2t-81cQv5f8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/2t-81cQv5f8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=2t-81cQv5f8)
 
 The first thing–literally–that we notice about “Souls of the Departed” is that its musical backbone is virtually copied and pasted from the album’s opening track, “Better Days.” That’s almost certainly intentional: although “My Beautiful Reward” serves as the album’s epilogue, “Souls of the Departed” functions as the album’s true closer, and as such “Better Days” and “Souls of the Departed” serve as bookends, mirror images–the first a confession of contentment and the last a confession of complicity.
 
@@ -14,42 +14,42 @@ Sonically, “Souls of the Departed” is as angry a rocker as the lyrics demand
 
 Lyrically, the song is a triptych, a series of vignettes in the vein of “Reason to Believe.” We start in a far-away Iraqi battlefield, travel back to the mean streets of Compton, and finally end up in little Evan Springsteen’s bedroom, a setting so unexpectedly intimate that we’re completely unprepared for it after the geopolitical scale of the first two verses.
 
-*On the road to Basra stood young Lieutenant Jimmy Bly*
-*Detailed to go through the clothes of the soldiers who died*
-*At night in dreams he sees their souls rise*
+*On the road to Basra stood young Lieutenant Jimmy Bly*  
+*Detailed to go through the clothes of the soldiers who died*  
+*At night in dreams he sees their souls rise*  
 *Yeah like dark geese into the Oklahoma skies*
 
 For such a raw song, that’s a beautiful opening verse. In his typical fashion, Bruce manages to convey a lot of information about Lt. Jimmy in some very subtle ways: we know he’s from Oklahoma, a place about as far removed from Basra as one could imagine. We know he’s young, so young that he still goes by the childish nickname “Jimmy,” and young enough to be haunted by the horror of his detail. As he dutifully scavenges the clothes of the slain soldiers, we can imagine the discovery of photographs, lucky charms, little personal items that make it impossible for Jimmy to think of the fallen anything other than individually distinct human beings, whether or not he knew them in life.
 
 As the first chorus kicks in, we can’t help but wonder: are we praying for the souls of the slain, or the soul of Lt. Bly, who may have a family back home in Oklahoma that he left when he departed?
 
-*Well this is a prayer for the souls of the departed*
-*Those who’ve gone and left their babies brokenhearted*
+*Well this is a prayer for the souls of the departed*  
+*Those who’ve gone and left their babies brokenhearted*  
 *This is a prayer for the souls of the departed*
 
 Maybe we pray for both.
 
 Bruce continues, closer to home this time:
 
-*Now Raphael Rodriguez was just seven years old*
-*Shot down in a schoolyard by some East Compton Cholos*
-*His mama cried “My beautiful boy is dead”*
+*Now Raphael Rodriguez was just seven years old*  
+*Shot down in a schoolyard by some East Compton Cholos*  
+*His mama cried “My beautiful boy is dead”*  
 *In the hills the self-made men just sighed and shook their heads*
 
 The gut-wrenching emotion of the scene anchors us to Raphael’s mama, but it’s that last line that foreshadows the rest of the song: the “self-made men” in the hills… their ranks include the singer.
 
-*This is a prayer for the souls of the departed*
-*Those who’ve gone and left their babies brokenhearted*
-*Young lives over before they got started*
+*This is a prayer for the souls of the departed*  
+*Those who’ve gone and left their babies brokenhearted*  
+*Young lives over before they got started*  
 *This is a prayer for the souls of the departed*
 
 What’s unspoken here is the link between Lieutenant Bly, his company, and Raphael Rodriguez. A world apart, they were all caught up in deep-set and complex social and political forces beyond their ken much less control. But Bruce knows that somehow those forces trace their way back to the self-made men.
 
 Bruce sets aside formula for the bridge, reflecting now on his own first-born son, barely a year old at the time he recorded “Souls of the Departed.”
 
-*Yeah tonight as I tuck my own son in bed*
-*All I can think of is what if it would’ve been him instead*
-*I want to build me a wall so high nothing can burn it down*
+*Yeah tonight as I tuck my own son in bed*  
+*All I can think of is what if it would’ve been him instead*  
+*I want to build me a wall so high nothing can burn it down*  
 *Right here on my own piece of dirty ground*
 
 That’s a sentiment every parent empathizes with. We’ve all had those same thoughts, every time we hear about a drive-by or mass shooting. *What if it had been my child?* The urge to protect our children is so strong, so innate, that we want to protect them any way we can. And one of the most elemental ways to do that is to build a wall, an instinctive urge that eerily foreshadows our most controversial American political debate today.
@@ -58,9 +58,9 @@ Bruce knows that won’t solve the problem; it merely isolates him from it. But 
 
 In the final verse, Bruce leads us to where we’ve known we were heading since the end of the second verse:
 
-*Now I ply my trade in the land of king dollar*
-*Where you get paid and your silence passes as honor*
-*And all the hatred and dirty little lies*
+*Now I ply my trade in the land of king dollar*  
+*Where you get paid and your silence passes as honor*  
+*And all the hatred and dirty little lies*  
 *Been written off the books and into decent men’s eyes*
 
 There’s a case to be made that “Souls of the Departed” isn’t personal at all–that the final verse reveals the narrator as an American businessman, or perhaps a politician well-compensated by lobbyists. But I think that at the very least, Bruce intends for this verse (as well as the song) to resonate autobiographically. It’s a “Man in the Mirror” moment that’s intended to wake us up to the way we accept the wars, the guns, poverty, the social inequality that leads inexorably to untimely deaths.
@@ -76,32 +76,32 @@ With so much care and control exercised over the content and sound of the song, 
 
 Here are two of my favorites: first, from Bruce’s appearance on *MTV Unplugged* (for which he famously refused to stay unplugged). A foreboding “Star-Spangled Banner” serves as the lead-in, fading out as Bruce begins the song accompanied only by a soft drone and barely perceptible percussion. The band explodes into action following the first chorus but recedes at the critically intimate final verse.
 
-[https://www.youtube.com/embed/QYZqriRLyi4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/QYZqriRLyi4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QYZqriRLyi4)
 
 …and from the final weeks of the tour, a performance from Verona, Italy.
 
-[https://www.youtube.com/embed/qBbnAiiz-5w?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/qBbnAiiz-5w?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qBbnAiiz-5w)
 
 One of my favorite performances of “Souls of the Departed” is the sole time Bruce played it solo and acoustic on his twelve-string slide guitar at one of his benefit shows in Somerville in 2003.
 
-[http://estreetshuffle.com/wp-content/uploads/2019/03/113-Souls-Of-The-Departed.flac?_=1](http://estreetshuffle.com/wp-content/uploads/2019/03/113-Souls-Of-The-Departed.flac?_=1)
+[https://estreetshuffle.com/wp-content/uploads/2019/03/113-Souls-Of-The-Departed.flac?_=1](https://estreetshuffle.com/wp-content/uploads/2019/03/113-Souls-Of-The-Departed.flac?_=1)
 
-<http://estreetshuffle.com/wp-content/uploads/2019/03/113-Souls-Of-The-Departed.flac>
+<https://estreetshuffle.com/wp-content/uploads/2019/03/113-Souls-Of-The-Departed.flac>
 
 The arrangement is so stark and powerful that you probably didn’t even realize he left out the bridge. Whether he did that intentionally or by accident, I don’t know, but the song somehow retained its full power regardless.
 
 Here are two final clips, from the few performances with the E Street Band (there have only been six). The first is from the Rising Tour:
 
-[https://www.youtube.com/embed/QJDAcNF6ax8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/QJDAcNF6ax8?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QJDAcNF6ax8)
 
 …and finally from the following year’s Vote for Change Tour, an on-point performance featuring not just Bruce and the E Street Band, but Neil Young as well:
 
-[https://www.youtube.com/embed/ljabZgADz5g?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/ljabZgADz5g?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ljabZgADz5g)
 
-**Souls of the Departed**
-**Recorded:** July-December 1991<br>
-**Released:** *Lucky Town* (1992)<br>
-**First performed:** June 15, 1992 (Stockholm, Sweden)<br>
-**Last performed:** April 27, 2008 (Charlotte, NC)<br>
+**Souls of the Departed**  
+**Recorded:** July-December 1991  
+**Released:** *Lucky Town* (1992)  
+**First performed:** June 15, 1992 (Stockholm, Sweden)  
+**Last performed:** April 27, 2008 (Charlotte, NC)
 
 © March 19, 2019

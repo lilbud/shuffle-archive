@@ -10,10 +10,10 @@ It’s the opening track that gets all the attention, and it’s hard to argue t
 
 It also features some *very* Springsteenian lyrics:
 
-*Travelin’ down this weary road*
+*Travelin’ down this weary road*  
 *A troubled mind is a heavy load*
 
-*Hold my ticket in my hand*
+*Hold my ticket in my hand*  
 *Lookin’ for the Promised Land*
 
 *I’m a thousand miles from home*
@@ -23,8 +23,8 @@ It’s pretty easy to see why Bruce would be attracted to a song like this. Bruc
 Unlike “All Just to Get to You,” which Bruce has performed with Ely seven times in concert, Bruce has yet to perform “I’m a Thousand Miles From Home.” But that’s okay: this is a delicately crafted studio track that’s perfect in its original form.
 
 **I’m a Thousand Miles From Home  
-**Recorded:** April 1995<br>
-**Released:** *Letter to Laredo* (1995)<br>
+**Recorded** April 1995  
+**Released:** *Letter to Laredo* (1995)  
 **Never performed**
 
 © November 3, 2021

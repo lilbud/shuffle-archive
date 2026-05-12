@@ -16,17 +16,17 @@ It’s not only the most powerful rock anthem Bruce ever wrote (IMHO)–it’s a
 
 In “Dancing in the Dark,” the narrator is nocturnal, isolated and disconnected:
 
-*I get up in the evening, and* *I ain’t got nothing to say*
-*I come home in the morning*
-*I go to bed feeling the same way*
-*I ain’t nothing but tired*
+*I get up in the evening, and* *I ain’t got nothing to say*  
+*I come home in the morning*  
+*I go to bed feeling the same way*  
+*I ain’t nothing but tired*  
 *Man , I’m just tired and bored with myself*
 
 The narrator of “My Love Will Not Let You Down” lives during the day. He feels the same sense of isolation, but a sense of resignation is replaced by desperation:
 
-*At night I go to bed, but I just can’t sleep*
-*I got something running around my head that just won’t keep*
-*In the silence, I hear my heart beating, time slipping away*
+*At night I go to bed, but I just can’t sleep*  
+*I got something running around my head that just won’t keep*  
+*In the silence, I hear my heart beating, time slipping away*  
 *I got a time bomb ticking deep inside of me*
 
 Both narrators make a plea for connection, but where “Dancing” guy is looking for a temporary physical fix…
@@ -37,18 +37,18 @@ This gun’s for hire, even if we’re just dancing in the dark.*
 
 …”My Love” guy wants the real thing. He knows his love is out there somewhere (the song is sung to a love he searches for but never finds), and he’s determined to find her and prove himself:
 
-*Girl, all I want to say: I keep searching for you darling, searching every where I go*
+*Girl, all I want to say: I keep searching for you darling, searching every where I go*  
 *And when I find you there’s gonna be just one thing that you gotta know:  
 My love will not let you down.*
 
 The “Dancing” narrator is self-obsessed:
 
-*I want to change my clothes, my hair, my face*
+*I want to change my clothes, my hair, my face*  
 *Man, I ain’t getting nowhere loving in a dump like this.*
 
-*I’m dying for some action*
-*I’m sick of sitting ’round here trying to write this book*
-*I need a love reaction*
+*I’m dying for some action*  
+*I’m sick of sitting ’round here trying to write this book*  
+*I need a love reaction*  
 *Come on now baby, gimme just one look.*
 
 The “My Love” narrator shows no self-loathing. but instead hints at an inability to spark the connection he seeks. His inner fire and bravery is belied by his outward shyness and hesitation:
@@ -65,7 +65,7 @@ The irony, as any introvert will have already realized, is that it isn’t *her*
 
 Does the hero get the girl? I suspect not. His last lines are:
 
-*Hold still now, darling–hold still for God’s sake*
+*Hold still now, darling–hold still for God’s sake*  
 *‘Cause I got me a promise that I ain’t afraid to make*
 
 …and then the song ends as he repeats his promise over and over:
@@ -88,10 +88,10 @@ No surprise that Bruce opened his first U.S. reunion show with the E Street Band
 
 [Watch on Youtube: my love will not let you down & The promised land - (u.s tour opener reunion ) bruce springsteen](https://www.youtube.com/watch?v=i0gycxFYxiA)
 
-**My Love Will Not Let You Down**
-**Recorded:** May 5, 1982<br>
-**Released:** *Tracks* (1998), *18 Tracks* (1999), *Live in New York City* (2001)<br>
-**First performed:** March 18, 1999 (Asbury Park, NJ)<br>
+**My Love Will Not Let You Down**  
+**Recorded:** May 5, 1982  
+**Released:** *Tracks* (1998), *18 Tracks* (1999), *Live in New York City* (2001)  
+**First performed:** March 18, 1999 (Asbury Park, NJ)  
 **Last performed:** July 13, 2023 (Copenhagen, Denmark)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

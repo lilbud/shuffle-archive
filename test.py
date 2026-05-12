@@ -30,33 +30,19 @@ from cleanup import initial_cleanup
 # }
 
 # with httpx.Client(headers=headers, cookies=cookies, timeout=180) as client:
-#     for file in Path("./archive/posts").glob("**/*.md"):
-#         text = file.read_text(encoding="utf-8")
+for file in Path("./archive/posts").glob("**/*.md"):
+    text = file.read_text(encoding="utf-8")
 
-#         if file.parent.name == "2023-01-01_roll-of-the-dice-tucson-train":
-#             # print(file.parent.name)
-#             data = json.loads(
-#                 Path(file.parent, "meta.json").read_text(encoding="utf-8"),
-#             )
-#             url = data["_links"]["self"][0]["href"]
-#             print(file.parent.name)
+    if re.search(r"\*\s+$", text, flags=re.MULTILINE):
+        print(file.parent.name)
 
-#             content = initial_cleanup(data["content"]["rendered"])
-#             content = html_to_markdown.convert(content)
+        # data = json.loads(
+        #     Path(file.parent, "meta.json").read_text(encoding="utf-8"),
+        # )
+        # url = data["_links"]["self"][0]["href"]
 
-#             with Path(file.parent, "post.md").open("w", encoding="utf-8") as f:
-#                 f.write(content)
+        # content = initial_cleanup(data["content"]["rendered"])
+        # content = html_to_markdown.convert(content)
 
-with Path(r".\archive\posts\1983-01-12_roll-of-the-dice-my-hometown\post.md") as f:
-    text = f.read_text(encoding="utf-8")
-
-    pattern = r"(^\*[^*]+\*(?:\n\*[^*]+\*)+)"
-    result = re.sub(
-        pattern,
-        lambda m: re.sub(r"(?m)^", "> ", m.group(1)),
-        text,
-        flags=re.MULTILINE,
-    )
-
-    print(result)
-    print()
+        # with Path(file.parent, "post.md").open("w", encoding="utf-8") as f:
+        #     f.write(content)

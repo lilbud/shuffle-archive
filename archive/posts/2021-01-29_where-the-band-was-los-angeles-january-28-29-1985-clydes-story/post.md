@@ -1,6 +1,6 @@
 Editor's Note
 
-***Editor's Note:*** *Today's guest blogger is Clyde Kaplan, former music and television audio mixer, former television associate director–now happily retired.* *In 1985, though, Clyde was an assistant engineer at A&M Studios in Hollywood, a gig that placed him behind the scenes at one of the most exclusive and star-studded Springsteen appearances ever.*
+***Editor’s Note:*** *Today’s guest blogger is Clyde Kaplan, former music and television audio mixer, former television associate director–now happily retired.* *In 1985, though, Clyde was an assistant engineer at A&M Studios in Hollywood, a gig that placed him behind the scenes at one of the most exclusive and star-studded Springsteen appearances ever.*
 
 After three years working at a recording studio in New York called Aura Recording, I got an offer to work at A&M Records in Los Angeles. In 1981, my wife and I packed up and moved to California. There were a lot of long nights and weekends, but I was still surprised to see all four studios and three mixing rooms blocked out for Quincy Jones on January 28 and 29. I didn't know what the project was, but I was told I would be working on it and wouldn't be making any overtime. A few days later, I saw a news report about an all-star recording session at an unnamed studio in Hollywood with Quincy Jones. I thought about it, then said to my wife, "I think I'm working on that."
 
@@ -22,13 +22,13 @@ Bruce was sitting in the control room, in front of the console. Before it got to
 
 Finally everyone arrived and we started the vocals. Most of the assistants were in the studio, fixing broken headsets and adjusting microphones. I was in the control room with engineer Humberto Gatica and Quincy Jones. The vocal session went on for hours as different parts and harmonies were tried out. Around midnight, during a break, Diana Ross was in the control room. She looked over at me and said, "How long is this going to go on?" I was about three feet away from Quincy Jones, pointed in his direction and said, "I don't know. Ask him."
 
-I have to admit, one of the highlights of the night was going to the men's room during breaks. I'd walk in there and see Michael Jackson, Willie Nelson, Hall and Oates... and then there'd be me. I really couldn't believe I was part of this.
+I have to admit, one of the highlights of the night was going to the men's room during breaks. I'd walk in there and see Michael Jackson, Willie Nelson, Hall and Oates… and then there'd be me. I really couldn't believe I was part of this.
 
-Another highlight was getting Bob Dylan to sign my sweatshirt. Everyone got "[We Are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/)" sweatshirts before the session. People were going around getting autographs. I got my nerve up, walked up to Dylan as he was talking to Willie Nelson and asked him to sign my sweatshirt. He wrote his name across the entire back of my shirt, then drew lines coming out of the autograph.
+Another highlight was getting Bob Dylan to sign my sweatshirt. Everyone got “[We Are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/)” sweatshirts before the session. People were going around getting autographs. I got my nerve up, walked up to Dylan as he was talking to Willie Nelson and asked him to sign my sweatshirt. He wrote his name across the entire back of my shirt, then drew lines coming out of the autograph.
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/dylan-shirt.jpg)
 
-When he finished, I turned and thanked him. Being a huge Dylan fan, I needed to say something. I thought of people saying they like his early stuff, they like the electric stuff, they like the later stuff. I've been fan through all stages so I looked at him and said, "Uh, I.... I really like everything." Brilliant comment, wasn't it?
+When he finished, I turned and thanked him. Being a huge Dylan fan, I needed to say something. I thought of people saying they like his early stuff, they like the electric stuff, they like the later stuff. I've been fan through all stages so I looked at him and said, "Uh, I…. I really like everything." Brilliant comment, wasn't it?
 
 Finally, the chorus part wrapped up around 2:00 AM. We set the mics up in a semicircle for the soloists. We did the first run through. Quincy Jones heard it and said it was great, so many personalities. There were three or four singers around each microphone. Around the first mic was Lionel Ritchie, Stevie Wonder, Paul Simon and Kenny Rogers. Paul Simon was significantly shorter than the other three and too low in front of the mic. Humberto turned to me and said, "Get a box for Paul Simon to stand on." This was the last thing I wanted to do. I opened the door to the studio, found another assistant (a good friend of mine) and said, "Get a box for Paul Simon to stand on," turned and went back in the booth. Reluctantly, my friend found a box. He was maybe fifteen feet away from Paul Simon when he was spotted. Paul Simon knew what the box was for and waved him off (at the 22:40 mark in the video below). He just stretched a little when he sang.
 
@@ -38,7 +38,7 @@ After we got the solos done, it was time for the vamping during the chorus. It w
 
 ![](https://estreetshuffle.com/wp-content/uploads/2021/01/clyde.jpg)
 
-*(That's Clyde in between Willie Nelson and Bob Dylan)*
+*(That’s Clyde in between Willie Nelson and Bob Dylan)*
 
 Dylan finished and it was now Bruce's turn. Dylan and Springsteen, those were the two I've always listened to more than anyone else. Now I was working with them. Bruce stepped up to the mic. From where I was standing in the booth, Bruce was on the left, the mic was on the right. Positioned perfectly between them was Dylan, who stuck around to watch Bruce. Quincy Jones explained to Bruce what he wanted and we rolled tape. Bruce nailed it. When he was done, he said, "Something like that?" Quincy Jones got on the talkback and said, "*Exactly* like that!"
 
@@ -48,4 +48,4 @@ After a few more soloists, we were done. By 7:00, they were all gone. By 9:00, t
 
 What's your story?
 
-*Many thanks to Clyde for sharing his amazing story with us.*  *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+*Many thanks to Clyde for sharing his amazing story with us.*  *Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*

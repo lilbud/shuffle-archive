@@ -1,8 +1,8 @@
 Editor's Note
 
-***Editor's Note:*** *Today's guest blogger is Bill Kenney, who's kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill's blog](https://billk128.tumblr.com/)–he's got some great show reviews (not just Bruce-related) and insightful commentary.*
+***Editor’s Note:*** *Today’s guest blogger is Bill Kenney, who’s kind enough to share his recollection of a memorable show from the Wrecking Ball Tour. I highly recommend checking out [Bill’s blog](https://billk128.tumblr.com/)–he’s got some great show reviews (not just Bruce-related) and insightful commentary.*
 
-*If you'd like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).*
+*If you’d like to connect with Bill directly, you can reach him on Twitter at [@billk128](https://twitter.com/billk128).* 
 
 If it wasn't the same old Meadowlands Parking Lot this time, it might as well have been–just slightly re-located and renamed along with the stadium, now MetLife Stadium. All the same glorious tailgate vibe was in full force for Night One of three that Bruce and the band would be playing to wrap up the summer and their outdoor venue leg of the Wrecking Ball Tour.
 
@@ -12,7 +12,7 @@ Weedy was bit tardy arriving, and I left my sister and other friends (including 
 
 We ventured in and made no real effort to get up close, which left us plenty of room to groove to yet another high-energy offering from the seemingly indefatigable Bossman and mates. While the setlist echoed to some degree the one played a few nights earlier in DC, there were some interesting twists, largely due to the appearance of Patti, who had not played a show in months. To wit:
 
-"[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)" opened the show. Typically a late set piece that has evolved into something of a show stopper, Bruce just had to play it, so he did it first.
+“[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)" opened the show. Typically a late set piece that has evolved into something of a show stopper, Bruce just had to play it, so he did it first.
 
 [Watch on Youtube: Bruce Springsteen - Shackled and Drawn, MetLife Stadium September 19 2012](https://www.youtube.com/watch?v=g8ZHOZDKlRQ)
 
@@ -24,7 +24,7 @@ We ventured in and made no real effort to get up close, which left us plenty of 
 
 https://youtu.be/M28EVxPs5wQ
 
-"[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)" was played for I believe the first time since the warm up gig at the Apollo Theater back in March... though I always find Patti's vocals lacking in this one. Bruce set up the tune with a summer childhood memory and brought his usual intensity, but Patti's yodeling seemed extraneous.
+"[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)" was played for I believe the first time since the warm up gig at the Apollo Theater back in March… though I always find Patti's vocals lacking in this one. Bruce set up the tune with a summer childhood memory and brought his usual intensity, but Patti's yodeling seemed extraneous.
 
 [Watch on Youtube: Bruce Springsteen - Mansion on the Hill, MetLife Stadium September 19 2012](https://www.youtube.com/watch?v=f4pSkj6ZsXs)
 
@@ -52,39 +52,39 @@ I do have one more video clip for you, one that shows a few minutes of the Bruce
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*
+*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*
 
 **9/19/12 – MetLife Stadium, NJ**
 
-**Setlist:**
-Shackled and Drawn
-Prove It All Night ('78 intro)
-The Ties That Bind
-Hungry Heart
-We Take Care of Our Own
-Wrecking Ball
-Death to My Hometown
-My City of Ruins
-Spirit in the Night
-E Street Shuffle (with Vini Lopez)
-Jack of All Trades
-Human Touch
-Johnny 99
-Darlington County
-Working on the Highway
-Easy Money
-The Promised Land
-Waitin' on a Sunny Day
-Mansion on the Hill
-Racing in the Street
-The Rising
-Badlands
-Land of Hope and Dreams
-* * *
-We Are Alive
-Thunder Road
-Born to Run
-Rosalita
-Dancing in the Dark
-Tenth Avenue Freeze-out
+**Setlist:**  
+Shackled and Drawn  
+Prove It All Night (’78 intro)  
+The Ties That Bind  
+Hungry Heart  
+We Take Care of Our Own  
+Wrecking Ball  
+Death to My Hometown  
+My City of Ruins  
+Spirit in the Night  
+E Street Shuffle (with Vini Lopez)  
+Jack of All Trades  
+Human Touch  
+Johnny 99  
+Darlington County  
+Working on the Highway  
+Easy Money  
+The Promised Land  
+Waitin' on a Sunny Day  
+Mansion on the Hill  
+Racing in the Street  
+The Rising  
+Badlands  
+Land of Hope and Dreams  
+* * *  
+We Are Alive  
+Thunder Road  
+Born to Run  
+Rosalita  
+Dancing in the Dark  
+Tenth Avenue Freeze-out  
 Twist and Shout

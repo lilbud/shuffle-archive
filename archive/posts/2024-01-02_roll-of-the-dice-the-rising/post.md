@@ -32,9 +32,9 @@ But we can’t properly appreciate “The Rising” without admiring the superb 
 
 Part of the power of “The Rising” is its immediacy: the story begins in the literal heat of the moment, and Bruce’s vocal begins without any introduction or exposition.
 
-*Can’t see nothing in front of me*
-*Can’t see nothing coming up behind*
-*I make my way through this darkness*
+*Can’t see nothing in front of me*  
+*Can’t see nothing coming up behind*  
+*I make my way through this darkness*  
 *I can’t feel nothing but this chain that binds me*
 
 On *Storytellers,* Bruce describes the opening verse as set in the netherworld, and the song certainly functions on that level: not quite ready to rise, unable to let go of the earthly realm until we get to bid a proper goodbye to it.
@@ -45,18 +45,18 @@ There’s even a third level: time. In his final moments, he knows not what lies
 
 “The Rising” somehow continues to operate on all three levels throughout the entire song.
 
-*Lost track of how far I’ve gone*
-*How far I’ve gone, how high I’ve climbed*
-*On my back’s a sixty pound stone*
+*Lost track of how far I’ve gone*  
+*How far I’ve gone, how high I’ve climbed*  
+*On my back’s a sixty pound stone*  
 *On my shoulder half mile of line*
 
 Climbing flight after flight of stairs through endless smoke carrying the tools of his trade; rising heaven-ward with the burden of his life and tether to his love; navigating an entire life only to reach this one, final moment.
 
 Until this point, the backing track swirls around us disorientingly like smoke or a dream, but now as the chorus enters, the music clarifies, commands, and compels us forward:
 
-*Come on up for the rising*
-*Come on up lay your hands in mine*
-*Come on up for the rising*
+*Come on up for the rising*  
+*Come on up lay your hands in mine*  
+*Come on up for the rising*  
 *Come on up for the rising tonight*
 
 Is this God inviting us to enter the afterlife? Is it our hero, saving one last soul in his final moments? Is it a plea for his love to hear his telepathic call and connect with him one last time?
@@ -65,49 +65,49 @@ The chorus of “The Rising” is all these things and more.
 
 With our protagonist’s dilemma now clearly in view, we retrace his last day.
 
-*Left the house this morning*
-*Bells ringing filled the air*
-*I was wearing the cross of my calling*
+*Left the house this morning*  
+*Bells ringing filled the air*  
+*I was wearing the cross of my calling*  
 *On wheels of fire I come rolling down here*
 
 Notable here (and throughout) is the continual stream of imagery and metaphor simultaneously secular and sacred: the fire alarms are also church bells; the cross is the symbol of both fireman and martyr; “wheels of fire” refers to both fire engine and heavenly throne.
 
 A wordless “li li” refrain refuses to let us go; as Bruce explained on *Storytellers*, it exhorts us to stand and sing with him, to not abandon this man to die alone. Because as we enter the bridge, we are in his personal apocalypse, surrounded by helpless humans dying in fire all around him, their eyes reflecting the flames even as their bodies char.
 
-*There’s spirits above and behind me*
-*Faces gone black, eyes burning bright*
-*May their precious blood bind me*
+*There’s spirits above and behind me*  
+*Faces gone black, eyes burning bright*  
+*May their precious blood bind me*  
 *Lord as I stand before your fiery light*
 
 The flames have taken him now. We have arrived at The Rising itself, and our hero is granted one last vision of his wife and family, one final time-out-of-time moment of communion.
 
-*I see you Mary in the garden*
-*In the garden of a thousand sighs*
-*There’s holy pictures of our children*
-*Dancing in a sky filled with light*
-*May I feel your arms around me*
-*May I feel your blood mix with mine*
-*A dream of life comes to me*
-*Like a catfish dancing on the end of my line*
+*I see you Mary in the garden*  
+*In the garden of a thousand sighs*  
+*There’s holy pictures of our children*  
+*Dancing in a sky filled with light*  
+*May I feel your arms around me*  
+*May I feel your blood mix with mine*  
+*A dream of life comes to me*  
+*Like a catfish dancing on the end of my line* 
 
 And now we rise.
 
 We rise, and we shed our earthly ties, casting off one by one the emotions, experiences, hardships and richness that make up a life.
 
-*Sky of blackness and sorrow*
-*Sky of love, sky of tears*
-*Sky of glory and sadness*
-*Sky of mercy, sky of fear*
-*Sky of memory and shadow*
-*Your burning wind fills my arms tonight*
-*Sky of longing and emptiness*
+*Sky of blackness and sorrow*   
+*Sky of love, sky of tears*   
+*Sky of glory and sadness*   
+*Sky of mercy, sky of fear*   
+*Sky of memory and shadow*   
+*Your burning wind fills my arms tonight*   
+*Sky of longing and emptiness*   
 *Sky of fullness, sky of blessed life*
 
 Finally, we reach the gates to the afterlife, where a final chorus both greets us and leaves us.
 
-*Come on up for the rising*
-*Come on up lay your hands in mine*
-*Come on up for the rising*
+*Come on up for the rising*  
+*Come on up lay your hands in mine*  
+*Come on up for the rising*  
 *Come on up for the rising tonight*
 
 “The Rising” is both literally and figuratively one of Bruce’s darkest songs. It deals with loss, and death and dying in one of the most horrific ways imaginable.
@@ -166,9 +166,9 @@ In craft, content, performance, and artistry, it stands incontrovertibly as one 
 [Watch on Youtube: Bruce Springsteen - The Rising (official video)](https://www.youtube.com/watch?v=6i-fiRgbpr4)
 
 **The Rising  
-**Recorded:** February-March 2002<br>
-**Released:** *The Rising* (2002), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)<br>
-**First performed:** July 25, 2002 (Asbury Park, NJ)<br>
+**Recorded** February-March 2002  
+**Released:** *The Rising* (2002), *The Essential Bruce Springsteen* (2003), *Chapter and Verse* (2016)  
+**First performed:** July 25, 2002 (Asbury Park, NJ)  
 **Last performed:** September 3, 2023 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

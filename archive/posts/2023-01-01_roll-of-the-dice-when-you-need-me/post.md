@@ -18,30 +18,30 @@ There’s not much to write home about in “When You Need Me.” I’m probably
 
 Lyrically, there’s not a lot of artistry on display–no symbolism or layered meaning–just a straightforward profession of love and fidelity.
 
-*When you need me call my name*
-*‘Cause without you my life just wouldn’t be the same*
-*If you want me come sunny skies or rain*
+*When you need me call my name*  
+*‘Cause without you my life just wouldn’t be the same*  
+*If you want me come sunny skies or rain*  
 *When you need me just call my name*
 
-*If you miss me, I’ll be there*
+*If you miss me, I’ll be there*  
 *To brush the sunlight from your hair*
 
 Okay, let’s pause for a second: why in the world would Bruce promised to brush the *sunlight* from his love’s hair? That makes no sense taken either literally or metaphorically, and it’s always bugged me about this song.
 
 Sorry. Let’s continue.
 
-*I’ll be there to guide you when trouble walks beside you*
-*If you need me I’ll be there*
-*And when this dirty world has been cold to you*
-*I got two strong arms waitin’ to hold you*
-*And when those mean days come along*
-*We’ll stand together and we’ll take ’em on*
+*I’ll be there to guide you when trouble walks beside you*  
+*If you need me I’ll be there*  
+*And when this dirty world has been cold to you*  
+*I got two strong arms waitin’ to hold you*  
+*And when those mean days come along*  
+*We’ll stand together and we’ll take ’em on*  
 *So if you need me just call my name*
 
-*When you need me call my name*
-*‘Cause without you my life just isn’t the same*
-*‘Cause when this world kicked me around*
-*Baby you picked me up off the ground*
+*When you need me call my name*  
+*‘Cause without you my life just isn’t the same*  
+*‘Cause when this world kicked me around*  
+*Baby you picked me up off the ground*  
 *So if you need me I’ll be there*
 
 I really want to find some substance to break down and analyze (I don’t feel like I’m doing my job otherwise), but what we hear is pretty much all we get.
@@ -63,8 +63,8 @@ Which is exactly how Bruce seems to have treated it: “When You Need Me” has 
 **Update** #2: I’m humbled today by how sharp my readers are–Magnus Lauglo noticed that in the last verse, the tense shifts to the present: “’cause without you my life just isn’t the same.” That implies that “When You Need Me” is more than just a sweet love song; it’s a song about the bond that persists even after a relationship ends. It deepens the song considerably, and I may have to upgrade my opinion of the song as a result. Thanks, Magnus!
 
 **When You Need Me  
-**Recorded:** January 10, 1987<br>
-**Released:** *Tracks* (1998)<br>
+**Recorded** January 10, 1987  
+**Released:** *Tracks* (1998)  
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

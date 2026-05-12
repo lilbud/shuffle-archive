@@ -24,40 +24,40 @@ What a waste of some serious talent. (That’s David Sancious playing the organ 
 
 As for the lyrics, well even Bruce felt the need to issue a disclaimer before performing it each night: “This next song is a very corny song, so corny I almost threw it off the damn record… but uh, but I guess I’m gonna do it here tonight.”
 
-*Took my baby to a picture show*
-*Found a seat in the back row*
-*Sound came up, lights went down*
-*And Rambo he was blowing ’em down*
-*I don’t need no gun in my fist baby*
-*All I need is your sweet kiss*
+*Took my baby to a picture show*  
+*Found a seat in the back row*  
+*Sound came up, lights went down*  
+*And Rambo he was blowing ’em down*  
+*I don’t need no gun in my fist baby*  
+*All I need is your sweet kiss*  
 *To get me feeling like a real man*
 
 You know, one would think that Bruce would have learned after “[I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)” that pop culture references rarely age well.
 
-*Feeling like a real man*
-*Well you can beat on your chest*
-*Hell any monkey can*
-*But you got me feeling like a real man*
+*Feeling like a real man*  
+*Well you can beat on your chest*  
+*Hell any monkey can*  
+*But you got me feeling like a real man*  
 *Oh feeling like a real man*
 
 As choruses go, this one’s pretty, um, primitive–maybe a cut above “Ooh ooh I got a crush on you.”
 
 Speaking of “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/),” if our first exposure to the next two verses was on paper without the music playing, we might wonder if they were deleted scenes from it–they have virtually the same cadence and construction.
 
-*Me and my girl Saturday night*
-*It’s a late movie on Channel Five*
-*The girls were dropping, they’re dropping like flies*
-*To some smooth-talking cool-walking private eye*
-*I ain’t got no nerves of steel*
-*But all I got to know is if your love is real*
+*Me and my girl Saturday night*  
+*It’s a late movie on Channel Five*  
+*The girls were dropping, they’re dropping like flies*  
+*To some smooth-talking cool-walking private eye*  
+*I ain’t got no nerves of steel*  
+*But all I got to know is if your love is real*  
 *To get me feeling like a real man*
 
-*Well now I ain’t no fighter that’s easy to see*
-*And as a lover I ain’t going down in history*
-*But when the lights go down and you pull me close*
-*Well I look in your eyes and there’s one thing I know*
-*Baby I’ll be tough enough*
-*If I can find the guts to give you all my love*
+*Well now I ain’t no fighter that’s easy to see*  
+*And as a lover I ain’t going down in history*  
+*But when the lights go down and you pull me close*  
+*Well I look in your eyes and there’s one thing I know*  
+*Baby I’ll be tough enough*  
+*If I can find the guts to give you all my love*  
 *Then I’ll be feeling like a real man*
 
 In fact, the similarities don’t stop there. Both “Crush on You” and “Real Man” contain dated pop culture references, and they both have *super-*corny lyrics. So why does one work while the other one doesn’t?
@@ -77,9 +77,9 @@ Second: I can’t believe I’m writing these words, but I’d actually kinda li
 I’d recommend starting by ditching those synths.
 
 **Real Man  
-**Recorded:** January-February 1990<br>
-**Released:** *Human Touch* (1992)<br>
-**First performed:** June 17, 1992 (Stockholm, Sweden)<br>
+**Recorded** January-February 1990  
+**Released:** *Human Touch* (1992)  
+**First performed:** June 17, 1992 (Stockholm, Sweden)  
 **Last performed:** July 25, 1992 (East Rutherford, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

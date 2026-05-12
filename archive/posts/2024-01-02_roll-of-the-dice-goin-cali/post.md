@@ -24,50 +24,50 @@ Bruce:
 
 While it’s fascinating to read Bruce’s insights into such a personal song, he doesn’t really tell us anything we couldn’t suss out for ourselves with even a casual listen. Let’s look at the lyrics:
 
-*Well he’d been hearing too many voices and feelin’ a little off-track*
-*Like there was something big pressing down on his back*
-*So he called up his friends and they said come on out west*
+*Well he’d been hearing too many voices and feelin’ a little off-track*  
+*Like there was something big pressing down on his back*  
+*So he called up his friends and they said come on out west*  
 *It’s a place where a man can really feel his success*
 
 At the time of its release in 1998 on *Tracks*, most of us probably didn’t read too much into those first two lines. As Bruce notes above, sometimes you just have those days where you itch for the ability start anew. But today, with full knowledge of Bruce’s adult-life-long struggle with depression, those first lines carry additional heft. Perhaps Bruce’s move out west (which did indeed happen shortly before the song was likely written) was indeed an attempt by Bruce to wrest himself out of the throes of his illness by moving away from the ghosts of his past.
 
 The next verse is one of Bruce’s most heart-wrenching (so much so that he’d re-use it in “[Living Proof](https://estreetshuffle.com/index.php/2020/03/18/roll-of-the-dice-living-proof/)“):
 
-*So he pulled his heart and soul down off the shelf*
-*Packed them next to the faith that he’d lost in himself*
-*Said his good-byes and when the dirty work was done*
+*So he pulled his heart and soul down off the shelf*  
+*Packed them next to the faith that he’d lost in himself*  
+*Said his good-byes and when the dirty work was done*  
 *He turned his wheels into the fading sun*
 
 The backing track for “Goin’ Cali'” is so spare (Bruce plays every instrument), and the vocal delivery so straightforward, that the crisis of confidence and identity that plagues our hero almost goes unnoticed. His band dispersed, his peak mega-stardom in the past, and with no clear vision to propel new work, what must Bruce have been feeling during that time?
 
-*For seven days and nights like a black-top bird he sped*
-*Maintained radio silence ‘cept for in his head*
-*And just like his folks did back in ’69*
+*For seven days and nights like a black-top bird he sped*  
+*Maintained radio silence ‘cept for in his head*  
+*And just like his folks did back in ’69*  
 *He crossed the border at Needles and heard the promised land on the line*
 
 Bruce has often talked about his first trip out west–in fact, it formed the basis of a set piece in *Springsteen on Broadway*–but he doesn’t often speak of this one. At the time, it must have felt significant, leaving behind his roots and retracing his parents’ migration.
 
 And that “promised land” reference–that’s no accident. Last year, I wrote an essay on “[The Promised Land,](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” arguing that it serves both as a song of defiance and a song of surrender. I still believe that Bruce meant it that way, and I believe that his reference to it here is very much in keeping with that dual interpretation.
 
-*Now where the Transcontinental dumps into the sea*
-*There’s a bar made up to look like 1963*
-*Girl in the corner eyed him like a hungry dog a bone*
-*As he brushed the desert dust off that Mercedes chrome*
-*Bartender said “Hey, how’s it hangin’, tiger?”*
+*Now where the Transcontinental dumps into the sea*  
+*There’s a bar made up to look like 1963*  
+*Girl in the corner eyed him like a hungry dog a bone*  
+*As he brushed the desert dust off that Mercedes chrome*  
+*Bartender said “Hey, how’s it hangin’, tiger?”*  
 *He had a shot of tequila, smiled and whispered “lighter”*
 
 This verse is probably more metaphorical than literal, but either way it represents Bruce’s warring desires for recognition and anonymity. This theme surfaces in other parts of Bruce’s contemporaneous catalog as well (see “[Local Hero](https://estreetshuffle.com/index.php/2019/01/17/roll-of-the-dice-local-hero/)“).
 
-*He went down to the desert city where the rattlesnakes play*
-*And left his dead skin by the roadside in the noon of day*
-*Sun got so hot it almost felt like a friend*
+*He went down to the desert city where the rattlesnakes play*  
+*And left his dead skin by the roadside in the noon of day*  
+*Sun got so hot it almost felt like a friend*  
 *It could burn out every trace of where you been*
 
 This a lovely, poetic verse. The notion of shedding one’s past like a rattlesnake sheds its skin, and of the desert sun burning off the remnants–this is Bruce still very much at the pinnacle of his lyrical craft, and it holds its own amongst the best verses in Bruce’s catalog.
 
-*There was a woman he’d met in a desert song*
-*A little while later a son come along*
-*Looked at that boy’s smile and called it home*
+*There was a woman he’d met in a desert song*  
+*A little while later a son come along*  
+*Looked at that boy’s smile and called it home*  
 *And that night as he lay in bed the only voice he heard was his own*
 
 *Goin’ Cali…*
@@ -81,8 +81,8 @@ Over the months that followed, Bruce would embrace and explore that theme more f
 But those are stories for another day.
 
 **Goin’ Cali  
-**Recorded:** January 29, 1991<br>
-**Released:** *Tracks* (1998)<br>
+**Recorded** January 29, 1991  
+**Released:** *Tracks* (1998)  
 **Never performed live**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

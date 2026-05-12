@@ -22,14 +22,14 @@ Which is odd, considering that “Brilliant Disguise was only a couple of years 
 
 It’s not just the thematic similarity–there are lyrical echoes of “Brilliant Disguise” throughout “Leavin’ Train” starting from the very first lines.
 
-*Baby when I ask you if everything is alright*
-*You whisper “Don’t worry” and you shut out the light*
-*Well now black is black in this bed we’re laying*
+*Baby when I ask you if everything is alright*  
+*You whisper “Don’t worry” and you shut out the light*  
+*Well now black is black in this bed we’re laying*  
 *Yeah and I wanna believe the words yeah that your lips are saying*
 
 Compare the first couplet above with this key passage in “Brilliant Disguise”:
 
-*Now look at me baby, struggling to do everything right*
+*Now look at me baby, struggling to do everything right*  
 *And then it all falls apart oh when out go the lights*
 
 See what I mean? And it continues from there. Compare the third line with:
@@ -38,32 +38,32 @@ See what I mean? And it continues from there. Compare the third line with:
 
 Now I will admit that the notion of a departing train is much more specific and evocative metaphor than a generic disguise (however brilliant), but Bruce fumbles the follow-through:
 
-*Whoa but your eyes look like a leavin’ train*
-*Yeah they keep on dragging me down*
-*Your eyes look like a leavin’ train*
-*They keep on draggin’*
-*They keep on draggin’*
+*Whoa but your eyes look like a leavin’ train*  
+*Yeah they keep on dragging me down*  
+*Your eyes look like a leavin’ train*  
+*They keep on draggin’*  
+*They keep on draggin’*  
 *They keep on draggin’ me down*
 
 Since when do trains drag *down*? I’m not sure what exactly I would have used here instead (I’m no songwriter), but “leavin’ train” and “draggin’ down” don’t really work together. One implies abandonment and the other imprisonment.
 
 I suppose we could just ignore the train metaphor altogether and simply focus on the narrator being dragged down by his lover’s eyes. That conceit works nicely. So much so, in fact, that Bruce had a Top Ten hit with it in 1985:
 
-*Well lately when I look into your eyes*
+*Well lately when I look into your eyes*  
 *I’m going down, down, down, down*
 
 “Leavin’ Train” adds nothing original to Bruce’s catalog. The second verse again retreads “Brilliant Disguise” territory:
 
-*Well I did anything just to try to get close to you*
-*I took it step by step yeah like a man’s supposed to*
-*Tell me now, is this my, baby, is this my contrition*
+*Well I did anything just to try to get close to you*  
+*I took it step by step yeah like a man’s supposed to*  
+*Tell me now, is this my, baby, is this my contrition*  
 *To have the love that I longed for fill me with suspicion*
 
 And the last verse is lackluster even without comparison:
 
-*So now it’s tellin’ time, oh my little sister*
-*Now can I believe the words, the words of love you whisper*
-*Is my train in vain, oh has my soul gone to waste*
+*So now it’s tellin’ time, oh my little sister*  
+*Now can I believe the words, the words of love you whisper*  
+*Is my train in vain, oh has my soul gone to waste*  
 *Am I just a victim of, a victim of my lost faith*
 
 *Train in vain?* When did the train become the narrator’s? And what’s the point of establishing a secondary use of the metaphor but doing absolutely nothing with it besides an easy internal rhyme? And why reach for a lone internal rhyme but go lazy on the external ones? It almost sounds like Bruce just lost interest in the song at this point.
@@ -87,9 +87,9 @@ Will we ever hear from “Leavin’ Train” again?
 I suspect not. That particular train has left the station, and with luck there’s a burnin’ one on the way.
 
 **Leavin’ Train  
-**Recorded:** February 27, 1990<br>
-**Released:** *Tracks* (1998)<br>
-**First performed:** May 22, 2014 (Pittsburgh, PA)<br>
+**Recorded** February 27, 1990  
+**Released:** *Tracks* (1998)  
+**First performed:** May 22, 2014 (Pittsburgh, PA)  
 **Last performed:** May 23, 2014 (Pittsburgh, PA)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

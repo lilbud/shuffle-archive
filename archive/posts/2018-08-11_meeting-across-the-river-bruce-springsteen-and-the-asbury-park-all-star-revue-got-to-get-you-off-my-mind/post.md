@@ -12,5 +12,6 @@ For most of the shows–including "Got to Get You Off My Mind," which the Revue 
 
 [Watch on Youtube: Got to Get You Off My Mind (2016 Remaster)](https://www.youtube.com/watch?v=tGgFMB1N0ew)
 
-**Got to Get You Off My Mind****First performed:** [May 12](https://estreetshuffle.com/index.php/2018/05/12/kingdom-of-days-may-12/), 1977 (Red Bank, NJ)<br>
+**Got to Get You Off My Mind**
+**First performed:** [May 12](https://estreetshuffle.com/index.php/2018/05/12/kingdom-of-days-may-12/), 1977 (Red Bank, NJ)<br>
 **Last performed:** [May 13](https://estreetshuffle.com/index.php/2018/05/13/kingdom-of-days-may-13/), 1977 (Red Bank, NJ)<br>
