@@ -1,0 +1,33 @@
+**1973:** Studio sessions force Bruce to cancel a gig at Asbury Park’s Convention Hall, where he and the as-yet-unnamed E Street Band were scheduled to open for Cheech & Chong.
+
+![](https://estreetshuffle.com/wp-content/uploads/2021/08/1973-08-04.jpg)
+
+**1977:** Bruce works on “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” during recording sessions at Atlantic Studios in New York City.
+
+**1978:** Bruce plays in West Virginia for the first and only time, when the Darkness Tour stops at the Charleston Civic Center. This show is notable for more than its location, however: it’s also the very first appearance of a work-in-progress “Sherry Darling.”
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1A6fmJNSlICZT-QwOoJ8jNK)
+
+**1981:** The original River Tour arrives in Largo, Maryland, for the first of two shows at the Capital Center.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLsxNBNx2akeXZxSnlTIVoWJ6s6HT8nI1z)
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1981-08-04.png)
+
+**1991:** Bruce joins The Outcry on stage for five songs (including “Ain’t That a Shame” “People Get Ready,” and “Not Fade Away”) at Cheers in Long Branch.
+
+**1992:** Night Eight of eleven at the opening American stand of World Tour 1992 in East Rutherford brings three tour premieres (including “Red Headed Woman” as the opener, “Growin’ Up,” and “Because the Night”) and an ultra-rare “Pony Boy.”
+
+[Watch Video Highlight](https://videopress.com/embed/TGLh27pu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+
+**1999:** There are still five more nights to go in the opening U.S. stand of the Reunion Tour, but Night Ten will be hard to top: Bruce opens the show with the tour premiere of “No Surrender” (“For You” gets a tour premiere as well), and “Back in Your Arms” is played for the first time ever.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jzSBtKAjMYw)
+
+[Watch Video Highlight](https://videopress.com/embed/jX93hZxu?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+
+[Watch Video Highlight](https://videopress.com/embed/VMlfy5Zr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+
+[Watch Video Highlight](https://videopress.com/embed/KHrzvhG7?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+
+[Watch Video Highlight](https://videopress.com/embed/xJRZFtfc?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)

@@ -5,8 +5,6 @@ from pathlib import Path
 import httpx
 from user_agent import generate_user_agent
 
-from convert import save_to_archive
-
 cookies = {"wordpress_test_cookie": "WP Cookie check"}
 headers = {
     "User-Agent": generate_user_agent(),
@@ -66,8 +64,6 @@ def get_latest_posts() -> None:
 
                 with save_path.open("w", encoding="utf-8") as f:
                     json.dump(post, f)
-
-            save_to_archive(post)
 
 
 if __name__ == "__main__":

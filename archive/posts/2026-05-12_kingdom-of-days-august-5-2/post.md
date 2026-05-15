@@ -1,0 +1,71 @@
+**1971:** Bruce joins an acoustic jam session (along with Steve Van Zandt on acoustic slide guitar, Kevin Kavanaugh on piano, and Vini Lopez on pebble-filled soda cans) at an outdoor folk concert organized by Tinker West.
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/08/1971-08-05.png)
+
+**1976:** Bruce and the E Street Band play their fourth of six nights at the Monmouth Arts Center in Red Bank.
+
+[Watch Video Highlight](https://videopress.com/embed/P8BHqSd0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+
+**1977:** Bruce holds a recording session for his fourth album at Atlantic Studios in New York City, where he and the band work on “The Way,” “Talk to Me,” and “After Dinner”–none of which will make the album.
+
+**1978:** Bruce and the boys bring the Darkness Tour to Louisville for a night. Bruce loses his place early on during “Rosalita (Come Out Tonight)” and the band vamps until Bruce remembers where he was.
+
+[Watch Video Highlight](https://videopress.com/embed/2zQ6Z7Uq?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=q8rw9izpMaY)
+
+![](https://estreetshuffle.com/wp-content/uploads/2021/08/1978-08-05.png)
+
+After the show, Bruce sits down for an interview with Australian journalist David White. Listen to the interview below.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kHJ0u70kAf8)
+
+**1981:** Night Two at the Capital Center in Largo on the original River Tour.
+
+[Watch Video Highlight](https://videopress.com/embed/pK3XrIXK?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
+
+**1984:** Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand at the Meadowlands. This show features the tour premiere of “Jersey Girl” and is available as part of Bruce’s official archive series. Watch the pro-shot opening of the show below.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xQWHgkEPO6M)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vovP_ZecZQI)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XE-IIrD8fq8)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=whX8b364K64)
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-08-05a.png)
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-08-05b.png)
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-08-05c.png)
+
+**1985:** Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tour–his first all-stadium tour–at RFK Stadium in Washington, DC. This show is notable for the second of only three performances ever of “Man at the Top,” the first U.S. performance of “Seeds,” and the first time Bruce closes a show with “Sherry Darling.”
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rm49wginqwo)
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAXbmVg0HYXLrk7xUqMNmCE)
+
+Because this show marks Bruce’s return to the U.S. and the first time playing to stadiums only, the kick-off show draws a lot of media attention. Watch the news coverage (a lot of it!) below.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=n54Xk96HALs)
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1985-08-05a.png)
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1985-08-05b.png)
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1985-08-05c.png)
+
+**1992:** Jeff Porcaro of Toto, who played drums on most of the *Human Touch* album, passes away at the age of 38.
+
+![](https://estreetshuffle.com/wp-content/uploads/2020/07/1992-08-05.png)
+
+**2002:** The fourth rehearsal show for the Rising Tour is the first in an arena, an invitation-only show at the Continental Airlines Arena in East Rutherford.
+
+[Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zB4ezPROrBW1WqFU1B0KIHv)
+
+**2006:** Bruce makes a guest appearance with John Fogerty at John’s show at the PNC Bank Arts Center in Holmdel, playing “Long Tall Sally.”
+
+![](https://estreetshuffle.com/wp-content/uploads/2018/08/2006-0805.jpg)
+
+ 

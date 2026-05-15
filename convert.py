@@ -20,7 +20,7 @@ def save_to_archive(post: dict) -> None:
 
     save_path = Path(f"./archive/posts/{date.date()}_{post['slug']}")
 
-    print(save_path)
+    # print(save_path)
     save_path.mkdir(exist_ok=True)
 
     if not Path(save_path, "meta.json").exists():
