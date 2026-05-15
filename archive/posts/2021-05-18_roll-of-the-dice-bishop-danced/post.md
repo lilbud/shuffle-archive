@@ -103,7 +103,7 @@ So *you* decide: “Bishop Danced” is either an atypical-for-Bruce nonsense so
 I’m still listening for that Top 40 hook, though.
 
 **Bishop Danced**
-Never recorded**
+**Never recorded**
 **Released:** *Tracks* (1998) (live version)
 **First performed:** December 7, 1972 (New York City, NY)
 **Last performed:** November 19, 2012 (Denver, CO)

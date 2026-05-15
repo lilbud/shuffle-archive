@@ -4,17 +4,17 @@ I’m guessing, of course, but I’m pretty sure that Bruce didn’t have musica
 
 Not only do the structure and meter of Bruce’s lyrics suggest a more poetic than melodic intent, the opening line and several of his phrases appear in a poem entitled “My Lady” that Bruce submitted to *Seascape*, the literary magazine of Ocean County College*.* (The magazine published Bruce’s poem in their January 1969 issue.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/my-lady.jpg)
+![](../../assets/2021/04/my-lady.jpg)
 
 “Love Cycle” shares a lot of DNA with “My Lady,” but it’s a very different piece. It appears very late in Bruce’s 1968 notebook, suggesting that it dates to the final months of that year–very possibly an early or abandoned version that gave rise to “My Lady” instead.
 
 Bruce’s “Love Cycle” stanzas are relatively polished, suggesting he was transcribing rather than writing–at least at first. There’s a notable departure on the second page where Bruce seems inspired to riff on his circus theme, branching off to page three for the complete middle section.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/lovecycle_lyrics1.jpg)
+![](../../assets/2021/04/lovecycle_lyrics1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/lovecycle_lyrics2.jpg)
+![](../../assets/2021/04/lovecycle_lyrics2.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/lovecycle_lyrics3.jpg)
+![](../../assets/2021/04/lovecycle_lyrics3.jpg)
 
 Thanks to the good folks at Springsteenlyrics.com, we have a clean transcription of Bruce’s writing to analyze.
 
@@ -105,7 +105,7 @@ The final lines of “Love Cycle” fulfill the promise of Bruce’s title: alth
 Explore more entries from Bruce’s 1968 notebook [here](https://estreetshuffle.com/?s=1968+notebook).
 
 **Love Cycle**
-Never recorded**
+**Never recorded**
 **Never released**
 **Never performed**
 

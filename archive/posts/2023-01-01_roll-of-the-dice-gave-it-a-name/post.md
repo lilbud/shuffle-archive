@@ -40,7 +40,7 @@ That central line–“poison snake bites you, you’re poison too”–also app
 
 Interestingly, an early lyrics sheet for “Gave It a Name” implies a more explicit father/son parallel at the expense of biblical accuracy. Instead of “Cain slew Abel ‘neath the black rain,” Bruce’s original line was “Cain slew Adam all the same.” Perhaps Bruce realized that the alternative history would distract from the rest of the song; regardless, he reverted to the traditional version before finalizing the song.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/05/gaveitaname_lyrics-sheet.jpg)
+![](../../assets/2019/05/gaveitaname_lyrics-sheet.jpg)
 
 Bruce has never played “Gave It a Name” in concert, and the song resides comfortably in obscurity on the final disc of *Tracks.* But astonishingly, “Gave It a Name” did get one prominent moment in the spotlight: in August 2015, HBO premiered a six-part based-on-a-true-story series called “Show Me a Hero.”
 

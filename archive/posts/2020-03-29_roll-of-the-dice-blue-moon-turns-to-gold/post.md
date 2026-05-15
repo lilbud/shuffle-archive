@@ -4,13 +4,13 @@ In Bruce’s book of song lyrics entitled (appropriately) *Songs*, there’s a t
 
 But–Bruce apparently likes to write in notebooks that have thin paper, because in the photo we can easily see the writing from the opposite side of the page seeping through.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/bluemoonturnstogold_lyrics.jpg)
+![](../../assets/2020/03/bluemoonturnstogold_lyrics.jpg)
 
 So of course upon noticing this, we have to immediately hold the page up to a mirror, right? Lo and behold: a song we’ve never heard to this day, called “Blue Moon Turns to Gold.”
 
 And while most of the first half of the song is obscured by the last lines of “Gloria’s Eyes” (darn it), the second half is clear enough to make out much of it.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/bluemoonturnstogold_lyrics-1.jpg)
+![](../../assets/2020/03/bluemoonturnstogold_lyrics-1.jpg)
 
 The song title is almost certainly a hat tip to the 1941 Wiley Walker/Gene Sullivan recording (covered by Elvis Presley, Jerry Lee Lewis, Emmylou Harris, and more) “When My Blue Moon Turns to Gold Again.”
 
@@ -39,7 +39,7 @@ So, um, yeah–not exactly Bruce’s deepest (or even coherent) lyrics.
 I can understand why this one hasn’t seen the light of day. But it makes you wonder, doesn’t it: what else is hidden on the flip sides of those notebook pages?
 
 **Blue Moon Turns to Gold**
-Never recorded**
+**Never recorded**
 **Never released**
 **Never performed**
 

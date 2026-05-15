@@ -2,7 +2,7 @@ In April 2016, the state of North Carolina passed the Public Facilities Privacy 
 
 Citizens, activists, businesses and artists all over the United States took a stand against the measure. Bruce Springsteen was among the artists who chose to boycott the state in protest, cancelling a planned show in Greensboro, a long and loyal Springsteen stronghold, only two days before the scheduled event.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2016-04-08.jpg)
+![](../../assets/2020/04/2016-04-08.jpg)
 
 Bruce wasn't the only artist to cancel an appearance, but he was the most prominent, and his decision sparked a national debate about the best way to respond to and protest a clearly discriminatory law. In the wake of Bruce's move, artists across the spectrum questioned themselves (or found themselves questioned) about whether they should follow suit.
 

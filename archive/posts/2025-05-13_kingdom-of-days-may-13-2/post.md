@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Bruce marries Julianne - wedding news 1985](https://www.youtube.com/watch?v=pnqMBNuNHIs)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1985-0513.jpg)
+![](../../assets/2018/05/1985-0513.jpg)
 
 **1988:** Bruce and the band bring the Tunnel of Love Express Tour to the Market Square Arena in Indianapolis.
 
@@ -34,9 +34,9 @@
 
 [Watch on Youtube: Bruce Springsteen - ACROSS THE BORDERLINE 1988 (audio)](https://www.youtube.com/watch?v=LN_gm14o6Y8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-05-13a.jpg)
+![](../../assets/2020/04/1988-05-13a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-05-13b.jpg)
+![](../../assets/2020/04/1988-05-13b.jpg)
 
 **2008:** Bruce, Patti, Southside Johnny, and Bobby Bandiera perform at The Stone Pony for the annual benefit for The Ranney School.
 
@@ -50,7 +50,7 @@
 
 [Watch on Youtube: "Don't Stop Believin'" - Lady Gaga, Elton John, Springsteen, Sting, Blondie, Shirley Bassey](https://www.youtube.com/watch?v=PcIEEdTiNak)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2010-05-13.jpg)
+![](../../assets/2020/04/2010-05-13.jpg)
 
 **2012:** The first European leg of the Wrecking Ball Tour kicks off in Seville. The set features the tour premiere of "I'm Goin' Down."
 

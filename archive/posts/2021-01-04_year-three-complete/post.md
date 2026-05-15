@@ -10,11 +10,11 @@ It also marks:
 
 Whether you've been with me from the beginning or just discovered this site for the first time today, I wanted to take a moment to thank you for reading, following, commenting, liking and/or sharing.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/thank_you_PNG132.png)
+![](../../assets/2019/01/thank_you_PNG132.png)
 
 I am deeply humbled by the ever-growing number of daily visitors to the Shuffle, which doubled this year from the previous one (which itself was twice the year prior). At this rate, my little blog will reach its one millionth view before the end of the month, which is something I can't even wrap my head around at the moment.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/blog-traffic.png)
+![](../../assets/2021/01/blog-traffic.png)
 
 (And that doesn't even account for those of you who subscribe and are reading this in your inbox right now instead of your browser–you account for over a million e-mails this past year alone!)
 

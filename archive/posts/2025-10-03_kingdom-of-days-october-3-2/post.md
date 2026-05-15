@@ -2,17 +2,17 @@
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/1971-1001.jpg)
+![](../../assets/2018/10/1971-1001.jpg)
 
 **1975:** A scheduled show at the Rivoli Theatre in Indianapolis is cancelled.
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/10/medium.jpg)
+![](../../assets/2023/10/medium.jpg)
 
 **1976:** Bruce and the E Street Band continue their week of California shows with a stop at Santa Clara University.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1976-10-03.jpg)
+![](../../assets/2020/09/1976-10-03.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/1976-1003.jpg)
+![](../../assets/2018/10/1976-1003.jpg)
 
 **1980:** The original River Tour kicks off at the University of Michigan in Ann Arbor, with "Born to Run" opening the show for the first time ever. Bruce is clearly a bit rusty, as he forgets the lyrics to his most well-known song. "Thunder Road" is played twice, the first time mid-set and the second as a final encore with Bob Seger.
 
@@ -24,9 +24,9 @@
 
 [Watch on Youtube: Bruce Springsteen - STOLEN CAR 1980 (audio)](https://www.youtube.com/watch?v=AfgSfFbO1gI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/1980-10-03a.jpg)
+![](../../assets/2021/10/1980-10-03a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1980-10-03b.jpg)
+![](../../assets/2020/09/1980-10-03b.jpg)
 
 **1982:** Bruce plays "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)" for the very first time, not solo or with the E Street Band, but with Cats on a Smooth Surface at The Stone Pony.
 
@@ -52,9 +52,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/lhef9P4J)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1996-10-03a.jpg)
+![](../../assets/2020/09/1996-10-03a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1996-10-03b.jpg)
+![](../../assets/2020/09/1996-10-03b.jpg)
 
 **2003:** A stunning penultimate show for the Rising Tour at Shea Stadium from start to finish: Bruce opens with the tour premiere of "[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)," plays another double-header of tour premieres mid-set ("[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)" and "Another Thin Line"), along with rare outings for "[Janey, Don't You Lose Heart](https://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)" and "New York City Serenade" (another tour premiere). Willie Nile and Gary U.S. Bonds guest-star during the encores, and Al Franken makes a guest appearance during the main set.
 
@@ -70,9 +70,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/1wwST4YS)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/2004-10-03a.jpg)
+![](../../assets/2020/09/2004-10-03a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/2004-10-03b.jpg)
+![](../../assets/2020/09/2004-10-03b.jpg)
 
 **2005:** While driving his kids to school, Bruce notices on the radio that his favorite local public station is holding a membership drive. The station makes a plea for community support, so Bruce decides to provide it, stopping by the station with his guitar and spending over thirty minutes on-air talking with their music director and playing two songs. One of them, ["If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)," will be released on a promotional CD for pledging members.
 
@@ -100,9 +100,9 @@
 
 **2017:** Bruce makes his official Broadway debut when *Springsteen on Broadway* opens in its first public preview performance at the Walter Kerr Theater in New York City. Bruce dedicates this first show to Tom Petty, who passed away the day before. The show itself is an emotional tour through Bruce's life and work, stunning those present with its power, poignancy, heart and humor–all of which will grow throughout its long run. I'm in the front row for this historic performance–read my account of the evening in my *[Where the Band Was report](https://estreetshuffle.com/index.php/2018/10/03/where-the-man-was-broadway-october-3-2017/)*. Also in attendance tonight: Little Steven, Bruce's mom, and Bruce's sister Pam.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/2017-1003.jpg)
+![](../../assets/2018/10/2017-1003.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/2017-10-03.jpg)
+![](../../assets/2021/10/2017-10-03.jpg)
 
 **2018:** *Springsteen on Broadway* celebrates the one-year anniversary of its theatrical run at the Walter Kerr Theater in New York City.
 

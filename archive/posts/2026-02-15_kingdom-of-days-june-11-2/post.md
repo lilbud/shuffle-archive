@@ -10,7 +10,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=adIkoqMKc1o)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Daily_News_Thu__Jun_16__1988_-scaled.jpg)
+![](../../assets/2024/06/Daily_News_Thu__Jun_16__1988_-scaled.jpg)
 
 **1999:** Bruce and the reunited E Street Band make a tour stop in Genoa, Italy.
 
@@ -34,11 +34,11 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OJZmPNby-9U)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-06-11.jpg)
+![](../../assets/2020/05/2006-06-11.jpg)
 
 **2007:** Bruce joins Jackson Browne, Tom Chapin, and others at a World Hunger Year benefit at The Lighthouse at Chelsea Piers in New York City.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Oakland_Tribune_Wed__Jun_13__2007_.jpg)
+![](../../assets/2024/06/Oakland_Tribune_Wed__Jun_13__2007_.jpg)
 
 **2012:** Elliott Murphy guest-stars in Trieste at the last Italian show of the 2012 tour.
 

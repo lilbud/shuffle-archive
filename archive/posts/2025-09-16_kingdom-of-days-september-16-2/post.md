@@ -6,15 +6,15 @@
 
 [Watch on Youtube: Bruce Springsteen / The Castiles - The Left Foot, Freehold, NJ 09-16-1967](https://www.youtube.com/watch?v=gKLZ9lMqNTk?start=650)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1967-09-16.jpg)
+![](../../assets/2020/09/1967-09-16.jpg)
 
 **1973:** Bruce cancels a scheduled gig at Syracuse University to make room for final mixing on *The Wild, The Innocent, and the E Street Shuffle.*
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1973-09-14.jpg)
+![](../../assets/2021/09/1973-09-14.jpg)
 
 **1975:** The Born to Run Tour's Texas swing concludes with a show at the Dallas Convention Center Theater. (Soundcheck photo credit: Barbara Pyle)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1975-0916.jpg)
+![](../../assets/2018/09/1975-0916.jpg)
 
 [Watch Video Highlight](https://videopress.com/embed/dMx2UT8a)
 
@@ -34,21 +34,21 @@
 
 **1987:** Bruce plays best man when Danny Federici marries Kathlynn Helmeid.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/09/The_Capital_Times_1987_09_17_1.jpg)
+![](../../assets/2024/09/The_Capital_Times_1987_09_17_1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1987-09-16b.jpg)
+![](../../assets/2021/09/1987-09-16b.jpg)
 
 **1996:** The Ghost of Tom Joad Tour resumes after a four-month break, kicking off the fall leg with a show at Benedum Center in Pittsburgh, where Joe Grushecky makes an appearance during the encores. Bruce and Joe perform "[Homestead](https://estreetshuffle.com/index.php/2022/06/25/rotd-matr-joe-grushecky-and-bruce-springsteen-homestead/)" together.
 
 [Watch on Youtube: Bruce Springsteen and Joe Grushecky, "Homestead" 1996-09-16, Pittsburgh](https://www.youtube.com/watch?v=RCBrzGqEGQY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1996-09-16a.jpg)
+![](../../assets/2021/09/1996-09-16a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1996-09-16b.jpg)
+![](../../assets/2021/09/1996-09-16b.jpg)
 
 **1999:** A hurricane forces the postponement of a scheduled Reunion Tour show in Philadelphia.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1999-09-16.jpg)
+![](../../assets/2021/09/1999-09-16.jpg)
 
 **2002:** Bruce attends an Asbury Park memorial service for Mark McGarril and performs two songs on his acoustic guitar.
 
@@ -58,7 +58,7 @@
 
 [Watch on Youtube: Bruce Springsteen - LET'S BE FRIENDS (SKIN TO SKIN) 2003 live](https://www.youtube.com/watch?v=wawtqYSdCPM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/2003-09-16.jpg)
+![](../../assets/2020/09/2003-09-16.jpg)
 
 **2004:** The Castiles get their first radio airplay when recordings of their 1967 performances at The Left Foot are played on NPR.
 
@@ -70,13 +70,13 @@
 
 [Watch on Youtube: Bruce Springsteen Greenville S.C. 9/16/09 Satisfaction Rolling Stones](https://www.youtube.com/watch?v=hoVGLpdXYQk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/2009-09-16.jpg)
+![](../../assets/2020/09/2009-09-16.jpg)
 
 **2013:** While Bruce was in Buenos Aires for a show a few days earlier, he learned a Spanish language song that he'd intended to perform there: León Gieco's "[Sólo le Pido a Dios](https://estreetshuffle.com/index.php/2020/11/03/cover-me/)." He didn't quite get it down in time, so instead he had himself filmed and uploads it to YouTube today.
 
 [Watch on Youtube: Bruce Springsteen - Sólo le Pido a Dios](https://www.youtube.com/watch?v=KqMszVPa6e4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/2013-09-16.jpg)
+![](../../assets/2021/09/2013-09-16.jpg)
 
 **2020:** Bruce bids farewell to the Summer of 2020 with "Summer's End," the twelfth installment of his *From My Home to Yours* radio show on E Street Radio.
 

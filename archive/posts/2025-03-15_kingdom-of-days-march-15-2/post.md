@@ -2,13 +2,13 @@
 
 **1973:** Bruce and the band play their fourth of seven nights at Oliver's in Boston.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1.jpg)
+![](../../assets/2018/03/1973-0316-1.jpg)
 
 **1974:** Bruce plays Austin for the first time to a sold-out crowd at Armadillo World Headquarters. He'll be back in 38 years to the day to keynote at SXSW. (photo credit: Burton Wilson)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1974-03-15-rotated.jpg)
+![](../../assets/2021/03/1974-03-15-rotated.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1974-0315.jpg)
+![](../../assets/2018/03/1974-0315.jpg)
 
 **1975:** Extended studio sessions for *Born to Run* prompt the postponement of a scheduled show in Atlanta.
 
@@ -16,15 +16,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/R0xeoh7J)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/1977-03-15-1.jpg)
+![](../../assets/2020/03/1977-03-15-1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1977-0315.jpg)
+![](../../assets/2018/03/1977-0315.jpg)
 
 **1978:** At the Record Plant in New York City, Bruce records "(I Love) Everything About You," which remains unreleased to this day.
 
 **1988:** In town a day early for his show in Rosemont the next night, Bruce has dinner out at an Italian restaurant.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1988-03-15.png)
+![](../../assets/2021/03/1988-03-15.png)
 
 **1999:** Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street Band play a mini-set that includes Springsteen classics like "[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)" and "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)," a duet with Wilson Pickett (and Billy Joel on keyboard) and an all-star jam on "[Let It Be](https://estreetshuffle.com/index.php/2020/11/23/matr-paul-mccartney-billy-joel-bruce-springsteen-and-more-let-it-be/)."
 
@@ -40,15 +40,15 @@
 
 [Watch on Youtube: Paul McCartney, Eric Clapton, Bono & more - "Let It Be" | 1999 Induction](https://www.youtube.com/watch?v=NXYNPO3zIj8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1999-03-15a.png)
+![](../../assets/2021/03/1999-03-15a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1999-03-15b.png)
+![](../../assets/2021/03/1999-03-15b.png)
 
 **2004:** Bruce inducts Jackson Browne into the Rock and Roll Hall of Fame.
 
 [Watch on Youtube: Bruce Springsteen inducts Jackson Browne Rock and Roll Hall of Fame inductions 2004](https://www.youtube.com/watch?v=8YFyC6pnz-k)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Ithaca_Journal_Tue__Mar_16__2004_.jpg)
+![](../../assets/2024/03/The_Ithaca_Journal_Tue__Mar_16__2004_.jpg)
 
 **2010:** Bruce attends the 25th Annual Rock and Roll Hall of Fame induction ceremony at the Waldorf-Astoria Hotel in New York City.
 
@@ -56,7 +56,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 2012 SXSW Keynote Address](https://www.youtube.com/watch?v=VW05XedG4zk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Toronto_Star_Fri__Mar_16__2012_-scaled.jpg)
+![](../../assets/2024/03/The_Toronto_Star_Fri__Mar_16__2012_-scaled.jpg)
 
 After the speech, Bruce plays a warm-up show for the upcoming Wrecking Ball Tour, with guest-stars Jimmy Cliff, Eric Burdon, Joe Ely, Alejandro Escovedo, Tom Morello, Garland Jeffreys, Arcade Fire, and The Low Anthem. Whew!
 
@@ -84,9 +84,9 @@ After the speech, Bruce plays a warm-up show for the upcoming Wrecking Ball Tour
 
 [Watch on Youtube: Bruce Springsteen Meet Me In The City The River Tour 2016 LA](https://www.youtube.com/watch?v=vN0nwWB8sp4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2016-03-15a.jpg)
+![](../../assets/2020/03/2016-03-15a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/2016-03-15b.jpg)
+![](../../assets/2021/03/2016-03-15b.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

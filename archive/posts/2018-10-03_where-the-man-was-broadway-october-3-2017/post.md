@@ -62,11 +62,11 @@ I was so shocked, I almost didn't click the purchase button in time. *Almost*.
 
 Seconds later, after profuse thanks and praise and promised loyalty forever to Delta (I don't do ads on this site, but I will freely admit that I love my airline), I had a confirmed seat for opening night at *Springsteen on Broadway*–and it was only one week away.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/ticket.jpg)
+![](../../assets/2018/10/ticket.jpg)
 
 The first thing you notice–the first thing *everyone* notices–when you walk into the Walter Kerr Theater, is that the place is *tiny*. Every seat is a good seat, but even with that in mind, I was shocked at just how close I was. There was no space between the front row and the stage–here's the view from my seat, taken with no zoom:
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/22222015_10155106466221158_4780947566061749221_n.jpg)
+![](../../assets/2018/10/22222015_10155106466221158_4780947566061749221_n.jpg)
 
 *That's* how close I was to Bruce. And I almost got kicked out of the theater for taking that photo, because on opening night, they were super strict about the new photos rule, even well before showtime. They also stressed to us as we walked in that if we left our seats for any reason during the performance, we'd have to watch the remainder of the show from the back of the theater.
 
@@ -110,7 +110,7 @@ LOHAD itself–wow. I may be biased, as it's my favorite song of his, but the po
 
 No encore, just bows, and a hasty exit–lights were up within seconds.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/file-20-e1538497668334.jpeg)
+![](../../assets/2018/10/file-20-e1538497668334.jpeg)
 
 I loved every moment of the experience. I was fortunate enough to score a front row seat right in front of Bruce's piano bench in the drop last week, and while I don't regret for a moment spending the money, I certainly think I would have been just as satisfied with any other seat on the main floor (I wasn't able to check out the view upstairs, so I'll let others comment on that).
 

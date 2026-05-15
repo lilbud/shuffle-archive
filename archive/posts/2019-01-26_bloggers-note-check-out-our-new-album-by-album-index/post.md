@@ -2,7 +2,7 @@ I'm pleased to announce a new feature of the site–one that several of you have
 
 We now have an [Album-by-Album Index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/) for the *Roll of the Dice* series, added to our top menu.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/albums.jpg)
+![](../../assets/2019/01/albums.jpg)
 
 It's always been a challenge to keep this site constantly updated with new content every day; now that I'm 387 days in, I realize it's also a challenge to sift through past articles.
 

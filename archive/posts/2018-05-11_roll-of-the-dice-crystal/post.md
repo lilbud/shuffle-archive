@@ -1,6 +1,6 @@
 Today, the dice land on another entry from 18-year-old Bruce’s handwritten notebook of mystery songs, never recorded and possibly never performed. (See “[Until the Rain Comes](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)” for the backstory.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2018/04/1968_lyricsnotebook-contentspage.jpg)
 
 Crystal is the second song from that notebook. We may never know whether it was a ballad or a rocker, but the lyrics are about what you’d expect from a teenage Bruce, an ode to the elusive mystery girl who lights his world afire as she nears and saps the color and brightness as she walks away.
 
@@ -30,7 +30,7 @@ That central line (“I’m lost in the center of your resistance”) almost cer
 I would have liked to have seen what this would have developed into.
 
 **Crystal**
-**Never recorded**  
+**Never recorded**
 **Performed:** Possibly May 1968 (Red Bank, NJ)
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

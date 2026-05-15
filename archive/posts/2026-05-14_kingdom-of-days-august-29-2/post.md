@@ -1,20 +1,20 @@
 **1969:** Child plays a gig at the Ocean Side Surf Club in Sea Bright, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/1969-0829.jpg)
+![](../../assets/2021/08/1969-0829.jpg)
 
 **1970:** Bruce plays his first-ever show in Tennessee when Steel Mill opens for Roy Orbison, Ronnie Milsap and others at the 3rd Annual Nashville Music Festival. About 50,000 people attend, making this show the largest Bruce will play until he starts playing stadiums in the mid-1980s.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1970-08-29.png)
+![](../../assets/2020/08/1970-08-29.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/1970-0829.jpg)
+![](../../assets/2018/08/1970-0829.jpg)
 
 **1975:** Bruce cancels a scheduled show at the University of Miami.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1975-08-29a.png)
+![](../../assets/2020/08/1975-08-29a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1975-08-29b.png)
+![](../../assets/2020/08/1975-08-29b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1975-08-29.jpg)
+![](../../assets/2019/08/1975-08-29.jpg)
 
 **1977:** Bruce and the band are in the studio, recording for what will become *Darkness on the Edge of Town*.
 
@@ -36,7 +36,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/C5ZvQSju?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-08-29.png)
+![](../../assets/2020/08/1992-08-29.png)
 
 **1995:** Bruce and Joe Grushecky sit down for an interview at Cheers in Long Branch to promote Joe’s upcoming Bruce-produced album, *American Babylon*.
 
@@ -48,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/GLcWAlPv?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-29.png)
+![](../../assets/2020/08/2002-08-29.png)
 
 **2012:** Bruce and the band play an unusual venue: the Vernon Downs Raceway, a horse racing track in central New York State. Bruce delivers a great set list, tour premiering “Stand On It” and “Human Touch” and giving rare outings to “Frankie,” “I’m a Rocker,” the 1978 version of “Prove It All Night” and “Open All Night.”
 
@@ -60,6 +60,6 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=S6GTb8JIfzU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/08/The_Buffalo_News_2012_09_01_31.jpg)
+![](../../assets/2024/08/The_Buffalo_News_2012_09_01_31.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.

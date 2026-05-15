@@ -2,7 +2,7 @@ It's time for another dip into the "[1968 Notebook,](https://estreetshuffle.com/
 
 Today’s entry is the thirteenth song in the notebook’s table of contents: “New York Morning Love.”
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2019/08/1968_lyricsnotebook-contentspage.jpg)
 
 Like all of the songs in Bruce’s notebook, we have no record of Bruce ever performing “New York Morning Love” live, and there’s no known recording–so we don’t know what the song would have sounded like.
 
@@ -12,7 +12,7 @@ Perhaps it’s for the best that “New York Morning Love” never made it to th
 
 “New York Morning Love” is high on melodrama. Keep in mind that Bruce was only eighteen at the time and still living in a New Jersey small town… and then read his imagining of New York city affair, one that bears eyebrow-raising consequences.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/40451594614_1023aeb631_o.jpg)
+![](../../assets/2019/10/40451594614_1023aeb631_o.jpg)
 
 Let’s take a close look at those lyrics:
 
@@ -71,7 +71,7 @@ You’d think that’d be the setup of a fascinating song, but unfortunately tha
 So while a recorded version of “New York Morning Love” isn’t likely to ever see the light of day in any fashion, Bruce’s notebook lyrics at least give us some insight into a young artist learning to grapple with some very adult themes.
 
 **New York Morning Love**
-Never recorded**
+**Never recorded**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

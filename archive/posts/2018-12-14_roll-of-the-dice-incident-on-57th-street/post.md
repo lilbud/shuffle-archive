@@ -110,7 +110,7 @@ The street is empty now, and Johnny is lost in thought, wrestling with a dilemma
 *Janey sleeps in sheets damp with sweat; Johnny sits up alone and watches her dream on, dream on*
 *And the sister prays for lost souls, then breaks down in the chapel after everyone’s gone*
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/12/incidentlyrics.jpg)
+![](../../assets/2018/12/incidentlyrics.jpg)
 
 Johnny may have called down to his compadres (who, by the way, are not children–their “play” is decidedly less innocent), but he’s really talking to himself. He’s lost in thought, unable to sleep. The line about the sister praying for lost souls in the nearby chapel–that’s not a throwaway line either. It’s foreshadowing, and because it happens within Johnny’s earshot and notes it, we know that he knows it’s foreshadowing, too.
 

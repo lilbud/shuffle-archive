@@ -1,10 +1,10 @@
 **1969:** For a short time, Bruce led a band called Earth. On this date, the band plays a two-hour show at Le Teendezvous in New Shrewsbury, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/1969-0117.jpg)
+![](../../assets/2018/01/1969-0117.jpg)
 
 **1985:** On a "rest" day during the Born in the U.S.A. Tour, Bruce and Nils stop by the Rhinoceros Club in Greensboro to catch the Del Fuegos. Bruce compliments the band on their album, and the band invites him to join them on stage–which of course he does, playing "[Hang on Sloopy](https://estreetshuffle.com/index.php/2020/04/07/cover-me-hang-on-sloopy/)" and "[Stand by Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)."
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/01/Richmond_Times_Dispatch_Thu__Jan_24__1985_.jpg)
+![](../../assets/2024/01/Richmond_Times_Dispatch_Thu__Jan_24__1985_.jpg)
 
 **1990:** At the Rock and Roll Hall of Fame induction ceremony at New York's Waldorf-Astoria Hotel, Bruce joins the all-star jam, trading lead vocals with John Fogerty on "[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)."
 
@@ -12,7 +12,7 @@
 
 [Watch on Youtube: The Who perform at Rock and Roll Hall of Fame and Museum inductions 1990](https://www.youtube.com/watch?v=rSb63bh1WVU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1990-01-17.png)
+![](../../assets/2020/12/1990-01-17.png)
 
 **1996:** Bruce plays the second of two acoustic shows at the Cleveland Music Hall.
 
@@ -38,9 +38,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/aiLMllsi)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_Herald_News_2015_01_19_B1-scaled.jpg)
+![](../../assets/2025/01/The_Herald_News_2015_01_19_B1-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/2015-01-17b.png)
+![](../../assets/2020/12/2015-01-17b.png)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

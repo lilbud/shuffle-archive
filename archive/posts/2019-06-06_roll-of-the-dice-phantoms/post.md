@@ -19,7 +19,7 @@ Although records aren’t clear enough to tell us exactly what Bruce had in mind
 
 First, we have an early lyrics sheet that shows us that Bruce hadn’t yet settled on a name for Jamey’s love interest. What’s fascinating are the two names he’d tried and tossed: Sandy and Mary. Both women would make an appearance in Bruce’s catalog soon enough.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/06/phantoms-lyrics.jpg)
+![](../../assets/2019/06/phantoms-lyrics.jpg)
 
 An early live recording (but not *that* early–only weeks before Bruce recorded “Phantoms” in the studio, in fact) tells the same story but apparently with understudies: the recording below is the tale of Billy and Bobby instead of Jamey and Jessie.
 

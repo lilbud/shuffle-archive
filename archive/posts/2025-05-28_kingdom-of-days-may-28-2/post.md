@@ -2,19 +2,19 @@
 
 **1969:** Child opens for the James Cotton Band for three shows in one day at the Pandemonium in Wanamassa, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/1969-05-28-scaled.jpg)
+![](../../assets/2021/05/1969-05-28-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1969-0523-1.gif)
+![](../../assets/2018/05/1969-0523-1.gif)
 
 **1971:** The Sundance Blues Band plays The Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1971-0528.jpg)
+![](../../assets/2018/05/1971-0528.jpg)
 
 **1974:** Bruce and the E Street Band play two shows on their first of two nights at The Main Point in Bryn Mawr, Pennsylvania.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/The_Philadelphia_Inquirer_Mon__Jun_3__1974_-scaled.jpg)
+![](../../assets/2024/05/The_Philadelphia_Inquirer_Mon__Jun_3__1974_-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1974-0528.jpg)
+![](../../assets/2018/05/1974-0528.jpg)
 
 **1975:** Randy Brecker joins Bruce in the studio at The Record Plant in New York City, where he records his trumpet part for "The Heist," which will eventually be known as "[Meeting Across the Rive](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)r."
 
@@ -26,17 +26,17 @@
 
 **1976:** Bruce and the band close out their Chicken Scratch Tour with a show for the U.S. Naval Academy at Annapolis, where they play Frankie Ford's "[Sea Cruise](https://estreetshuffle.com/index.php/2018/04/08/cover-me-sea-cruise/)" for the first time.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1976-0528.gif)
+![](../../assets/2018/05/1976-0528.gif)
 
 **1977:** At 3am, Bruce and Mike Appel settle their legal dispute, finally freeing Bruce to record again. Appel retains 50% of the publishing rights over all songs recorded to date, but Bruce will own everything recorded henceforth. That night, Bruce and Steve see Elvis play in Philadelphia at the Spectrum.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1977-0528.jpg)
+![](../../assets/2018/05/1977-0528.jpg)
 
 **1985:** Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell's in Hoboken for the second day of filming for the video for "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)."
 
 [Watch on Youtube: Bruce Springsteen - Glory Days (Official Video)](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/1985-05-27.jpg)
+![](../../assets/2021/05/1985-05-27.jpg)
 
 **1992:** *Human Touch* and *Lucky Town* are both certified platinum by the Recording Industry Association of America.
 
@@ -66,7 +66,7 @@
 
 [Watch on Youtube: Bruce Springsteen The Rising](https://www.youtube.com/watch?v=w_c_nZoxah8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-28.jpg)
+![](../../assets/2021/05/2008-05-28.jpg)
 
 **2012:** Bruce headlines Pinkpop for the second time, playing a festival set with a Garland Jeffreys guest appearance for "[96 Tears](https://estreetshuffle.com/index.php/2020/02/15/matr-bruce-springsteen-and-garland-jeffreys-96-tears/)" and Mumford & Sons for "[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" The Mumford appearance is not pre-arranged, though–the band is shocked when Bruce beckons them on stage, and Marcus Mumford clearly doesn't know the words to the song (which he'll completely own up to with Jimmy Fallon years later–you can watch that below, too).
 
@@ -102,6 +102,6 @@
 
 [Watch on Youtube: Billy Idol, Bruce Springsteen, Willie Nile & The Who - Won't Get Fooled Again](https://www.youtube.com/watch?v=W2bcUlm863U)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2015-05-28.jpg)
+![](../../assets/2020/05/2015-05-28.jpg)
 
 **2024:** Bruce postpones his show in Prague due to vocal problems. As of this writing, the rescheduled show has yet to take place.

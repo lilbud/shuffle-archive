@@ -2,13 +2,13 @@
 
 **1972:** The Bruce Springsteen Band opens for Mitch Ryder (of "[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)" fame) in Richmond. Also on the bill: the Mike Quatro Jamband. Mike's sister Suzi will go on to become a well-known rocker (and minor TV star), [someday covering](https://estreetshuffle.com/index.php/2019/03/16/cover-me-suzi-quatro-born-to-run/) Bruce's signature song, "Born to Run."
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/47944265348_83c10b3f14_o.jpg)
+![](../../assets/2020/03/47944265348_83c10b3f14_o.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1972-0317.jpg)
+![](../../assets/2018/03/1972-0317.jpg)
 
 **1973:** Bruce and the as-yet-unnamed E Street Band play a gig at Oliver's in Boston, their sixth of seven straight nights.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0316-1.jpg)
+![](../../assets/2018/03/1973-0316-1.jpg)
 
 **1975:** At Columbia Recording Studios in New York City, Bruce attempts to remix "Born to Run" for his upcoming album but ultimately decide to stick with the original.
 
@@ -16,7 +16,7 @@
 
 **1981:** The scheduled European opener of the River Tour is postponed to give Bruce time to recover from the first two legs of the tour.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
+![](../../assets/2018/03/1981-0318.jpg)
 
 **1988:** Bruce and the E Street Band play their second of two nights at the Rosemont Horizon near Chicago, where they tour premiere "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)" and "[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)."
 
@@ -28,27 +28,27 @@
 
 [Watch on Youtube: Joe Ely and Bruce Springsteen - Dublin - 1996-03-17 (encore)](https://www.youtube.com/watch?v=m6cZU3iSdzY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1996-0317.jpg)
+![](../../assets/2018/03/1996-0317.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/Austin_American_Statesman_Thu__Mar_21__1996_-scaled.jpg)
+![](../../assets/2024/03/Austin_American_Statesman_Thu__Mar_21__1996_-scaled.jpg)
 
 **1998:** *Where Have All the Flowers Gone,* a Pete Seeger tribute album, is released, featuring Bruce's cover of "[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)," the very first Seeger Session recording to see the light of day, eight years before the release of the album for which it will serve as the title track.
 
 [Watch on Youtube: Bruce Springsteen - "We Shall Overcome" (original 1998 version)](https://www.youtube.com/watch?v=026oa4oMG5k)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1998-03-17.png)
+![](../../assets/2021/03/1998-03-17.png)
 
 **2008:** Richard Davis, bassist on the studio recording of "[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)," guest-stars when Bruce and the E Street Band play that song at the Bradley Center in Milwaukee during the Magic Tour. "[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)" tour premieres tonight as well.
 
 [Watch on Youtube: Springsteen Meeting Across The River FULL Milwaukee 3/17/08](https://www.youtube.com/watch?v=2gnWNO0l-y4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/2008-03-17.jpg)
+![](../../assets/2021/03/2008-03-17.jpg)
 
 **2009:** Bruce and the E Street Band rehearse for their upcoming tour at Asbury Park's Convention Hall.
 
 **2012:** The night before he kicks off the Wrecking Ball Tour, Bruce visits the Red Light Cafe in Atlanta to take in local guitarist Glenn Phillips.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2012-03-17-1.jpg)
+![](../../assets/2020/03/2012-03-17-1.jpg)
 
 **2016:** At Night Two (of three) at the Los Angeles Sports Arena, Bruce tour premieres "[Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)" and "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" for St. Patrick's Day. For highlights, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/03/17/where-the-band-was-los-angeles-march-17-2016/) for this show.
 

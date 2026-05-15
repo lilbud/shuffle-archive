@@ -18,9 +18,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/FHiJ0uH9)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1981-0713.jpg)
+![](../../assets/2018/07/1981-0713.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1981-07-13.jpg)
+![](../../assets/2020/06/1981-07-13.jpg)
 
 **1984:** Bruce and the band play their second of two nights in East Troy, Wisconsin.
 
@@ -28,7 +28,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=P3JL1L83yGA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-07-13.jpg)
+![](../../assets/2020/06/1984-07-13.jpg)
 
 **1992:** Bruce and his new band wrap up the European leg of World Tour 1992 with a fifth and final show at Wembley Arena. “Prove It All Night” makes its tour debut, and “Born in the U.S.A.” is dropped from the set list for the first time since its debut in 1984.
 
@@ -40,15 +40,15 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zDFajspQd38)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1993-07-13a.jpg)
+![](../../assets/2020/06/1993-07-13a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/07/1993-07-13b.jpg)
+![](../../assets/2022/07/1993-07-13b.jpg)
 
 **2005:** Bruce brings his Devils & Dust acoustic tour back to North America, kicking off with a show at Corel Center in Ottawa. Bruce plays a fairly standard set, but a lightning strike-induced power outage at the end of “Reno” provides some unplanned excitement.
 
 [Watch Video Highlight](https://videopress.com/embed/LRnkEQ4z)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/2005-07-13.jpg)
+![](../../assets/2021/07/2005-07-13.jpg)
 
 **2013:** Bruce and the E Street Band headline the TW Classic Festival in Werchter, Belgium. Ben Harper makes a guest appearance on “Atlantic City,” and Bruce tour premieres “Jailhouse Rock.” “Man’s Job” and “Follow That Dream” also make rare appearances.
 
@@ -76,7 +76,7 @@
 
 **2018:** George Theiss, Bruce’s Castiles bandmate and co-writer, passes away at the age of 68. Meanwhile, in New York City, *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/2018-07-13.jpg)
+![](../../assets/2020/06/2018-07-13.jpg)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.
 

@@ -10,7 +10,7 @@ Whether you've been with me from [the beginning](https://estreetshuffle.com/inde
 
 
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/thank_you_PNG132.png)
+![](../../assets/2019/01/thank_you_PNG132.png)
 
 
 

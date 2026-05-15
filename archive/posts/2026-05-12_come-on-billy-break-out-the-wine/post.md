@@ -61,10 +61,10 @@ Without the benefit of hindsight, we might dismiss “Come On Billy, Break Out t
 
 But it’s also a fun and fascinating peek into how beloved songs sometimes start from humble beginnings.
 
-![](https://estreetshuffle.com/wp-content/uploads/2026/05/lyricsheet_nothingcanstopme_1.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2026/05/lyricsheet_nothingcanstopme_2.jpg)
+![](../../assets/2026/05/lyricsheet_nothingcanstopme_2.jpg)
 
 **Come On Billy, Break Out the Wine  
-Never recorded**  
+**Never recorded**
 **Never released**  
 **First performed:** July 10, 1971 (Lincroft, NJ)  
 **Last performed:** July 29, 1971 (South Amboy, NJ)

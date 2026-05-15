@@ -14,7 +14,7 @@ When the UK tour was postponed by a couple of months, meaning that the European 
 
 After the months from December 1980 to March 1981 spent collecting tickets for the UK shows and the postponement announcement, I got a letter from my German pen-pal Rena one day in March with a note saying “See you at the Canadian Pacific Hotel, Frankfurt, 13th April.” Enclosed was a side balcony ticket for Frankfurt Festhalle, 14th April.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/df1.png)
+![](../../assets/2021/04/df1.png)
 
 My friend John H had been promised a ticket for one of the Paris shows and was going to stay with a friend there. I arranged to meet him in Paris at Easter and went there first to try and get tickets for various friends in advance.
 
@@ -72,7 +72,7 @@ We come to the security limit and Clarence takes us both in with him and the ban
 
 Glen tells us: “You'd better have these. Stop you getting questioned.” Two backstage passes. “You two got tickets?” Yes – here. “Have these instead.” Row 14, stalls. Hey, thanks, Glen! “You're welcome. Keep off the stage now.”
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/df2.png)
+![](../../assets/2021/04/df2.png)
 
 And while Bruce walks around the hall, the band is on stage and Roy begins a crystal clear intro to “Hungry Heart” – loud and sparkling. Sounds perfect already!
 
@@ -102,11 +102,11 @@ London, I said, feeling dumb. Then I remembered the souvenirs, and asked: “Cou
 
 “Sure.” He signs the poster centrefolds: “Who's this for?” “For Mike.” I gave him a *Point Blank* leaflet – all the paper I had on me. “And this is for me – Dan.” He wrote: “To Dan – thanks for your support. Say hello to everyone for me, Bruce.”
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/df3.png)
+![](../../assets/2021/04/df3.png)
 
 Then I gave him the badge: “Some girl wanted you to have this.” (Bruce is holding the badge in the photo Rena took of us.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/df4.png)
+![](../../assets/2021/04/df4.png)
 
 He shook hands again and waved goodbye with a smile. “I'll see you in Britain, if not before!” I called, as he left. Bruce nodded and was gone, hungry but willing to sign more autographs for a group of fans outside.
 

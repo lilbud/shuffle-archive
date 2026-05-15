@@ -4,7 +4,7 @@ Sometimes, Bruce’s unreleased, recorded lyrics stand on their own as poetry. B
 
 All we have to go on is this hand-written lyrics sheet from Bruce’ Steel Mill era…
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/ohnonono.jpg)
+![](../../assets/2018/10/ohnonono.jpg)
 
 …but even though the verses are legible and fully formed, “Oh No No No” was clearly intended to be about the chorus–an emotional release, a musical primal scream, perhaps? We’ll probably never know.
 

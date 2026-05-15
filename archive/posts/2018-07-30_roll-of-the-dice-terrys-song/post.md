@@ -1,4 +1,4 @@
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/terryssong_rememberingterrymagovern1-1.jpg)
+![](../../assets/2018/07/terryssong_rememberingterrymagovern1-1.jpg)
 
 From the Asbury Park Press, August 1, 2007:
 

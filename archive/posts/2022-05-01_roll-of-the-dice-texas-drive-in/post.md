@@ -20,7 +20,7 @@ And that might have been the end of the story for a rumored track like “Texas 
 
 Because that notebook included a page with the “Texas Drive In” title, and even though we aren’t treated to a full song, we can clearly see at least one verse that Bruce presumably intended for it.
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/04/texasdrivein_notebook.jpg)
+![](../../assets/2022/04/texasdrivein_notebook.jpg)
 
 It’s just a set up, merely a stage setting, but it gives us a taste of what the actual song might have been like:
 

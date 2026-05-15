@@ -2,15 +2,15 @@
 
 **1970:** Steel Mill is among the three top bands from a summer festival invited back to perform at the Municipal Auditorium in Nashville.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/10/The_Tennessean_1970_10_18_Page_162.jpg)
+![](../../assets/2024/10/The_Tennessean_1970_10_18_Page_162.jpg)
 
 **1980:** Bruce and the E Street Band play a River Tour show at the Seattle Center Coliseum. Distributed at the show: the first issue of *Backstreets,* a four-page fanzine published by local fan Charles R. Cross. Over the four decades that follow, *Backstreets* will evolve and thrive as a magazine, web site, and online community dedicated to bringing together Springsteen fans from around the world.
 
 [Watch on Youtube: Bruce Springsteen - Seattle 10/24/80 Part 1](https://www.youtube.com/watch?v=pRVAyY8cQqM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/backstreets.jpg)
+![](../../assets/2020/10/backstreets.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1980-10-24.png)
+![](../../assets/2020/10/1980-10-24.png)
 
 **1995:** Bruce joins Joe Grushecky and the Houserockers for their show at Chicago's Park West. Check out the news coverage of the event.
 
@@ -18,7 +18,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3?_=9](https://estreetshuffle.com/wp-content/uploads/2022/10/1995-10-24__Merged.mp3?_=9)
 
-**![](https://estreetshuffle.com/wp-content/uploads/2020/10/1995-10-24.png)**
+**![](../../assets/2020/10/1995-10-24.png)**
 
 **2002:** Bruce and the E Street Band bring the Rising Tour to the Globe Arena in Stockholm, where "Gloria" makes its tour debut.
 
@@ -46,7 +46,7 @@
 
 **2018:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Tom Morello, Michael Moore, Lars Ulrich and Rob Trujilo.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/2018-10-24.jpg)
+![](../../assets/2019/10/2018-10-24.jpg)
 
 **2019:** *CBS This Morning* airs the first half of Bruce's interview with Gayle King.
 

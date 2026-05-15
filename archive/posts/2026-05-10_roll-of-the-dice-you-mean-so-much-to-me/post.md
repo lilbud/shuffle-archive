@@ -78,7 +78,7 @@ Here’s one of those special performances, and the end of the line for Bruce’
 [Watch Video Highlight](https://videopress.com/embed/kwyJ1epn)
 
 **You Mean So Much to Me  
-Never recorded**  
+**Never recorded**
 **Never released**  
 **First performed:** July 10, 1971 (Lincroft, NJ)  
 **Last performed:** May 13, 1977 (Red Bank, NJ)

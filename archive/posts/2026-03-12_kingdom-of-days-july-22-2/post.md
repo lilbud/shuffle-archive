@@ -1,6 +1,6 @@
 **1971:** The Bruce Springsteen Band headlines two shows at D’Scene in South Amboy, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1971-0722.jpg)
+![](../../assets/2018/07/1971-0722.jpg)
 
 **1973:** Bruce and his band headline two shows at Max’s Kansas City in New York, with The Wailers opening for them.
 
@@ -14,17 +14,17 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBU71zy1szdg9oirFfoyzMi)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1975-07-22.jpg)
+![](../../assets/2021/07/1975-07-22.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1975-07-22.png)
+![](../../assets/2020/07/1975-07-22.png)
 
 **1976:** CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on “The Fever” and “I Don’t Want to Go Home.”
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1976-0722.jpg)
+![](../../assets/2018/07/1976-0722.jpg)
 
 **1978:** Bruce’s Darkness Tour show in Birmingham, Alabama is postponed to September due to a throat infection.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/07/The_Anniston_Star_1978_07_15_Page_27.jpg)
+![](../../assets/2024/07/The_Anniston_Star_1978_07_15_Page_27.jpg)
 
 **1988:** Fresh off of his history-making East Berlin show, Bruce crosses the border to West Berlin and plays one show at Waldbühne.
 
@@ -38,17 +38,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ajyjMPPt)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1995-0722.jpg)
+![](../../assets/2018/07/1995-0722.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1995-07-22a.png)
+![](../../assets/2021/07/1995-07-22a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1995-07-22b.png)
+![](../../assets/2020/07/1995-07-22b.png)
 
 **2002:** Bruce and the E Street Band rehearse for the upcoming Rising Tour at the Expo Theater in Fort Monmouth.
 
 **2011:** Bruce takes a stroll along the Jersey shore, stops and borrows a guitar, and plays “Born to Run.”
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/2011-0722.jpg)
+![](../../assets/2018/07/2011-0722.jpg)
 
 **2012:** On the one year anniversary of the Norway attacks, Bruce and Steve play “We Shall Overcome” at the memorial concert for the victims in Oslo.
 

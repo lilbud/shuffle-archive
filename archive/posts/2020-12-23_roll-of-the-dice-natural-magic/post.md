@@ -32,10 +32,10 @@ Today, we’ll take a listen to one of my favorite original songs from this peri
 
 And yet, despite wearing its influences on its sleeve, “Natural Magic” is sweet and charmingly earnest. Together with songs like “[You Mean So Much to Me](https://estreetshuffle.com/index.php/2020/01/13/roll-of-the-dice-you-mean-so-much-to-me/)” (played just two songs prior that night) and “[She’s Leaving](https://estreetshuffle.com/index.php/2019/02/03/roll-of-the-dice-shes-leaving/),” “Natural Magic” represents the beginning of a soulfully romantic vein that Bruce would mine for many years to come.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/naturalmagic_lyrics.jpg)
+![](../../assets/2020/05/naturalmagic_lyrics.jpg)
 
 **Natural Magic**
-Never recorded**
+**Never recorded**
 **Never released**
 **First performed:** July 10, 1971 (Lincroft, NJ)
 **Last performed:** July 29, 1971 (South Amboy, NJ)

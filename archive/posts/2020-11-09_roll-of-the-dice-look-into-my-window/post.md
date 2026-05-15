@@ -8,7 +8,7 @@ As it turns out, Father Fred Coleman did.
 
 Coleman was an assistant priest at St. Peter’s Church in Freehold when he and another reverend opened The Left Foot, a teen club, next door to the church.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/leftfoot.jpg)
+![](../../assets/2020/11/leftfoot.jpg)
 
 Coleman (who was “tossed out” of the clergy for being “too progressive,” he said in a 2004 *New York Times* interview) opened the club on the evening of September 16, 1967, with The Castiles as its very first headliners.
 
@@ -37,7 +37,7 @@ As for the music, “Look Into My Window” is clearly Kinks-inspired. Two weeks
 Although Bruce would quickly grow by leaps and bounds in both his lyrical skill and originality, he’d continue to wear his musical influences on his sleeve. We’re not aware of any other known performances of “Look Into My Window” (although again, documents from this period are rare), so we might consider this song just a stop along the early journey of a budding songwriter.
 
 **Look Into My Window**
-Never recorded**
+**Never recorded**
 **Never released**
 **First performed:** September 30, 1967 (Freehold, NJ)
 **Last performed:** September 30, 1967 (Freehold, NJ)

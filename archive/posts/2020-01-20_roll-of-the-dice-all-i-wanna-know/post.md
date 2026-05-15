@@ -4,7 +4,7 @@ I’ve written about several of the entries in Bruce’s “[notebook series](ht
 
 Here’s another unfinished one–it’s actually barely even started–and while it’s undated, the idealistic lyrics almost certainly place it during Bruce’s Steel Mill period, when anti-war songs were staples of his songwriting output.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/40381067942_f039cd7e89_o.jpg)
+![](../../assets/2020/01/40381067942_f039cd7e89_o.jpg)
 
 “All I Wanna Know” is little more than a verse at this point, although we do have some chord notation to give us a hint of what the song would have sounded like, along with what appears to be the first line of a chorus.
 
@@ -22,7 +22,7 @@ The hint of a chorus suggests that Bruce was reaching for a theme of love and co
 But that’s mere speculation on my part–we’ll likely never know for sure, so “All I Wanna Know” is best considered as one more early example of Bruce Springsteen’s evolving songwriting craft.
 
 **All I Wanna Do**
-Never recorded**
+**Never recorded**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

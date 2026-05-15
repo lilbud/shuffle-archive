@@ -1,6 +1,6 @@
 > "Bruce is great. If you don't agree, you're a pretentious Martian from Venus." — *Joe Strummer to Mark Hagen, 1995*
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/strummer.jpg)
+![](../../assets/2021/09/strummer.jpg)
 
 Bruce Springsteen and Joe Strummer had more than a bit of mutual admiration between them, each citing the other as an influence.
 

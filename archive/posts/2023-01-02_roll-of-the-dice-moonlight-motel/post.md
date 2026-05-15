@@ -60,7 +60,7 @@ I think this may be my favorite couplet in the entire song. The pool, of course,
 
 What makes the image perfect, though, is the classic symbol of emotional healing: the dandelion.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/dandelion.jpeg)
+![](../../assets/2020/09/dandelion.jpeg)
 
 The dandelions poking their way through the concrete are both a literal example of the resort’s disrepair as well as a metaphorical sign that the resilience of life and love are chipping away at the hard concrete exterior our narrator has constructed around his heart. Sheer brilliance.
 

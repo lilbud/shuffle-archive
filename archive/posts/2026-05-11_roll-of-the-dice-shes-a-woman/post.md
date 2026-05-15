@@ -35,7 +35,7 @@ Reportedly there’s a recording of The Bruce Springsteen Band’s final known p
 Anyone wanna hook me up? 🙂
 
 **She’s a Woman  
-Never recorded**  
+**Never recorded**
 **Never released**  
 **First performed:** December 17, 1971 (New Brunswick, NJ)  
 **Last performed:** February 17, 1972 (Freehold, NJ)

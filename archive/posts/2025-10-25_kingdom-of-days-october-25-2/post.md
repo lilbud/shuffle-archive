@@ -6,13 +6,13 @@
 
 **1974:** Bruce and the E Street band play two shows at Dartmouth College.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/1974-1026.jpg)
+![](../../assets/2018/10/1974-1026.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1974-10-25.png)
+![](../../assets/2020/10/1974-10-25.png)
 
 **1975:** Bruce plays his very first show in Oregon, to a small crowd at Portland's Paramount Theater.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/48716655231_77b34c6fe1_o.jpg)
+![](../../assets/2019/10/48716655231_77b34c6fe1_o.jpg)
 
 **1976:** Bruce and the E Street Band bring the Lawsuit Tour to Philadelphia, where he plays his very first headlining show at the Philadelphia Spectrum. During the encores, the band debuts their cover of Darlene Love's "[A Fine Fine Boy](https://estreetshuffle.com/index.php/2019/01/28/cover-me-a-fine-fine-boy/)." Amazingly, some great footage exists from this show.
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: A Fine Fine Girl, Bruce Springsteen](https://www.youtube.com/watch?v=XHYFhgKzOpw)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1976-10-25.png)
+![](../../assets/2020/10/1976-10-25.png)
 
 **1980:** The River Tour heads south down the west coast, stopping for a night at Portland's Memorial Coliseum, where Bruce and the band play "[On Top of Old Smoky](https://estreetshuffle.com/index.php/2019/08/24/cover-me-on-top-of-old-smoky/)" for the first and only time to date (in acknowledgement of the recent Mount St. Helens eruption).
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: 10th avenue freeze out](https://www.youtube.com/watch?v=D8soOC-cuEk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/10/Oregon_Journal_1980_10_27_10.jpg)
+![](../../assets/2024/10/Oregon_Journal_1980_10_27_10.jpg)
 
 **1983:** Bruce and the E Street Band start work on a new song, "No Surrender" at a recording session for *Born in the U.S.A.*
 
@@ -44,13 +44,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/qBRQ024Q)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-25a.png)
+![](../../assets/2020/10/1984-10-25a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/1984-10-25b.png)
+![](../../assets/2021/10/1984-10-25b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-10-25c.png)
+![](../../assets/2020/10/1984-10-25c.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/47083179991_ddd2099192_o.jpg)
+![](../../assets/2019/10/47083179991_ddd2099192_o.jpg)
 
 **1993:** At his home studio in Los Angeles, Bruce produces Joe Grushecky's first two tracks for what will eventually become *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/),* joining Joe on both of them: "[Chain Smokin'](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)" and "[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)."
 
@@ -62,19 +62,19 @@
 
 [Watch on Youtube: Bruce Springsteen and Danny Federici - Santa Barbara - 1996-10-25](https://www.youtube.com/watch?v=YG6dpWqDjLg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/10/Ventura_County_Star_Wed__Oct_30__1996_.jpg)
+![](../../assets/2023/10/Ventura_County_Star_Wed__Oct_30__1996_.jpg)
 
 **1999:** Bruce and the reunited E Street Band open their three-night stand at the Oakland Arena.
 
 [Watch on Youtube: Bruce Springsteen - "Where the Bands Are" - Oakland, 1999-10-25](https://www.youtube.com/watch?v=RlmBmZimZ1E)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/1999-10-25a.png)
+![](../../assets/2021/10/1999-10-25a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-10-25b.png)
+![](../../assets/2020/10/1999-10-25b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-10-25c.png)
+![](../../assets/2020/10/1999-10-25c.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-10-25d.png)
+![](../../assets/2020/10/1999-10-25d.png)
 
 **2006:** At the final Seeger Sessions show of the Spanish leg in Santander, Bruce tour debuts "[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)," performed as a duet with Frank Bruno.
 
@@ -88,7 +88,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "Your Own Worst Enemy" - Oakland, 2007-10-25](https://www.youtube.com/watch?v=5uNraGEh8fg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/2007-10-25.png)
+![](../../assets/2021/10/2007-10-25.png)
 
 **2009:** Bruce performs the entire *Born to Run* album, tour premieres "[Roll Over Beethoven](https://estreetshuffle.com/index.php/2019/08/08/cover-me-roll-over-beethoven/)," and plays a rare "[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)" when the Working on a Dream Tour stops in St. Louis for a night.
 
@@ -114,13 +114,13 @@
 
 **2015:** Bruce takes his mother to see Ringo Starr & His All-Starr Band perform at the New Jersey State Theater in New Brunswick.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/10/Daily_Record_2015_10_30_Page_X11-scaled.jpg)
+![](../../assets/2024/10/Daily_Record_2015_10_30_Page_X11-scaled.jpg)
 
 **2017:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: President Bill Clinton and Secretary Hillary Clinton.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/2018-10-25.jpg)
+![](../../assets/2019/10/2018-10-25.jpg)
 
 **2019:** *CBS This Morning* airs the second part of Gayle King's interview with Bruce Springsteen, and *Western Stars* is officially released to movie theaters.
 
@@ -128,7 +128,7 @@
 
 [Watch on Youtube: "I've gotten to work with the people I love the most": Bruce Springsteen reflects on extraordinar...](https://www.youtube.com/watch?v=JSpkzjpoUvc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2019-10-25.png)
+![](../../assets/2020/10/2019-10-25.png)
 
 **2021:** Bruce makes a guest appearance on *Late Night With Stephen Colbert* in support of his new book with former President Barack Obama and his upcoming release, *The Legendary 1979 No Nukes Concerts*.
 

@@ -36,4 +36,4 @@ But I made a mental note: never, ever, miss a Greensboro show again.
 
 Steensboro, indeed.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/steensboro.jpg)(photo credit: Guy Aceto)
+![](../../assets/2018/05/steensboro.jpg)(photo credit: Guy Aceto)

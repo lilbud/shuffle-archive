@@ -165,7 +165,7 @@ Still, the existence of these remixes–a relatively new phenomenon in general a
 
 [Watch Video Highlight](https://videopress.com/embed/PG3WCwBE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/09/1984-06-08.jpg)
+![](../../assets/2019/09/1984-06-08.jpg)
 
 “Born in the U.S.A.” immediately became a tour staple–not just for the tour named after it, but for almost every tour ever after.
 

@@ -102,7 +102,7 @@ You run for your lives each night, because only together on those backstreets do
 
 (I normally recommend not obsessing over the location of the locales that populate Bruce’s songs. It distracts from the film when we focus on the set. That said, if you like putting pins in the map, consider taking a ride down south to Stockton University (known in 1975 as Stockton State College) in Galloway, about an hour’s drive from Asbury Park–far enough to keep the odds of running into someone you know pretty low. There’s a beach on Lake Fred, right across from the school’s wings.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/05/stockton.jpg)
+![](../../assets/2022/05/stockton.jpg)
 
 (Or maybe it’s just a made-up place.)
 

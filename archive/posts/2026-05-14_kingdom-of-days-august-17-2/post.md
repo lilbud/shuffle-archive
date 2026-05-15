@@ -18,9 +18,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=cVLXiCqsTpY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-08-17a.png)
+![](../../assets/2020/08/1992-08-17a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-08-17b.png)
+![](../../assets/2020/08/1992-08-17b.png)
 
 **1999:** Bruce postpones a scheduled Reunion show in Detroit to the following month due to “scheduling conflicts.”
 
@@ -28,9 +28,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/ijPr8cpo?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2003-08-17a.png)
+![](../../assets/2020/08/2003-08-17a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2003-08-17b.png)
+![](../../assets/2020/08/2003-08-17b.png)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -40,4 +40,4 @@
 
 <https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3>
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/08/Daily_Record_2021_08_27_X7-scaled.jpg)
+![](../../assets/2024/08/Daily_Record_2021_08_27_X7-scaled.jpg)

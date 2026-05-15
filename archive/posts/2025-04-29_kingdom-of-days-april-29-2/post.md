@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 1976-04-29 Ellis Auditorium, Memphis, TN](https://www.youtube.com/watch?v=irKEx_arMWA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Memphis_Press_Scimitar_Fri__Apr_30__1976_-scaled.jpg)
+![](../../assets/2024/04/The_Memphis_Press_Scimitar_Fri__Apr_30__1976_-scaled.jpg)
 
 **1980:** At Clover Studios in Los Angeles, mixing work is completed for "[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)."
 
@@ -32,7 +32,7 @@ Later in the show, Bruce performs "[Racing in the Street](https://estreetshuffle
 
 [Watch Video Highlight](https://videopress.com/embed/wpKaZCbf)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_New_Standard_Tue__May_5__1981_.jpg)
+![](../../assets/2024/04/The_New_Standard_Tue__May_5__1981_.jpg)
 
 **1984:** Bruce catches Elvis Costello's show at the Warfield Theater in San Francisco and jams with him a bit backstage.
 
@@ -44,9 +44,9 @@ Later in the show, Bruce performs "[Racing in the Street](https://estreetshuffle
 
 [Watch Video Highlight](https://videopress.com/embed/Ga6Verkm)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2003-04-29a.jpg)
+![](../../assets/2021/04/2003-04-29a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2003-04-29b.jpg)
+![](../../assets/2020/04/2003-04-29b.jpg)
 
 **2007:** Bruce plays a private fundraiser (backed by Bobby Bandiera and his band) for the Ranney School at The Stone Pony in Asbury Park.
 
@@ -64,7 +64,7 @@ Later in the show, Bruce performs "[Racing in the Street](https://estreetshuffle
 
 [Watch on Youtube: Bruce Springsteen Badlands Philadelphia 29/04/2009](https://www.youtube.com/watch?v=pSqmdReVPwA?list=PLJTyL9twk3zDy25eKtpT60mOXtdC3UYhR)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2009-04-29.jpg)
+![](../../assets/2021/04/2009-04-29.jpg)
 
 **2012:** Bruce makes a return trip to New Orleans Jazzfest and to Seeger Sessions set lists, as several songs from that tour make their Wrecking Ball Tour premiere (including a beautiful "[When the Saints Go Marching In](https://estreetshuffle.com/index.php/2021/03/28/cover-me-when-the-saints-go-marching-in/)" with a "[Rocky Ground](https://estreetshuffle.com/index.php/2023/03/20/roll-of-the-dice-rocky-ground/)" tag). Dr. John joins Bruce for "[Something You Got](https://estreetshuffle.com/index.php/2021/04/28/matr-bruce-springsteen-and-dr-john-something-you-got/)."
 
@@ -78,7 +78,7 @@ Later in the show, Bruce performs "[Racing in the Street](https://estreetshuffle
 
 [Watch on Youtube: Bruce Springsteen - When The Saints Go Marching In - New Orleans Jazz and Heritage Festival - 2012](https://www.youtube.com/watch?v=elRm2HRX2Bk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2012-04-29.jpg)
+![](../../assets/2020/04/2012-04-29.jpg)
 
 **2013:** The European leg of the Wrecking Ball Tour kicks off in Oslo with a stunning acoustic pre-show that includes "[All That Heaven Will Allow](https://estreetshuffle.com/index.php/2022/08/05/roll-of-the-dice-all-that-heaven-will-allow/)" and "[The Fever.](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)" The main event is no slouch either, opening with Stevie in Lilyhammer character singing "[My Kind of Town](https://estreetshuffle.com/index.php/2022/01/09/cover-me-my-kind-of-town/)" and the tour premiere of "Follow that Dream."
 

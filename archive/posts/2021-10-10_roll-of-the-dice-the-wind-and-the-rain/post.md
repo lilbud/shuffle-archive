@@ -8,15 +8,15 @@ As you can tell from the recording, “The Wind and The Rain” dates back a way
 
 Remember that [1968 Notebook](https://estreetshuffle.com/?s=1968+notebook) we’ve taken several dips into over the past four years? Well, tucked into the final pages of it were these early lyrics.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/thewindandtherain_lyrics1.jpg)
+![](../../assets/2021/10/thewindandtherain_lyrics1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/thewindandtherain_lyrics2.jpg)
+![](../../assets/2021/10/thewindandtherain_lyrics2.jpg)
 
 There’s another set of early lyrics in existence for “The Wind and The Rain,” too:
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/thewindandtherain_handwritten2_page1.jpg)
+![](../../assets/2021/10/thewindandtherain_handwritten2_page1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/thewindandtherain_handwritten2_page2.jpg)
+![](../../assets/2021/10/thewindandtherain_handwritten2_page2.jpg)
 
 A careful read of either version will reveal lyrics that never made it to the stage:
 
@@ -82,7 +82,7 @@ But what if he’d chosen differently? Four months after that Monmouth performan
 Imagine if Bruce had dedicated himself to the guitar with the same single-minded ferocity that would come to characterize his vocal performances. He was probably always deservedly destined for fame, but in some alternate universe, there’s probably a Bruce Springsteen who is rightfully considered one of the greatest guitar players of all time.
 
 **The Wind and The Rain**
-Never recorded**
+**Never recorded**
 **Never released**
 **First performed:** April 24, 1970 (West Long Branch, NJ)
 **Last performed:** August 14, 1970 (Richmond, VA)

@@ -71,7 +71,7 @@ Bruce reminds us of the age difference and power imbalance before giving his nar
 Both musically and lyrically, it stands alone (except for that “talk so loud/walked so proud” couplet, which would make its way onto Bruce’s second album the following year), a brief dalliance that was nice while it lasted–just like those summer romances.
 
 **Make Up Your Mind  
-Never recorded**  
+**Never recorded**
 **Never released**  
 **First performed:** February 4, 1972 (Richmond, VA)  
 **Last performed:** February 25, 1972 (Richmond, VA)

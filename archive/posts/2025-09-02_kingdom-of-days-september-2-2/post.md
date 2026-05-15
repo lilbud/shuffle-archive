@@ -8,7 +8,7 @@
 
 **1978:** Bruce meets Bob Seger for the first time at Seger's gig at the Pine Knob Music Theater in Clarkston, Michigan. (Bruce is in between Michigan tour stops.) After the show, Bruce and Bob spend time backstage talking and singing.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1978-0902.jpg)
+![](../../assets/2018/09/1978-0902.jpg)
 
 **1979:** Bruce and the E Street Band record "From Small Things (Big Things One Day Come)" at The Power Station in New York City. It will remain in the vault for for 24 years.
 
@@ -18,11 +18,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/X9DB6SRG)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/09/Camarillo_Star_1981_09_06_22.jpg)
+![](../../assets/2024/09/Camarillo_Star_1981_09_06_22.jpg)
 
 **1984:** Bruce guest stars with John Eddie and the Front Street Runners at The Stone Pony in Asbury Park. (photo credit: John Comerford)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/09/1984-09-02.jpg)
+![](../../assets/2019/09/1984-09-02.jpg)
 
 **1988:** The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebrating the Universal Declaration of Human Rights and raising awareness for Amnesty International. The tour is an all-star endeavor headlined by Bruce, Sting, Peter Gabriel, Tracy Chapman and Youssu N'Dour with local artists from each country along the itinerary. The show kicks off with an all-headliner performance of "[Get Up, Stand Up,](https://estreetshuffle.com/index.php/2020/11/13/matr-bruce-springsteen-tracy-chapman-sting-peter-gabriel-and-youssou-ndour-get-up-stand-up/)" and Bruce closes the show with an abbreviated fifteen-song "greatest hits" set capped off by an all-artist "[Chimes of Freedom](https://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)" and "Get Up, Stand Up" reprise.
 
@@ -30,15 +30,15 @@
 
 [Watch on Youtube: Bruce Springsteen - Amnesty Tour, Wembley 1988-09-03](https://www.youtube.com/watch?v=Y58hMb-kR4c)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1988-09-02a.jpg)
+![](../../assets/2020/08/1988-09-02a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1988-09-02b.jpg)
+![](../../assets/2021/09/1988-09-02b.jpg)
 
 **1992:** Bruce's World Tour 1992 arrives at the World Music Theater in Tinley Park, Illinois for the first of two nights.
 
 [Watch Video Highlight](https://videopress.com/embed/KSH6dQTI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1992-09-02.jpg)
+![](../../assets/2020/08/1992-09-02.jpg)
 
 **1995:** The Rock and Roll Hall of Fame celebrates its opening with an inaugural concert in Cleveland, and Bruce and the E Street Band are on hand to perform, joining Chuck Berry...
 
@@ -62,9 +62,9 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry'
 
 [Watch on Youtube: Chuck Berry Pranked Melissa Etheridge and Bruce Springsteen During Hall Of Fame Performance](https://www.youtube.com/watch?v=vSlS4PaXapA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1995-09-02a.jpg)
+![](../../assets/2020/08/1995-09-02a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1995-09-02b.jpg)
+![](../../assets/2020/08/1995-09-02b.jpg)
 
 **2012:** Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres "[Green Onions](https://estreetshuffle.com/index.php/2019/05/17/cover-me-green-onions/)" during sign collection, as well as "[Good Rockin' Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)," "[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)," and Philly special "[You Can't Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)."
 
@@ -86,4 +86,4 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry'
 
 **2021:** *Springsteen on Broadway* nears the end of its final week at the St. James Theater in New York City. In attendance tonight: Eddie Vedder and Jarod Clemons.
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/09/2021-09-02.jpg)
+![](../../assets/2022/09/2021-09-02.jpg)

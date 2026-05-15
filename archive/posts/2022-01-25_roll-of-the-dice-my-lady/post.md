@@ -8,13 +8,13 @@ Bruce lasted three semesters at OCC before dropping out in late 1969, but his ti
 
 Bruce's pieces were published in the journal's January 1969 issue, only a few copies of which are known to still exist. A couple have been sold at auction over the years, and at least one copy resides in the care of the Springsteen Archives and Center for American Music at Monmouth University.
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/01/sesscaoeciver.png)
+![](../../assets/2022/01/sesscaoeciver.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/01/seascape-title.png)
+![](../../assets/2022/01/seascape-title.png)
 
 We'll take a look at the poem Bruce wrote later this year. Today, let's take a look at his prose submission, a metaphorical ode entitled "My Lady."
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/01/1969_seascape_mylady.jpg)
+![](../../assets/2022/01/1969_seascape_mylady.jpg)
 
 "My Lady" has a pretty clever conceit: it's told from the perspective of a middle-aged man growing increasingly aware of his mortality and decreasingly fearful of it. It's a short narrative, but Bruce still manages to hold the reveal until the end: the lady for whom he expresses his appreciation is Death herself.
 

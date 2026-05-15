@@ -1,6 +1,6 @@
 Today, the dice land on another entry from 18-year-old Bruce’s handwritten notebook of mystery songs, never recorded and possibly never performed. (See “[Until the Rain Comes](https://estreetshuffle.com/index.php/2018/04/22/roll-of-the-dice-until-the-rain-comes/)” for the backstory.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2018/04/1968_lyricsnotebook-contentspage.jpg)
 
 Crystal is the second song from that notebook. We may never know whether it was a ballad or a rocker, but the lyrics are about what you’d expect from a teenage Bruce, an ode to the elusive mystery girl who lights his world afire as she nears and saps the color and brightness as she walks away.
 

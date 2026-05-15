@@ -14,7 +14,7 @@ Although it might shock today with the benefit of knowing Bruce’s full body of
 
 The primary complaint? Bruce’s penchant for labelling his female characters “little girls.”
 
-![](https://estreetshuffle.com/wp-content/uploads/1983/01/Portage_Daily_Register_1982_03_27_18-scaled.jpg)
+![](../../assets/1983/01/Portage_Daily_Register_1982_03_27_18-scaled.jpg)
 
 “When you call us ‘little girls,’ read the letter that kicked off a mail-and-phone protest campaign, “you perpetuate the myth that women do things in a ‘small’ way.”
 

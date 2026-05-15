@@ -18,7 +18,7 @@ Bruce apparently agrees, because when the band sent a copy of their cover to Jon
 
 Bruce's stamp of approval earned the band some well-deserved attention in their local press.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/wayfarer.png)
+![](../../assets/2021/06/wayfarer.png)
 
 So there you go: today's *Cover Me* entry is Boss-approved!
 

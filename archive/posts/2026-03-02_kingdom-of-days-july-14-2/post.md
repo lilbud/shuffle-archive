@@ -1,6 +1,6 @@
 **1974:** Bruce and the E Street Band play their third of three nights at The Bottom Line in New York City.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1974-0714.jpg)
+![](../../assets/2021/07/1974-0714.jpg)
 
 **1975:** Bruce records vocal overdubs for “Jungleland” at the Record Plant in New York City.
 
@@ -8,9 +8,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/lOl367T5)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1978-7-14.jpg)
+![](../../assets/2020/06/1978-7-14.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1978-0714.jpg)
+![](../../assets/2018/07/1978-0714.jpg)
 
 **1985:** Nils Lofgren records his vocal and guitar overdubs for “Janey, Don’t You Lose Heart.” It will become his first appearance on an official Springsteen studio release.
 
@@ -40,7 +40,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Tq-Zp9idlVE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/2005-07-14-scaled.jpg)
+![](../../assets/2021/07/2005-07-14-scaled.jpg)
 
 **2009:** “Pink Cadillac” makes a welcome return after a six-year absence at Bruce’s Working on a Dream show in Glasgow’s Hampden Park.
 
@@ -78,7 +78,7 @@ Over the days and weeks that follow, the incident will become legendary.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8kM2sw9LFsU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/2012-07-14.jpg)
+![](../../assets/2021/07/2012-07-14.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

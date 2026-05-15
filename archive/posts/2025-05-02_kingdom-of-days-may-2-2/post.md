@@ -2,7 +2,7 @@
 
 **1969:** Child plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1969-0502.jpg)
+![](../../assets/2018/04/1969-0502.jpg)
 
 **1970:** Steel Mill attempts to crash a three-day music festival at the University of North Carolina in Chapel Hill–not to attend, but to play! Bruce and the band sneak past security and set up their gear. They are caught and ejected just before they are about to start playing. All is not lost, however, since they have a scheduled gig at the Hullaballoo in Richmond that evening, just a few hours drive away.
 
@@ -14,11 +14,11 @@ Bruce plays three more songs (including "[If I Was the Priest](https://estreetsh
 
 **1974:** The *Camden Courier-Post* publishes a long, revealing profile of and interview with Bruce.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/1974-05-02a.jpg)
+![](../../assets/2021/05/1974-05-02a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1974-05-02b.jpg)
+![](../../assets/2020/05/1974-05-02b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1974-05-02c.jpg)
+![](../../assets/2020/05/1974-05-02c.jpg)
 
 **1977:** *The Wild, The Innocent, & The E Street Shuffle* is certified gold by the Recording Industry Association of America.
 
@@ -34,7 +34,7 @@ Bruce plays three more songs (including "[If I Was the Priest](https://estreetsh
 
 **1982:** The first of a series of "secret" shows in which Bruce joined Cats on a Smooth Surface for late-night gigs at The Stone Pony in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/04/catspony.jpg)
+![](../../assets/2019/04/catspony.jpg)
 
 **1988:** Bruce brings the Tunnel of Love Express Tour to Mountain View, California, for the first of two nights at the Shoreline Amphitheater. Local news coverage and a pro-shot "[Be True](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)" below.
 
@@ -46,11 +46,11 @@ Bruce plays three more songs (including "[If I Was the Priest](https://estreetsh
 
 [Watch on Youtube: Bruce Springsteen - Walk Like A Man (Live 1988)](https://www.youtube.com/watch?v=BC_ExSDf_ow)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02a.jpg)
+![](../../assets/2020/04/1988-05-02a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02b.jpg)
+![](../../assets/2020/04/1988-05-02b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/1988-05-02c.jpg)
+![](../../assets/2020/04/1988-05-02c.jpg)
 
 **1996:** Bruce's solo acoustic tour stops in Switzerland for a single show at Kongresshaus in Zurich. In honor of his Swiss hosts, Bruce performs "[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)" with extra yodeling.
 
@@ -82,7 +82,7 @@ Bruce plays three more songs (including "[If I Was the Priest](https://estreetsh
 
 [Watch Video Highlight](https://videopress.com/embed/K0obKMqu)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/Sun_Herald_Thu__May_5__2005_.jpg)
+![](../../assets/2024/05/Sun_Herald_Thu__May_5__2005_.jpg)
 
 **2006:** Bruce, Southside Johnny, and Bobby Bandiera perform at the fifth annual Rumson Country Day School benefit concert at The Stone Pony in Asbury Park.
 
@@ -90,7 +90,7 @@ Bruce plays three more songs (including "[If I Was the Priest](https://estreetsh
 
 [Watch Video Highlight](https://videopress.com/embed/zNJ22b8k)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2008-05-02.jpg)
+![](../../assets/2021/05/2008-05-02.jpg)
 
 **2009:** Bruce plays one of the best shows of the Working on a Dream Tour at the Greensboro Coliseum in North Carolina, featuring tour premiere by-request covers of "[Seventh Son](https://estreetshuffle.com/index.php/2020/08/04/cover-me-seventh-son/)" and "[Hang on Sloopy](https://estreetshuffle.com/index.php/2020/04/07/cover-me-hang-on-sloopy/)," and the tour premiere of "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)." For more highlights, see my [*Where the Band Was*](https://estreetshuffle.com/index.php/2018/05/02/where-the-band-was-greensboro-may-2-2009/)report from this date.
 
@@ -104,13 +104,13 @@ Bruce plays three more songs (including "[If I Was the Priest](https://estreetsh
 
 [Watch on Youtube: Bruce Springsteen - The Human Touch, Greensboro NC, May 2 2009](https://www.youtube.com/watch?v=M8Sf9vQuFTU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/05/News_and_Record_2009_05_04_3.jpg)
+![](../../assets/2025/05/News_and_Record_2009_05_04_3.jpg)
 
 **2010:** Bruce joins newly inducted New Jersey Hall of Fame member Danny DeVito on stage for "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)."
 
 [Watch on Youtube: Bruce Springsteen and Danny DeVito perform "Glory Days" at the 2010 New Jersey Hall of Fame.](https://www.youtube.com/watch?v=wGdNnhyqq94)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2010-05-02.jpg)
+![](../../assets/2020/04/2010-05-02.jpg)
 
 **2012:** Bruce wraps up the first leg of the Wrecking Ball Tour with an epic show in Newark that features the first "[Bishop Danced](https://estreetshuffle.com/index.php/2021/05/18/roll-of-the-dice-bishop-danced/)" in 39 years, the tour premiere of "[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)," and a cover of "[The Weight](https://estreetshuffle.com/index.php/2019/03/26/cover-me-the-weight/)" in memory of Levon Helm.
 
@@ -118,8 +118,8 @@ Bruce plays three more songs (including "[If I Was the Priest](https://estreetsh
 
 [Watch on Youtube: Bruce Springsteen - The Weight (Prudential Center, Newark, NJ, 2012-05-02) - Multicam, dubbed.](https://www.youtube.com/watch?v=OY2DO_QLRIA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2012-05-02-scaled.jpg)
+![](../../assets/2021/05/2012-05-02-scaled.jpg)
 
 **2018:** *Springsteen on Broadway* resumes its theatrical run at the Walter Kerr Theater after a two-week break. Bruce and team celebrate his Tony award (announced the day prior) with a special cake.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/05/bruce-springsteen.jpg)
+![](../../assets/2019/05/bruce-springsteen.jpg)

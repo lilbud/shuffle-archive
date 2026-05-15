@@ -4,7 +4,7 @@ We’re so used to hearing it performed as a lead-in to “[I Wanna Mary You](ht
 
 In fact, not only is it a separate song, it actually pre-dates “I Wanna Marry You” by several years, appearing on at least two preliminary album sequences for what would become *Born to Run* as far back as the spring of 1974.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/note_album_btr-3-4.jpg)
+![](../../assets/2020/09/note_album_btr-3-4.jpg)
 
 “Here She Comes Walkin'” certainly fits with Bruce’s songwriting from that period; this is a bold, soaring, romantic doo-wop ode that wears its heart brazenly on its sleeve.
 
@@ -46,7 +46,7 @@ How much either live version of “Here She Comes Walkin'” has in common with 
 Let’s hope.
 
 **Here She Comes Walkin’**
-Never recorded**
+**Never recorded**
 **Never released**
 **First performed:** October 11, 1980 (Chicago, IL)
 **Last performed:** July 28, 2016 (Oslo, Norway)

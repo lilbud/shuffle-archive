@@ -8,15 +8,15 @@
 
 [Watch on Youtube: This bag once carried Springsteen's denim jacket](https://www.youtube.com/watch?v=fEOcwFaOlos)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg)
+![](../../assets/2024/03/The_Lewiston_Daily_Sun_Sat__Mar_19__1977_-scaled.jpg)
 
 **1981:** A scheduled show in London is postponed due to Bruce's exhaustion from the first two legs of the River Tour.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
+![](../../assets/2018/03/1981-0318.jpg)
 
 **1985:** Bruce arrives in Sydney two days before what will be his first-ever show in Australia.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1985-03-19.png)
+![](../../assets/2021/03/1985-03-19.png)
 
 **1996:** Bruce plays his first-ever show in Northern Ireland, at King's Hall in Belfast. This show is available as part of Bruce's official archive series–[go get it](https://live.brucespringsteen.net/live-music/0,17589/Bruce-Springsteen-mp3-flac-download-3-19-1996-Kings-Hall-Belfast-UK.html).
 
@@ -34,11 +34,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/yPtVKHzK)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19a.jpg)
+![](../../assets/2020/03/1999-03-19a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/1999-03-19b.jpg)
+![](../../assets/2020/03/1999-03-19b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1999-03-19c.jpg)
+![](../../assets/2021/03/1999-03-19c.jpg)
 
 **2000:** Bruce and the E Street Band play the New Orleans Arena on the Reunion Tour.
 
@@ -68,9 +68,9 @@
 
 [Watch on Youtube: "Thunder Road" (MULTI-CAM) - Bruce Springsteen LA 3/19/2016](https://www.youtube.com/watch?v=3zc2E7N2xPg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19a.jpg)
+![](../../assets/2020/03/2016-03-19a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2016-03-19b.jpg)
+![](../../assets/2020/03/2016-03-19b.jpg)
 
 **2024:** Bruce and the E Street Band resume their world tour at Footprint Center in Phoenix, where "[Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)" makes a welcome return to the set and "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)" is notably and sadly absent.
 

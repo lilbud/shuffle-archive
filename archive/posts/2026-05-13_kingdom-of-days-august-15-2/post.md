@@ -22,15 +22,15 @@ There’s no audio from the late show, and that’s too bad: it features the las
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=m8p5z71YIrY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15a.png)
+![](../../assets/2020/08/1985-08-15a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15b.png)
+![](../../assets/2020/08/1985-08-15b.png)
 
 **2002:** Bruce brings the Rising Tour to Detroit for one night at The Palace of Auburn Hills, where the set list remains unchanged for the fourth consecutive show–but that’s about to change.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-15.png)
+![](../../assets/2020/08/2002-08-15.png)
 
 **2008:** The Magic Tour enters its final month with a return to indoor arenas, starting with this show in Jacksonville. Bruce tour premieres “You Can’t Sit Down,” played for the first time in almost a decade, as well as “Back in Your Arms.”
 
@@ -58,7 +58,7 @@ There’s no audio from the late show, and that’s too bad: it features the las
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gloria Steinem.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/gloriasteinem.jpg)
+![](../../assets/2019/08/gloriasteinem.jpg)
 
 [Watch Video Highlight](https://videopress.com/embed/8Air139W?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 

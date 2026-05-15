@@ -46,7 +46,7 @@ In the final verse, the boy–no longer so little–joins the street scene and i
 *Hey, now my contessa, in your juke joint rags you always bring candy for the kids*
 *Come waltz with me tonight senorita ’cause only fools are alone on a night like this, oh!*
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/santa-ana-lyricsheet-1.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2018/03/santa-ana-lyricsheet-2.jpg)
+![](../../assets/2018/03/santa-ana-lyricsheet-2.jpg)
 
 “Santa Ana” was recorded in early 1973 during the Wild and Innocent sessions and was originally intended for inclusion on that album. It didn’t make the cut, but it did make a 1974 UK promotional acetate, and from there into the land of bootleggers, where “Santa Ana” roamed free until a later take was released officially as part of the *Tracks* box set in 1998.
 

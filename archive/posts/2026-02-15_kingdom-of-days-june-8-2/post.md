@@ -2,7 +2,7 @@
 
 **1973:** Bruce and the E Street Band open for Chicago at Boston Garden.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1973-0608.jpg)
+![](../../assets/2021/06/1973-0608.jpg)
 
 **1977:** Bruce and the E Street Band hold recording sessions for *Darkness on the Edge of Town* at Atlantic Studios in New York City.
 
@@ -12,9 +12,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/OBkPeYRa)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/06/madison78.jpg)
+![](../../assets/2019/06/madison78.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-06-08.jpg)
+![](../../assets/2020/05/1978-06-08.jpg)
 
 **1981:** The European leg of the River Tour wraps up with a second show in Birmingham, England.
 
@@ -24,9 +24,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_vH_efNE9ZU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-06-08a.jpg)
+![](../../assets/2020/06/1984-06-08a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1984-06-08.jpg)
+![](../../assets/2020/05/1984-06-08.jpg)
 
 **1985:** The stadium-breaker! Bruce’s encore of “Twist and Shout” almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.
 
@@ -34,13 +34,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/tmFvbnx2)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Bristol_Herald_Courier__Bristol_Virginia_Tennessean_Mon__Jun_10__1985_-scaled.jpg)
+![](../../assets/2024/06/Bristol_Herald_Courier__Bristol_Virginia_Tennessean_Mon__Jun_10__1985_-scaled.jpg)
 
 **1991:** At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs “If I Should Fall Behind”–written for the occasion–for the very first time.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=om5UcNKA5XY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1991-06-08.jpg)
+![](../../assets/2020/05/1991-06-08.jpg)
 
 **2003:** Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates “Tougher Than the Rest” for the occasion.
 

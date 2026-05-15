@@ -8,13 +8,13 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8Hoz79azVDI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1975-07-20.png)
+![](../../assets/2021/07/1975-07-20.png)
 
 **1999:** The opening stand of the Reunion Tour’s U.S. leg continues with Night Three at the Continental Airlines Arena in East Rutherford.
 
 [Watch Video Highlight](https://videopress.com/embed/DhJGQnGP)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1999-07-20.png)
+![](../../assets/2020/07/1999-07-20.png)
 
 **2005:** Bruce brings his solo acoustic tour to Bridgeport, Connecticut, where he tour premieres “All That Heaven Will Allow” and “Nothing Man,” both on electric piano.
 

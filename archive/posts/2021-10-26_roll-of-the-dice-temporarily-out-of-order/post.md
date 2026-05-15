@@ -40,7 +40,7 @@ While only one performance of “Temporarily Out of Order” is definitively doc
 So let’s keep our fingers crossed for a cleaner, clearer recording someday–it may not be one of Bruce’s deepest early songs, but it’s got a self-deprecating “[I’m Goin’ Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)” charm that makes it worth a listen.
 
 **Temporarily Out of Order**
-Never recorded**
+**Never recorded**
 **Never released**
 **First performed:** May 23, 1970 (Richmond, VA)
 **Last performed:** May 23, 1970 (Richmond, VA)

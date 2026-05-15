@@ -1,6 +1,6 @@
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1968-0724.jpg)
+![](../../assets/2018/07/1968-0724.jpg)
 
 **1973:** Bruce works on mixing and overdubs for “Seaside Bar Song” and “Kitty’s Back” at 914 Sound Studios in Blauvelt, New York.
 
@@ -8,7 +8,7 @@
 
 **1981:** Bruce takes ill and must postpone his scheduled Rosemont show to September.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1981-07-23.jpg)
+![](../../assets/2021/07/1981-07-23.jpg)
 
 **1984:** At Night Two in Toronto on the Born in the U.S.A. Tour, Bruce tour premieres “Trapped.”
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=W5A6P8r3emk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2002-07-24.png)
+![](../../assets/2020/07/2002-07-24.png)
 
 **2003:** Night Four of the ten-night Giants Stadium stand on the Rising Tour features a rare “Streets of Fire” in the opening pack.
 
@@ -34,7 +34,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/1YABZAFn)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2005-07-24.png)
+![](../../assets/2020/07/2005-07-24.png)
 
 **2012:** Bruce opens Night Two in Bergen with an acoustic “Long Walk Home” (a Wrecking Ball tour premiere). The show features four additional tour premieres, including the live debut of “You’ve Got It,” the first full-band “This Depression,” and rare outings for “My Lucky Day” and “Red Headed Woman.”
 
@@ -60,4 +60,4 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Beck is in attendance tonight.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/beck.jpg)
+![](../../assets/2019/07/beck.jpg)

@@ -2,7 +2,7 @@
 
 **1969:** Child plays a Labor Day gig at Freak Beach in East Long Branch, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1969-0901.jpg)
+![](../../assets/2018/09/1969-0901.jpg)
 
 **1971:** The Bruce Springsteen Band headlines an outdoor show at Garfield Park in Long Branch. The set list features the only known live recording of "[It's Time to Go Home,](https://estreetshuffle.com/index.php/2018/05/31/roll-of-the-dice-its-time-to-go-home/)" covers of "[Little Queenie](https://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)," "[(Get Your Kicks On) Route 66](https://estreetshuffle.com/index.php/2019/08/15/cover-me-get-your-kicks-on-route-66/)" and "[The Night They Drove Old Dixie Down](https://estreetshuffle.com/index.php/2020/06/13/cover-me-the-night-they-drove-old-dixie-down/)," the fun "[Dance Dance Dance](https://estreetshuffle.com/index.php/2018/06/22/roll-of-the-dice-dance-dance-dance/)" and more.
 
@@ -10,7 +10,7 @@
 
 [Watch on Youtube: The Bruce Springsteen Band - The Night They Drove Old Dixie Down (Live) 1971](https://www.youtube.com/watch?v=SsY7TiOjVfM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1971-09-01.jpg)
+![](../../assets/2020/08/1971-09-01.jpg)
 
 **1973:** Bruce and the E Street Band play two shows at Fat City in Seaside Heights, New Jersey.
 
@@ -26,7 +26,7 @@
 
 **1984:** Bruce takes in the Jacksons' Victory Tour at JFK Stadium in Philadelphia. Had he let the tour organizers know a bit earlier in the day, the audience might have been treated to a Springsteen guest appearance.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1984-09-01.jpg)
+![](../../assets/2021/09/1984-09-01.jpg)
 
 Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit single "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" with the story behind Springsteen's new and improved physique.
 
@@ -38,7 +38,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 [Watch Video Highlight](https://videopress.com/embed/vQFwNj9F)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-09-01.jpg)
+![](../../assets/2020/08/1985-09-01.jpg)
 
 **1988:** Bruce and the E Street Band hold their last rehearsal before the kick-off of the Amnesty International – Human Rights Now Tourat Wembley Stadium in London. Of particular note: the band starts their warm-up by covering Sting's "King of Pain," which Bruce has never performed live.
 
@@ -58,9 +58,9 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 [Watch on Youtube: Bruce Springsteen in Boston Public Gardens](https://www.youtube.com/watch?v=CwmHLXh-Gow)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2011-09-01a.jpg)
+![](../../assets/2020/08/2011-09-01a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2011-09-01b.jpg)
+![](../../assets/2020/08/2011-09-01b.jpg)
 
 **2016:** Bruce sends a message at Washington DC's Nationals Park: that last show in East Rutherford was no one-off. The River Tour is now the Autobiography Tour, as Bruce turns in another mostly-chronological set, once again opening with a string-laden "New York City Serenade" and featuring generous helpings of pre-*Born to Run* material. "[Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)" makes its tour debut representing the 1992-1993 years, and "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)" makes another appearance in the encores. In attendance tonight: Olympic gold medalist Katie Ledecky.
 
@@ -72,7 +72,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's latest hit sin
 
 [Watch on Youtube: 6/7 Bruce Springsteen - Jungleland @ Nationals Park, Washington, DC 9/01/16](https://www.youtube.com/watch?v=RkelC62hx3U)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/2016-09-01.jpg)
+![](../../assets/2021/09/2016-09-01.jpg)
 
 **2021:** Bruce releases Episode 27 ("Going to the Chapel") of *From My Home to Yours* on E Street Radio.
 

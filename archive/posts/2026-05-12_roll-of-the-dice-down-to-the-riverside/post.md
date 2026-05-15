@@ -36,13 +36,13 @@ Today we complete Bruce’s early trilogy by listening to “Down to the Riversi
 
 Unlike “Family Song” and “Randolph Street,” Bruce doesn’t seem to have ever recorded “Down to the Riverside” in the studio. But he performed it with the Bruce Springsteen Band on February 25, 1972 during their Richmond residency, and that show was captured in stunning soundboard quality by Richmond’s Stillwater Studios.
 
-![](https://estreetshuffle.com/wp-content/uploads/1972/02/setlist.jpg)
+![](../../assets/1972/02/setlist.jpg)
 
 The recording never escaped into the wild, however. Instead, it was given to John Hammond, and it remained in his private collection until it was auctioned by Sotheby’s to a private collector in June 2014.
 
 On the set list (handwritten, but not by Bruce) that accompanies the tape, the song is listed as “When Grandpa Died,” but the song title “Down to the Riverside” had surfaced a few years earlier in an auction of one of Bruce’s handwritten setlists from the Bruce Springsteen Band era. And when you listen to the song, you’ll clearly recognize that phrase as the proper title to the song.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/tunes.jpg)
+![](../../assets/2021/10/tunes.jpg)
 
 The auction site noted that the tape came “directly from the collection of John Hammond, perhaps requested in an attempt to ascertain if the performer that he was so taken by as a solo acoustic act, could similarly engage a live audience fronting an electric band. He needn’t have worried.”
 
@@ -119,7 +119,7 @@ And there we have it: the only known recording of Bruce’s breathtakingly intim
 For me, at least, it was worth the wait.
 
 **Down to the Riverside  
-Never recorded**  
+**Never recorded**
 **Never released**  
 **First performed:** February 5, 1972 (Richmond, VA)  
 **Last performed:** April 1972 (Freehold, NJ)

@@ -2,7 +2,7 @@
 
 **1966:** The Castiles play a show at the Hullabaloo in Middletown, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/48079763806_4856bedde7_o.jpg)
+![](../../assets/2019/10/48079763806_4856bedde7_o.jpg)
 
 **1973:** Bruce plays his first-ever show in Maine, co-headlining with Orleans at Ricker College in Houlton.
 
@@ -12,9 +12,9 @@
 
 **1975:** Bruce and the E Street Band play their first of three nights at Arizona State University in Tempe.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/11/1975-1103.jpg)
+![](../../assets/2018/11/1975-1103.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/11/1975-11-03.png)
+![](../../assets/2021/11/1975-11-03.png)
 
 **1976:** It's Night Five of six at the Palladium in New York City on the Lawsuit Tour; tonight's show is notable for the debut of "Mona" as the intro to "[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)" and the last known "[A Fine Fine Girl](https://estreetshuffle.com/index.php/2019/01/28/cover-me-a-fine-fine-boy/)" for 33 years.
 
@@ -32,35 +32,35 @@
 
 [Watch on Youtube: Bruce Springsteen - "Glory Days" Milwaukee, 1992-11-03](https://www.youtube.com/watch?v=kItDzU6Jz38)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/11/1992-11-03.jpg)
+![](../../assets/2021/11/1992-11-03.jpg)
 
 **1999:** Patti Scialfa has a perforated eardrum, forcing Bruce to postpone a scheduled Reunion show in Minneapolis.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-11-03.png)
+![](../../assets/2020/10/1999-11-03.png)
 
 **2000:** Bruce returns to The Stone Pony for the first time in five years, joining Joe Grushecky and The Houserockers on stage at Bob Benjamin's first official Light of Day benefit for the Parkinson's Disease Foundation. Listen to the entire show below. (Bruce joins after the first two songs.)
 
 [Watch Video Highlight](https://videopress.com/embed/fpVU6S3u)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2000-11-03a.png)
+![](../../assets/2020/10/2000-11-03a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2000-11-03b.png)
+![](../../assets/2020/10/2000-11-03b.png)
 
 **2001:** Bruce makes an encore appearance at Light of Day 2001 at Tradewinds in Sea Bright, joining Joe Grushecky three songs into his set. Listen to their performance below, featuring Bruce's first performance of "[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)" in 15 years.
 
 [Watch Video Highlight](https://videopress.com/embed/MNUjFpDS)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2001-11-03.png)
+![](../../assets/2020/10/2001-11-03.png)
 
 **2002:** The Rising Tour returns to the U.S., and the next leg kicks off with a show at American Airlines Center in Dallas, where Don Henley makes a guest appearance on the tour premiere of "[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)," and Bruce plays a rare solo piano "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)."
 
 [Watch on Youtube: Bruce Springsteen & Don Henley - "I Fought the Law" - Dallas, 2002-11-03](https://www.youtube.com/watch?v=_fKGF8uy3cI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2002-11-03.png)
+![](../../assets/2020/10/2002-11-03.png)
 
 **2005:** Hurricane Wilma forces the postponement of a scheduled show in Sunrise, Florida.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/11/2005-11-03.png)
+![](../../assets/2021/11/2005-11-03.png)
 
 **2009:** Bruce plays "[Brown Eyed Girl](https://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/)" for the very first time when the Working on a Dream Tour stops at Time Warner Cable Arena in Charlotte. Other highlights include "[I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)," "So Young and in Love" and a full album performance of *Born to Run.* Frank Bruno makes a guest appearance on "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" in the encores.
 
@@ -70,7 +70,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Charlotte, NC 11-03-09 "I Fought The Law"](https://www.youtube.com/watch?v=hNi8h9DeSr4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2009-11-03.png)
+![](../../assets/2020/10/2009-11-03.png)
 
 **2010:** Bruce's third appearance at Stand Up for Heroes (at the Beacon Theater in New York City) is his most productive: he once again auctions a guitar and brings in $140,000 for the Bob Woodruff foundation. Oh, and he also joins the Max Weinberg 7 to perform "[Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)," "[Kitty's Back,](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)" and "[If I Should Fall Behind](https://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)."
 
@@ -80,7 +80,7 @@
 
 [Watch on Youtube: SPRINGSTEEN, JON STEWART, JERRY SEINFELD STAND UP FOR HEROES, CLOSE TO VETERANS DAY](https://www.youtube.com/watch?v=F0PcvE1E65w)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2010-11-03.png)
+![](../../assets/2020/10/2010-11-03.png)
 
 **2011:** Almost one year to the day, Bruce and Joe Grushecky reprise their pair of Soldiers & Sailors shows in Pittsburgh, with the same format. Bruce joins opening act The Composure for "[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)," performs a mini-acoustic set, and then joins Joe Grushecky and The Houserockers for a full set.
 
@@ -90,7 +90,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/6oxCgyZ2)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/11/2011-11-03.png)
+![](../../assets/2021/11/2011-11-03.png)
 
 **2012:** The Wrecking Ball Tour stops in Louisville, where "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" gets a rare outing.
 
@@ -106,9 +106,9 @@
 
 [Watch on Youtube: Bruce Springsteen - "Land of Hope & Dreams" - Louisville - November 3, 2012](https://www.youtube.com/watch?v=AxBF-z29vCQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/11/2012-11-03a.png)
+![](../../assets/2021/11/2012-11-03a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2012-11-03b-1.png)
+![](../../assets/2020/10/2012-11-03b-1.png)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

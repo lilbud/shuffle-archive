@@ -6,11 +6,11 @@ Several songs from this era have surfaced on bootlegs; check out “Dance Dance 
 
 But many still haven’t, including “Sometimes at Night,” known to have been played by The Bruce Springsteen Band on at least one summer night in 1971, thanks to the surviving setlist below.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/05/setlist.jpg)
+![](../../assets/2019/05/setlist.jpg)
 
 But no audio of “Sometimes at Night” has ever turned up. So imagine the surprise of fans who discovered this handwritten lyrics sheet on display at the Brussels Hard Rock Cafe in 2013:
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/05/sometimesatnight_lyrics.jpg)
+![](../../assets/2019/05/sometimesatnight_lyrics.jpg)
 
 It’s only the first page of the song–almost certainly just the set-up–and since the song is known to have been performed live, we can assume that Bruce eventually finished it. But it’s enough to give us some insight into the song’s subject:
 
@@ -37,7 +37,7 @@ It looks like Bruce abandoned that version because he wanted to establish the es
 But that’s a picked nit. The lyrics above are still a great set-up for a song that seems like it would have been a great *Nebraska* candidate, and I can only hope an audio recording turns up one day so we can hear what it finally became.
 
 **Sometimes at Night**  
-**Never Recorded**  
+**Never Recorded**
 **Never Released**  
 **First performed:** July 22, 1971 (South Amboy, NJ)  
 **Last performed:** July 22, 1971 (South Amboy, NJ)

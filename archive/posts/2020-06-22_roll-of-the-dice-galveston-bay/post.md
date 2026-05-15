@@ -14,7 +14,7 @@ Things came to a head in a town called Seadrift on the evening of August 3rd, 19
 
 Over the course of that bloody evening, three Vietnamese boats were burned and a house occupied by a Vietnamese family was firebombed.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/galveston79-1.jpg)
+![](../../assets/2020/06/galveston79-1.jpg)
 
 The brothers were eventually acquitted and released on the grounds of self-defense, which fanned the flames of racism and resentment even higher. The white locals now turned to the Ku Klux Klan for help.
 

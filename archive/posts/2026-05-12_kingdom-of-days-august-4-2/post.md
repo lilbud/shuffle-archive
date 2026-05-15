@@ -1,6 +1,6 @@
 **1973:** Studio sessions force Bruce to cancel a gig at Asbury Park’s Convention Hall, where he and the as-yet-unnamed E Street Band were scheduled to open for Cheech & Chong.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/1973-08-04.jpg)
+![](../../assets/2021/08/1973-08-04.jpg)
 
 **1977:** Bruce works on “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” during recording sessions at Atlantic Studios in New York City.
 
@@ -12,7 +12,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLsxNBNx2akeXZxSnlTIVoWJ6s6HT8nI1z)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1981-08-04.png)
+![](../../assets/2020/07/1981-08-04.png)
 
 **1991:** Bruce joins The Outcry on stage for five songs (including “Ain’t That a Shame” “People Get Ready,” and “Not Fade Away”) at Cheers in Long Branch.
 

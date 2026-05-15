@@ -2,25 +2,25 @@
 
 **1973:** Bruce headlines his final show of a three-night stand at My Father's Place in Roslyn, New York.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/1973-11-15.jpg)
+![](../../assets/2019/10/1973-11-15.jpg)
 
 **1974:** Bruce and the E Street Band play a gig at American University in Washington, DC, where Bruce's cover of "[Wear My Ring Around Your Neck](https://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)" makes its debut.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/1974-11-16.jpg)
+![](../../assets/2019/10/1974-11-16.jpg)
 
 **1978:** Bruce opens his Darkness show in Toronto with his first-ever performance of "[Ready Teddy.](https://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)"
 
 [https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3?_=11](https://estreetshuffle.com/wp-content/uploads/2018/01/101-Ready-Teddy-online-audio-converter.com_.mp3?_=11)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/11/The_Toronto_Star_Fri__Nov_17__1978_.jpg)
+![](../../assets/2023/11/The_Toronto_Star_Fri__Nov_17__1978_.jpg)
 
 **1984:** When the Born in the U.S.A. Tour stops at Iowa State University at Ames, Bruce debuts a new song–an outtake from *Born in the U.S.A.* called "Sugarland."
 
 [Watch on Youtube: Bruce Springsteen-Sugarland-11/16/84-Ames Iowa](https://www.youtube.com/watch?v=YmWslNfHwbw)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-11-16a.png)
+![](../../assets/2020/10/1984-11-16a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1984-11-16b.png)
+![](../../assets/2020/10/1984-11-16b.png)
 
 **1990:** Bruce plays the first of a pair of unique, remarkable benefit shows for the Christic Institute, a public interest law firm. This is Bruce's first "official" concert since disbanding the E Street Band. He's out of his comfort zone, and it shows. His life has changed: he's firmly attached to Patti now (even if they're not yet married), he's a father, and his new life perspective informs the new work that comprises much of the setlist. World premieres abound: "[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)," "[57 Channels (And Nothin' On)](https://estreetshuffle.com/index.php/2020/05/17/roll-of-the-dice-57-channels-and-nothin-on/)," "[When the Lights Go Out](https://estreetshuffle.com/index.php/2021/01/23/roll-of-the-dice-when-the-lights-go-out/)," and "[Real World](https://estreetshuffle.com/index.php/2022/07/25/roll-of-the-dice-real-world/)" all get their very first airings. Intimate performances of "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)," "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" and "[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)" (which sounds particularly forlorn tonight) take on new life. In the encores, Bonnie Raitt and Jackson Browne join Bruce for "[Highway 61 Revisite](https://estreetshuffle.com/index.php/2018/11/07/meeting-across-the-river-bruce-springsteen-bob-dylan-and-friends-highway-61-revisited/)d" and a gorgeous rendition of "[Across the Borderline](https://estreetshuffle.com/index.php/2022/03/26/matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/)." This show is available for purchase as an official archive series installment (get it [here](https://live.brucespringsteen.net/live-music/0,14250/Bruce-Springsteen-mp3-flac-download-11-16-1990-The-Christic-Shows-at-The-Shrine-Los-Angeles-CA.html)) and is essential for any Springsteen fan.
 
@@ -42,21 +42,21 @@
 
 [Watch on Youtube: Bruce Springsteen, Jackson Browne, Bonnie Raitt - CNN coverage of Christic shows 1990-11-16](https://www.youtube.com/watch?v=QhP7dZyzI3Q)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1990-11-16.png)
+![](../../assets/2020/10/1990-11-16.png)
 
 **2002:** Bruce tour premieres "[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)" and plays a rare solo piano "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)" at his Rising show in Greensboro, but it's his fall during "[Waitin' on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)" that almost ends up a literal show-stopper. Bruce stopped a serious fall by a deft save using Max's drum stand, but the mishap was enough to draw blood, shocking fans who watched Bruce just continue on as if nothing had happened.
 
 [Watch on Youtube: Greensboro 16/11/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zBw1XNC6JtojlWZEUUt1QoC)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2002-11-16a.png)
+![](../../assets/2020/11/2002-11-16a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2002-11-16b.png)
+![](../../assets/2020/11/2002-11-16b.png)
 
 **2005:** Bruce opens a two-night solo acoustic stand at the Continental Airlines Arena in East Rutherford, where "[Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)" gets a new arrangement on ukulele.
 
 [Watch on Youtube: The Wall (solo piano) Bruce Springsteen 11/16/2005 NJ](https://www.youtube.com/watch?v=piMyePznQWE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/11/Asbury_Park_Press_Sat__Nov_19__2005_.jpg)
+![](../../assets/2023/11/Asbury_Park_Press_Sat__Nov_19__2005_.jpg)
 
 **2007:** Bruce hits the beach in Ocean Grove, New Jersey to record the official video for "[Girls in Their Summer Clothes](https://estreetshuffle.com/index.php/2019/02/17/roll-of-the-dice-girls-in-their-summer-clothes/)." (Thanks to Stan Goldstein for the pointer to the "behind the scenes" video!)
 
@@ -70,9 +70,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/nyF7ql3o)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2010-11-16a.png)
+![](../../assets/2020/10/2010-11-16a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2010-11-16b.png)
+![](../../assets/2020/10/2010-11-16b.png)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
@@ -88,7 +88,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Thunder Road (Solo-Acoustic)](https://www.youtube.com/watch?v=79JneALz41c)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2019-11-16.png)
+![](../../assets/2020/10/2019-11-16.png)
 
 **2022:** On the third night of his *Tonight Show* "takeover," Bruce performs "Nightshift" (recorded during his studio appearance two days prior.
 

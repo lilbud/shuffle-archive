@@ -2,7 +2,7 @@ If I didn't already have tickets for a pair of Philly shows in September, I prob
 
 I already had high expectations going in: I've seen enough shows in Italy to know that the crowd would be wildly exuberant and sing along with every note. I knew the venue was an ancient Roman chariot racing arena that holds 100,000 people and was bound to be bursting at the seams regardless.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/circus.jpg)
+![](../../assets/2018/07/circus.jpg)
 
 I knew that Bruce and Italy have a long-time mutual love affair, and that Bruce was bound to reward them with "only in Roma" selections and performances. And on a gorgeous 75-degree evening without even a trace of humidity (in July!), it was a pretty sure bet that this was going to be a marathon of a show (it ended up being one of the longest ever, just 8 minutes shy of 4 hours, and that was *after* two and a half hours of opening acts that included Counting Crows). But in my wildest dreams, I wouldn't have expected or predicted the opening number.
 

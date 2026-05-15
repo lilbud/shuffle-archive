@@ -58,7 +58,7 @@ Bruce didn’t forget about “You Mean So Much to Me” altogether, though: in 
 Look for that story coming soon.
 
 **You Mean So Much to Me**
-Never recorded**
+**Never recorded**
 **Never released**
 **First performed:** July 10, 1971 (Lincroft, NJ)
 **Last performed:** May 13, 1977 (Red Bank, NJ)

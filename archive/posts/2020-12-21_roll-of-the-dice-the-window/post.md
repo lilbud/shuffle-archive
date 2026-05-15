@@ -4,13 +4,13 @@ While many of those prehistoric songs were incomplete and some were just wisps, 
 
 “The Window” was among the first four entries that Bruce transcribed in his notebook when he broke it in on April 26, 1968.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2020/12/1968_lyricsnotebook-contentspage.jpg)
 
 Because he entered all four on the same day, it’s very likely that all four had been written previously, which would explain their relative polish.
 
 Like much of Bruce’s material at the time, “The Window” reveals a preoccupation with the Vietnam War, civil rights, and poverty, unsurprising themes given that the songwriter was at the tender age of eighteen in a year where all three social ills came to a head.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/thewindow_lyrics.jpg)
+![](../../assets/2020/12/thewindow_lyrics.jpg)
 
 The titular window is a metaphor, representing the personal lens through which we see and interpret the world. Throughout the song, the narrator fights to preserve his window of truth while he is beset by politicians who tell him to trust their windows rather than his own.
 
@@ -61,7 +61,7 @@ These are not Bruce’s strongest lyrics (“get on your plastic words and fly�
 No recording exists of “The Window” (that I know of, at least), but if Bruce truly did perform it on stage that year, perhaps there’s someone out there who recalls hearing it (or even captured it on tape–as unlikely as that would be, there are even earlier recordings in circulation). If not, this is likely as close as we’ll come to hearing one of Bruce’s earliest original songs.
 
 **The Window**
-Never recorded**
+**Never recorded**
 **Never released**
 **First performed:** Unknown (but believed to be May 1968, Red Bank, NJ)
 **Last performed:** Unknown (but believed to be May 1968, Red Bank, NJ)

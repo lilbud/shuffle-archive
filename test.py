@@ -45,26 +45,12 @@ headers = {
 
 with load_db() as conn, conn.cursor() as cur:
 
-    folder = Path(r"C:\Users\bvw20\Documents\Personal\Projects\Bruce Stuff\Websites\e-street-shuffle\2025-11-30 - httrack\estreetshuffle\estreetshuffle.com\index.php\wp-json\wp\v2\posts")
+    folder = Path(r"./archive/posts")
 
-    for file in folder.glob("*.json"):
-        with file.open("r", encoding="utf-8") as f:
-            data = json.load(f)
+    for file in folder.glob("**/*.md"):
+        content = file.read_text(encoding="utf-8")
 
-            try:
-                timestamp = datetime.datetime.strptime(
-                    data["modified_gmt"],
-                    "%Y-%m-%dT%H:%M:%S",
-                ).timestamp()
+        if re.search(r"^(\*[^\*]*\*)\s*?$", content, flags=re.MULTILINE):
+            print(re.search(r"^(\*[^\*]*\*)\s*?$", content, flags=re.MULTILINE))
 
-                if Path(f"posts_json/{data['id']}_{int(timestamp)}.json").exists():
-                    print(f"exists: {data['id']}_{int(timestamp)}.json")
-                    continue
-                
-                with Path(f"posts_json/{data['id']}_{int(timestamp)}.json").open("w", encoding="utf-8") as f:
-                    json.dump(data, f)
-
-                print(f"saved to ia_json/{data['id']}_{int(timestamp)}.json")
-            except KeyError:
-                continue
             

@@ -1,16 +1,16 @@
 **1964:** Cindy Mizelle, backing vocalist on “Shackled and Drawn,” “High Hopes,” “American Skin (41 Shots),” “Just Like Fire Would,” and “Heaven’s Wall” — and of course, throughout the entire Seeger Sessions, Working on a Dream, Wrecking Ball, and High Hopes tours — is born in Englewood, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/cindy.jpg)
+![](../../assets/2018/07/cindy.jpg)
 
 **1970:** Bruce catches a gig by and jams with Funky Dusty and The Soul Broom (a side project of Steve, Garry, Southside, and Bobby Williams) at The Upstage in Asbury Park.
 
 **1973:** Bruce and his band perform at the annual CBS Sales Convention at the Fairmont Hotel in San Francisco. Bruce is asked and scheduled to play for fifteen minutes, but he plays for 40 minutes instead, overstaying his welcome and failing to impress following the special effects-laden mini-set by Edgar Winter’s White Trash.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1973-0727.jpg)
+![](../../assets/2018/07/1973-0727.jpg)
 
 **1974:** Bruce and the E Street Band play two shows at the Celebrity Theater in Phoenix, netting them their biggest payday to date by far.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1974-07-27.png)
+![](../../assets/2020/07/1974-07-27.png)
 
 **1976:** Incensed at manager Mike Appel’s injunction preventing him from recording new material, Bruce sues Appel for fraud, breach of trust, and undue influence. Their legal battle is only just beginning.
 
@@ -20,9 +20,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/GhQSDpeE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-27.png)
+![](../../assets/2020/07/1984-07-27.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1984-0727.jpg)
+![](../../assets/2018/07/1984-0727.jpg)
 
 **1988:** Bruce’s Tunnel of Love show in Oslo features the return of “Thunder Road,” not yet played on this tour. The opening songs are professionally shot and broadcast.
 
@@ -34,13 +34,13 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=a0fwM4ce1_A)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1989-0727.jpg)
+![](../../assets/2018/07/1989-0727.jpg)
 
 **1999:** On Night Six of fifteen in the opening Meadowlands stand of the Reunion Tour’s U.S. leg, “Candy’s Room” makes its long-awaited return, absent from the set list for almost 15 years.
 
 [Watch Video Highlight](https://videopress.com/embed/VtdgqsqG)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1999-07-27.png)
+![](../../assets/2020/07/1999-07-27.png)
 
 **2003:** Night Seven of ten at Giants Stadium on the Rising Tour has an unusual opening number: “Downbound Train.” Check out the rare IEM recording of “Meeting Across the River” below.
 
@@ -60,9 +60,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBRPYPYZJamzTxkxn8AOVX8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/2008-07-27a.png)
+![](../../assets/2021/07/2008-07-27a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2008-07-27b.png)
+![](../../assets/2020/07/2008-07-27b.png)
 
 **2012:** Bruce and the band play their first of two spectacular shows in Gothenburg, featuring tour premieres of “Drive All Night” and “Girls in Their Summer Clothes.”
 

@@ -6,7 +6,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/Di00F0cx)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1978-0605.jpg)
+![](../../assets/2021/06/1978-0605.jpg)
 
 **1981:** At the final night of a six-night stand at London’s Wembley Arena on the River Tour, Bruce plays “Jole Blon” for the very first time. This show is available for purchase as part of Bruce’s official archive series.
 
@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lGtG8qLH2B4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1981-06-05.jpg)
+![](../../assets/2021/06/1981-06-05.jpg)
 
 **1985:** Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features the European debuts of “Darlington County” and “Shut Out the Light.”
 
@@ -34,7 +34,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/VJSoqIAb)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1985-06-05.jpg)
+![](../../assets/2021/06/1985-06-05.jpg)
 
 **1992:** Bruce and his new band (plus Stevie and Patti) play a rehearsal show–only four days after they first began rehearsing together–broadcast live from Hollywood Center Studios Soundstage.
 
@@ -44,7 +44,7 @@
 
 **1993:** Bruce attends Mariah Carey’s wedding to Tommy Mottola, president of Sony Music in Manhattan.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1993-06-05.jpg)
+![](../../assets/2020/05/1993-06-05.jpg)
 
 **1999:** The Reunion Tour moves on to Spain, with a single show at Estadio la Romareda in Zaragoza. Watch local coverage of the bands arrival below.
 
@@ -60,9 +60,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=nkwEVEMDqlM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-06-05a.jpg)
+![](../../assets/2020/05/2006-06-05a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-06-05b.jpg)
+![](../../assets/2020/05/2006-06-05b.jpg)
 
 **2007:** Bruce releases his *Live in Dublin* album.
 

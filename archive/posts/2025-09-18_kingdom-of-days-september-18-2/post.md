@@ -2,7 +2,7 @@
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1971-0910.jpg)
+![](../../assets/2018/09/1971-0910.jpg)
 
 **1982:** Bruce makes a guest appearance with Dave Edmunds on six songs at Big Man's West in Red Bank.
 
@@ -22,9 +22,9 @@
 
 [Watch on Youtube: Philadelphia (9/18/1984)](https://www.youtube.com/playlist?list=PLA581E2C37BEC82A3)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/09/Philadelphia_Daily_News_1984_09_19_Page_6.jpg)
+![](../../assets/2024/09/Philadelphia_Daily_News_1984_09_19_Page_6.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/09/Philadelphia_Daily_News_1984_09_20_Page_60-scaled.jpg)
+![](../../assets/2024/09/Philadelphia_Daily_News_1984_09_20_Page_60-scaled.jpg)
 
 **1985:** Bruce plays "Stolen Car" for the last time for 18 years when he and the band play their first of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum.
 
@@ -32,17 +32,17 @@
 
 [Watch on Youtube: Bruce Springsteen - 1985 Oakland TV News Report](https://www.youtube.com/watch?v=PYFmYXI9XII)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1985-09-18a.jpg)
+![](../../assets/2020/09/1985-09-18a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1985-09-18b.jpg)
+![](../../assets/2020/09/1985-09-18b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1985-09-18c.jpg)
+![](../../assets/2021/09/1985-09-18c.jpg)
 
 **1996:** At his solo acoustic show in Wallingford, Bruce plays a one-off "[My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)" by request.
 
 [Watch on Youtube: Bruce Springsteen - "My Father's House" Wallingford, 1996-0918](https://www.youtube.com/watch?v=jTvO_lAqDw8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1996-09-18.jpg)
+![](../../assets/2020/09/1996-09-18.jpg)
 
 **2003:** Another great show on Night Two in Hartford, with Bruce opening his Rising Show with the first-ever E Street Band performance of "[Souls of the Departed](https://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)," the tour premiere of "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)," and a solo piano "[Incident on 57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)."
 
@@ -50,7 +50,7 @@
 
 [Watch on Youtube: Bruce Springsteen Living Proof Hartford 18/09/2003](https://www.youtube.com/watch?v=kWmiEcnQgqE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/09/Hartford_Courant_2003_09_19_199.jpg)
+![](../../assets/2024/09/Hartford_Courant_2003_09_19_199.jpg)
 
 **2006:** Bruce rehearses with the Sessions Band for their upcoming European tour.
 

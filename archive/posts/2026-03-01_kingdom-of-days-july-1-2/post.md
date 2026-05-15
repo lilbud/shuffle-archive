@@ -24,9 +24,9 @@
 
 
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-07-01a.jpg)
+![](../../assets/2020/06/1984-07-01a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-07-01b.jpg)
+![](../../assets/2020/06/1984-07-01b.jpg)
 
 **1989:** Bruce hops on stage with La Bamba at The Stone Pony in Asbury Park to perform “Long Tall Sally.”
 
@@ -46,19 +46,19 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rllkvMtVRQk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/07/2000-07-01.jpg)
+![](../../assets/2022/07/2000-07-01.jpg)
 
 **2015:** Bruce joins Brian Wilson at the PNC Banks Arts Center in Holmdel, New Jersey, for “Barbara Ann” and “Surfin’ U.S.A.”
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rL6wd3OgUrY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/07/Asbury_Park_Press_2015_07_03_Page_A3.jpg)
+![](../../assets/2024/07/Asbury_Park_Press_2015_07_03_Page_A3.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/07/Asbury_Park_Press_2015_07_03_Page_A4.jpg)
+![](../../assets/2024/07/Asbury_Park_Press_2015_07_03_Page_A4.jpg)
 
 **2018:** Bruce has the night off from his Broadway show, but he still spends it in New York. U2 is in concert at Madison Square Garden, and Bruce is there to see the show.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/06/u2.jpg)
+![](../../assets/2019/06/u2.jpg)
 
 **2020:** E Street Radio airs a special installment of Bruce’s radio show, *From My Home to Yours,* with guest-stars Little Steven and Southside Johnny. This seventh episode is entitled *4th of July, Asbury Park,* and together the three lifelong friends celebrate the rich history of the Asbury Park music scene.
 

@@ -2,7 +2,7 @@
 
 How close? This close:
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/HELD-UP-misprint2.jpg)
+![](../../assets/2021/10/HELD-UP-misprint2.jpg)
 
 Only at the last minute did Bruce yank this punk rave-up from Disc 3. At a mere 77 seconds, he didn’t even need to replace it with anything.
 

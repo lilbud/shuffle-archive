@@ -59,7 +59,7 @@ I’ll let you decide whether or not there’s some shared DNA between “Angel�
 
 Earlier this year, a hand-written draft of Bruce’s “Angel’s Blues” lyrics surface in an auction, and what we can read in Bruce’s own handwriting bears little to no resemblance to what we hear in the clip above.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/angelsblues-1.jpg)
+![](../../assets/2019/10/angelsblues-1.jpg)
 
 Conceptually, this 1973 version of “Angel’s Blues” seems similar to the 1974 version above, and metrically these older lyrics would seem to fit the melody (perhaps requiring some rushing at times, but Bruce was no stranger to that in those days).
 
@@ -76,7 +76,7 @@ What accounts for the distance between the handwritten lyrics and the bootleg �
 The rest is pre-history.
 
 **Angel’s Blues**
-Never recorded**
+**Never recorded**
 **First performed:** March 10, 1974 (Houston, TX)
 **Last performed:** March 10, 1974 (Houston, TX)
 

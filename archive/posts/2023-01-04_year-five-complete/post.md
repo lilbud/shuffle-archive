@@ -4,7 +4,7 @@ Five years of daily publishing feels like a marathon with no end in sight, but w
 
 Before we start Year Six, however, I want to thank you for reading, commenting, sharing your stories, telling your Bruce friends about this blog, and for just being a part of this ongoing odyssey. Whether this is your first visit or whether you've been with me from the beginning, I appreciate you and hope you'll stick with me in 2023!
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/thank_you_PNG132.png)
+![](../../assets/2019/01/thank_you_PNG132.png)
 
 As always, special thanks to those of you who have written to me with corrections, additional information, absolutely amazing "I was there" stories (especially my "[Where the Band Was](https://estreetshuffle.com/index.php/category/where-the-band-was/)" guest bloggers who gave me welcome writing reprieves from time to time–please drop me a line if you'd like to share your story), personal anecdotes, and alternative interpretations. That's been my absolute favorite part of these five years, and as a result I feel like I've learned as much as I've shared.
 

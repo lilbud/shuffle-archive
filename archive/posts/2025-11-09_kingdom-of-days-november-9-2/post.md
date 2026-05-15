@@ -2,13 +2,13 @@
 
 **1973:** Daryl Hall and John Oates open for Bruce and the E Street Band for two shows at Max's Kansas City in New York. This is the fourth of a five-night/ten-show stand.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/11/1973-1109.jpg)
+![](../../assets/2018/11/1973-1109.jpg)
 
-**1974:** Continuing a week of Texas shows, Bruce and the E Street Band play a show at Houston's Music Hall.![](https://estreetshuffle.com/wp-content/uploads/2018/11/1974-1109.gif)
+**1974:** Continuing a week of Texas shows, Bruce and the E Street Band play a show at Houston's Music Hall.![](../../assets/2018/11/1974-1109.gif)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/11/Corpus_Christi_Caller_Times_1974_11_07_70-scaled.jpg)
+![](../../assets/2024/11/Corpus_Christi_Caller_Times_1974_11_07_70-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/1974-11-09.jpg)
+![](../../assets/2019/10/1974-11-09.jpg)
 
 **1975:** A scheduled show at Jai Alai Fronton in Tampa is rescheduled for the following day.
 
@@ -18,7 +18,7 @@
 
 [Watch on Youtube: Bruce Springsteen - WALTZ ACROSS TEXAS 1980 (audio)](https://www.youtube.com/watch?v=ztmhczTvKDQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/47458526171_9a81e03089_o.jpg)
+![](../../assets/2019/10/47458526171_9a81e03089_o.jpg)
 
 **1985:** On *American Top 40,* host Casey Kasem introduces "[I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)" with the story of how Bruce joined The Castiles.
 
@@ -34,15 +34,15 @@
 
 [Watch on Youtube: Bruce Springsteen - "Light of Day" - Milwaukee, 1999-11-09](https://www.youtube.com/watch?v=WkqV0zVzpCo)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-11-09a.png)
+![](../../assets/2020/10/1999-11-09a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-11-09b.png)
+![](../../assets/2020/10/1999-11-09b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/46550113892_3443ccaf9d_o.jpg)
+![](../../assets/2019/10/46550113892_3443ccaf9d_o.jpg)
 
 **2002:** A scheduled Rising Tour show in Columbus is postponed to December due to Clarence's detached retina.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2002-11-09.png)
+![](../../assets/2020/10/2002-11-09.png)
 
 **2005:** After the return of "[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)" after almost a quarter-century the night before, how can Philly Night Two match Night One? With "[Santa Ana](https://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)," played for the first time in 32 years, and "[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)" for the first time (other than holiday shows) in 31 years. Oh, and the tour premiere of "[Used Cars](https://estreetshuffle.com/index.php/2019/06/13/roll-of-the-dice-used-cars/)" and a rare "[Independence Day.](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)" A pretty amazing two-night stand from the Devils & Dust Tour.
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Live In Birmingham 2006 - Full Concert (Audio Only!)](https://www.youtube.com/watch?v=kdFhvzqPoRk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Telegraph_Sat__Nov_11__2006_.jpg)
+![](../../assets/2023/11/The_Daily_Telegraph_Sat__Nov_11__2006_.jpg)
 
 **2007:** Bruce supports the Joe Torre Safe at Home benefit at Pier 60 in New York City, playing an eight-song set, including a new song for the occasion, "[Yankees Win](https://estreetshuffle.com/index.php/2019/06/23/roll-of-the-dice-yankees-win/)." Bruce's performance of "Glory Days" (together with Patti Scialfa and Bernie Williams) will eventually be released on Bernie William's *Moving Forward* album two years later.
 
@@ -80,15 +80,15 @@
 
 [Watch on Youtube: Bruce Springsteen - Stand Up for Heroes - "Land of Hope and Dreams" - Beacon Theatre - 11-9-11](https://www.youtube.com/watch?v=oRyqrvuKzj8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2011-11-09.png)
+![](../../assets/2020/10/2011-11-09.png)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/38330078051_edb8713025_o.jpg)
+![](../../assets/2019/10/38330078051_edb8713025_o.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: motivational speaker Tony Robbins.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/tony-robbins.jpg)
+![](../../assets/2019/10/tony-robbins.jpg)
 
 **2022:** Bruce joins Questlove on his *Questlove Supreme* podcast to promote his new album, *Only the Strong Survive.*
 

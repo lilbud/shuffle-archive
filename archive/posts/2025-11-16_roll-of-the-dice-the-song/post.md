@@ -2,7 +2,7 @@ There’s some debate as to the actual name of this unreleased, never-performed 
 
 In Bruce’s handwritten notes, he refers to it as “I Heard the Word,” and certainly that line is oft-repeated. It was eventually copyrighted in 1995 under the title “The Word.”
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1972_handwrittensonglist2.jpg)
+![](../../assets/2018/06/1972_handwrittensonglist2.jpg)
 
 But in the actual studio recording from 1972, it’s referred to verbally as “The Song,” and so that’s what we’ll go with.
 

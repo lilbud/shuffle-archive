@@ -6,7 +6,7 @@ Some of them have surfaced in old, yellowing notebooks over the years, often thr
 
 But here’s one that Bruce seems to have abandoned almost as soon as he started. With nothing to go one–no title, no chords, no date, barely even a verse–it’s a curiosity at best. I wouldn’t even know if its existence had this photograph not found its way to [Brucebase](https://brucebase.wikidot.com/).
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/11/inkansas.jpg)
+![](../../assets/2019/11/inkansas.jpg)
 
 Bruce seems to be teeing up some kind of environmental message, but that’s pure speculation, since we have nothing else to go by.
 
@@ -18,7 +18,7 @@ Bruce seems to be teeing up some kind of environmental message, but that’s pur
 And while the composition is undated, I would peg it circa 1971-1972, based purely on the paper itself–the rounded corners, three-hole punch, and unperforated pages match closely snapshots of the notebook(s) Bruce wrote in during that time. (If you have any additional background on this composition, I’d love to know it.)
 
 **In Kansas**
-Never recorded**
+**Never recorded**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

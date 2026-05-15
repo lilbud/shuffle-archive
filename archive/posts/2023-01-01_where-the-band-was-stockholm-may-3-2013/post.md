@@ -14,7 +14,7 @@ As I arrive at the venue I’m too late for any “pit queuing.” They’ve alr
 
 Two hours later my company and I are inside the venue and to our surprise IN the pit(!).
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/05/anna.jpg)
+![](../../assets/2019/05/anna.jpg)
 
 **The show**
 

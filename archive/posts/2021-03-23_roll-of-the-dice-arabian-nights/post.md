@@ -83,9 +83,9 @@ This recording doesn’t have the exchange between the narrator and his father; 
 
 **Bonus #2:** These are Bruce’s early handwritten lyrics for “Arabian Nights” — if you read carefully, you’ll see several places where the lyrics differ from even that early version above.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/39291198220_af0a8f7ba4_o.jpg)
+![](../../assets/2020/01/39291198220_af0a8f7ba4_o.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/01/41100241581_a1f45c13c5_o.jpg)
+![](../../assets/2020/01/41100241581_a1f45c13c5_o.jpg)
 
 **Arabian Nights  
 Recorded:** April-June 1972  

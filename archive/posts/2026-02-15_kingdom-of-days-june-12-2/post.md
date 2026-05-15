@@ -1,10 +1,10 @@
 **1973:** Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce’s opening act performance along with it.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Buffalo_Evening_News_Tue__Jun_12__1973_-scaled.jpg)
+![](../../assets/2024/06/Buffalo_Evening_News_Tue__Jun_12__1973_-scaled.jpg)
 
 **1978:** Another abrupt cancellation: Bruce’s scheduled Darkness Tour stop in La Crosse, Wisconsin is advertised right up until the day before the show before cancelling without public explanation.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/The_La_Crosse_Tribune_Sun__Jun_4__1978_.jpg)
+![](../../assets/2024/06/The_La_Crosse_Tribune_Sun__Jun_4__1978_.jpg)
 
 **1979:** Bruce works on “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)” during a recording session at The Power Station in New York City.
 
@@ -20,7 +20,7 @@
 
 <https://estreetshuffle.com/wp-content/uploads/2023/06/1982-06-12-Red-Bank__Merged.mp3>
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1982-06-12.jpg)
+![](../../assets/2020/06/1982-06-12.jpg)
 
 [Watch Video Highlight](https://videopress.com/embed/oVFluiql)
 
@@ -44,7 +44,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gpMgYVidHJ4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/2000-06-12.jpg)
+![](../../assets/2020/06/2000-06-12.jpg)
 
 **2003:** Wolfgang Niedecken guest-stars on “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)” at Bruce’s Rising show in Hamburg.
 
@@ -60,7 +60,7 @@
 
 **2011:** Clarence Clemons suffers a severe stroke, and his friends and family rush to his side.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/2011-06-12.jpg)
+![](../../assets/2020/06/2011-06-12.jpg)
 
 **2024:** World Tour 2024 resumes in Madrid with a recovered Bruce Springsteen tour premiering “Frankie Fell in Love” and “Rockin’ All Over the World.”
 

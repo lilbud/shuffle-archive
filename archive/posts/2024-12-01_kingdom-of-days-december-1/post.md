@@ -10,7 +10,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/GtxsiOUU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1978-12-01.jpg)
+![](../../assets/2020/11/1978-12-01.jpg)
 
 **1980:** Bruce and the E Street Band play their second of two River Tour nights at the Civic Arena in Pittsburgh.
 
@@ -36,7 +36,7 @@
 
 [Watch on Youtube: U2 with BRUCE SPRINGSTEEN I STILL HAVEN'T FOUND WHAT I'M LOOKING FOR at TIMES SQUARE NYC 12/1/14](https://www.youtube.com/watch?v=8smHql_MCcI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2014-12-01.jpg)
+![](../../assets/2020/11/2014-12-01.jpg)
 
 **2016:** Bruce continues his promotional book tour, stopping in Austin to meet fans at BookPeople.
 

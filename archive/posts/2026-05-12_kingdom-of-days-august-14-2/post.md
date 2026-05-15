@@ -1,8 +1,8 @@
 **1966:** The Castiles (along with Steve Van Zandt’s band, The Shadows) play the Surf ‘n’ See Club in Sea Bright, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/1966-0814.jpg)
+![](../../assets/2018/08/1966-0814.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1966-08-14.jpg)
+![](../../assets/2019/08/1966-08-14.jpg)
 
 **1970:** Steel Mill plays an outdoor show under the stars, on the parking deck at 7th and Marshall Streets in Richmond. Mercy Flight, a local band that includes future Steel Mill bandmate Robbin Thompson, plays just before Steel Mill, impressing Bruce enough that he will shortly extend Robbin an offer to join Steel Mill. Audio circulates of this show, including “The War is Over” and rare instrumental performances of “Sherlock Goes Home” and “KT-88.”
 
@@ -10,41 +10,41 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=lc9sXe0tCyQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1970-08-14.jpg)
+![](../../assets/2019/08/1970-08-14.jpg)
 
 **1972:** Bruce plays his third of six two-shows-a-night solo gigs at Max’s Kansas City that week.
 
 **1973:** Bruce and the E Street Band play Uncle Al’s Erlton Theater Lounge in Cherry Hill, New Jersey. Why was Bruce’s name so hard to spell correctly during these years?
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/1973-0814.jpg)
+![](../../assets/2018/08/1973-0814.jpg)
 
 **1974:** Dave Sancious and Boom Carter play their last two shows as members of the E Street Band, at the Monmouth Arts Center in Red Bank.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/1974-08-14a.png)
+![](../../assets/2021/08/1974-08-14a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1974-08-14b.png)
+![](../../assets/2020/07/1974-08-14b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1974-08-14c.png)
+![](../../assets/2020/07/1974-08-14c.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1974-08-14.jpg)
+![](../../assets/2019/08/1974-08-14.jpg)
 
 **1975:** Bruce’s legendary Bottom Line stand continues with a second night of two shows.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zCbJCnCimF1D6g8Y00aaUtv)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1975-08-14.png)
+![](../../assets/2020/07/1975-08-14.png)
 
 **1978:** The Darkness Tour descends on the Hampton Roads Coliseum in Hampton, Virginia, where Bruce opens with his live debut cover of “High School Confidential.”
 
 [Watch Video Highlight](https://videopress.com/embed/yodpb4X6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1978-08-14.png)
+![](../../assets/2020/07/1978-08-14.png)
 
 **1983:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park. (Photo credit: Dari)
 
 [Watch Video Highlight](https://videopress.com/embed/fpPKsCCn?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/1983-0814.jpg)
+![](../../assets/2018/08/1983-0814.jpg)
 
 **1985:** In the U.S., there’s arguably no city more fervent in their Bruce fandom than Philadelphia. Bruce and the band play their first of two shows at Veterans Stadium today, and anticipation has been high since the moment tickets went on-sale:
 
@@ -66,15 +66,15 @@ You’d be forgiven for thinking nothing else happened in the news today–here�
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BfvMvjikgJM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1985-08-14a.png)
+![](../../assets/2020/07/1985-08-14a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1985-08-14b.png)
+![](../../assets/2020/07/1985-08-14b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1985-08-14c.png)
+![](../../assets/2020/07/1985-08-14c.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/08/The_Philadelphia_Inquirer_1985_08_16_Page_49-1.jpg)
+![](../../assets/2024/08/The_Philadelphia_Inquirer_1985_08_16_Page_49-1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/08/The_Philadelphia_Inquirer_1985_08_16_Page_56.jpg)
+![](../../assets/2024/08/The_Philadelphia_Inquirer_1985_08_16_Page_56.jpg)
 
 **1987:** Bruce joins The Fairlanes on-stage for four songs (including “Savin’ Up”) at The Deck House in Asbury Park.
 
@@ -86,13 +86,13 @@ You’d be forgiven for thinking nothing else happened in the news today–here�
 
 **1995:** Bruce joins Ronnie Mack and the Barndance Band on stage at Jack’s Sugar Shack in Hollywood.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/1995-0814.jpg)
+![](../../assets/2018/08/1995-0814.jpg)
 
 **2002:** The Rising Tour stops in Cleveland for a show at Gund Arena, where the set list remains unchanged from the previous two shows.
 
 [Watch Video Highlight](https://videopress.com/embed/CBudoNB4?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-14.png)
+![](../../assets/2020/08/2002-08-14.png)
 
 **2004:** Bruce attends Little Steven’s International Underground Garage Festival in New York City, He doesn’t perform, but he does introduce two bands, The Fuzztones and The Chesterfield Kings.
 
@@ -114,7 +114,7 @@ You’d be forgiven for thinking nothing else happened in the news today–here�
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=iZzV_oV--Y8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2012-08-14.png)
+![](../../assets/2020/08/2012-08-14.png)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

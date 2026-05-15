@@ -2,17 +2,17 @@ It’s time for another visit to eighteen-year-old Bruce Springsteen’s [1968 N
 
 The 1968 Notebook was unveiled at an auction in 2006. where it was snapped up for more than $57,000 by a lucky bidder with some very deep pockets. It contains some of Bruce’s earliest songwriting exercises.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/1968_lyricsnotebook.jpg)
+![](../../assets/2019/01/1968_lyricsnotebook.jpg)
 
 While we don’t have any music to pair with the lyrics, the lyrics themselves give us fascinating insight into the issues and themes that fascinated young Bruce.
 
 Today’s entry is the very first song transcribed in that notebook, entitled simply “Clouds.”
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2019/01/1968_lyricsnotebook-contentspage.jpg)
 
 “Clouds” is very much of its time, an anti-war song from the point of view of a young soldier in Vietnam, trying desperately to hang on to his life, his love, and his sanity. He’s on the battlefield, and the clouds above offer temporary refuge from the chaos below. They seduce him and endanger him at the same time. He’s not sure why he’s there or what he’s fighting for, and he’s beginning to doubt whether he’ll ever know or make it back to his home and his sweetheart.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/clouds_lyrics.jpg)
+![](../../assets/2019/01/clouds_lyrics.jpg)
 
 It can be a bit tough to decipher Bruce’s handwritten lyrics above, so here they are transcribed below (thanks to the folks at springsteenlyrics.com — I’ve made a few small corrections, but they did all the hard work!)
 

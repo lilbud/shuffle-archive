@@ -2,17 +2,17 @@
 
 **1969:** Steel Mill headlines at the Free University in Richmond.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/11/40632756604_6af20d7824_o.jpg)
+![](../../assets/2018/11/40632756604_6af20d7824_o.jpg)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1971-11-19.png)
+![](../../assets/2020/11/1971-11-19.png)
 
 **1978:** Bruce and the E Street Band bring the Darkness Tour to the University of Illinois at Champaign.
 
 [Watch on Youtube: Bruce Springsteen - "It's Hard to Be a Saint in the City" - Champaign, 1978-11-20](https://www.youtube.com/watch?v=yhJqumucMCY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Illini_Tue__Nov_28__1978_.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2023/11/The_Daily_Illini_Thu__Nov_30__1978_.jpg)
+![](../../assets/2023/11/The_Daily_Illini_Thu__Nov_30__1978_.jpg)
 
 **1980:** Bruce makes his first appearance at the Rosemont Horizon, where the crowd sings "[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)" to him for the very first time, and "[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)" gets a unique and funny introduction.
 
@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/PAwgHoD0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/46735508144_21f270c05a_o.jpg)
+![](../../assets/2019/10/46735508144_21f270c05a_o.jpg)
 
 **1987:** Bruce joins Bobby Bandiera on stage at The Stone Pony in Asbury Park for three songs: "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)," "[Stand by Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)," and "[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)."
 
@@ -36,7 +36,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-11-20.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2019/10/Bruce-Springsteen-1996-11-20.mp3?_=7)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1996-11-20.png)
+![](../../assets/2020/11/1996-11-20.png)
 
 **1998:** Bruce sits down for a remarkable 50-minute television interview with Charlie Rose and performs an acoustic "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)" Both are must-watch.
 
@@ -48,15 +48,15 @@
 
 **2002:** In town a day early for their show in Orlando, Bruce and the band have dinner at the Hard Rock cafe after Steve gets in a round of golf.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2002-11-20.png)
+![](../../assets/2020/11/2002-11-20.png)
 
 **2006:** On their day off in Ireland, Bruce spends the afternoon at Slane Castle, where he and Patti dine and celebrate with Lord and Lady Mount Charles.
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/11/Sunday_Independent_Dublin_ed__2006_11_26_16_02-scaled.jpg)
+![](../../assets/2025/11/Sunday_Independent_Dublin_ed__2006_11_26_16_02-scaled.jpg)
 
 **2007:** The day after an emotional show spotlighting Danny Federici, Bruce confirms what fans already feared: Danny is taking a leave of absence to receive treatment for melanoma. "Danny is one of the pillars of our sound," Bruce writes. "We all eagerly await his healthy and speedy return."
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2007-11-20.png)
+![](../../assets/2020/11/2007-11-20.png)
 
 **2009:** Bruce and the E Street Band play their penultimate Working on a Dream show at 1st Mariner Arena in Baltimore, where they perform the entire *Born to Run* album in sequence and switch up the sign collection song, playing "[Green Onions](https://estreetshuffle.com/index.php/2019/05/17/cover-me-green-onions/)" for the very first time.
 
@@ -68,9 +68,9 @@
 
 [Watch on Youtube: Bruce Springsteen "(Your Love Keeps Lifting Me) Higher and Higher Baltimore, MD 11/20/2009](https://www.youtube.com/watch?v=8aXZDKb5fHw)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2009-11-20a.png)
+![](../../assets/2020/11/2009-11-20a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2009-11-20b.png)
+![](../../assets/2020/11/2009-11-20b.png)
 
 **2019:** Bruce gathers the E Street Band at his home studio in Colts Neck for the third day of a five-day recording session that will yield [*Letter to You*](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/).
 

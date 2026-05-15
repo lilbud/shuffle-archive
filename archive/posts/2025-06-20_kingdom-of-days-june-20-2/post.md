@@ -4,7 +4,7 @@
 
 **1971:** The Sundance Blues Band plays an afternoon gig at The Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1971-06-19.jpg)
+![](../../assets/2020/06/1971-06-19.jpg)
 
 **1977:** Bruce and the E Street Band record for what will become *Darkness on the Edge of Town* at Atlantic Studios in New York City.
 
@@ -16,7 +16,7 @@
 
 **1982:** Bruce makes his by now customary "surprise" appearance with Cats on a Smooth Surface at The Stone Pony, with a setlist that includes covers of "[Come On, Let's Go](https://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)," "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)," "[Sweet Little Sixteen](https://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)," "[Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)," and more.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1982-0620.jpg)
+![](../../assets/2018/06/1982-0620.jpg)
 
 **1989:** Bruce makes a guest appearance with Bobby Bandiera at Martell's Sea Breeze in Point Pleasant Beach, New Jersey.
 
@@ -38,7 +38,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/w2CqZvlc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Daily_News_Thu__Jun_22__2000_-1-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Daily_News_Thu__Jun_22__2000_-scaled.jpg)
+![](../../assets/2024/06/Daily_News_Thu__Jun_22__2000_-scaled.jpg)
 
 **2004:** CBS *Sunday Morning* airs a terrific profile of and interview with Patti Scialfa as part of her promotional tour for *23rd Street Lullaby*.
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Gabriel at Springsteen Concert 6/20/2006](https://www.youtube.com/watch?v=1E8KvYPH8RU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/2006-06-20.jpg)
+![](../../assets/2021/06/2006-06-20.jpg)
 
 **2011:** Fans gather at The Stone Pony to remember Clarence Clemons, who passed away two days prior.
 
@@ -76,7 +76,7 @@
 
 **2019:** Bruce and Patti attend a celebration of life at The Stone Pony for the late Kerry Layton, Patti's life-long friend.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/brucepattipony.jpeg)
+![](../../assets/2020/06/brucepattipony.jpeg)
 
 **2024:** World Tour 2024 arrives in Barcelona for the first of two nights. This night features the tour premiere of "[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)." Purchase or stream this show [here](https://www.nugs.net/live-download-of-bruce-springsteen-estadi-ol%C3%ADmpic-barcelona-spain-06-20-2024-mp3-flac-or-online-music-streaming/35852.html).
 

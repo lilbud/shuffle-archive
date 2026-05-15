@@ -6,7 +6,7 @@
 
 **1981:** Arriving in St. Paul early in the morning, two days before their scheduled show, Bruce and the band enjoy a couple of days off in the Twin Cities (except for Roy, who has an ear infection). Bruce spends the evening playing pool and pinball at a bar called Zoogies, where he catches a local band called The Suburbs.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/1981-01-30.png)
+![](../../assets/2021/01/1981-01-30.png)
 
 **1997:** Night Three (of four) in Tokyo on Bruce's first solo acoustic tour.
 
@@ -28,7 +28,7 @@
 
 [Watch on Youtube: Springsteen & Honeymooners](https://www.youtube.com/watch?v=eN1Y66j_go8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/2017-01-30.png)
+![](../../assets/2021/01/2017-01-30.png)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

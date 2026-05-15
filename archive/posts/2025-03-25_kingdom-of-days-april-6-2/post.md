@@ -2,17 +2,17 @@
 
 **1969:** Child performs at the Pandemonium in Wanamassa, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/Asbury_Park_Press_Fri__Apr_4__1969_-scaled.jpg)
+![](../../assets/2024/04/Asbury_Park_Press_Fri__Apr_4__1969_-scaled.jpg)
 
 **1974:** Bruce and his band headline at Burlington County College in Pemberton, New Jersey.
 
 **1976:** Kid Leo interviews Bruce on Cleveland’s WMMS-FM radio.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/46906470044_f5c1c852ed_o.jpg)
+![](../../assets/2020/03/46906470044_f5c1c852ed_o.jpg)
 
 **1985:** After finishing his first Australian tour the night before, Bruce takes a day off in Sydney to relax on a yacht with actress/model Joanna Forbes and her boyfriend.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Sydney_Morning_Herald_Mon__Apr_8__1985_-scaled.jpg)
+![](../../assets/2024/04/The_Sydney_Morning_Herald_Mon__Apr_8__1985_-scaled.jpg)
 
 **1990:** Bruce records “[Trouble River](https://estreetshuffle.com/index.php/2019/03/05/roll-of-the-dice-trouble-river/)” at Soundworks West in Los Angeles. It will remain in the vault for almost a decade.
 
@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen Give My Love To Rose](https://www.youtube.com/watch?v=hEfe80Ty8KY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/1999-04-06-scaled.jpg)
+![](../../assets/2021/04/1999-04-06-scaled.jpg)
 
 **2006:** Bruce rehearses with the Sessions Band at Asbury Park’s Paramount Theater, preparing for their upcoming tour. Meanwhile, Bruce is inducted into the Freehold High School Hall of Fame in absentia. Bruce’s mom accepts the award on his behalf and reads a note from Bruce:
 

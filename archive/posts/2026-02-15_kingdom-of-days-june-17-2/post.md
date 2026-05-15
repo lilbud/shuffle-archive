@@ -1,6 +1,6 @@
 **1972:** Bruce and Clarence play together for only the second time ever when Bruce makes a guest appearance with Clarence’s band, Norman Seldin and the Joyful Noyze, at The Shipbottom Lounge in Point Pleasant Beach, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/06/joyful.jpg)
+![](../../assets/2019/06/joyful.jpg)
 
 **1973:** A scheduled gig in Chester, West Virginia, is believed to have been cancelled.
 
@@ -12,9 +12,9 @@
 
 **1978:** Bruce and the E Street Band play to a half-sold Kiel Auditorium in St. Louis on the Darkness Tour. In attendance is 18-year-old Michael Stipe, who will share a stage with Bruce decades later when he fronts the rock band R.E.M.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1978-06-17.jpg)
+![](../../assets/2020/06/1978-06-17.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1978-0617.jpg)
+![](../../assets/2018/06/1978-0617.jpg)
 
 **1992:** At Night Two in Stockholm and for World Tour 1992 itself, Bruce plays “All or Nothin’ at All” and “Real Man” for the first time.
 
@@ -52,7 +52,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=BYF8IntUFZI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/2006-06-17.jpg)
+![](../../assets/2020/06/2006-06-17.jpg)
 
 **2012:** Bruce brings the Wrecking Ball Tour to Madrid and plays “Spanish Eyes” for the very first time. Southside Johnny is in town and joins Bruce and the E Street Band for a hilarious “Talk to Me” and “Twist and Shout.”
 

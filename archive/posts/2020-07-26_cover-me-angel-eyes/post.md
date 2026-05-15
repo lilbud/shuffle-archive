@@ -26,7 +26,7 @@ Not surprisingly, that was the one and only time Bruce has ever covered "Angel E
 
 **Update:** Thanks to friend of the blog Bill Anderson for pointing me to a May 2000 interview with Frank Sinatra Jr., who was not at all a fan of Bruce' interpretation. But then again, Junior apparently wasn't a fan of a lot of things...
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/sinatra.png)
+![](../../assets/2020/07/sinatra.png)
 
 **Angel Eyes**
 **First performed:** November 19, 1995 (Los Angeles, CA)<br>

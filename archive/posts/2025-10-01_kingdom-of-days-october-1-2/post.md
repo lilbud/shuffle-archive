@@ -2,11 +2,11 @@
 
 **1966:** The Castiles play a gig at the Hullabaloo in Middletown, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/1966-1001.jpg)
+![](../../assets/2018/10/1966-1001.jpg)
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/1971-1001.jpg)
+![](../../assets/2018/10/1971-1001.jpg)
 
 **1978:** At Night Two at Atlanta's Fox Theater on the Darkness Tour, Bruce opens with his live debut of "[The Last Time](https://estreetshuffle.com/index.php/2020/07/24/cover-me-the-last-time/)" by The Rolling Stones, plays "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)" for the last time for 22 years, and performs "[It's My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)" for the last time to date. This show is available as part of Bruce's official archive series–get it here.
 
@@ -22,7 +22,7 @@
 
 **1984:** The San Mateo Times publishes the only interview Bruce's dad is known to have ever given. (Bruce's parents are local residents.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/1984-1021.jpg)
+![](../../assets/2021/10/1984-1021.jpg)
 
 **1985:** The television series *Growing Pains* (starring Alan Thicke, an ardent Springsteen fan) airs an episode centered around the Born in the U.S.A. Tour.
 
@@ -36,7 +36,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/LCKzTo7T)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1996-10-01.jpg)
+![](../../assets/2020/09/1996-10-01.jpg)
 
 **2003:** The Rising Tour's last stand kicks off with the first of three shows at Shea Stadium in New York City, where "[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)" and "[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)" make their tour premieres. The sound check also featured some unplayed gems, including "Another Thin Line," "[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)," [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)" and "New York City Serenade." Check out the soundcheck footage below.
 
@@ -52,9 +52,9 @@
 
 [Watch on Youtube: Man's Job Bruce Springsteen October 1, 2003 NYC](https://www.youtube.com/watch?v=uaf_kDW3qoM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/2003-10-01a.jpg)
+![](../../assets/2021/10/2003-10-01a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/10/2003-10-01b.jpg)
+![](../../assets/2021/10/2003-10-01b.jpg)
 
 **2004:** The Vote for Change Tour kicks off at the Wachovia Center in Philadelphia, with Bright Eyes and R.E.M. opening for Bruce and the E Street Band, aiming to generate voter enthusiasm and registration for the upcoming U.S. presidential election. Bruce appears with R.E.M. during their set to play "[Man on the Moon](https://estreetshuffle.com/index.php/2021/01/06/matr-r-e-m-and-bruce-springsteen-man-on-the-moon/)," and the band returns the favor during his set (Michael Stipe joins on "Because the Night" (with Patti Smith's lyrics), and both Michael and Peter join for "Born to Run"). John Fogerty plays a mini-set within Bruce's set, a nightly highlight of the brief tour. Bruce opens his set with a gorgeous acoustic "[Star-Spangled Banner,](https://estreetshuffle.com/index.php/2021/01/20/cover-me-the-star-spangled-banner/)" and all artists join for a star-studded encore.
 
@@ -62,9 +62,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/dHep8GzG)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/2004-10-01a.jpg)
+![](../../assets/2020/09/2004-10-01a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/2004-10-01b.jpg)
+![](../../assets/2020/09/2004-10-01b.jpg)
 
 **2006:** Bruce and the Sessions Band kick off the final leg of the Seeger Sessions Tour with an autumn tour of Italy, starting in Bologna with a show at PalaMalaguti, where "[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)" makes its tour debut in a beautiful new arrangement, and Bruce plays "[This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)" for the very first time. "[American Land](https://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)" returns as the show closer, where it will remain for the rest of the tour.
 

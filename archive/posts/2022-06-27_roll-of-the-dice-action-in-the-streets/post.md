@@ -48,7 +48,7 @@ The set started with a familiar melody that fooled most who recognized it into e
 For the few in attendance, it was a magical throwback to a simpler time–one not likely to be repeated again. As for that instrumental, though… Bruce seems too fond of it for us to have seen the last of it.
 
 **Action in the Streets**
-Never recorded**
+**Never recorded**
 **Never released**
 **First performed:** February 7, 1977 (Albany, NY)
 **Last performed:** July 17, 2011 (Asbury Park, NJ)

@@ -4,17 +4,17 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VRKoRUCKFH8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1978-07-21.png)
+![](../../assets/2021/07/1978-07-21.png)
 
 **1984:** The Born in the U.S.A. Tour starts its Canadian leg with a show at the Montreal Forum.
 
 [Watch Video Highlight](https://videopress.com/embed/mQ0tWBPe)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21c.png)
+![](../../assets/2020/07/1984-07-21c.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21a.png)
+![](../../assets/2020/07/1984-07-21a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-21b.png)
+![](../../assets/2020/07/1984-07-21b.png)
 
 **2003:** Night Three of ten at the Rising Tour’s Giants Stadium stand features a special guest star: original E Street Band drummer Vini Lopez takes the drums on “Spirit in the Night.”
 

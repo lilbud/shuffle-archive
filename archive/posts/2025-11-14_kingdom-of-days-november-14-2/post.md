@@ -4,11 +4,11 @@
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/1971-1001.jpg)
+![](../../assets/2018/10/1971-1001.jpg)
 
 **1973:** Bruce and the band that will someday be named E Street headline two shows at My Father's Place in Roslyn, New York.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/1973-11-14.jpg)
+![](../../assets/2019/10/1973-11-14.jpg)
 
 **1974:** A scheduled show at the Houston Music Hall on this date was cancelled and moved earlier to November 9th instead.
 
@@ -18,15 +18,15 @@
 
 [Watch on Youtube: Bruce Springsteen, Live in Utica, "Rave On" - 1978-11-14](https://www.youtube.com/watch?v=qkYIw85mVCc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/47544065821_b52b66e6f3_o.jpg)
+![](../../assets/2019/10/47544065821_b52b66e6f3_o.jpg)
 
 **1980:** Bruce brings the River Tour to The Summit in Houston for the first of two nights.
 
 [Watch on Youtube: Bruce Springsteen - "In the Midnight Hour" - Houston, 1980-11-14](https://www.youtube.com/watch?v=G2yx105ER6c)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/11/The_Houston_Post_1980_11_16_75.jpg)
+![](../../assets/2025/11/The_Houston_Post_1980_11_16_75.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/11/The_Houston_Chronicle_1980_11_15_39-scaled.jpg)
+![](../../assets/2025/11/The_Houston_Chronicle_1980_11_15_39-scaled.jpg)
 
 **1987:** By way of introduction to Bruce's rising "[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)" single, *American Top 40* host Casey Kasem gives a dramatic re-enactment of a late night billboard defacement foray on the Darkness Tour.
 
@@ -36,19 +36,19 @@
 
 [Watch on Youtube: Bruce Springsteen - Live in Lowell, MA - "The River" - 1996-11-14](https://www.youtube.com/watch?v=taSKipCPcUM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/11/Hartford_Courant_1996_11_21_Page_75.jpg)
+![](../../assets/2024/11/Hartford_Courant_1996_11_21_Page_75.jpg)
 
 **1999:** Bruce and the reunited E Street Band play their first of two shows at the Gund Arena in Cleveland.
 
 [Watch on Youtube: Bruce Springsteen - "Spirit in the Night" - Cleveland, 1999-11-14](https://www.youtube.com/watch?v=JBZ4lIPfAuU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1999-11-14.png)
+![](../../assets/2020/10/1999-11-14.png)
 
 **2002:** "[Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)" makes a long-awaited return when the Rising Tour stops at Rupp Arena in Lexington. Until tonight, it hasn't been played for almost 24 years.
 
 [Watch on Youtube: Bruce Springsteen - "Streets of Fire" - Lexington, 2002-11-14](https://www.youtube.com/watch?v=8CInxo96uLs)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/11/Lexington_Herald_Leader_Fri__Nov_15__2002_-scaled.jpg)
+![](../../assets/2023/11/Lexington_Herald_Leader_Fri__Nov_15__2002_-scaled.jpg)
 
 **2006:** "[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)" sees its Seeger Sessions Tour premiere (as a duet with Frank Bruno) in fellow former steel town Sheffield, and "[Froggie Went A-Courtin'](https://estreetshuffle.com/index.php/2021/01/26/roll-of-the-dice-cover-me-froggie-went-a-courtin/)" makes a rare appearance to close the show.
 
@@ -64,19 +64,19 @@
 
 [Watch on Youtube: Youngstown Pittsburgh Nov 14th Bruce Springsteen](https://www.youtube.com/watch?v=LUtEj3NuvJE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2007-11-14.png)
+![](../../assets/2020/10/2007-11-14.png)
 
 **2010:** Bruce attends Bob Dylan's concert at Monmouth University.
 
 **2016:** Bruce attends a party at Maialino in New York City, held by his publishers to celebrate the performance of his new book.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/11/booktour.jpg)
+![](../../assets/2018/11/booktour.jpg)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: original E Street Band member Vini Lopez.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/2018-11-14.jpg)
+![](../../assets/2019/10/2018-11-14.jpg)
 
 **2020:** After consuming two shots of tequila with some friendly fans, Bruce is arrested at the Gateway National Recreation Area in Sandy Hook for driving while intoxicated–even though a breathalyzer test proves that Bruce's blood alcohol level is a mere fraction of the amount required to qualify as intoxicated. The incident will remain unpublicized until early the following year.
 

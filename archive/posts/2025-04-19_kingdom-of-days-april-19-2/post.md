@@ -2,9 +2,9 @@
 
 **1974:** Bruce and the not quite E Street Band play a poorly advertised (and therefore poorly attended) show at the New Jersey State Theater in New Brunswick. In attendance tonight: Penn Jillette.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/1974-04-19.jpg)
+![](../../assets/2021/04/1974-04-19.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1974-0419.jpg)
+![](../../assets/2018/04/1974-0419.jpg)
 
 **1975:** Bruce works on "Thunder Road" in the studio at the Record Plant in New York City.
 
@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Bruce Springsteen - FOLLOW THAT DREAM 1981 (audio)](https://www.youtube.com/watch?v=isH0CoR8feg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/1981-04-18-1.jpg)
+![](../../assets/2021/04/1981-04-18-1.jpg)
 
 **1985:** Bruce's tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.
 
@@ -68,13 +68,13 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Out In The Street (Live in Montreal)](https://www.youtube.com/watch?v=1LRT003HCIc)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19.jpg)
+![](../../assets/2021/04/2003-04-19.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2003-04-19b-rotated.jpg)
+![](../../assets/2021/04/2003-04-19b-rotated.jpg)
 
 **2008:** Bruce reschedules a scheduled show in Orlando due to the passing of Danny Federici.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/04/The_Miami_Herald_Fri__Apr_18__2008_-scaled.jpg)
+![](../../assets/2024/04/The_Miami_Herald_Fri__Apr_18__2008_-scaled.jpg)
 
 **2014:** Record Store Day is a busy one: Bruce releases a new EP, [*American Beauty*](https://estreetshuffle.com/index.php/2022/02/05/album-companion-american-beauty/), performs [the title track](https://estreetshuffle.com/index.php/2019/02/21/roll-of-the-dice-american-beauty/) at soundcheck in Charlotte, and films it for release a few days later. That night, Bruce stuns the audience by opening with only the second-ever performance of "[Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)" and a cover-filled set that included "[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)," "[Mustang Sally,](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)" and "[Brown-Eyed Girl](https://estreetshuffle.com/index.php/2018/09/20/cover-me-brown-eyed-girl/)." One of my favorite shows. For highlights, see my [*Where the Band Was* report](https://estreetshuffle.com/index.php/2018/04/19/where-the-band-was-charlotte-april-19-2014/) from this show.
 
@@ -86,7 +86,7 @@
 
 [Watch on Youtube: Bruce Springsteen- "The Wall" (Charlotte, NC 04/19/14)](https://www.youtube.com/watch?v=j3m0BXVKPu0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/2014-04-19-scaled.jpg)
+![](../../assets/2021/04/2014-04-19-scaled.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

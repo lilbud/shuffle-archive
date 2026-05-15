@@ -8,9 +8,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/OUrIQLcR)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/08/Simi_Valley_Star_1981_08_30_4-scaled.jpg)
+![](../../assets/2024/08/Simi_Valley_Star_1981_08_30_4-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/08/1981-0827.gif)
+![](../../assets/2018/08/1981-0827.gif)
 
 **1985:** Bruce and the band play their second of two Born in the U.S.A. shows at CNE Stadium in Toronto.
 
@@ -22,15 +22,15 @@
 
 [Watch on Youtube: Bruce Springsteen - Boston, 1999-08-27](https://www.youtube.com/watch?v=8D06CtXE5y4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/1999-08-27a.png)
+![](../../assets/2021/08/1999-08-27a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1999-08-27b.png)
+![](../../assets/2020/08/1999-08-27b.png)
 
 **2002:** Bruce and the E Street Band wrap their west coast Rising Tour swing with a show at San Jose's Compaq Center.
 
 [Watch on Youtube: Bruce Springsteen - Born in the U.S.A. (San Jose 2002)](https://www.youtube.com/watch?v=z33OKND7IA8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-27.png)
+![](../../assets/2020/08/2002-08-27.png)
 
 **2021:** Bruce calls into *The Wild and the Innocent* on E Street Radio to mark the show's tenth anniversary, broadcast live from Asbury Park.
 

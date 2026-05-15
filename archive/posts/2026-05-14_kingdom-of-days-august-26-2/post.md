@@ -8,7 +8,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EaEA0CTQTjI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1978-08-26.jpg)
+![](../../assets/2019/08/1978-08-26.jpg)
 
 **1979:** Bruce and the E Street Band record “The River” at the Power Station in New York City.
 
@@ -24,15 +24,15 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=P9Zzw3qz7Dk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-26a.png)
+![](../../assets/2020/08/1985-08-26a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/1985-08-26b.png)
+![](../../assets/2021/08/1985-08-26b.png)
 
 **1987:** Bruce joins Jah Love on stage at Key Largo in Belmar, New Jersey, for reggae versions of “My Hometown,” “Jersey Girl,” and “Born in the U.S.A.” Afterwards, he zips over to The Columns in Avon, where he performs “[L](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)u[cille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)” and “Stand By Me” with The Cherubs.
 
 [Watch Video Highlight](https://videopress.com/embed/2cGZrAWC?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1987-08-26.png)
+![](../../assets/2020/08/1987-08-26.png)
 
 **1992:** Bruce and his new touring band play their second of two shows at the Capital Center in Largo, MD.
 

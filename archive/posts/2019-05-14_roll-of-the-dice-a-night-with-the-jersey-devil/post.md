@@ -6,7 +6,7 @@ I’m not convinced Bruce knows what to make of it either.
 
 A Night with the Jersey Devil” first appeared as a downloadable audio and streaming video on Bruce’s web site on Halloween night 2008. Released with no fanfare other than a handwritten note of introduction, it nevertheless had the distinction of serving as the lead single for Bruce’s as yet unannounced upcoming album, *Working on a Dream*. Or did it?
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/05/anightwiththejerseydevil_note.gif)
+![](../../assets/2019/05/anightwiththejerseydevil_note.gif)
 
 When the album was first announced, Bruce’s Halloween surprise was listed as a bonus track, similar to “[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/).” But by the time the album was released, “A Night with the Jersey Devil” was nowhere to be seen. Why did Bruce drop it? As far as I know, no one’s ever asked him, and he’s never commented.
 

@@ -4,7 +4,7 @@
 
 **1973:** Bruce and the band play two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/12/1973-1230.jpg)
+![](../../assets/2018/12/1973-1230.jpg)
 
 **1975:** Bruce and most of the band drop by WMMR-FM in Philadelphia for a stint as guest DJs with Ed Sciaky. That evening, the boys play a gig at the Tower Theater, where they tour premiere "[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)." Steve is gone by that point, though–he takes ill early in the set and has to skip the remainder.
 
@@ -14,15 +14,15 @@
 
 [Watch on Youtube: Patti Smith & Bruce Springsteen - "Because the Night" - New York City, 1977-12-31](https://www.youtube.com/watch?v=UUhmhPSeH5M)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/12/46685559725_88b299cdb8.jpg)
+![](../../assets/2019/12/46685559725_88b299cdb8.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1977-12-30.png)
+![](../../assets/2020/12/1977-12-30.png)
 
 **1978:** Bruce and the E Street Band near the end of the Darkness Tour, but before they do they make a return visit to Detroit, this time playing the larger Cobo Arena.
 
 [Watch on Youtube: Point Blank Cobo Hall Detroit December 30 1978](https://www.youtube.com/watch?v=YGNP5Fkutlk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/12/1978-12-30.png)
+![](../../assets/2020/12/1978-12-30.png)
 
 **1991:** Bruce and Patti welcome Jessica Rae Springsteen into the world, and Little Steven gets to break the news on stage.
 
@@ -34,4 +34,4 @@
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City, still using the "B" set list due to Patti's illness. In attendance tonight: shoe designer Faryl Morse.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/12/38699365124_d32170519c.jpg)
+![](../../assets/2019/12/38699365124_d32170519c.jpg)

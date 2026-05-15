@@ -1,6 +1,6 @@
 In the early winter days of 1971, a classified ad in the *Asbury Park Press* caught the eye and interest of nineteen-year-old Barbara Dinkins.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/dinkinsad.png)
+![](../../assets/2020/11/dinkinsad.png)
 
 Barbara thought she and her friend Dee might fit the bill, so she replied to the ad and arranged for the band's leader to meet them at the church where they sang gospel.
 
@@ -12,7 +12,7 @@ Barbara and Dee only lasted with The Bruce Springsteen Band for two brief months
 
 But oh, what a glorious summer that was! Surviving bootleg recordings from those shows reveal The Bruce Springsteen Band as an immensely talented combo, crossing rock, blues, soul, jazz, gospel, and even pop genres over the course of their shows. Bruce was at the height of his guitar prowess, David Sancious was already a wunderkind on the piano, and as for Barbara and Delores... well, they were much more than backing singers. (The photo below shows Holmes on the left, then Dinkins, then Bruce and Steve.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/dinkins.jpg)
+![](../../assets/2020/11/dinkins.jpg)
 
 Bruce was impressed enough by Barbara and Dee to give them star turns on lead vocals. For example, Dee sang lead on "[I'm in Love Again](https://estreetshuffle.com/index.php/2020/05/23/roll-of-the-dice-im-in-love-again/)." As for Barbara, not only did she sing lead on "You Don't Leave Me No Choice," she actually *wrote* the song along with Sancious (whose stamp is immediately obvious from the extended piano intro).
 
@@ -31,7 +31,7 @@ After leaving Bruce's band, Delores would become a fixture of the Jersey Shore m
 As for Barbara, she now goes by her married name of Barbara Gunter and is a web designer in New Jersey, but long-time devotees of the Jersey Shore music scene will always remember and recognize her brief but important contribution to the early career of Bruce Springsteen.
 
 **You Don't Leave Me No Choice**
-Never recorded**
+**Never recorded**
 **Never released**
 **First performed:** July 22, 1971 (South Amboy, NJ)<br>
 **Last performed:** July 29, 1971 (South Amboy, NJ)<br>

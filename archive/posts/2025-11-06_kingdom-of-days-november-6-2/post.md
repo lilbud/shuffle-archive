@@ -2,19 +2,19 @@
 
 **1968:** Earth plays a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/11/Asbury_Park_Press_1968_11_06_Page_36-scaled.jpg)
+![](../../assets/2024/11/Asbury_Park_Press_1968_11_06_Page_36-scaled.jpg)
 
 **1973:** Daryl Hall and John Oates open for Bruce and the E Street Band at Max's Kansas City in New York City. This is the first of a five-night/ten-show stand.
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/11/Screenshot-2025-10-11-120825.jpg)
+![](../../assets/2025/11/Screenshot-2025-10-11-120825.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/1973-11-06.jpg)
+![](../../assets/2019/10/1973-11-06.jpg)
 
 **1974:** "Semi-country" Bruce Springsteen and the E Street Band kick off a week of Texas shows with their first of two nights at Armadillo World Headquarters in Austin.
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/11/Austin_American_Statesman_Fri__Nov_1__1974_-1.jpg)
+![](../../assets/2023/11/Austin_American_Statesman_Fri__Nov_1__1974_-1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/11/1974-1106.jpg)
+![](../../assets/2018/11/1974-1106.jpg)
 
 **1975:** Bruce and the boys play their third of three nights at Arizona State University in Tempe on the Born to Run Tour.
 
@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The Fabulous Grease Band, 1987-11-06](https://www.youtube.com/watch?v=PQ5WeAOVDQI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/1987-11-06.png)
+![](../../assets/2020/10/1987-11-06.png)
 
 **1992:** Bruce and his new touring band play their second of two nights at the Toronto Skydome, where "[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)" makes its final tour appearance.
 
@@ -40,21 +40,21 @@
 
 [Watch on Youtube: Bruce Springsteen - "My Hometown" Fargo, 1999-11-06](https://www.youtube.com/watch?v=mm3dke6edD4)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/11/The_Forum_1999_11_07_1.jpg)
+![](../../assets/2025/11/The_Forum_1999_11_07_1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/11/The_Forum_1999_11_07_3.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/11/The_Forum_1999_11_21_31.jpg)
+![](../../assets/2025/11/The_Forum_1999_11_21_31.jpg)
 
 **2001:** *Live in New York City* is released on DVD, featuring eleven songs not aired in the broadcast version.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2001-11-06.png)
+![](../../assets/2020/10/2001-11-06.png)
 
 **2002:** A scheduled Rising Tour show in Austin is postponed until the following March due to Clarence's detached retina.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2002-11-06a.png)
+![](../../assets/2020/10/2002-11-06a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2002-11-06b.png)
+![](../../assets/2020/10/2002-11-06b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/2002-11-06.jpg)
+![](../../assets/2019/10/2002-11-06.jpg)
 
 **2004:** Bruce joins Joe Grushecky and The Houserockers on stage for the fifth consecutive year at the annual Light of Day benefit concert. It's just four days after Election Day, and the loss still stings. Bruce plays a particularly pointed set, and at the end of "This Hard Land," you can hear him add, "No surrender!" Listen to the set below.
 
@@ -64,7 +64,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/B7UmGbQX)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/10/2004-11-06.png)
+![](../../assets/2020/10/2004-11-06.png)
 
 **2006:** The Seeger Sessions Tour arrives in Cologne, where Wolfgang Niedecken joins in the customary guest-star slot on "[Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)."
 

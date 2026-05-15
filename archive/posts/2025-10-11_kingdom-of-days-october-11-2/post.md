@@ -6,15 +6,15 @@
 
 [Watch on Youtube: Steel Mill Concert Poster 1970 Bruce with Ike & Tina Turner](https://www.youtube.com/watch?v=qKtES3Edw44)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/10/Richmond_Times_Dispatch_1970_10_12_35.jpg)
+![](../../assets/2025/10/Richmond_Times_Dispatch_1970_10_12_35.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/09/1970-10-11.jpg)
+![](../../assets/2019/09/1970-10-11.jpg)
 
 **1974:** Bruce and the E Street Band headline at the Shady Grove Music Fair in Gaithersburg, Maryland. Starting at this show, Suki Lahav joins the band for the remainder of the tour.
 
 [Watch on Youtube: Bruce Springsteen - 1974-10-11 - Shady Grove Music Fair, Gaithersburg, MD](https://www.youtube.com/watch?v=ekMTaEFIgfU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/1974-1011.jpg)
+![](../../assets/2018/10/1974-1011.jpg)
 
 **1975:** Bruce makes his first appearance on *American Top 40* with his charting single, "Born to Run."
 
@@ -26,7 +26,7 @@ That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Cent
 
 [Watch on Youtube: Bruce Springsteen "Wings For Wheels" documentary - the "vault" edit](https://www.youtube.com/watch?v=7UbGdcMX00I?start=137)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1975-10-11.jpg)
+![](../../assets/2020/09/1975-10-11.jpg)
 
 **1979:** Bruce records "[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)" with the E Street Band at The Power Station in New York City.
 
@@ -46,7 +46,7 @@ That evening, Bruce and the boys play two homecoming shows at Monmouth Arts Cent
 
 [Watch on Youtube: Bruce Springsteen & Friends - People Have the Power - Live from Washington (10/11/2004)](https://www.youtube.com/watch?v=oFJ8SzLsyi0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/2004-10-11.jpg)
+![](../../assets/2020/09/2004-10-11.jpg)
 
 **2017:** One final tweak during the last preview performance of *Springsteen on Broadway:* "[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)" and "[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)" return to their original sequence.
 

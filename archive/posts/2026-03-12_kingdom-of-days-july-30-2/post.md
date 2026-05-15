@@ -4,17 +4,17 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=eYu78f4lNvs)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1975-0730.jpg)
+![](../../assets/2018/07/1975-0730.jpg)
 
 **1981:** Southside Johnny guest-stars on “I Don’t Want to Go Home” when Bruce and the E Street Band bring the River Tour to Richfield, Ohio for the second of two nights.
 
 [Watch Video Highlight](https://videopress.com/embed/RwhE4R38)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1981-07-30.png)
+![](../../assets/2020/07/1981-07-30.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1981-0730.jpg)
+![](../../assets/2018/07/1981-0730.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1984-0730.jpg)
+![](../../assets/2018/07/1984-0730.jpg)
 
 **1984:** At the first of two nights in Detroit on the Born in the U.S.A. Tour, Bruce tour premieres “Independence Day” in a new arrangement. In attendance tonight: *Funky Winkerbean* cartoonist Tom Batiuk.
 
@@ -22,9 +22,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dLdutnQxZUI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1984-07-30a-scaled.jpg)
+![](../../assets/2021/07/1984-07-30a-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1984-07-30b.jpg)
+![](../../assets/2021/07/1984-07-30b.jpg)
 
 **1985:** Bruce and the band rehearse for the final leg of the Born in the U.S.A. Tour at the former home of Big Man’s West in Red Bank.
 
@@ -64,15 +64,15 @@ Finally, ABC’s *Nightline* airs Bruce’s performance of “Empty Sky” recor
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-pgzJ7Iyg6Q)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30a.png)
+![](../../assets/2020/07/2002-07-30a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30b.png)
+![](../../assets/2020/07/2002-07-30b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2002-07-30c.png)
+![](../../assets/2020/07/2002-07-30c.png)
 
 **2007:** Bruce’s close friend, personal assistant, and right-hand man Terry Magovern passes away at the age of 67. Terry’s life and death will inspire Bruce to write “Terry’s Song.”
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2007-07-30.png)
+![](../../assets/2020/07/2007-07-30.png)
 
 **2009:** A beautiful set list in Benidorm, Spain, on the Working on a Dream Tour, as “Janey, Don’t You Lose Heart,” “Girls in Their Summer Clothes,” and “If I Should Fall Behind” receive their tour debuts and “Be True” gets a rare outing.
 

@@ -18,7 +18,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/UaOmLbOj)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1981-0503.jpg)
+![](../../assets/2018/05/1981-0503.jpg)
 
 **1982:** At the Power Station in New York City, Bruce records what will eventually (upon its release more than two years later) become his most recognizable anthem: "[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)"
 
@@ -38,7 +38,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3?_=8](https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-03-D3-Track05-Land-Of-Hope-And-Dreams.mp3?_=8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2000-05-03.jpg)
+![](../../assets/2021/05/2000-05-03.jpg)
 
 **2001:** *Live in New York City* is certified platinum by the Recording Industry Association of America.
 
@@ -56,7 +56,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/VDL84VIC)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2009-05-03.jpg)
+![](../../assets/2020/05/2009-05-03.jpg)
 
 **2013:** At the first of three Wrecking Ball shows at Friends Arena in Solna, Sweden, Bruce plays the full *Born to Run* album start to finish–the first time he has done this outside of the United States. In the encores, Bruce opens with an acoustic performance of "[Mountain of Love](https://estreetshuffle.com/index.php/2022/09/21/cover-me-mountain-of-love/)," and Elliott Murphy joins Bruce and the band for "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)."
 
@@ -82,7 +82,7 @@ That evening, Bruce opens a tribute show to Dr. John, performing "[Right Place, 
 
 [Watch on Youtube: Bruce Springsteen and Dr. John -- "Right Place Wrong Time" 03 May 2014, New Orleans](https://www.youtube.com/watch?v=fvxJxLwGOMI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2014-05-03.jpg)
+![](../../assets/2020/05/2014-05-03.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

@@ -2,17 +2,17 @@
 
 **1944:** Bobby King, backing vocalist on "[Roll of the Dice](https://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)" and "[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)" and throughout World Tour 1992 and World Tour 1993, is born in Lake Charles, Louisiana.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/bobby.jpg)
+![](../../assets/2018/07/bobby.jpg)
 
 **1966:** The Castiles participate in Asbury Park's first annual Rock'n'Roll Contest, where first prize is awarded to The Shadows, featuring Steven Van Zandt.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/07/Asbury_Park_Press_1966_08_05_Page_21.jpg)
+![](../../assets/2024/07/Asbury_Park_Press_1966_08_05_Page_21.jpg)
 
 **1974:** Bruce and the E Street Band play a show at the Tucson Community Center.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/07/Tucson_Citizen_1974_07_26_19-scaled.jpg)
+![](../../assets/2024/07/Tucson_Citizen_1974_07_26_19-scaled.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/07/1974-0728.jpg)
+![](../../assets/2022/07/1974-0728.jpg)
 
 **1975:** A rainy night plagues Bruce's performance at the Carter Barron Amphitheater in Washington DC's Rock Creek Park. Heavy rain delays the start of the show by two hours, and lingering moisture disrupts Bruce's guitar throughout the show, causing additional mid-show delays. Still, the performance is great, and the crowd is hot. Listen to the rare instrumental "[Funk Song](https://estreetshuffle.com/index.php/2018/05/02/roll-of-the-dice-funk-song/)" below.
 
@@ -24,13 +24,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/9mruPo23)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1978-07-28b.png)
+![](../../assets/2021/07/1978-07-28b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1978-07-28a.png)
+![](../../assets/2021/07/1978-07-28a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1978-0728a.jpg)
+![](../../assets/2018/07/1978-0728a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1978-0728b.jpg)
+![](../../assets/2018/07/1978-0728b.jpg)
 
 **1983:** Bruce and the E Street Band record "Bobby Jean" at The Hit Factory in New York City.
 
@@ -46,7 +46,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/m5anLWg5)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/2005-07-28.png)
+![](../../assets/2020/07/2005-07-28.png)
 
 **2008:** At the second of three nights at Giants Stadium on the Magic Tour, Bruce and the band perform "Held Up Without a Gun" for only the third time ever, Jay Weinberg makes his E Street Band debut on "Born to Run," and Jesse Malin and Dave Bielanko guest star on "Twist and Shout."
 

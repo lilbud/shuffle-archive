@@ -14,7 +14,7 @@ Here they are–"the band of the year"–opening with it at The Left Foot in Fre
 
 Although we have reason (via a preserved but undated setlist) to believe Bruce played it at least through his Earth era in 1968, this is the only known recording of him performing it.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/02/earth-sl-bs.jpg)
+![](../../assets/2019/02/earth-sl-bs.jpg)
 
 **Purple Haze**
 **First performed:** September 16, 1967 (Freehold, NJ)<br>

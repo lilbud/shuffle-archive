@@ -4,7 +4,7 @@ By luck and circumstance, as it turned out. I had business in Milan the day of t
 
 I had never been, and I was charmed immediately. Sure, the Romeo and Juliet “historical sites” might have been a bit over the top, but oh, that arena…
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/10/verona.jpg)
+![](../../assets/2018/10/verona.jpg)
 
 It was stunning from the outside. From the inside, it was magical. But it would be a few hours before I’d get to go inside, so in the meantime I sat outside in the piazza, had a pizza and a glass of wine, and listened to the soundcheck, which carried out in to the square with crystal clarity.
 

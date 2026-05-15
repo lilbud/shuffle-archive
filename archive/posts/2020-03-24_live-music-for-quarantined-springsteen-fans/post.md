@@ -12,7 +12,7 @@ I feature Joe's music frequently here on the Shuffle due to his [many, many coll
 
 Next up: a [very special benefit concert](https://www.facebook.com/events/552991608622664/?acontext=%7B%22source%22%3A1%2C%22action_history%22%3A%22%5B%7B%5C%22surface%5C%22%3A%5C%22permalink%5C%22%2C%5C%22mechanism%5C%22%3A%5C%22surface%5C%22%2C%5C%22extra_data%5C%22%3A%5B%5D%7D%5D%22%2C%22has_source%22%3Atrue%7D&source=1&action_history=%5B%7B%22surface%22%3A%22permalink%22%2C%22mechanism%22%3A%22surface%22%2C%22extra_data%22%3A%5B%5D%7D%5D&has_source=1&__tn__=%2CdK-R-R&eid=ARBdjHjJtua2-GQUpYv9Q_ZFSAd6mbaKK2lVetIJez6kfnqvscPhIFNqe5dd3IUBY1xZvwcw_Oe6DjqT&fref=mentions) by some of the best musicians on the Jersey Shore, all performing from their homes. Many of the names below will be familiar to fans of Bruce Springsteen and the Asbury Park music scene, but trust me–even if you're not familiar with most of the artists, this is bound to be a great event for any fan of the Jersey Shore sound.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/stayathome.jpg)
+![](../../assets/2020/03/stayathome.jpg)
 
 RSVP [here](https://www.facebook.com/events/552991608622664/), and join me (virtually) at the show from the comfort of your own home on Saturday, April 4th at 8pm EDT.
 

@@ -53,7 +53,7 @@ To this day, “Paradise by the ‘C'” remains Bruce’s only officially relea
 Bruce doesn’t need to (and almost certainly won’t) bring this one back in concert; The Big Man awaits his moment whenever we replay it.
 
 **Paradise by the “C”**
-Never recorded**
+**Never recorded**
 **Released:** *The River: Outtakes* (2015)
 **First performed:** May 23, 1978 (Buffalo, NY)
 **Last performed:** August 2, 1988 (Madrid, Spain)

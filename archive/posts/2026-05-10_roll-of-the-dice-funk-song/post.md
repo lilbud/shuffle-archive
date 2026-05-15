@@ -17,7 +17,7 @@ So why the “sort of” qualification? Because even though the 1972 and 1975 ve
 [Watch Video Highlight](https://videopress.com/embed/68XoKMjo)
 
 **Funk Song  
-Never Recorded**  
+**Never recorded**
 **Never Released**  
 **First performed:** July 23, 1975 (Lenox, MA)  
 **Last performed:** August 8, 1975 (Akron, OH)

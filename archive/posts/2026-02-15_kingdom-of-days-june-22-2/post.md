@@ -4,15 +4,15 @@
 
 **1970:** Steel Mill headlines a show at the Clearwater Swim Club in Atlantic Highlands, New Jersey. The band plays to their largest crowd yet–about 4,000 people–and Garry Tallent’s band Glory Road opens the show.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1970-06-22.jpg)
+![](../../assets/2021/06/1970-06-22.jpg)
 
 **1973:** Bruce and his band gather at 914 Sound Studios in Blauvelt, New York to kick off recording sessions for what will become *The Wild, The Innocent, and The E Street Shuffle*. That evening, David Sancious makes his E Street Band debut at the band’s gig at Fat City in Seaside Heights, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1973-0622.jpg)
+![](../../assets/2018/06/1973-0622.jpg)
 
 **1974:** Bruce and the E Street Band play two shows on their second of three consecutive nights at Le Garage on Long Beach Island.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1974-0622.jpg)
+![](../../assets/2018/06/1974-0622.jpg)
 
 **1976:** Bruce shaves his beard completely off. It hasn’t been seen since.
 
@@ -48,7 +48,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/WbnXwnwr)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/2006-06-22.jpg)
+![](../../assets/2020/06/2006-06-22.jpg)
 
 **2010:** Bruce releases *London Calling: Live in Hyde Park*.
 

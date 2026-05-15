@@ -4,7 +4,7 @@
 
 **1974:** A scheduled show is cancelled at the Cinematic Circus in Woodbourne, New York.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1974-08-24.jpg)
+![](../../assets/2019/08/1974-08-24.jpg)
 
 **1977:** Bruce and the E Street Band hold a recording session in New York City for their upcoming album.
 
@@ -18,13 +18,13 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=EL0CFhgBhz8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/08/Simi_Valley_Star_1981_08_26_34.jpg)
+![](../../assets/2024/08/Simi_Valley_Star_1981_08_26_34.jpg)
 
 **1988:** Bruce makes a surprise appearance at Sting’s show at Madison Square Garden, dueting on “The River” and “Message in a Bottle.” The two will shortly kick off a tour together in support of Amnesty International.
 
 [Watch Video Highlight](https://videopress.com/embed/NdZIIyTZ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1988-08-24.png)
+![](../../assets/2020/08/1988-08-24.png)
 
 **1999:** Bruce and the reunited E Street Band play their third of five shows at Boston’s Fleet Center.
 
@@ -38,9 +38,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLJTyL9twk3zBZFKBVhmGttZWHy11qCyk9)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/2002-08-24a.png)
+![](../../assets/2021/08/2002-08-24a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-24b.png)
+![](../../assets/2020/08/2002-08-24b.png)
 
 **2008:** The Magic Tour wraps up with an eclectic setlist in Kansas City, featuring *six* tour premieres (and two world debuts, including the first-ever “Ricky Wants a Man of Her Own”), Max on lead vocals on “Boys”, a Soozie and Bruce duet on “It’s All Over Now,” and more.
 
@@ -50,15 +50,15 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=h7k2dlprYhU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/2008-08-24a.jpg)
+![](../../assets/2021/08/2008-08-24a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/2008-08-24b.jpg)
+![](../../assets/2021/08/2008-08-24b.jpg)
 
 **2012:** The Wrecking Ball Tour heads north to Canada, starting with a show at the Rogers Center in Toronto, where an undisputed highlight is a rare solo piano “Incident on 57th Street.”
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mIiL3kvbi34)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/08/The_Toronto_Star_2012_08_25_3-1.jpg)
+![](../../assets/2024/08/The_Toronto_Star_2012_08_25_3-1.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

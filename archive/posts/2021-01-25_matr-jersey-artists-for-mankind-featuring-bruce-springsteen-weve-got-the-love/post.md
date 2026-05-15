@@ -8,9 +8,9 @@ In 1985, the musicians from the Jersey Shore music scene decided to band togethe
 
 In December a core group of artists recorded the backing track, and on January 13, 1986, over 450 local voices assembled at The Stone Pony for a raucous rehearsal and recording session. So much talent showed up that the session had to be split in two–one session for those under 21 early in the evening, and another later that night for the grown-ups.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/JAM1.png)
+![](../../assets/2021/01/JAM1.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/JAM2.png)
+![](../../assets/2021/01/JAM2.png)
 
 Once the backing track and "choir" were captured, local legends contributed their talents for vocal and instrumental solos. Bruce and Clarence contributed instantly recognizable guitar and sax solos, and as for spotlight vocalists, see how many you can recognize.
 

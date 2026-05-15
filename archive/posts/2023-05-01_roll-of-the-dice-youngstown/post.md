@@ -129,7 +129,7 @@ When he dies, he tells us, let him go to hell. It can’t be any hotter then his
 
 Bruce met Maharidge and Williamson for the first time at Neil and Pegi Young’s Bridge School Benefit concert in October 1995, shortly before the release of *The Ghost of Tom Joad.* Springsteen invited the two men to the show and asked them to meet him backstage afterward. Greeting them with a giant hug, Bruce invited them into his dressing room, where Bruce gushed effusively about *Journey to Nowhere.*
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/05/Capture.png)
+![](../../assets/2023/05/Capture.png)
 
 “He told us he wanted to do what he could to get the book back in print,” Maharidge told the *Bee.* He told Bruce that if he were so inclined to write an introduction for the new edition, they could put his name on the cover. That might prompt more people to pick up the book. Bruce agreed right away; days later, Marharidge secured a publisher for a second edition.
 

@@ -4,7 +4,7 @@
 
 [Watch on Youtube: confessin' the blues](https://www.youtube.com/watch?v=yZt6dI2zZJ8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/1972-01-21.png)
+![](../../assets/2021/01/1972-01-21.png)
 
 **1973:** Bruce and the band play their final of four nights at My Father's Place on Long Island.
 
@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Rock and Roll Hall of Fame news coverage - 1987-01-21](https://www.youtube.com/watch?v=19zYmYmsunk)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/1987-01-21.png)
+![](../../assets/2021/01/1987-01-21.png)
 
 **1996:** The television news show *60 Minutes* profiles Bruce and his solo acoustic tour.
 
@@ -40,4 +40,4 @@
 
 **2022:** Bruce drops by the Transparent Clinch Gallery in Asbury Park, where he poses for a photo with the gallery's owner (and himself). (Photo credit: Maria Barba-Clinch/Transparent Gallery Instagram)
 
-![](https://estreetshuffle.com/wp-content/uploads/2023/01/2022-01-21.jpg)
+![](../../assets/2023/01/2022-01-21.jpg)

@@ -1,4 +1,4 @@
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/vb.jpg)
+![](../../assets/2018/09/vb.jpg)
 
 So yeah... I really did fly across the country into a hurricane on an ill-considered whim because I was able to get a ridiculously cheap pit ticket for a Bruce Springsteen concert.
 

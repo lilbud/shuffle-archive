@@ -6,27 +6,27 @@
 
 [Watch Video Highlight](https://videopress.com/embed/4joZ40eY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/02/1977-03-05b.jpg)
+![](../../assets/2020/02/1977-03-05b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/02/1977-03-05.jpg)
+![](../../assets/2020/02/1977-03-05.jpg)
 
 **1981:** At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the first leg of the River Tour and play "[Fade Away](https://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)" for the last time until 2005.
 
 [Watch Video Highlight](https://videopress.com/embed/DteacuKH)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/02/1981-03-05a.jpg)
+![](../../assets/2020/02/1981-03-05a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1981-03-05b.jpg)
+![](../../assets/2021/03/1981-03-05b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/02/1981-03-05c.jpg)
+![](../../assets/2020/02/1981-03-05c.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/02/1981-03-05d.jpg)
+![](../../assets/2020/02/1981-03-05d.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/03/1981-0305.jpg)
+![](../../assets/2021/03/1981-0305.jpg)
 
 **1999:** Bruce and the reunited E Street Band rehearse for their upcoming Reunion Tour at Convention Hall in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/02/1999-03-05a.jpg)
+![](../../assets/2020/02/1999-03-05a.jpg)
 
 **2001:** "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" and "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)" are both certified gold by the Recording Industry Association of America.
 
@@ -46,4 +46,4 @@
 
 [Watch on Youtube: Bruce Springsteen "Badlands" Saint Paul,Mn 3/5/23](https://www.youtube.com/watch?v=_1zgH3SsaT0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/03/Star_Tribune_Mon__Mar_6__2023_.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/03/Star_Tribune_Mon__Mar_6__2023_-1.jpg)
+![](../../assets/2024/03/Star_Tribune_Mon__Mar_6__2023_-1.jpg)

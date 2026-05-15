@@ -8,7 +8,7 @@ It probably had nothing to do with its inspiration, a country singer named David
 
 *I got the mysterious rhinestone thing from my father. He asked me, "You know the only way that The Lone Ranger can go into town? I said, "No, I don't know what you mean." He said that he has to take his mask off. I thought, what is my dad talking about and trying to tell me? He said, "Well son, you have to wear a mask and then when you don't want to be David Allan Coe you can take your mask off and go anywhere and not be like Elvis with people messin' with you all the time.*
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/dac.jpg)
+![](../../assets/2021/06/dac.jpg)
 
 It’s probably just happenstance that the song Coe inspired–made famous by Glenn Campbell (but originally written and recorded by Larry Weiss)–was about an obscure singer questing for stardom but just barely scraping by, just like Bruce was at the time.
 
@@ -16,7 +16,7 @@ It’s probably just happenstance that the song Coe inspired–made famous by Gl
 
 It’s a *complete* coincidence that at the very moment Bruce exploded into mainstream stardom with *Born to Run* in the autumn of 1975, Campbell’s song was riding the top of the charts.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/clip_79697004.jpg)
+![](../../assets/2021/06/clip_79697004.jpg)
 
 And of course, performing a song named after an imitation wasn’t at all a wink from a small-town New Jersey rocker to his fans while performing a suite of Western-themed songs from his barn.
 

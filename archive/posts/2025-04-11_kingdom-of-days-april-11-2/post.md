@@ -2,25 +2,25 @@
 
 **1969:** Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long residency.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1969-0404.jpg)
+![](../../assets/2018/03/1969-0404.jpg)
 
 **1970:** Steel Mill holds an invite-only rehearsal show for the local press.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/48062448203_aacecf6b79_o.jpg)
+![](../../assets/2020/03/48062448203_aacecf6b79_o.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1970-0411.jpg)
+![](../../assets/2018/04/1970-0411.jpg)
 
 **1971:** The Green Mermaid coffee house underneath The Upstage in Asbury Park plays host to the "Bruce Springsteen Acoustyc Jam."
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1971-0410.jpg)
+![](../../assets/2018/03/1971-0410.jpg)
 
 **1973:** Bruce plays his first-ever show in Georgia, opening for The Beach Boys at the Omni Coliseum in Atlanta. Bruce has undoubtedly grown used to people misspelling his name by now, but this is probably a new variant:
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1973-0411.jpg)
+![](../../assets/2018/04/1973-0411.jpg)
 
 **1974:** Bruce plays two shows at Charlie's Place in Cambridge, Massachusetts–his third of four nights at that venue.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/04/1974-0412.jpg)
+![](../../assets/2018/04/1974-0412.jpg)
 
 **1978:** At the last minute during a *Darkness* mixing and overdub session at the Record Plant, Bruce opts to overdub a Big Man sax solo onto "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)." The track will be pressed to acetate the next day.
 
@@ -66,7 +66,7 @@
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3?_=3)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/04/2003-04-11.jpg)
+![](../../assets/2020/04/2003-04-11.jpg)
 
 **2005:** Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in Asbury Park.
 

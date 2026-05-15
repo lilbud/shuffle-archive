@@ -1,6 +1,6 @@
 > *Let fury have the hour. Anger can be power. Do you know that you can use it?*
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/strummer.jpg)
+![](../../assets/2021/09/strummer.jpg)
 
 Bruce Springsteen and Joe Strummer had more than a bit of mutual admiration between them, each citing the other as an influence.
 

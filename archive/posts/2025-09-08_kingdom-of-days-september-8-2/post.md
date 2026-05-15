@@ -2,7 +2,7 @@
 
 **1973:** Bruce and the E Street Band play an afternoon show for the University of Pittsburgh and Carnegie Mellon University.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1973-0908.jpg)
+![](../../assets/2018/09/1973-0908.jpg)
 
 **1974:** Bruce makes his first-ever on-stage appearance at The Stone Pony in Asbury Park, sitting in with Steve Van Zandt and Southside Johnny's Blackberry Booze Band (the forerunner of The Asbury Jukes). Garry and Vini join in as well, and the jam lasts well into the night.
 
@@ -14,13 +14,13 @@
 
 [Watch on Youtube: Bruce Springsteen - Jole Blon](https://www.youtube.com/watch?v=VhRhyFda0zA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1981-09-08.jpg)
+![](../../assets/2019/08/1981-09-08.jpg)
 
 **1984:** At Night Two in Hartford on the Born in the U.S.A. Tour, Bruce plays "[State Trooper](https://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)" for the very first time.
 
 [Watch on Youtube: Bruce Springsteen - Live debut of "State Trooper" Hartford, 1984-09-08](https://www.youtube.com/watch?v=54ioyqhbVPQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/09/Hartford_Courant_1984_09_13_Page_111.jpg)
+![](../../assets/2024/09/Hartford_Courant_1984_09_13_Page_111.jpg)
 
 After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio special. It won't be broadcast until December, but you can listen to it below. (The interview is interspersed between and within songs, so be careful if you skip ahead.)
 
@@ -34,11 +34,11 @@ After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio spec
 
 [Watch on Youtube: VV.AA. - Get Up! Stand Up! (rebuilt version)- Human Rights Now! Tour, Torino, 8.9.1988](https://www.youtube.com/watch?v=wjnDast_iRo)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1988-09-08.jpg)
+![](../../assets/2020/09/1988-09-08.jpg)
 
 **1990:** Future honorary/second-generation E Streeter and Slipknot drummer Jay Weinberg is born. Jay will one day fill his father's shoes behind the drums when Max's TV commitments prevent him from appearing in many shows on the Working on a Dream Tour.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/maxweinbergjay.jpg)
+![](../../assets/2018/09/maxweinbergjay.jpg)
 
 **1994:** Bruce wins the MTV Video Music Award for Best Video from a Film for "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" (although he loses to Tom Petty's "Mary Jane's Last Dance" in the Best Male Video category). Bruce appears live at the awards, performing his award-winning song backed by Roy, Max, Bobby King, and Tommy Sims.
 
@@ -46,15 +46,15 @@ After the show, at 2am, British DJ Roger Scott interviews Bruce for a radio spec
 
 [Watch on Youtube: Bruce Springsteen - Streets Of Philadelphia (American Music Awards) 1994](https://www.youtube.com/watch?v=LamPI5XMWUw)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1994-09-08.jpg)
+![](../../assets/2021/09/1994-09-08.jpg)
 
 **1999:** Bruce and the reunited E Street Band play their first of two shows at The Palace of Auburn Hills.
 
 [Watch Video Highlight](https://videopress.com/embed/DjhQvXvh)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1999-09-08.jpg)
+![](../../assets/2020/09/1999-09-08.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1999-09-08a.jpg)
+![](../../assets/2020/09/1999-09-08a.jpg)
 
 **2012:** On Night Two at Wrigley Field, Eddie Vedder and Tom Morello reprise their guest appearances from the night before, and Bruce plays "[This Depression](https://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)" for only the third time ever.
 

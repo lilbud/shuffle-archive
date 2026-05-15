@@ -2,21 +2,21 @@
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1971-09-12.jpg)
+![](../../assets/2019/08/1971-09-12.jpg)
 
 **1975:** Bruce and the E Street Band kick off a week of Texas shows with a show at the Austin Municipal Auditorium.
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Austin, TX 1975-09-12 (Soundboard)](https://www.youtube.com/watch?v=2LuhuZw1KDA)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1975-09-12a.jpg)
+![](../../assets/2020/09/1975-09-12a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1975-09-12b.jpg)
+![](../../assets/2020/09/1975-09-12b.jpg)
 
 **1977:** Bruce holds a recording session for his next album with the E Street Band at The Record Plant in New York City.
 
 **1978:** The Darkness Tour returns to the east coast, starting with this show in Syracuse, where a couple of fans sneak back into the arena after the show and encounter Bruce in the shower.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1978-0912.jpg)
+![](../../assets/2018/09/1978-0912.jpg)
 
 [Watch Video Highlight](https://videopress.com/embed/SLGR7g0C)
 
@@ -24,7 +24,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/cs34IgKs)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1984-0912.jpg)
+![](../../assets/2018/09/1984-0912.jpg)
 
 **2007:** Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park's Convention Hall.
 
@@ -38,9 +38,9 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Racing In The Street - 12 09 09](https://www.youtube.com/watch?v=tuspkjm0vsM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/2009-09-12a.jpg)
+![](../../assets/2021/09/2009-09-12a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/2009-09-12b.jpg)
+![](../../assets/2020/09/2009-09-12b.jpg)
 
 **2013:** The South American leg of the Wrecking Ball Tour kicks off at Movistar Arena in Santiago, Chile, Bruce's first performance in this country. The encores begin with a Spanish-language cover of "[Manifesto](https://estreetshuffle.com/index.php/2021/01/31/cover-me-manifesto/)" by activist Victor Jara, sung by Bruce in Spanish.
 

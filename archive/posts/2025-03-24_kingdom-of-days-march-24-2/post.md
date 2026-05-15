@@ -2,9 +2,9 @@
 
 **1973:** Bruce and the (not yet named) E Street Band play a gig at Niagara University in Lewiston, New York. Meanwhile, a couple of hours away in Ithaca, the local paper publishes a review of Bruce's recently released debut album. Keep an eye on him, the reviewer advises.
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/03/1973-03-24.jpg)
+![](../../assets/2022/03/1973-03-24.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1973-0324.jpg)
+![](../../assets/2018/03/1973-0324.jpg)
 
 **1974:** Bruce and the band perform on a revolving stage at the Celebrity Theater in Phoenix. After the show, Bruce grants a fascinating interview to The Phoenix New Times and Arizona State University. You can listen to it below–it's well worth it.
 
@@ -24,7 +24,7 @@
 
 **1981:** Bruce postpones a scheduled show in Manchester in order to recover from the first two legs of the River Tour.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1981-0318.jpg)
+![](../../assets/2018/03/1981-0318.jpg)
 
 **1983:** In his home studio in Los Angeles, Bruce records "[County Fair](https://estreetshuffle.com/index.php/2018/02/17/roll-of-the-dice-county-fair/)." It will remain unreleased for two decades.
 
@@ -36,7 +36,7 @@
 
 **1995:** Bruce joins The Blasters on stage at the House of Blues in West Hollywood, backing the band on guitar for two numbers. (Photo credit: J. Coke)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/03/1995-0324.jpg)
+![](../../assets/2018/03/1995-0324.jpg)
 
 **2008:** Bruce plays "[You'll Be Comin' Down](https://estreetshuffle.com/index.php/2018/09/03/roll-of-the-dice-youll-be-comin-down/)" for the first and only time when the Magic Tour stops at the Value City Arena in Columbus, Ohio. The set list also features the tour premieres of "[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)" and "[Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)."
 
@@ -44,13 +44,13 @@
 
 [Watch on Youtube: Bruce Springsteen - You'll Be Comin' Down (Live 24-3-2008)](https://www.youtube.com/watch?v=ZhcOV4f3xho)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/03/2008-03-24.jpg)
+![](../../assets/2020/03/2008-03-24.jpg)
 
 **2009:** The second and final rehearsal show for the Working on a Dream Tour features the live premiere of "[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)" at Asbury Park's Convention Hall.
 
 [Watch on Youtube: Kingdom Of Days - Asbury Park 2009](https://www.youtube.com/watch?v=aHGw8t9zoGM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/03/2009-03-24.jpg)
+![](../../assets/2022/03/2009-03-24.jpg)
 
 **2013:** The Australian leg of the Wrecking Ball Tour moves on to Melbourne for the first of three nights at the Rod Laver Arena.
 

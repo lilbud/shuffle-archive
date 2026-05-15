@@ -1,4 +1,4 @@
-![](https://estreetshuffle.com/wp-content/uploads/2022/01/bruce-springsteen-letter-p1-large.gif)
+![](../../assets/2022/01/bruce-springsteen-letter-p1-large.gif)
 
 That was the letter Bruce Springsteen sent when he declined an interview with the *Los Angeles Times* on the occasion of the 50th anniversary of the Fender Stratocaster. There were sides, you see, and Bruce had long ago declared his allegiance to the other camp.
 

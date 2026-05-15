@@ -33,7 +33,8 @@ So maybe that’s why Bruce orphaned the song–it certainly didn’t have a sym
 
 In any event, enjoy this curious historical artifact, because this is one song we’re unlikely to hear played live again.
 
-**I Just Can’t Change****Never recorded**  
+**I Just Can’t Change**
+**Never recorded**
 **Never released**  
 **First performed:** February 4, 1972 (Richmond, VA)  
 **Last performed:** February 4, 1972 (Richmond, VA)

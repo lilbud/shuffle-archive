@@ -2,13 +2,13 @@ It’s time for another dip into the “[1968 Notebook,](https://estreetshuffle.
 
 Somehow, the notebook survived through the years until it was auctioned by one of Bruce’s former roadies in the late 1980s, fetching $57,706.61. Because it was auctioned publicly, fans and collectors were able to get a peek at it. Here’s the table of contents:
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2019/08/1968_lyricsnotebook-contentspage.jpg)
 
 Although we’re not aware of either studio or live recordings of any of these songs, we do have reason to believe that Bruce performed some of not most of them during his solo acoustic gigs that year.
 
 One of those songs is the focus of today’s essay: “A Winter’s Revelation (In 9 Illusions).” It is, arguably, the most poetic song of this collection, and the most daring in its construction and ambition.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/41055111142_a09540350e_o.jpg)
+![](../../assets/2019/08/41055111142_a09540350e_o.jpg)
 
 Unfortunately, though, it seems at the tender age of eighteen, Bruce’s reach on this song exceeded his grasp. To be fair, we’re forced to judge based solely on the lyrics–we do not know what style of accompaniment Bruce intended for these songs–and there are certainly many timeless songs that sound pretentious if recited as poetry rather than sung.
 
@@ -80,7 +80,7 @@ We can clearly see what Bruce was aiming for, and it would have been a neat tric
 But of course we know he would be before long.
 
 **A Winter’s Revelation (In 9 Illusions)**
-Never recorded**
+**Never recorded**
 **Never performed**
 
 Looking for your favorite Bruce song? Check our [full index](https://estreetshuffle.com/index.php/roll-of-the-dice-album-by-album/). New entries every week!

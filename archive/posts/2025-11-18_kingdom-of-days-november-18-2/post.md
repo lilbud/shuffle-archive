@@ -4,13 +4,13 @@
 
 [Watch on Youtube: Hammersmith Odeon, London '75](https://www.youtube.com/playlist?list=OLAK5uy_m2SqNSNM6Rz54ntt97ITEoy3IaiVe6We0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/11/1975-11-18c.jpg)
+![](../../assets/2021/11/1975-11-18c.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/11/1975-11-18d.jpg)
+![](../../assets/2021/11/1975-11-18d.jpg)
 
 **1978:** The Darkness Tour stops in Oxford, Ohio, for a show at Miami University.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/10/1978-11-18.jpg)
+![](../../assets/2019/10/1978-11-18.jpg)
 
 **1984:** Bruce plays his first show in Nebraska since the release of the album by the same name. The *Nebraska* segment of the set list is particularly powerful at this Lincoln show, and "Sugarland" is played for the second and last time to date.
 
@@ -20,17 +20,17 @@
 
 [Watch on Youtube: Bruce Springsteen - Sugarland 1984](https://www.youtube.com/watch?v=8uEkr1sE64s)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1984-11-18a.png)
+![](../../assets/2020/11/1984-11-18a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1984-11-18b.png)
+![](../../assets/2020/11/1984-11-18b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1984-11-18c.png)
+![](../../assets/2020/11/1984-11-18c.png)
 
 **1992:** Bruce brings World Tour 1992 to the Charlotte Coliseum.
 
 [Watch on Youtube: Bruce Springsteen - "Roll of the Dice" - Charlotte, 1992-11-18](https://www.youtube.com/watch?v=kjLvfOFpZMM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/1992-11-18.png)
+![](../../assets/2020/11/1992-11-18.png)
 
 **2003:** Bruce releases his official video document of the Rising Tour, *Live in Barcelona*.
 
@@ -66,25 +66,25 @@
 
 [Watch on Youtube: Jungleland Boston 11 18 07](https://www.youtube.com/watch?v=Jeg_qwEbJ6s)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2007-11-18a.png)
+![](../../assets/2020/11/2007-11-18a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2007-11-18b.png)
+![](../../assets/2020/11/2007-11-18b.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2007-11-18c.png)
+![](../../assets/2020/11/2007-11-18c.png)
 
 **2009:** The Working on a Dream Tour enters its final week with a show at Sommet Center in Nashville, where Bruce once again performs the entire *Born to Run* album in sequence and plays "[Ring of Fire](https://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)" for the first time in 35 years.
 
 [Watch on Youtube: Bruce Springsteen - Nashville, TN 11/18/09](https://www.youtube.com/watch?v=IUaDmax2CxM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2009-11-18.png)
+![](../../assets/2020/11/2009-11-18.png)
 
 **2015:** Bruce performs "American Skin (41 Shots)" with John Legend, Tom Morello, Max, and Roy at *Shining a Light: A Concert for Progress on Race in America* at the Shrine Auditorium in Los Angeles.
 
 [Watch Video Highlight](https://videopress.com/embed/5JaaLIhW)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2015-11-18a.png)
+![](../../assets/2020/11/2015-11-18a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/11/2015-11-18b-1.png)
+![](../../assets/2020/11/2015-11-18b-1.png)
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

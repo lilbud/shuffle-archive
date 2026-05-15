@@ -10,7 +10,7 @@
 
 **1976:** Bruce continues his Chicken Scratch Tour of the south with a show at Louisiana State University in Baton Rouge.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/1976-0508.jpg)
+![](../../assets/2021/05/1976-0508.jpg)
 
 **1981:** Night Two in Stockholm for the original River Tour opens with Bruce’s last known performance of “Run Through the Jungle” and features the European debut of “The Price You Pay.”
 
@@ -22,7 +22,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/FYSJTZ6R)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/05/1982-0508.jpg)
+![](../../assets/2018/05/1982-0508.jpg)
 
 **1992:** MTV’s *Week in Rock* features an interview with Bruce to promote his upcoming tour and *Saturday Night Live* appearance.
 
@@ -38,7 +38,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Straight Time, Madrid, May 8, 1996](https://www.youtube.com/watch?v=VzYVorPmGiE)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/La_Prensa_Mon__May_13__1996_-scaled.jpg)
+![](../../assets/2024/05/La_Prensa_Mon__May_13__1996_-scaled.jpg)
 
 **2000:** Bruce and the E Street band play their second of two shows at the Hartford Civic Center, opening with the first performance of “Roulette” in almost twelve years.
 
@@ -70,11 +70,11 @@
 
 [Watch on Youtube: Springsteen Wooly Bully Penn State U 20090508](https://www.youtube.com/watch?v=Oj5rS8-3xPI)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/Centre_Daily_Times_Sat__May_9__2009_-scaled.jpg)
+![](../../assets/2024/05/Centre_Daily_Times_Sat__May_9__2009_-scaled.jpg)
 
 **2013:** The second Wrecking Ball show in Turku features the live premiere of “[Wages of Sin](https://estreetshuffle.com/index.php/2020/02/07/roll-of-the-dice-wages-of-sin/),” the tour debut of “I’ll Work For Your Love,” and a rare “Ain’t Good Enough for You.” (photo credit: Jan Alin)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/05/jan.jpg)
+![](../../assets/2019/05/jan.jpg)
 
 [Watch on Youtube: Bruce Springsteen - "Wages of Sin" (Turku 05/08/13)](https://www.youtube.com/watch?v=cVVeytSe2wc)
 
@@ -102,9 +102,9 @@
 
 [Watch on Youtube: I Don't Want To Go Home Bruce Springsteen & Little Steven Paramount Theater Asbury Park, NJ 5/8/2019](https://www.youtube.com/watch?v=moICCVDSiXM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2019-05-08a.jpg)
+![](../../assets/2020/05/2019-05-08a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2019-05-08b.jpg)
+![](../../assets/2020/05/2019-05-08b.jpg)
 
 **2021:** Bruce joins Nona Hendryx and Lauren Onkey on a panel discussion about the work and impact of Dave Marsh.
 

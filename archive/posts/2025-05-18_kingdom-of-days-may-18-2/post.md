@@ -24,17 +24,17 @@
 
 [Watch Video Highlight](https://videopress.com/embed/wgaIRIkq)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/Evening_Standard_Wed__May_19__1999_.jpg)
+![](../../assets/2024/05/Evening_Standard_Wed__May_19__1999_.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/05/Fulham_and_Hammersmith_Chronicle_Thu__May_20__1999_.jpg)
+![](../../assets/2024/05/Fulham_and_Hammersmith_Chronicle_Thu__May_20__1999_.jpg)
 
 **2002:** Bruce attends the opening dedication ceremony for Freehold's Vinyard Park to honor his early patron and supporter, "Tex" Vinyard.
 
 [Watch on Youtube: Vinyard Park](https://www.youtube.com/watch?v=NewO6pq-crY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2002-05-18a.jpg)
+![](../../assets/2021/05/2002-05-18a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/05/2002-05-18b.jpg)
+![](../../assets/2021/05/2002-05-18b.jpg)
 
 **2009:** Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: "[Little Latin Lupe Lu](https://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)," "Hava Nagila"(!) and "[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)."
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Uncasville 18/05/2014](https://www.youtube.com/playlist?list=PLJTyL9twk3zDcaFCLVTGt5NOWzCCd0YRQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2014-05-18.jpg)
+![](../../assets/2020/05/2014-05-18.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 

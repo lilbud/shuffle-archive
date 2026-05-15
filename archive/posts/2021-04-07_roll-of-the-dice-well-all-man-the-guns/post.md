@@ -74,10 +74,10 @@ But then again, the kid was only twenty years old, and sometimes a cigar is just
 
 Until and unless Bruce decides to talk about this lost early song (an unlikely prospect), we’ll just have to settle for speculation.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/04/allmangunslyrics.png)
+![](../../assets/2021/04/allmangunslyrics.png)
 
 **We’ll All Man the Guns**
-Never recorded**
+**Never recorded**
 **Never released**
 **First performed:** August 14, 1970 (Richmond, VA)
 **Last performed:** August 14, 1970 (Richmond, VA)

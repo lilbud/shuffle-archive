@@ -32,11 +32,11 @@ Despite having been around Bruce & The E Street Band since the early '70s, I'd n
 
 To me, especially that evening, it’s about the fans. There's little hope to capture the power of their performance with just one iPhone but with the right credentials (that they graciously provided me) you can indeed mill around and take in Bruce and the band’s pre-show backstage “meet & greets” as well as roam the arena from behind and in front of the stage during the show.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/zurich2.jpg)
+![](../../assets/2020/07/zurich2.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/zurich1.jpg)
+![](../../assets/2020/07/zurich1.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/sa-rotated.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2020/07/tattoo-rotated.jpg)
+![](../../assets/2020/07/tattoo-rotated.jpg)
 
 [Watch Video Highlight](https://videopress.com/embed/H6u1ZD5c)
 

@@ -24,15 +24,15 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 [Watch on Youtube: Bruce Springsteen August 15, 1985 Philadelphia](https://www.youtube.com/watch?v=m8p5z71YIrY)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15a.png)
+![](../../assets/2020/08/1985-08-15a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/1985-08-15b.png)
+![](../../assets/2020/08/1985-08-15b.png)
 
 **2002:** Bruce brings the Rising Tour to Detroit for one night at The Palace of Auburn Hills, where the set list remains unchanged for the fourth consecutive show–but that's about to change.
 
 [Watch on Youtube: Auburn Hill 15/08/2002](https://www.youtube.com/playlist?list=PLJTyL9twk3zAlYkHYg8qYNezIwJuhOkB3)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/2002-08-15.png)
+![](../../assets/2020/08/2002-08-15.png)
 
 **2008:** The Magic Tour enters its final month with a return to indoor arenas, starting with this show in Jacksonville. Bruce tour premieres "[You Can't Sit Down](https://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)," played for the first time in almost a decade, as well as "[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)."
 
@@ -52,7 +52,7 @@ There's no audio from the late show, and that's too bad: it features the last kn
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. In attendance tonight: Gloria Steinem.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/gloriasteinem.jpg)
+![](../../assets/2019/08/gloriasteinem.jpg)
 
 [Watch Video Highlight](https://videopress.com/embed/8Air139W)
 

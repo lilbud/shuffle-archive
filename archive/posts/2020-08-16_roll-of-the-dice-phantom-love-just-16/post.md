@@ -6,7 +6,7 @@ The song appears to have multiple titles: at the top of the page is “Daddy Lon
 
 Only the “phantom love” phrase appears in the lyrics themselves, though, so let’s assume that the “daddy long legs/baby son” is an orphan.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/08/phantomlove_lyrics.jpg)
+![](../../assets/2020/08/phantomlove_lyrics.jpg)
 
 “Phantom Love (Just 16)” is a bit tough to analyze, because it seems very much like a work in progress. There are no chord notations to give us a sense of its musicality, but the lack of obvious meter or external rhyme scheme suggests that it was probably a slower song (if a song at all).
 
@@ -32,7 +32,7 @@ That’s all we get. As far as we know, “Phantom Love (Just 16)” never evolv
 We’ll chalk this one up to a songwriter’s experiment, one of what must be countless hidden away in the pages of Bruce’s decades of notebooks.
 
 **Phantom Love (Just 16)**
-Never recorded**
+**Never recorded**
 **Never released**
 **Never performed**
 

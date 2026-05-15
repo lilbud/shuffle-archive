@@ -1,10 +1,10 @@
 **1967:** Bruce Springsteen graduates from Freehold Borough High School. He does not attend, however, but instead picks up his diploma later.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1967-0619.jpg)
+![](../../assets/2018/06/1967-0619.jpg)
 
 **1968:** The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1968-0619.jpg)
+![](../../assets/2018/06/1968-0619.jpg)
 
 **1970:** Steel Mill takes a trip down to Richmond, where they play the first of two nights at The String Factory. The set list includes a twenty-minute “Garden State Parkway Blues” and the only known performance of “Where Was Jesus in Ohio?”
 
@@ -14,9 +14,9 @@
 
 **1971:** The Sundance Blues Band plays the Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1971-06-19.jpg)
+![](../../assets/2020/06/1971-06-19.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1971-0619.jpg)
+![](../../assets/2018/06/1971-0619.jpg)
 
 **1974:** Bruce cancels a scheduled date at the Cowtown Ballroom in Kansas City.
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-Pi4xwctX_o)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/2006-06-19.jpg)
+![](../../assets/2021/06/2006-06-19.jpg)
 
 **2012:** The Wrecking Ball Tour stops in Montpellier, where Bruce and the band tour premiere “Growin’ Up” and “Fire.”
 
@@ -102,4 +102,4 @@
 
 Bruce then played “The Ghost of Tom Joad” in place of “Long Walk Home” to drive home his message. The set list change will stick. In attendance tonight: Christina Aguilera.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/2018-06-19.png)
+![](../../assets/2021/06/2018-06-19.png)

@@ -2,17 +2,17 @@ It's time for another visit to the "[1968 Notebook](https://estreetshuffle.com/?
 
 The 1968 Notebook was unveiled at an auction in 2006. where it was snapped up for more than $57,000 by a lucky bidder with some very deep pockets. It contains some of Bruce's earliest songwriting exercises.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/1968_lyricsnotebook.jpg)
+![](../../assets/2019/01/1968_lyricsnotebook.jpg)
 
 Today’s entry is buried deep in the heart of the notebook, and it reads more like a newspaper article than a song–an article that could just as easily be printed today, more than a half century later. Let’s take a look at the eleventh entry in Bruce’s notebook: “Death of a Good Man,” dated April 30, 1968.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/01/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2019/01/1968_lyricsnotebook-contentspage.jpg)
 
 It’s June of 2019 as I write this, in an American society that has become inured to mass shootings. In 1968, they were a lot less common, and yet Bruce–barely past his childhood–managed to capture the confusion we all feel when we learn a heretofore upstanding member of the community had been harboring a simmering rage.
 
 Bruce writes sparingly, without a trace of metaphor, and his rhyming dictionary is missing in action. If you’re at all familiar with his early pre-label work, you’ll appreciate what a departure this was for him even then.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/deathofagoodman_lyrics.jpg)
+![](../../assets/2019/07/deathofagoodman_lyrics.jpg)
 
 The title of the song is a feint, as is the first verse. Bruce leads us to believe that the song is about an innocent man gunned down for being in the wrong place at the wrong time.
 

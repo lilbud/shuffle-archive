@@ -4,7 +4,7 @@ I hope you’re enjoying your summer so far (or winter, for those of you down un
 
 It’s been a while since I’ve written one of these updates, and as this blog’s readership has grown so has the volume of incoming mail. I love hearing from you guys, and I do my best to reply to each and every letter I receive. I’ve noticed a few common themes of late, though, so I thought I’d address a few of them here.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/mailbox.jpg)
+![](../../assets/2019/07/mailbox.jpg)
 
 By *far*, the most frequent question I’ve been asked over the last month is: **“Hey Ken, when are you going to review *Western Stars?”***
 
@@ -14,7 +14,7 @@ But: if you’re wondering about “[Western Stars](https://estreetshuffle.com/i
 
 As soon as the album came out, I entered all the songs in my master spreadsheet of songs I haven’t yet written about, so as soon as the Google randomizer picks one of them for me to write about, that’s when I’ll do it.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/xls.jpg)
+![](../../assets/2019/07/xls.jpg)
 
 (Yes, that’s still how I plan out my content–I have every song Bruce has ever written, recorded, or covered in a master spreadsheet, and I’m whittling it down one by one, day by day. As you can see above, I have 1,026 days left to go, not including covers that other artists do of Bruce songs–that’s a whole separate list.)
 
@@ -32,7 +32,7 @@ Okay, that’s actually not a common one. But it should be, because *yes!*
 
 The kind folks at Rutgers University Press sent me an advance copy of a new book releasing in September, and you should absolutely pre-order it right now, wherever you pre-order your books.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/lwh.jpg)
+![](../../assets/2019/07/lwh.jpg)
 
 *Long Walk Home* will be in bookstores on September 23rd, and that release date was very deliberately chosen.
 

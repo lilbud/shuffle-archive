@@ -1,4 +1,4 @@
-![](https://estreetshuffle.com/wp-content/uploads/2019/06/twitter.jpg)
+![](../../assets/2019/06/twitter.jpg)
 
 I often get asked about my favorite Springsteen song, and I agonize over it each and every time. My answer tends to vary by the day. Bruce’s catalog is too vast and too stellar to latch onto any one song as an ultimate favorite.
 

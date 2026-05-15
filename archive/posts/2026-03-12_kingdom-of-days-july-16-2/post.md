@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/8V1HMlo9)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1981-07-16.jpg)
+![](../../assets/2021/07/1981-07-16.jpg)
 
 **1983:** Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including “Lucille,” “Wooly Bully,” and “Keep-a-Knockin’.”
 
@@ -28,27 +28,27 @@
 
 **1984:** On a night off in between Born in the U.S.A. shows in Chicago, Bruce is spotted playing pinball at a local bar.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1984-07-16.png)
+![](../../assets/2020/07/1984-07-16.png)
 
 **1994:** Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including “I Played the Fool,” “Funky Broadway,” and “Jersey Girl.”
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ytSVHBMmYqg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1994-07-16.jpg)
+![](../../assets/2020/06/1994-07-16.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/1994-0716.jpg)
+![](../../assets/2018/07/1994-0716.jpg)
 
 **1998:** At a Sony trade show in Miami, Bruce announces an upcoming box set of unreleased tracks.
 
 **2002:** Bruce and the E Street Band rehearse for the upcoming Rising Tour.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/07/rehearsal.jpg)
+![](../../assets/2019/07/rehearsal.jpg)
 
 **2005:** The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres “Does This Bus Stop at 82nd Street” for the occasion.
 
 [Watch Video Highlight](https://videopress.com/embed/bYjdK3w0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/2005-07-16.jpg)
+![](../../assets/2021/07/2005-07-16.jpg)
 
 **2009:** Bruce and the band bring the Working on a Dream Tour to Carhaix, France. The show is partially broadcast on French radio–listen to excerpts below:
 
@@ -82,8 +82,8 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uh_QQl1Xm_o)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/07/circus-1.jpg)
+![](../../assets/2025/07/circus-1.jpg)
 
 **2021:** *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City. In attendance tonight: John Mellencamp and Clark Gayton.
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/07/mellen.jpg)
+![](../../assets/2022/07/mellen.jpg)

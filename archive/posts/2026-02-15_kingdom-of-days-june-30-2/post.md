@@ -8,13 +8,13 @@
 
 [Watch Video Highlight](https://videopress.com/embed/yj24Luyp)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1978-0630.jpg)
+![](../../assets/2018/06/1978-0630.jpg)
 
 **1985:** Night Two in Paris on the Born in the U.S.A. Tour features the last performance of “[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)” in its original arrangement for 23 years.
 
 [Watch Video Highlight](https://videopress.com/embed/HCJT03pP)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Press_of_Atlantic_City_1985_07_07_55.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Press_of_Atlantic_City_1985_07_07_57.jpg)
+![](../../assets/2024/06/Press_of_Atlantic_City_1985_07_07_57.jpg)
 
 **1989:** Bruce makes a guest appearance with Jackson Browne at Bally’s Atlantic City casino, playing “[S](https://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)t[ay](https://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/),” “Running on Empty,” and “Sweet Little Sixteen.”
 
@@ -24,9 +24,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KZjA-f-jhIw)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1989-06-30.jpg)
+![](../../assets/2021/06/1989-06-30.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Press_of_Atlantic_City_1989_07_04_21-scaled.jpg)
+![](../../assets/2024/06/Press_of_Atlantic_City_1989_07_04_21-scaled.jpg)
 
 **1992:** Elliott Murphy guest stars at Bruce’s second night in Paris for World Tour 1992, performing Bruce’s only known performance of “Rock Ballad.”
 
@@ -38,7 +38,7 @@
 
 **2005:** In today’s installment of *Legends of Springsteen*, Bruce plays six songs to airport staff in the middle of the night during a brief connecting layover in Iceland on the way home from his European solo acoustic tour. This is Bruce’s only “performance” in Iceland to date.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/2005-0630.jpg)
+![](../../assets/2018/06/2005-0630.jpg)
 
 **2009:** Bruce and the E Street Band tour premiere “Atlantic City” and “I Fought the Law” at their Working on a Dream show in Bern, Switzerland.
 
@@ -64,11 +64,11 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=x7lfzARGXGw)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/2013-06-30-scaled.jpg)
+![](../../assets/2021/06/2013-06-30-scaled.jpg)
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Kylie Minogue and Amber Heard are in attendance tonight.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/06/amber.jpg)
+![](../../assets/2019/06/amber.jpg)
 
 **2021:** Bruce releases the 24th installment of his E Street Radio show, *From My Home to Yours*, entitled “Night Time is the Right Time.”
 
@@ -78,7 +78,7 @@
 
 That evening, *Springsteen on Broadway* continues its return engagement at the St. James Theater in New York City, and Jon Stewart, Patti Hansen, and Michael Kors are in attendance.
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-0630a.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-0630b.jpg)
+![](../../assets/2022/06/2021-0630b.jpg)
 
 **2023:** Bruce and the E Street Band bring their world tour to Oslo, where Bruce gets a little too close to the microphone at the start of “Thunder Road.”
 

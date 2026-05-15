@@ -1,6 +1,6 @@
 **1973:** Bruce and his band open for Chicago at the Civic Center in Springfield.
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/06/The_Morning_Union_1973_06_11_4.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/06/The_Republican_1973_06_11_11-scaled.jpg)
+![](../../assets/2025/06/The_Republican_1973_06_11_11-scaled.jpg)
 
 **1977:** Bruce and the E Street Band hold recording sessions for what will become *Darkness on the Edge of Town* at Atlantic Studios in New York City.
 
@@ -10,9 +10,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LH4de0n_t9U)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-06-10a.jpg)
+![](../../assets/2020/05/1978-06-10a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/1978-06-10b.jpg)
+![](../../assets/2020/05/1978-06-10b.jpg)
 
 **1983:** Bruce and the E Street Band record “Richfield Whistle” at The Hit Factory in New York City. It won’t be released for more than forty years.
 
@@ -44,7 +44,7 @@ Also on this date in 2003: the BBC premieres a three-part series narrated by Joh
 
 [Watch Video Highlight](https://videopress.com/embed/opayhzP9)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/05/2006-06-10.jpg)
+![](../../assets/2020/05/2006-06-10.jpg)
 
 **2009:** At Night Two in Bergen on the Working on a Dream Tour, Bruce treats Norwegian fans to the tour premieres of “Boom Boom” and “Two Hearts.”
 

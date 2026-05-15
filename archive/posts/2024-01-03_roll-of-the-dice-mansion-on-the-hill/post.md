@@ -12,7 +12,7 @@ And oh, what a home. He hired the best builders available from back in Chicago a
 
 The finished three-story, red brick Victorian home had ten-foot ceilings, sixteen-inch thick walls, two hand-carved cherry fireplaces, beautiful walnut windows, two in-home bathrooms (almost unheard of at the time), running water with a reservoir, and a plethora of beautiful and tasteful touches throughout.
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/03/170628_Mansion-on-the-Hill_Ogallala_AJD_9331-2-scaled-1.jpg)
+![](../../assets/2022/03/170628_Mansion-on-the-Hill_Ogallala_AJD_9331-2-scaled-1.jpg)
 
 Situated at the hilltop corner of 10th and Spruce Streets, the Mansion on the Hill (as it came to be called) loomed over the town of Ogallala as a symbol of luxury and prosperity. Satisfied that he’d built the perfect wedding house, he returned to Chicago to share the news with his beloved.
 

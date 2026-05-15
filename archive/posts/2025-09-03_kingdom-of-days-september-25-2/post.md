@@ -2,7 +2,7 @@
 
 **1971:** The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1971-0917.jpg)
+![](../../assets/2018/09/1971-0917.jpg)
 
 **1975:** Bruce and the E Street Band bring the Born to Run Tour to the Auditorium Theater in Chicago. Check out video from the show below, but note that the footage was shot on Super-8 film and is silent.
 
@@ -10,11 +10,11 @@
 
 [Watch on Youtube: 8mm Concert Footage - Chicago - Bruce Springsteen/Genesis/Roxy Music - 1974/75](https://www.youtube.com/watch?v=9NqlQ5-fzE8)
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/09/1975-09-25.jpg)
+![](../../assets/2019/09/1975-09-25.jpg)
 
 **1978:** Bruce brings the Darkness Tour to Boston for a single show at Boston Garden.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1978-0925.jpg)
+![](../../assets/2018/09/1978-0925.jpg)
 
 **1982:** Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park. At the end of their set, the band sings “Happy Birthday” to the newly 33-year-old Bruce.
 
@@ -24,15 +24,15 @@
 
 [Watch Video Highlight](https://videopress.com/embed/D5KXaY9y)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/09/1984-0925.jpg)
+![](../../assets/2018/09/1984-0925.jpg)
 
 **1987:** Bruce makes a surprise guest appearance with U2 at their JFK Stadium show in Philadelphia. Their performance of “[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)” is professionally filmed for the band’s *Rattle and Hum* documentary but does not make the final cut. Both local papers cover Bruce’s surprise guest appearance but I suspect only one of them actually witnessed it. (Guess which one.)
 
 [Watch on Youtube: Bruce Springsteen & U2 Bono - Stand By Me Philadelphia 25 09 1987](https://www.youtube.com/watch?v=IYP0MprfnVU)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1987-09-25b.jpg)
+![](../../assets/2020/09/1987-09-25b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1987-09-25a.jpg)
+![](../../assets/2020/09/1987-09-25a.jpg)
 
 **1992:** Bruce and his new touring band play their second of three World Tour 1992 shows at the L.A. Sports Arena.
 
@@ -56,11 +56,11 @@
 
 [Watch on Youtube: Point Blank (Live at First Union Center, Philadelphia, PA - 9/25/1999)](https://www.youtube.com/watch?v=IQoWUCgQ424)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1999-09-25a.jpg)
+![](../../assets/2020/09/1999-09-25a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/09/1999-09-25b.jpg)
+![](../../assets/2021/09/1999-09-25b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/1999-09-25c.jpg)
+![](../../assets/2020/09/1999-09-25c.jpg)
 
 **2002:** Eddie Vedder makes his first-ever appearance with Bruce when the Rising Tour stops at Chicago’s United Center. Bruce and Eddie sing the tour premiere of “[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)” together; Bruce also tour premieres “[Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” and “[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/).”
 
@@ -70,7 +70,7 @@
 
 [Watch on Youtube: Bruce Springsteen Ramrod Chicago 25/09/2002](https://www.youtube.com/watch?v=lKr6n6HqeLo)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/09/2002-09-25.jpg)
+![](../../assets/2020/09/2002-09-25.jpg)
 
 **2003:** The Rising Tour makes a final western stop at Denver’s Invesco Field, where Bruce opens the show with Bob Seger’s “[Get Out of Denver](https://estreetshuffle.com/index.php/2019/07/11/cover-me-get-out-of-denver/).”
 

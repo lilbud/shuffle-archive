@@ -8,7 +8,7 @@
 
 After the interview, Bruce asks Mary out on a date–and tomorrow night he’ll sweeten the offer with a song dedication. But in the meantime, a loose Bruce, Clarence and Garry hit the town and leave their mark–literally–on a Sunset Strip billboard:
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/07/040778-billboard-e1530310972459.jpg)
+![](../../assets/2018/07/040778-billboard-e1530310972459.jpg)
 
 **1979:** Bruce and the E Street Band complete “The Man Who Got Away” at the Power Station in New York City. It will languish in the vault for 36 years.
 
@@ -16,7 +16,7 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he’ll 
 
 **1983:** Bruce spends the holiday on the water: friend and fan Obie Dziedzic charters the 70-foot *Atlantis* for a three hour cruise for Bruce, the band, and members of Bruce’s gym. After watching the fireworks over Asbury Park, Bruce and company head to The Stone Pony.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1983-07-04.jpg)
+![](../../assets/2020/07/1983-07-04.jpg)
 
 **1985:** At a rare July 4th concert, Bruce opens his second of three nights at London’s Wembley Stadium with an acoustic “Independence Day,” and Little Steven once again joins the band during the encore.
 
@@ -26,9 +26,9 @@ After the interview, Bruce asks Mary out on a date–and tomorrow night he’ll 
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Tw-KDhmlE5k)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/07/1985-07-04.jpg)
+![](../../assets/2021/07/1985-07-04.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/07/The_Courier_Journal_1985_07_03_Page_27-scaled.jpg)
+![](../../assets/2024/07/The_Courier_Journal_1985_07_03_Page_27-scaled.jpg)
 
 **1992:** Bruce and his new touring band play their second night at Plaza Monumental in Barcelona.
 

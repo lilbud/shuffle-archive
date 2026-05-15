@@ -1,10 +1,10 @@
 **1962:** Adele Springsteen takes Bruce and Ginny to their first-ever rock concert when Chubby Checker plays at Steel Pier in Atlantic City. She also takes them to see Anita Bryant that evening. Bruce enjoys the afternoon show a lot more than the evening show.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1962-0629.jpg)
+![](../../assets/2018/06/1962-0629.jpg)
 
 **1968:** The Castiles play a show at Hullabaloo in Freehold, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1968-06-29.jpg)
+![](../../assets/2021/06/1968-06-29.jpg)
 
 **1972:** Richard Davis records his upright bass overdubs for “The Angel” at 914 Sound Studios in New York City.
 
@@ -18,7 +18,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/e0eKZI7h)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1978-0629.jpg)
+![](../../assets/2021/06/1978-0629.jpg)
 
 **1983:** Bruce and the E Street Band record “My Hometown” at The Hit Factory in New York City.
 
@@ -40,11 +40,11 @@ In the setlist, a couple of notable moments: Bruce covers “Street Fighting Man
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_VQiGVKbLok)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-06-29a.jpg)
+![](../../assets/2020/06/1984-06-29a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-06-29b.jpg)
+![](../../assets/2020/06/1984-06-29b.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1984-06-29.jpg)
+![](../../assets/2020/06/1984-06-29.jpg)
 
 **1985:** The Born in the U.S.A. Tour arrives in Paris for the first of two nights at Parc de la Courneuve. The show was captured in stunning (for the time) video and audio quality.
 
@@ -56,7 +56,7 @@ In the setlist, a couple of notable moments: Bruce covers “Street Fighting Man
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1CoG7ABoOG_ENRC4fVWaMDj)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/The_Herald_News_1985_07_01_10.jpg)
+![](../../assets/2024/06/The_Herald_News_1985_07_01_10.jpg)
 
 Meanwhile, “Glory Days,” Bruce’s latest single, climbs the charts and is profiled on *American Top 40*.
 
@@ -70,7 +70,7 @@ Meanwhile, “Glory Days,” Bruce’s latest single, climbs the charts and is p
 
 **1989:** Bruce plays a 20-minute-long “Twist and Shout” with The Fabulous Greaseband at The Headliner in Neptune, New Jersey.
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Asbury_Park_Press_1989_07_09_Page_135-scaled.jpg)
+![](../../assets/2024/06/Asbury_Park_Press_1989_07_09_Page_135-scaled.jpg)
 
 **1990:** Bruce records “Seven Angels” at Oceanway Studios in Los Angeles.
 
@@ -80,11 +80,11 @@ Meanwhile, “Glory Days,” Bruce’s latest single, climbs the charts and is p
 
 [Watch Video Highlight](https://videopress.com/embed/3NLub5G0)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/The_Jersey_Journal_1992_07_01_24-scaled.jpg)
+![](../../assets/2024/06/The_Jersey_Journal_1992_07_01_24-scaled.jpg)
 
 **1993:** Bruce and Patti publicly reveal that their third child is on the way.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1993-06-29.jpg)
+![](../../assets/2020/06/1993-06-29.jpg)
 
 **2000:** Bruce and the E Street Band play their penultimate Reunion show at Madison Square Garden, their ninth show of this final MSG stand. Several songs from this show are recorded, filmed, and eventually released on *Live in New York City.*
 
@@ -96,9 +96,9 @@ Meanwhile, “Glory Days,” Bruce’s latest single, climbs the charts and is p
 
 **2004:** Bruce discovers a painting of himself by local high school student Michael Antrim, who submitted it for (and won) an art contest held by the Freehold Library two years prior. Bruce heads over to Michael’s house in Red Bank to sign it. Learning that Michael plays guitar, he spends time playing with him–about 90 minutes in total spent at the boy’s house.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/2004-0629.jpg)
+![](../../assets/2018/06/2004-0629.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Asbury_Park_Press_2004_05_16_Page_47-scaled.jpg)
+![](../../assets/2024/06/Asbury_Park_Press_2004_05_16_Page_47-scaled.jpg)
 
 **2008:** The Magic Tour heads north for a Scandinavian leg, starting with a show at Parken Stadium in Copenhagen.
 
@@ -126,7 +126,7 @@ Meanwhile, “Glory Days,” Bruce’s latest single, climbs the charts and is p
 
 **2021:** It’s Night Two for the return engagement of *Springsteen on Broadway,* and Bob Seger is in attendance.
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-29.jpg)
+![](../../assets/2022/06/2021-06-29.jpg)
 
 **2024:** Bruce and the E Street Band tour debut “Seven Nights to Rock” on Night Two in Nijmegen in The Netherlands.
 

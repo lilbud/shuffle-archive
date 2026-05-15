@@ -37,11 +37,11 @@ Each volume is 8.5 x 11 inches in full color on high-quality paper, with a matte
 
 Here's a sneak peek of what I mean, from the first volume of *Roll of the Dice:*
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/11/Screenshot-2025-11-05-105251.jpg)
+![](../../assets/2025/11/Screenshot-2025-11-05-105251.jpg)
 
 ...and here's an example of a daily entry from Volume 1 of *Kingdom of Days.* (Not final copy or layout yet.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/11/Screenshot-2025-11-05-105839.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/11/Screenshot-2025-11-05-105916.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2025/11/Screenshot-2025-11-05-105859.jpg)
+![](../../assets/2025/11/Screenshot-2025-11-05-105859.jpg)
 
 The *Roll of the Dice* series in particular is everything I ever hoped it would be. Each volume will feature an Album Guide, the original ROTD essays for each track, the ROTD essays for that album's outtakes, and "bonus" pages featuring notable covers by other artists.
 

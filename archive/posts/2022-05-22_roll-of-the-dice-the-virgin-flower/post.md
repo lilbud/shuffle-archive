@@ -2,11 +2,11 @@ We continue working our way through Bruce Springsteen’s “[1968 Notebook](htt
 
 If you need a primer, the 1968 Notebook contains 20 songs written by Bruce in his formative years, and we only know about its existence because it went up for public auction back in 2006, with scans made available for potential bidders to inspect.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1968_lyricsnotebook-contentspage.jpg)
+![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
 
 Today’s entry is called “The Virgin Flower,” and it’s both one of the lengthiest entries in the notebook (clocking in at three pages) and one of the most difficult to transcribe let alone interpret, due to the resolution of the scans and the quality of the eighteen-year-old’s handwriting.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/thevirginflower_lyrics.jpg)
+![](../../assets/2021/06/thevirginflower_lyrics.jpg)
 
 Still, the good folks at Springsteenlyrics.com made a valiant attempt. Enough passages are legible to get a sense of the song, but too many are illegible or (I’m pretty certain) incorrectly transcribed for us to reliably or confidently interpret.
 
@@ -65,7 +65,7 @@ About all we can say with some confidence about “The Virgin Flower” is that 
 Beyond that, I think we’d need a closer look at clearer lyrics in order to grok what young Bruce was reaching for–and since the notebook is reportedly in the hands of a private collector, maybe we’ll yet get a chance to see it for ourselves someday.
 
 **The Virgin Flower**
-Never recorded**
+**Never recorded**
 **Never released**
 **Never performed**
 

@@ -4,7 +4,7 @@ Technically, “Faster and Louder” qualifies for a *Meeting Across the River* 
 
 Bruce was a big fan of the influential punk band’s first two albums–in fact, he once wore a Dictators tee shirt on stage and dedicated “Born to Run” to them.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/03/dictators-bruce.jpg)
+![](../../assets/2019/03/dictators-bruce.jpg)
 
 So when it turned out the band was recording their third album in the same building where Bruce was mixing *Darkness on the Edge of Town*, Bruce stopped by for a visit and ended up on vinyl.
 

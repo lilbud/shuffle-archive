@@ -2,7 +2,7 @@
 
 **1971:** The Sundance Blues Band plays a gig at the Student Prince in Asbury Park.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/1971-0627.jpg)
+![](../../assets/2018/06/1971-0627.jpg)
 
 **1972:** It's a big day in the studio for Bruce: he records "[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)," "[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)," "[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)," "[Does This Bus Stop at 82nd Street](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)," "Visitation at Fort Horn," "[Lady and the Doctor](https://estreetshuffle.com/index.php/2020/09/08/roll-of-the-dice-lady-and-the-doctor/)," and "[Arabian Nights](https://estreetshuffle.com/index.php/2021/03/23/roll-of-the-dice-arabian-nights/)," the last three of which remain unreleased to this day.
 
@@ -34,7 +34,7 @@
 
 **1994:** Bruce gets on stage at the West Hollywood House of Blues and performs six songs with Sacred Hearts, Danny Federici's post-E Street band.
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1994-06-27.jpg)
+![](../../assets/2020/06/1994-06-27.jpg)
 
 **1999:** Bruce and the E Street Band wrap up the European leg of their Reunion Tour at Valle Hovin Stadion in Oslo.
 
@@ -74,7 +74,7 @@ Bruce opens his own set with his first and only performance of "[Coma Girl,](htt
 
 [Watch on Youtube: Waitin' on a Sunny Day - Bruce Springsteen (live at Glastonbury Festival, 2009)](https://www.youtube.com/watch?v=uavOZjhM3bs?list=PLICA5nlm9kbLgpvIe6K4a8o6JJIfyCsqQ)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/The_Independent_2009_06_29_10.jpg)
+![](../../assets/2024/06/The_Independent_2009_06_29_10.jpg)
 
 **2016:** Night Two (of three) at Gothenburg's Ullevi opens with the tour premiere of "[Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)" and features two additional tour premieres ("[Jole Blon](https://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)" and "[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)") in the set as well. This show is available to stream or purchase [here](https://live.brucespringsteen.net/live-music/0,14119/Bruce-Springsteen-mp3-flac-download-6-27-2016-Ullevi-Stadium-Goteborg-SE.html).
 

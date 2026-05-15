@@ -103,7 +103,7 @@ While I certainly wouldn’t have swapped it with any of the songs that did make
 
 Bruce seemed to think so as well–at least for a while, because “Janey Needs a Shooter” was included in early track listings not just for his second album but for his third as well. (Session logs indicate that the E Street Band recorded a full-band arrangement in 1974.)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/brttracks.png)
+![](../../assets/2020/07/brttracks.png)
 
 “Janey Needs a Shooter” did not make *Born to Run,* of course, and after missing two consecutive albums, that might have been the end of the story.
 

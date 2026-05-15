@@ -1,6 +1,6 @@
 **1949:** Steel Mill member Robbin Thompson is born.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/06/robbin.jpg)
+![](../../assets/2018/06/robbin.jpg)
 
 **1974:** Under record label pressure to release a new single, Bruce cancels a scheduled performance at Houston’s Music Hall.
 
@@ -12,7 +12,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/MGKx3kdr)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/1978-06-16.jpg)
+![](../../assets/2020/06/1978-06-16.jpg)
 
 **1983:** At The Hit Factory in New York City, Bruce records both “Stand On It” and “Janey Don’t You Lose Heart.”
 
@@ -60,7 +60,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/BuKjUSBn)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/06/2006-06-16.jpg)
+![](../../assets/2020/06/2006-06-16.jpg)
 
 **2008:** The Magic Tour stops at LTU Arena in Dusseldorf, where power outages interrupt the show twice during the opening songs.
 

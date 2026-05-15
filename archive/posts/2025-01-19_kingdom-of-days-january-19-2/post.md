@@ -1,12 +1,12 @@
 **1973:** Bruce opens for the Paul Winter Consort for the second of four nights at My Father's Place on Long Island.
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/1973-0118.jpg)
+![](../../assets/2018/01/1973-0118.jpg)
 
 **1974:** Bruce and the band open for Black Oak Arkansas at Kent State University, and the school's reviewer does not have a particularly good time. After the show, Bruce attends a house party at the residence of the [student responsible for bringing Bruce to campus](https://patch.com/ohio/kent/bp--bruce-springsteens-1974-party-in-kent-ohio). In a torn jacket and boots with holes, Bruce says to another student, "man we've been at this a long time, I just hope we can keep the band together a little while longer, I think we are getting close."
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/1974-0119a.jpg)
+![](../../assets/2018/01/1974-0119a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2018/01/1974-0119b.jpg)
+![](../../assets/2018/01/1974-0119b.jpg)
 
 **1975:** Bruce guests with Southside Johnny and Steve Van Zandt's Blackberry Booze Band at the Stone Pony in Asbury Park.
 
@@ -28,9 +28,9 @@
 
 [Watch on Youtube: 20/20 Story on 3M Plant Closing - February 27, 1986](https://www.youtube.com/watch?v=GvfAtxd2-7w)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/1986-01-19a.png)
+![](../../assets/2021/01/1986-01-19a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/1986-01-19b.png)
+![](../../assets/2021/01/1986-01-19b.png)
 
 **2009:** NPR begins streaming Bruce's upcoming album, *Working on a Dream,* for free for one week prior to its release. Meanwhile, Bruce tries his hand at being a DJ on E Street Radio, playing some of his favorite contemporary releases for listeners.
 
@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Take It Easy (Live at the United Center, Chicago, IL - 01/19/16 - Official Audio)](https://www.youtube.com/watch?v=5Wwu-9HgQOg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/01/Chicago_Tribune_2016_01_21_Page_4_7-1.jpg)
+![](../../assets/2025/01/Chicago_Tribune_2016_01_21_Page_4_7-1.jpg)
 
 **2017:** Bruce and the E Street Band rehearse in Perth for the kick-off of their Australian summer tour.
 

@@ -8,11 +8,11 @@
 
 **1973:** Bruce and the E Street Band open for Chicago at the Onondaga County War Memorial Auditorium in Syracuse, New York. The local paper mis-identifies Bruce, and they aren’t even close: somehow, they refer to him as “Bris Christy.” Mr. Reschke didn’t do so well with the song titles, either. See if you can figure out the songs Bruce actually played below.
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/06/Syracuse_Herald_Journal_1973_06_08_16-scaled.jpg)
+![](../../assets/2025/06/Syracuse_Herald_Journal_1973_06_08_16-scaled.jpg)
 
 **1976:** Bruce and most of the E Street Band join Southside Johnny and The Asbury Jukes on stage at a private party for *Crawdaddy* magazine.
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/06/1976-0612.jpg)
+![](../../assets/2021/06/1976-0612.jpg)
 
 **1977:** Bruce and the band work on “Don’t Look Back” at Atlantic Studios in New York City.
 
@@ -22,7 +22,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/CfWATe2k)
 
-![](https://estreetshuffle.com/wp-content/uploads/2024/06/Birmingham_Evening_Mail_Mon__Jun_8__1981_.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2024/06/Sandwell_Evening_Mail_Mon__Jun_8__1981_-scaled.jpg)
+![](../../assets/2024/06/Sandwell_Evening_Mail_Mon__Jun_8__1981_-scaled.jpg)
 
 **1992:** MTV’s Guide to Summer features a spotlight on Bruce’s upcoming World Tour 1992.
 
@@ -70,7 +70,7 @@
 
 **2021:** Bruce announces a return engagement of *Springsteen on Broadway* to help re-open Broadway during a lull in the Great Pandemic.
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-07a-scaled.jpg) ![](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-07b.jpg)
+![](../../assets/2022/06/2021-06-07b.jpg)
 
 **2025:** Hometown hero Sir Paul McCartney makes a surprise appearance with Bruce and the E Street Band on their second of two nights at Anfield in Liverpool, tour debuting “Can’t Buy Me Love” and “Kansas City.”
 

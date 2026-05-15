@@ -2,7 +2,7 @@
 
 **1974**: Bruce cancels a gig at the Cambridge Performance Center to make room for *Born to Run* recording sessions.
 
-![](https://estreetshuffle.com/wp-content/uploads/2019/08/1974-08-11.jpg)
+![](../../assets/2019/08/1974-08-11.jpg)
 
 **1977:** Bruce holds a recording session for his upcoming album at Atlantic Studios in New York City.
 
@@ -10,7 +10,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/j4p8FdMJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1981-08-11.png)
+![](../../assets/2020/07/1981-08-11.png)
 
 **1984:** At Night Five (of ten) at the Brendan Byrne Arena in East Rutherford, John Entwistle guest-stars on the show-closing “Twist and Shout.”
 
@@ -20,9 +20,9 @@
 
 [Watch Video Highlight](https://videopress.com/embed/LBLlimMh?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/1985-08-11a.jpg)
+![](../../assets/2021/08/1985-08-11a.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/08/1985-08-11b-scaled.jpg)
+![](../../assets/2021/08/1985-08-11b-scaled.jpg)
 
 **1989:** Bruce makes a surprise guest appearance at the Garden State Arts Center in Holmdel, joining Ringo Starr and His All Starr Band (including Nils and Clarence) for the encores of “Get Back,” “Long Tall Sally,” “Photograph” and “With a Little Help From My Friends.”
 
@@ -32,9 +32,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=vqMxTWqVoYM)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1989-08-11a.png)
+![](../../assets/2020/07/1989-08-11a.png)
 
-![](https://estreetshuffle.com/wp-content/uploads/2020/07/1989-08-11b.png)
+![](../../assets/2020/07/1989-08-11b.png)
 
 **1999:** It’s the penultimate show of Bruce and the E Street Band’s fifteen-night Reunion Tour stand at East Rutherford’s Continental Airlines Arena, and the show rockets out of the gate with the first performance of “Night” in fifteen years. Later in the show: the first “New York City Serenade” in 24 years, and the show-closing tour premiere of “4th of July, Asbury Park (Sandy).”
 

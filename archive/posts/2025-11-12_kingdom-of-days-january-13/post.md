@@ -8,7 +8,7 @@
 
 [Watch on Youtube: Bruce Springsteen & The E Street Band - Live In Columbia, SC 1985-01-13 (NEW SOURCE)](https://www.youtube.com/watch?v=PUuzb4_JT8I)
 
-![](https://estreetshuffle.com/wp-content/uploads/2021/01/1985-01-13.png)
+![](../../assets/2021/01/1985-01-13.png)
 
 **1993:** Bruce inducts Creedence Clearwater Revival into the Rock and Roll Hall of Fame
 
@@ -32,9 +32,9 @@ After the interview, Bruce and the E Street Band (+Tom Morello, -Steve Van Zandt
 
 **2019:** At a special screening of *Springsteen on Broadway* at Monmouth University, Bruce slips in unnoticed after the lights go down. He watches the movie with director Thom Zimny and then quietly leaves before the house lights come up.
 
-![](https://estreetshuffle.com/wp-content/uploads/2025/01/The_San_Francisco_Examiner_1970_01_14_32.jpg)
+![](../../assets/2025/01/The_San_Francisco_Examiner_1970_01_14_32.jpg)
 
-![](https://estreetshuffle.com/wp-content/uploads/2022/01/2019-01-13a.jpg)
+![](../../assets/2022/01/2019-01-13a.jpg)
 
 **2023:** Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. Today’s session focuses heavily on covers from *Only the Strong Survive*, with multiple run-throughs of “Do I Love You (Indeed I Do)” (which will not be played during the tour), “[Don’t Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)” (which will be dropped after two weeks), and “Nightshift,” which will remain a setlist tentpole throughout.
 
