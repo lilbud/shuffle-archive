@@ -1,14 +1,14 @@
 
 
-Bruce and his unnamed band kick off a four-night/eight-show stand at The Main Point in Bryn Mawr, Pennsylvania, where “” receives its debut performance.
+Bruce and his unnamed band kick off a four-night/eight-show stand at The Main Point in Bryn Mawr, Pennsylvania, where "" receives its debut performance.
 
 **1973:** [Santa Ana](http://estreetshuffle.com/index.php/2018/03/06/roll-of-the-dice-santa-ana/)
 
-Bruce and his (still unnamed) band open a three-night stand headlining at Joe’s Place in Cambridge, Massachusetts. It’s neither the first nor the last time Bruce’s name is misspelled in print.
+Bruce and his (still unnamed) band open a three-night stand headlining at Joe's Place in Cambridge, Massachusetts. It's neither the first nor the last time Bruce's name is misspelled in print.
 
 **1974:**
 
-During his L.A. garage recording sessions, Bruce records an early and alternate arrangement of “Don’t Back Down on Our Love.”
+During his L.A. garage recording sessions, Bruce records an early and alternate arrangement of "Don't Back Down on Our Love."
 
 **1983:**
 
@@ -26,7 +26,7 @@ The Born in the U.S.A. Tour resumes with the first of two shows at the Hampton R
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/01/Richmond_Times_Dispatch_Sat__Jan_5__1985_.jpg?resize=758%2C864&amp;ssl=1)
 
-Bruce and Patti make an appearance at the Hollywood premiere of Bruce wrote “” for the movie, for which he will go on to earn an Oscar. Check out the news coverage from the event.
+Bruce and Patti make an appearance at the Hollywood premiere of Bruce wrote "" for the movie, for which he will go on to earn an Oscar. Check out the news coverage from the event.
 
 **1994:** *Philadelphia.* [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 

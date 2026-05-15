@@ -1,6 +1,6 @@
 
 
-: Bruce’s recording career is born with the release of his first album, It garners some critical praise but sells a mere 25,000 copies in its first run, eventually rising to #60 on the charts.
+: Bruce's recording career is born with the release of his first album, It garners some critical praise but sells a mere 25,000 copies in its first run, eventually rising to #60 on the charts.
 
 **1973**[.](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J*
 
@@ -32,7 +32,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1973-0105-b.jpg?resize=464%2C578&amp;ssl=1)
 
-: Bruce plays the second of a three-night stand at Joe’s Place in Cambridge, Massachusetts. 
+: Bruce plays the second of a three-night stand at Joe's Place in Cambridge, Massachusetts. 
 
 **1974**(Photo credit: Jeff Albertson)
 
@@ -48,7 +48,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 **1975**
 
-: Bruce joins the Lord Gunner Group onstage at the Stone Pony for performances of “” and “.”
+: Bruce joins the Lord Gunner Group onstage at the Stone Pony for performances of "" and "."
 
 **1982**[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)
 
@@ -68,7 +68,7 @@ That night, Bruce plays two shows at the Main Point in Bryn Mawr, Pennsylvania, 
 
 <https://estreetshuffle.com/wp-content/uploads/2023/01/1985-01-05-Hampton-VA27-SANTA-CLAUS-IS-COMIN-TO-TOWN.mp3>
 
-Bruce’s youngest child, Sam Ryan Springsteen, is born in Los Angeles.
+Bruce's youngest child, Sam Ryan Springsteen, is born in Los Angeles.
 
 **1994:**
 

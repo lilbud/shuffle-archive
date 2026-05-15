@@ -16,11 +16,11 @@ Bruce and the E Street Band play their fourth of six nights at the Monmouth Arts
 
 [https://videopress.com/embed/P8BHqSd0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/P8BHqSd0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce holds a recording session for his fourth album at Atlantic Studios in New York City, where he and the band work on “” “” and “After Dinner”–none of which will make the album.
+Bruce holds a recording session for his fourth album at Atlantic Studios in New York City, where he and the band work on "" "" and "After Dinner"–none of which will make the album.
 
 **1977:** [The Way,](https://estreetshuffle.com/index.php/2021/08/06/roll-of-the-dice-the-way/)[Talk to Me,](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)
 
-Bruce and the boys bring the Darkness Tour to Louisville for a night. Bruce loses his place early on during “Rosalita (Come Out Tonight)” and the band vamps until Bruce remembers where he was.
+Bruce and the boys bring the Darkness Tour to Louisville for a night. Bruce loses his place early on during "Rosalita (Come Out Tonight)" and the band vamps until Bruce remembers where he was.
 
 **1978:**
 
@@ -40,7 +40,7 @@ Night Two at the Capital Center in Largo on the original River Tour.
 
 [https://videopress.com/embed/pK3XrIXK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pK3XrIXK?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand at the Meadowlands. This show features the tour premiere of “” and is available as part of Bruce’s official archive series–get it . Watch the pro-shot opening of the show below.
+Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand at the Meadowlands. This show features the tour premiere of "" and is available as part of Bruce's official archive series–get it . Watch the pro-shot opening of the show below.
 
 **1984:**[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[here](http://live.brucespringsteen.net/live-music/0,12491/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-8-5-1984-Brendan-Byrne-Arena-East-Rutherford-NJ.html)
 
@@ -62,7 +62,7 @@ Bruce and the E Street Band kick off a ten-night Born in the U.S.A. Tour stand a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-08-05c-300x233.png?resize=758%2C589)
 
-Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tour–his first all-stadium tour–at RFK Stadium in Washington, DC. This show is notable for the second of only three performances ever of “,” the first U.S. performance of “,” and the first time Bruce closes a show with “.”
+Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tour–his first all-stadium tour–at RFK Stadium in Washington, DC. This show is notable for the second of only three performances ever of "," the first U.S. performance of "," and the first time Bruce closes a show with "."
 
 **1985:** [Man at the Top](http://estreetshuffle.com/index.php/2019/05/10/roll-of-the-dice-man-at-the-top/)[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)
 
@@ -70,7 +70,7 @@ Bruce and the E Street Band kick off the final leg of the Born in the U.S.A. Tou
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAXbmVg0HYXLrk7xUqMNmCE](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zAXbmVg0HYXLrk7xUqMNmCE)
 
-Because this show marks Bruce’s return to the U.S. and the first time playing to stadiums only, the kick-off show draws a lot of media attention. Watch the news coverage (a lot of it!) below.
+Because this show marks Bruce's return to the U.S. and the first time playing to stadiums only, the kick-off show draws a lot of media attention. Watch the news coverage (a lot of it!) below.
 
 [https://www.youtube.com/embed/n54Xk96HALs?feature=oembed](https://www.youtube.com/embed/n54Xk96HALs?feature=oembed)
 
@@ -98,7 +98,7 @@ The fourth rehearsal show for the Rising Tour is the first in an arena, an invit
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB4ezPROrBW1WqFU1B0KIHv](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zB4ezPROrBW1WqFU1B0KIHv)
 
-Bruce makes a guest appearance with John Fogerty at John’s show at the PNC Bank Arts Center in Holmdel, playing “.”
+Bruce makes a guest appearance with John Fogerty at John's show at the PNC Bank Arts Center in Holmdel, playing "."
 
 **2006:** [Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
 

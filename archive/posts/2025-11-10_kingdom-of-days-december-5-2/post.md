@@ -10,7 +10,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-12-04.png?resize=758%2C359&amp;ssl=1)
 
-Bruce and his band kick off a six-night, two-shows-nightly stand at Kenny’s Castaways in New York City. Bruce starts each show with a brief solo set before bringing out the band.
+Bruce and his band kick off a six-night, two-shows-nightly stand at Kenny's Castaways in New York City. Bruce starts each show with a brief solo set before bringing out the band.
 
 **1972:**
 
@@ -34,11 +34,11 @@ The Darkness Tour travels south to Louisiana State University in Baton Rouge.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-12-05.png?resize=758%2C629&amp;ssl=1)
 
-At a recording session at The Power Station in New York City, Bruce and the E Street Band work on “Take ’em as They Come.”
+At a recording session at The Power Station in New York City, Bruce and the E Street Band work on "Take 'em as They Come."
 
 **1979:**
 
-Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for six songs, including “” and “.”
+Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for six songs, including "" and "."
 
 **1987:** [Wooly Bully](http://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)[Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)
 
@@ -84,7 +84,7 @@ Bruce plays a solo acoustic show at the Township Auditorium in Columbia, South C
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1996-12-05.png?resize=536%2C3829&amp;ssl=1)
 
-BBC produces and airs a documentary to coincide with the release of Tracks: It’s very well done and highly recommended viewing–watch the full show below:
+BBC produces and airs a documentary to coincide with the release of Tracks: It's very well done and highly recommended viewing–watch the full show below:
 
 **1998:** *Bruce Springsteen: A Secret History.*
 
@@ -108,7 +108,7 @@ Bruce and the E Street Band take the Rising Tour north to the Air Canada Center 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-05b.png?resize=758%2C1805&amp;ssl=1)
 
-After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury Park holiday show tradition, holding the first of three benefit concerts at Convention Hall in support of local charities. The Max Weinberg 7 once again serves as the house band, and this year guests include the Victorious Gospel Choir, Bobby Bandiera, Soozie Tyrell, Patti Scialfa, Jesse Malin, Garland Jeffreys, Steve Van Zandt, Southside Johnny, Sam Moore, the Alliance Singers, Lisa Lowell, and Nils Lofgren. Lots of gems in the setlist, including the world premiere of “.”
+After taking a year off (due to the Rising Tour) Bruce resumes his annual Asbury Park holiday show tradition, holding the first of three benefit concerts at Convention Hall in support of local charities. The Max Weinberg 7 once again serves as the house band, and this year guests include the Victorious Gospel Choir, Bobby Bandiera, Soozie Tyrell, Patti Scialfa, Jesse Malin, Garland Jeffreys, Steve Van Zandt, Southside Johnny, Sam Moore, the Alliance Singers, Lisa Lowell, and Nils Lofgren. Lots of gems in the setlist, including the world premiere of "."
 
 **2003:** [None But the Brave](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
@@ -152,6 +152,6 @@ Bruce returns to the stage after more than a week off to continue his theatrical
 
 **2017:**
 
-continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce treats audiences to the show’s rare alternate set list.
+continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce treats audiences to the show's rare alternate set list.
 
 **2018:** *Springsteen on Broadway*

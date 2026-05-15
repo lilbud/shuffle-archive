@@ -1,6 +1,6 @@
 
 
-Chan Romero was only 17 when he wrote his breakthrough hit, “Hippy Hippy Shake.”
+Chan Romero was only 17 when he wrote his breakthrough hit, "Hippy Hippy Shake."
 
 [https://www.youtube.com/embed/MlkKB1JlbFg?feature=oembed](https://www.youtube.com/embed/MlkKB1JlbFg?feature=oembed)
 

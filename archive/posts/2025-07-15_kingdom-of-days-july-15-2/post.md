@@ -62,7 +62,7 @@ That evening, Bruce and the E Street Band perform "The Promise" during their sho
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=rrlRp0EfqhQ?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent)
 
-Meanwhile, Bruce releases a new live EP entitled *Magic Tour Highlights,* featuring notable guest appearances and Danny Federici's final performance with the band. The EP is a benefit fund-raiser for the Danny Federici Melanoma Fund.
+Meanwhile, Bruce releases a new live EP entitled *Magic Tour Highlights*, featuring notable guest appearances and Danny Federici's final performance with the band. The EP is a benefit fund-raiser for the Danny Federici Melanoma Fund.
 
 [Watch on Youtube: Magic Tour Highlights](https://www.youtube.com/playlist?list=OLAK5uy_lPvBiPi0J7n2v-3zLAgEk-VpKA93lg9FQ)
 

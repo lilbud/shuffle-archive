@@ -2,7 +2,7 @@
 
 *Review for 1975; audio for 2003; video for 2023***New for 2025:**
 
-Bruce plays his first-ever show in Texas, at Houston’s Liberty Hall–the first of seven shows at this venue in four days. Photographer Nicki Germaine is on hand to photograph the band, but it will be almost a half-century before fans can enjoy her wonderful photos. Order her book, .
+Bruce plays his first-ever show in Texas, at Houston's Liberty Hall–the first of seven shows at this venue in four days. Photographer Nicki Germaine is on hand to photograph the band, but it will be almost a half-century before fans can enjoy her wonderful photos. Order her book, .
 
 **1974:** *Springsteen: Liberty Hall*[here](https://springsteenlibertyhall.com/)
 
@@ -22,17 +22,17 @@ Bruce and the E Street Band play a show at the Painters Mill Music Fair in Owing
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Evening_Sun_1975_03_19_25.jpg?resize=758%2C390&amp;ssl=1)
 
-Bruce joins Carole King on stage at the Beacon Theater in New York City in a surprise appearance during the encore of the final night of King’s stand. Bruce and Carole sing “The Loco-Motion” together.
+Bruce joins Carole King on stage at the Beacon Theater in New York City in a surprise appearance during the encore of the final night of King's stand. Bruce and Carole sing "The Loco-Motion" together.
 
 **1976:**
 
-“,” a benefit single recorded by United Support of Artists for Africa (a collection of musicians that includes Bruce) is released. Both the single and video feature Bruce’s distinctive vocals, and the single will go on to sell more than twenty million copies.
+"," a benefit single recorded by United Support of Artists for Africa (a collection of musicians that includes Bruce) is released. Both the single and video feature Bruce's distinctive vocals, and the single will go on to sell more than twenty million copies.
 
 **1985:** [We Are the World](https://estreetshuffle.com/index.php/2022/01/30/matr-bruce-springsteen-and-just-about-everyone-we-are-the-world/)
 
 [https://www.youtube.com/embed/9AjkUyX0rVw?feature=oembed](https://www.youtube.com/embed/9AjkUyX0rVw?feature=oembed)
 
-Bruce and the band play their first show on the Atlantic City Boardwalk, opening with (of course) “,” closing with a scene-appropriate “” and featuring a rare cover of the Beatles’ “” and the tour premiere of “” Listen to the soundcheck and highlights below.
+Bruce and the band play their first show on the Atlantic City Boardwalk, opening with (of course) "," closing with a scene-appropriate "" and featuring a rare cover of the Beatles' "" and the tour premiere of "" Listen to the soundcheck and highlights below.
 
 **2003:** [Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)[Roll of the Dice](http://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)[Tell Me Why](https://estreetshuffle.com/index.php/2020/08/01/cover-me-tell-me-why/)[Jersey Girl.](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)
 
@@ -52,7 +52,7 @@ Bruce and the band play their first show on the Atlantic City Boardwalk, opening
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-03-07b-300x273.jpg?resize=758%2C690)
 
-At a listening party preview for at B.B. King’s Blues Club in New York City, Bruce previews five songs from the upcoming album and chats with fans.
+At a listening party preview for at B.B. King's Blues Club in New York City, Bruce previews five songs from the upcoming album and chats with fans.
 
 **2006:** *We Shall Overcome: The Seeger Sessions*
 
@@ -60,7 +60,7 @@ At a listening party preview for at B.B. King’s Blues Club in New York City, B
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/03/2006-03-07.jpg?resize=500%2C375&amp;ssl=1)
 
-“” and “” make their Magic Tour premiere at HSBC Arena in Buffalo.
+"" and "" make their Magic Tour premiere at HSBC Arena in Buffalo.
 
 **2008:** [Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)[Buffalo Gals](https://estreetshuffle.com/index.php/2018/06/10/cover-me-roll-of-the-dice-buffalo-gals/)
 
@@ -78,7 +78,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and the E Street Band return to the scene of the crime, harkening back to their infamous bomb scare show several times throughout the evening at Fiserv Forum in Milwaukee. “” makes its tour debut tonight.
+Bruce and the E Street Band return to the scene of the crime, harkening back to their infamous bomb scare show several times throughout the evening at Fiserv Forum in Milwaukee. "" makes its tour debut tonight.
 
 **2023:** [Death to My Hometown](https://estreetshuffle.com/index.php/2022/03/30/roll-of-the-dice-death-to-my-hometown/)
 

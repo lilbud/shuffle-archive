@@ -2,7 +2,7 @@
 
 *No updates***New for 2025:**
 
-The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of “Because the Night.”
+The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of "Because the Night."
 
 **1988:**
 
@@ -36,11 +36,11 @@ Bruce and the reunited E Street Band make a tour stop in Genoa, Italy.
 
 [https://www.youtube.com/embed/jIyY16fAwxs?feature=oembed](https://www.youtube.com/embed/jIyY16fAwxs?feature=oembed)
 
-A scheduled solo acoustic show in Hamburg is rescheduled after Terry Magovern’s fiancée passes away.
+A scheduled solo acoustic show in Hamburg is rescheduled after Terry Magovern's fiancée passes away.
 
 **2005:**
 
-The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where “” makes its American premiere.
+The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where "" makes its American premiere.
 
 **2006:** [Long Black Veil](http://estreetshuffle.com/index.php/2020/02/05/cover-me-long-black-veil/)
 

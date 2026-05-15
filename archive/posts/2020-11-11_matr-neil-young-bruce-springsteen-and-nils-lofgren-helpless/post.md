@@ -1,4 +1,4 @@
-> "Well, it's not literally a specific town so much as a feeling. Actually, it's a couple of towns. Omemee, Ontario, is one of them. It's where I first went to school and spent my 'formative' years. Actually I was born in Toronto... *I was born in Toronto*... God, that sounds like the first line of a Bruce Springsteen song." — Neil Young, *Mojo,* December 1995
+> "Well, it's not literally a specific town so much as a feeling. Actually, it's a couple of towns. Omemee, Ontario, is one of them. It's where I first went to school and spent my 'formative' years. Actually I was born in Toronto... *I was born in Toronto*... God, that sounds like the first line of a Bruce Springsteen song." — Neil Young, *Mojo*, December 1995
 
 Maybe if Neil Young had set his beloved "Helpless" (first recorded and released by Crosby, Stills, Nash & Young on their 1970 *Deja Vu* album) in Toronto, Bruce would have covered it sooner?
 

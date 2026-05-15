@@ -34,7 +34,7 @@
 
 **1999:** Bruce and the E Street Band play a warm-up set for the first U.S. leg of the Reunion Tour at Continental Airlines Arena in East Rutherford.
 
-**2002:** The *New York Times* publishes [an article on Bruce's upcoming album](https://www.nytimes.com/2002/07/14/arts/music-his-kind-of-heroes-his-kind-of-songs.html?searchResultPosition=15), *The Rising,* In his article, Jon Pareles quotes frequently from the interview he conducted with Bruce to inform it, but you can hear the interview itself below.
+**2002:** The *New York Times* publishes [an article on Bruce's upcoming album](https://www.nytimes.com/2002/07/14/arts/music-his-kind-of-heroes-his-kind-of-songs.html?searchResultPosition=15), *The Rising*, In his article, Jon Pareles quotes frequently from the interview he conducted with Bruce to inform it, but you can hear the interview itself below.
 
 [Watch Video Highlight](https://videopress.com/embed/yHujCIf5)
 

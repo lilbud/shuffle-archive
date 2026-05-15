@@ -22,11 +22,11 @@ Under record label pressure to release a new single, Bruce and the E Street Band
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1974-0615-300x177.jpg?resize=732%2C432)
 
-Bruce and the E Street Band work on “” at The Power Station in New York City.
+Bruce and the E Street Band work on "" at The Power Station in New York City.
 
 **1979:** [The Price You Pay](https://estreetshuffle.com/index.php/2019/09/23/roll-of-the-dice-the-price-you-pay/)
 
-Bruce joins Gary U.S. Bonds on stage at Old Waldorf in San Francisco, performing “” for the first time ever along with his one and only performance of “.”
+Bruce joins Gary U.S. Bonds on stage at Old Waldorf in San Francisco, performing "" for the first time ever along with his one and only performance of "."
 
 **1981:** [This Little Girl](http://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)[School Is Out](http://estreetshuffle.com/index.php/2018/09/29/meeting-across-the-river-gary-u-s-bonds-and-bruce-springsteen-school-is-out/)<https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3>
 
@@ -38,9 +38,9 @@ Bruce joins Gary U.S. Bonds on stage at Old Waldorf in San Francisco, performing
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1981-0615-300x209.jpg?resize=758%2C529)
 
-At The Hit Factory in New York City, Bruce records “” and “” The former won’t be released for another fifteen years; the latter is unreleased to this day.
+At The Hit Factory in New York City, Bruce records "" and "" The former won't be released for another fifteen years; the latter is unreleased to this day.
 
-**1983:** [Cynthia](http://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)[Don’t Back Down.](https://estreetshuffle.com/index.php/2022/01/06/roll-of-the-dice-dont-back-down/)
+**1983:** [Cynthia](http://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)[Don't Back Down.](https://estreetshuffle.com/index.php/2022/01/06/roll-of-the-dice-dont-back-down/)
 
 [https://www.youtube.com/embed/wzCpphwK8vk?feature=oembed](https://www.youtube.com/embed/wzCpphwK8vk?feature=oembed)
 
@@ -56,7 +56,7 @@ The Born in the U.S.A. Tour moves on to West Germany for two nights, starting wi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1985-0615-214x300.jpg?resize=758%2C1064)
 
-“” makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.
+"" makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.
 
 **1988:** [Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
 
@@ -82,15 +82,15 @@ World Tour 1992 kicks off with the first of two shows at the Globe Arena in Stoc
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1992-06-15.jpg?resize=758%2C501&amp;ssl=1)
 
-“” makes its live debut when Bruce and the E Street Band bring the Reunion Tour to Offenbach, Germany.
+"" makes its live debut when Bruce and the E Street Band bring the Reunion Tour to Offenbach, Germany.
 
-**1999:** [Take ’em as They Come](http://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)
+**1999:** [Take 'em as They Come](http://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)
 
 [https://videopress.com/embed/wGZfQBl3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wGZfQBl3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 [https://www.youtube.com/embed/s9Afum2mp5E?feature=oembed](https://www.youtube.com/embed/s9Afum2mp5E?feature=oembed)
 
-Night Two of the final ten-night stand of the Reunion Tour opens with “” at Madison Square Garden and features another powerful “American Skin (41 Shots).”
+Night Two of the final ten-night stand of the Reunion Tour opens with "" at Madison Square Garden and features another powerful "American Skin (41 Shots)."
 
 **2000:** [Further On (Up the Road)](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)
 
@@ -102,7 +102,7 @@ Night Two of the final ten-night stand of the Reunion Tour opens with “” at 
 
 [https://www.youtube.com/embed/PqCTGEuqI-4?feature=oembed](https://www.youtube.com/embed/PqCTGEuqI-4?feature=oembed)
 
-Patti Scialfa releases her long-awaited second album, and plays a promotional free mini-concert in New York City for NBC’s . Watch her full performance below.
+Patti Scialfa releases her long-awaited second album, and plays a promotional free mini-concert in New York City for NBC's . Watch her full performance below.
 
 **2004:** *23rd Street Lullaby* *Today*
 
@@ -116,9 +116,9 @@ Patti Scialfa releases her long-awaited second album, and plays a promotional fr
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2004-06-15b-300x241.jpg?resize=758%2C609)
 
-The Devils & Dust Tour moves on to Frankfurt, where Bruce tour premieres “.”
+The Devils & Dust Tour moves on to Frankfurt, where Bruce tour premieres "."
 
-**2005:** [Countin’ on a Miracle](http://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/)
+**2005:** [Countin' on a Miracle](http://estreetshuffle.com/index.php/2019/02/05/roll-of-the-dice-countin-on-a-miracle/)
 
 [https://www.youtube.com/embed/wm_jQkeLGxM?feature=oembed](https://www.youtube.com/embed/wm_jQkeLGxM?feature=oembed)
 

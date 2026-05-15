@@ -2,7 +2,7 @@ Swedish recording artist Moa Holmsten fronted metal and punk bands before going 
 
 Nothing in that previous sentence would suggest the source of some of the very best Springsteen covers out there, and yet here we are.
 
-Faced with writer's block coming off of her second solo album *Do You Want Me, Death,* Moa decided that the way back to her own creativity was by re-interpreting another artist's work. But who to choose?
+Faced with writer's block coming off of her second solo album *Do You Want Me, Death*, Moa decided that the way back to her own creativity was by re-interpreting another artist's work. But who to choose?
 
 Moa had a few rules for selecting an artist, which she shared in a [RudolphsMusic interview](https://www.rudolfsmusic.com/moa-holmsten-interview/): "Someone that was far from my own music, someone that was pretty new to me and that had a big catalogue of songs. Voila... there is Bruce Springsteen."
 

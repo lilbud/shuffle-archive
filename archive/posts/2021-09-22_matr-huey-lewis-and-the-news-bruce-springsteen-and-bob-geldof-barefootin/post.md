@@ -4,7 +4,7 @@ Well, three of them at least: Huey Lewis, Bob Geldof, and Bruce Springsteen all 
 
 Huey Lewis and the News were at the peak of their commercial success, and their red-hot Fore! Tour brought them to the arena. Bob Geldof was often in Paris, so his presence wasn't much of a surprise.
 
-Bruce was the true wild card. His mammoth, marathon Born in the U.S.A. Tour was now a full year in the rear-view mirror, and other than an acoustic set at Neil and Pegi Young's Bridge School Benefit a few weeks earlier, he hadn't performed in public anywhere since the previous winter. No one expected him to turn up at a Huey Lewis concert, let alone in Paris. He was in town because his wife was working there: Julianne was filming *Sweet Lies,* a forgettable film released during the 1987 holiday season.
+Bruce was the true wild card. His mammoth, marathon Born in the U.S.A. Tour was now a full year in the rear-view mirror, and other than an acoustic set at Neil and Pegi Young's Bridge School Benefit a few weeks earlier, he hadn't performed in public anywhere since the previous winter. No one expected him to turn up at a Huey Lewis concert, let alone in Paris. He was in town because his wife was working there: Julianne was filming *Sweet Lies*, a forgettable film released during the 1987 holiday season.
 
 ![Sweet Lies (film) movie poster](https://alchetron.com/cdn/Sweet-Lies-film-images-627c0a81-661d-423c-adbe-94f5aaa4859.jpg)
 

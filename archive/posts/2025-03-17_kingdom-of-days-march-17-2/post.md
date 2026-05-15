@@ -32,7 +32,7 @@
 
 ![](../../assets/2024/03/Austin_American_Statesman_Thu__Mar_21__1996_-scaled.jpg)
 
-**1998:** *Where Have All the Flowers Gone,* a Pete Seeger tribute album, is released, featuring Bruce's cover of "[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)," the very first Seeger Session recording to see the light of day, eight years before the release of the album for which it will serve as the title track.
+**1998:** *Where Have All the Flowers Gone*, a Pete Seeger tribute album, is released, featuring Bruce's cover of "[We Shall Overcome](https://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)," the very first Seeger Session recording to see the light of day, eight years before the release of the album for which it will serve as the title track.
 
 [Watch on Youtube: Bruce Springsteen - "We Shall Overcome" (original 1998 version)](https://www.youtube.com/watch?v=026oa4oMG5k)
 

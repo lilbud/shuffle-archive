@@ -14,7 +14,7 @@ That's because in 1974, Maria Muldaur covered "It Ain't the Meat," switching the
 
 Muldaur's version injected the title phrase into the popular vernacular, and "it ain't the meat, it's the motion" became a clever euphemism for saying that penis size doesn't matter if you've got technique.
 
-However, the "meat" of the original song referred to the singer's female lovers, and that's the version that Southside Johnny rescued from obscurity when he covered it for his 1976 debut album, *I Don't Want to Go Home,* with original Juke Kenny "Popeye" Pentifallo doing his best Irving Turner impression (and making it clear the band was familiar with the original track).
+However, the "meat" of the original song referred to the singer's female lovers, and that's the version that Southside Johnny rescued from obscurity when he covered it for his 1976 debut album, *I Don't Want to Go Home*, with original Juke Kenny "Popeye" Pentifallo doing his best Irving Turner impression (and making it clear the band was familiar with the original track).
 
 [Watch on Youtube: It Ain't the Meat (It's the Motion) (2016 Remaster)](https://www.youtube.com/watch?v=mOwunYrOOhQ)
 

@@ -1,12 +1,12 @@
 
 
-The second of two nights in Cleveland on the Chicken Scratch Tour features the last “When You Walk in the Room” for 33 years.
+The second of two nights in Cleveland on the Chicken Scratch Tour features the last "When You Walk in the Room" for 33 years.
 
 **1976:**
 
 [https://www.youtube.com/embed/rij7NJhcmoI?feature=oembed](https://www.youtube.com/embed/rij7NJhcmoI?feature=oembed)
 
-Bruce sits in with Cats on a Smooth Surface at The Stone Pony in Asbury Park for four songs: “Proud Mary,” “Dirty Water,” “I’m Bad, I’m Nationwide,” and “Lucille.”
+Bruce sits in with Cats on a Smooth Surface at The Stone Pony in Asbury Park for four songs: "Proud Mary," "Dirty Water," "I'm Bad, I'm Nationwide," and "Lucille."
 
 **1984:**
 
@@ -14,7 +14,7 @@ Bruce sits in with Cats on a Smooth Surface at The Stone Pony in Asbury Park for
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1984-04-08.jpg?resize=389%2C296&amp;ssl=1)
 
-At the second of two shows in Zurich, Bruce plays “Dancing in the Dark” for the first and only time this year and tour debuts “Rockin’ All Over the World.”
+At the second of two shows in Zurich, Bruce plays "Dancing in the Dark" for the first and only time this year and tour debuts "Rockin' All Over the World."
 
 **1993:**
 
@@ -50,13 +50,13 @@ is certified 4x multi-platinum by the Recording Industry Association of America.
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89)
 
-Night Two in Anaheim at the Honda Center for the Magic Tour, with Tom Morello making another guest appearance and “Thunder Road” serving as a rare set opener.
+Night Two in Anaheim at the Honda Center for the Magic Tour, with Tom Morello making another guest appearance and "Thunder Road" serving as a rare set opener.
 
 **2008:**
 
 [https://www.youtube.com/embed/ZNgu0Ai-5CU?feature=oembed](https://www.youtube.com/embed/ZNgu0Ai-5CU?feature=oembed)
 
-The Working on a Dream Tour moves on to Houston for a show at the Toyota Center, where Bruce tour premieres “Cadillac Ranch” and “It’s Hard to Be a Saint in the City.”
+The Working on a Dream Tour moves on to Houston for a show at the Toyota Center, where Bruce tour premieres "Cadillac Ranch" and "It's Hard to Be a Saint in the City."
 
 **2009:**
 
@@ -66,13 +66,13 @@ The Working on a Dream Tour moves on to Houston for a show at the Toyota Center,
 
 [https://www.youtube.com/embed/wHrqpOju0k8?feature=oembed](https://www.youtube.com/embed/wHrqpOju0k8?feature=oembed)
 
-Little Steven’s Underground Garage airs Part 2 of The Bruce and Stevie Show. Absolutely essential listening for a fan of Bruce, Stevie, great music, and lifelong friendships.
+Little Steven's Underground Garage airs Part 2 of The Bruce and Stevie Show. Absolutely essential listening for a fan of Bruce, Stevie, great music, and lifelong friendships.
 
 **2011:**
 
 [https://videopress.com/embed/1lqTkF5o?hd=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1](https://videopress.com/embed/1lqTkF5o?hd=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1)
 
-The High Hopes Tour resumes proper (minus Steve Van Zandt, who will miss most of this leg due to filming conflicts) with a show at the USBank Arena in Cincinnati, where “Lost in the Flood” makes a rare appearance. News coverage and highlights below.
+The High Hopes Tour resumes proper (minus Steve Van Zandt, who will miss most of this leg due to filming conflicts) with a show at the USBank Arena in Cincinnati, where "Lost in the Flood" makes a rare appearance. News coverage and highlights below.
 
 **2014:** *Lilyhammer*
 
@@ -86,7 +86,7 @@ The High Hopes Tour resumes proper (minus Steve Van Zandt, who will miss most of
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2014-04-08.jpg?resize=758%2C403&amp;ssl=1)
 
-With two days’ notice, Bruce cancels his upcoming show in Greensboro in protest of the state’s adoption of a law discriminating against transgender people. Bruce’s decision generates increased news coverage and national discussion around an already controversial law.
+With two days' notice, Bruce cancels his upcoming show in Greensboro in protest of the state's adoption of a law discriminating against transgender people. Bruce's decision generates increased news coverage and national discussion around an already controversial law.
 
 **2016:**
 

@@ -10,7 +10,7 @@ Singer/songwriter and First Lady of E Street Vivienne Patricia Scialfa is born o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/patti-300x261.jpg?resize=745%2C648)
 
-The Castiles headline at the Loew’s 35 Shore Drive-in Theater’s 10th anniversary party in Hazlet, New Jersey.
+The Castiles headline at the Loew's 35 Shore Drive-in Theater's 10th anniversary party in Hazlet, New Jersey.
 
 **1966:**
 
@@ -26,13 +26,13 @@ The Castiles headline at the Loew’s 35 Shore Drive-in Theater’s 10th anniver
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1966-0729.gif?resize=742%2C431)
 
-The Bruce Springsteen Band plays two shows at D’Scene in South Amboy, New Jersey. The setlist includes “” “,” “,” and more.
+The Bruce Springsteen Band plays two shows at D'Scene in South Amboy, New Jersey. The setlist includes "" "," "," and more.
 
-**1971:** [Natural Magic,](http://estreetshuffle.com/index.php/2020/05/19/roll-of-the-dice-natural-magic/)[Goin’ Back to Georgia](http://estreetshuffle.com/index.php/2019/03/07/roll-of-the-dice-goin-back-to-georgia/)[Dance Dance Dance](http://estreetshuffle.com/index.php/2018/06/22/roll-of-the-dice-dance-dance-dance/)
+**1971:** [Natural Magic,](http://estreetshuffle.com/index.php/2020/05/19/roll-of-the-dice-natural-magic/)[Goin' Back to Georgia](http://estreetshuffle.com/index.php/2019/03/07/roll-of-the-dice-goin-back-to-georgia/)[Dance Dance Dance](http://estreetshuffle.com/index.php/2018/06/22/roll-of-the-dice-dance-dance-dance/)
 
 [https://www.youtube.com/embed/Ok630L5Z9D8?feature=oembed](https://www.youtube.com/embed/Ok630L5Z9D8?feature=oembed)
 
-Before their gig that evening at the Carter Barron Amphitheater in Washington, DC’s Rock Creek Park, Bruce stops by a local radio station for an on-air interview.
+Before their gig that evening at the Carter Barron Amphitheater in Washington, DC's Rock Creek Park, Bruce stops by a local radio station for an on-air interview.
 
 **1975:**
 
@@ -44,7 +44,7 @@ Mike Appel countersues Bruce for breach of contract, escalating their legal batt
 
 **1976:**
 
-At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour show with his debut of “” and adds a second cover debut later in the show: Chuck Berry’s “.”
+At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour show with his debut of "" and adds a second cover debut later in the show: Chuck Berry's "."
 
 **1978:** [Oh Boy](http://estreetshuffle.com/index.php/2018/05/17/cover-me-oh-boy/)[Around and Around](http://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)
 
@@ -64,9 +64,9 @@ At the Bayfront Center Arena in St. Petersburg, Bruce opens his Darkness Tour sh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1978-0729.jpg?resize=758%2C1142&amp;ssl=1)
 
-Southside Johnny guest-stars on “” when Bruce and the E Street Band bring the River Tour to Richfield for the first of two nights.
+Southside Johnny guest-stars on "" when Bruce and the E Street Band bring the River Tour to Richfield for the first of two nights.
 
-**1981:** [I Don’t Want to Go Home](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)
+**1981:** [I Don't Want to Go Home](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)
 
 [https://videopress.com/embed/NOq3rVa8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NOq3rVa8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,7 +84,7 @@ Bruce makes a guest appearance with Jah Love at Key Largo in Belmar, New Jersey.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1987-07-29-281x300.png?resize=758%2C809)
 
-At Night Seven of the opening fifteen-night stand of the U.S. Reunion Tour in the Meadowlands, Bruce opens with the first “” in 18 years and tour debuts (officially) a corny and charming “” for Patti’s birthday. Bobby Bandiera makes an encore guest appearance on “”
+At Night Seven of the opening fifteen-night stand of the U.S. Reunion Tour in the Meadowlands, Bruce opens with the first "" in 18 years and tour debuts (officially) a corny and charming "" for Patti's birthday. Bobby Bandiera makes an encore guest appearance on ""
 
 **1999:** [The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)[Give the Girl a Kiss](http://estreetshuffle.com/index.php/2020/06/17/roll-of-the-dice-give-the-girl-a-kiss/)[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
@@ -94,6 +94,6 @@ At Night Seven of the opening fifteen-night stand of the U.S. Reunion Tour in th
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1999-07-29-52x300.png?resize=758%2C4373)
 
-On the occasion of Patti Scialfa’s 67th birthday, her husband debuts Volume 9 of his ongoing radio show, . This episode is entitled (appropriately) “Rumble Doll.”
+On the occasion of Patti Scialfa's 67th birthday, her husband debuts Volume 9 of his ongoing radio show, . This episode is entitled (appropriately) "Rumble Doll."
 
 **2020:** *From My Home to Yours*<https://estreetshuffle.com/wp-content/uploads/2021/07/2020-07-29-Bruce-ESR-DJ-set-9.mp3>

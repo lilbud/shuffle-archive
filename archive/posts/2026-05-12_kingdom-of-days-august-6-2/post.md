@@ -4,7 +4,7 @@
 
 ![](../../assets/2020/07/1966-08-06.png)
 
-**1974:** Bruce records the final take of his signature song, “Born to Run.”
+**1974:** Bruce records the final take of his signature song, "Born to Run."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Wu4_zVxmufY)
 
@@ -12,11 +12,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/bk2bc9sJ?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1981:** On their day off during their three-night stand in Washington, DC, Bruce, Garry, and Clarence join former Steel Mill bandmate Robbin Thompson’s band on stage at the Bayou Club, where they play “Carol.”
+**1981:** On their day off during their three-night stand in Washington, DC, Bruce, Garry, and Clarence join former Steel Mill bandmate Robbin Thompson's band on stage at the Bayou Club, where they play "Carol."
 
 [Watch Video Highlight](https://videopress.com/embed/FLDOBpP5?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1982:** Bruce joins Beaver Brown on stage at Big Man’s West in Red Bank for four songs, including “Jersey Girl.”
+**1982:** Bruce joins Beaver Brown on stage at Big Man's West in Red Bank for four songs, including "Jersey Girl."
 
 [Watch Video Highlight](https://videopress.com/embed/xSF5lJF0?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -24,7 +24,7 @@
 
 ![](../../assets/2020/07/1982-08-06b.png)
 
-**1984:** At Night Two of ten at the Brendan Byrne Arena in East Rutherford on the Born in the U.S.A. Tour, “Spirit in the Night” makes its tour debut, and “No Surrender” is played in its third arrangement of the tour. This one will stick, and this specific performance (along with “Nebraska” from this show) will appear on the *Live 1975-85* box set. Additionally Bruce’s performance of “Trapped” from this show will be released the following year on the *We Are the World* album, as well as on *The Essential Bruce Springsteen* in 2003. The entire show is available as part of Bruce’s official archive series.
+**1984:** At Night Two of ten at the Brendan Byrne Arena in East Rutherford on the Born in the U.S.A. Tour, "Spirit in the Night" makes its tour debut, and "No Surrender" is played in its third arrangement of the tour. This one will stick, and this specific performance (along with "Nebraska" from this show) will appear on the *Live 1975-85* box set. Additionally Bruce's performance of "Trapped" from this show will be released the following year on the *We Are the World* album, as well as on *The Essential Bruce Springsteen* in 2003. The entire show is available as part of Bruce's official archive series.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QB3KnqP7ee4)
 
@@ -42,13 +42,13 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fz3aDOBCpLc)
 
-**1992:** It’s Night Nine of eleven at the Brendan Byrne Arena in East Rutherford on World Tour 1992. Bruce dedicates “Human Touch” to Jeff Porcaro of Toto, who played drums on most of the *Human Touch* album and who passed away the previous day. The official video for “Leap of Faith” is filmed at this show, and the audio is released on the CD single.
+**1992:** It's Night Nine of eleven at the Brendan Byrne Arena in East Rutherford on World Tour 1992. Bruce dedicates "Human Touch" to Jeff Porcaro of Toto, who played drums on most of the *Human Touch* album and who passed away the previous day. The official video for "Leap of Faith" is filmed at this show, and the audio is released on the CD single.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ouWEZPkbznQ)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=coxsX4WjiNc)
 
-Also on this day, Entertainment Tonight airs a segment on Bruce’s new *Rolling Stone* cover story, on sale today. (If you have the Album Collection Volume 2, you have that cover story in your bonus book.)
+Also on this day, Entertainment Tonight airs a segment on Bruce's new *Rolling Stone* cover story, on sale today. (If you have the Album Collection Volume 2, you have that cover story in your bonus book.)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Z_Yn_n6QRWI)
 
@@ -56,7 +56,7 @@ Also on this day, Entertainment Tonight airs a segment on Bruce’s new *Rolling
 
 **1995:** Bruce guest stars with Bobby Bandiera at Cheers in Long Branch, New Jersey.
 
-**1999:** Bruce opens Night Eleven of the fifteen-night opening stand of the U.S. Reunion Tour in East Rutherford with the first full-band “Adam Raised a Cain” in eleven years. Bruce also tour premieres “Be True” and ends the show with “Thunder Road” — the first time Bruce has played an additional song after “Land of Hope and Dreams” on this tour.
+**1999:** Bruce opens Night Eleven of the fifteen-night opening stand of the U.S. Reunion Tour in East Rutherford with the first full-band "Adam Raised a Cain" in eleven years. Bruce also tour premieres "Be True" and ends the show with "Thunder Road" — the first time Bruce has played an additional song after "Land of Hope and Dreams" on this tour.
 
 [Watch Video Highlight](https://videopress.com/embed/iaNIgJvr?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -66,7 +66,7 @@ Also on this day, Entertainment Tonight airs a segment on Bruce’s new *Rolling
 
 ![](../../assets/2020/07/2003-08-06.png)
 
-**2005:** At his solo acoustic show at the Fox Theater in St. Louis, Bruce plays “County Fair” for only the second (and final) time to date. Another surprise: the very first solo piano version of “Backstreets.”
+**2005:** At his solo acoustic show at the Fox Theater in St. Louis, Bruce plays "County Fair" for only the second (and final) time to date. Another surprise: the very first solo piano version of "Backstreets."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pR8iJlVO-P0)
 

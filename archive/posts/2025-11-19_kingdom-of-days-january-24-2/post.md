@@ -22,7 +22,7 @@ Night Two at the Providence Civic Center on the Tour is captured on video.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1985-0124-300x186.jpg?resize=758%2C470)
 
-At his home studio in Holmdel, Bruce records two songs for , neither of which will make it to the finished album. Both “Pretty Baby, Will You Be Mine” and “Things Ain’t That Way” remain unreleased to this day.
+At his home studio in Holmdel, Bruce records two songs for , neither of which will make it to the finished album. Both "Pretty Baby, Will You Be Mine" and "Things Ain't That Way" remain unreleased to this day.
 
 **1987:** [](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*Tunnel of Love*
 

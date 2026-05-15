@@ -10,7 +10,7 @@ The Bruce Springsteen Band kicks off a residency at the Student Prince in Asbury
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-0903-300x170.jpg?resize=742%2C420)
 
-Bruce debuts his cover of “” at his Darkness show in Saginaw.
+Bruce debuts his cover of "" at his Darkness show in Saginaw.
 
 **1978:** [Hang Up My Rock and Roll Shoes](http://estreetshuffle.com/index.php/2018/05/13/cover-me-hang-up-my-rock-and-roll-shoes/)
 
@@ -42,7 +42,7 @@ Bruce appears in and on the latest issue of .
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/People5-229x300.jpg?resize=758%2C993)
 
-Bruce’s World Tour 1992 visits Tinley Park, Illinois for the second of two nights, and CNN airs a segment on the end of the summer concert season.
+Bruce's World Tour 1992 visits Tinley Park, Illinois for the second of two nights, and CNN airs a segment on the end of the summer concert season.
 
 **1992:**
 
@@ -70,7 +70,7 @@ Bruce and the reunited E Street Band wrap up their three-night stand at the MCI 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1999-09-03.jpg?resize=685%2C1216&amp;ssl=1)
 
-In their last public appearance before the nation changes forever, Bruce and Patti join Brian Kirk and the Jirks on-stage for four songs at Donovan’s Reef in Sea Bright, New Jersey. (The Jirks are the house band at the club.)
+In their last public appearance before the nation changes forever, Bruce and Patti join Brian Kirk and the Jirks on-stage for four songs at Donovan's Reef in Sea Bright, New Jersey. (The Jirks are the house band at the club.)
 
 **2001:**
 
@@ -80,9 +80,9 @@ In their last public appearance before the nation changes forever, Bruce and Pat
 
 [https://www.youtube.com/embed/g-cAs0PgBd0?feature=oembed](https://www.youtube.com/embed/g-cAs0PgBd0?feature=oembed)
 
-Night Two at Philadelphia’s Citizens Bank Park was a Labor Day special, opening with an acoustic tour premiere of “” as part of a five-song mini-set. The show stayed intense all the way through, which may be why Bruce omitted setlisted gems like “,” “Love Train,” “,” “,” and “.” What a show would have been!
+Night Two at Philadelphia's Citizens Bank Park was a Labor Day special, opening with an acoustic tour premiere of "" as part of a five-song mini-set. The show stayed intense all the way through, which may be why Bruce omitted setlisted gems like "," "Love Train," "," "," and "." What a show would have been!
 
-**2012:** [Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)[](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town* [Ain’t Good Enough for You](http://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)[(Your Love Keeps Lifting Me) Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)*that*
+**2012:** [Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)[](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town* [Ain't Good Enough for You](http://estreetshuffle.com/index.php/2019/06/02/roll-of-the-dice-aint-good-enough-for-you/)[(Your Love Keeps Lifting Me) Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)*that*
 
 [https://www.youtube.com/embed/9BaJ4KRkFcA?feature=oembed](https://www.youtube.com/embed/9BaJ4KRkFcA?feature=oembed)
 
@@ -108,17 +108,17 @@ A scheduled River Tour show in Virginia Beach is postponed for two days due to T
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/2016-0903-300x216.jpg?resize=758%2C545)
 
-It’s the penultimate night for at the St. James Theater in New York City.
+It's the penultimate night for at the St. James Theater in New York City.
 
 **2021:** *Springsteen on Broadway*
 
-Bruce records “Addicted to Romance” in his home studio in Colts Neck.
+Bruce records "Addicted to Romance" in his home studio in Colts Neck.
 
 **2022:**
 
 [https://www.youtube.com/embed/FPM0gG2ueV8?feature=oembed](https://www.youtube.com/embed/FPM0gG2ueV8?feature=oembed)
 
-Featuring the tour premiere of “” and rarities like “Jungleland” and “l,” the third and final show at MetLife Stadium seems to promise a looser setlist in the autumn leg of World Tour 2023. Sadly, it proves to be the E Street Band’s last show of the year.
+Featuring the tour premiere of "" and rarities like "Jungleland" and "l," the third and final show at MetLife Stadium seems to promise a looser setlist in the autumn leg of World Tour 2023. Sadly, it proves to be the E Street Band's last show of the year.
 
 **2023:** [Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Jersey Gir](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)
 

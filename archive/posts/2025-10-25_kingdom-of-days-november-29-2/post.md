@@ -12,7 +12,7 @@ Bruce and the E Street Band perform their first of two shows at the War Memorial
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Times_1974_11_24_112-scaled.jpg?resize=758%2C1671&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/The_Times_1974_11_24_115-scaled.jpg?resize=758%2C515&amp;ssl=1)
 
-At the Record Plant in New York City, Bruce records “.” He won’t release it for another 33 years.
+At the Record Plant in New York City, Bruce records "." He won't release it for another 33 years.
 
 **1977:** [The Brokenhearted](http://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)
 
@@ -34,13 +34,13 @@ Bruce holds a recording session for The Hit Factory in New York City.
 
 **1983:** *Born in the U.S.A. at*
 
-Bruce and the E Street Band play their first of two Born in the U.S.A. shows at The Summit in Houston, where “” gets its last outing for fifteen years.
+Bruce and the E Street Band play their first of two Born in the U.S.A. shows at The Summit in Houston, where "" gets its last outing for fifteen years.
 
 **1984:**[Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)
 
 [https://videopress.com/embed/7IdXR5EB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/7IdXR5EB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce debuts the video for his new single, “,” from his box set.
+Bruce debuts the video for his new single, "," from his box set.
 
 **1986:** [War](http://estreetshuffle.com/index.php/2019/05/27/cover-me-war/)*Live 1975-85*
 
@@ -66,7 +66,7 @@ Bruce and the E Street Band wrap up the first leg of their Reunion Tour at the T
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1999-11-29-169x300.png?resize=758%2C1346)
 
-Bruce’s promotional book tour continues with an appearance at Joseph-Beth Booksellers in Cincinnati.
+Bruce's promotional book tour continues with an appearance at Joseph-Beth Booksellers in Cincinnati.
 
 **2016:**
 

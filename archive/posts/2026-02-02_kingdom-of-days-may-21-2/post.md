@@ -12,7 +12,7 @@ Even shorter-lived than Dr. Zoom and the Sonic Boom: , making their debut perfor
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1971-0521.jpg?resize=519%2C666&amp;ssl=1)
 
-Bruce cuts the first version of “Born to Run” in the studio (instrumental only).
+Bruce cuts the first version of "Born to Run" in the studio (instrumental only).
 
 **1974:**
 
@@ -42,7 +42,7 @@ Bruce rehearses with his new band for their upcoming tour. After the rehearsal, 
 
 [https://www.youtube.com/embed/D_QFzQ0fCDI?feature=oembed](https://www.youtube.com/embed/D_QFzQ0fCDI?feature=oembed)
 
-ABC-TV airs a Rolling special featuring rare (for the time) band performances of “The Ghost of Tom Joad” and “Across the Border.”
+ABC-TV airs a Rolling special featuring rare (for the time) band performances of "The Ghost of Tom Joad" and "Across the Border."
 
 **1998:** *Stone State of the Union*
 
@@ -50,7 +50,7 @@ ABC-TV airs a Rolling special featuring rare (for the time) band performances of
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1998-05-21.jpg?resize=758%2C857&amp;ssl=1)
 
-Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of “You Can Look (But You Better Not Touch)” and the first “Meeting Across the River” in 20 years. Watch the soundcheck below, featuring a lovely, lonely “Racing in the Street” and a bit of Patti Scialfa’s beautiful ballad, “As Long As I (Can Be With You).”
+Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of "You Can Look (But You Better Not Touch)" and the first "Meeting Across the River" in 20 years. Watch the soundcheck below, featuring a lovely, lonely "Racing in the Street" and a bit of Patti Scialfa's beautiful ballad, "As Long As I (Can Be With You)."
 
 **1999:**
 
@@ -94,7 +94,7 @@ The final stand of the first American leg of the Working on a Dream Tour begins 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2009-05-21b.jpg?resize=758%2C870&amp;ssl=1)
 
-When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres “My City of Ruins,” and “Land of Hope and Dreams.” Buy or stream this show .
+When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres "My City of Ruins," and "Land of Hope and Dreams." Buy or stream this show .
 
 **2016:** [here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html)
 

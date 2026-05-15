@@ -14,7 +14,7 @@ Earth plays a show at Le Teendezvous in New Shrewsbury, New Jersey.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1968-1019-197x300.jpg?resize=758%2C1157)
 
-Bruce and the E Street Band play their fifth of five nights at Oliver’s in Boston in lieu of a scheduled but cancelled show at the University of Bridgeport.
+Bruce and the E Street Band play their fifth of five nights at Oliver's in Boston in lieu of a scheduled but cancelled show at the University of Bridgeport.
 
 **1973:**
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band play their fifth of five nights at Oliver’s in Bos
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1018-197x300.jpg?resize=758%2C1153)
 
-Bruce and the E Street Band play a show at Union College, in the school’s Memorial Chapel Concert Hall.
+Bruce and the E Street Band play a show at Union College, in the school's Memorial Chapel Concert Hall.
 
 **1974:**
 
@@ -34,7 +34,7 @@ Bruce and the E Street Band wrap up their four-night/six-show stand at the Roxy 
 
 [https://videopress.com/embed/5HvNdNG9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5HvNdNG9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The Recording Industry Association of America certifies triple platinum. By evening, Bruce has recovered enough from his flu to perform his rescheduled Born in the U.S.A. show in Tacoma. “Rosalita (Come Out Tonight)” goes missing from the setlist for the first time in a decade.
+The Recording Industry Association of America certifies triple platinum. By evening, Bruce has recovered enough from his flu to perform his rescheduled Born in the U.S.A. show in Tacoma. "Rosalita (Come Out Tonight)" goes missing from the setlist for the first time in a decade.
 
 **1984:** *Born in the U.S.A.*
 
@@ -92,9 +92,9 @@ Bruce joins a stellar line-up of talent (including Joan Jett, Joe Ely, Bon Jovi,
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2001-10-19.png?resize=758%2C947&amp;ssl=1)
 
-is released. Bruce contributes a track to the tribute album, his live 2003 performance of “.”
+is released. Bruce contributes a track to the tribute album, his live 2003 performance of "."
 
-**2004:** *Enjoy Every Sandwich: The Songs of Warren Zevon*[My Ride’s Here](https://estreetshuffle.com/index.php/2022/03/24/cover-me-my-rides-here/)
+**2004:** *Enjoy Every Sandwich: The Songs of Warren Zevon*[My Ride's Here](https://estreetshuffle.com/index.php/2022/03/24/cover-me-my-rides-here/)
 
 [https://www.youtube.com/embed/m6h4ULA0Q10?feature=oembed](https://www.youtube.com/embed/m6h4ULA0Q10?feature=oembed)
 
@@ -116,7 +116,7 @@ Bruce and the Sessions Band arrive in Spain for a week of shows, starting with a
 
 [https://www.youtube.com/embed/x9bHS79zB3w?feature=oembed](https://www.youtube.com/embed/x9bHS79zB3w?feature=oembed)
 
-Bruce performs his penultimate show at the Philadelphia Spectrum, the third of four nights in this final stand. Bruce opens with a shocker–“,” played here for the first time in 33 years. The setlist also features the first full-band “” in 27 years and the on-stage debut of “Philly Elvis” (a.k.a Nick Ferraro) for the tour premiere of “.” Oh and not for nothing, the show also includes a full album performance of . For more highlights from this show, see my 
+Bruce performs his penultimate show at the Philadelphia Spectrum, the third of four nights in this final stand. Bruce opens with a shocker–"," played here for the first time in 33 years. The setlist also features the first full-band "" in 27 years and the on-stage debut of "Philly Elvis" (a.k.a Nick Ferraro) for the tour premiere of "." Oh and not for nothing, the show also includes a full album performance of . For more highlights from this show, see my 
 
 **2009:** [When You Walk in the Room](http://estreetshuffle.com/?p=21789)[I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)[All Shook Up](http://estreetshuffle.com/index.php/2019/08/03/matr-bruce-springsteen-and-the-philly-elvis-all-shook-up/)*Born to Run*[report.](http://estreetshuffle.com/index.php/2018/10/19/where-the-band-was-philadelphia-october-19-2009/)*Where the Band Was*
 
@@ -128,7 +128,7 @@ Bruce performs his penultimate show at the Philadelphia Spectrum, the third of f
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2009-10-19.png?resize=758%2C1458&amp;ssl=1)
 
-Bruce kicks off the final North American leg of the Wrecking Ball Tour with a show at Scotiabank Place in Ottawa, where “” receives only its second-ever performance, and its first in a solo acoustic arrangement.
+Bruce kicks off the final North American leg of the Wrecking Ball Tour with a show at Scotiabank Place in Ottawa, where "" receives only its second-ever performance, and its first in a solo acoustic arrangement.
 
 **2012:** [Queen of the Supermarket](http://estreetshuffle.com/index.php/2018/10/04/roll-of-the-dice-queen-of-the-supermarket/)
 
@@ -152,7 +152,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2017:** *Springsteen on Broadway*
 
-continues its theatrical run at the Walter Kerr Theater in New York City, and Bruce releases a new song, a cover of “,” on an anniversary compilation for Appleseed Records. The song was recorded during the Seeger Sessions in 2006.
+continues its theatrical run at the Walter Kerr Theater in New York City, and Bruce releases a new song, a cover of "," on an anniversary compilation for Appleseed Records. The song was recorded during the Seeger Sessions in 2006.
 
 **2018:** *Springsteen on Broadway*[If I Had a Hammer](http://estreetshuffle.com/index.php/2019/10/07/cover-me-if-i-had-a-hammer/)
 
@@ -164,7 +164,7 @@ Bruce surprises a hometown crowd by introducing two screenings of at the Freehol
 
 [https://www.youtube.com/embed/zXUHxrcoY38?feature=oembed](https://www.youtube.com/embed/zXUHxrcoY38?feature=oembed)
 
-As the release of Bruce’s album nears, promotional activities ramp up. Today, Bruce appears on on Apple Music, and E Street Radio airs Episode 1 of , featuring conversations with Bruce, Clive Davis, and Jon Landau.
+As the release of Bruce's album nears, promotional activities ramp up. Today, Bruce appears on on Apple Music, and E Street Radio airs Episode 1 of , featuring conversations with Bruce, Clive Davis, and Jon Landau.
 
 **2020:** *Letter to You* *The Zane Lowe Show**Letter to You Radio*
 

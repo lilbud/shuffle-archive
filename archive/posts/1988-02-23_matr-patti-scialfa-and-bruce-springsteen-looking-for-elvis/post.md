@@ -1,12 +1,12 @@
-> “To me, Elvis was a metaphor for your more patriotic ideas and dreams for your country… and the guys, everybody, you and everybody, played the hell out of it. It was actually one of my angriest songs that I’ve ever written." — Patti Scialfa to Bruce Springsteen, *From My Home to Yours, Volume 9*
+> "To me, Elvis was a metaphor for your more patriotic ideas and dreams for your country… and the guys, everybody, you and everybody, played the hell out of it. It was actually one of my angriest songs that I've ever written." — Patti Scialfa to Bruce Springsteen, *From My Home to Yours, Volume 9*
 
-“Looking For Elvis” is more than just one of Patti Scialfa’s angriest songs; it’s also one of her best.
+"Looking For Elvis" is more than just one of Patti Scialfa's angriest songs; it's also one of her best.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1Vp_yU4e1tk)
 
-Patti doesn’t verge into the civic arena with her songwriting very often, but with “Looking For Elvis” she proved that she can write political songs when she wants to.
+Patti doesn't verge into the civic arena with her songwriting very often, but with "Looking For Elvis" she proved that she can write political songs when she wants to.
 
-I’m always struck by the middle verse in particular–there’s an economy of language paired with powerful metaphor that just blows me away every time I hear it.
+I'm always struck by the middle verse in particular–there's an economy of language paired with powerful metaphor that just blows me away every time I hear it.
 
 > *I remember*
 > *All those Septembers*
@@ -20,20 +20,20 @@ I’m always struck by the middle verse in particular–there’s an economy of 
 > *Fallen dreams and charity*
 > *If faith restores you*
 > *And truth delivers*
-> *Then don’t tell me that I’m standing*
-> *When I’m on my knees*
+> *Then don't tell me that I'm standing*
+> *When I'm on my knees*
 
-Patti released “Looking For Elvis” as the lead-off track for her 2007 album, *Play It As It Lays*. Bruce released an album of his own that year, and for the life of me, I cannot figure out why he didn’t add “Looking For Elvis” to his tour set lists instead of “Town Called Heartbreak” (the first single from Patti’s album).
+Patti released "Looking For Elvis" as the lead-off track for her 2007 album, *Play It As It Lays*. Bruce released an album of his own that year, and for the life of me, I cannot figure out why he didn't add "Looking For Elvis" to his tour set lists instead of "Town Called Heartbreak" (the first single from Patti's album).
 
-Both are great songs, but “Looking For Elvis” fit the Magic Tour’s theme far better than the relationship-centric “Town Called Heartbreak,” plus Bruce already had the bullet mic on stage for his nightly performance of “Reason to Believe.” (That’s Bruce, of course, playing harmonica and breathing heavy on the studio track.)
+Both are great songs, but "Looking For Elvis" fit the Magic Tour's theme far better than the relationship-centric "Town Called Heartbreak," plus Bruce already had the bullet mic on stage for his nightly performance of "Reason to Believe." (That's Bruce, of course, playing harmonica and breathing heavy on the studio track.)
 
-Now, if you listened to Bruce’s radio show last summer you might have caught him and Patti discussing “Looking For Elvis” in Episode 9–and Bruce made a curious recollection:
+Now, if you listened to Bruce's radio show last summer you might have caught him and Patti discussing "Looking For Elvis" in Episode 9–and Bruce made a curious recollection:
 
 [Watch Video Highlight](https://videopress.com/embed/8pX05LTC)
 
-Bruce was wrong, though. They didn’t cut the track at Convention Hall. But as Patti correctly recalled, they *did* perform it live there (on a closed set) for an Elvis documentary called *Viva Las Vegas* (which you can find on DVD if you’re so inclined).
+Bruce was wrong, though. They didn't cut the track at Convention Hall. But as Patti correctly recalled, they *did* perform it live there (on a closed set) for an Elvis documentary called *Viva Las Vegas* (which you can find on DVD if you're so inclined).
 
-And that live performance is very worth watching–it’s even stronger than the studio track. Bruce whoops up a storm in his extended solo, and Patti’s vocals are so angry that she uncharacteristically growls at times. Capping off with a “Mystery Train” tag, this is an outstanding performance that deserves more views than it’s received.
+And that live performance is very worth watching–it's even stronger than the studio track. Bruce whoops up a storm in his extended solo, and Patti's vocals are so angry that she uncharacteristically growls at times. Capping off with a "Mystery Train" tag, this is an outstanding performance that deserves more views than it's received.
 
 [Watch Video Highlight](https://videopress.com/embed/l9Jujnvp)
 

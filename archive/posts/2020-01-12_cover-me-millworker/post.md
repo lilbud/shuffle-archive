@@ -1,4 +1,4 @@
-We were first introduced to James Taylor's "Millworker" through Robin Lamont, who sang it in the Stephen Schwartz 1978 musical *Working,* for which Taylor wrote the song.
+We were first introduced to James Taylor's "Millworker" through Robin Lamont, who sang it in the Stephen Schwartz 1978 musical *Working*, for which Taylor wrote the song.
 
 [Watch on Youtube: Millwork](https://www.youtube.com/watch?v=_WdLkYxBbUk)
 

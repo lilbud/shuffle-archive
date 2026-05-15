@@ -4,13 +4,13 @@ The 1968 Notebook was unveiled at an auction in 2006. where it was snapped up fo
 
 ![](../../assets/2019/01/1968_lyricsnotebook.jpg)
 
-Today’s entry is buried deep in the heart of the notebook, and it reads more like a newspaper article than a song–an article that could just as easily be printed today, more than a half century later. Let’s take a look at the eleventh entry in Bruce’s notebook: “Death of a Good Man,” dated April 30, 1968.
+Today's entry is buried deep in the heart of the notebook, and it reads more like a newspaper article than a song–an article that could just as easily be printed today, more than a half century later. Let's take a look at the eleventh entry in Bruce's notebook: "Death of a Good Man," dated April 30, 1968.
 
 ![](../../assets/2019/01/1968_lyricsnotebook-contentspage.jpg)
 
-It’s June of 2019 as I write this, in an American society that has become inured to mass shootings. In 1968, they were a lot less common, and yet Bruce–barely past his childhood–managed to capture the confusion we all feel when we learn a heretofore upstanding member of the community had been harboring a simmering rage.
+It's June of 2019 as I write this, in an American society that has become inured to mass shootings. In 1968, they were a lot less common, and yet Bruce–barely past his childhood–managed to capture the confusion we all feel when we learn a heretofore upstanding member of the community had been harboring a simmering rage.
 
-Bruce writes sparingly, without a trace of metaphor, and his rhyming dictionary is missing in action. If you’re at all familiar with his early pre-label work, you’ll appreciate what a departure this was for him even then.
+Bruce writes sparingly, without a trace of metaphor, and his rhyming dictionary is missing in action. If you're at all familiar with his early pre-label work, you'll appreciate what a departure this was for him even then.
 
 ![](../../assets/2019/07/deathofagoodman_lyrics.jpg)
 
@@ -21,7 +21,7 @@ The title of the song is a feint, as is the first verse. Bruce leads us to belie
 > *that lasted about a quarter of an hour*
 > *several blocks from the New York Harbor*
 
-But as we quickly learn, the “good man” isn’t the victim but rather the killer–until he himself is shot and killed by police officers in self-defense.
+But as we quickly learn, the "good man" isn't the victim but rather the killer–until he himself is shot and killed by police officers in self-defense.
 
 > *Authorities said he was in a boarding house window*
 > *when he opened fire down upon them*
@@ -46,7 +46,7 @@ Bruce remains a clinically detached reporter for the remainder of the song, capt
 
 > *They wrote about him in all the papers*
 > *even mentioned his name once or twice*
-> *Now he’s the gossip of all the neighbors*
+> *Now he's the gossip of all the neighbors*
 > *survived by a brother and his own dear wife*
 
 > *Oh and the funeral home was really quite pretty*
@@ -54,9 +54,9 @@ Bruce remains a clinically detached reporter for the remainder of the song, capt
 > *They sent him into the ground with just enough sorrow*
 > *Williams Funeral Home in charge of arrangements*
 
-There’s no music to accompany “Death of a Good Man,” only a few spare chord notations–so we may never know what Bruce intended if he had finished and recorded the song.
+There's no music to accompany "Death of a Good Man," only a few spare chord notations–so we may never know what Bruce intended if he had finished and recorded the song.
 
-But lyrically, “Death of a Good Man” offers us perhaps the earliest insight into the spare, observational storytelling style that Bruce would reveal on *Nebraska* more than a decade later.
+But lyrically, "Death of a Good Man" offers us perhaps the earliest insight into the spare, observational storytelling style that Bruce would reveal on *Nebraska* more than a decade later.
 
 **Death of a Good Man**
 **Never Recorded**

@@ -12,7 +12,7 @@ Bruce holds a recording session for his next album at The Record Plant in New Yo
 
 **1978:**
 
-Bruce appears on Marc Maron’s podcast for a wide-ranging, hour-long conversation, but it’s Bruce’s comments on the president-elect that make national news.
+Bruce appears on Marc Maron's podcast for a wide-ranging, hour-long conversation, but it's Bruce's comments on the president-elect that make national news.
 
 **2017:** *WTF*
 

@@ -1,6 +1,6 @@
 This is the story of an original hillbilly song from the 1930s that found its way to the Jersey shore sixty years later.
 
-Most of us know "Everybody's Trying to Be My Baby" as the final track from *Beatles for Sale* and *Beatles '65,* with George Harrison on lead vocals...
+Most of us know "Everybody's Trying to Be My Baby" as the final track from *Beatles for Sale* and *Beatles '65*, with George Harrison on lead vocals...
 
 [Watch on Youtube: Everybody's Trying To Be My Baby (Remastered 2009)](https://www.youtube.com/watch?v=wn7FiAdHcmw)
 

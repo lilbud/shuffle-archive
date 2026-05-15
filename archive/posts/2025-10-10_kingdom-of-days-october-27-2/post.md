@@ -18,7 +18,7 @@ Bruce cancels a scheduled show at Millersville University when he wakes up that 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/10/Intelligencer_Journal_1974_10_26_page_7.jpg?resize=519%2C924&amp;ssl=1)
 
-Bruce’s second ever show at the Philadelphia Spectrum features a unique “” with a new last verse that is never heard again.
+Bruce's second ever show at the Philadelphia Spectrum features a unique "" with a new last verse that is never heard again.
 
 **1976:** [Something in the Night,](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)
 
@@ -28,9 +28,9 @@ Bruce’s second ever show at the Philadelphia Spectrum features a unique “”
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1976-10-27.png?resize=758%2C2068&amp;ssl=1)
 
-At The Record Plant in New York City, Bruce records “” and “” The former will not be released for more than two decades; the latter remains in the vault to this day.
+At The Record Plant in New York City, Bruce records "" and "" The former will not be released for more than two decades; the latter remains in the vault to this day.
 
-**1977:** [Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)[Preacher’s Daughter.](http://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)
+**1977:** [Iceman](https://estreetshuffle.com/index.php/2022/02/01/roll-of-the-dice-iceman/)[Preacher's Daughter.](http://estreetshuffle.com/index.php/2018/07/01/roll-of-the-dice-preachers-daughter/)
 
 [https://www.youtube.com/embed/38uXE7CPDYY?feature=oembed](https://www.youtube.com/embed/38uXE7CPDYY?feature=oembed)
 
@@ -46,7 +46,7 @@ Bruce and the E Street Band bring the River Tour to the Oakland Coliseum for the
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/46735344874_c8e2fd32b2_o-261x300.jpg?resize=758%2C871)
 
-At The Hit Factory in New York City, Bruce and the E Street Band record “.”
+At The Hit Factory in New York City, Bruce and the E Street Band record "."
 
 **1983:** [No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
 
@@ -68,7 +68,7 @@ Bruce speaks and performs at a rally in Los Angeles, urging voters to reject Pro
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1996-10-27c-184x300.png?resize=758%2C1236)
 
-Bruce grants an interview for BBC’s documentary and performs a couple of songs for the show at The Saint in Asbury Park. The documentary will air in December to promote the upcoming collection.
+Bruce grants an interview for BBC's documentary and performs a couple of songs for the show at The Saint in Asbury Park. The documentary will air in December to promote the upcoming collection.
 
 **1998:** *A Secret History**Tracks*
 
@@ -88,7 +88,7 @@ Bruce and the E Street Band wrap the first European leg of the Rising Tour at We
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2002-10-27-218x300.png?resize=758%2C1043)
 
-Bruce performs an acoustic set at a re-election rally for President Obama at Soldiers & Sailors Memorial Hall in Pittsburgh. Later that night, he tour premieres “” followed by a rare “” at his Wrecking Ball show at the Consol Arena. Joe and Johnny Grushecky guest-star during the encores.
+Bruce performs an acoustic set at a re-election rally for President Obama at Soldiers & Sailors Memorial Hall in Pittsburgh. Later that night, he tour premieres "" followed by a rare "" at his Wrecking Ball show at the Consol Arena. Joe and Johnny Grushecky guest-star during the encores.
 
 **2012:** [Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)[Talk to Me](http://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)
 

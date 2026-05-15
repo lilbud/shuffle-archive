@@ -1,6 +1,6 @@
-Today’s entry is another abandoned work-in-progress, but it’s one that showed a lot of promise.
+Today's entry is another abandoned work-in-progress, but it's one that showed a lot of promise.
 
-This home demo of recording of “I Wanna Start a New Life” dates back to late 1979, likely after Bruce had finished his ultimately abandoned *The Ties That Bind* album, but before the second batch of sessions that produced the songs that would ultimately round out the two-disc *The River*.
+This home demo of recording of "I Wanna Start a New Life" dates back to late 1979, likely after Bruce had finished his ultimately abandoned *The Ties That Bind* album, but before the second batch of sessions that produced the songs that would ultimately round out the two-disc *The River*.
 
 [Watch Video Highlight](https://videopress.com/embed/Gh4b2H5f)
 
@@ -21,9 +21,9 @@ We only have two verses (of which two lines are completely bluffed) and a chorus
 > *I wanna make it easy and free*
 > *And forget about the man that I used to be*
 
-That last line likely gives away the game: had Bruce completed the song, it’s likely that “I Wanna Start a New Life” would have fit neatly into one of Bruce’s favorite themes–a search for escape, redemption, and second chances.
+That last line likely gives away the game: had Bruce completed the song, it's likely that "I Wanna Start a New Life" would have fit neatly into one of Bruce's favorite themes–a search for escape, redemption, and second chances.
 
-Unfortunately, though, Bruce doesn’t seem to have pursued the song any further, so “I Wanna Start a New Life” never had a chance at any life at all.
+Unfortunately, though, Bruce doesn't seem to have pursued the song any further, so "I Wanna Start a New Life" never had a chance at any life at all.
 
 **I Wanna Start a New Life**
 **Recorded** Late 1979 (demo only)

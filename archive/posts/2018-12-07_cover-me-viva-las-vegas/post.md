@@ -1,6 +1,6 @@
 "Viva Las Vegas" is one of a small collection of covers that Bruce actually recorded in the studio, and it came about in an unusual way.
 
-In 1990, the late, great British magazine *New Musical Express* produced and released an Elvis Presley tribute album to benefit the Nordoff-Robbins Music Therapy Center. The album, *The Last Temptation of Elvis,* consisted solely of covers of songs Elvis performed in his movies, and it included such artists as Paul McCartney, The Pogues, Hall and Oates, Robert Plant, and of course Bruce.
+In 1990, the late, great British magazine *New Musical Express* produced and released an Elvis Presley tribute album to benefit the Nordoff-Robbins Music Therapy Center. The album, *The Last Temptation of Elvis*, consisted solely of covers of songs Elvis performed in his movies, and it included such artists as Paul McCartney, The Pogues, Hall and Oates, Robert Plant, and of course Bruce.
 
 Bruce chose "Viva Las Vegas" for his contribution, and it ended up leading off the album.
 

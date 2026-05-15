@@ -6,7 +6,7 @@ Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in P
 
 **1973:**
 
-“The Promise” makes its second-ever appearance, still a work-in-progress, when the Lawsuit Tour stops in Santa Monica for the first of two nights.
+"The Promise" makes its second-ever appearance, still a work-in-progress, when the Lawsuit Tour stops in Santa Monica for the first of two nights.
 
 **1976:**
 
@@ -20,9 +20,9 @@ Bruce and the as-yet-unnamed E Street Band play a gig at Waynesburg College in P
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1976-09-29-300x298.jpg?resize=758%2C753)
 
-Bruce records “” and “” at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.
+Bruce records "" and "" at The Record Plant in New York City. They will remain in the vault for decades until Bruce finally completes and releases them in 2010.
 
-**1977:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Someday (We’ll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)
+**1977:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Someday (We'll Be Together)](https://estreetshuffle.com/index.php/2019/10/03/roll-of-the-dice-someday-well-be-together/)
 
 [https://www.youtube.com/embed/0ena3tWYo-g?feature=oembed](https://www.youtube.com/embed/0ena3tWYo-g?feature=oembed)
 
@@ -44,7 +44,7 @@ Bruce plays two songs (although this is up for debate) with Billy Rancher & The 
 
 **1982:**
 
-Bruce and the E Street Band play their second of four shows at the final stand of the Born in the U.S.A. Tour in Los Angeles. In attendance tonight: The cast of television’s .
+Bruce and the E Street Band play their second of four shows at the final stand of the Born in the U.S.A. Tour in Los Angeles. In attendance tonight: The cast of television's .
 
 **1985:** *Growing Pains*
 
@@ -56,7 +56,7 @@ Bruce rehearses with Roy Orbison at the Cocoanut Grove in Los Angeles for the fi
 
 **1987:** *Black & White Night*
 
-Bruce makes a pit-stop at Matt’s Saloon in Prescott, Arizona while on a motorcycle trip from Los Angeles, joining house band Mile High Band on stage for about an hour and befriending and changing the life of a bartender before heading off to the Grand Canyon.
+Bruce makes a pit-stop at Matt's Saloon in Prescott, Arizona while on a motorcycle trip from Los Angeles, joining house band Mile High Band on stage for about an hour and befriending and changing the life of a bartender before heading off to the Grand Canyon.
 
 **1989:**
 
@@ -94,13 +94,13 @@ Bruce plays with Pete Seeger for the very first time at a Woody Guthrie tribute 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1996-09-29.jpg?resize=758%2C1277&amp;ssl=1)
 
-Bruce tour premieres “” when the Rising Tour stops at the Fargodome in North Dakota.
+Bruce tour premieres "" when the Rising Tour stops at the Fargodome in North Dakota.
 
 **2002:** [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
 [https://videopress.com/embed/VydrrUiL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VydrrUiL?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park’s Convention Hall for their upcoming Vote for Change Tour.
+Bruce, the E Street Band, and John Fogerty rehearse at Asbury Park's Convention Hall for their upcoming Vote for Change Tour.
 
 **2004:**
 
@@ -128,7 +128,7 @@ Bruce holds his first and only dress rehearsal (invite-only) for Springsteen on 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2017-09-29-266x300.jpg?resize=758%2C855)
 
-continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of “This Hard Land” in place of his duet of “” with Patti. In attendance tonight: Hozier.
+continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent again tonight, so Bruce adds an extra encore of "This Hard Land" in place of his duet of "" with Patti. In attendance tonight: Hozier.
 
 **2018:** *Springsteen on Broadway* [Tougher Than the Rest](http://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
 
@@ -136,13 +136,13 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Patti 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2018-09-29-298x300.jpg?resize=758%2C763)
 
-Bruce announces his twenty-first studio album, , and releases a video for the album’s lead single, “Do I Love You (Indeed I Do).”
+Bruce announces his twenty-first studio album, , and releases a video for the album's lead single, "Do I Love You (Indeed I Do)."
 
 **2022:** *Only the Strong Survive*
 
 [https://www.youtube.com/embed/O0jBwk71Qcw?feature=oembed](https://www.youtube.com/embed/O0jBwk71Qcw?feature=oembed)
 
-That evening, Bruce and Patti perform “” at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
+That evening, Bruce and Patti perform "" at the first annual Albie Awards, sponsored by The Clooney Foundation for Justice.
 
 [The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
 
@@ -158,6 +158,6 @@ View this post on Instagram
 
 [https://www.youtube.com/embed/yhCl8la_aeU?feature=oembed](https://www.youtube.com/embed/yhCl8la_aeU?feature=oembed)
 
-Bruce’s scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.
+Bruce's scheduled show at Nationals Park in Washington D.C.–already rescheduled once from a month earlier–is postponed for almost another a full year.
 
 **2023:**

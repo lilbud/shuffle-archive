@@ -70,6 +70,6 @@
 
 [Watch on Youtube: Springsteen on Broadway | Official Trailer [HD] | Netflix](https://www.youtube.com/watch?v=M1xDzgob1JI)
 
-**2020:** Bruce appears on a television special entitled *Play On: Celebrating the Power of Music to Make Change,* speaking in support of WhyHunger.
+**2020:** Bruce appears on a television special entitled *Play On: Celebrating the Power of Music to Make Change*, speaking in support of WhyHunger.
 
 [Watch Video Highlight](https://videopress.com/embed/GHZohMSF)

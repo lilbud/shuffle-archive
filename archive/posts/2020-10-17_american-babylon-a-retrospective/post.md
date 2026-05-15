@@ -8,7 +8,7 @@ It was a good time for a friend to ask him for a favor, and Joe Grushecky needed
 
 In 1993, Joe was at a career nadir. Financially struggling and creatively blocked, Joe was working constantly and unable to see a path forward to a new album. At his wife's suggestion, he called Bruce and asked him if he could help jumpstart a new record by recording a couple of songs with him.
 
-As a good friend would, Bruce said yes. Over the next year and a half, those couple of songs developed into a full album: Joe's 1995 Bruce-produced masterpiece, *American Babylon,* featuring two songs co-written by Bruce and an album full of standout tracks.
+As a good friend would, Bruce said yes. Over the next year and a half, those couple of songs developed into a full album: Joe's 1995 Bruce-produced masterpiece, *American Babylon*, featuring two songs co-written by Bruce and an album full of standout tracks.
 
 *American Babylon* turns 25 today, and in anticipation of the milestone Joe and I sat down a couple of months ago to take a look back at the making and meaning of his landmark album. While some of this story has been told before, Joe shared new detail and revelations that are sure to raise the eyebrows of both Grushecky and Springsteen fans alike.
 
@@ -430,7 +430,7 @@ Well, the reason we were able to do so much stuff with *Have a Good Time But Get
 
 Well, I saw you at the last Light of Day, right? You were on stage.
 
-**I was. I'm so glad I did that, too, because that was *this year,* 2020.**
+**I was. I'm so glad I did that, too, because that was *this year*, 2020.**
 
 [Watch on Youtube: Grushecky & Houserockers Bruce Springsteen "Talking to the King" ~ Rose A Montana Video](https://www.youtube.com/watch?v=JnFv1WiWmeo)
 

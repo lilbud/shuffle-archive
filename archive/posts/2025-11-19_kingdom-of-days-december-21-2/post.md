@@ -2,9 +2,9 @@
 
 *No updates***New for 2025:**
 
-Bruce Springsteen and his studio band” headline at Sandy’s in Beverly, Massachusetts.
+Bruce Springsteen and his studio band" headline at Sandy's in Beverly, Massachusetts.
 
-**1973: “**
+**1973: "**
 
 
 
@@ -18,21 +18,21 @@ Bruce and the E Street Band bring the Born to Run Tour to Seneca College in Toro
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Toronto_Star_1975_12_22_19.jpg?resize=758%2C1149&amp;ssl=1)
 
-passes Michael Jackson’s to take the #2 spot for longest-run on the Billboard Top 10. Lasting for an amazing 79 weeks, it still won’t come close to the number one champion: the soundtrack to .
+passes Michael Jackson's to take the #2 spot for longest-run on the Billboard Top 10. Lasting for an amazing 79 weeks, it still won't come close to the number one champion: the soundtrack to .
 
 **1985:** *Born in the U.S.A.**Thriller**The Sound of Music*
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0](https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-Bruce holds his annual Christmas party at McLoone’s Rum Runner in Sea Bright, where he joins Bobby Bandiera’s band for “”
+Bruce holds his annual Christmas party at McLoone's Rum Runner in Sea Bright, where he joins Bobby Bandiera's band for ""
 
-**1998:** [Santa Claus is Comin’ to Town.](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
+**1998:** [Santa Claus is Comin' to Town.](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
 continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2017:** *Springsteen on Broadway*
 
-Bruce performs a gorgeous acoustic version of “” (its first live performance, albeit virtual) as part of the virtual fundraising event.
+Bruce performs a gorgeous acoustic version of "" (its first live performance, albeit virtual) as part of the virtual fundraising event.
 
 **2020:** [Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)*Stand With Teachers*
 

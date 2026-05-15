@@ -48,7 +48,7 @@
 >
 > [A post shared by Betsy O'Regan Elwell (@betsy.oregan.elwell)](https://www.instagram.com/p/BlE1KCGlMdN/?utm_source=ig_embed&utm_campaign=loading)
 
-**2019:** Bruce breaks news when he calls in to E Street Radio: a new film is on the way, a concert film based on *Western Stars,* directed by Thom Zimny. When it's released later in the year, Bruce will take a co-director credit.
+**2019:** Bruce breaks news when he calls in to E Street Radio: a new film is on the way, a concert film based on *Western Stars*, directed by Thom Zimny. When it's released later in the year, Bruce will take a co-director credit.
 > Just got off a 10-minute call with [@Springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw). "I wanted to see if the number really worked," he told E Street Radio hosts Dave Marsh and Jim Rotolo. [pic.twitter.com/4hcA6201Ej](https://t.co/4hcA6201Ej)
 >
 > — SiriusXM (@SIRIUSXM) [July 10, 2019](https://twitter.com/SIRIUSXM/status/1148976398666739718?ref_src=twsrc%5Etfw)

@@ -28,7 +28,7 @@ And within a matter of days... here we are.
 
 Volume One of *The E Street Shuffle Bookshelf Collection*.
 
-From the very beginning, the blog featured several sub-blogs, but all of them were sort of in service to what I considered the flagship: *Roll of the Dice,* an exhaustive and comprehensive series of essays delving into every original Springsteen song.
+From the very beginning, the blog featured several sub-blogs, but all of them were sort of in service to what I considered the flagship: *Roll of the Dice*, an exhaustive and comprehensive series of essays delving into every original Springsteen song.
 
 *Kingdom of Days* was originally intended just as an organizational tool for my linked media, and to maybe serve as a little clickbait to attract readers so they might discover what I considered the more serious work.
 

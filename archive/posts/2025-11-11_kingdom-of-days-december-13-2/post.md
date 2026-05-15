@@ -10,7 +10,7 @@ Newly discovered contemporaneous press coverage (dated December 26 1973) suggest
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/Valley_Advocate_Amherst_Wed__Dec_26__1973_.jpg?w=758&amp;ssl=1)
 
-Bruce and the E Street Band play a Darkness Tour show at the Tucson Community Center Arena. Before the show, Bruce gives an interview to San Francisco radio station KSAN-FM. It will be aired two days later during what will prove to be one of Bruce’s most legendary shows.
+Bruce and the E Street Band play a Darkness Tour show at the Tucson Community Center Arena. Before the show, Bruce gives an interview to San Francisco radio station KSAN-FM. It will be aired two days later during what will prove to be one of Bruce's most legendary shows.
 
 **1978:**
 
@@ -42,7 +42,7 @@ Bruce and the band play their first of two Born in the U.S.A. shows at the Mid-S
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Commercial_Appeal_1984_12_14_25.jpg?resize=758%2C651&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Commercial_Appeal_1984_12_14_26.jpg?resize=758%2C722&amp;ssl=1)
 
-Bruce appears at the All Star Benefit for the Homeless Children at Madison Square Garden. Like the name suggests, the talent line-up is stellar, making for some amazing moments: Bruce, Paul Simon, James Taylor, Billy Joel, Ruben Blades, and Lou Reed all back Dion DiMucci for “;” Bruce plays a solo acoustic “Born to Run;” Paul Shaffer’s World’s Most Dangerous Band tackles “” with Bruce, Paul, and Billy. Check out highlights and news coverage from this amazing show below.
+Bruce appears at the All Star Benefit for the Homeless Children at Madison Square Garden. Like the name suggests, the talent line-up is stellar, making for some amazing moments: Bruce, Paul Simon, James Taylor, Billy Joel, Ruben Blades, and Lou Reed all back Dion DiMucci for ";" Bruce plays a solo acoustic "Born to Run;" Paul Shaffer's World's Most Dangerous Band tackles "" with Bruce, Paul, and Billy. Check out highlights and news coverage from this amazing show below.
 
 **1987:** [A Teenager in Love](https://estreetshuffle.com/index.php/2020/08/16/matr-dion-bruce-springsteen-paul-simon-lou-reed-james-taylor-billy-joel-and-reuben-blades-a-teenager-in-love/)[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
@@ -58,7 +58,7 @@ Bruce appears at the All Star Benefit for the Homeless Children at Madison Squar
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1987-12-13.png?resize=758%2C675&amp;ssl=1)
 
-Patti makes a guest appearance when World Tour 1992 stops in Boston for the first of two nights at the Garden. This show is available as part of Bruce’s official archive series–get it .
+Patti makes a guest appearance when World Tour 1992 stops in Boston for the first of two nights at the Garden. This show is available as part of Bruce's official archive series–get it .
 
 **1992:** [here](https://live.brucespringsteen.net/live-music/0,26415/Bruce-Springsteen-mp3-flac-download-12-13-1992-Boston-Garden-Boston-MA.html)
 
@@ -86,7 +86,7 @@ Bruce brings his solo acoustic tour to the Beacon Theater in New York City for t
 
 [https://www.youtube.com/embed/4-ut6-51V8A?feature=oembed](https://www.youtube.com/embed/4-ut6-51V8A?feature=oembed)
 
-Bruce makes a guest appearance at Joe Grushecky’s acoustic show at Cheers in Long Branch, New Jersey.
+Bruce makes a guest appearance at Joe Grushecky's acoustic show at Cheers in Long Branch, New Jersey.
 
 **1997:**
 
@@ -102,7 +102,7 @@ Bruce makes a guest appearance at Joe Grushecky’s acoustic show at Cheers in L
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/12/The_Star_Ledger_1997_12_15_27.jpg?w=758&amp;ssl=1)
 
-Bruce and the E Street Band take the Rising Tour to the Pepsi Arena in Albany, where they close the show with “” not played in 24 years.
+Bruce and the E Street Band take the Rising Tour to the Pepsi Arena in Albany, where they close the show with "" not played in 24 years.
 
 **2002:** [Around and Around,](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)
 
@@ -114,9 +114,9 @@ Bruce and the E Street Band take the Rising Tour to the Pepsi Arena in Albany, w
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2002-12-13b.png?resize=758%2C1216&amp;ssl=1)
 
-Wolfgang Niedecken joins Bruce and the band for a show-closing “” when the Magic Tour stops in Cologne.
+Wolfgang Niedecken joins Bruce and the band for a show-closing "" when the Magic Tour stops in Cologne.
 
-**2007:** [Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
+**2007:** [Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
 [https://www.youtube.com/embed/MAw1ay2rJrI?feature=oembed](https://www.youtube.com/embed/MAw1ay2rJrI?feature=oembed)
 
@@ -124,13 +124,13 @@ Wolfgang Niedecken joins Bruce and the band for a show-closing “” when the M
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDSL8ngmVycL0CCnIFMpxRP](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDSL8ngmVycL0CCnIFMpxRP)
 
-Bruce gathers the E Street Band at the Paramount Theater in Asbury Park, where they film a live performance of every track from to an empty room. The performance will be released the following year as part of the box set for but can also be viewed on Bruce’s official YouTube channel.
+Bruce gathers the E Street Band at the Paramount Theater in Asbury Park, where they film a live performance of every track from to an empty room. The performance will be released the following year as part of the box set for but can also be viewed on Bruce's official YouTube channel.
 
 **2009:** [https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town**The Promise: The Darkness on the Edge of Town Story*
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5paxewLf5pnXs4v7Dx4vjCiM](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5paxewLf5pnXs4v7Dx4vjCiM)
 
-Also today: the release of , a documentary featuring a contribution from Bruce playing over the credits–a beautiful, acoustic “.”
+Also today: the release of , a documentary featuring a contribution from Bruce playing over the credits–a beautiful, acoustic "."
 
 *The People Speak*[This Land Is Your Land](https://estreetshuffle.com/index.php/2023/07/04/cover-me-this-land-is-your-land/)
 
@@ -148,7 +148,7 @@ continues its final week of shows at the Walter Kerr Theater in New York City. A
 
 **2018:** *Springsteen on Broadway* <https://estreetshuffle.com/wp-content/uploads/2022/12/18931-13.12.2018-ITEMA_21920412-0.mp3>
 
-Bruce performs a rare post-pandemic electric set at Steve Earle’s annual John Henry’s Friends Benefit, including team-ups with Willie Nile on “Glory Days,” “” with Steve Earle, and a finale ensemble on “.”
+Bruce performs a rare post-pandemic electric set at Steve Earle's annual John Henry's Friends Benefit, including team-ups with Willie Nile on "Glory Days," "" with Steve Earle, and a finale ensemble on "."
 
 **2021:** [Pink Cadillac](https://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)[Teach Your Children](https://estreetshuffle.com/index.php/2018/04/14/matr-crosby-stills-nash-young-and-springsteen-teach-your-children/)
 

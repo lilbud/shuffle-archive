@@ -2,7 +2,7 @@
 
 *Audio for 1988***New for 2025:**
 
-What would have been Bruce’s first-ever appearance in Seattle is scuttled when he bows out of a scheduled gig opening for Paul Butterfield at the Paramount Theater. (Note: Brucebase lists this show as having been cancelled, but a newspaper review reveals that it went on without Bruce’s involvement.)
+What would have been Bruce's first-ever appearance in Seattle is scuttled when he bows out of a scheduled gig opening for Paul Butterfield at the Paramount Theater. (Note: Brucebase lists this show as having been cancelled, but a newspaper review reveals that it went on without Bruce's involvement.)
 
 **1973:**
 
@@ -46,7 +46,7 @@ Bruce and Patti take in a hockey game in New York City, where the Islanders play
 
 [https://www.youtube.com/embed/zrVi-AgoBiE?feature=oembed](https://www.youtube.com/embed/zrVi-AgoBiE?feature=oembed)
 
-Rehearsals begin for Bruce Springsteen and the E Street Band’s Reunion Tour in Asbury Park.
+Rehearsals begin for Bruce Springsteen and the E Street Band's Reunion Tour in Asbury Park.
 
 **1999:**
 
@@ -62,9 +62,9 @@ The Reunion Tour begins its Florida leg at Orlando Arena.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2000-03-04-300x79.jpg?resize=758%2C200)
 
-In Jacksonville along the Rising Tour, the band covers “” in memory of Hank Ballard, who died the week prior. This show also features the tour debut (and only the second E Street Band performance) of “.” Watch the full show below.
+In Jacksonville along the Rising Tour, the band covers "" in memory of Hank Ballard, who died the week prior. This show also features the tour debut (and only the second E Street Band performance) of "." Watch the full show below.
 
-**2003:** [Let’s Go, Let’s Go, Let’s Go](http://estreetshuffle.com/index.php/2018/09/26/matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/)[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)
+**2003:** [Let's Go, Let's Go, Let's Go](http://estreetshuffle.com/index.php/2018/09/26/matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/)[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)
 
 [https://videopress.com/embed/xKFbULno?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/xKFbULno?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

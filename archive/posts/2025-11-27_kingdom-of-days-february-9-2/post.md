@@ -6,7 +6,7 @@ Bruce watches The Beatles make their live American debut on The Ed Sullivan Show
 
 [https://www.youtube.com/embed/jenWdylTtzs?feature=oembed](https://www.youtube.com/embed/jenWdylTtzs?feature=oembed)
 
-The reviews Bruce’s debut album, 
+The reviews Bruce's debut album, 
 
 **1973:** *Asbury Park Press* [](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)*Greetings from Asbury Park, N.J.*
 
@@ -18,7 +18,7 @@ Bruce and his band play their last of three nights at Richards in Altanta, openi
 
 **1974:**
 
-Bruce and the E Street Band bring the “Lawsuit Tour” to Kleinhan’s Music Hall in Buffalo.
+Bruce and the E Street Band bring the "Lawsuit Tour" to Kleinhan's Music Hall in Buffalo.
 
 **1977:**
 
@@ -34,7 +34,7 @@ Hours before he is scheduled to perform, Bruce cancels his River Tour show in In
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-02-09-300x183.jpg?resize=758%2C462)
 
-Following a benefit concert for Sting’s Rainforest Foundation, Sting invites Bruce, Joni Mitchell and other musician friends to a party at his house.
+Following a benefit concert for Sting's Rainforest Foundation, Sting invites Bruce, Joni Mitchell and other musician friends to a party at his house.
 
 **1991:**
 
@@ -42,7 +42,7 @@ Following a benefit concert for Sting’s Rainforest Foundation, Sting invites B
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1991-0209-300x197.jpg?resize=758%2C499)
 
-Night Two in Sydney again features the Australian Urban Orchestra for “New York City Serenade” along with a River outtake pairing of “” and “” Also tour premiering tonight: “” and “.”
+Night Two in Sydney again features the Australian Urban Orchestra for "New York City Serenade" along with a River outtake pairing of "" and "" Also tour premiering tonight: "" and "."
 
 **2017:**[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Be True.](https://estreetshuffle.com/index.php/2020/12/02/roll-of-the-dice-be-true/)[Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 

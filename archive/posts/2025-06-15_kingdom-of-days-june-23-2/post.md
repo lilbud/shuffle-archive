@@ -18,11 +18,11 @@ Bruce and the E Street Band play two shows on their third of three consecutive n
 
 **1974:**
 
-Bruce and the E Street Band work on “” at Atlantic Studios in New York City.
+Bruce and the E Street Band work on "" at Atlantic Studios in New York City.
 
 **1977:** [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)
 
-In town a day early for his Darkness Tour stop, Bruce drops by the Paramount Theater in Portland, Oregon to catch Warren Zevon’s performance. He joins Zevon for “I’ll Sleep When I’m Dead,” the final encore of the evening.
+In town a day early for his Darkness Tour stop, Bruce drops by the Paramount Theater in Portland, Oregon to catch Warren Zevon's performance. He joins Zevon for "I'll Sleep When I'm Dead," the final encore of the evening.
 
 **1978:**
 
@@ -54,7 +54,7 @@ Bruce and the reunited E Street Band stop in Stockholm for the first of two show
 
 [https://www.youtube.com/embed/HmDVXvxXtkA?feature=oembed](https://www.youtube.com/embed/HmDVXvxXtkA?feature=oembed)
 
-Night Six of Ten at Madison Square Garden features a rare “,” as the Reunion Tour’s last stand continues.
+Night Six of Ten at Madison Square Garden features a rare "," as the Reunion Tour's last stand continues.
 
 **2000:** [4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
@@ -64,7 +64,7 @@ Night Six of Ten at Madison Square Garden features a rare “,” as the Reunion
 
 [https://www.youtube.com/embed/D3vUmI_08jo?feature=oembed](https://www.youtube.com/embed/D3vUmI_08jo?feature=oembed)
 
-Bruce plays “” for the first time in 24 years at his Devils & Dust show in Gothenburg.
+Bruce plays "" for the first time in 24 years at his Devils & Dust show in Gothenburg.
 
 **2005:** [Fade Away](http://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)
 
@@ -72,17 +72,17 @@ Bruce plays “” for the first time in 24 years at his Devils & Dust show in G
 
 [https://www.youtube.com/embed/jolZKmU3SbM?feature=oembed](https://www.youtube.com/embed/jolZKmU3SbM?feature=oembed)
 
-Conan O’Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of “” on Bruce also performs “.”
+Conan O'Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of "" on Bruce also performs "."
 
-**2006:** [Pay Me My Money Down](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)*Late Night with Conan O’Brien.*[Bring ’em Home](https://estreetshuffle.com/index.php/2021/06/23/rotd-cover-me-bring-em-home/)
+**2006:** [Pay Me My Money Down](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)*Late Night with Conan O'Brien.*[Bring 'em Home](https://estreetshuffle.com/index.php/2021/06/23/rotd-cover-me-bring-em-home/)
 
 [https://www.youtube.com/embed/fSt22GEPQGg?feature=oembed](https://www.youtube.com/embed/fSt22GEPQGg?feature=oembed)
 
 [https://www.youtube.com/embed/wXUiV6SwOBw?feature=oembed](https://www.youtube.com/embed/wXUiV6SwOBw?feature=oembed)
 
-Bruce tour premieres “” as an encore during his Magic Tour stop in Antwerp.
+Bruce tour premieres "" as an encore during his Magic Tour stop in Antwerp.
 
-**2008:** [I’m a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)
+**2008:** [I'm a Rocker](https://estreetshuffle.com/index.php/2020/09/18/roll-of-the-dice-im-a-rocker/)
 
 [https://www.youtube.com/embed/RuV3LKuwNw8?feature=oembed](https://www.youtube.com/embed/RuV3LKuwNw8?feature=oembed)
 

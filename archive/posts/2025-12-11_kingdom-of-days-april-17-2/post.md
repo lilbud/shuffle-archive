@@ -28,7 +28,7 @@ Bruce joins Southside Johnny and the Asbury Jukes at The Stone Pony for four son
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1977-0417.jpg?resize=600%2C407&amp;ssl=1)
 
-Bruce’s Tunnel of Love Express show at the St. Louis Arena is captured by a fan on film. Watch the full show here:
+Bruce's Tunnel of Love Express show at the St. Louis Arena is captured by a fan on film. Watch the full show here:
 
 **1988:**
 
@@ -44,13 +44,13 @@ Bruce’s Tunnel of Love Express show at the St. Louis Arena is captured by a fa
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-17b.jpg?resize=653%2C960&amp;ssl=1)
 
-Bruce plays a second solo acoustic show at Royal Albert Hall in London, where “The Wish” is played for the first time in the U.K. This show was rescheduled from its original date in March.
+Bruce plays a second solo acoustic show at Royal Albert Hall in London, where "The Wish" is played for the first time in the U.K. This show was rescheduled from its original date in March.
 
 **1996:**
 
 [https://videopress.com/embed/ueRkPB8b?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ueRkPB8b?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The Reunion Tour arrives in Italy, starting with a single show in Bologna. The set list features a rare outing for “Brilliant Disguise” and an unusual opening arrangement for “She’s the One.”
+The Reunion Tour arrives in Italy, starting with a single show in Bologna. The set list features a rare outing for "Brilliant Disguise" and an unusual opening arrangement for "She's the One."
 
 **1999:**
 
@@ -58,7 +58,7 @@ The Reunion Tour arrives in Italy, starting with a single show in Bologna. The s
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1D8WN5_7CYB27KD-kHzweL0](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1D8WN5_7CYB27KD-kHzweL0)
 
-Joe Ely guest-stars for “All Just to Get to You” at Bruce and the E Street Band’s Reunion show in Austin.
+Joe Ely guest-stars for "All Just to Get to You" at Bruce and the E Street Band's Reunion show in Austin.
 
 **2000:**
 
@@ -74,7 +74,7 @@ Original E Street Band (and Child and Steel Mill) member Danny Federici passes a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-17.jpg?resize=758%2C1088&amp;ssl=1)
 
-Bruce brings the Wrecking Ball Tour to Quicken Loans Arena in Cleveland, where “My Love Will Not Let You Down” and “Light of Day” make their tour debuts.
+Bruce brings the Wrecking Ball Tour to Quicken Loans Arena in Cleveland, where "My Love Will Not Let You Down" and "Light of Day" make their tour debuts.
 
 **2012:**
 
@@ -84,7 +84,7 @@ Bruce brings the Wrecking Ball Tour to Quicken Loans Arena in Cleveland, where �
 
 [https://www.youtube.com/embed/UOMdP1Bo2ow?feature=oembed](https://www.youtube.com/embed/UOMdP1Bo2ow?feature=oembed)
 
-The High Hopes Tour stops at Nashville’s Bridgestone Arena and brings with it tour premieres of “Burning Love” and “Point Blank,” and “(I Can’t Get No) Satisfaction.”
+The High Hopes Tour stops at Nashville's Bridgestone Arena and brings with it tour premieres of "Burning Love" and "Point Blank," and "(I Can't Get No) Satisfaction."
 
 **2014:**
 

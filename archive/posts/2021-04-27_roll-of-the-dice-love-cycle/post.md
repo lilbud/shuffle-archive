@@ -1,14 +1,14 @@
 Welcome to Springsteen Poetry Corner.
 
-I’m guessing, of course, but I’m pretty sure that Bruce didn’t have musical accompaniment in mind when he wrote “Love Cycle” in the pages of his 1968 notebook.
+I'm guessing, of course, but I'm pretty sure that Bruce didn't have musical accompaniment in mind when he wrote "Love Cycle" in the pages of his 1968 notebook.
 
-Not only do the structure and meter of Bruce’s lyrics suggest a more poetic than melodic intent, the opening line and several of his phrases appear in a poem entitled “My Lady” that Bruce submitted to *Seascape*, the literary magazine of Ocean County College*.* (The magazine published Bruce’s poem in their January 1969 issue.)
+Not only do the structure and meter of Bruce's lyrics suggest a more poetic than melodic intent, the opening line and several of his phrases appear in a poem entitled "My Lady" that Bruce submitted to *Seascape*, the literary magazine of Ocean County College*.* (The magazine published Bruce's poem in their January 1969 issue.)
 
 ![](../../assets/2021/04/my-lady.jpg)
 
-“Love Cycle” shares a lot of DNA with “My Lady,” but it’s a very different piece. It appears very late in Bruce’s 1968 notebook, suggesting that it dates to the final months of that year–very possibly an early or abandoned version that gave rise to “My Lady” instead.
+"Love Cycle" shares a lot of DNA with "My Lady," but it's a very different piece. It appears very late in Bruce's 1968 notebook, suggesting that it dates to the final months of that year–very possibly an early or abandoned version that gave rise to "My Lady" instead.
 
-Bruce’s “Love Cycle” stanzas are relatively polished, suggesting he was transcribing rather than writing–at least at first. There’s a notable departure on the second page where Bruce seems inspired to riff on his circus theme, branching off to page three for the complete middle section.
+Bruce's "Love Cycle" stanzas are relatively polished, suggesting he was transcribing rather than writing–at least at first. There's a notable departure on the second page where Bruce seems inspired to riff on his circus theme, branching off to page three for the complete middle section.
 
 ![](../../assets/2021/04/lovecycle_lyrics1.jpg)
 
@@ -16,24 +16,24 @@ Bruce’s “Love Cycle” stanzas are relatively polished, suggesting he was tr
 
 ![](../../assets/2021/04/lovecycle_lyrics3.jpg)
 
-Thanks to the good folks at Springsteenlyrics.com, we have a clean transcription of Bruce’s writing to analyze.
+Thanks to the good folks at Springsteenlyrics.com, we have a clean transcription of Bruce's writing to analyze.
 
-The title gives us the only clue we need to unlock Bruce’s intent: “Love Cycle” traces the course of love through one’s life, beginning with the sudden onrush that envelops new parents and binds them.
+The title gives us the only clue we need to unlock Bruce's intent: "Love Cycle" traces the course of love through one's life, beginning with the sudden onrush that envelops new parents and binds them.
 
-Actually, that’s not quite right–we begin with the suggestion of death in the form of a lost feather; only after it completes its fall do we greet the day with new life.
+Actually, that's not quite right–we begin with the suggestion of death in the form of a lost feather; only after it completes its fall do we greet the day with new life.
 
 > *The listless feather drifts upon the wind*
-> *Casts a wounded refuge from the night’s severed wing,*
-> *Down, down, tumbling down,*
-> *Unto your hand she lies,*
+> *Casts a wounded refuge from the night's severed wing*,
+> *Down, down, tumbling down*,
+> *Unto your hand she lies*,
 > *To kiss the blessed skin and then to die*
 > *In the morning when I rise*
 
-> *The silence of dawn is broken by a new child’s cry*
+> *The silence of dawn is broken by a new child's cry*
 > *A young girl slowly smiles as the sun breaks the sky*
 > *I find myself sinking into her gentle eyes*
 > *And my blood flows so wild*
-> *Through the rivers of her mind,*
+> *Through the rivers of her mind*,
 > *In the morning when I rise*
 
 > *A morning star glows with kindness*
@@ -46,7 +46,7 @@ Actually, that’s not quite right–we begin with the suggestion of death in th
 > *And taste the sweetened taste*
 > *Of a love we had one young sea morning*
 
-The middle section is intentionally simpler. It evokes a simpler time when our lovers’ bond was new and responsibilities few. Bruce perhaps extends the circus metaphor a bit too far, but it’s clear he does so in order to convey that while his characters may be young adults, they haven’t fully left carefree childhood behind.
+The middle section is intentionally simpler. It evokes a simpler time when our lovers' bond was new and responsibilities few. Bruce perhaps extends the circus metaphor a bit too far, but it's clear he does so in order to convey that while his characters may be young adults, they haven't fully left carefree childhood behind.
 
 > *Twisted roots of a torn oak tree*
 > *Bend and wind together as you and me*
@@ -74,7 +74,7 @@ The middle section is intentionally simpler. It evokes a simpler time when our l
 > *Watch the man on the flying trapeze*
 > *As he swings so gracefully undaunted*
 
-In the final section of “Love Cycle,” our lovers age to and through adulthood, flashing forward to old age. Bruce hasn’t yet honed his talent for subtlety, resorting instead to on-the-nose imagery like a grandfather clock, rocking chair, and gray-haired children.
+In the final section of "Love Cycle," our lovers age to and through adulthood, flashing forward to old age. Bruce hasn't yet honed his talent for subtlety, resorting instead to on-the-nose imagery like a grandfather clock, rocking chair, and gray-haired children.
 
 > *Standing in an open doorway*
 > *Hands reaching out to touch the rain*
@@ -100,9 +100,9 @@ In the final section of “Love Cycle,” our lovers age to and through adulthoo
 > *Worked and loved together as one when we were one*
 > *Remember when we were young*
 
-The final lines of “Love Cycle” fulfill the promise of Bruce’s title: although Bruce doesn’t (and doesn’t need to) state as much, the raven will no doubt lose a feather that tired morning, suggesting that our narrator has reached the end of his journey with a new life somewhere ready to begin.
+The final lines of "Love Cycle" fulfill the promise of Bruce's title: although Bruce doesn't (and doesn't need to) state as much, the raven will no doubt lose a feather that tired morning, suggesting that our narrator has reached the end of his journey with a new life somewhere ready to begin.
 
-Explore more entries from Bruce’s 1968 notebook [here](https://estreetshuffle.com/?s=1968+notebook).
+Explore more entries from Bruce's 1968 notebook [here](https://estreetshuffle.com/?s=1968+notebook).
 
 **Love Cycle**
 **Never recorded**

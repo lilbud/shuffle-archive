@@ -1,6 +1,6 @@
 The Bruce Springsteen Band had a year-long run from the summer of '71 to the summer of '72, but for a while, it didn't look like they were going to make it past the six-month mark.
 
-At the same time Bruce was forming and performing with his eponymous band, he was falling "in obsession" (as he put it in *Born to Run*) with a "drug-taking, hell-raising wild child who played by nobody's rules." (If you saw *Springsteen on Broadway,* this was the girlfriend who convinced agents to come see Bruce play and then slept with them.)
+At the same time Bruce was forming and performing with his eponymous band, he was falling "in obsession" (as he put it in *Born to Run*) with a "drug-taking, hell-raising wild child who played by nobody's rules." (If you saw *Springsteen on Broadway*, this was the girlfriend who convinced agents to come see Bruce play and then slept with them.)
 
 Bruce found out about his girlfriend's infidelities when her roommate ratted her out, and he soon found himself romantically involved with the roommate. Given the circumstances, that wasn't destined to work out, either.
 

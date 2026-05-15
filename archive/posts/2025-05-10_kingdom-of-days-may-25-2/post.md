@@ -14,13 +14,13 @@ A scheduled gig at Archbishop John Carroll High School in Radnor, Pennsylvania i
 
 **1974:**
 
-Bruce and the E Street Band work on “” at the Power Station in New York City.
+Bruce and the E Street Band work on "" at the Power Station in New York City.
 
 **1979:** [Sherry Darling](https://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)
 
-Bruce records “” in his home studio. It will be released later on the year on .
+Bruce records "" in his home studio. It will be released later on the year on .
 
-**1982:** [My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)*Nebraska*
+**1982:** [My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)*Nebraska*
 
 [https://www.youtube.com/embed/r0NKGaPSSBQ?feature=oembed](https://www.youtube.com/embed/r0NKGaPSSBQ?feature=oembed)
 
@@ -28,7 +28,7 @@ Bruce and the E Street Band record for their upcoming album at The Hit Factory i
 
 **1983:**
 
-Bruce’s World Tour 1993 moves on to Rome for a show at Stadio Flaminio.
+Bruce's World Tour 1993 moves on to Rome for a show at Stadio Flaminio.
 
 **1993:**
 
@@ -46,7 +46,7 @@ The final stand of the Ghost of Tom Joad Tour begins with the first of two shows
 
 [https://videopress.com/embed/fOZ2sDFN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fOZ2sDFN?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The Reunion Tour stops at RDS Arena in Dublin, where the E Street Band plays “” for the very first time.
+The Reunion Tour stops at RDS Arena in Dublin, where the E Street Band plays "" for the very first time.
 
 **1999:** [Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/)
 
@@ -64,7 +64,7 @@ is certified gold by the Recording Industry Association of America.
 
 [https://www.youtube.com/embed/Iuh96kiIU2M?list=PLk9jHCsuoh6mPdX4YMgcpjjqh2IW4oDmZ](https://www.youtube.com/embed/Iuh96kiIU2M?list=PLk9jHCsuoh6mPdX4YMgcpjjqh2IW4oDmZ)
 
-Bruce and the E Street Band play their final of three shows at RDS Arena in Dublin as the final European leg of the Magic Tour picks up steam. The setlist features a rare outing for “.”
+Bruce and the E Street Band play their final of three shows at RDS Arena in Dublin as the final European leg of the Magic Tour picks up steam. The setlist features a rare outing for "."
 
 **2008:** [4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
@@ -74,7 +74,7 @@ Bruce and the E Street Band play their final of three shows at RDS Arena in Dubl
 
 [https://www.youtube.com/embed/0ojWymGABfs?feature=oembed](https://www.youtube.com/embed/0ojWymGABfs?feature=oembed)
 
-Frankfurt fans get tour premieres of “,” “,” and “” as the Wrecking Ball Tour reaches Germany.
+Frankfurt fans get tour premieres of "," "," and "" as the Wrecking Ball Tour reaches Germany.
 
 **2012:** [Summertime Blues](http://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)
 
@@ -86,9 +86,9 @@ Frankfurt fans get tour premieres of “,” “,” and “” as the Wrecking 
 
 [https://www.youtube.com/embed/N4xxbtynLbU?feature=oembed](https://www.youtube.com/embed/N4xxbtynLbU?feature=oembed)
 
-Of all the tour premieres one might predict for the River Tour’s stop in Manchester, “” probably wouldn’t be one of them (but that’s what it was).
+Of all the tour premieres one might predict for the River Tour's stop in Manchester, "" probably wouldn't be one of them (but that's what it was).
 
-**2016:** [Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
+**2016:** [Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
 [https://www.youtube.com/embed/lrkI254iEaU?feature=oembed](https://www.youtube.com/embed/lrkI254iEaU?feature=oembed)
 

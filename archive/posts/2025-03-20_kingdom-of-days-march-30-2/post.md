@@ -2,13 +2,13 @@
 
 *New entry for 1978, 1979, 1996, and 2008***New for 2025:**
 
-At the Record Plant in New York City, Bruce and his studio team complete the mix for “”
+At the Record Plant in New York City, Bruce and his studio team complete the mix for ""
 
 **1978:** [Darkness on the Edge of Town.](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)
 
 [https://www.youtube.com/embed/0LpdEyGhNxM?feature=oembed](https://www.youtube.com/embed/0LpdEyGhNxM?feature=oembed)
 
-Bruce and the E Street Band rehearse for their upcoming album in Bruce’s home studio in Holmdel, although several of the songs they work on won’t see release for almost four decades.
+Bruce and the E Street Band rehearse for their upcoming album in Bruce's home studio in Holmdel, although several of the songs they work on won't see release for almost four decades.
 
 **1979:**
 
@@ -24,7 +24,7 @@ Bruce postpones a show in Edinburgh to recover from the previous leg of the Rive
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1006)
 
-Detroit radio station WRIF-FM airs a bootleg of last month’s Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can’t envision a day when bootlegs are commonly played on the radio.
+Detroit radio station WRIF-FM airs a bootleg of last month's Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can't envision a day when bootlegs are commonly played on the radio.
 
 **1988:**
 
@@ -48,7 +48,7 @@ Bruce and his new touring band rehearse in Glasgow before kicking off World Tour
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30b.png?resize=758%2C1506&amp;ssl=1)
 
-Bruce’s scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year’s Oscars ceremony.
+Bruce's scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year's Oscars ceremony.
 
 **1996:**
 
@@ -64,7 +64,7 @@ In town a day early for their show in Vancouver, Bruce and Max take their sons t
 
 [https://www.youtube.com/embed/ftsBk0Sq2A8?feature=oembed](https://www.youtube.com/embed/ftsBk0Sq2A8?feature=oembed)
 
-Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on “.”
+Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on "."
 
 **2013:** [Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
 

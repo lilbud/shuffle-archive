@@ -1,4 +1,4 @@
-“The Time In Between” is a masterpiece of minimalism, a meta-commentary on the moments that separate the tracks on an album.
+"The Time In Between" is a masterpiece of minimalism, a meta-commentary on the moments that separate the tracks on an album.
 
 Or the posts on a blog.
 

@@ -70,7 +70,7 @@ I remember predicting to myself the likely encores: given the serious nature of 
 
 [Watch on Youtube: Bruce Springsteen Fenway Park — Rosalita (Come Out Tonight) — August 14th 2012](https://www.youtube.com/watch?v=aX9g1IjI9Kk)
 
-But then came one final wild card–and *finally,* right at the end, a personal premiere: my first "[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)." I suspected we'd get it (Bruce often breaks it out in Boston), and to hear it with the horns (it was the first time Bruce played it with that band configuration) was a delight. "Dirty Water" saved me from ending a remarkably long streak of shows with at least one song I hadn't heard live before.
+But then came one final wild card–and *finally*, right at the end, a personal premiere: my first "[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)." I suspected we'd get it (Bruce often breaks it out in Boston), and to hear it with the horns (it was the first time Bruce played it with that band configuration) was a delight. "Dirty Water" saved me from ending a remarkably long streak of shows with at least one song I hadn't heard live before.
 
 [Watch on Youtube: Dirty Water](https://www.youtube.com/watch?v=EuJdbVDelsc)
 

@@ -34,7 +34,7 @@ On hiatus without a leader, the E Street Band backs Marshall Crenshaw and Joey R
 
 **1992:** <https://estreetshuffle.com/wp-content/uploads/2024/11/03-Dont-Let-Me-Down.mp3><https://estreetshuffle.com/wp-content/uploads/2024/11/06-Go-Your-Own-Way.mp3>
 
-Bruce kicks off what will prove to be a marathon-length world tour, performing solo and acoustic in small theaters and intimate venues. The tour begins at the Count Basie Theater in Red Bank, where “” makes its only appearance of the opening leg.
+Bruce kicks off what will prove to be a marathon-length world tour, performing solo and acoustic in small theaters and intimate venues. The tour begins at the Count Basie Theater in Red Bank, where "" makes its only appearance of the opening leg.
 
 **1995:** [Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
 
@@ -42,15 +42,15 @@ Bruce kicks off what will prove to be a marathon-length world tour, performing s
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-22-300x75.png?resize=758%2C190)
 
-The anticipation for Bruce’s upcoming show in Tampa is building, stoked by the local news. Tonight, they air a special look at Bruce’s local fandom.
+The anticipation for Bruce's upcoming show in Tampa is building, stoked by the local news. Tonight, they air a special look at Bruce's local fandom.
 
 **2002:**
 
 [https://www.youtube.com/embed/Muj_8nm8kyc?feature=oembed](https://www.youtube.com/embed/Muj_8nm8kyc?feature=oembed)
 
-The Devils and Dust solo acoustic tour comes to a close at the Sovereign Bank Arena in Trenton, but Bruce still has surprises up his sleeve: “Zero and Blind Terry” make their return to Bruce’s setlist, 31 years after their last appearance. “” and “” also make their tour premiere at the last show, and in the encores, Bruce brings his extended family on stage to join him for one last seasonal tour premiere: “” This show is available for purchase as part of Bruce’s official archive series–get it .
+The Devils and Dust solo acoustic tour comes to a close at the Sovereign Bank Arena in Trenton, but Bruce still has surprises up his sleeve: "Zero and Blind Terry" make their return to Bruce's setlist, 31 years after their last appearance. "" and "" also make their tour premiere at the last show, and in the encores, Bruce brings his extended family on stage to join him for one last seasonal tour premiere: "" This show is available for purchase as part of Bruce's official archive series–get it .
 
-**2005:** [Fire](http://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)[Santa Claus is Comin’ to Town.](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[here](http://live.brucespringsteen.net/live-music/0,21532/Bruce-Springsteen-mp3-flac-download-11-22-2005-Sovereign-Bank-Arena-Trenton-NJ.html)
+**2005:** [Fire](http://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)[Santa Claus is Comin' to Town.](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[here](http://live.brucespringsteen.net/live-music/0,21532/Bruce-Springsteen-mp3-flac-download-11-22-2005-Sovereign-Bank-Arena-Trenton-NJ.html)
 
 [https://www.youtube.com/embed/dKzarMVvALI?feature=oembed](https://www.youtube.com/embed/dKzarMVvALI?feature=oembed)
 
@@ -70,9 +70,9 @@ The Devils and Dust solo acoustic tour comes to a close at the Sovereign Bank Ar
 
 [https://www.youtube.com/embed/SatYbLm--N4?feature=oembed](https://www.youtube.com/embed/SatYbLm--N4?feature=oembed)
 
-Four years later to the day, Bruce is wrapping up another tour, as the Working on a Dream Tour comes to a close in Buffalo. This show closes a much bigger chapter in Bruce’s life, though–it marks the last time Clarence Clemons will grace the E Street stage for a public concert. Almost as if he knows it, Bruce plans a very special show, playing start to finish for the first and only time ever. Two tracks from that album are tour premieres–“” and “,” the latter of which features lovely viola support from Joyce Hammann. The special moments keep coming: “Restless Nights” is played for the very first time ever (by request from Steve), “” is played by request (another tour debut), and since the holidays are approaching, Bruce plays “” and “Santa Claus is Comin’ to Town.” The encores open with a final tour premiere–an acoustic, sentimental “,” very obviously a heartfelt message from Bruce to his fans. Willie Nile joins the band for “,” and a final rousing rendition of “Rockin’ All Over the World” closes this chapter in E Street history. The show is available as an official archive series download (get it ) and is essential for every Springsteen fan. For more highlights from this show, see my .
+Four years later to the day, Bruce is wrapping up another tour, as the Working on a Dream Tour comes to a close in Buffalo. This show closes a much bigger chapter in Bruce's life, though–it marks the last time Clarence Clemons will grace the E Street stage for a public concert. Almost as if he knows it, Bruce plans a very special show, playing start to finish for the first and only time ever. Two tracks from that album are tour premieres–"" and "," the latter of which features lovely viola support from Joyce Hammann. The special moments keep coming: "Restless Nights" is played for the very first time ever (by request from Steve), "" is played by request (another tour debut), and since the holidays are approaching, Bruce plays "" and "Santa Claus is Comin' to Town." The encores open with a final tour premiere–an acoustic, sentimental "," very obviously a heartfelt message from Bruce to his fans. Willie Nile joins the band for "," and a final rousing rendition of "Rockin' All Over the World" closes this chapter in E Street history. The show is available as an official archive series download (get it ) and is essential for every Springsteen fan. For more highlights from this show, see my .
 
-**2009:**   [Greetings from Asbury Park](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)[The Angel](http://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)[Hang Up My Rock and Roll Shoes](http://estreetshuffle.com/index.php/2018/05/13/cover-me-hang-up-my-rock-and-roll-shoes/)*both*[Merry Christmas Baby](http://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)[I’ll Work For Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)[Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)[here](http://live.brucespringsteen.net/live-music/0,15506/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-22-2009-HSBC-Arena-Buffalo-NY.html)[report](http://estreetshuffle.com/index.php/2018/11/22/where-the-band-was-buffalo-november-22-2009/)*Where the Band Was*
+**2009:**   [Greetings from Asbury Park](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/)[Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)[The Angel](http://estreetshuffle.com/index.php/2020/09/26/roll-of-the-dice-the-angel/)[Hang Up My Rock and Roll Shoes](http://estreetshuffle.com/index.php/2018/05/13/cover-me-hang-up-my-rock-and-roll-shoes/)*both*[Merry Christmas Baby](http://estreetshuffle.com/index.php/2018/12/24/cover-me-merry-christmas-baby/)[I'll Work For Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)[Higher and Higher](http://estreetshuffle.com/index.php/2018/09/23/cover-me-your-love-keeps-lifting-me-higher-and-higher/)[here](http://live.brucespringsteen.net/live-music/0,15506/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-22-2009-HSBC-Arena-Buffalo-NY.html)[report](http://estreetshuffle.com/index.php/2018/11/22/where-the-band-was-buffalo-november-22-2009/)*Where the Band Was*
 
 [https://videopress.com/embed/MRRnp34T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MRRnp34T?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -84,7 +84,7 @@ Four years later to the day, Bruce is wrapping up another tour, as the Working o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/11/The_Buffalo_News_Mon__Nov_23__2009_.jpg?resize=758%2C608&amp;ssl=1)
 
-President Barack Obama presents Bruce with the Presidential Medal of Freedom, the nation’s highest civilian honor.
+President Barack Obama presents Bruce with the Presidential Medal of Freedom, the nation's highest civilian honor.
 
 **2016:**
 
@@ -120,7 +120,7 @@ Bruce gives to reporter Chris Jordan for the .
 
 **2022:** [an interview](https://www.app.com/story/entertainment/music/2022/11/23/bruce-springsteen-soul-album-voice-concert-tickets/69668627007/)*Asbury Park Press*
 
-Bruce and the E Street Band close out World Tour ’24 with a festive show (their longest of the year) in Vancouver, British Columbia.
+Bruce and the E Street Band close out World Tour '24 with a festive show (their longest of the year) in Vancouver, British Columbia.
 
 **2024:**
 

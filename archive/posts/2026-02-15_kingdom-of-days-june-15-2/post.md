@@ -8,9 +8,9 @@
 
 ![](../../assets/2018/06/1974-0615.jpg)
 
-**1979:** Bruce and the E Street Band work on “The Price You Pay” at The Power Station in New York City.
+**1979:** Bruce and the E Street Band work on "The Price You Pay" at The Power Station in New York City.
 
-**1981:** Bruce joins Gary U.S. Bonds on stage at Old Waldorf in San Francisco, performing “This Little Girl” for the first time ever along with his one and only performance of “School Is Out.”
+**1981:** Bruce joins Gary U.S. Bonds on stage at Old Waldorf in San Francisco, performing "This Little Girl" for the first time ever along with his one and only performance of "School Is Out."
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3?_=7](https://estreetshuffle.com/wp-content/uploads/2022/06/1981-06-15-San-Francisco__Merged.mp3?_=7)
 
@@ -20,7 +20,7 @@
 
 ![](../../assets/2018/06/1981-0615.jpg)
 
-**1983:** At The Hit Factory in New York City, Bruce records “Cynthia” and “Don’t Back Down.” The former won’t be released for another fifteen years; the latter for more than forty.
+**1983:** At The Hit Factory in New York City, Bruce records "Cynthia" and "Don't Back Down." The former won't be released for another fifteen years; the latter for more than forty.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wzCpphwK8vk)
 
@@ -32,7 +32,7 @@
 
 ![](../../assets/2018/06/1985-0615.jpg)
 
-**1988:** “Bobby Jean” makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.
+**1988:** "Bobby Jean" makes its Tunnel of Love Tour premiere at the first of two nights at Stadio Flaminio in Rome. Earlier in the day, a photographer catches Bruce in a state of undress with Patti, outing their rumored affair.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TY8qIOyupTs)
 
@@ -54,13 +54,13 @@
 
 ![](../../assets/2021/06/1992-06-15.jpg)
 
-**1999:** “Take ’em as They Come” makes its live debut when Bruce and the E Street Band bring the Reunion Tour to Offenbach, Germany.
+**1999:** "Take 'em as They Come" makes its live debut when Bruce and the E Street Band bring the Reunion Tour to Offenbach, Germany.
 
 [Watch Video Highlight](https://videopress.com/embed/wGZfQBl3)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s9Afum2mp5E)
 
-**2000:** Night Two of the final ten-night stand of the Reunion Tour opens with “Further On (Up the Road)” at Madison Square Garden and features another powerful “American Skin (41 Shots).”
+**2000:** Night Two of the final ten-night stand of the Reunion Tour opens with "Further On (Up the Road)" at Madison Square Garden and features another powerful "American Skin (41 Shots)."
 
 [Watch Video Highlight](https://videopress.com/embed/Jwv1hB7x)
 
@@ -68,7 +68,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Mn4-NPZtctc)
 
-**2004:** Patti Scialfa releases her long-awaited second album, *23rd Street Lullaby* and plays a promotional free mini-concert in New York City for NBC’s *Today*. Watch her full performance below.
+**2004:** Patti Scialfa releases her long-awaited second album, *23rd Street Lullaby* and plays a promotional free mini-concert in New York City for NBC's *Today*. Watch her full performance below.
 
 [Watch Video Highlight](https://videopress.com/embed/lX9FEdbt)
 
@@ -78,7 +78,7 @@
 
 ![](../../assets/2020/06/2004-06-15b.jpg)
 
-**2005:** The Devils & Dust Tour moves on to Frankfurt, where Bruce tour premieres “Countin’ on a Miracle.”
+**2005:** The Devils & Dust Tour moves on to Frankfurt, where Bruce tour premieres "Countin' on a Miracle."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wm_jQkeLGxM)
 
@@ -96,6 +96,6 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2025:** When the Land of Hope and Dreams Tour stops for a night in Prague, Bruce and the E Street Band open their show with “Summertime Blues,” a tour premiere.
+**2025:** When the Land of Hope and Dreams Tour stops for a night in Prague, Bruce and the E Street Band open their show with "Summertime Blues," a tour premiere.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_hnpvqyMz-M)

@@ -12,17 +12,17 @@ Bruce and the not quite E Street Band play a poorly advertised (and therefore po
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0419.jpg?resize=758%2C590&amp;ssl=1)
 
-Bruce works on “Thunder Road” in the studio at the Record Plant in New York City.
+Bruce works on "Thunder Road" in the studio at the Record Plant in New York City.
 
 **1975:**
 
-Bruce finalizes the mix for “Ramrod” at Clover Studios in Los Angeles.
+Bruce finalizes the mix for "Ramrod" at Clover Studios in Los Angeles.
 
 **1980:**
 
 [https://www.youtube.com/embed/BEhmiGQvjOY?feature=oembed](https://www.youtube.com/embed/BEhmiGQvjOY?feature=oembed)
 
-One night after debuting “Can’t Help Falling in Love,” Bruce opens his second show in Paris by premiering his cover/adaptation of “Follow That Dream.” The encores include another world premiere: Bruce’s first cover of “Sweet Soul Music.”
+One night after debuting "Can't Help Falling in Love," Bruce opens his second show in Paris by premiering his cover/adaptation of "Follow That Dream." The encores include another world premiere: Bruce's first cover of "Sweet Soul Music."
 
 **1981:**
 
@@ -30,7 +30,7 @@ One night after debuting “Can’t Help Falling in Love,” Bruce opens his sec
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1981-04-18-1.jpg?resize=758%2C746&amp;ssl=1)
 
-Bruce’s tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.
+Bruce's tour of Japan moves from Tokyo to Kyoto for a night at Furitsu Taikukan.
 
 **1985:**
 
@@ -42,7 +42,7 @@ is certified 3x multi-platinum by the Recording Industry Association of America.
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU](https://www.youtube.com/embed/videoseries?list=OLAK5uy_kzffdY_cJkoCRhUeuDkaEhb5kbWvEC8SU)
 
-Bruce brings his World Tour 1993 to Rotterdam for the first of two nights at Sportpaleis Ahoy. Watch the final encore of “Working on the Highway” below.
+Bruce brings his World Tour 1993 to Rotterdam for the first of two nights at Sportpaleis Ahoy. Watch the final encore of "Working on the Highway" below.
 
 **1993:**
 
@@ -54,7 +54,7 @@ is certified 15x multi-platinum by the Recording Industry Association of America
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0](https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-Bruce plays a solo acoustic show in Berlin. Three songs from tonight’s show (“Darkness on the Edge of Town,” “Born in the U.S.A.” and “Spare Parts”) will be released on Bruce’s EP later in the year.
+Bruce plays a solo acoustic show in Berlin. Three songs from tonight's show ("Darkness on the Edge of Town," "Born in the U.S.A." and "Spare Parts") will be released on Bruce's EP later in the year.
 
 **1996:** *Missing*
 
@@ -66,7 +66,7 @@ Bruce plays a solo acoustic show in Berlin. Three songs from tonight’s show (�
 
 [https://videopress.com/embed/djUWDP3c?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/djUWDP3c?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-At the first of two Reunion shows at the Fila Forum in Milan, fans witness the live debut of “Where the Bands Are.” “Jungleland” makes its tour debut as well.
+At the first of two Reunion shows at the Fila Forum in Milan, fans witness the live debut of "Where the Bands Are." "Jungleland" makes its tour debut as well.
 
 **1999:**
 
@@ -84,7 +84,7 @@ At the first of two Reunion shows at the Fila Forum in Milan, fans witness the l
 
 [https://www.youtube.com/embed/zea6oQnSUDk?feature=oembed](https://www.youtube.com/embed/zea6oQnSUDk?feature=oembed)
 
-The Canadian leg of the Rising Tour concludes with a show at Bell Center in Montreal, where “Hungry Heart” makes its tour debut. The set also features a solo piano “Incident on 57th Street.”
+The Canadian leg of the Rising Tour concludes with a show at Bell Center in Montreal, where "Hungry Heart" makes its tour debut. The set also features a solo piano "Incident on 57th Street."
 
 **2003:**
 
@@ -108,7 +108,7 @@ Bruce reschedules a scheduled show in Orlando due to the passing of Danny Federi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Miami_Herald_Fri__Apr_18__2008_-scaled.jpg?resize=758%2C387&amp;ssl=1)
 
-Record Store Day is a busy one: Bruce releases a new EP, , performs the title track at soundcheck in Charlotte, and films it for release a few days later. That night, Bruce stuns the audience by opening with only the second-ever performance of “Iceman” and a cover-filled set that included “Louie Louie,” “Mustang Sally,” and “Brown-Eyed Girl.”
+Record Store Day is a busy one: Bruce releases a new EP, , performs the title track at soundcheck in Charlotte, and films it for release a few days later. That night, Bruce stuns the audience by opening with only the second-ever performance of "Iceman" and a cover-filled set that included "Louie Louie," "Mustang Sally," and "Brown-Eyed Girl."
 
 **2014:***American Beauty*
 

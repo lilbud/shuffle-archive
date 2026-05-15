@@ -1,6 +1,6 @@
 
 
-Bruce and the (not yet named) E Street Band play a gig at Oliver’s in Boston, their fifth of seven straight nights.
+Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, their fifth of seven straight nights.
 
 **1973:**
 
@@ -26,7 +26,7 @@ Bruce plays a solo acoustic show at Falkoner Salen in Copenhagen.
 
 [https://www.youtube.com/embed/_p690qQT8L0?feature=oembed](https://www.youtube.com/embed/_p690qQT8L0?feature=oembed)
 
-Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on “Take It Easy.”
+Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on "Take It Easy."
 
 **2004:**
 
@@ -48,7 +48,7 @@ The Magic Tour moves on to Xcel Energy Center in St. Paul.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2008-03-16.jpg?resize=527%2C824&amp;ssl=1)
 
-Night Two in Brisbane opens with the live debut of “High Hopes.”
+Night Two in Brisbane opens with the live debut of "High Hopes."
 
 **2013:**
 

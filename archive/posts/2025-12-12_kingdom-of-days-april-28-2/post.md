@@ -28,7 +28,7 @@ Bruce plays the Grand Ole Opry House in Nashville.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0428.jpg?resize=563%2C692&amp;ssl=1)
 
-Flo and Eddie guest-star on “Hungry Heart” when the River Tour arrives in Rotterdam.
+Flo and Eddie guest-star on "Hungry Heart" when the River Tour arrives in Rotterdam.
 
 **1981:**
 
@@ -40,7 +40,7 @@ At the Power Station in New York City, Bruce works on several songs for what wou
 
 **1982:** *Born in the U.S.A.*
 
-Bruce wraps up a five-night stand at the L.A. Sports Arena. This show is available as part of Bruce’s official archive series.
+Bruce wraps up a five-night stand at the L.A. Sports Arena. This show is available as part of Bruce's official archive series.
 
 **1988:**
 
@@ -58,7 +58,7 @@ is certified 3x multi-platinum by the Recording Industry Association of America.
 
 [https://www.youtube.com/embed/1glxaEB5G7I?list=OLAK5uy_m7idMb3iRK0bBG_3z9EyYNrzQy5bDx9zE](https://www.youtube.com/embed/1glxaEB5G7I?list=OLAK5uy_m7idMb3iRK0bBG_3z9EyYNrzQy5bDx9zE)
 
-At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on “Hungry Heart.”
+At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on "Hungry Heart."
 
 **1999:**
 
@@ -68,11 +68,11 @@ At the Reunion show in Lyon, France, Jon Bon Jovi guest-stars on “Hungry Heart
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/Omaha_World_Herald_Fri__May_7__1999_-scaled.jpg?resize=758%2C813&amp;ssl=1)
 
-Bruce rehearses at the Count Basie Theater for Bobby Bandiera’s Hope Concert benefit the following day.
+Bruce rehearses at the Count Basie Theater for Bobby Bandiera's Hope Concert benefit the following day.
 
 **2003:**
 
-On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays “Two Faces” for the first time in 17 years, and Jimmy LaFave guest-stars on “Oklahoma Hills.” Also new to the set list tonight: “Galveston Bay” and “My Hometown.”
+On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce plays "Two Faces" for the first time in 17 years, and Jimmy LaFave guest-stars on "Oklahoma Hills." Also new to the set list tonight: "Galveston Bay" and "My Hometown."
 
 **2005:**
 
@@ -90,7 +90,7 @@ On the second night of his solo acoustic tour, in Grand Prairie, Texas, Bruce pl
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2005-04-28c.jpg?resize=717%2C963&amp;ssl=1)
 
-Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of “Roulette” and “Don’t Look Back,” before segueing to “Radio Nowhere,” “Out in the Street,” and “The Promised Land.” Opening packs don’t get much better than that. Also tour premiering tonight: “Mary’s Place.” This show is available as part of Bruce’s official archive series.
+Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres of "Roulette" and "Don't Look Back," before segueing to "Radio Nowhere," "Out in the Street," and "The Promised Land." Opening packs don't get much better than that. Also tour premiering tonight: "Mary's Place." This show is available as part of Bruce's official archive series.
 
 **2008:**
 
@@ -112,7 +112,7 @@ Greensboro gets a fantastic Magic show, as Bruce opens with the tour premieres o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-28b-scaled.jpg?resize=758%2C1280&amp;ssl=1)
 
-Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of “The Fever,” “Mountain of Love,” “Fire” and “You Can’t Sit Down.”
+Philadelphia always seems to get great shows, and the Working on a Dream Tour keeps up the tradition. Night One at the Spectrum features the tour premieres of "The Fever," "Mountain of Love," "Fire" and "You Can't Sit Down."
 
 **2009:**
 
@@ -140,11 +140,11 @@ Tom Hanks interviews Bruce at the Tribeca Film Festival.
 
 [https://www.youtube.com/embed/BWvXD2SD_VM?feature=oembed](https://www.youtube.com/embed/BWvXD2SD_VM?feature=oembed)
 
-continues with Episode 21, “Waiting on a Friend” on E Street Radio.
+continues with Episode 21, "Waiting on a Friend" on E Street Radio.
 
 **2021:** *From My Home to Yours* <https://estreetshuffle.com/wp-content/uploads/2022/04/2021-04-28-Bruce-E-Street-Radio-DJ-set-21.mp3>
 
-Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on “Glory Days.” The run of nightly tour premieres continue with “Human Touch.”
+Bruce and the E Street Band kick off the European leg of their 2023 World Tour in Barcelona with some special guests: former U.S. First Lady Michelle Obama and actress Kate Capshaw join Patti Scialfa on stage for backing vocals on "Glory Days." The run of nightly tour premieres continue with "Human Touch."
 
 **2023:**
 

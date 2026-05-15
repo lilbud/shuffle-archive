@@ -1,4 +1,4 @@
-> “[Shortly after Christmas in 1971], My father asked me to accompany him on a trip to Mexico and said he was planning to stop in Long Beach, where the Queen Mary was docked. This was the ocean liner he'd shipped out on for World War II and he wanted to see her one more time… In the spirit of healing old wounds I said yes and off we went.
+> "[Shortly after Christmas in 1971], My father asked me to accompany him on a trip to Mexico and said he was planning to stop in Long Beach, where the Queen Mary was docked. This was the ocean liner he'd shipped out on for World War II and he wanted to see her one more time… In the spirit of healing old wounds I said yes and off we went.
 > 
 > 
 > 
@@ -6,27 +6,27 @@
 > 
 > 
 > 
-> We headed south to Mexico, [and] crossed the border…”
+> We headed south to Mexico, [and] crossed the border…"
 > 
 > 
 > 
 > *— Bruce Springsteen, Born to Run*
 
-At first listen, “Border Guard” is an introspective, contemplative musing on the toll taken by an unforgiving job. But there’s more going on here than meets the ear, I think.
+At first listen, "Border Guard" is an introspective, contemplative musing on the toll taken by an unforgiving job. But there's more going on here than meets the ear, I think.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=pGHyIfG-fC8)
 
-That recording is from April 1972, one of several songs recorded by Mike Appel and Jim Cretecos mere weeks before Bruce’s fateful meeting with John Hammond at CBS Records.
+That recording is from April 1972, one of several songs recorded by Mike Appel and Jim Cretecos mere weeks before Bruce's fateful meeting with John Hammond at CBS Records.
 
-There’s evidence (in the form of a vintage hand-written repertoire list) that Bruce wrote “Border Guard” as early as the summer of 1971, but for a 21-year-old who’d never been to the border let alone south of it, it’s hard to imagine that he wasn’t writing in metaphor.
+There's evidence (in the form of a vintage hand-written repertoire list) that Bruce wrote "Border Guard" as early as the summer of 1971, but for a 21-year-old who'd never been to the border let alone south of it, it's hard to imagine that he wasn't writing in metaphor.
 
-Because in 1971, Bruce’s parents lived in California, some three thousand miles from their son. And long before they left New Jersey, there’d already been a wall in the Springsteen household between father and son.
+Because in 1971, Bruce's parents lived in California, some three thousand miles from their son. And long before they left New Jersey, there'd already been a wall in the Springsteen household between father and son.
 
-In the early days of 1972, Bruce and his dad took their trip to Mexico, and by Bruce’s own account, there were some strained silences along the way. One can’t help but wonder whether Bruce wrote “Border Guard” as much as about the emotional wall separating him from his father as the geographic border separating two countries. (Many of Bruce’s contemporaneous songs certainly mine autobiographical earth, so a deeper read doesn’t require much of a leap.)
+In the early days of 1972, Bruce and his dad took their trip to Mexico, and by Bruce's own account, there were some strained silences along the way. One can't help but wonder whether Bruce wrote "Border Guard" as much as about the emotional wall separating him from his father as the geographic border separating two countries. (Many of Bruce's contemporaneous songs certainly mine autobiographical earth, so a deeper read doesn't require much of a leap.)
 
-At six-and-a-half minutes long with no instrumental breaks, “Border Guard” was never going to be a candidate for an album. And with its leaden pace and dolorous tone, it’s hard to believe Bruce ever performed it in concert either.
+At six-and-a-half minutes long with no instrumental breaks, "Border Guard" was never going to be a candidate for an album. And with its leaden pace and dolorous tone, it's hard to believe Bruce ever performed it in concert either.
 
-“Border Guard” is typical of Bruce’s early work in that it lacks a verse/chorus framework, but it stands out in its simplicity of language and basic parallel couplet structure. There’s no internal rhyming or clever wordplay here; Bruce writes with uncharacteristic (for the time) economy.
+"Border Guard" is typical of Bruce's early work in that it lacks a verse/chorus framework, but it stands out in its simplicity of language and basic parallel couplet structure. There's no internal rhyming or clever wordplay here; Bruce writes with uncharacteristic (for the time) economy.
 
 > *Bless on the border guard so cold and alone*
 > *Bless on the child so far from his home*
@@ -37,7 +37,7 @@ At six-and-a-half minutes long with no instrumental breaks, “Border Guard” w
 > *A line is a funny thing, a border sometimes*
 > *A line is a hurting thing used only to divide*
 
-If Bruce intended to hide a personal subtext, he tips his hand in that third couplet–although for anyone familiar with his story, it’s hard not to read into his lyrics from the outset. The emotionally distant border guard and the far-from-home child seem like pretty on-point proxies for the elder and younger Springsteens.
+If Bruce intended to hide a personal subtext, he tips his hand in that third couplet–although for anyone familiar with his story, it's hard not to read into his lyrics from the outset. The emotionally distant border guard and the far-from-home child seem like pretty on-point proxies for the elder and younger Springsteens.
 
 > *I pity the refugee whose home lies behind*
 > *I pity the border guard and his border line*
@@ -56,9 +56,9 @@ That middle section is revealing, as well. As Bruce would reveal much later in s
 > *I pity the border guard, his soul taken captive at birth*
 > *May the sweet rain set him free and show him how to be so wild*
 
-It seems clear that Bruce is more than simply waxing philosophical about the significance of land and borders. There’s an empathy on display here for the guard, even if Bruce expresses it condescendingly as pity.
+It seems clear that Bruce is more than simply waxing philosophical about the significance of land and borders. There's an empathy on display here for the guard, even if Bruce expresses it condescendingly as pity.
 
-And that empathy blooms into something more in the song’s final lines:
+And that empathy blooms into something more in the song's final lines:
 
 > *Yes, a line is a funny thing, a border sometimes*
 > *A line is a hurting thing used only to divide*
@@ -69,9 +69,9 @@ And that empathy blooms into something more in the song’s final lines:
 > *And at night I keep my fire bright that I may be safe when I sleep*
 > *Till I wake on that wonderful morning when no more lines will there be*
 
-That last couplet is heartbreaking: a son’s refusal to surrender to his father’s darkness paired with a stubborn hope for their reconciliation. If Bruce hadn’t yet found a way to reach his father by talking to him, it seems like he was at least able to express his feelings through song.
+That last couplet is heartbreaking: a son's refusal to surrender to his father's darkness paired with a stubborn hope for their reconciliation. If Bruce hadn't yet found a way to reach his father by talking to him, it seems like he was at least able to express his feelings through song.
 
-Bruce would revisit the California/Mexico border in song decades later, this time with a true focus on it. As for his reconciliation with his father, that would take a while yet. But his unreleased “Border Guard” reveals he was at least working his way towards it.
+Bruce would revisit the California/Mexico border in song decades later, this time with a true focus on it. As for his reconciliation with his father, that would take a while yet. But his unreleased "Border Guard" reveals he was at least working his way towards it.
 
 **Border Guard  
 Recorded:** April 1972  

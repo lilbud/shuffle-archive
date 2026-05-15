@@ -2,7 +2,7 @@
 
 *Audio for 1974; review for 1976; new entry for 1980 and 2024; video for 2023***New for 2025:**
 
-A watershed moment for Bruce, when he plays two shows opening for Bonnie Raitt at the Harvard Square Theater in Cambridge, Massachusetts. Not only is his band introduced as “The E Street Band” for the very first time at the early show, but Jon Landau attends the late show and is moved to write his famous “rock and roll future” review.
+A watershed moment for Bruce, when he plays two shows opening for Bonnie Raitt at the Harvard Square Theater in Cambridge, Massachusetts. Not only is his band introduced as "The E Street Band" for the very first time at the early show, but Jon Landau attends the late show and is moved to write his famous "rock and roll future" review.
 
 **1974:**
 
@@ -24,13 +24,13 @@ Bruce and the E Street Band play the Municipal Auditorium Theater in Mobile, Ala
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/05/The_Mobile_Register_1976_05_10_40-scaled.jpg?resize=754%2C2560&amp;ssl=1)
 
-Bruce and team complete the mix for “Stolen Car” at Clover Studios in Los Angeles.
+Bruce and team complete the mix for "Stolen Car" at Clover Studios in Los Angeles.
 
 **1980:**
 
 [https://www.youtube.com/embed/f0RNWwXcQiU?feature=oembed](https://www.youtube.com/embed/f0RNWwXcQiU?feature=oembed)
 
-“” the first single off is sent to radio stations. It will appear in record stores shortly and become Bruce’s greatest hit.
+"" the first single off is sent to radio stations. It will appear in record stores shortly and become Bruce's greatest hit.
 
 **1984:** [Dancing in the Dark,](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)*Born in the U.S.A.*
 
@@ -38,7 +38,7 @@ Bruce and team complete the mix for “Stolen Car” at Clover Studios in Los An
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1984-05-09-300x202.jpg?resize=758%2C511)
 
-The news is out: Bruce Springsteen is getting married to actress/model Julianne Phillips in Lake Oswego. When Juli’s parents confirm the news, the press runs with the story.
+The news is out: Bruce Springsteen is getting married to actress/model Julianne Phillips in Lake Oswego. When Juli's parents confirm the news, the press runs with the story.
 
 **1985:**
 
@@ -50,7 +50,7 @@ The news is out: Bruce Springsteen is getting married to actress/model Julianne 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1985-05-09b-242x300.jpg?resize=758%2C939)
 
-The Tunnel of Love Express heads to Bloomington, Minnesota for the first of two nights. Eavesdrop on the soundcheck below, featuring Nils singing lead on a cover of “He Can’t Love You.”
+The Tunnel of Love Express heads to Bloomington, Minnesota for the first of two nights. Eavesdrop on the soundcheck below, featuring Nils singing lead on a cover of "He Can't Love You."
 
 **1988:**
 
@@ -72,7 +72,7 @@ Bruce makes his first appearance on to promote his new albums and upcoming tour.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1992-05-09-274x300.jpg?resize=758%2C830)
 
-Bruce continues his tour of Spain with a single show in Santiago. Watch terrific pro-shot videos of “,” “,” and “” below.
+Bruce continues his tour of Spain with a single show in Santiago. Watch terrific pro-shot videos of "," "," and "" below.
 
 **1993:** [Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)[Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)
 
@@ -92,9 +92,9 @@ Bruce plays his first-ever show in Poland, the first of two nights at Sala Kongr
 
 [https://videopress.com/embed/5MQ16PaR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/5MQ16PaR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce and the Sessions Band play a televised show at St. Luke’s Church in London. Watch the performance in great quality below, especially Bruce’s hilarious mistake on “” at minute 36.
+Bruce and the Sessions Band play a televised show at St. Luke's Church in London. Watch the performance in great quality below, especially Bruce's hilarious mistake on "" at minute 36.
 
-**2006:** [Jacob’s Ladder](http://estreetshuffle.com/index.php/2019/04/18/rotd-cover-me-jacobs-ladder/)
+**2006:** [Jacob's Ladder](http://estreetshuffle.com/index.php/2019/04/18/rotd-cover-me-jacobs-ladder/)
 
 [https://videopress.com/embed/2j9sa8J0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2j9sa8J0?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -104,7 +104,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and the E Street Band tour premiere “” at their final night of three at RDS Arena in Dublin.
+Bruce and the E Street Band tour premiere "" at their final night of three at RDS Arena in Dublin.
 
 **2023:** [Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)
 
@@ -112,7 +112,7 @@ Bruce and the E Street Band tour premiere “” at their final night of three a
 
 [https://www.youtube.com/embed/2qnWOvaFhaY?feature=oembed](https://www.youtube.com/embed/2qnWOvaFhaY?feature=oembed)
 
-Bruce’s voice falls victim to a cold but the show must go on when World Tour 2024 arrives in Belfast.
+Bruce's voice falls victim to a cold but the show must go on when World Tour 2024 arrives in Belfast.
 
 **2024:**
 

@@ -1,6 +1,6 @@
 
 
-In 2015, the MusicCares MAP fund honored Pete Townshend, and Bruce was in attendance both to pay tribute and to join Pete Townshend and Roger Daltrey on stage for “My Generation.”
+In 2015, the MusicCares MAP fund honored Pete Townshend, and Bruce was in attendance both to pay tribute and to join Pete Townshend and Roger Daltrey on stage for "My Generation."
 
 [https://www.youtube.com/embed/a6BrJJgDtxM?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/a6BrJJgDtxM?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 
@@ -8,7 +8,7 @@ Bruce has cited The Who as a major influence on several occasions, including thi
 
 <http://estreetshuffle.com/wp-content/uploads/2018/03/01-Track-11.mp3>
 
-Bonus footage: One minute of pro-shot footage from 2009, where Bruce and the E Street Band covered “My Generation” by sign request.
+Bonus footage: One minute of pro-shot footage from 2009, where Bruce and the E Street Band covered "My Generation" by sign request.
 
 [https://www.youtube.com/embed/21ShrNP31CY?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent](https://www.youtube.com/embed/21ShrNP31CY?version=3&amp;rel=1&amp;showsearch=0&amp;showinfo=1&amp;iv_load_policy=1&amp;fs=1&amp;hl=en-US&amp;autohide=2&amp;wmode=transparent)
 

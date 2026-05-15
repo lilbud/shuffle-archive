@@ -1,6 +1,6 @@
 **Note:** A little further down the page, you'l find my original review of the very first night of Springsteen on Broadway, which I originally posted on Backstreets.com. It's presented here unaltered and unedited, except for some typo corrections and the addition of a couple of my photos and in-line insertion of comments I'd added in replies. It therefore has **LOTS OF SPOILERS**. I've scrupulously avoided revealing spoilers all year long for those who have yet to see the show, but one year later, I feel like I can start talking about the show more openly. If you're averse to spoilers, then just stop scrolling after you see the big "*****SPOILERS FOLLOW*****" warning below.
 
-But first let me share my story about how I ended up *in the front row for opening night,* because I am honestly still in shock every time I think about it.
+But first let me share my story about how I ended up *in the front row for opening night*, because I am honestly still in shock every time I think about it.
 
 Like many, I dutifully and optimistically registered for the Verified Fan lottery when it was announced.
 
@@ -78,7 +78,7 @@ Shortly before showtime, Steve Van Zandt walked in and sat a couple of rows behi
 
 I didn't have much time to look–because the first surprise of the night was the prompt 8pm "curtain" for the never-on-time Bruce. Suddenly, we were off...
 
-And now, my original review of Night One of *Springsteen on Broadway,* originally posted in the wee hours of October 4, 2017.
+And now, my original review of Night One of *Springsteen on Broadway*, originally posted in the wee hours of October 4, 2017.
 
 ***** SPOILERS FOLLOW*****
 

@@ -30,7 +30,7 @@ The River Tour continues its Florida leg with a stop at the Jacksonville Veteran
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1981-02-18.jpg?resize=758%2C265&amp;ssl=1)
 
-Bruce and Nils jam at Bruce’s house and listen to the just-completed album. At some point, they watch TV and see MTV announce Steve Van Zandt’s departure from the band. Nils puts in a good word for himself that will pay off not that far down the road.
+Bruce and Nils jam at Bruce's house and listen to the just-completed album. At some point, they watch TV and see MTV announce Steve Van Zandt's departure from the band. Nils puts in a good word for himself that will pay off not that far down the road.
 
 **1984:***Born in the U.S.A.*
 
@@ -58,7 +58,7 @@ The River (2016) Tour moves on to Philips Arena in Atlanta.
 
 [https://www.youtube.com/embed/Qkdr9goDgJ8?feature=oembed](https://www.youtube.com/embed/Qkdr9goDgJ8?feature=oembed)
 
-Bruce closes his Australian summer tour with a show at Hunter Valley that features rare performances of “” and “.”
+Bruce closes his Australian summer tour with a show at Hunter Valley that features rare performances of "" and "."
 
 **2017:** [I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)[None But the Brave](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
@@ -70,7 +70,7 @@ Bruce closes his Australian summer tour with a show at Hunter Valley that featur
 
 [https://www.youtube.com/embed/jZWSzzVzzWU?feature=oembed](https://www.youtube.com/embed/jZWSzzVzzWU?feature=oembed)
 
-Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during “.”
+Jake is still out of action with COVID-19 as Bruce and the E Street Band bring their 2023 World Tour to Kansas City. Bruce breaks the news with his usual good humor during "."
 
 **2023:** [Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)
 

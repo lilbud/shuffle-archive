@@ -1,8 +1,8 @@
 
 
-Chuck Willis passed away in 1958 just as he was reaching the pinnacle of his career, so he never got to see “Hang Up My Rock and Roll Shoes” become a hit and an enduring classic.
+Chuck Willis passed away in 1958 just as he was reaching the pinnacle of his career, so he never got to see "Hang Up My Rock and Roll Shoes" become a hit and an enduring classic.
 
-Many artists have kept the song alive, Bruce among them. Bruce performed the song three times over his career. Here’s the first time, in 1978, on the Darkness on the Edge of Town Tour in Saginaw:
+Many artists have kept the song alive, Bruce among them. Bruce performed the song three times over his career. Here's the first time, in 1978, on the Darkness on the Edge of Town Tour in Saginaw:
 
 [https://www.youtube.com/embed/m38R-VSgAVc?feature=oembed](https://www.youtube.com/embed/m38R-VSgAVc?feature=oembed)
 
@@ -10,7 +10,7 @@ Many artists have kept the song alive, Bruce among them. Bruce performed the son
 
 [https://www.youtube.com/embed/Uc1zYfNlEY8?feature=oembed](https://www.youtube.com/embed/Uc1zYfNlEY8?feature=oembed)
 
-And keeping the classics alive, here’s the Chuck Willis original from 1958.
+And keeping the classics alive, here's the Chuck Willis original from 1958.
 
 [https://www.youtube.com/embed/rcitG7FpMVg?feature=oembed](https://www.youtube.com/embed/rcitG7FpMVg?feature=oembed)
 

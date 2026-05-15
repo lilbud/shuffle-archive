@@ -2,7 +2,7 @@
 
 *New entry for 1975***New for 2025:**
 
-Bruce cancels a scheduled performance at Detroit’s Masonic Temple Theater.
+Bruce cancels a scheduled performance at Detroit's Masonic Temple Theater.
 
 **1973:**
 
@@ -10,13 +10,13 @@ Bruce cancels a scheduled performance at Detroit’s Masonic Temple Theater.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1973-05-19-300x166.jpg?resize=758%2C419)
 
-Bruce and the E Street Band work on what will become at the Record Plant in New York City, including a version of “” with strings.
+Bruce and the E Street Band work on what will become at the Record Plant in New York City, including a version of "" with strings.
 
 **1975:** *Born to Run*[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
 
 [https://www.youtube.com/embed/nwKsHpVPXs8?feature=oembed](https://www.youtube.com/embed/nwKsHpVPXs8?feature=oembed)
 
-Bruce drops by The Stone Pony and joins The Shakes for two numbers, “” and “.”
+Bruce drops by The Stone Pony and joins The Shakes for two numbers, "" and "."
 
 **1977:** [Jailhouse Rock](http://estreetshuffle.com/index.php/2019/10/12/matr-bruce-springsteen-sting-billy-joel-elton-john-and-friends-jailhouse-rock/)[Sea Cruise](http://estreetshuffle.com/index.php/2018/04/08/cover-me-sea-cruise/)
 
@@ -24,7 +24,7 @@ Bruce drops by The Stone Pony and joins The Shakes for two numbers, “” and �
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1977-0519-300x188.jpg?resize=758%2C474)
 
-Bruce and the E Street Band rehearse for the upcoming Darkness Tour at the Paramount Theater in Asbury Park. Among the songs they rehearse but never play publicly: “,” “,” and “” Listen to them all below, especially “The Brokenhearted,” on which you can hear the original coda (Bruce obviously and jarringly recorded a new one for the version that’s on ) and “The Way,” which to this day has never had a proper performance. The recording quality isn’t the best, but the performance is stunning.
+Bruce and the E Street Band rehearse for the upcoming Darkness Tour at the Paramount Theater in Asbury Park. Among the songs they rehearse but never play publicly: "," "," and "" Listen to them all below, especially "The Brokenhearted," on which you can hear the original coda (Bruce obviously and jarringly recorded a new one for the version that's on ) and "The Way," which to this day has never had a proper performance. The recording quality isn't the best, but the performance is stunning.
 
 **1978:** [Spanish Eyes](https://estreetshuffle.com/index.php/2023/01/14/roll-of-the-dice-spanish-eyes/)[The Brokenhearted](http://estreetshuffle.com/index.php/2018/08/20/roll-of-the-dice-the-brokenhearted/)[The Way.](https://estreetshuffle.com/index.php/2021/08/06/roll-of-the-dice-the-way/)*The Promise*
 
@@ -52,17 +52,17 @@ Bruce joins Clarence Clemons and The Red Bank Rockers on stage for four songs at
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1984-05-19.jpg?resize=758%2C381&amp;ssl=1)
 
-: At Night Three (of five) at Madison Square Garden, Bruce records the videos for “” and “”
+: At Night Three (of five) at Madison Square Garden, Bruce records the videos for "" and ""
 
-**1988**[Vigilante Man](https://estreetshuffle.com/index.php/2021/09/14/cover-me-vigilante-man/)[I Ain’t Got No Home.](http://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)
+**1988**[Vigilante Man](https://estreetshuffle.com/index.php/2021/09/14/cover-me-vigilante-man/)[I Ain't Got No Home.](http://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/)
 
 [https://www.youtube.com/embed/eKXILNMXxs0?feature=oembed](https://www.youtube.com/embed/eKXILNMXxs0?feature=oembed)
 
-(Skip to the 4:15 mark below to watch the video for “I Ain’t Got No Home.”)
+(Skip to the 4:15 mark below to watch the video for "I Ain't Got No Home.")
 
 [//www.dailymotion.com/embed/video/x74lcw](//www.dailymotion.com/embed/video/x74lcw)
 
-Bruce joins Joe Ely on stage at Joe’s gig at Dublin’s National Stadium for three songs, including “” and “.” Joe will repay the favor with Bruce tomorrow night.
+Bruce joins Joe Ely on stage at Joe's gig at Dublin's National Stadium for three songs, including "" and "." Joe will repay the favor with Bruce tomorrow night.
 
 **1993:** [Fingernails](http://estreetshuffle.com/index.php/2018/10/10/meeting-across-the-river-joe-ely-and-bruce-springsteen-fingernails/)[Settle for Love](http://estreetshuffle.com/index.php/2020/04/22/matr-bruce-springsteen-and-joe-ely-settle-for-love/)
 
@@ -86,7 +86,7 @@ Night Two of four at Earls Court in London for the Reunion Tour.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Evening_Standard_Fri__May_21__1999_.jpg?w=758&amp;ssl=1)
 
-Elliott Murphy guest-stars on “” and “Born to Run” when the Rising Tour makes a stop at the Estadio de la Comunidad in Madrid.
+Elliott Murphy guest-stars on "" and "Born to Run" when the Rising Tour makes a stop at the Estadio de la Comunidad in Madrid.
 
 **2003:** [Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)
 
@@ -94,7 +94,7 @@ Elliott Murphy guest-stars on “” and “Born to Run” when the Rising Tour 
 
 [https://www.youtube.com/embed/NSQGuU01YCc?feature=oembed](https://www.youtube.com/embed/NSQGuU01YCc?feature=oembed)
 
-Bruce performs the tour premiere of “” at his solo acoustic show in East Rutherford.
+Bruce performs the tour premiere of "" at his solo acoustic show in East Rutherford.
 
 **2005:** [The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)
 
@@ -112,7 +112,7 @@ Bruce performs the tour premiere of “” at his solo acoustic show in East Rut
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-19-213x300.jpg?resize=758%2C1067)
 
-The first and only E Street Band performance of “” debuts at the Mellon Arena in Pittsburgh. Plus: a rare outing for “;” Joe and Johnny Grushecky join the band for two final encores of “s” and “.”
+The first and only E Street Band performance of "" debuts at the Mellon Arena in Pittsburgh. Plus: a rare outing for ";" Joe and Johnny Grushecky join the band for two final encores of "s" and "."
 
 **2009:** [Like a Rolling Stone](http://estreetshuffle.com/index.php/2019/06/09/cover-me-like-a-rolling-stone/)[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)[Glory Day](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[Mony Mony](https://estreetshuffle.com/index.php/2021/03/18/cover-me-mony-mony/)
 
@@ -122,9 +122,9 @@ The first and only E Street Band performance of “” debuts at the Mellon Aren
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2009-05-19.jpg?resize=758%2C1430&amp;ssl=1)
 
-Bruce makes a return appearance (his third) at the Rock in Rio Festival in Lisbon. gets thrown by the wayside, with only three songs from that album making a Greatest Hits setlist that includes the tour premieres of “,” “” “” “,” and “.” Watch the full pro-shot set below.
+Bruce makes a return appearance (his third) at the Rock in Rio Festival in Lisbon. gets thrown by the wayside, with only three songs from that album making a Greatest Hits setlist that includes the tour premieres of "," "" "" "," and "." Watch the full pro-shot set below.
 
-**2016:** *The River*[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[Downbound Train,](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)[I’m on Fire,](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)
+**2016:** *The River*[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[Downbound Train,](http://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)[I'm on Fire,](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)[Johnny 99](https://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)[Spirit in the Night](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)
 
 [https://player.vimeo.com/video/176779980?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/176779980?dnt=1&amp;app_id=122963)
 
@@ -132,7 +132,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and the E Street Band return to Croke Park in Dublin, where they tour premiere “”
+Bruce and the E Street Band return to Croke Park in Dublin, where they tour premiere ""
 
 **2024:** [Reason to Believe.](https://estreetshuffle.com/index.php/2021/02/27/roll-of-the-dice-reason-to-believe/)
 

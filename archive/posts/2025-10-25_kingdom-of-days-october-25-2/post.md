@@ -52,7 +52,7 @@
 
 ![](../../assets/2019/10/47083179991_ddd2099192_o.jpg)
 
-**1993:** At his home studio in Los Angeles, Bruce produces Joe Grushecky's first two tracks for what will eventually become *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/),* joining Joe on both of them: "[Chain Smokin'](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)" and "[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)."
+**1993:** At his home studio in Los Angeles, Bruce produces Joe Grushecky's first two tracks for what will eventually become *[American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*, joining Joe on both of them: "[Chain Smokin'](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)" and "[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)."
 
 [Watch on Youtube: Chain Smoking' (Demo)](https://www.youtube.com/watch?v=TTjzF7dHCHI)
 
@@ -147,7 +147,7 @@ Earlier in the day, NPR airs their interview with Bruce and the president.
 
 [Watch on Youtube: 'A Fighting Optimism': Bruce Springsteen And Barack Obama On Politics In 2021 | NPR](https://www.youtube.com/watch?v=Ro_5qfNhIM8?start=3)
 
-**2024:** Bruce calls into Jim Rotolo's show on E Street Radio to talk about *Road Diary,* premiering on Hulu today.
+**2024:** Bruce calls into Jim Rotolo's show on E Street Radio to talk about *Road Diary*, premiering on Hulu today.
 
 [https://estreetshuffle.com/wp-content/uploads/2025/10/2024-10-25-Bruce-Max-Thom-on-E-St-Radio.m4a?_=8](https://estreetshuffle.com/wp-content/uploads/2025/10/2024-10-25-Bruce-Max-Thom-on-E-St-Radio.m4a?_=8)
 

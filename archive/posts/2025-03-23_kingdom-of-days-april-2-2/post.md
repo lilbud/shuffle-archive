@@ -2,7 +2,7 @@
 
 *No updates***New for 2025:**
 
-Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they’ll rename themselves Steel Mill.
+Child makes their debut at the Pandemonium in Wanamassa, New Jersey. By the end of the year, they'll rename themselves Steel Mill.
 
 **1969:**
 
@@ -42,7 +42,7 @@ Bruce and the E Street Band play their second of two Tunnel of Love Express show
 
 The Garden State Film Festival premieres a biographical film about Clarence Clemons, at the Paramount Theater in Asbury Park. Meanwhile, Bruce joins local Asbury musicians (including Southside Johnny, Vini Lopez, Ed Manion, and more) at a panel and Nicky Addeo concert at the Wonder Bar. Watch the complete panel discussion below and concert highlights below.
 
-**2011:** *Who Do I Think I Am,*
+**2011:** *Who Do I Think I Am*,
 
 [https://www.youtube.com/embed/S_LsNVa_HZ8?feature=oembed](https://www.youtube.com/embed/S_LsNVa_HZ8?feature=oembed)
 
@@ -72,6 +72,6 @@ The Garden State Film Festival premieres a biographical film about Clarence Clem
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2011-04-02b-300x219.jpg?resize=758%2C553)
 
-Following the show, Bruce stops by the after-party for Clarence’s film at Syanxis. It’s the last time Bruce and Clarence will be seen together in public.
+Following the show, Bruce stops by the after-party for Clarence's film at Syanxis. It's the last time Bruce and Clarence will be seen together in public.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2011-04-02b.png?resize=758%2C789&amp;ssl=1)

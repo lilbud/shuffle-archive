@@ -76,7 +76,7 @@
 
 [Watch on Youtube: Bruce Springsteen - 2013-07-28 Kilkenny - Man At The Top (European debut)](https://www.youtube.com/watch?v=cWtMBPfVCEE)
 
-**2016:** The European leg of the River Tour nears its end with this show in Oslo. Early arrivals are treated to a pre-show acoustic "[Working on the Highway,](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)" but everyone gets to enjoy a full album performance of *The River,* played in full for the final time.
+**2016:** The European leg of the River Tour nears its end with this show in Oslo. Early arrivals are treated to a pre-show acoustic "[Working on the Highway,](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)" but everyone gets to enjoy a full album performance of *The River*, played in full for the final time.
 
 [Watch on Youtube: Bruce Springsteen and the E Street Band, PRE SHOW, 2016-07-28, Frognerparken, Oslo, Norway](https://www.youtube.com/watch?v=gjuUefoThoM)
 

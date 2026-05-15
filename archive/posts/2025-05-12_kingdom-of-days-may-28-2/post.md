@@ -34,7 +34,7 @@ Bruce and the E Street Band play two shows on their first of two nights at The M
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1974-0528-150x300.jpg?resize=758%2C1513)
 
-Randy Brecker joins Bruce in the studio at The Record Plant in New York City, where he records his trumpet part for “The Heist,” which will eventually be known as “r.”
+Randy Brecker joins Bruce in the studio at The Record Plant in New York City, where he records his trumpet part for "The Heist," which will eventually be known as "r."
 
 **1975:** [Meeting Across the Rive](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)
 
@@ -44,7 +44,7 @@ Randy Brecker joins Bruce in the studio at The Record Plant in New York City, wh
 
 [https://www.youtube.com/embed/DE5zChT4-4E?feature=oembed](https://www.youtube.com/embed/DE5zChT4-4E?feature=oembed)
 
-Bruce and the band close out their Chicken Scratch Tour with a show for the U.S. Naval Academy at Annapolis, where they play Frankie Ford’s “” for the first time.
+Bruce and the band close out their Chicken Scratch Tour with a show for the U.S. Naval Academy at Annapolis, where they play Frankie Ford's "" for the first time.
 
 **1976:** [Sea Cruise](http://estreetshuffle.com/index.php/2018/04/08/cover-me-sea-cruise/)
 
@@ -60,7 +60,7 @@ At 3am, Bruce and Mike Appel settle their legal dispute, finally freeing Bruce t
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1977-0528-300x132.jpg?resize=758%2C333)
 
-Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell’s in Hoboken for the second day of filming for the video for “.”
+Bruce and the E Street Band (plus Little Steven, director John Sayles and crew) take over Maxwell's in Hoboken for the second day of filming for the video for "."
 
 **1985:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
@@ -76,13 +76,13 @@ and are both certified platinum by the Recording Industry Association of America
 
 [https://www.youtube.com/embed/FrFfK0Gx0-U?feature=oembed](https://www.youtube.com/embed/FrFfK0Gx0-U?feature=oembed)
 
-Bruce’s World Tour 1993 arrives in Stockholm, where the show is filmed for a never-released television event.
+Bruce's World Tour 1993 arrives in Stockholm, where the show is filmed for a never-released television event.
 
 **1993:**
 
 [https://videopress.com/embed/zl73V5tn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/zl73V5tn?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-It’s John Fogerty’s 50th birthday, and Bruce Springsteen entertains at a party in John’s living room (on or around this date). The set list features a one-off performance of what appears to be a previously unknown Springsteen composition called “.” It hasn’t been released as of this writing, but that may be about to change.
+It's John Fogerty's 50th birthday, and Bruce Springsteen entertains at a party in John's living room (on or around this date). The set list features a one-off performance of what appears to be a previously unknown Springsteen composition called "." It hasn't been released as of this writing, but that may be about to change.
 
 **1995:**[Detail Man](https://estreetshuffle.com/index.php/2022/05/18/roll-of-the-dice-im-your-detail-man/)
 
@@ -110,7 +110,7 @@ The Magic Tour stops at Old Trafford in Manchester.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-28.jpg?resize=758%2C538&amp;ssl=1)
 
-Bruce headlines Pinkpop for the second time, playing a festival set with a Garland Jeffreys guest appearance for “” and Mumford & Sons for “” The Mumford appearance is not pre-arranged, though–the band is shocked when Bruce beckons them on stage, and Marcus Mumford clearly doesn’t know the words to the song (which he’ll completely own up to with Jimmy Fallon years later–you can watch that below, too).
+Bruce headlines Pinkpop for the second time, playing a festival set with a Garland Jeffreys guest appearance for "" and Mumford & Sons for "" The Mumford appearance is not pre-arranged, though–the band is shocked when Bruce beckons them on stage, and Marcus Mumford clearly doesn't know the words to the song (which he'll completely own up to with Jimmy Fallon years later–you can watch that below, too).
 
 **2012:** [96 Tears](http://estreetshuffle.com/index.php/2020/02/15/matr-bruce-springsteen-and-garland-jeffreys-96-tears/)[Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
@@ -128,7 +128,7 @@ Bruce headlines Pinkpop for the second time, playing a festival set with a Garla
 
 [https://www.youtube.com/embed/yYRN-T-el_M?feature=oembed](https://www.youtube.com/embed/yYRN-T-el_M?feature=oembed)
 
-The Wrecking Ball Tour moves to Hanover, Germany, where “” makes its tour premiere (in a rare acoustic arrangement) and “” gets a rare outing.
+The Wrecking Ball Tour moves to Hanover, Germany, where "" makes its tour premiere (in a rare acoustic arrangement) and "" gets a rare outing.
 
 **2013:** [Roll of the Dice](http://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)[Drift Away](http://estreetshuffle.com/index.php/2019/06/14/cover-me-drift-away/)
 
@@ -140,9 +140,9 @@ The Wrecking Ball Tour moves to Hanover, Germany, where “” makes its tour pr
 
 [https://www.youtube.com/embed/4kATUppwtEM?feature=oembed](https://www.youtube.com/embed/4kATUppwtEM?feature=oembed)
 
-Bruce presents Pete Townshend with the MusiCares Stevie Ray Vaughan Award for his work supporting the foundation’s efforts. Later, he joins Townshend and Roger Daltrey on stage for “” and “”
+Bruce presents Pete Townshend with the MusiCares Stevie Ray Vaughan Award for his work supporting the foundation's efforts. Later, he joins Townshend and Roger Daltrey on stage for "" and ""
 
-**2015:** [My Generation](http://estreetshuffle.com/index.php/2018/03/27/matr-pete-townshend-roger-daltry-and-bruce-springsteen-my-generation/)[Won’t Get Fooled Again.](http://estreetshuffle.com/index.php/2018/08/30/meeting-across-the-river-bruce-springsteen-and-the-who-wont-get-fooled-again/)
+**2015:** [My Generation](http://estreetshuffle.com/index.php/2018/03/27/matr-pete-townshend-roger-daltry-and-bruce-springsteen-my-generation/)[Won't Get Fooled Again.](http://estreetshuffle.com/index.php/2018/08/30/meeting-across-the-river-bruce-springsteen-and-the-who-wont-get-fooled-again/)
 
 [https://www.youtube.com/embed/tRF_BKq5xTk?feature=oembed](https://www.youtube.com/embed/tRF_BKq5xTk?feature=oembed)
 

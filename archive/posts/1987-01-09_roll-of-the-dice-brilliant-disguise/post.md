@@ -1,6 +1,6 @@
 > *God have mercy on the man who doubts what he's sure of.*
 
-That’s the single greatest last line of any rock song ever (IMO, anyway).
+That's the single greatest last line of any rock song ever (IMO, anyway).
 
 If you asked me to name my favorite Bruce Springsteen songs, the list would vary by the year, week, or even day. But "Brilliant Disguise" would *always* be on the list: the lyrics remain among the most powerful he's ever written, his vocals emotional and soulful, and that video…
 
@@ -18,11 +18,11 @@ The song starts unambiguously, on the narrator's wedding day, as the newlyweds s
 The whispered words are probably innocuous: "I love you," most likely. Or maybe "I'll be right back." But on a day when two people are supposed to be one, when you're sure you know how your partner thinks and feels, it probably registers just a bit when she pulls away and you don't fully understand why.
 
 > *I saw you last night out on the edge of town*
- *I wanna read your mind to know just what I’ve got in this new thing I’ve found*
+ *I wanna read your mind to know just what I've got in this new thing I've found*
 
 And now the mystery deepens. What was she doing out there late at night? For that matter, what was *he* doing? Does the couple really share as much as they think they do?
 
-(Literary device note: did you catch the "edge of town" reference? It’s a sly callback to "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)," a way to imply impending darkness without literally stating it. Also, for all we know, the couple lives at the edge of town, but Bruce knows that the listener invests in the point-of-view character so that he becomes central, and therefore the edge of town is far away. All in all, a very slick trick: Bruce conveys a lot of information in that one line.)
+(Literary device note: did you catch the "edge of town" reference? It's a sly callback to "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)," a way to imply impending darkness without literally stating it. Also, for all we know, the couple lives at the edge of town, but Bruce knows that the listener invests in the point-of-view character so that he becomes central, and therefore the edge of town is far away. All in all, a very slick trick: Bruce conveys a lot of information in that one line.)
 
 > *So tell me what I see when I look in your eyes*
  *Is that you baby or just a brilliant disguise*
@@ -36,7 +36,7 @@ The journey continues from intrigue to suspicion:
 
 The imagery is significant in its intimacy: if his wife is seeing someone else, it's not out on the edge of town now—it's from underneath *their tree*, a place obviously full of meaning and significance for them. And whatever it is she hides isn't locked away, but rather underneath her pillow in the bed that they share, seemingly accessible but unavailable, hidden in the most intimate of places.
 
-> *Well I’ve tried so hard baby but I just can’t see*
+> *Well I've tried so hard baby but I just can't see*
  *What a woman like you is doing with me*
 
 …and now we have the final ingredient in this doubt cocktail: insecurity. He's married out of his league and realize that [with every wish, there comes a curse](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/).
@@ -48,18 +48,18 @@ There's frustration and resentment building, but towards whom? Her? Himself?
 
 What happens when the lights go out? (It's possible we find out years later in "[When the Lights Go Out](https://estreetshuffle.com/index.php/2021/01/23/roll-of-the-dice-when-the-lights-go-out/)," written not long after "Brilliant Disguise.") Has the couple drifted apart? Has the bedroom heat cooled? Or is that all that's left? It's unclear, but it doesn't matter: it's the lack of recognition that haunts the protagonist.
 
-> *I’m just a lonely pilgrim, I walk this world in wealth*
+> *I'm just a lonely pilgrim, I walk this world in wealth*
 
 When the song came out, rumors and speculation immediately started about the state of Bruce's marriage to Julianne Phillips. Bruce always denied that the song was autobiographical, but even if you accept the idea of someone writing about an experience so intimate without ever experiencing it, a detail like walking the world in wealth as a lonely pilgrim sure does conjure up the image of a successful touring rock star. In any event, the pair divorced not long after the song came out.
 
 But now, we come to central truth number two:
 
-> *I want to know if it’s you I don’t trust, ’cause I damn sure don’t trust myself*
+> *I want to know if it's you I don't trust, 'cause I damn sure don't trust myself*
 
 …and there it is. That's the sleeper line of the song. "God have mercy…" may drive the nail home, but this is the real crux of it: does the narrator suspect his wife correctly, or is he just projecting his own fears and insecurities? Is she distancing himself from him, or is he distancing himself from her? Either way, the result is the same:
 
-> *Now you play the loving woman, I’ll play the faithful man*
- *But just don’t look too close into the palm of my hand*  
+> *Now you play the loving woman, I'll play the faithful man*
+ *But just don't look too close into the palm of my hand*  
  *Well we stood at the altar, the gypsy swore our future was right*  
  *But come the wee, wee hours… maybe, baby, the gypsy lied*
 
@@ -75,8 +75,8 @@ Am I the person you think I am? Do I let you see my true self? Do I shield you f
 …and then we come to that devastating, chilling last couplet, delivered almost as an afterthought as the song fades out:
 
 > *Tonight our bed is cold*
- *I’m lost in the darkness of our love*  
- *God have mercy on the man who doubts what he’s sure of.*
+ *I'm lost in the darkness of our love*  
+ *God have mercy on the man who doubts what he's sure of.*
 
 I may never know what the narrator is really thinking there: Is he convinced that his wife is an open book but can't help but harbor doubts anyway? Or is he convinced that his wife is a stranger but grasps for signs and signals otherwise? Or is it self-reflection: is it his own love that he's unsure of? Does he feel known and recognized by his partner?
 
@@ -84,7 +84,7 @@ Without exaggeration, there are at least a dozen ways to interpret this song, an
 
 And that's why years later, I was caught up short by the song again, almost 20 years down the road, when Bruce started performing it acoustically and intimately with his now-wife Patti.
 
-On the set of VH-1 Storytellers, Bruce confessed, "I guess it sounds like a song of betrayal – who’s that person sleeping next to me, who am I? Do I know enough about myself to be honest with that person? But a funny thing happens: songs shift their meanings when you sing them, they shift their meanings in time, they shift their meanings with who you sing them with. When you sing this song with someone you love, it turns into something else… a reaffirmation of loves' mysteries, its shadows, frailties and acceptance of those frailties, without which there is no love."
+On the set of VH-1 Storytellers, Bruce confessed, "I guess it sounds like a song of betrayal – who's that person sleeping next to me, who am I? Do I know enough about myself to be honest with that person? But a funny thing happens: songs shift their meanings when you sing them, they shift their meanings in time, they shift their meanings with who you sing them with. When you sing this song with someone you love, it turns into something else… a reaffirmation of loves' mysteries, its shadows, frailties and acceptance of those frailties, without which there is no love."
 
 Honestly, I didn't get it, at the time. It still sounded like a song of doubt at its core. But the more I heard them perform it, and more importantly—the more I *saw* them perform it, the nuance in the song became clear: if you're lucky enough to make it that far, you someday come to realize that the things you try to hide aren't really hidden, and of the things you choose to show, some are true and some are just who you want to be. Sometimes the difference is imperceptible, but ultimately it doesn't matter—because at that point in a shared life, love is much more than the sum of its parts. There will be mysteries and vulnerabilities, but they've become an integral part of the relationship rather than an external threat to it.
 
@@ -96,7 +96,7 @@ However, this may be the only song in Bruce's catalog for which live performance
 
 The video for Brilliant disguise is pseudo-live, actually: Bruce sang the vocal live, take after take, accompanied by his recorded instrumental track. The video itself is a minimalist masterpiece, set in a kitchen, where Bruce plays his guitar and sings, staring out at the viewer as the camera draws ever so slowly inward, revealing, ultimately the insecurities and fear at the heart of the song in Bruce's screen-filling eyes.
 
-In my mind, the song continues after Bruce stops singing. Watch his eyes, his face after the last line and you’ll see what I mean. He says a lot without any words at all.
+In my mind, the song continues after Bruce stops singing. Watch his eyes, his face after the last line and you'll see what I mean. He says a lot without any words at all.
 
 [Watch on Youtube: Bruce Springsteen - Brilliant Disguise (Official Video)](https://www.youtube.com/watch?v=idnJnjV_8rg)
 
@@ -106,7 +106,7 @@ If there's a live performance, I'd recommend, it'd be this one from 1990—the f
 
 [Watch on Youtube: Brilliant Disguie (solo acoustic) Bruce Springsteen 11/16/1990 (Christic Benefit)](https://www.youtube.com/watch?v=03dJ0y_nuXY)
 
-“Brilliant Disguise” is ultimately a very personal song, both for the singer and the listener. Your take may differ from mine, as it very likely should. And if so, I’d love to hear it.
+"Brilliant Disguise" is ultimately a very personal song, both for the singer and the listener. Your take may differ from mine, as it very likely should. And if so, I'd love to hear it.
 
 **Brilliant Disguise**  
 **Recorded:** Early 1987  

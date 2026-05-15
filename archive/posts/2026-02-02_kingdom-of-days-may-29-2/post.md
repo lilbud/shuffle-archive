@@ -20,7 +20,7 @@ Bruce and the E Street Band play two shows at The Main Point in Bryn Mawr, Penns
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1974-0529.jpg?resize=700%2C411&amp;ssl=1)
 
-The still-young Darkness Tour reaches Boston for the first of three nights. This show features the first segue of “Racing in the Street” into “Thunder Road,” which will remain a staple of the set for the remainder of the tour. The J. Geils Band is in attendance tonight, and Peter Wolf hangs out with Bruce and the band after the show.
+The still-young Darkness Tour reaches Boston for the first of three nights. This show features the first segue of "Racing in the Street" into "Thunder Road," which will remain a staple of the set for the remainder of the tour. The J. Geils Band is in attendance tonight, and Peter Wolf hangs out with Bruce and the band after the show.
 
 **1978:**
 
@@ -34,13 +34,13 @@ The still-young Darkness Tour reaches Boston for the first of three nights. This
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1978-05-29c.jpg?resize=336%2C962&amp;ssl=1)
 
-Bruce and the E Street Band work on “Point Blank” and “Independence Day” at the Power Station in New York City.
+Bruce and the E Street Band work on "Point Blank" and "Independence Day" at the Power Station in New York City.
 
 **1979:**
 
 [https://www.youtube.com/embed/tHkii-j_Cac?feature=oembed](https://www.youtube.com/embed/tHkii-j_Cac?feature=oembed)
 
-At the first of six River shows at London’s Wembley Arena, Bruce performs “Trapped” for the very first time.
+At the first of six River shows at London's Wembley Arena, Bruce performs "Trapped" for the very first time.
 
 **1981:**
 
@@ -52,13 +52,13 @@ At the first of six River shows at London’s Wembley Arena, Bruce performs “T
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1981-0529.jpg?resize=758%2C837&amp;ssl=1)
 
-Bruce and Southside Johnny join Beaver Brown on stage at Big Man’s West in Red Bank.
+Bruce and Southside Johnny join Beaver Brown on stage at Big Man's West in Red Bank.
 
 **1982:**
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1982-05-29.jpg?resize=758%2C495&amp;ssl=1)
 
-The town of Freehold cancels the permit for a planned Jersey Artists for Mankind outdoor benefit show when a rumor spread that Bruce would appear. The small park can’t hold the expected throngs, so the town cancels the event.
+The town of Freehold cancels the permit for a planned Jersey Artists for Mankind outdoor benefit show when a rumor spread that Bruce would appear. The small park can't hold the expected throngs, so the town cancels the event.
 
 **1986:**
 
@@ -66,7 +66,7 @@ The town of Freehold cancels the permit for a planned Jersey Artists for Mankind
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1986-05-29.jpg?resize=758%2C319&amp;ssl=1)
 
-reports that Bruce and Patti will marry on June 9th, according to a mysterious source “close to the bride-to-be.” After Bruce’s publicist coyly refuses to confirm or deny (“I can’t confirm that date…”), the worldwide press runs rampant with the story and anticipation builds for the big day. It’s highly likely that Bruce and Patti planted the story (or authorized the leak) themselves in order to throw the press off the scent, as their actual wedding ceremony will take place a day earlier, on June 8th–a lesson learned from Bruce’s experience the last time around.
+reports that Bruce and Patti will marry on June 9th, according to a mysterious source "close to the bride-to-be." After Bruce's publicist coyly refuses to confirm or deny ("I can't confirm that date…"), the worldwide press runs rampant with the story and anticipation builds for the big day. It's highly likely that Bruce and Patti planted the story (or authorized the leak) themselves in order to throw the press off the scent, as their actual wedding ceremony will take place a day earlier, on June 8th–a lesson learned from Bruce's experience the last time around.
 
 **1991:** *Newsday*
 
@@ -78,7 +78,7 @@ Bruce hires Gia Ciambotti, Carol Dennis, Cleo Kennedy, and Angel Rogers as backu
 
 **1992:**
 
-Bruce makes one of his most unusual guest appearances with The Rock Bottom Remainders, a band comprised entirely of famous authors, including Stephen King, Amy Tan, Matt Groening, and others at a booksellers convention in Hollywood. Bruce joins the motley crew for “Gloria.”
+Bruce makes one of his most unusual guest appearances with The Rock Bottom Remainders, a band comprised entirely of famous authors, including Stephen King, Amy Tan, Matt Groening, and others at a booksellers convention in Hollywood. Bruce joins the motley crew for "Gloria."
 
 **1994:**
 
@@ -92,9 +92,9 @@ Bruce and the E Street Band deliver a typical Night One show at the first of two
 
 **1999:**
 
-When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays “d” for the first time in 19 years.
+When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays "d" for the first time in 19 years.
 
-**2000:** [It’s Har](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
+**2000:** [It's Har](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[to Be a Saint in the City](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29a.jpg?resize=758%2C575&amp;ssl=1)
 
@@ -102,13 +102,13 @@ When the Reunion Tour stops at the Delta Center in Salt Lake City, Bruce plays �
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2000-05-29b.jpg?resize=672%2C956&amp;ssl=1)
 
-Bruce and the E Street Band play a single Rising show at the Old Trafford Cricket Ground in Manchester, featuring rare performances of “Loose Ends” and “4th of July, Asbury Park (Sandy).”
+Bruce and the E Street Band play a single Rising show at the Old Trafford Cricket Ground in Manchester, featuring rare performances of "Loose Ends" and "4th of July, Asbury Park (Sandy)."
 
 **2003:**
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDMU0AazrmXfyJGJHtVPaic](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDMU0AazrmXfyJGJHtVPaic)
 
-Bruce makes a guest appearance on “Tumbling Dice” with The Rolling Stones at Rock in Rio in Lisbon.
+Bruce makes a guest appearance on "Tumbling Dice" with The Rolling Stones at Rock in Rio in Lisbon.
 
 **2014:**
 
@@ -116,7 +116,7 @@ Bruce makes a guest appearance on “Tumbling Dice” with The Rolling Stones at
 
 [https://www.youtube.com/embed/GVPGA9gI_Dw?feature=oembed](https://www.youtube.com/embed/GVPGA9gI_Dw?feature=oembed)
 
-Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acoustic piano “Incident on 57th Street” followed by a three-pack. The entire U2 band is at the show, and Bono joins Bruce on stage for “Because the Night.”
+Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acoustic piano "Incident on 57th Street" followed by a three-pack. The entire U2 band is at the show, and Bono joins Bruce on stage for "Because the Night."
 
 **2016:** *Greetings*
 
@@ -130,7 +130,7 @@ Irish fans get a stunner of a show at Croke Park, where Bruce opens with an acou
 
 [https://www.youtube.com/embed/dYl5h2vAxOs?feature=oembed](https://www.youtube.com/embed/dYl5h2vAxOs?feature=oembed)
 
-Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on “Rose Tattoo” and “American Land” in their empty stadium performance at Fenway Park.
+Bruce makes one of his strangest pandemic appearances, remotely joining Dropkick Murphys on "Rose Tattoo" and "American Land" in their empty stadium performance at Fenway Park.
 
 **2020:**
 

@@ -2,7 +2,7 @@
 >
 > "The wind was blowing so hard, it was knocking the microphone stand over, and you couldn't hardly see the stage through all the dust. Jerry Lee would play a couple songs, then the guy would sell his Pontiacs, and he gave away hot dogs all covered in dirt from the storm. It was just surreal, and my little 7- or 8-year-old mind was saying, 'Damn–that's what I want to do when *I* grow up!'"
 >
-> –Joe Ely, *Los Angeles Times,* November 17, 1992
+> –Joe Ely, *Los Angeles Times*, November 17, 1992
 
 That was the day Joe Ely decided he wanted to be a rock and roll star. We may never know what the pre-fame Killer played for the Amarillo car shoppers that day, but it was enough to galvanize the young Ely toward a life in music.
 

@@ -6,7 +6,7 @@ In 1993, Ely was touring behind his new album *Love and Danger*, and Bruce was a
 
 [Watch Video Highlight](https://videopress.com/embed/SsOq1hBx)
 
-"Settle For Love" was the lead-off track from Joe's 1988 album, *Dig All Night,* and it lifted Joe and his band to the height of their popularity.
+"Settle For Love" was the lead-off track from Joe's 1988 album, *Dig All Night*, and it lifted Joe and his band to the height of their popularity.
 
 [Watch on Youtube: Settle For Love](https://www.youtube.com/watch?v=w7MaIGryb8g)
 

@@ -2,9 +2,9 @@
 
 *Audio for 1999 and 2014; video for 2014 and 2023***New for 2025:**
 
-Bruce enters a recording studio for the very first time when The Castiles record their first two songs: “” and “.” Both are co-written by Bruce and George Theiss. The former will be officially released on in 2016; the latter is still unreleased but can be heard below.
+Bruce enters a recording studio for the very first time when The Castiles record their first two songs: "" and "." Both are co-written by Bruce and George Theiss. The former will be officially released on in 2016; the latter is still unreleased but can be heard below.
 
-**1966:** [Baby I](http://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/)[That’s What You Get](http://estreetshuffle.com/index.php/2019/11/30/roll-of-the-dice-thats-what-you-get/)*Chapter & Verse*
+**1966:** [Baby I](http://estreetshuffle.com/index.php/2018/12/19/roll-of-the-dice-baby-i/)[That's What You Get](http://estreetshuffle.com/index.php/2019/11/30/roll-of-the-dice-thats-what-you-get/)*Chapter & Verse*
 
 [https://www.youtube.com/embed/aTeJTkSJMVE?feature=oembed](https://www.youtube.com/embed/aTeJTkSJMVE?feature=oembed)
 
@@ -14,13 +14,13 @@ Bruce cancels a scheduled performance at Michigan Technological University to ma
 
 **1973:**
 
-Night Two of five in the final U.S. stand for the Tunnel of Love Express Tour. Bruce and the band exit to a “” instrumental.
+Night Two of five in the final U.S. stand for the Tunnel of Love Express Tour. Bruce and the band exit to a "" instrumental.
 
 **1988:** [New York, New York](https://estreetshuffle.com/index.php/2021/06/26/cover-me-new-york-new-york/)
 
 [https://www.youtube.com/embed/fNUAkKLceYQ?feature=oembed](https://www.youtube.com/embed/fNUAkKLceYQ?feature=oembed)
 
-Bruce performs a solo acoustic show at the Acropolis in Nice, featuring the tour premiere of “.” This show is available as part of Bruce’s official archive series–get it .
+Bruce performs a solo acoustic show at the Acropolis in Nice, featuring the tour premiere of "." This show is available as part of Bruce's official archive series–get it .
 
 **1997:** [You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)[here](https://live.brucespringsteen.net/live-music/0,26013/Bruce-Springsteen-mp3-flac-download-5-18-1997-Palais-des-Congr%C3%A8s-Acropolis-Nice-FR.html)
 
@@ -42,7 +42,7 @@ Bruce and the E Street Band kick off a four-night Reunion Tour stand at Earls Co
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Fulham_and_Hammersmith_Chronicle_Thu__May_20__1999_.jpg?resize=758%2C785&amp;ssl=1)
 
-Bruce attends the opening dedication ceremony for Freehold’s Vinyard Park to honor his early patron and supporter, “Tex” Vinyard.
+Bruce attends the opening dedication ceremony for Freehold's Vinyard Park to honor his early patron and supporter, "Tex" Vinyard.
 
 **2002:**
 
@@ -54,7 +54,7 @@ Bruce attends the opening dedication ceremony for Freehold’s Vinyard Park to h
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2002-05-18b.jpg?resize=758%2C1486&amp;ssl=1)
 
-Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: “,” “Hava Nagila”(!) and “.”
+Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: "," "Hava Nagila"(!) and "."
 
 **2009:** [Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
 

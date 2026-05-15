@@ -16,7 +16,7 @@ Bruce and the E Street Band play a Darkness Tour show at the University of New H
 
 
 **1980:**
-The night after Ronald Reagan is elected president of the United States, Bruce plays a pointedly intense show at Arizona State University in Tempe. This show will be officially released as part of Bruce’s official archive series (get it [here](http://live.brucespringsteen.net/live-music/0,13637/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-5-1980-ASU-Activity-Center-Tempe-AZ.html)), and as press reports note, the show is professionally filmed for release as a “videodisc” in 1981. It will take Bruce a bit longer than that, but the film will finally see the light of day in *The Ties That Bind: The River Collection* 35 years later. Barry Rebo shot the original footage, and he shares his recollections about the experience in [today’s installment of *Where the Band Was*](https://estreetshuffle.com/index.php/2021/11/05/where-the-band-was-tempe-november-5-1980-barry-rebos-story/).
+The night after Ronald Reagan is elected president of the United States, Bruce plays a pointedly intense show at Arizona State University in Tempe. This show will be officially released as part of Bruce's official archive series (get it [here](http://live.brucespringsteen.net/live-music/0,13637/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-5-1980-ASU-Activity-Center-Tempe-AZ.html)), and as press reports note, the show is professionally filmed for release as a "videodisc" in 1981. It will take Bruce a bit longer than that, but the film will finally see the light of day in *The Ties That Bind: The River Collection* 35 years later. Barry Rebo shot the original footage, and he shares his recollections about the experience in [today's installment of *Where the Band Was*](https://estreetshuffle.com/index.php/2021/11/05/where-the-band-was-tempe-november-5-1980-barry-rebos-story/).
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pY3c0O865FKQLzxw_mipjU1(https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pY3c0O865FKQLzxw_mipjU1)
 
@@ -26,7 +26,7 @@ The night after Ronald Reagan is elected president of the United States, Bruce p
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-11-05b-288x300.png?resize=758%2C789)
 
 
-**1986:** Bruce and Bob Geldof make a guest appearance in Paris with Huey Lewis and the News on “[Barefootin’.]” Check out the performance below.(https://estreetshuffle.com/index.php/2021/09/22/matr-huey-lewis-and-the-news-bruce-springsteen-and-bob-geldof-barefootin/)
+**1986:** Bruce and Bob Geldof make a guest appearance in Paris with Huey Lewis and the News on "[Barefootin'.]" Check out the performance below.(https://estreetshuffle.com/index.php/2021/09/22/matr-huey-lewis-and-the-news-bruce-springsteen-and-bob-geldof-barefootin/)
 
 [https://www.youtube.com/embed/WxOQECwAWvs?feature=oembed](https://www.youtube.com/embed/WxOQECwAWvs?feature=oembed)
 
@@ -34,19 +34,19 @@ The night after Ronald Reagan is elected president of the United States, Bruce p
 
 
 **1992:**
-Bruce and the ’92/’93 band bring World Tour 1992 to Skydome in Toronto.
+Bruce and the '92/'93 band bring World Tour 1992 to Skydome in Toronto.
 [https://www.youtube.com/embed/gPbOwkrI1Jo?feature=oembed](https://www.youtube.com/embed/gPbOwkrI1Jo?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-11-05-298x300.png?resize=758%2C763)
 
 
 **1998:**
-At his surprise jam with Clarence the night before, Bruce finds himself captivated by Clarence’s fiddle player, Randi Fishenfeld and makes plans to see her play with the Pamela Stanley Band the following night. The show is rained out however, but a quick-thinking booking agent arranges for the band to play at an indoor venue instead, a nearby bar called Mulvaney’s. Bruce and Clarence join the crowd that night and Fishenfeld puts on a great show for them.
+At his surprise jam with Clarence the night before, Bruce finds himself captivated by Clarence's fiddle player, Randi Fishenfeld and makes plans to see her play with the Pamela Stanley Band the following night. The show is rained out however, but a quick-thinking booking agent arranges for the band to play at an indoor venue instead, a nearby bar called Mulvaney's. Bruce and Clarence join the crowd that night and Fishenfeld puts on a great show for them.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1998-11-05-165x300.png?resize=758%2C1378)
 
 **2007:**
-The Magic Tour stops at The Palace of Auburn Hills, where Bruce plays “[I’ll Work for Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)” for the very first time. He also tour debuts “[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)” and “[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/).”
+The Magic Tour stops at The Palace of Auburn Hills, where Bruce plays "[I'll Work for Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)" for the very first time. He also tour debuts "[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)" and "[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)."
 
 [https://www.youtube.com/embed/9o1TbA6s2Ac?feature=oembed](https://www.youtube.com/embed/9o1TbA6s2Ac?feature=oembed)
 [https://www.youtube.com/embed/CfT8P-KL6zY?feature=oembed](https://www.youtube.com/embed/CfT8P-KL6zY?feature=oembed)
@@ -60,7 +60,7 @@ Bruce performs three songs at the Stand Up For Heroes benefit at Town Hall in Ne
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2008-11-05-245x300.png?resize=758%2C928)
 
 **2010:**
-Bruce joins Joe Grushecky and The Houserockers at Soldiers & Sailors Memorial Hall in Pittsburgh for the second of two 15th anniversary shows for [American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/). Bruce opens the show acoustically with “[Your Own Worst Enemy](http://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/),” and three other numbers before joining Joe and the band for a set that includes both Grushecky and Springsteen originals, including a fun “[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/).”
+Bruce joins Joe Grushecky and The Houserockers at Soldiers & Sailors Memorial Hall in Pittsburgh for the second of two 15th anniversary shows for [American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/). Bruce opens the show acoustically with "[Your Own Worst Enemy](http://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)," and three other numbers before joining Joe and the band for a set that includes both Grushecky and Springsteen originals, including a fun "[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)."
 
 
 [https://www.youtube.com/embed/9RK0l1zDOBU?feature=oembed](https://www.youtube.com/embed/9RK0l1zDOBU?feature=oembed)
@@ -73,7 +73,7 @@ Bruce joins Joe Grushecky and The Houserockers at Soldiers & Sailors Memorial Ha
 [https://www.youtube.com/embed/Tg4hM98QsrU?feature=oembed](https://www.youtube.com/embed/Tg4hM98QsrU?feature=oembed)
 
 **2012:**
-On the Election Eve, Bruce performs at an amazing three different rallies in three different states with and for President Obama–first in Madison, then Columbus, and finally in Des Moines. The setlist is the same at each stop–including his hastily penned campaign theme song, “[Forward](http://estreetshuffle.com/index.php/2018/02/09/roll-of-the-dice-forward/).”
+On the Election Eve, Bruce performs at an amazing three different rallies in three different states with and for President Obama–first in Madison, then Columbus, and finally in Des Moines. The setlist is the same at each stop–including his hastily penned campaign theme song, "[Forward](http://estreetshuffle.com/index.php/2018/02/09/roll-of-the-dice-forward/)."
 
 
 [https://www.youtube.com/embed/JygWoIeW224?feature=oembed](https://www.youtube.com/embed/JygWoIeW224?feature=oembed)
@@ -104,7 +104,7 @@ Bruce performs once again at Stand Up for Heroes, playing a five-song acoustic s
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2014-11-05-103x300.png?resize=758%2C2207)
 
 **2018:**
-Bruce makes a return appearance at Stand Up For Heroes, now in its twelfth year. In addition to his customary turn as amateur comedian, Bruce performs an acoustic mini-set that includes a fun “[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)” duet with Eric Church and a beautiful “[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)” with Patti.
+Bruce makes a return appearance at Stand Up For Heroes, now in its twelfth year. In addition to his customary turn as amateur comedian, Bruce performs an acoustic mini-set that includes a fun "[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)" duet with Eric Church and a beautiful "[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)" with Patti.
 
 [https://www.youtube.com/embed/IuWlu5mym7U?feature=oembed](https://www.youtube.com/embed/IuWlu5mym7U?feature=oembed)
 
@@ -119,7 +119,7 @@ Bruce makes a return appearance at Stand Up For Heroes, now in its twelfth year.
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2018-11-05b-300x297.png?resize=758%2C750)
 
 **2022:**
-Bruce inducts Jimmy Iovine into the Rock and Roll Hall of Fame at the Microsoft Theater in Los Angeles. At the end of the show, he returns to the stage with John Mellencamp to close the evening with a loose, rollicking rendition of “[Great Balls of Fire](https://estreetshuffle.com/index.php/2022/08/10/matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/)” in tribute to the late Jerry Lee Lewis, who passed away the previous week.
+Bruce inducts Jimmy Iovine into the Rock and Roll Hall of Fame at the Microsoft Theater in Los Angeles. At the end of the show, he returns to the stage with John Mellencamp to close the evening with a loose, rollicking rendition of "[Great Balls of Fire](https://estreetshuffle.com/index.php/2022/08/10/matr-bruce-springsteen-jerry-lee-lewis-and-joe-ely-great-balls-of-fire/)" in tribute to the late Jerry Lee Lewis, who passed away the previous week.
 
 [https://www.youtube.com/embed/_2_0n2fJj24?feature=oembed](https://www.youtube.com/embed/_2_0n2fJj24?feature=oembed)
 

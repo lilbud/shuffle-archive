@@ -1,10 +1,10 @@
-**1971:** The Bruce Springsteen Band headlines at Asbury Park’s Sunshine In.
+**1971:** The Bruce Springsteen Band headlines at Asbury Park's Sunshine In.
 
 ![](../../assets/2020/07/1971-08-07.png)
 
 ![](../../assets/2018/08/1971-0807.jpg)
 
-**1973:** A scheduled show at Uncle Al’s Erlton Theatre Lounge in Cherry Hill is likely postponed (no record exists of this show having taken place) to the following week. Instead, Bruce works on overdubs and mixing for “Thundercrack,” “New York City Serenade,” and “Zero and Blind Terry.”
+**1973:** A scheduled show at Uncle Al's Erlton Theatre Lounge in Cherry Hill is likely postponed (no record exists of this show having taken place) to the following week. Instead, Bruce works on overdubs and mixing for "Thundercrack," "New York City Serenade," and "Zero and Blind Terry."
 
 ![](../../assets/2024/08/Courier_Post_1973_07_21_Page_25-scaled.jpg)
 
@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/0KQVFFpL?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1982:** Bruce joins Beaver Brown on stage at Big Man’s West in Red Bank, where he debuts a work-in-progress, “Downbound Train” in the middle of “Lucille.” (Skip to the 21 minute-mark below to hear it.)
+**1982:** Bruce joins Beaver Brown on stage at Big Man's West in Red Bank, where he debuts a work-in-progress, "Downbound Train" in the middle of "Lucille." (Skip to the 21 minute-mark below to hear it.)
 
 [Watch Video Highlight](https://videopress.com/embed/9dFjGaHk?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-**1985:** The stadium leg of the Born in the U.S.A. Tour picks up steam at Cleveland Municipal Stadium, where Bruce tour debuts “This Land is Your Land.”
+**1985:** The stadium leg of the Born in the U.S.A. Tour picks up steam at Cleveland Municipal Stadium, where Bruce tour debuts "This Land is Your Land."
 
 [Watch Video Highlight](https://videopress.com/embed/Vu6tENsx?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -42,7 +42,7 @@
 
 ![](../../assets/2018/08/1985-0807.jpg)
 
-**1992:** At the penultimate show of World Tour 1992’s eleven-night stand at the Meadowlands, Bruce and Roy play a tour one-off, an intimate “For You.” “Racing in the Street” is also a tour one-off, and Southside Johnny guest-stars on “All the Way Home.”
+**1992:** At the penultimate show of World Tour 1992's eleven-night stand at the Meadowlands, Bruce and Roy play a tour one-off, an intimate "For You." "Racing in the Street" is also a tour one-off, and Southside Johnny guest-stars on "All the Way Home."
 
 [Watch Video Highlight](https://videopress.com/embed/MZxl9BXf?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -50,11 +50,11 @@
 
 [Watch Video Highlight](https://videopress.com/embed/Xl1kGK8C?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1999:** Bruce stuns fans at the Meadowlands when he opens Night Twelve (of fifteen) with the first “Don’t Look Back” in 22 years. Bruce also plays “Janey, Don’t You Lose Heart” for only the third time ever.
+**1999:** Bruce stuns fans at the Meadowlands when he opens Night Twelve (of fifteen) with the first "Don't Look Back" in 22 years. Bruce also plays "Janey, Don't You Lose Heart" for only the third time ever.
 
 [Watch Video Highlight](https://videopress.com/embed/MBTGYj28?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**2002:** The Rising Tour officially kicks off and Soozie Tyrell makes her official E Street Band debut at the Continental Airlines Arena in East Rutherford, with essentially the same set as the rehearsal show in the same venue. Early shows on the “barnstorming” leg would be atypically rigid, with little variation from night to night.
+**2002:** The Rising Tour officially kicks off and Soozie Tyrell makes her official E Street Band debut at the Continental Airlines Arena in East Rutherford, with essentially the same set as the rehearsal show in the same venue. Early shows on the "barnstorming" leg would be atypically rigid, with little variation from night to night.
 
 [Watch Video Highlight](https://videopress.com/embed/r4z4wiX6?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -62,13 +62,13 @@
 
 ![](../../assets/2018/08/2002-0807.jpg)
 
-**2005:** Bruce opens his solo acoustic show at Milwaukee’s Bradley Center with the tour premiere (and tour one-off) of “Shut Out the Light” and follow up shortly thereafter with the tour premiere of “Frankie.”
+**2005:** Bruce opens his solo acoustic show at Milwaukee's Bradley Center with the tour premiere (and tour one-off) of "Shut Out the Light" and follow up shortly thereafter with the tour premiere of "Frankie."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Xbni_yrA3EE)
 
 ![](../../assets/2020/07/2005-08-07b.png)
 
-**2019:** Bruce attends the premiere of *Blinded by the Light* at Convention Hall in Asbury Park. Following the show, Bruce, Patti, and Lisa Lowell join Southside Johnny and The Asbury Jukes on stage at the after-party for four songs, including “Talk to Me” and “Sherry Darling.”
+**2019:** Bruce attends the premiere of *Blinded by the Light* at Convention Hall in Asbury Park. Following the show, Bruce, Patti, and Lisa Lowell join Southside Johnny and The Asbury Jukes on stage at the after-party for four songs, including "Talk to Me" and "Sherry Darling."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=F-k1OtyJF5Y)
 
@@ -78,7 +78,7 @@
 
 ![](../../assets/2020/07/2019-08-07.png)
 
-**2024:** Bruce makes a surprise guest appearance at Zach Bryan’s show at Philadelphia’s Lincoln Financial Field.
+**2024:** Bruce makes a surprise guest appearance at Zach Bryan's show at Philadelphia's Lincoln Financial Field.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NldH9Lk5nv0)
 

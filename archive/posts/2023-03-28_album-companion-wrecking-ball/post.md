@@ -12,7 +12,7 @@ But even amongst this select group, only an elite pantheon can claim a second ha
 
 No one exemplifies that kind of vitality better than Bruce Springsteen.
 
-Although it may seem like anathema to those of us who grew up on classics like *Born to Run, [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/),* and *Born in the U.S.A.*, if we set aside our formative history with these undeniably great albums it's hard to argue they're not artistically surpassed by *The Rising*, *Working on a Dream*, and *Western Stars*.
+Although it may seem like anathema to those of us who grew up on classics like *Born to Run, [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*, and *Born in the U.S.A.*, if we set aside our formative history with these undeniably great albums it's hard to argue they're not artistically surpassed by *The Rising*, *Working on a Dream*, and *Western Stars*.
 
 (It almost seems unfair to compare *any* album to the sublime *Western Stars*, so much does it outdistance the rest of Springsteen's work. But that's exactly my point: that high-water mark came at an astonishing 46 years into his career.)
 

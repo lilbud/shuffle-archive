@@ -2,7 +2,7 @@
 
 *No updates***New for 2025:**
 
-Bruce plays at Grendel’s Lair Coffee House in Philadelphia.
+Bruce plays at Grendel's Lair Coffee House in Philadelphia.
 
 **1973:**
 
@@ -18,13 +18,13 @@ Bruce plays his first-ever show in Indiana, at the University of Notre Dame in S
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1976-10-09.jpg?resize=758%2C1590&amp;ssl=1)
 
-At the Power Station in New York City, Bruce and the E Street Band record “” The song will remain unreleased for almost 20 years.
+At the Power Station in New York City, Bruce and the E Street Band record "" The song will remain unreleased for almost 20 years.
 
 **1979:** [Where the Bands Are.](http://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)
 
 [https://www.youtube.com/embed/7FrUma-rtZA?feature=oembed](https://www.youtube.com/embed/7FrUma-rtZA?feature=oembed)
 
-The River Tour moves on to Detroit’s Cobo Arena, where Bruce and the boys close with a tour one-off of “” (following the first “” with “I Hear a Train” in it). After the show, Bruce is interviewed for the January 1981 issue of 
+The River Tour moves on to Detroit's Cobo Arena, where Bruce and the boys close with a tour one-off of "" (following the first "" with "I Hear a Train" in it). After the show, Bruce is interviewed for the January 1981 issue of 
 
 **1980:** [Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)*Creem Magazine.*
 
@@ -50,7 +50,7 @@ Bruce plays his first and only show to date in the Ivory Coast when the Human Ri
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1988-1009.jpg?resize=492%2C1342&amp;ssl=1)
 
-A scheduled show at Mountain View’s Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.
+A scheduled show at Mountain View's Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.
 
 **1992:**
 
@@ -58,7 +58,7 @@ A scheduled show at Mountain View’s Shoreline Amphitheater is postponed until 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1992-10-08-1.jpg?resize=758%2C3498&amp;ssl=1)
 
-Bruce opens his solo acoustic show at the Nassau Coliseum with a rare “Stolen Car.”
+Bruce opens his solo acoustic show at the Nassau Coliseum with a rare "Stolen Car."
 
 **2005:**
 
@@ -68,7 +68,7 @@ Bruce opens his solo acoustic show at the Nassau Coliseum with a rare “Stolen 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2005-10-09.jpg?resize=758%2C387&amp;ssl=1)
 
-It’s a standard set at Magic Tour Night One at East Rutherford’s Continental Airlines Arena, but surprises are in store for Night Two.
+It's a standard set at Magic Tour Night One at East Rutherford's Continental Airlines Arena, but surprises are in store for Night Two.
 
 **2007:**
 
@@ -80,7 +80,7 @@ It’s a standard set at Magic Tour Night One at East Rutherford’s Continental
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2007-10-09b-235x300.jpg?resize=758%2C968)
 
-Bruce and the E Street Band play their last-ever show at Giants Stadium, sending it off in style with a final “” to open and a cover of “” in the encores.
+Bruce and the E Street Band play their last-ever show at Giants Stadium, sending it off in style with a final "" to open and a cover of "" in the encores.
 
 **2009:** [Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)[The Last Time](http://estreetshuffle.com/index.php/2020/07/24/cover-me-the-last-time/)
 
@@ -92,7 +92,7 @@ Bruce and the E Street Band play their last-ever show at Giants Stadium, sending
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-10-09b-300x287.jpg?resize=758%2C725)
 
-After a two-year hiatus, returns for an encore episode on Sirius XM with Episode 30, with some special guests from Bruce’s high school days along for the ride.
+After a two-year hiatus, returns for an encore episode on Sirius XM with Episode 30, with some special guests from Bruce's high school days along for the ride.
 
 **2023:***From My Home to Yours*
 

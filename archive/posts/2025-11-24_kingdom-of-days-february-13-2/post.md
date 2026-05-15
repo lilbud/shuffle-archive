@@ -12,7 +12,7 @@ Bruce jams at an open mic night at The Upstage in Asbury Park.
 
 **1971:**
 
-After performing “” Bruce and the E Street Band take a mid-show intermission for the first time, as the Lawsuit Tour continues its Canadian leg with a show at Toronto’s Maple Leaf Gardens.
+After performing "" Bruce and the E Street Band take a mid-show intermission for the first time, as the Lawsuit Tour continues its Canadian leg with a show at Toronto's Maple Leaf Gardens.
 
 **1977:** [Tenth Avenue Freeze-Out,](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 

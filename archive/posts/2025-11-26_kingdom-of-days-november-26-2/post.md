@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Patti Smith and Bruce Springsteen: Ain't it strange](https://www.youtube.com/watch?v=Pa1ckDQQfZk)
 
-**1984:** Bruce plays a *Born in the U.S.A.* show in Dallas, but the set list has almost as many songs from *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/),* including the tour premiere of "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)."
+**1984:** Bruce plays a *Born in the U.S.A.* show in Dallas, but the set list has almost as many songs from *[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*, including the tour premiere of "[Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)."
 
 [Watch Video Highlight](https://videopress.com/embed/2OMU9eZF)
 
@@ -82,4 +82,4 @@
 
 **2017:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater on Broadway. After tonight's show, Bruce will take more than a week off.
 
-**2024:** Bruce drops by the set of *Deliver Me From Nowhere,* filming today in Bayonne, New Jersey.
+**2024:** Bruce drops by the set of *Deliver Me From Nowhere*, filming today in Bayonne, New Jersey.

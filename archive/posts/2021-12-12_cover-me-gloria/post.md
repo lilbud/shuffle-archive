@@ -1,18 +1,18 @@
 
 
-“Gloria” is a riff-rock classic that’s perfectly suited for the E Street Band’s guitar-heavy arsenal. It’s turned up in Bruce’s setlist more than a dozen times over the years, and that’s including its frequent mini-appearance as a lead-in to “.” It’s clearly a significant song for Bruce, as you can hear in this conversation between Bruce and Steve from the Underground Garage in 2011.
+"Gloria" is a riff-rock classic that's perfectly suited for the E Street Band's guitar-heavy arsenal. It's turned up in Bruce's setlist more than a dozen times over the years, and that's including its frequent mini-appearance as a lead-in to "." It's clearly a significant song for Bruce, as you can hear in this conversation between Bruce and Steve from the Underground Garage in 2011.
 
-*not*[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
+*not*[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
 
 [https://www.youtube.com/embed/fUKe6X-W0F4?feature=oembed](https://www.youtube.com/embed/fUKe6X-W0F4?feature=oembed)
 
-Bruce may have bought the single on instinct, but as he says as above, “When that hit, once that hit, if you couldn’t play it, you didn’t get a gig.”
+Bruce may have bought the single on instinct, but as he says as above, "When that hit, once that hit, if you couldn't play it, you didn't get a gig."
 
-So play it they did. There are plenty of video clips to choose from, but I’m partial to this one from a few years ago–it’s nice and close up, with great audio.
+So play it they did. There are plenty of video clips to choose from, but I'm partial to this one from a few years ago–it's nice and close up, with great audio.
 
 [https://www.youtube.com/embed/C5aQz_6tC6U?feature=oembed](https://www.youtube.com/embed/C5aQz_6tC6U?feature=oembed)
 
-Here’s the original 1964 B-side(!) by Them.
+Here's the original 1964 B-side(!) by Them.
 
 [https://www.youtube.com/embed/WkaMVLHxzWE?feature=oembed](https://www.youtube.com/embed/WkaMVLHxzWE?feature=oembed)
 

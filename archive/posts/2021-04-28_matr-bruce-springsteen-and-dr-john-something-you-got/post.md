@@ -42,7 +42,7 @@ Bruce and the band played "Something You Got" in concert the very next night–a
 
 But while Bruce may have moved on from it for a while, "Something You Got" continued to inspire other artists, particularly musicians on the New Orleans music scene. And no one was bigger on the New Orleans music scene than Dr. John.
 
-Dr. John covered "Something You Got" in a decidedly uptempo arrangement on his 1979 album, *Tango Palace,* and he covered it in concert from time to time in the 1980s.
+Dr. John covered "Something You Got" in a decidedly uptempo arrangement on his 1979 album, *Tango Palace*, and he covered it in concert from time to time in the 1980s.
 
 [Watch on Youtube: Something You Got](https://www.youtube.com/watch?v=fnoLMRaeOYY)
 

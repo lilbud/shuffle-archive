@@ -1,18 +1,18 @@
 
 
-Three–count ’em–Asbury Park shows on this date–first at 1am with the Red Hot Mammas, then an afternoon gig with The Sundance Blues Band at the Student Prince, followed by an evening show with the Red Hot Mammas at The Upstage. (Bruce actually plays a show at 1am, but that’s technically the following day.)
+Three–count 'em–Asbury Park shows on this date–first at 1am with the Red Hot Mammas, then an afternoon gig with The Sundance Blues Band at the Student Prince, followed by an evening show with the Red Hot Mammas at The Upstage. (Bruce actually plays a show at 1am, but that's technically the following day.)
 
 **1971:** *three* *fourth*
 
-Bruce and the E Street Band work on “Jackson Cage” at the Power Station in New York City.
+Bruce and the E Street Band work on "Jackson Cage" at the Power Station in New York City.
 
 **1979:**
 
-Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man’s West in Red Bank.
+Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
 
 **1984:**
 
-: Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of “Lonely Teardrops” as the final encore.
+: Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of "Lonely Teardrops" as the final encore.
 
 **1988**
 
@@ -20,7 +20,7 @@ Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD_0qbZ6tPm02uPd4dUaeRf](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD_0qbZ6tPm02uPd4dUaeRf)
 
-Bruce’s World Tour 1993 makes a stop at The National Bowl in Milton Keynes, England.
+Bruce's World Tour 1993 makes a stop at The National Bowl in Milton Keynes, England.
 
 **1993:**
 
@@ -38,7 +38,7 @@ Bruce’s World Tour 1993 makes a stop at The National Bowl in Milton Keynes, En
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1993-05-22-scaled.jpg?resize=758%2C287&amp;ssl=1)
 
-Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the true highlight from this date happens afterward: the crowd sticks around outside the theater and sings “O Sole Mio”(which Bruce performed briefly during the show), prompting Bruce to appear on the theater’s balcony with Kevin Buell to play and lead the crowd in a sing-along of “Thunder Road.” Watch this moment–it’s magical.
+Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the true highlight from this date happens afterward: the crowd sticks around outside the theater and sings "O Sole Mio"(which Bruce performed briefly during the show), prompting Bruce to appear on the theater's balcony with Kevin Buell to play and lead the crowd in a sing-along of "Thunder Road." Watch this moment–it's magical.
 
 **1997:**
 
@@ -46,7 +46,7 @@ Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the
 
 [https://www.youtube.com/embed/KsQcmfghM70?feature=oembed](https://www.youtube.com/embed/KsQcmfghM70?feature=oembed)
 
-The E Street Band plays “Roll of the Dice” for the very first time and tour premieres “Gloria” at the second of two Reunion shows in Anaheim. This show is available as part of Bruce’s official archive series–get it here.
+The E Street Band plays "Roll of the Dice" for the very first time and tour premieres "Gloria" at the second of two Reunion shows in Anaheim. This show is available as part of Bruce's official archive series–get it here.
 
 **2000:**
 
@@ -78,7 +78,7 @@ The second European leg of the Magic Tour kicks off with the first of three show
 
 **2010**
 
-Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of “Mary Queen of Arkansas,” “Two for the Road,” “Kingdom of Days,” “The Wall,” and “Incident on 57th Street,” along with the world premiere of “Leavin’ Train.”
+Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of "Mary Queen of Arkansas," "Two for the Road," "Kingdom of Days," "The Wall," and "Incident on 57th Street," along with the world premiere of "Leavin' Train."
 
 **2014:**
 
@@ -102,7 +102,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce opens a rainy show in Sunderland with the tour premiere of “Waitin’ on a Sunny Day.”
+Bruce opens a rainy show in Sunderland with the tour premiere of "Waitin' on a Sunny Day."
 
 **2024:**
 

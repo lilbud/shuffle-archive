@@ -4,7 +4,7 @@ As long-time readers know, my editorial calendar is determined by a metaphorical
 
 Since the songs are assigned to me randomly, that means that as far as my writing goes, I'm very close to completing some of Bruce's albums while some still have several songs left for me to profile. None are complete yet, but all are likely to be finished by the end of this year.
 
-So that has me thinking about how I want to "package" them up when they're complete. I'm leaning towards writing a companion piece for the album itself with links to the individual song articles, so I can write about the backstory and reception of the album itself. And while I was thinking about *that,* I remembered that I actually did complete one of Bruce's discs a couple of years ago–although it was an EP, not a full album. Since most of those pieces were written early on, before I'd built up a strong readership, I thought I'd re-introduce them today.
+So that has me thinking about how I want to "package" them up when they're complete. I'm leaning towards writing a companion piece for the album itself with links to the individual song articles, so I can write about the backstory and reception of the album itself. And while I was thinking about *that*, I remembered that I actually did complete one of Bruce's discs a couple of years ago–although it was an EP, not a full album. Since most of those pieces were written early on, before I'd built up a strong readership, I thought I'd re-introduce them today.
 
 Bruce released *American Beauty* on April 19, 2014–Record Store Day. A promotional vinyl disc with a limited run of only 7,500 copies, it was also released as a digital download a few days later.
 

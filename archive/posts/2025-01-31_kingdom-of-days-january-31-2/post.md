@@ -28,7 +28,7 @@ The late show was recorded, too–but only the first two songs have surfaced. Bu
 
 [Watch Video Highlight](https://videopress.com/embed/kHAishzR)
 
-**1998:** *Come Together,* a special benefit concert for the Sergeant Patrick King Memorial Fund, gathers Bruce, Jon Bon Jovi, Little Steven, Southside Johnny, Max Weinberg, Bobby Bandiera and others at the Count Basie Theater in Red Bank, New Jersey. King was a police officer from Long Branch who was killed two months prior while on duty.
+**1998:** *Come Together*, a special benefit concert for the Sergeant Patrick King Memorial Fund, gathers Bruce, Jon Bon Jovi, Little Steven, Southside Johnny, Max Weinberg, Bobby Bandiera and others at the Count Basie Theater in Red Bank, New Jersey. King was a police officer from Long Branch who was killed two months prior while on duty.
 
 [Watch on Youtube: This Time It's for Real - January 31, 1998](https://www.youtube.com/watch?v=cwoiZmmK1Ag)
 

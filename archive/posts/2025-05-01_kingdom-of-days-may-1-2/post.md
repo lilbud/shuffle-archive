@@ -66,7 +66,7 @@
 
 ![](../../assets/2020/04/2014-05-01.jpg)
 
-**2018:** The Tony Awards announce that Bruce will be awarded a special Tony for *Springsteen on Broadway,* "a once in a lifetime theater going experience of extraordinary dimensions." Watch the announcement at the 12:40 mark below.
+**2018:** The Tony Awards announce that Bruce will be awarded a special Tony for *Springsteen on Broadway*, "a once in a lifetime theater going experience of extraordinary dimensions." Watch the announcement at the 12:40 mark below.
 
 [Watch on Youtube: 2018 Tony Award Nominations Announcement](https://www.youtube.com/watch?v=Ol_H1beGUV4)
 > [View this post on Instagram](https://www.instagram.com/p/BiPvyFEnTwm/?utm_source=ig_embed&utm_campaign=loading)

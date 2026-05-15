@@ -92,6 +92,6 @@ That evening, a more awake Bruce and the Sessions Band play a third public warm-
 
 [Watch on Youtube: Bruce Springsteen Brooklyn New York Barclays Center April 25 2016 - Boom Boom - Loose Ends](https://www.youtube.com/watch?v=a_dmf59F9P0)
 
-**2019:** After days of teasing and speculation, Bruce officially announces his next album, *Western Stars,* coming in June.
+**2019:** After days of teasing and speculation, Bruce officially announces his next album, *Western Stars*, coming in June.
 
 ![](../../assets/2020/04/2019-04-25.jpg)

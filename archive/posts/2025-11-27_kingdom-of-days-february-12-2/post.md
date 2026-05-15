@@ -52,7 +52,7 @@ The original River Tour stops in Mobile, Alabama.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Birmingham_Post_Herald_Fri__Feb_13__1981_.jpg?resize=758%2C676&amp;ssl=1)
 
-: Bruce, Sting, Bruce Hornsby, and others attend and perform at a benefit for the Rainforest Foundation in Beverly Hills. Among the numbers Bruce performs: his only known cover of “Big Yellow Taxi.”
+: Bruce, Sting, Bruce Hornsby, and others attend and perform at a benefit for the Rainforest Foundation in Beverly Hills. Among the numbers Bruce performs: his only known cover of "Big Yellow Taxi."
 
 **1990**
 
@@ -64,19 +64,19 @@ Bruce begins his first European solo acoustic tour in Frankfurt.
 
 [https://www.youtube.com/embed/qVfDA38YmwE?feature=oembed](https://www.youtube.com/embed/qVfDA38YmwE?feature=oembed)
 
-Bruce’s marathon solo acoustic tour continues with a fifth and final show at the Capital Theater in Sydney, Australia.
+Bruce's marathon solo acoustic tour continues with a fifth and final show at the Capital Theater in Sydney, Australia.
 
 **1997:**
 
 [https://videopress.com/embed/pbK3YKjI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/pbK3YKjI?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce records audio and video for “” for a Johnny Cash tribute special. It will be broadcast in April.
+Bruce records audio and video for "" for a Johnny Cash tribute special. It will be broadcast in April.
 
 **1999:**[Give My Love to Rose](https://estreetshuffle.com/index.php/2020/10/29/cover-me-give-my-love-to-rose/)
 
 [https://www.youtube.com/embed/rF2ikBJbV5U?feature=oembed](https://www.youtube.com/embed/rF2ikBJbV5U?feature=oembed)
 
-Bruce and the E Street Band open the Grammy Awards with the live debut of “” At the end of the show, Bruce joins an epic jam with Paul McCartney, Dave Grohl, and Joe Walsh on “” Watch both performances and behind-the-scenes footage below.
+Bruce and the E Street Band open the Grammy Awards with the live debut of "" At the end of the show, Bruce joins an epic jam with Paul McCartney, Dave Grohl, and Joe Walsh on "" Watch both performances and behind-the-scenes footage below.
 
 **2012:**[We Take Care of Our Own.](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)[The End.](https://estreetshuffle.com/index.php/2024/07/06/matr-paul-mccartney-and-bruce-springsteen-the-end/)
 
@@ -86,7 +86,7 @@ Bruce and the E Street Band open the Grammy Awards with the live debut of “”
 
 [https://videopress.com/embed/0ABz94N6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0ABz94N6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Night Two in Adelaide is a scorcher… literally. It was a hot day, and it prompts Bruce to open with a cover of “.” This show also features the first and only (to date) performance of “.”
+Night Two in Adelaide is a scorcher… literally. It was a hot day, and it prompts Bruce to open with a cover of "." This show also features the first and only (to date) performance of "."
 
 **2014:** [Heat Wave](https://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)[Hunter of Invisible Game](https://estreetshuffle.com/index.php/2022/01/18/roll-of-the-dice-hunter-of-invisible-game/)
 
@@ -98,7 +98,7 @@ Night Two in Adelaide is a scorcher… literally. It was a hot day, and it promp
 
 [https://www.youtube.com/embed/6_x8_lldjF0?feature=oembed](https://www.youtube.com/embed/6_x8_lldjF0?feature=oembed)
 
-At the Wells Fargo Center in Philadelphia, Bruce gives Philly their customary special perks, adding tour premieres of “” and “Jungleland” to the post-album set. For more highlights and memories, see my .
+At the Wells Fargo Center in Philadelphia, Bruce gives Philly their customary special perks, adding tour premieres of "" and "Jungleland" to the post-album set. For more highlights and memories, see my .
 
 **2016:**[My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)[report](https://estreetshuffle.com/index.php/2018/02/12/where-the-band-was-philadelphia-february-12-2016/)*Where the Band Was*
 

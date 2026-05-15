@@ -18,7 +18,7 @@ The single was successful enough to earn Stevens a live television performance o
 
 [Watch on Youtube: Jeff Stevens and the Bullets - Darlington County](https://www.youtube.com/watch?v=cO6_vEfNGHg)
 
-That success led the way to their 1987 debut album, *Bolt Out of the Blue,* which featured their Springsteen cover, advertise prominently on the album cover.
+That success led the way to their 1987 debut album, *Bolt Out of the Blue*, which featured their Springsteen cover, advertise prominently on the album cover.
 
 The album didn't break through. Neither did their follow-up self-titled album. None of their singles cracked the Top 40 on any chart, and the band finally broke up in 1990. Stevens went on to a successful career as a songwriter and producer.
 

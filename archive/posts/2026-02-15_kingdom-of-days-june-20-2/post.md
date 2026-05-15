@@ -4,27 +4,27 @@
 
 **1977:** Bruce and the E Street Band record for what will become *Darkness on the Edge of Town* at Atlantic Studios in New York City.
 
-**1978:** Bruce and the E Street Band play Red Rocks for the first time at this Darkness Tour stop. This show also notches two additional firsts: Bruce’s first-ever show in Colorado and his first-ever cover of “I Fought the Law.”
+**1978:** Bruce and the E Street Band play Red Rocks for the first time at this Darkness Tour stop. This show also notches two additional firsts: Bruce's first-ever show in Colorado and his first-ever cover of "I Fought the Law."
 
 [Watch Video Highlight](https://videopress.com/embed/602P8E1i)
 
-**1979:** Bruce and the E Street Band work on “Stolen Car” at The Power Station in New York City.
+**1979:** Bruce and the E Street Band work on "Stolen Car" at The Power Station in New York City.
 
-**1982:** Bruce makes his by now customary “surprise” appearance with Cats on a Smooth Surface at The Stone Pony, with a setlist that includes covers of “Come On, Let’s Go,” “Little Latin Lupe Lu,” “Sweet Little Sixteen,” “Lucille,” and more.
+**1982:** Bruce makes his by now customary "surprise" appearance with Cats on a Smooth Surface at The Stone Pony, with a setlist that includes covers of "Come On, Let's Go," "Little Latin Lupe Lu," "Sweet Little Sixteen," "Lucille," and more.
 
 ![](../../assets/2018/06/1982-0620.jpg)
 
-**1989:** Bruce makes a guest appearance with Bobby Bandiera at Martell’s Sea Breeze in Point Pleasant Beach, New Jersey.
+**1989:** Bruce makes a guest appearance with Bobby Bandiera at Martell's Sea Breeze in Point Pleasant Beach, New Jersey.
 
 **1992:** World Tour 1992 moves on from Stockholm to Milan, with this first of two nights at Forum di Assago.
 
 [Watch Video Highlight](https://videopress.com/embed/Sx92iRWL)
 
-**1999:** Bruce and the reunited E Street Band play their second of two nights in Arnhem, The Netherlands, where they tour premiere “Trapped.”
+**1999:** Bruce and the reunited E Street Band play their second of two nights in Arnhem, The Netherlands, where they tour premiere "Trapped."
 
 [Watch Video Highlight](https://videopress.com/embed/uOIqfM0v)
 
-**2000:** Night Four of ten at Madison Square Garden, as the Reunion Tour’s last stand continues. Highlights include the last “New York City Serenade” of the tour, “Take ’em as They Come,” and a Soozie Tyrell guest appearance for “The Ghost of Tom Joad.” In attendance tonight: Michael J. Fox and Tracey Pollan.
+**2000:** Night Four of ten at Madison Square Garden, as the Reunion Tour's last stand continues. Highlights include the last "New York City Serenade" of the tour, "Take 'em as They Come," and a Soozie Tyrell guest appearance for "The Ghost of Tom Joad." In attendance tonight: Michael J. Fox and Tracey Pollan.
 
 [Watch Video Highlight](https://videopress.com/embed/sdgFdg9s)
 
@@ -40,7 +40,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/Hi4z7lS4)
 
-**2005:** Elliott Murphy makes a guest appearance on “Better Days” when Bruce tour premieres it (along with “Cadillac Ranch”) at his solo acoustic show in Paris.
+**2005:** Elliott Murphy makes a guest appearance on "Better Days" when Bruce tour premieres it (along with "Cadillac Ranch") at his solo acoustic show in Paris.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=6DNpb_i2V7U)
 
@@ -50,7 +50,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=tQ3_Fy5nd10)
 
-**2006:** Bruce and the Sessions Band deliver a great show at the Tweeter Center in Camden, tour premiering a full-band “Maria’s Bed.” Southside Johnny and Joe Grushecky join Bruce for “Pay Me My Money Down.”
+**2006:** Bruce and the Sessions Band deliver a great show at the Tweeter Center in Camden, tour premiering a full-band "Maria's Bed." Southside Johnny and Joe Grushecky join Bruce for "Pay Me My Money Down."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yoq1or7rtS0)
 
@@ -62,7 +62,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=456baiiyLcs)
 
-**2013:** Bruce and the E Street Band perform *Born to Run* from start to finish during their Wrecking Ball show at Coventry’s Ricoh Arena. This show also features the first full-band (E Street Band, at least) performance of “Long Time Comin’.”
+**2013:** Bruce and the E Street Band perform *Born to Run* from start to finish during their Wrecking Ball show at Coventry's Ricoh Arena. This show also features the first full-band (E Street Band, at least) performance of "Long Time Comin'."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=78eZDLRf1aI)
 
@@ -70,10 +70,10 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2019:** Bruce and Patti attend a celebration of life at The Stone Pony for the late Kerry Layton, Patti’s life-long friend.
+**2019:** Bruce and Patti attend a celebration of life at The Stone Pony for the late Kerry Layton, Patti's life-long friend.
 
 ![](../../assets/2020/06/brucepattipony.jpeg)
 
-**2024:** World Tour 2024 arrives in Barcelona for the first of two nights. This night features the tour premiere of “Radio Nowhere.”
+**2024:** World Tour 2024 arrives in Barcelona for the first of two nights. This night features the tour premiere of "Radio Nowhere."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=74XJN6XUdpA)

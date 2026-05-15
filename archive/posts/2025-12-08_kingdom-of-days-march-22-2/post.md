@@ -8,7 +8,7 @@ The Castiles play a gig at Le Teendezvous in New Shrewsbury, New Jersey.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1968-0322.jpg?resize=399%2C550&amp;ssl=1)
 
-The final stand of the Lawsuit Tour begins with the first of four nights at Boston’s Music Hall.
+The final stand of the Lawsuit Tour begins with the first of four nights at Boston's Music Hall.
 
 **1977:**
 
@@ -18,13 +18,13 @@ The final stand of the Lawsuit Tour begins with the first of four nights at Bost
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1977-0322.jpg?resize=758%2C1267&amp;ssl=1)
 
-Bruce works on mixing and overdubs for “” at the Record Plant in New York City.
+Bruce works on mixing and overdubs for "" at the Record Plant in New York City.
 
 **1978:** [Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)
 
 [https://www.youtube.com/embed/cm9UuM3UXdc?feature=oembed](https://www.youtube.com/embed/cm9UuM3UXdc?feature=oembed)
 
-In between Bruce’s first and second shows at the Sydney Entertainment Center, Neil Young plays a gig. Bruce joins him during the encore for “Down by the River.”
+In between Bruce's first and second shows at the Sydney Entertainment Center, Neil Young plays a gig. Bruce joins him during the encore for "Down by the River."
 
 **1985:**
 
@@ -46,7 +46,7 @@ The Tunnel of Love Express Tour stops in Atlanta for the first of two nights at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-03-22b.jpg?resize=758%2C737&amp;ssl=1)
 
-Night One in Sydney on the Rising Tour is plagued by power failures–four times in the first hour of the show. But the show goes on, and to thank fans for their patience, Bruce plays “Rosalita (Come Out Tonight)” — its first E Street stage appearance since mid-1999.
+Night One in Sydney on the Rising Tour is plagued by power failures–four times in the first hour of the show. But the show goes on, and to thank fans for their patience, Bruce plays "Rosalita (Come Out Tonight)" — its first E Street stage appearance since mid-1999.
 
 **2003:**
 
@@ -54,7 +54,7 @@ Night One in Sydney on the Rising Tour is plagued by power failures–four times
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2003-03-22.jpg?resize=758%2C881&amp;ssl=1)
 
-“Lost in the Flood” and “Glory Days” makes their tour premieres at Bruce’s Magic show at the U.S. Bank Arena in Cincinnati.
+"Lost in the Flood" and "Glory Days" makes their tour premieres at Bruce's Magic show at the U.S. Bank Arena in Cincinnati.
 
 **2008:**
 
@@ -64,7 +64,7 @@ Night One in Sydney on the Rising Tour is plagued by power failures–four times
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-22.jpg?resize=385%2C956&amp;ssl=1)
 
-The third and final night at Sydney’s Allphones arena on the Wrecking Ball Tour brings Australia’s first-ever performance of “Night” and “Prove It All Night (’78).”
+The third and final night at Sydney's Allphones arena on the Wrecking Ball Tour brings Australia's first-ever performance of "Night" and "Prove It All Night ('78)."
 
 **2013:**
 
@@ -76,7 +76,7 @@ The third and final night at Sydney’s Allphones arena on the Wrecking Ball Tou
 
 [https://www.youtube.com/embed/Dey4Iid9tXQ?feature=oembed](https://www.youtube.com/embed/Dey4Iid9tXQ?feature=oembed)
 
-The River Tour (2016 version) comes to the Pacific Northwest, starting with a show at Portland’s Moda Center.
+The River Tour (2016 version) comes to the Pacific Northwest, starting with a show at Portland's Moda Center.
 
 **2016:**
 
@@ -88,7 +88,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and President Barack Obama release the sixth episode of their podcast, . This episode is entitled “Wrestling with Ghosts: American Men.”
+Bruce and President Barack Obama release the sixth episode of their podcast, . This episode is entitled "Wrestling with Ghosts: American Men."
 
 **2021:** *Renegades: Born in the U.S.A.*
 
@@ -98,7 +98,7 @@ Bruce and President Barack Obama release the sixth episode of their podcast, . T
 
 <https://estreetshuffle.com/wp-content/uploads/2025/03/0059-20f9-4ae3-8917-0096a9ce1fe6.mp3>
 
-Bruce and the E Street Band perform in Las Vegas for the first time in over two decades, opening with the tour premiere of “Roll of the Dice” and kicking off the encores with their first performance of “Viva Las Vegas” since 2002.
+Bruce and the E Street Band perform in Las Vegas for the first time in over two decades, opening with the tour premiere of "Roll of the Dice" and kicking off the encores with their first performance of "Viva Las Vegas" since 2002.
 
 **2024:**
 

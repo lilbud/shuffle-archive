@@ -1,12 +1,12 @@
 
 
-Bruce cancels a scheduled performance at Minnesota State University and instead records “The Fever” at 914 Sound Studios in Blauvelt, New York. It will remain in the vault for 26 years until Bruce finally releases it on .
+Bruce cancels a scheduled performance at Minnesota State University and instead records "The Fever" at 914 Sound Studios in Blauvelt, New York. It will remain in the vault for 26 years until Bruce finally releases it on .
 
 **1973:** *Tracks*
 
 [https://www.youtube.com/embed/NXPDwAYdCsg?feature=oembed](https://www.youtube.com/embed/NXPDwAYdCsg?feature=oembed)
 
-Bruce and the E Street Band work on “Tenth Avenue Freeze-Out” at the Record Plant in New York City.
+Bruce and the E Street Band work on "Tenth Avenue Freeze-Out" at the Record Plant in New York City.
 
 **1975:**
 
@@ -16,7 +16,7 @@ Bruce and the E Street Band perform in Scotland for the very first time when the
 
 [https://videopress.com/embed/1KZwfls7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1KZwfls7?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at Big Man’s West (for “Tenth Avenue Freeze-Out”) and later with Cats on a Smooth Surface at The Stone Pony.
+Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at Big Man's West (for "Tenth Avenue Freeze-Out") and later with Cats on a Smooth Surface at The Stone Pony.
 
 **1982:**
 
@@ -32,7 +32,7 @@ Bruce makes two club appearances, one with Clarence and The Red Bank Rockers at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1985-0516.jpg?resize=489%2C673&amp;ssl=1)
 
-Jersey Artists for Mankind (JAM) releases their single, “We’ve Got the Love” in support of local charities. The song was written by Bobby Bandiera and Joel Krauss and features a guitar solo by Bruce and a sax solo by Clarence, along with vocal solos by Nils and Southside, among others. Look for some familiar faces in the video.
+Jersey Artists for Mankind (JAM) releases their single, "We've Got the Love" in support of local charities. The song was written by Bobby Bandiera and Joel Krauss and features a guitar solo by Bruce and a sax solo by Clarence, along with vocal solos by Nils and Southside, among others. Look for some familiar faces in the video.
 
 **1986:**
 
@@ -40,7 +40,7 @@ Jersey Artists for Mankind (JAM) releases their single, “We’ve Got the Love�
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Odessa_American_Sun__May_11__1986_-scaled.jpg?resize=758%2C1800&amp;ssl=1)
 
-Bruce kicks off a five-night stand at Madison Square Garden that wraps the U.S. leg of the Tunnel of Love Express Tour. The set includes the tour proper premiere of Roy Orbison’s “Crying” along with a show-closing “New York, New York” instrumental. This show is available as part of Bruce’s official archive series.
+Bruce kicks off a five-night stand at Madison Square Garden that wraps the U.S. leg of the Tunnel of Love Express Tour. The set includes the tour proper premiere of Roy Orbison's "Crying" along with a show-closing "New York, New York" instrumental. This show is available as part of Bruce's official archive series.
 
 **1988:**
 
@@ -52,19 +52,19 @@ Bruce kicks off a five-night stand at Madison Square Garden that wraps the U.S. 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1988-05-16.jpg?resize=695%2C961&amp;ssl=1)
 
-Bruce’s World Tour continues its German leg with a show in Munich. Watch the complete first set below.
+Bruce's World Tour continues its German leg with a show in Munich. Watch the complete first set below.
 
 **1993:**
 
 [https://videopress.com/embed/484BpLnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/484BpLnV?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce’s solo acoustic tour of France continues at the Berlioz Opera House in Montpellier, where the set list features a rare performance of “For You.”
+Bruce's solo acoustic tour of France continues at the Berlioz Opera House in Montpellier, where the set list features a rare performance of "For You."
 
 **1997:**
 
 [https://videopress.com/embed/PTD9NGHp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/PTD9NGHp?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The Reunion Tour’s U.K. swing continues with a show at the NEC Arena in Birmingham, where Edwin Starr makes a guest appearance on a tour one-off of “War.”
+The Reunion Tour's U.K. swing continues with a show at the NEC Arena in Birmingham, where Edwin Starr makes a guest appearance on a tour one-off of "War."
 
 **1999:**
 
@@ -86,7 +86,7 @@ The Seeger Sessions Tour makes a stop at the Heineken Music Hall in Amsterdam.
 
 [https://videopress.com/embed/u8zYMXyO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/u8zYMXyO?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-“Long Walk Home” makes for an unusual opener in Herning, Denmark. This show also features the tour premiere of “I Wish I Were Blind.”
+"Long Walk Home" makes for an unusual opener in Herning, Denmark. This show also features the tour premiere of "I Wish I Were Blind."
 
 **2013:**
 
@@ -94,7 +94,7 @@ The Seeger Sessions Tour makes a stop at the Heineken Music Hall in Amsterdam.
 
 [https://www.youtube.com/embed/rpgzjek31CY?feature=oembed](https://www.youtube.com/embed/rpgzjek31CY?feature=oembed)
 
-It’s a mini-Seeger Sessions show at the Kristen Ann Carr Fund benefit at the Tribeca Grill in New York City, as Bruce, Charlie, Larry Eagle, Jeremy Chatzky, Sam Bardfield, Lisa Lowell, Ed Manion, Curt Ramm, and Soozie Tyrell play a four-song Seeger set, joined by Nils and and Curtis King as well.
+It's a mini-Seeger Sessions show at the Kristen Ann Carr Fund benefit at the Tribeca Grill in New York City, as Bruce, Charlie, Larry Eagle, Jeremy Chatzky, Sam Bardfield, Lisa Lowell, Ed Manion, Curt Ramm, and Soozie Tyrell play a four-song Seeger set, joined by Nils and and Curtis King as well.
 
 **2015:**
 
@@ -112,13 +112,13 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce releases “There Goes My Miracle,” the second single in advance of his upcoming album.
+Bruce releases "There Goes My Miracle," the second single in advance of his upcoming album.
 
 **2019:** *Western Stars*
 
 [https://www.youtube.com/embed/tbDKBcPsmoQ?feature=oembed](https://www.youtube.com/embed/tbDKBcPsmoQ?feature=oembed)
 
-Bruce tour debuts a show-opening “Who’ll Stop the Rain” and a unseasonable “Santa Claus is Comin’ to Town” in Cork.
+Bruce tour debuts a show-opening "Who'll Stop the Rain" and a unseasonable "Santa Claus is Comin' to Town" in Cork.
 
 **2024:**
 
@@ -126,7 +126,7 @@ Bruce tour debuts a show-opening “Who’ll Stop the Rain” and a unseasonable
 
 [https://www.youtube.com/embed/GenZgjiFDyI?feature=oembed](https://www.youtube.com/embed/GenZgjiFDyI?feature=oembed)
 
-President Trump dismisses Bruce’s recent on-stage comments, calling Springsteen a “pushy, obnoxious jerk,” “dumb as a rock,” and a “dried out prune.”
+President Trump dismisses Bruce's recent on-stage comments, calling Springsteen a "pushy, obnoxious jerk," "dumb as a rock," and a "dried out prune."
 
 **2025:**
 

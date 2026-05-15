@@ -2,7 +2,7 @@ Among the many similarities between Bruce Springsteen and Joe Grushecky: they bo
 
 Joe's deep attachment to Pittsburgh is evident in his music and in his deep attachment to his hometown. Unlike Bruce, who sojourned for a while in Southern California, Joe remains steadfastly rooted to the Iron City.
 
-Might he have made it big(ger) if he'd moved somewhere with a more vibrant music industry? Who knows. But in the title track of his 2009 album *East Carson Street,* Joe adamantly rejects the notion that one has to leave home to find satisfaction.
+Might he have made it big(ger) if he'd moved somewhere with a more vibrant music industry? Who knows. But in the title track of his 2009 album *East Carson Street*, Joe adamantly rejects the notion that one has to leave home to find satisfaction.
 
 [Watch on Youtube: East Carson Street](https://www.youtube.com/watch?v=SF5NeWREX5I)
 

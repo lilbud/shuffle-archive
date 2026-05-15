@@ -1,6 +1,6 @@
 
 
-Bruce enters a recording studio for the very first time when The Castiles record their first two songs: “Baby I” and “That’s What You Get.” Both are co-written by Bruce and George Theiss. The former will be officially released on in 2016; the latter is still unreleased but can be heard below.
+Bruce enters a recording studio for the very first time when The Castiles record their first two songs: "Baby I" and "That's What You Get." Both are co-written by Bruce and George Theiss. The former will be officially released on in 2016; the latter is still unreleased but can be heard below.
 
 **1966:** *Chapter & Verse*
 
@@ -12,13 +12,13 @@ Bruce cancels a scheduled performance at Michigan Technological University to ma
 
 **1973:**
 
-Night Two of five in the final U.S. stand for the Tunnel of Love Express Tour. Bruce and the band exit to a “New York, New York” instrumental.
+Night Two of five in the final U.S. stand for the Tunnel of Love Express Tour. Bruce and the band exit to a "New York, New York" instrumental.
 
 **1988:**
 
 [https://www.youtube.com/embed/fNUAkKLceYQ?feature=oembed](https://www.youtube.com/embed/fNUAkKLceYQ?feature=oembed)
 
-Bruce performs a solo acoustic show at the Acropolis in Nice, featuring the tour premiere of “You Can Look (But You Better Not Touch).” This show is available as part of Bruce’s official archive series.
+Bruce performs a solo acoustic show at the Acropolis in Nice, featuring the tour premiere of "You Can Look (But You Better Not Touch)." This show is available as part of Bruce's official archive series.
 
 **1997:**
 
@@ -38,7 +38,7 @@ Bruce and the E Street Band kick off a four-night Reunion Tour stand at Earls Co
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Fulham_and_Hammersmith_Chronicle_Thu__May_20__1999_.jpg?resize=758%2C785&amp;ssl=1)
 
-Bruce attends the opening dedication ceremony for Freehold’s Vinyard Park to honor his early patron and supporter, “Tex” Vinyard.
+Bruce attends the opening dedication ceremony for Freehold's Vinyard Park to honor his early patron and supporter, "Tex" Vinyard.
 
 **2002:**
 
@@ -50,7 +50,7 @@ Bruce attends the opening dedication ceremony for Freehold’s Vinyard Park to h
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2002-05-18b.jpg?resize=488%2C960&amp;ssl=1)
 
-Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: “Little Latin Lupe Lu,” “Hava Nagila”(!) and “Blinded by the Light.”
+Max returns as the Working on a Dream Tour arrives at the Verizon Center in Washington, DC. The show features three back-to-back tour premieres: "Little Latin Lupe Lu," "Hava Nagila"(!) and "Blinded by the Light."
 
 **2009:**
 

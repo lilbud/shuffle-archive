@@ -54,7 +54,7 @@
 
 ![](../../assets/2020/11/2012-12-04b.png)
 
-**2015:** Just in time for the holidays, Bruce releases *The Ties That Bind: The River Collection,* featuring a remastered version of his classic album, and bonus discs of outtakes and a never-before-released live concert video. Also on this date: Bruce announces a new tour to support the boxed set, kicking off in January.
+**2015:** Just in time for the holidays, Bruce releases *The Ties That Bind: The River Collection*, featuring a remastered version of his classic album, and bonus discs of outtakes and a never-before-released live concert video. Also on this date: Bruce announces a new tour to support the boxed set, kicking off in January.
 
 ![](../../assets/2018/12/The-River-box-package-shot-2-700x467.jpg)
 

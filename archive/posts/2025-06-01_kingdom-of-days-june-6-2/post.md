@@ -6,7 +6,7 @@ The Castiles open for Lord Sutch at the Hullabaloo in Freehold.
 
 **1968:**
 
-Bruce and the E Street Band (not yet named, however) open for Chicago at the Spectrum in Philadelphia. In typical Philly fashion, Bruce is booed by a crowd unfamiliar with his music and impatient for the headliners. A studio-mixed recording of a very early version of “Rosalita (Come Out Tonight)” with different lyrics stems from this date, and you can listen to it below.
+Bruce and the E Street Band (not yet named, however) open for Chicago at the Spectrum in Philadelphia. In typical Philly fashion, Bruce is booed by a crowd unfamiliar with his music and impatient for the headliners. A studio-mixed recording of a very early version of "Rosalita (Come Out Tonight)" with different lyrics stems from this date, and you can listen to it below.
 
 **1973:**
 
@@ -20,7 +20,7 @@ Bruce and the E Street Band hold recording sessions for at Atlantic Studios in N
 
 [https://www.youtube.com/embed/nVDmZnZqF3c?feature=oembed](https://www.youtube.com/embed/nVDmZnZqF3c?feature=oembed)
 
-Finishing the soundcheck for their evening show early, the band spends their free time at The Red Garter, a local strip club in Indianapolis, where Clarence befriends three strippers and invites them to the show. They take him up on his offer, surprising the band by walking out on stage during the encores and stripping during “.”
+Finishing the soundcheck for their evening show early, the band spends their free time at The Red Garter, a local strip club in Indianapolis, where Clarence befriends three strippers and invites them to the show. They take him up on his offer, surprising the band by walking out on stage during the encores and stripping during "."
 
 **1978:**[Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
@@ -32,13 +32,13 @@ Bruce joins Cats on a Smooth Surface during their gig at The Stone Pony in Asbur
 
 **1982:**
 
-Bruce and the E Street Band record the base track for “” at The Hit Factory in New York City.
+Bruce and the E Street Band record the base track for "" at The Hit Factory in New York City.
 
 **1983:** [None But the Brave](https://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
 [https://www.youtube.com/embed/syZB1xaNo0s?feature=oembed](https://www.youtube.com/embed/syZB1xaNo0s?feature=oembed)
 
-Bruce shoots a video for “” with director Jeff Stein. It does not go well. Watch the abandoned video along with Bruce’s rehearsal footage below.
+Bruce shoots a video for "" with director Jeff Stein. It does not go well. Watch the abandoned video along with Bruce's rehearsal footage below.
 
 **1984:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
@@ -48,7 +48,7 @@ Bruce shoots a video for “” with director Jeff Stein. It does not go well. W
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1984-06-06-300x95.jpg?resize=758%2C243)
 
-At his solo acoustic show in Rome, Bruce tour premieres “” and “.”
+At his solo acoustic show in Rome, Bruce tour premieres "" and "."
 
 **2005:** [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)
 
@@ -62,7 +62,7 @@ At his solo acoustic show in Rome, Bruce tour premieres “” and “.”
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDWMIwV0bAuTa5JwEY-txNz](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDWMIwV0bAuTa5JwEY-txNz)
 
-At the Sleep Train Pavilion in Concord, California, Joan Baez joins Bruce and the Sessions Band for “.”
+At the Sleep Train Pavilion in Concord, California, Joan Baez joins Bruce and the Sessions Band for "."
 
 **2006:** [Pay Me My Money Down](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)
 

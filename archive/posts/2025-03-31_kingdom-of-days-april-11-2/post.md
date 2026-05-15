@@ -22,7 +22,7 @@ Steel Mill holds an invite-only rehearsal show for the local press.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1970-0411.jpg?resize=732%2C528)
 
-The Green Mermaid coffee house underneath The Upstage in Asbury Park plays host to the “Bruce Springsteen Acoustyc Jam.”
+The Green Mermaid coffee house underneath The Upstage in Asbury Park plays host to the "Bruce Springsteen Acoustyc Jam."
 
 **1971:**
 
@@ -38,7 +38,7 @@ Bruce plays his first-ever show in Georgia, opening for The Beach Boys at the Om
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1973-0411-194x300.jpg?resize=758%2C1172)
 
-Bruce plays two shows at Charlie’s Place in Cambridge, Massachusetts–his third of four nights at that venue.
+Bruce plays two shows at Charlie's Place in Cambridge, Massachusetts–his third of four nights at that venue.
 
 **1974:**
 
@@ -46,13 +46,13 @@ Bruce plays two shows at Charlie’s Place in Cambridge, Massachusetts–his thi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0412-263x300.jpg?resize=758%2C868)
 
-At the last minute during a mixing and overdub session at the Record Plant, Bruce opts to overdub a Big Man sax solo onto “.” The track will be pressed to acetate the next day.
+At the last minute during a mixing and overdub session at the Record Plant, Bruce opts to overdub a Big Man sax solo onto "." The track will be pressed to acetate the next day.
 
 **1978:** *Darkness* [Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)
 
 [https://www.youtube.com/embed/o5IZuuzUa04?feature=oembed](https://www.youtube.com/embed/o5IZuuzUa04?feature=oembed)
 
-Bruce and the E Street Band work on “” at the Power Station in New York City.
+Bruce and the E Street Band work on "" at the Power Station in New York City.
 
 **1979:** [The Ties that Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)
 
@@ -66,19 +66,19 @@ Bruce plays his first-ever show in Switzerland as the European leg of the River 
 
 [https://videopress.com/embed/HAbov62e?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HAbov62e?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce joins John Eddie and the Front Street Runners on stage for four songs (including Bruce’s first ever performance of ““) at Big Man’s West in Red Bank, and then he zips over to The Stone Pony to catch Cats on a Smooth Surface.
+Bruce joins John Eddie and the Front Street Runners on stage for four songs (including Bruce's first ever performance of "") at Big Man's West in Red Bank, and then he zips over to The Stone Pony to catch Cats on a Smooth Surface.
 
 **1982:** [Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
 
 [https://www.youtube.com/embed/sOiwRdW4pus?feature=oembed](https://www.youtube.com/embed/sOiwRdW4pus?feature=oembed)
 
-The second of five nights at Tokyo’s Yoyogi National Gymnasium.
+The second of five nights at Tokyo's Yoyogi National Gymnasium.
 
 **1985:**
 
 [https://videopress.com/embed/lObwyjXe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/lObwyjXe?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Jimmy Cliff makes a guest-appearance on “” at Bruce’s show in Verona, Italy.
+Jimmy Cliff makes a guest-appearance on "" at Bruce's show in Verona, Italy.
 
 **1993:** [Time Will Tell](http://estreetshuffle.com/index.php/2018/09/09/meeting-across-the-river-bruce-springsteen-and-jimmy-cliff-time-will-tell/)
 
@@ -88,13 +88,13 @@ Jimmy Cliff makes a guest-appearance on “” at Bruce’s show in Verona, Ital
 
 [https://videopress.com/embed/gQSr3tM3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gQSr3tM3?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The Italian leg of Bruce’s solo acoustic tour continues with a show at Teatro Smeraldo in Milan.
+The Italian leg of Bruce's solo acoustic tour continues with a show at Teatro Smeraldo in Milan.
 
 **1996:**
 
 [https://videopress.com/embed/kDYATuDY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kDYATuDY?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Night Two of the Reunion Tour, a second show in Barcelona, features the first “” in nineteen years and the first E Street Band performance of “.”
+Night Two of the Reunion Tour, a second show in Barcelona, features the first "" in nineteen years and the first E Street Band performance of "."
 
 **1999:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Brothers Under the Bridge](https://estreetshuffle.com/index.php/2022/01/10/roll-of-the-dice-brothers-under-the-bridge-95/)
 
@@ -104,7 +104,7 @@ Night Two of the Reunion Tour, a second show in Barcelona, features the first �
 
 [https://videopress.com/embed/oRQNaUDr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/oRQNaUDr?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Sick with a cold, Bruce nevertheless turns in a great performance in Vancouver, BC. Before the show, those of us waiting outside in the pit line could hear the band soundcheck an early version of “.” Listen below. For more highlights, see my for this show.
+Sick with a cold, Bruce nevertheless turns in a great performance in Vancouver, BC. Before the show, those of us waiting outside in the pit line could hear the band soundcheck an early version of "." Listen below. For more highlights, see my for this show.
 
 **2003:** [Devils & Dust](https://estreetshuffle.com/index.php/2022/03/02/roll-of-the-dice-devils-dust/)[report](http://estreetshuffle.com/index.php/2018/04/11/where-the-band-was-vancouver-april-11-2003/)*Where the Band Was*<http://estreetshuffle.com/wp-content/uploads/2019/04/08-Devils-And-Dust-2003-soundcheck-online-audio-converter.com_.mp3>
 
@@ -120,7 +120,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-At the second of two nights at UBS Arena in Elmont New York, Bruce and the E Street Band tour premiere “”
+At the second of two nights at UBS Arena in Elmont New York, Bruce and the E Street Band tour premiere ""
 
 **2023:** [Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 

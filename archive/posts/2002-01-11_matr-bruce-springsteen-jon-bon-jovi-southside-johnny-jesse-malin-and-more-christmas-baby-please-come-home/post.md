@@ -2,7 +2,7 @@
 
 It didn't start out that way, though.
 
-When Darlene Love recorded "Christmas (Baby Please Come Home)" in 1963 as the only new song for Phil Spector's compilation album *A Christmas Gift for You,* the song went nowhere.
+When Darlene Love recorded "Christmas (Baby Please Come Home)" in 1963 as the only new song for Phil Spector's compilation album *A Christmas Gift for You*, the song went nowhere.
 
 Perhaps it was a matter of timing (the song was released on the very day President Kennedy was assassinated), or perhaps a matter of content–for anyone paying attention to the lyrics, "Christmas (Baby Please Come Home)" is a dark and lonely song, and 22-year-old Love plumbed its depths with her heartbreakingly urgent performance.
 

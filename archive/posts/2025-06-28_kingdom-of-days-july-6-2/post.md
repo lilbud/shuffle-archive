@@ -18,15 +18,15 @@ Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, P
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/mainpoint-300x156.jpg?resize=690%2C359)
 
-Bruce and the E Street Band work on “” at a recording session at the Record Plant in New York City.
+Bruce and the E Street Band work on "" at a recording session at the Record Plant in New York City.
 
 **1975:** [Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)*Born to Run*
 
-Bruce joins Gary Busey and The Old Dog Band on stage for “” at the Sundance Saloon in Calabasas, California.
+Bruce joins Gary Busey and The Old Dog Band on stage for "" at the Sundance Saloon in Calabasas, California.
 
 **1978:** [Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)
 
-Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena’s opening stand. Recordings of “,” “,” and “” will eventually be released on .
+Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena's opening stand. Recordings of "," "," and "" will eventually be released on .
 
 **1981:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)*Live 1975-85*
 
@@ -36,7 +36,7 @@ Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena’
 
 [https://www.youtube.com/embed/dCILTxWFsow?feature=oembed](https://www.youtube.com/embed/dCILTxWFsow?feature=oembed)
 
-Night Two in Cincinnati on the Born in the U.S.A. Tour. Listen in on the soundcheck below, including a never-played “The Good, The Bad, and The Ugly.”
+Night Two in Cincinnati on the Born in the U.S.A. Tour. Listen in on the soundcheck below, including a never-played "The Good, The Bad, and The Ugly."
 
 **1984:**
 
@@ -60,7 +60,7 @@ is certified platinum and is certified double platinum by the Recording Industry
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs](https://www.youtube.com/embed/videoseries?list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
 
-Bruce and his new touring band kick off a five-night stand at Wembley Arena in London, the last stand of the European leg of World Tour 1992. The setlist features a rare “”
+Bruce and his new touring band kick off a five-night stand at Wembley Arena in London, the last stand of the European leg of World Tour 1992. The setlist features a rare ""
 
 **1992:** [With Every Wish.](http://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/)
 
@@ -68,7 +68,7 @@ Bruce and his new touring band kick off a five-night stand at Wembley Arena in L
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1992-0706-300x192.jpg?resize=758%2C485)
 
-Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on “,” and later joining Southside Johnny & The Asbury Jukes for seven songs.
+Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on "," and later joining Southside Johnny & The Asbury Jukes for seven songs.
 
 **2019:**[Dirty Rotten Shame](https://estreetshuffle.com/index.php/2021/08/05/matr-garry-tallent-and-bruce-springsteen-dirty-rotten-shame/)
 

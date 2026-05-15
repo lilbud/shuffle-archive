@@ -1,4 +1,4 @@
-If you're a Broadway fan, you know who Aaron Tveit is. The Tony Awards are coming up next weekend, and Aaron is a sure bet to win the Best Leading Actor in a Musical award for his performance as Christian in *Moulin Rouge!,* a role to which he returns when the show re-opens on Broadway next Friday.
+If you're a Broadway fan, you know who Aaron Tveit is. The Tony Awards are coming up next weekend, and Aaron is a sure bet to win the Best Leading Actor in a Musical award for his performance as Christian in *Moulin Rouge!*, a role to which he returns when the show re-opens on Broadway next Friday.
 
 I don't make this prediction based on inside information or any particular insight into the theater world. It's just that Tveit is the only person nominated this year.
 

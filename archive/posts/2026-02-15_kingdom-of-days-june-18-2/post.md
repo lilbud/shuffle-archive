@@ -6,7 +6,7 @@
 
 ![](../../assets/2018/06/1971-0618.jpg)
 
-**1983:** Bruce makes a guest appearance at The Stone Pony with The Diamonds. Listen to their mini-set of “Around and Around, “Lucille,” and “Twist and Shout” below.
+**1983:** Bruce makes a guest appearance at The Stone Pony with The Diamonds. Listen to their mini-set of "Around and Around, "Lucille," and "Twist and Shout" below.
 
 [Watch Video Highlight](https://videopress.com/embed/bfu6gyfx)
 
@@ -18,27 +18,27 @@
 
 ![](../../assets/2018/06/1985-0618.jpg)
 
-**1988:** In town for their Tunnel of Love show the following night, Bruce and Clarence make a guest appearance at the S.O.S. Racisme concert in Paris. The pair perform a mini-set, Bruce on guitar and harmonica and Clarence on sax and backing vocals. Watch this very unusual and beautiful performance below, including a wonderful “The Promised Land” and the first-ever acoustic performance of “My Hometown.”
+**1988:** In town for their Tunnel of Love show the following night, Bruce and Clarence make a guest appearance at the S.O.S. Racisme concert in Paris. The pair perform a mini-set, Bruce on guitar and harmonica and Clarence on sax and backing vocals. Watch this very unusual and beautiful performance below, including a wonderful "The Promised Land" and the first-ever acoustic performance of "My Hometown."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=7kltDPpjiP0)
 
 ![](../../assets/2021/06/1988-06-18.jpg)
 
-Meanwhile back home, newspapers report official confirmation of the end of Bruce’s separation from his first wife.
+Meanwhile back home, newspapers report official confirmation of the end of Bruce's separation from his first wife.
 
 ![](../../assets/2024/06/Daily_News_Sat__Jun_18__1988_.jpg)
 
-**1994:** Bruce performs “Wreck on the Highway” with John Wesley Harding at McCabe’s Guitar Shop in Santa Monica. Their performance is recorded and will eventually be released as a bonus track on Harding’s *Awake* album in 2001.
+**1994:** Bruce performs "Wreck on the Highway" with John Wesley Harding at McCabe's Guitar Shop in Santa Monica. Their performance is recorded and will eventually be released as a bonus track on Harding's *Awake* album in 2001.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ND2EcrsB2bY)
 
 ![](../../assets/2021/06/1994-06-18-scaled.jpg)
 
-**2008:** In Amsterdam on tour, Bruce finds time to perform “Thunder Road” via satellite for the memorial service for Tim Russert, who passed away five days earlier.
+**2008:** In Amsterdam on tour, Bruce finds time to perform "Thunder Road" via satellite for the memorial service for Tim Russert, who passed away five days earlier.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=96ul2ivcmDQ)
 
-That night, Bruce plays three back-to-back tour premieres at Amsterdam’s Magic show: “Summertime Blues,” “Stand On It,” and “Seven Nights to Rock” make for a great high-energy encore.
+That night, Bruce plays three back-to-back tour premieres at Amsterdam's Magic show: "Summertime Blues," "Stand On It," and "Seven Nights to Rock" make for a great high-energy encore.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=g0PaDMFv50U)
 
@@ -62,7 +62,7 @@ That night, Bruce plays three back-to-back tour premieres at Amsterdam’s Magic
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=d6Jqp8LBsQg)
 
-**2018:** The Asbury Lanes bowling alley and concert venue re-opens, and Bruce is on hand for the occasion. He joins Danny Clinch’s Tangiers Blues Band for four songs before an audience selected by a locals-only lottery.
+**2018:** The Asbury Lanes bowling alley and concert venue re-opens, and Bruce is on hand for the occasion. He joins Danny Clinch's Tangiers Blues Band for four songs before an audience selected by a locals-only lottery.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=t7aCF9Uh85Q)
 

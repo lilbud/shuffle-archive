@@ -1,14 +1,14 @@
 
 
-If you don’t know who is, you probably don’t have kids at home.
+If you don't know who is, you probably don't have kids at home.
 
 [Justin Roberts](https://www.justinrobertsmusic.com/)
 
-If you do know who Justin Roberts is, you’re probably wondering what a four-time Grammy nominee for Best Musical Album for Children is doing covering an existential song like Bruce Springsteen’s “.”
+If you do know who Justin Roberts is, you're probably wondering what a four-time Grammy nominee for Best Musical Album for Children is doing covering an existential song like Bruce Springsteen's "."
 
-[One Minute You’re Here](https://estreetshuffle.com/index.php/2021/05/30/roll-of-the-dice-one-minute-youre-here/)
+[One Minute You're Here](https://estreetshuffle.com/index.php/2021/05/30/roll-of-the-dice-one-minute-youre-here/)
 
-But if you’ve ever listened closely to Justin’s music, you know this Chicago-based singer-songwriter has a knack for writing poignant yet comforting songs that honor kids’ ability to deal with issues like death or divorce.
+But if you've ever listened closely to Justin's music, you know this Chicago-based singer-songwriter has a knack for writing poignant yet comforting songs that honor kids' ability to deal with issues like death or divorce.
 
 [https://www.youtube.com/embed/2wbnHO1piPQ?feature=oembed](https://www.youtube.com/embed/2wbnHO1piPQ?feature=oembed)
 
@@ -16,12 +16,12 @@ So while branching into covers by mainstream musical icons may be a bit of a dep
 
 As for his performance… well, to be completely honest, I probably would have spotlighted it even if Justin had played it safe and stuck to the album arrangement.
 
-But he didn’t. Instead, he invited Anna Steinhoff (his wife) to join him and arranged the song as a musical duet for guitar and cello.
+But he didn't. Instead, he invited Anna Steinhoff (his wife) to join him and arranged the song as a musical duet for guitar and cello.
 
-And it’s just perfect.
+And it's just perfect.
 
 [https://www.youtube.com/embed/0Uqb3upfd78?feature=oembed](https://www.youtube.com/embed/0Uqb3upfd78?feature=oembed)
 
-Anna’s low cello adds a vein of sadness to the song, but Justin’s delicate guitar keeps their performance of “One Minute You’re Here” light on its feet and moving ever forward, just like life.
+Anna's low cello adds a vein of sadness to the song, but Justin's delicate guitar keeps their performance of "One Minute You're Here" light on its feet and moving ever forward, just like life.
 
-“One Minute You’re Here” is a song that speaks to many of us, which is probably why there are so many covers out there for such a new song. But Justin and Anna’s version is the first I’ve seen that adds something new to Bruce’s original, and it’s well worth a listen.
+"One Minute You're Here" is a song that speaks to many of us, which is probably why there are so many covers out there for such a new song. But Justin and Anna's version is the first I've seen that adds something new to Bruce's original, and it's well worth a listen.

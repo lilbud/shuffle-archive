@@ -108,7 +108,7 @@
 >
 > [A post shared by Pink Cadillac Music (@pinkcadillacmusic)](https://www.instagram.com/p/BbZrzhIhJqV/?utm_source=ig_embed&utm_campaign=loading)
 
-**2022:** Bruce releases his twenty-first studio album, *Only the Strong Survive,* and appears on Virgin Radio Italy to promote it.
+**2022:** Bruce releases his twenty-first studio album, *Only the Strong Survive*, and appears on Virgin Radio Italy to promote it.
 
 [Watch on Youtube: Only the Strong Survive](https://www.youtube.com/playlist?list=OLAK5uy_lgCMXVD2MmjZmfVGKTe91EAMBA3VMq1jY)
 

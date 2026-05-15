@@ -10,17 +10,17 @@ Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, P
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/mainpoint-300x156.jpg?resize=758%2C394)
 
-Bruce completes “” at the Record Plant in New York City. It will remain in the vault for 23 years.
+Bruce completes "" at the Record Plant in New York City. It will remain in the vault for 23 years.
 
 **1975:** [Linda Let Me Be The One](https://estreetshuffle.com/index.php/2021/03/27/roll-of-the-dice-linda-let-me-be-the-one/)
 
 [https://www.youtube.com/embed/G4yx0JdiKfo?feature=oembed](https://www.youtube.com/embed/G4yx0JdiKfo?feature=oembed)
 
-Bruce and the E Street Band work on “The Promise” and “” during recording sessions at Atlantic Studios in New York City.
+Bruce and the E Street Band work on "The Promise" and "" during recording sessions at Atlantic Studios in New York City.
 
 **1977:** [Talk to Me](https://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)
 
-One day after their legendary Roxy show, Bruce and the boys take the Darkness Tour to the Arizona Veterans Memorial Coliseum in Phoenix, where several songs are filmed and released as promotional clips (and later included in the 30th anniversary box set). Bruce’s official video for “Rosalita (Come Out Tonight)” is from this show. “” is filmed but not released, but you can watch it below.
+One day after their legendary Roxy show, Bruce and the boys take the Darkness Tour to the Arizona Veterans Memorial Coliseum in Phoenix, where several songs are filmed and released as promotional clips (and later included in the 30th anniversary box set). Bruce's official video for "Rosalita (Come Out Tonight)" is from this show. "" is filmed but not released, but you can watch it below.
 
 **1978:** [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)
 
@@ -38,9 +38,9 @@ One day after their legendary Roxy show, Bruce and the boys take the Darkness To
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1978-07-08-300x216.jpg?resize=758%2C546)
 
-Bruce and the E Street Band play their fifth of six nights at the Brendan Byrne Arena in East Rutherford, as the River Tour continues. Two songs–“s” and ““–will be released on . Before the show, Bruce soundchecks his original song “” which he would eventually donate to Gary U.S. Bonds for his album.
+Bruce and the E Street Band play their fifth of six nights at the Brendan Byrne Arena in East Rutherford, as the River Tour continues. Two songs–"s" and ""–will be released on . Before the show, Bruce soundchecks his original song "" which he would eventually donate to Gary U.S. Bonds for his album.
 
-**1981:** [Two Heart](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)*Live 1975-85*[All I Need,](https://estreetshuffle.com/index.php/2019/12/03/roll-of-the-dice-cover-me-all-i-need/)*On the Line*
+**1981:** [Two Heart](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)*Live 1975-85*[All I Need,](https://estreetshuffle.com/index.php/2019/12/03/roll-of-the-dice-cover-me-all-i-need/)*On the Line*
 
 [https://www.youtube.com/embed/Q6CRuzDAzkM?feature=oembed](https://www.youtube.com/embed/Q6CRuzDAzkM?feature=oembed)
 
@@ -70,7 +70,7 @@ The Recording Industry Association of America certifies as 12x multi-platinum.
 
 **1992:** *Live 1975-85*
 
-At Magic Night Two in Oslo, Bruce tour premieres “” (in its only tour appearance) and plays a rare “From Small Things (Big Things One Day Come).”
+At Magic Night Two in Oslo, Bruce tour premieres "" (in its only tour appearance) and plays a rare "From Small Things (Big Things One Day Come)."
 
 **2008:**[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 

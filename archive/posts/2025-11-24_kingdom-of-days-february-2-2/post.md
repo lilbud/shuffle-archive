@@ -8,7 +8,7 @@ Ten days after Steel Mill plays their final show, Bruce is already in the market
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/02/Asbury_Park_Press_1971_02_02_Page_29.jpg?w=758&amp;ssl=1)
 
-Bruce and the as yet unnamed E Street Band play their third of six nights at Max’s Kansas City in New York. 
+Bruce and the as yet unnamed E Street Band play their third of six nights at Max's Kansas City in New York. 
 
 **1973:**(photo credit: Chuck Pulin)
 
@@ -46,9 +46,9 @@ Bruce and the E Street Band rehearse for their upcoming Tunnel of Love Express T
 
 **1988:**
 
-Bruce and Patti are in New Orleans filming the video for “.” That evening, they drop by the Maple Leaf Bar, where the Iguanas are playing. Introduced by a pseudonym, Bruce joins the band for “” “” and “Betty Jean.”
+Bruce and Patti are in New Orleans filming the video for "." That evening, they drop by the Maple Leaf Bar, where the Iguanas are playing. Introduced by a pseudonym, Bruce joins the band for "" "" and "Betty Jean."
 
-**1992:**[Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)[Ain’t That a Shame,](http://estreetshuffle.com/index.php/2018/03/08/meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/)[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)
+**1992:**[Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)[Ain't That a Shame,](http://estreetshuffle.com/index.php/2018/03/08/meeting-across-the-river-bruce-springsteen-and-beaver-brown-aint-that-a-shame/)[Save the Last Dance for Me](https://estreetshuffle.com/index.php/2020/10/25/cover-me-save-the-last-dance-for-me/)
 
 
 
@@ -68,9 +68,9 @@ The River Tour (2016 edition) makes a single stop in Canada, at the Air Center i
 
 [https://www.youtube.com/embed/XyF69cUZcP4?feature=oembed](https://www.youtube.com/embed/XyF69cUZcP4?feature=oembed)
 
-: The Australian Summer Tour moves to Melbourne. Finding it embarrassing to represent America during the early days of the Trump Administration, Bruce makes a statement by opening with an acoustic cover of The Orlon’s “,” dedicated to Prime Minister Turnbull after Trump hung up on their call the previous day. Bruce follows up with “” and also includes a solo acoustic “” in the encores, bookending the show with pointed statements.
+: The Australian Summer Tour moves to Melbourne. Finding it embarrassing to represent America during the early days of the Trump Administration, Bruce makes a statement by opening with an acoustic cover of The Orlon's "," dedicated to Prime Minister Turnbull after Trump hung up on their call the previous day. Bruce follows up with "" and also includes a solo acoustic "" in the encores, bookending the show with pointed statements.
 
-**2017**[Don’t Hang Up](https://estreetshuffle.com/index.php/2021/05/13/cover-me-dont-hang-up/)[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)
+**2017**[Don't Hang Up](https://estreetshuffle.com/index.php/2021/05/13/cover-me-dont-hang-up/)[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)
 
 [https://www.youtube.com/embed/zSiZMyUlw8Y?feature=oembed](https://www.youtube.com/embed/zSiZMyUlw8Y?feature=oembed)
 
@@ -86,8 +86,8 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce salutes and performs with Jon Bon Jovi at the annual MusiCares Person of the Year gala in honor of Bon Jovi. The two perform “” and “” together.
+Bruce salutes and performs with Jon Bon Jovi at the annual MusiCares Person of the Year gala in honor of Bon Jovi. The two perform "" and "" together.
 
-**2024:** [Who Says You Can’t Go Home](https://estreetshuffle.com/index.php/2019/06/22/matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/)[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
+**2024:** [Who Says You Can't Go Home](https://estreetshuffle.com/index.php/2019/06/22/matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/)[The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)
 
 [https://www.youtube.com/embed/TRVlZPAUkHo?feature=oembed](https://www.youtube.com/embed/TRVlZPAUkHo?feature=oembed)

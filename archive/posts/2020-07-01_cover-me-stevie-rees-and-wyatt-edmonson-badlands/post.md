@@ -6,7 +6,7 @@ Stevie Rees labels his sound as "swampland country," and that's a pretty great w
 
 "Badlands" is the epitome of rock anthems. To re-arrange it as Cajun country is daring enough, but then performing it acoustically? That takes guts. And carrying the melody with a fiddle and mandolin–well, that's just nuts.
 
-But holy cow... Rees and Edmonson's cover of "Badlands" doesn't just rock–it *gallops,* and it's easily an instant favorite among a sea of Springsteen covers.
+But holy cow... Rees and Edmonson's cover of "Badlands" doesn't just rock–it *gallops*, and it's easily an instant favorite among a sea of Springsteen covers.
 
 Trust me and give this one a watch:
 

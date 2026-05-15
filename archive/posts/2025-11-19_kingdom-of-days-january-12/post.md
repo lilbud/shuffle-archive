@@ -2,7 +2,7 @@
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2017-01-12.png?resize=758%2C738&amp;ssl=1)
 
-Bruce and the not-yet E Street Band continue their Boston residency with two shows at Paul’s Mall.
+Bruce and the not-yet E Street Band continue their Boston residency with two shows at Paul's Mall.
 
 **1973:**
 
@@ -18,7 +18,7 @@ Bruce and the not-yet E Street Band continue their Boston residency with two sho
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/12/1973-01-10-239x300.jpg?resize=758%2C951)
 
-Bruce and the band play The Joint in the Woods in Parsippany, New Jersey–notable for ultra-rare covers of “” and “.” (The latter will become a staple of the Wrecking Ball tour, however.)
+Bruce and the band play The Joint in the Woods in Parsippany, New Jersey–notable for ultra-rare covers of "" and "." (The latter will become a staple of the Wrecking Ball tour, however.)
 
 **1974:**[Ring of Fire](http://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)[634-5789](http://estreetshuffle.com/index.php/2018/08/14/cover-me-634-5789-soulsville-u-s-a/)
 
@@ -32,7 +32,7 @@ Bruce and the band play The Joint in the Woods in Parsippany, New Jersey–notab
 
 **1975**
 
-Bruce joins Nils Lofgren (who is not yet a member of the E Street Band) on stage at the Royal Manor North in North Brunswick, New Jersey, for covers of “” and “.” This is the earliest known performance of Bruce and Nils together.
+Bruce joins Nils Lofgren (who is not yet a member of the E Street Band) on stage at the Royal Manor North in North Brunswick, New Jersey, for covers of "" and "." This is the earliest known performance of Bruce and Nils together.
 
 **1982:**[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Carol](https://estreetshuffle.com/index.php/2022/02/17/cover-me-carol/)
 
@@ -40,7 +40,7 @@ Bruce joins Nils Lofgren (who is not yet a member of the E Street Band) on stage
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1982-01-12a.png?resize=758%2C892&amp;ssl=1)
 
-At The Hit Factory in New York City, Bruce and the E Street Band record “” and “.” Both songs will remain in the vault until 1998.
+At The Hit Factory in New York City, Bruce and the E Street Band record "" and "." Both songs will remain in the vault until 1998.
 
 **1984:** [Man at the Top](http://estreetshuffle.com/index.php/2019/05/10/roll-of-the-dice-man-at-the-top/)[Rockaway the Days](https://estreetshuffle.com/index.php/2021/03/15/roll-of-the-dice-rockaway-the-days/)
 
@@ -48,7 +48,7 @@ At The Hit Factory in New York City, Bruce and the E Street Band record “” a
 
 [https://www.youtube.com/embed/eu5sSFAC5-U?feature=oembed](https://www.youtube.com/embed/eu5sSFAC5-U?feature=oembed)
 
-Creedence Clearwater Revival is inducted into the Rock and Roll Hall of Fame, and Bruce is part of John Fogerty’s backing band for the occasion. The band also includes Robbie Robertson, Roy Bittan, Benmont Tench, Jim Keltner, and Don Was. Watch their set below.
+Creedence Clearwater Revival is inducted into the Rock and Roll Hall of Fame, and Bruce is part of John Fogerty's backing band for the occasion. The band also includes Robbie Robertson, Roy Bittan, Benmont Tench, Jim Keltner, and Don Was. Watch their set below.
 
 **1993:**
 
@@ -60,13 +60,13 @@ Creedence Clearwater Revival is inducted into the Rock and Roll Hall of Fame, an
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1993-01-12.png?resize=758%2C1467&amp;ssl=1)
 
-Bruce records “” at The Hit Factory in New York City.
+Bruce records "" at The Hit Factory in New York City.
 
 **1995:** [Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)
 
 [https://www.youtube.com/embed/9FBVo0LqhYQ?feature=oembed](https://www.youtube.com/embed/9FBVo0LqhYQ?feature=oembed)
 
-Bruce plays Stambaugh Auditorium in Youngstown, Ohio, inspiration (of course) for his song, “.”
+Bruce plays Stambaugh Auditorium in Youngstown, Ohio, inspiration (of course) for his song, "."
 
 **1996:**[Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)
 
@@ -74,7 +74,7 @@ Bruce plays Stambaugh Auditorium in Youngstown, Ohio, inspiration (of course) fo
 
 [https://www.youtube.com/embed/HN6z96fJq44?feature=oembed](https://www.youtube.com/embed/HN6z96fJq44?feature=oembed)
 
-Bruce’s upcoming album, , leaks to the internet more than two weeks ahead of its release.
+Bruce's upcoming album, , leaks to the internet more than two weeks ahead of its release.
 
 **2009:** *Working on a Dream*
 
@@ -96,7 +96,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/2018-01-12-300x297.jpg?resize=758%2C750)
 
-Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First hand reports from fans listening at the stage door (including this blogger) confirm the addition of “Nightshift” and the return of “” as the show opener (a position it will hold throughout most of the tour) as the setlist begins to take shape.
+Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First hand reports from fans listening at the stage door (including this blogger) confirm the addition of "Nightshift" and the return of "" as the show opener (a position it will hold throughout most of the tour) as the setlist begins to take shape.
 
 **2023:** [No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
 

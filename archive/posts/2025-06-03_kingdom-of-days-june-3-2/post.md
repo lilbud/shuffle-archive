@@ -54,7 +54,7 @@
 
 [Watch on Youtube: Rock in Rio Lisboa - Bruce Springsteen](https://www.youtube.com/watch?v=4xz4QdYeTDM)
 
-**2013:** Bruce plays San Siro in Milan, always the site of amazing shows. Bruce delivers a full album performance of *Born in the U.S.A.,* along with the tour premiere of "[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)."
+**2013:** Bruce plays San Siro in Milan, always the site of amazing shows. Bruce delivers a full album performance of *Born in the U.S.A.*, along with the tour premiere of "[Long Tall Sally](https://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)."
 
 [Watch Video Highlight](https://videopress.com/embed/AMvoPOh4)
 

@@ -22,7 +22,7 @@ Bruce takes the bus from Asbury Park down to Philadelphia to spend a couple of d
 
 **1974:**
 
-Bruce makes a return visit to the Hammersmith Odeon in London a week after his debut performance. Bruce tour premieres “” for the occasion, and he closes the show with the last “” for almost a quarter-century. This show is available as part of Bruce’s official archive series–get it .
+Bruce makes a return visit to the Hammersmith Odeon in London a week after his debut performance. Bruce tour premieres "" for the occasion, and he closes the show with the last "" for almost a quarter-century. This show is available as part of Bruce's official archive series–get it .
 
 **1975:** [Wear My Ring Around Your Neck](http://estreetshuffle.com/index.php/2020/07/07/cover-me-wear-my-ring-around-your-neck/)[Little Queenie](http://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)[here](https://live.brucespringsteen.net/live-music/0,25780/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-11-24-1975-Hammersmith-Odeon-London-UK.html)
 
@@ -34,7 +34,7 @@ Bruce makes a return visit to the Hammersmith Odeon in London a week after his d
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/11/Evening_Chronicle_1975_11_29_10.jpg?w=758&amp;ssl=1)
 
-Night Two at the Capital Center in Largo on the River Tour is filmed (not by Springsteen’s crew, but by sneaky employees at the venue).
+Night Two at the Capital Center in Largo on the River Tour is filmed (not by Springsteen's crew, but by sneaky employees at the venue).
 
 **1980:**
 
@@ -48,9 +48,9 @@ Bruce spends another day in Florida, travelling from Orlando to Miami to perform
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-24-300x142.png?resize=758%2C359)
 
-Bruce kicks off Year Two(!) of the Ghost of Tom Joad Tour with a trio of shows at the Paramount Theater in Asbury Park. Each show is special–a homecoming of sorts, with guest stars and tour premieres galore. On this, Night One, Bruce is joined at various times throughout the night by Patti, Soozie, and Danny. Bruce tour premieres “,” “,” “,” “,” and (remarkably) a wild, acoustic, “Rosalita (Come Out Tonight).” Kicking off with three tracks from and wrapping up with a pair from (before the customary “” finale), this certainly doesn’t feel like the Ghost of Tom Joad Tour. This show is available as part of Bruce’s official archive series–get it .
+Bruce kicks off Year Two(!) of the Ghost of Tom Joad Tour with a trio of shows at the Paramount Theater in Asbury Park. Each show is special–a homecoming of sorts, with guest stars and tour premieres galore. On this, Night One, Bruce is joined at various times throughout the night by Patti, Soozie, and Danny. Bruce tour premieres "," "," "," "," and (remarkably) a wild, acoustic, "Rosalita (Come Out Tonight)." Kicking off with three tracks from and wrapping up with a pair from (before the customary "" finale), this certainly doesn't feel like the Ghost of Tom Joad Tour. This show is available as part of Bruce's official archive series–get it .
 
-**1996:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)[Wild Billy’s Circus Story](http://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)[When You’re Alone](https://estreetshuffle.com/index.php/2020/11/15/roll-of-the-dice-when-youre-alone/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)*Greetings**Wild & Innocent*[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[here](http://live.brucespringsteen.net/live-music/0,23319/Bruce-Springsteen-mp3-flac-download-11-24-1996-Paramount-Theatre-Asbury-Park-NJ.html)
+**1996:** [Independence Day](https://estreetshuffle.com/index.php/2022/03/14/roll-of-the-dice-independence-day/)[Wild Billy's Circus Story](http://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)[When You're Alone](https://estreetshuffle.com/index.php/2020/11/15/roll-of-the-dice-when-youre-alone/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)*Greetings**Wild & Innocent*[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[here](http://live.brucespringsteen.net/live-music/0,23319/Bruce-Springsteen-mp3-flac-download-11-24-1996-Paramount-Theatre-Asbury-Park-NJ.html)
 
 [https://www.youtube.com/embed/sUjWT1sReVI?feature=oembed](https://www.youtube.com/embed/sUjWT1sReVI?feature=oembed)
 
@@ -72,7 +72,7 @@ Bruce kicks off Year Two(!) of the Ghost of Tom Joad Tour with a trio of shows a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-11-24c-98x300.png?resize=758%2C2320)
 
-Bruce and the E Street Band wrap up a week-long tour of Florida with a show at the Ice Palace in Tampa, where Bruce closes the show with a tour premiere of “Twist and Shout.”
+Bruce and the E Street Band wrap up a week-long tour of Florida with a show at the Ice Palace in Tampa, where Bruce closes the show with a tour premiere of "Twist and Shout."
 
 **2002:**
 

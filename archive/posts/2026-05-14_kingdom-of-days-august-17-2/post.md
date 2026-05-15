@@ -1,6 +1,6 @@
-**1969:** Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that’s where the band wants to be–but they honor their commitment.
+**1969:** Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that's where the band wants to be–but they honor their commitment.
 
-**1975:** Bruce and the E Street Band wrap up their legendary five-night stand at The Bottom Line in New York City with two final shows. The buzz from these shows will turbocharge Bruce’s career and the remainder of the Born to Run Tour.
+**1975:** Bruce and the E Street Band wrap up their legendary five-night stand at The Bottom Line in New York City with two final shows. The buzz from these shows will turbocharge Bruce's career and the remainder of the Born to Run Tour.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4Y-7c4n2eaE)
 
@@ -8,7 +8,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLsxNBNx2akeU6hH1IQ-_RzSrXz3-Te7tL)
 
-**1984:** The Born in the U.S.A. Tour’s ten-night stand at the Brendan Byrne Arena in East Rutherford reaches Night Eight, a show notable for the first-ever performance of “I’m Goin’ Down” and the tour premiere of “Follow That Dream.”
+**1984:** The Born in the U.S.A. Tour's ten-night stand at the Brendan Byrne Arena in East Rutherford reaches Night Eight, a show notable for the first-ever performance of "I'm Goin' Down" and the tour premiere of "Follow That Dream."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_PJFou1o1JE)
 
@@ -22,7 +22,7 @@
 
 ![](../../assets/2020/08/1992-08-17b.png)
 
-**1999:** Bruce postpones a scheduled Reunion show in Detroit to the following month due to “scheduling conflicts.”
+**1999:** Bruce postpones a scheduled Reunion show in Detroit to the following month due to "scheduling conflicts."
 
 **2003:** Bruce and the E Street Band play their second of only two Rising Tour stadium shows on the west coast, this one at Dodger Stadium in Los Angeles.
 
@@ -34,7 +34,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2021:** *Springsteen on Broadway* resumes its limited return engagement at the St. James Theater in New York City after a month-long break. During the hiatus, the pandemic has resurged and masks are a requirement among the audience again. Bruce also winks at the recent “Thunder Road” debate, definitively and repetitively singing “sways” to put the matter to rest.
+**2021:** *Springsteen on Broadway* resumes its limited return engagement at the St. James Theater in New York City after a month-long break. During the hiatus, the pandemic has resurged and masks are a requirement among the audience again. Bruce also winks at the recent "Thunder Road" debate, definitively and repetitively singing "sways" to put the matter to rest.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3?_=3)
 

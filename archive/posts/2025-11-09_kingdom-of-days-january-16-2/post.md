@@ -4,7 +4,7 @@ Bruce and the not-yet-named E Street Band play Villanova University in a 150-sea
 
 **1973:**
 
-At his home studio in Holmdel, Bruce rehearses “Stolen Car” with the E Street Band in advance of their upcoming recording sessions.
+At his home studio in Holmdel, Bruce rehearses "Stolen Car" with the E Street Band in advance of their upcoming recording sessions.
 
 **1980:**
 
@@ -16,7 +16,7 @@ The second of two shows at the Coliseum in Charlotte, North Carolina. Watch one 
 
 [https://videopress.com/embed/6A3wRNSs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6A3wRNSs?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-: At the sixth Rock and Roll Hall of Fame induction ceremony, Bruce performs “” with Jackson Browne, Don Henley, and Chaka Khan before joining the all-star closing jam on “” and “.”
+: At the sixth Rock and Roll Hall of Fame induction ceremony, Bruce performs "" with Jackson Browne, Don Henley, and Chaka Khan before joining the all-star closing jam on "" and "."
 
 **1991**[People Get Ready](http://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)[Mustang Sally](https://estreetshuffle.com/index.php/2020/07/15/matr-bruce-springsteen-and-just-about-everybody-mustang-sally/)[In the Midnight Hour](https://estreetshuffle.com/index.php/2020/12/31/matr-wilson-pickett-and-bruce-springsteen-in-the-midnight-hour/)
 
@@ -44,7 +44,7 @@ Bruce releases an updated video anthology, retitled .
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2001-01-16.png?resize=758%2C928&amp;ssl=1)
 
-A Light of Day guest appearance, with Bruce joining Willie Nile for “,” Jesse Malin for “,” and Joe Grushecky and the Houserockers for a full set.
+A Light of Day guest appearance, with Bruce joining Willie Nile for "," Jesse Malin for "," and Joe Grushecky and the Houserockers for a full set.
 
 **2010:**[Heaven Help the Lonely](http://estreetshuffle.com/index.php/2018/12/29/matr-willie-nile-and-bruce-springsteen-heaven-help-the-lonely/)[Broken Radio](http://estreetshuffle.com/index.php/2019/08/17/matr-jesse-malin-and-bruce-springsteen-broken-radio/)
 
@@ -62,7 +62,7 @@ A Light of Day guest appearance, with Bruce joining Willie Nile for “,” Jess
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/2010-01-16-300x160.jpg?resize=758%2C404)
 
-The River (2016) tour kicks off in Pittsburgh, featuring the entire double-album played start to finish, the live premiere of “,” and a tribute to the recently departed David Bowie, “”
+The River (2016) tour kicks off in Pittsburgh, featuring the entire double-album played start to finish, the live premiere of "," and a tribute to the recently departed David Bowie, ""
 
 **2016:** [Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/)[Rebel Rebel.](https://estreetshuffle.com/index.php/2021/11/21/cover-me-rebel-rebel/)
 
@@ -78,6 +78,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:***Springsteen on Broadway*
 
-Bruce rehearses backgrounds with Soozie Tyrell and The E Street Choir at The Vogel in Red Bank, New Jersey, in preparation for their upcoming world tour. First hand reports from fans (including this blogger) listening at the stage door confirming rare piano run-throughs of songs like “” and “.”
+Bruce rehearses backgrounds with Soozie Tyrell and The E Street Choir at The Vogel in Red Bank, New Jersey, in preparation for their upcoming world tour. First hand reports from fans (including this blogger) listening at the stage door confirming rare piano run-throughs of songs like "" and "."
 
 **2023:** [Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)

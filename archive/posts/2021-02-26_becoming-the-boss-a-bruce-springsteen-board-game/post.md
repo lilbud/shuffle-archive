@@ -2,11 +2,11 @@ I didn't know the world needed a Springsteen-themed board game, but Søren Kitaj
 
 ![](../../assets/2021/03/IMG_4631-scaled.jpg)
 
-These two lifelong friends from Denmark envisioned, designed, developed, and published *[Becoming The Boss](https://becomingtheboss.dk/),* an incredibly detailed–and **free** to all–board game experience sure to intrigue even casual Springsteen fans and absolutely delight hardcore ones.
+These two lifelong friends from Denmark envisioned, designed, developed, and published *[Becoming The Boss](https://becomingtheboss.dk/)*, an incredibly detailed–and **free** to all–board game experience sure to intrigue even casual Springsteen fans and absolutely delight hardcore ones.
 
 [Watch Video Highlight](https://videopress.com/embed/GSg17dc4)
 
-In *Becoming The Boss,* players get to live (or relive) the early days of the Asbury Park music scene. To win the game, all you have to do is form a band, claw your way to the top, score a record deal, and make the covers of *Time* and *Newsweek.* You know: just like Bruce did.
+In *Becoming The Boss*, players get to live (or relive) the early days of the Asbury Park music scene. To win the game, all you have to do is form a band, claw your way to the top, score a record deal, and make the covers of *Time* and *Newsweek.* You know: just like Bruce did.
 
 But despite its name and inspiration, it would be a misrepresentation to classify the game purely as Bruce biography. In *Becoming The Boss*, Søren and Knud have crafted a loving tribute to the entire Jersey Shore music scene of the early 1970s. With its vivid cast of characters chasing their dreams across a romantic landscape of legendary locales, the mythology of the Jersey Shore translates perfectly to the gaming table.
 

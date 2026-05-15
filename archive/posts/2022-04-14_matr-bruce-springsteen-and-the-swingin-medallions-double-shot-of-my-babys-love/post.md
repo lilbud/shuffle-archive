@@ -8,7 +8,7 @@ Local band Dick Holler and The Holidays recorded it in 1963 and established it a
 
 Luckily, a local party band called The Medallions at nearby Lander College took a shine to the song and made it a popular staple of their live sets. When they decided to record "Double Shot" in the studio, however, they quickly grew frustrated at their inability to capture the energy of their live performances.
 
-The Medallions solved their problem by turning their studio session into a live performance. "We actually pulled in people off the street and had a big crowd in the studio to make background noise," lead singer John McElrath told *Rebeat Magazine,* "and that party atmosphere gave us the sound we were looking for."
+The Medallions solved their problem by turning their studio session into a live performance. "We actually pulled in people off the street and had a big crowd in the studio to make background noise," lead singer John McElrath told *Rebeat Magazine*, "and that party atmosphere gave us the sound we were looking for."
 
 [Watch on Youtube: SWINGIN' MEDALLIONS-"DOUBLE SHOT OF MY BABY'S LOVE"(LYRICS)](https://www.youtube.com/watch?v=57s89xrC93o)
 

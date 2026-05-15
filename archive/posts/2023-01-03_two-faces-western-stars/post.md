@@ -1,16 +1,16 @@
 Editor's Note
 
-***Editor’s Note:*** *For four years, I’ve been working my way through Bruce’s catalog, song by song, day by day. I’ve had some great guest-writers along the way, but always in the “Where the Band Was” series. When it comes to analyzing Bruce’s songs, I’ve held the Roll of the Dice series with a pretty tight grip.*
+***Editor's Note:*** *For four years, I've been working my way through Bruce's catalog, song by song, day by day. I've had some great guest-writers along the way, but always in the "Where the Band Was" series. When it comes to analyzing Bruce's songs, I've held the Roll of the Dice series with a pretty tight grip.*
 
-> *But then I met Katy Crane. Katy caught my interest from the very first of a string of deeply insightful comments in response to my Roll of the Dice articles, featuring provocative takes, surprising connections, broad musical knowledge, and a writer’s voice I only aspire to.*
+> *But then I met Katy Crane. Katy caught my interest from the very first of a string of deeply insightful comments in response to my Roll of the Dice articles, featuring provocative takes, surprising connections, broad musical knowledge, and a writer's voice I only aspire to.*
 
-> *We usually found ourselves in agreement about a particular song, but my favorite days were the ones where Katy would provide counter-takes so persuasively written and backed up that I couldn’t help but see a song I thought I knew in a brand new light.*
+> *We usually found ourselves in agreement about a particular song, but my favorite days were the ones where Katy would provide counter-takes so persuasively written and backed up that I couldn't help but see a song I thought I knew in a brand new light.*
 
-> *So what do you do when you discover a reader whose comments deserve a “Hold my beer” subject line? Well… I hold her beer.*
+> *So what do you do when you discover a reader whose comments deserve a "Hold my beer" subject line? Well… I hold her beer.*
 
-*Meet Katy Crane, a writer and teacher from interior Alaska. She recently moved from a small town to a big city and dealt with the culture shock by becoming an obsessive Springsteen fan. Her favorite Springsteen album is *Nebraska,* and she thinks “[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)” is a good song and “Jungleland” is overrated.*
+*Meet Katy Crane, a writer and teacher from interior Alaska. She recently moved from a small town to a big city and dealt with the culture shock by becoming an obsessive Springsteen fan. Her favorite Springsteen album is *Nebraska*, and she thinks "[Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)" is a good song and "Jungleland" is overrated.*
 
-*Katy makes her first of what I fervently hope will be many appearances here today, in a new series we’re calling **Two Faces**, featuring alternative interpretations to the ones I’ve put forward in the Roll of the Dice series.*
+*Katy makes her first of what I fervently hope will be many appearances here today, in a new series we're calling **Two Faces**, featuring alternative interpretations to the ones I've put forward in the Roll of the Dice series.*
 
 > *Take it away, Katy!*
 
@@ -44,7 +44,7 @@ The first time you hear the lyric "I get up in the evening," there's a little jo
 
 "Western Stars" has a similarly slippery beginning. "I wake up in the morning," Bruce tells us, "just glad my boots are on." And because his character doesn't see anything odd about waking up with his boots on, it's easy to miss what a weird image this is. It's easy to hear it as a metaphor for waking up in one piece, ready to greet another day. But stop a moment and think about it literally, as a character detail, and the whole song changes.
 
-In real life, who wakes up with their boots on? Someone who passed out fully clothed the night before, that's who. Who wakes up in the morning *glad* their boots are on? Someone who passes out with their boots on so often that they’ve come to think of it as normal.
+In real life, who wakes up with their boots on? Someone who passed out fully clothed the night before, that's who. Who wakes up in the morning *glad* their boots are on? Someone who passes out with their boots on so often that they've come to think of it as normal.
 
 And with that, a part of the story snaps into focus. This is a character who wakes up hung over and spends the day getting progressively drunker, to finally pass out and do it all again the next day. And we're about to follow him through his day, find out how and why he got here. (Think of it as the Springsteen version of *The Hangover* or *Dude, Where's My El Camino?*)
 

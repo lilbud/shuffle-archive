@@ -1,6 +1,6 @@
 
 
-Bruce Springsteen has covered almost two dozen Chuck Berry tunes in concert, but none with more gusto than “Back in the U.S.A.” (Perhaps “” is tied for first, though.)
+Bruce Springsteen has covered almost two dozen Chuck Berry tunes in concert, but none with more gusto than "Back in the U.S.A." (Perhaps "" is tied for first, though.)
 
 [Little Queenie](http://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)
 
@@ -8,7 +8,7 @@ Bruce played it occasionally on the Born to Run Tour, closing his legendary Main
 
 [https://www.youtube.com/embed/UPocmHcX2tw?feature=oembed](https://www.youtube.com/embed/UPocmHcX2tw?feature=oembed)
 
-Originally released in 1959, Berry’s ode to hamburgers at the corner cafe (or at least that’s what you would think it was about based on Bruce’s performance of it) just barely cracked the Top 40, but that was high enough to capture Bruce’s attention.
+Originally released in 1959, Berry's ode to hamburgers at the corner cafe (or at least that's what you would think it was about based on Bruce's performance of it) just barely cracked the Top 40, but that was high enough to capture Bruce's attention.
 
 [https://www.youtube.com/embed/JbZ4T_noAtA?feature=oembed](https://www.youtube.com/embed/JbZ4T_noAtA?feature=oembed)
 

@@ -18,7 +18,7 @@ Bruce and the boys play a Lawsuit Tour show at Rutgers University in New Brunswi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1976-10-12-300x107.jpg?resize=758%2C270)
 
-Bruce records “” with the E Street Band at The Power Station in New York City.
+Bruce records "" with the E Street Band at The Power Station in New York City.
 
 **1979:** [Crush on You](https://estreetshuffle.com/index.php/2018/02/02/roll-of-the-dice-crush-on-you/)
 
@@ -32,7 +32,7 @@ Bruce plays his first ever show in Brazil when the Human Rights Now! Tour stops 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-10-12-252x300.jpg?resize=758%2C903)
 
-Bruce tour premieres “Thunder Road” (in its only tour performance) and “” (on autoharp), at his solo acoustic show in Minneapolis.
+Bruce tour premieres "Thunder Road" (in its only tour performance) and "" (on autoharp), at his solo acoustic show in Minneapolis.
 
 **2005:** [The New Timer](http://estreetshuffle.com/index.php/2018/07/13/roll-of-the-dice-the-new-timer/)
 
@@ -52,7 +52,7 @@ In Cambridge, Massachusetts, the American Academy of Arts and Sciences inducts B
 
 **2013:**
 
-It’s officially opening night for at a star-studded premiere (including the entire E Street Band) that follows seven preview performances. In attendance tonight: Tom Hanks, Steven Spielberg, Kate Capshaw, Nathan Lane, Andrew Lloyd Weber, Ralph Lauren, Tina Fey, Jimmy Iovine, David Geffen, Laura Linney, Jon Stewart, Senator Chuck Schumer, the entire E Street Band and more.
+It's officially opening night for at a star-studded premiere (including the entire E Street Band) that follows seven preview performances. In attendance tonight: Tom Hanks, Steven Spielberg, Kate Capshaw, Nathan Lane, Andrew Lloyd Weber, Ralph Lauren, Tina Fey, Jimmy Iovine, David Geffen, Laura Linney, Jon Stewart, Senator Chuck Schumer, the entire E Street Band and more.
 
 **2017:** *Springsteen on Broadway*
 

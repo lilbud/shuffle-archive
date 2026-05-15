@@ -22,7 +22,7 @@ Rocker John Eddie catches his first Bruce Springsteen concert when Bruce and the
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/11/1974-11-21-196x300.jpg?resize=758%2C1160)
 
-Bruce plays his first-ever show in Sweden when the Born to Run Tour arrives in Stockholm. The sound quality isn’t great, but these are the first notes the E Street Band ever play in Sweden.
+Bruce plays his first-ever show in Sweden when the Born to Run Tour arrives in Stockholm. The sound quality isn't great, but these are the first notes the E Street Band ever play in Sweden.
 
 **1975:**
 
@@ -44,7 +44,7 @@ is certified triple platinum by the Recording Industry Association of America.
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_nZs0gvllzGn7y9-5OuorN7W37HPrPGrn8](https://www.youtube.com/embed/videoseries?list=OLAK5uy_nZs0gvllzGn7y9-5OuorN7W37HPrPGrn8)
 
-Bruce takes ill and is forced to cancel his scheduled concert in Lexington only six hours before showtime. Meanwhile, Bruce’s former band plays without him (but with Darlene Love, Ronnie Spector, Mitch Ryder, and others) in Red Bank at a benefit to fight hunger.
+Bruce takes ill and is forced to cancel his scheduled concert in Lexington only six hours before showtime. Meanwhile, Bruce's former band plays without him (but with Darlene Love, Ronnie Spector, Mitch Ryder, and others) in Red Bank at a benefit to fight hunger.
 
 **1992:**
 
@@ -68,7 +68,7 @@ That afternoon, Bruce rehearses for his upcoming solo acoustic tour at the Count
 
 [https://videopress.com/embed/ugKq8E0i?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ugKq8E0i?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-That same evening, Bruce plays a rehearsal show for his upcoming solo acoustic world tour at the New Jersey State Theater in New Brunswick, where most of the album’s tracks get their live debuts.
+That same evening, Bruce plays a rehearsal show for his upcoming solo acoustic world tour at the New Jersey State Theater in New Brunswick, where most of the album's tracks get their live debuts.
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC_IjFnkPggsVfyl7bIFDsf](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zC_IjFnkPggsVfyl7bIFDsf)
 
@@ -78,7 +78,7 @@ That same evening, Bruce plays a rehearsal show for his upcoming solo acoustic w
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-11-21d-187x300.png?resize=758%2C1216)
 
-One year later, the Ghost of Tom Joad Tour is still going strong. Bruce plays tonight at the Murat Theater in Indianapolis, where he tour premieres “.”
+One year later, the Ghost of Tom Joad Tour is still going strong. Bruce plays tonight at the Murat Theater in Indianapolis, where he tour premieres "."
 
 **1996:** [Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
@@ -102,9 +102,9 @@ Bruce and the reunited E Street Band play a show at the Pepsi Arena in Albany.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1999-11-21b-300x273.png?resize=758%2C690)
 
-Bruce arrives in Florida for a week of shows, starting with a night at TD Waterhouse Center in Orlando, where Bruce tour premieres “” “,” and “.”
+Bruce arrives in Florida for a week of shows, starting with a night at TD Waterhouse Center in Orlando, where Bruce tour premieres "" "," and "."
 
-**2002:** [It’s Hard to Be a Saint in the City,](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
+**2002:** [It's Hard to Be a Saint in the City,](http://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)[Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
 [https://www.youtube.com/embed/UNEXVBonAJw?feature=oembed](https://www.youtube.com/embed/UNEXVBonAJw?feature=oembed)
 
@@ -112,7 +112,7 @@ Bruce arrives in Florida for a week of shows, starting with a night at TD Waterh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/11/The_Orlando_Sentinel_2002_11_22_A15.jpg?resize=758%2C646&amp;ssl=1)
 
-Bruce closes out his solo acoustic tour with a pair of shows at the Sovereign Bank Arena in Trenton. Tonight is Night One, and Bruce opens with a world premiere: a cover of Link Wray’s “” in memory of Wray. But the big surprise comes late in the set: the return of long-lost “,” unplayed for 32 years, with support from keyboard tech Alan Fitzgerald.
+Bruce closes out his solo acoustic tour with a pair of shows at the Sovereign Bank Arena in Trenton. Tonight is Night One, and Bruce opens with a world premiere: a cover of Link Wray's "" in memory of Wray. But the big surprise comes late in the set: the return of long-lost "," unplayed for 32 years, with support from keyboard tech Alan Fitzgerald.
 
 **2005:** [Rumble](http://estreetshuffle.com/index.php/2019/02/15/cover-me-rumble/)[Song for Orphans](http://estreetshuffle.com/index.php/2019/04/10/roll-of-the-dice-song-for-orphans/)
 
@@ -122,7 +122,7 @@ Bruce closes out his solo acoustic tour with a pair of shows at the Sovereign Ba
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2005-11-21-119x300.png?resize=758%2C1911)
 
-Almost a year to the day later, Bruce is wrapping up another tour–this time at the Odyssey Arena in Belfast, where the Seeger Sessions Band plays their final gig. Bruce pulls one last tour premiere out of his hat: a beautiful arrangement of “.”
+Almost a year to the day later, Bruce is wrapping up another tour–this time at the Odyssey Arena in Belfast, where the Seeger Sessions Band plays their final gig. Bruce pulls one last tour premiere out of his hat: a beautiful arrangement of "."
 
 **2006:** [Mansion on the Hill](https://estreetshuffle.com/index.php/2022/03/06/roll-of-the-dice-mansion-on-the-hill/)
 
@@ -134,7 +134,7 @@ Almost a year to the day later, Bruce is wrapping up another tour–this time at
 
 [https://www.youtube.com/embed/8Hvomfb1SJ8?feature=oembed](https://www.youtube.com/embed/8Hvomfb1SJ8?feature=oembed)
 
-Bruce releases the first single and title track from his upcoming album, “.”
+Bruce releases the first single and title track from his upcoming album, "."
 
 **2008:** [Working on a Dream](http://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)
 

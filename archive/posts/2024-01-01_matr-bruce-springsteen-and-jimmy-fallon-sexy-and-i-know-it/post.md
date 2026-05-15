@@ -1,12 +1,12 @@
 
 
-To promote Bruce’s new album, Jimmy Fallon declared the last days of February 2012 and the first days of March as “Bruce Springsteen Week,” featuring interviews with and performances by the artist himself.
+To promote Bruce's new album, Jimmy Fallon declared the last days of February 2012 and the first days of March as "Bruce Springsteen Week," featuring interviews with and performances by the artist himself.
 
 [](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*
 
-Bruce did more than debut his own new material, though: he also spoofed himself by donning his 1980s uniform (and hair!) and joining Jimmy Fallon-as-Neil Young for an inspired cover of LMFAO’s “Sexy and I Know It.”
+Bruce did more than debut his own new material, though: he also spoofed himself by donning his 1980s uniform (and hair!) and joining Jimmy Fallon-as-Neil Young for an inspired cover of LMFAO's "Sexy and I Know It."
 
-Here’s that brilliantly silly performance:
+Here's that brilliantly silly performance:
 
 [https://videopress.com/embed/9ki7nHat?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9ki7nHat?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

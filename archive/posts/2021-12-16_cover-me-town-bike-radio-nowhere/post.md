@@ -1,6 +1,6 @@
 
 
-C’mon, admit it: who among us hasn’t wondered what it would sound like if The Ramones and The Go-Gos teamed up to cover “?”
+C'mon, admit it: who among us hasn't wondered what it would sound like if The Ramones and The Go-Gos teamed up to cover "?"
 
 [Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)
 
@@ -8,4 +8,4 @@ Well, wonder no longer. because this delightful cover by Liverpool band Town Bik
 
 [https://www.youtube.com/embed/lEZj_4tlDSA?feature=oembed](https://www.youtube.com/embed/lEZj_4tlDSA?feature=oembed)
 
-Kudos to Town Bike for realizing that “Radio Nowhere” was always a punk rocker at heart.
+Kudos to Town Bike for realizing that "Radio Nowhere" was always a punk rocker at heart.

@@ -18,7 +18,7 @@ The first of two nights at DAR Constitution Hall in Washington, DC.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1975-0308.jpg?resize=758%2C1236&amp;ssl=1)
 
-In a Los Angeles recording studio, Bruce gives his song “” to Donna Summer and provides backing vocals and guitar on the track, while Roy plays piano.
+In a Los Angeles recording studio, Bruce gives his song "" to Donna Summer and provides backing vocals and guitar on the track, while Roy plays piano.
 
 **1982:** [Protection](https://estreetshuffle.com/index.php/2021/12/26/rotd-cover-me-donna-summer-protection/)
 
@@ -36,7 +36,7 @@ The Tunnel of Love Express Tour stops in Philadelphia for the first of two night
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-08b.jpg?resize=564%2C1539&amp;ssl=1)
 
-Bruce plays with The Wallflowers at Tradewinds in Sea Bright, New Jersey. Fan footage of his arrival at sound check plus full show audio (including Bruce’s only known cover of ““) below.
+Bruce plays with The Wallflowers at Tradewinds in Sea Bright, New Jersey. Fan footage of his arrival at sound check plus full show audio (including Bruce's only known cover of "") below.
 
 **1997:** [Brand New Cadillac](http://estreetshuffle.com/index.php/2019/02/07/matr-bruce-springsteen-and-the-wallflowers-brand-new-cadillac/)
 
@@ -46,7 +46,7 @@ Bruce plays with The Wallflowers at Tradewinds in Sea Bright, New Jersey. Fan fo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1997-03-08-300x178.jpg?resize=758%2C450)
 
-Bruce and the E Street Band rehearse for their upcoming Reunion Tour at Asbury Park’s Convention Hall.
+Bruce and the E Street Band rehearse for their upcoming Reunion Tour at Asbury Park's Convention Hall.
 
 **1999:**
 
@@ -54,7 +54,7 @@ Bruce and the E Street Band rehearse for their upcoming Reunion Tour at Asbury P
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1999-03-08.jpg?resize=758%2C1020&amp;ssl=1)
 
-Bruce drops by a benefit for the Ranney School at the Eagle Oaks Country Club in Farmingdale, New Jersey and plays “” with Tim McLoone and the Shirleys. 
+Bruce drops by a benefit for the Ranney School at the Eagle Oaks Country Club in Farmingdale, New Jersey and plays "" with Tim McLoone and the Shirleys. 
 
 **2008:**[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)(photo credit: backstreets.com)
 
@@ -66,7 +66,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and President Obama release the fourth episode of their podcast series, This episode is entitled “Born to Run: The Loss of Innocence,” in which Bruce and Barack talk about travelling across America and finding home.
+Bruce and President Obama release the fourth episode of their podcast series, This episode is entitled "Born to Run: The Loss of Innocence," in which Bruce and Barack talk about travelling across America and finding home.
 
 **2021:** *Renegades: Born in the U.S.A.*
 
@@ -76,7 +76,7 @@ Bruce and President Obama release the fourth episode of their podcast series, Th
 
 At the Fire Department Building in his hometown of Freehold, Bruce appears at a community event announcing the development of slated to open in that space in 2024.
 
-**2022:** *My Hometown: The Bruce Springsteen Story Center,*
+**2022:** *My Hometown: The Bruce Springsteen Story Center*,
 
 [https://www.youtube.com/embed/L8QCaf28KRU?feature=oembed](https://www.youtube.com/embed/L8QCaf28KRU?feature=oembed)
 

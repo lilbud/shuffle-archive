@@ -1,4 +1,4 @@
-Seeing R.E.M. perform “Permanent Vacation” in concert had to be a thrill for the band’s fans–it’s an obscure pre-label rocker that the band hadn’t played for 20 years, before they unearthed it briefly in 2003.
+Seeing R.E.M. perform "Permanent Vacation" in concert had to be a thrill for the band's fans–it's an obscure pre-label rocker that the band hadn't played for 20 years, before they unearthed it briefly in 2003.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VJzXCdXXiA4)
 

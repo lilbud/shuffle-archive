@@ -4,7 +4,7 @@
 
 **1969:** Child plays their third of six consecutive nights at the Pandemonium in Wanamassa, New Jersey.
 
-**1970:** Steel Mill headlines at Asbury Park’s Sunshine In, with a setlist that features “Garden State Parkway Blues,” “Sherlock Goes Home,” and “KT-88.”
+**1970:** Steel Mill headlines at Asbury Park's Sunshine In, with a setlist that features "Garden State Parkway Blues," "Sherlock Goes Home," and "KT-88."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=40fj8jiZGsM)
 
@@ -14,19 +14,19 @@
 
 ![](../../assets/2019/07/garage717.jpg)
 
-**1979:** Bruce and the E Street Band work on “Cindy” during a recording session at the Power Station in New York City.
+**1979:** Bruce and the E Street Band work on "Cindy" during a recording session at the Power Station in New York City.
 
-**1982:** Bruce joins Joe Grushecky and the Iron City Houserockers on stage for the first time when Joe plays Big Man’s West in Red Bank.
+**1982:** Bruce joins Joe Grushecky and the Iron City Houserockers on stage for the first time when Joe plays Big Man's West in Red Bank.
 
 [Watch Video Highlight](https://videopress.com/embed/vfcrn5r7)
 
-**1984:** On Night Two at the Rosemont Horizon near Chicago, Bruce tour premieres “Tenth Avenue Freeze-Out” and “Because the Night.” Watch news coverage and footage below.
+**1984:** On Night Two at the Rosemont Horizon near Chicago, Bruce tour premieres "Tenth Avenue Freeze-Out" and "Because the Night." Watch news coverage and footage below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kkUCWM9MA5k)
 
 ![](../../assets/2020/07/1984-07-17.png)
 
-**1988:** The Tunnel of Love Tour arrives in Munich, where “Badlands” makes its tour premiere.
+**1988:** The Tunnel of Love Tour arrives in Munich, where "Badlands" makes its tour premiere.
 
 [Watch Video Highlight](https://videopress.com/embed/Hg1d3CbK)
 
@@ -42,19 +42,19 @@
 
 ![](../../assets/2020/07/2004-07-17.png)
 
-**2008:** The Magic Tour’s Spanish leg continues with a show in Madrid, featuring a rare performance of “Cover Me.”
+**2008:** The Magic Tour's Spanish leg continues with a show in Madrid, featuring a rare performance of "Cover Me."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xzVzqJEkbJ4)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bA7WK-awFnY)
 
-**2011:** Bruce makes a guest appearance at J.T. Bowen and The Sensational Soul Cruisers’ tribute to Clarence Clemons at The Wonder Bar in Asbury Park. The setlist highlights: long-awaited returns of “Action in the Streets” (the first in 34 years) and “Savin’ Up” (the first in 24 years).
+**2011:** Bruce makes a guest appearance at J.T. Bowen and The Sensational Soul Cruisers' tribute to Clarence Clemons at The Wonder Bar in Asbury Park. The setlist highlights: long-awaited returns of "Action in the Streets" (the first in 34 years) and "Savin' Up" (the first in 24 years).
 
 [Watch Video Highlight](https://videopress.com/embed/9neskCQb)
 
 ![](../../assets/2020/07/2011-07-17.png)
 
-**2012:** “Before we were so rudely interrupted…”Bruce picks up in Dublin where he left off–or rather, was cut off–at Hyde Park, bringing his own mock generator on stage, flipping the switch to “ON” and finishing “Twist and Shout” from the previous show. He then launches directly into “I Fought the Law,” a very appropriate tour premiere. Other tour premieres include “I’m a Rocker” and “My Hometown.”
+**2012:** "Before we were so rudely interrupted…"Bruce picks up in Dublin where he left off–or rather, was cut off–at Hyde Park, bringing his own mock generator on stage, flipping the switch to "ON" and finishing "Twist and Shout" from the previous show. He then launches directly into "I Fought the Law," a very appropriate tour premiere. Other tour premieres include "I'm a Rocker" and "My Hometown."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=4Ehdf2SbIDI)
 
@@ -62,7 +62,7 @@
 
 ![](../../assets/2024/07/The_Leader_Post_2012_07_20_15.jpg)
 
-**2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores (“The Ghost of Tom Joad” and “Long Time Comin'”) and will be released on the streaming service to much acclaim later in the year.
+**2018:** Netflix films a special invitation-only performance of *Springsteen on Broadway* at the Walter Kerr Theater in New York City. The show features two special encores ("The Ghost of Tom Joad" and "Long Time Comin'") and will be released on the streaming service to much acclaim later in the year.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=M1xDzgob1JI)
 

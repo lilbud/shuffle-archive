@@ -20,7 +20,7 @@ Bruce and the E Street Band headline a show at the War Memorial Theater in Trent
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1974-0524.jpg?resize=758%2C534&amp;ssl=1)
 
-Night Two of the Darkness Tour (at Albany’s Palace Theater) is similar to Night One, but “The Promise” is now performed solo on the piano, as it will be until the next full-band performance 32 years later.
+Night Two of the Darkness Tour (at Albany's Palace Theater) is similar to Night One, but "The Promise" is now performed solo on the piano, as it will be until the next full-band performance 32 years later.
 
 **1978:**
 
@@ -30,21 +30,21 @@ Night Two of the Darkness Tour (at Albany’s Palace Theater) is similar to Nigh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1978-0524.jpg?resize=758%2C354&amp;ssl=1)
 
-Bruce and the E Street Band work on “King’s Highway” at The Hit Factory in New York City. It hasn’t surfaced in any form to this day.
+Bruce and the E Street Band work on "King's Highway" at The Hit Factory in New York City. It hasn't surfaced in any form to this day.
 
 **1983:**
 
-Director John Sayles films background footage at Maxwell’s in Hoboken for Bruce’s “Glory Days” video.
+Director John Sayles films background footage at Maxwell's in Hoboken for Bruce's "Glory Days" video.
 
 **1985:**
 
 [https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed](https://www.youtube.com/embed/6vQpW9XRiyM?feature=oembed)
 
-Before leaving the U.K., Bruce sings karaoke (“Jumpin’ Jack Flash”) at the Stanhope Arms pub in London.
+Before leaving the U.K., Bruce sings karaoke ("Jumpin' Jack Flash") at the Stanhope Arms pub in London.
 
 **1993:**
 
-At a rainy Rising show in Saint-Denis, France, Bruce plays an acoustic pre-show, opens with “Who’ll Stop the Rain” and tour debuts “Trapped,” “Be True,” and “Seven Nights to Rock.”
+At a rainy Rising show in Saint-Denis, France, Bruce plays an acoustic pre-show, opens with "Who'll Stop the Rain" and tour debuts "Trapped," "Be True," and "Seven Nights to Rock."
 
 **2003:**
 

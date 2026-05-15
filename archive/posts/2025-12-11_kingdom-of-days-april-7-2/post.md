@@ -8,7 +8,7 @@ Bruce and the E Street Band open for The Beach Boys in Norfolk.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1973-0407.jpg?resize=490%2C650&amp;ssl=1)
 
-Bruce Springsteen meets Max Weinberg for the first time when Max’s band opens for Bruce and the original (but still unnamed) E Street Band at Seton Hall University.
+Bruce Springsteen meets Max Weinberg for the first time when Max's band opens for Bruce and the original (but still unnamed) E Street Band at Seton Hall University.
 
 **1974:**
 
@@ -40,13 +40,13 @@ Bruce and the E Street Band bring the Chicken Scratch Tour to Cleveland for the 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2009-04-07.jpg?resize=365%2C964&amp;ssl=1)
 
-The European leg of The River Tour finally kicks off with Bruce’s first-ever show in Germany–at Congress Centrum in Hamburg, where Bruce covers “Rockin’ All Over the World” for the first time.
+The European leg of The River Tour finally kicks off with Bruce's first-ever show in Germany–at Congress Centrum in Hamburg, where Bruce covers "Rockin' All Over the World" for the first time.
 
 **1981:**
 
 [https://videopress.com/embed/0J18Oql6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0J18Oql6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce’s World Tour 1993 stops in Zurich for the first of two shows.
+Bruce's World Tour 1993 stops in Zurich for the first of two shows.
 
 **1993:**
 
@@ -60,7 +60,7 @@ An interview with Australian journalist Molly Meldrum goes off the rails: schedu
 
 [https://videopress.com/embed/IBm32YRu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/IBm32YRu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-…and that interview isn’t the only one Bruce does today. I don’t know if it’s before or after, but Bruce also sits down with MTV’s Kurt Loder for an interview that will air the following month on MTV’s Week in Rock. (You can tell from the same shirt he’s wearing in the video below.)
+…and that interview isn't the only one Bruce does today. I don't know if it's before or after, but Bruce also sits down with MTV's Kurt Loder for an interview that will air the following month on MTV's Week in Rock. (You can tell from the same shirt he's wearing in the video below.)
 
 [https://videopress.com/embed/ibrpkquF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ibrpkquF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -76,17 +76,17 @@ debuts on HBO.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/04/2001-04-07b.jpg?resize=625%2C960&amp;ssl=1)
 
-Bruce rehearses with the Sessions Band at Asbury Park’s Paramount Theater, preparing for their upcoming tour.
+Bruce rehearses with the Sessions Band at Asbury Park's Paramount Theater, preparing for their upcoming tour.
 
 **2006:**
 
-Tom Morello makes a guest appearance at the Magic Tour stop in Anaheim. The new arrangement of “The Ghost of Tom Joad” that Bruce and Tom work up will become a fan favorite and eventually become an officially released track in both studio and live form (on and , respectively). Tom isn’t the only guest-star, though: Bobby Bandiera joins for “Ramrod,” and Marty Rifkin and Marc Anthony Thompson join for a mini-Sessions Band reunion on “American Land.”
+Tom Morello makes a guest appearance at the Magic Tour stop in Anaheim. The new arrangement of "The Ghost of Tom Joad" that Bruce and Tom work up will become a fan favorite and eventually become an officially released track in both studio and live form (on and , respectively). Tom isn't the only guest-star, though: Bobby Bandiera joins for "Ramrod," and Marty Rifkin and Marc Anthony Thompson join for a mini-Sessions Band reunion on "American Land."
 
 **2008:** *High Hopes* *Magic Tour Highlights*
 
 [https://www.youtube.com/embed/B-c6GphpAeY?feature=oembed](https://www.youtube.com/embed/B-c6GphpAeY?feature=oembed)
 
-Bruce and the E Street Band return to Oklahoma after an absence of more than three decades. Their Working on a Dream show at the Bok Center in Tulsa features the tour premieres of “I’m Goin’ Down” and “I’m on Fire.”
+Bruce and the E Street Band return to Oklahoma after an absence of more than three decades. Their Working on a Dream show at the Bok Center in Tulsa features the tour premieres of "I'm Goin' Down" and "I'm on Fire."
 
 **2009:**
 
@@ -98,11 +98,11 @@ The River Tour (2016 edition) moves on to the Sprint Center in Kansas City.
 
 [https://www.youtube.com/embed/uQRzIrBXKdU?feature=oembed](https://www.youtube.com/embed/uQRzIrBXKdU?feature=oembed)
 
-continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn’t present tonight, so theatergoers get the “B” setlist featuring “Long Time Comin’” and “The Ghost of Tom Joad” in place of “Brilliant Disguise” and “Tougher Than the Rest.”
+continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "Long Time Comin'" and "The Ghost of Tom Joad" in place of "Brilliant Disguise" and "Tougher Than the Rest."
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2016-04-07-2.jpg?resize=758%2C719&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2016-04-07-1.jpg?resize=1%2C1&amp;ssl=1)**2018:** *Springsteen on Broadway*
 
-“Lucky Town” makes its tour premiere when Bruce and the E Street Band bring their World Tour to CFG Bank Arena in Baltimore.
+"Lucky Town" makes its tour premiere when Bruce and the E Street Band bring their World Tour to CFG Bank Arena in Baltimore.
 
 **2023:**
 
@@ -118,7 +118,7 @@ Art imitates life (or maybe the other way around, given when the episode was fil
 
 [https://www.youtube.com/embed/qAttAmaM3rs?feature=oembed](https://www.youtube.com/embed/qAttAmaM3rs?feature=oembed)
 
-Thankfully, real-life Bruce Springsteen is hale and healthy tonight, performing his second show at Kia Forum in Inglewood, California. He opens with the tour premiere of “Open All Night,” and Tom Morello makes a guest appearance for the tour premieres of “American Skin (41 Shots)” and “The Ghost of Tom Joad.”
+Thankfully, real-life Bruce Springsteen is hale and healthy tonight, performing his second show at Kia Forum in Inglewood, California. He opens with the tour premiere of "Open All Night," and Tom Morello makes a guest appearance for the tour premieres of "American Skin (41 Shots)" and "The Ghost of Tom Joad."
 
 [https://www.youtube.com/embed/SY0wogqnMQk?feature=oembed](https://www.youtube.com/embed/SY0wogqnMQk?feature=oembed)
 

@@ -1,59 +1,59 @@
-It’s a well-known story: When Bruce Springsteen finally hit the big time with *Born to Run*, the inequity built into his contracts with agent Mike Appel became clear. A ten-month lawsuit over control of Bruce’s publishing rights ensued, with Bruce legally prohibited from recording in the studio until it was resolved.
+It's a well-known story: When Bruce Springsteen finally hit the big time with *Born to Run*, the inequity built into his contracts with agent Mike Appel became clear. A ten-month lawsuit over control of Bruce's publishing rights ensued, with Bruce legally prohibited from recording in the studio until it was resolved.
 
 Ultimately, Bruce paid Appel what amounted to a hefty severance fee and won back control of his entire catalog, to date and ongoing.
 
 His entire catalog, that is, except for a half-dozen songs that Appel wanted to keep for himself.
 
-“Thundercrack” was one of those songs–an early showstopper that Bruce would release on *Tracks* in 1998. “Song for Orphans” was another; Bruce wouldn’t release that one until 2020.
+"Thundercrack" was one of those songs–an early showstopper that Bruce would release on *Tracks* in 1998. "Song for Orphans" was another; Bruce wouldn't release that one until 2020.
 
-“Cherokee Queen” was a third.
+"Cherokee Queen" was a third.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jGPDXzVkOhQ)
 
-“Cherokee Queen” remains unreleased (and presumably unrecorded) to this day. We only know it from surviving bootleg recordings from the Bruce Springsteen Band era, and it’s likely to stay that way, thanks to some cringeworthy 50-year-old lyrics that land uncomfortably on modern ears.
+"Cherokee Queen" remains unreleased (and presumably unrecorded) to this day. We only know it from surviving bootleg recordings from the Bruce Springsteen Band era, and it's likely to stay that way, thanks to some cringeworthy 50-year-old lyrics that land uncomfortably on modern ears.
 
-> *Ah she’s a Cherokee queen*
+> *Ah she's a Cherokee queen*
 > *Yeah prettiest thing I have ever seen*
-> *She’s an Oklahoma lady*
+> *She's an Oklahoma lady*
 > *And she drives me crazy*
-> *I don’t know what it is about her*
-> *But I just can’t live without her*
-> *She’s got me in a trance sir*
-> *In her heart she’s a dancer*
+> *I don't know what it is about her*
+> *But I just can't live without her*
+> *She's got me in a trance sir*
+> *In her heart she's a dancer*
 > *Like the wind she silently comes*
 > *The melody she sweetly hums*
-> *She’s got the words to all my songs*
+> *She's got the words to all my songs*
 > *She sang to me all night long*
 
-> *She goes, “Daddy sing me a cradle song*
+> *She goes, "Daddy sing me a cradle song*
 > *Like you did a long time ago*
 > *Daddy sing me a silly song*
-> *Won’t you rock my crazy bones”*
-> *“Daddy sing me a cradle song*
+> *Won't you rock my crazy bones"*
+> *"Daddy sing me a cradle song*
 > *Like you did a long time ago*
 > *Daddy sing me a silly song*
-> *Won’t you rock my crazy bones”*
+> *Won't you rock my crazy bones"*
 
 > *She strayed off her reservation*
 > *Oh and into my arms*
 > *Bringing bad legislation*
 > *With her Indian charms*
-> *I don’t know what it is she does sir*
+> *I don't know what it is she does sir*
 > *That make me wanna love her*
-> *It’s that crazy way of smiling*
+> *It's that crazy way of smiling*
 > *Oh it just drives the boys wild*
 > *Reminds me of one of my high school haunts*
 > *She knows what I need and she knows what I want*
-> *She’s got the words to all our songs*
+> *She's got the words to all our songs*
 > *And she sang to me all night long*
 
-Yeah… we won’t unpack these particular lyrics.
+Yeah… we won't unpack these particular lyrics.
 
-It’s too bad, though, because if not for Bruce’s insensitive lyrics, “Cherokee Queen” could have been one of his earliest contenders for a radio hit. It’s certainly one of his most ear-friendly and catchy early songs, with David Sancious a particular standout.
+It's too bad, though, because if not for Bruce's insensitive lyrics, "Cherokee Queen" could have been one of his earliest contenders for a radio hit. It's certainly one of his most ear-friendly and catchy early songs, with David Sancious a particular standout.
 
-Bruce seems to have belatedly recognized its potential, too: in early 1983, he bought the rights to it back from Appel, and on May 31st he registered it with the U.S. Copyright Office. “Cherokee Queen” belonged to Bruce again, but to date that copyright remains unutilized.
+Bruce seems to have belatedly recognized its potential, too: in early 1983, he bought the rights to it back from Appel, and on May 31st he registered it with the U.S. Copyright Office. "Cherokee Queen" belonged to Bruce again, but to date that copyright remains unutilized.
 
-Well, mostly unutilized. There actually is a commercially available studio track of “Cherokee Queen” available–it’s just not Bruce performing it. We’ll take a listen to it later this month.
+Well, mostly unutilized. There actually is a commercially available studio track of "Cherokee Queen" available–it's just not Bruce performing it. We'll take a listen to it later this month.
 
 **Cherokee Queen  
 **Never recorded**

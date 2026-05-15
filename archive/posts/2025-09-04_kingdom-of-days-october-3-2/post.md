@@ -30,7 +30,7 @@ Bruce and the E Street Band continue their week of California shows with a stop 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1976-1003-270x300.jpg?resize=758%2C843)
 
-The original River Tour kicks off at the University of Michigan in Ann Arbor, with “Born to Run” opening the show for the first time ever. Bruce is clearly a bit rusty, as he forgets the lyrics to his most well-known song. “Thunder Road” is played twice, the first time mid-set and the second as a final encore with Bob Seger.
+The original River Tour kicks off at the University of Michigan in Ann Arbor, with "Born to Run" opening the show for the first time ever. Bruce is clearly a bit rusty, as he forgets the lyrics to his most well-known song. "Thunder Road" is played twice, the first time mid-set and the second as a final encore with Bob Seger.
 
 **1980:**
 
@@ -48,7 +48,7 @@ The original River Tour kicks off at the University of Michigan in Ann Arbor, wi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1980-10-03b-300x218.jpg?resize=758%2C551)
 
-Bruce plays “” for the very first time, not solo or with the E Street Band, but with Cats on a Smooth Surface at The Stone Pony.
+Bruce plays "" for the very first time, not solo or with the E Street Band, but with Cats on a Smooth Surface at The Stone Pony.
 
 **1982:** [Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)
 
@@ -58,19 +58,19 @@ Bruce plays “” for the very first time, not solo or with the E Street Band, 
 
 [https://www.youtube.com/embed/vJg4g-kUrbs?feature=oembed](https://www.youtube.com/embed/vJg4g-kUrbs?feature=oembed)
 
-A couple of days ahead of the album it comes from, the first single from is released: “.”
+A couple of days ahead of the album it comes from, the first single from is released: "."
 
 **1987:** *Tunnel of Love* [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)
 
 [https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed](https://www.youtube.com/embed/idnJnjV_8rg?feature=oembed)
 
-Bruce plays his first and only show ever in Greece when the Human Rights Now! Tour stops at Athens’ Olympic Stadium.
+Bruce plays his first and only show ever in Greece when the Human Rights Now! Tour stops at Athens' Olympic Stadium.
 
 **1988:**
 
 [https://www.youtube.com/embed/SXX55npP284?feature=oembed](https://www.youtube.com/embed/SXX55npP284?feature=oembed)
 
-Bruce and his new touring band play their second of two World Tour 1992 nights at Phoenix’s America West Arena.
+Bruce and his new touring band play their second of two World Tour 1992 nights at Phoenix's America West Arena.
 
 **1992:**
 
@@ -88,9 +88,9 @@ Bruce plays a solo acoustic show at the Northrop Auditorium in Minneapolis.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1996-10-03b-156x300.jpg?resize=758%2C1458)
 
-A stunning penultimate show for the Rising Tour at Shea Stadium from start to finish: Bruce opens with the tour premiere of “,” plays another double-header of tour premieres mid-set (“” and “Another Thin Line”), along with rare outings for “” and “New York City Serenade” (another tour premiere). Willie Nile and Gary U.S. Bonds guest-star during the encores, and Al Franken makes a guest appearance during the main set.
+A stunning penultimate show for the Rising Tour at Shea Stadium from start to finish: Bruce opens with the tour premiere of "," plays another double-header of tour premieres mid-set ("" and "Another Thin Line"), along with rare outings for "" and "New York City Serenade" (another tour premiere). Willie Nile and Gary U.S. Bonds guest-star during the encores, and Al Franken makes a guest appearance during the main set.
 
-**2003:** [Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Janey, Don’t You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)
+**2003:** [Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)[Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)[Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)
 
 [https://videopress.com/embed/J1syuhbU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/J1syuhbU?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -100,7 +100,7 @@ A stunning penultimate show for the Rising Tour at Shea Stadium from start to fi
 
 [https://www.youtube.com/embed/l8eEFuw_SMU?feature=oembed](https://www.youtube.com/embed/l8eEFuw_SMU?feature=oembed)
 
-The Vote for Change Tour moves on to the next swing state–Michigan–with a show at Cobo Arena. “” and “” replace “” in the set, and “Travelin’ Band” makes its debut in the encores. The Dixie Chicks are in town for their VfC show, too, and they make it over to the Cobo in time to join Bruce and the assembled artists for the final encore. For more highlights from this show, see my .
+The Vote for Change Tour moves on to the next swing state–Michigan–with a show at Cobo Arena. "" and "" replace "" in the set, and "Travelin' Band" makes its debut in the encores. The Dixie Chicks are in town for their VfC show, too, and they make it over to the Cobo in time to join Bruce and the assembled artists for the final encore. For more highlights from this show, see my .
 
 **2004:** [The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)[Darkness on the Edge of Town](http://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[Where the Band Was report](http://estreetshuffle.com/index.php/2018/10/03/where-the-band-was-detroit-october-3-2004/)
 
@@ -112,9 +112,9 @@ The Vote for Change Tour moves on to the next swing state–Michigan–with a sh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2004-10-03b-300x251.jpg?resize=758%2C635)
 
-While driving his kids to school, Bruce notices on the radio that his favorite local public station is holding a membership drive. The station makes a plea for community support, so Bruce decides to provide it, stopping by the station with his guitar and spending over thirty minutes on-air talking with their music director and playing two songs. One of them, ,” will be released on a promotional CD for pledging members.
+While driving his kids to school, Bruce notices on the radio that his favorite local public station is holding a membership drive. The station makes a plea for community support, so Bruce decides to provide it, stopping by the station with his guitar and spending over thirty minutes on-air talking with their music director and playing two songs. One of them, ," will be released on a promotional CD for pledging members.
 
-**2005:** [“If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
+**2005:** ["If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
 [https://www.youtube.com/embed/RWCr-vhU6V4?feature=oembed](https://www.youtube.com/embed/RWCr-vhU6V4?feature=oembed)
 
@@ -132,7 +132,7 @@ In an unusual move, Bruce re-releases in the same year as its original release, 
 
 [https://www.youtube.com/embed/R0qAYq1GVec?feature=oembed](https://www.youtube.com/embed/R0qAYq1GVec?feature=oembed)
 
-Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire album along with the tour premiere of “Last to Die” and a by-request “” Jeremy Chatzky joins the band and Curt Ramm for “,” and the set list continues to benefit from the presence of Curt and his trumpet.
+Night Three of five at Giants Stadium on the Working on a Dream Tour features the entire album along with the tour premiere of "Last to Die" and a by-request "" Jeremy Chatzky joins the band and Curt Ramm for "," and the set list continues to benefit from the presence of Curt and his trumpet.
 
 **2009:** *Born in the U.S.A.* [Jersey Girl.](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[American Land](http://estreetshuffle.com/index.php/2020/01/10/roll-of-the-dice-american-land/)
 
@@ -146,7 +146,7 @@ Bruce makes an appearance at Barnes & Noble at The Grove in Los Angeles to promo
 
 [https://www.youtube.com/embed/odKtPqBfo-U?feature=oembed](https://www.youtube.com/embed/odKtPqBfo-U?feature=oembed)
 
-Bruce makes his official Broadway debut when opens in its first public preview performance at the Walter Kerr Theater in New York City. Bruce dedicates this first show to Tom Petty, who passed away the day before. The show itself is an emotional tour through Bruce’s life and work, stunning those present with its power, poignancy, heart and humor–all of which will grow throughout its long run. I’m in the front row for this historic performance–read my account of the evening in my . Also in attendance tonight: Little Steven, Bruce’s mom, and Bruce’s sister Pam.
+Bruce makes his official Broadway debut when opens in its first public preview performance at the Walter Kerr Theater in New York City. Bruce dedicates this first show to Tom Petty, who passed away the day before. The show itself is an emotional tour through Bruce's life and work, stunning those present with its power, poignancy, heart and humor–all of which will grow throughout its long run. I'm in the front row for this historic performance–read my account of the evening in my . Also in attendance tonight: Little Steven, Bruce's mom, and Bruce's sister Pam.
 
 **2017:** *Springsteen on Broadway*[Where the Band Was report](http://estreetshuffle.com/index.php/2018/10/03/where-the-man-was-broadway-october-3-2017/)
 
@@ -162,7 +162,7 @@ celebrates the one-year anniversary of its theatrical run at the Walter Kerr The
 
 **2018:** *Springsteen on Broadway*
 
-Bruce films videos for “Nightshift” and “” at Samson Stages in Brooklyn.
+Bruce films videos for "Nightshift" and "" at Samson Stages in Brooklyn.
 
 **2022:** [Turn Back the Hands of Time](https://estreetshuffle.com/index.php/2024/07/04/cover-me-turn-back-the-hands-of-time/)
 
@@ -170,7 +170,7 @@ Bruce films videos for “Nightshift” and “” at Samson Stages in Brooklyn.
 
 [https://www.youtube.com/embed/lTRS-dNAgvA?feature=oembed](https://www.youtube.com/embed/lTRS-dNAgvA?feature=oembed)
 
-On social media, Bruce publishes his endorsement of Vice President Kamala Harris in the 2024 U.S. presidential election campaign. Although the endorsement itself was unsurprising, the passion and urgency of Bruce’s plea sustains for days through the news cycle.
+On social media, Bruce publishes his endorsement of Vice President Kamala Harris in the 2024 U.S. presidential election campaign. Although the endorsement itself was unsurprising, the passion and urgency of Bruce's plea sustains for days through the news cycle.
 
 **2024:**
 

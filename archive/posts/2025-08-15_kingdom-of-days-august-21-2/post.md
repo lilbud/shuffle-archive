@@ -2,7 +2,7 @@
 
 *New entry for 1979 and 2024***New for 2025:**
 
-The Castiles co-headline with The Rogues at the Surf ‘n’ See Club in Sea Bright, New Jersey.
+The Castiles co-headline with The Rogues at the Surf ‘n' See Club in Sea Bright, New Jersey.
 
 **1966:**
 
@@ -10,7 +10,7 @@ The Castiles co-headline with The Rogues at the Surf ‘n’ See Club in Sea Bri
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1966-0821-227x300.jpg?resize=758%2C1002)
 
-Bruce and the E Street Band play their second night of a week-long residency at Oliver’s in Boston.
+Bruce and the E Street Band play their second night of a week-long residency at Oliver's in Boston.
 
 **1973:**
 
@@ -18,7 +18,7 @@ Bruce and the E Street Band play their second night of a week-long residency at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1973-0821-203x300.jpg?resize=758%2C1120)
 
-Bruce opens a three-night stand at Alex Cooley’s Electric Ballroom in Atlanta.
+Bruce opens a three-night stand at Alex Cooley's Electric Ballroom in Atlanta.
 
 **1975:**
 
@@ -48,13 +48,13 @@ Bruce and the boys kick off a three-night Darkness Tour stand at Madison Square 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1978-08-21.jpg?resize=758%2C559&amp;ssl=1)
 
-Bruce records “” with the E Street Band at The Power Station in New York City. It will remain in the vault for almost two decades.
+Bruce records "" with the E Street Band at The Power Station in New York City. It will remain in the vault for almost two decades.
 
 **1979:** [Dollhouse](https://estreetshuffle.com/index.php/2020/08/15/roll-of-the-dice-dollhouse/)
 
 [https://www.youtube.com/embed/HpF_i71cqVQ?feature=oembed](https://www.youtube.com/embed/HpF_i71cqVQ?feature=oembed)
 
-At the second of six nights at the Los Angeles Memorial Sports Arena on the River Tour, Flo and Eddie guest-star on “.” (They also provided backing vocals on the original album track.)
+At the second of six nights at the Los Angeles Memorial Sports Arena on the River Tour, Flo and Eddie guest-star on "." (They also provided backing vocals on the original album track.)
 
 **1981:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
@@ -62,19 +62,19 @@ At the second of six nights at the Los Angeles Memorial Sports Arena on the Rive
 
 [https://www.youtube.com/embed/xwVaag7j2KI?feature=oembed](https://www.youtube.com/embed/xwVaag7j2KI?feature=oembed)
 
-At the third of a four-night Giants Stadium stand (there will be two more later in the summer), “” is recorded and eventually released on .
+At the third of a four-night Giants Stadium stand (there will be two more later in the summer), "" is recorded and eventually released on .
 
 **1985:** [Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)*Live 1975-85*
 
 [https://www.youtube.com/embed/HsgPJoBLbFU?feature=oembed](https://www.youtube.com/embed/HsgPJoBLbFU?feature=oembed)
 
-Bruce and Stevie share a stage again, when Bruce joins Steve and The Disciples of Soul at their Stone Pony gig for “” and “Sun City.”
+Bruce and Stevie share a stage again, when Bruce joins Steve and The Disciples of Soul at their Stone Pony gig for "" and "Sun City."
 
 **1987:** [Native American](http://estreetshuffle.com/index.php/2019/10/25/matr-little-steven-and-bruce-springsteen-native-american/)
 
 [https://www.youtube.com/embed/63bxYb-NsOw?feature=oembed](https://www.youtube.com/embed/63bxYb-NsOw?feature=oembed)
 
-Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for “” and “” 
+Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for "" and "" 
 
 **1988:** [Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)[Around and Around.](http://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)(Photo credit: Debra Rothenberg)
 
@@ -118,7 +118,7 @@ Bruce and the reunited E Street Band kick off a five-night Boston stand at the F
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1999-08-21-224x300.png?resize=758%2C1015)
 
-Bruce debuts the modern-day rock arrangement of “” at his Rising Tour show in Tacoma. It will be an E Street Band tour staple ever after. Also tour premiering at this show: “.” For more highlights from this show, see my 
+Bruce debuts the modern-day rock arrangement of "" at his Rising Tour show in Tacoma. It will be an E Street Band tour staple ever after. Also tour premiering at this show: "." For more highlights from this show, see my 
 
 **2002:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)[Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)[](http://estreetshuffle.com/index.php/2018/08/21/where-the-band-was-tacoma-august-21-2002/)*Where the Band Was*[report.](http://estreetshuffle.com/index.php/2018/08/21/where-the-band-was-tacoma-august-21-2002/)
 
@@ -134,9 +134,9 @@ Bruce debuts the modern-day rock arrangement of “” at his Rising Tour show i
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2002-08-21b.jpg?resize=758%2C1285&amp;ssl=1)
 
-Bruce takes a Magic Tour victory lap this week, with each show bringing its own share of surprises and rarities. Tonight’s show in Nashville features the first “” in 28 years, a rare “” and “,” and a tour premiere cover of “” Marah’s Dave Bielanko joins the band when Rosie comes out in the encores. This show is available as part of Bruce’s official archive series–buy or stream it .
+Bruce takes a Magic Tour victory lap this week, with each show bringing its own share of surprises and rarities. Tonight's show in Nashville features the first "" in 28 years, a rare "" and "," and a tour premiere cover of "" Marah's Dave Bielanko joins the band when Rosie comes out in the encores. This show is available as part of Bruce's official archive series–buy or stream it .
 
-**2008:** [Good Rockin’ Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)[I Fought the Law.](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)[here](https://www.youtube.com/playlist?list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS)
+**2008:** [Good Rockin' Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)[Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)[I Fought the Law.](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)[here](https://www.youtube.com/playlist?list=PLJTyL9twk3zCglog4rO23DhkYFmSYQjxS)
 
 [https://www.youtube.com/embed/UGXQoUmXRWo?feature=oembed](https://www.youtube.com/embed/UGXQoUmXRWo?feature=oembed)
 
@@ -146,7 +146,7 @@ Bruce takes a Magic Tour victory lap this week, with each show bringing its own 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2008-08-21.png?resize=758%2C1120&amp;ssl=1)
 
-Bruce and his daughter Jessica appear together on the cover of Harper’s Bazaar.
+Bruce and his daughter Jessica appear together on the cover of Harper's Bazaar.
 
 **2018:**
 
@@ -160,9 +160,9 @@ Bruce sends a pre-recorded birthday video for a Save Our Stages benefit in honor
 
 [https://www.youtube.com/embed/PvOFyHs_P3k?feature=oembed](https://www.youtube.com/embed/PvOFyHs_P3k?feature=oembed)
 
-Bruce is scheduled to perform “Because the Night” with Patti Smith at Clive Davis’ a post-COVID (we thought) celebration of the return of “normal.” A storm builds, however, and the event is cancelled before Bruce and Patti are able to take the stage.
+Bruce is scheduled to perform "Because the Night" with Patti Smith at Clive Davis' a post-COVID (we thought) celebration of the return of "normal." A storm builds, however, and the event is cancelled before Bruce and Patti are able to take the stage.
 
-**2021:** *We Love NYC: The Homecoming Concert,*
+**2021:** *We Love NYC: The Homecoming Concert*,
 
 Join CNN Saturday August 21st for a once in a lifetime concert event! 
 
@@ -176,7 +176,7 @@ WE LOVE NYC – The Homecoming Concert starts at 5 p.m. ET. Presented by
 
 
 
-More than a year after its originally scheduled date, Bruce and the E Street Band take the stage at Citizens Bank Park in Philadelphia, where “” makes its unsurprising tour debut.
+More than a year after its originally scheduled date, Bruce and the E Street Band take the stage at Citizens Bank Park in Philadelphia, where "" makes its unsurprising tour debut.
 
 **2024:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 

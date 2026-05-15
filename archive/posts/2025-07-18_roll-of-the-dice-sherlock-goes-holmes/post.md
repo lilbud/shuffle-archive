@@ -1,6 +1,6 @@
 
 
-Want to know why Bruce became known as the “Fastest Guitar in Asbury Park?”
+Want to know why Bruce became known as the "Fastest Guitar in Asbury Park?"
 
 Give a listen to this Steel Mill original instrumental jam (only performed three times that we know of), and all will be made clear.
 

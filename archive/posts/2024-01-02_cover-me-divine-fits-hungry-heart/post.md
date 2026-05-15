@@ -4,7 +4,7 @@ It was fun while it lasted.
 
 Divine Fits formed back in 2011 as an indie super-group of sorts. Led by Britt Daniel of Spoon and Dan Boeckner of Wolf Parade, Divine Fits was momentarily all the buzz, but in 2013 they disbanded to return to their regular gigs.
 
-During their brief run, Divine Fits released an album of original material and worked up a repertoire of complementary covers for their live sets. One of those was Bruce’s “,” which the band debuted in Australia on Triple J’s show in early 2013.
+During their brief run, Divine Fits released an album of original material and worked up a repertoire of complementary covers for their live sets. One of those was Bruce's "," which the band debuted in Australia on Triple J's show in early 2013.
 
 [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)*Like a Version*
 

@@ -10,9 +10,9 @@ The Castiles play their final gig ever, one last show at Le Teendezvous in New S
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1968-0810-212x300.jpg?resize=758%2C1073)
 
-Bruce continues his solo stand (the second of six nights) opening for Dave Van Ronk at Max’s Kansas City in New York. At one of these shows, Bruce opens with “” and closes with “,” and both are captured on video by Barry Rebo.
+Bruce continues his solo stand (the second of six nights) opening for Dave Van Ronk at Max's Kansas City in New York. At one of these shows, Bruce opens with "" and closes with "," and both are captured on video by Barry Rebo.
 
-**1972:** [Henry Boy](https://estreetshuffle.com/index.php/2022/04/08/roll-of-the-dice-henry-boy/)[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)
+**1972:** [Henry Boy](https://estreetshuffle.com/index.php/2022/04/08/roll-of-the-dice-henry-boy/)[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)
 
 [https://www.youtube.com/embed/BpKsq8Y7_EY?feature=oembed](https://www.youtube.com/embed/BpKsq8Y7_EY?feature=oembed)
 
@@ -22,7 +22,7 @@ Bruce cancels a scheduled gig in Port Chester, New York to make room for ongoing
 
 **1974:** *Born to Run*
 
-There’s a and an with Bruce’s career, and both pivot around Bruce’s legendary residency at New York’s Bottom Line. This is the last show at the Allen Theater in Cleveland. Bruce closes the show with a solo piano tour premiere of “” — a quiet end to this phase of Bruce’s career.
+There's a and an with Bruce's career, and both pivot around Bruce's legendary residency at New York's Bottom Line. This is the last show at the Allen Theater in Cleveland. Bruce closes the show with a solo piano tour premiere of "" — a quiet end to this phase of Bruce's career.
 
 **1975:** *before**after**before*[For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)
 
@@ -32,13 +32,13 @@ There’s a and an with Bruce’s career, and both pivot around Bruce’s legend
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/The_Plain_Dealer_1975_08_11_29.jpg?resize=758%2C600&amp;ssl=1)
 
-At Atlantic Studios in New York City, Bruce and the E Street Band record an alternate arrangement of “” Almost four decades later, Bruce will complete and release it on 
+At Atlantic Studios in New York City, Bruce and the E Street Band record an alternate arrangement of "" Almost four decades later, Bruce will complete and release it on 
 
 **1977:** [Racing in the Street.](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)*The Promise.*
 
 [https://www.youtube.com/embed/ikEcHsEHuU4?list=PLp97J3OSn7Isbkt20--RCkDWLCYDDJ3wX](https://www.youtube.com/embed/ikEcHsEHuU4?list=PLp97J3OSn7Isbkt20--RCkDWLCYDDJ3wX)
 
-Bruce and the E Street Band take the Darkness Tour to the Community War Memorial in Rochester. Listen to the boys open the second set with “” below.
+Bruce and the E Street Band take the Darkness Tour to the Community War Memorial in Rochester. Listen to the boys open the second set with "" below.
 
 **1978:** [Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)
 
@@ -50,7 +50,7 @@ Bruce (along with most of the E Street Band and Asbury Jukes) attends and perfor
 
 **1982:**
 
-Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in style, opening with an acoustic “” (with only Roy as accompaniment) and the only tour performance of “Rosalita (Come Out Tonight).” Steve Van Zandt joins the band for “” and “”
+Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in style, opening with an acoustic "" (with only Roy as accompaniment) and the only tour performance of "Rosalita (Come Out Tonight)." Steve Van Zandt joins the band for "" and ""
 
 **1992:** [Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[Darlington County.](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)
 
@@ -60,7 +60,7 @@ Bruce wraps up the eleven-night World Tour 1992 stand at the Meadowlands in styl
 
 [https://www.youtube.com/embed/2rbXzurBHHA?feature=oembed](https://www.youtube.com/embed/2rbXzurBHHA?feature=oembed)
 
-Entertainment Tonight airs a segment covering the end of the marathon run of shows. Here it is, with footage from tonight’s show:
+Entertainment Tonight airs a segment covering the end of the marathon run of shows. Here it is, with footage from tonight's show:
 
 [https://www.youtube.com/embed/5NN9Pfopm8w?feature=oembed](https://www.youtube.com/embed/5NN9Pfopm8w?feature=oembed)
 
@@ -82,15 +82,15 @@ Bruce makes a guest appearance at Cheers in Long Branch for the second time in a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1995-08-10b.png?resize=559%2C2297&amp;ssl=1)
 
-After practicing with the band the night prior, Bruce joins local band The Fanatics for six songs at Toby Scott’s wedding in Whitefish, Montana, including “,” and “”
+After practicing with the band the night prior, Bruce joins local band The Fanatics for six songs at Toby Scott's wedding in Whitefish, Montana, including "," and ""
 
-**1996:** [Hold On, I’m Comin’](http://estreetshuffle.com/index.php/2019/04/24/matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/)[Long Tall Sally.](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
+**1996:** [Hold On, I'm Comin'](http://estreetshuffle.com/index.php/2019/04/24/matr-bruce-springsteen-and-sam-moore-hold-on-im-comin/)[Long Tall Sally.](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
 
 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1996-08-10.jpg?resize=561%2C1438&amp;ssl=1)
 
-Night Two on the Rising Tour is pretty similar to opening night. At the MCI Center in Washington, DC, Bruce drops “” and replaces it with the tour premiere of “.”
+Night Two on the Rising Tour is pretty similar to opening night. At the MCI Center in Washington, DC, Bruce drops "" and replaces it with the tour premiere of "."
 
 **2002:** [Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)
 
@@ -98,9 +98,9 @@ Night Two on the Rising Tour is pretty similar to opening night. At the MCI Cent
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-10-270x300.png?resize=758%2C842)
 
-Bruce (with Evan in tow as guitar tech) takes the summer leg of his solo acoustic tour into its home stretch in the Pacific Northwest, starting with this gorgeous set in Portland. Bruce opens with the tour premiere of “” (played here for the first and only time since the 1992-93 tour to date) and plays beautiful renditions of “” “,” and “” as well. For more highlights from this show, see my .
+Bruce (with Evan in tow as guitar tech) takes the summer leg of his solo acoustic tour into its home stretch in the Pacific Northwest, starting with this gorgeous set in Portland. Bruce opens with the tour premiere of "" (played here for the first and only time since the 1992-93 tour to date) and plays beautiful renditions of "" "," and "" as well. For more highlights from this show, see my .
 
-**2005:** [Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)[Valentine’s Day,](http://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)[One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Where the Band Was report](http://estreetshuffle.com/index.php/2018/08/10/where-the-band-was-portland-august-10-2005/)
+**2005:** [Soul Driver](https://estreetshuffle.com/index.php/2023/01/22/roll-of-the-dice-soul-driver/)[Valentine's Day,](http://estreetshuffle.com/index.php/2018/06/12/roll-of-the-dice-valentines-day/)[One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)[Two Hearts](http://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)[Where the Band Was report](http://estreetshuffle.com/index.php/2018/08/10/where-the-band-was-portland-august-10-2005/)
 
 [https://www.youtube.com/embed/-hWWOHqCtLU?feature=oembed](https://www.youtube.com/embed/-hWWOHqCtLU?feature=oembed)
 

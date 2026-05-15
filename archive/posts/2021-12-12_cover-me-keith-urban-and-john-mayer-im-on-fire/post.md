@@ -1,8 +1,8 @@
 
 
-There are enough covers of “” to fuel a blog of its own, but this is one of my favorites–the guitar interplay is just exquisite, and you’d expect no less from John Mayer and Keith Urban.
+There are enough covers of "" to fuel a blog of its own, but this is one of my favorites–the guitar interplay is just exquisite, and you'd expect no less from John Mayer and Keith Urban.
 
-[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
+[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
 From their 2010 concert at the Gorge Amphitheater in George, WA.
 

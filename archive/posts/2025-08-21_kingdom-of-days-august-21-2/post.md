@@ -106,7 +106,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Happy Birthday Joe Strummer](https://www.youtube.com/watch?v=PvOFyHs_P3k)
 
-**2021:** Bruce is scheduled to perform "Because the Night" with Patti Smith at Clive Davis' *We Love NYC: The Homecoming Concert,* a post-COVID (we thought) celebration of the return of "normal." A storm builds, however, and the event is cancelled before Bruce and Patti are able to take the stage.
+**2021:** Bruce is scheduled to perform "Because the Night" with Patti Smith at Clive Davis' *We Love NYC: The Homecoming Concert*, a post-COVID (we thought) celebration of the return of "normal." A storm builds, however, and the event is cancelled before Bruce and Patti are able to take the stage.
 > Join CNN Saturday August 21st for a once in a lifetime concert event!
 >
 > WE LOVE NYC – The Homecoming Concert starts at 5 p.m. ET. Presented by [@Expedia](https://twitter.com/Expedia?ref_src=twsrc%5Etfw) [pic.twitter.com/A5RXHG3fHs](https://t.co/A5RXHG3fHs)

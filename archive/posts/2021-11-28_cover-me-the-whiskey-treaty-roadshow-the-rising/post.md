@@ -16,7 +16,7 @@ Lots of documentaries have captured the final days of a band. Not many capture t
 
 Over the last nine years, The Whiskey Treaty Roadshow (now a band named after a film named after a festival) has delighted audiences across the country with their original material and inventive covers.
 
-In January 2020, weeks before the pandemic shut down the world, The Treaty released their debut studio album, *Band Together,* featuring The Black Crowes's Steve Dorman on drums and Wilco's Pat Sansone on bass. The album's debut single, "Don't Cross My Land," made *Rolling Stone's* "Ten Best Country and Americana Songs to Hear Right Now" that month.
+In January 2020, weeks before the pandemic shut down the world, The Treaty released their debut studio album, *Band Together*, featuring The Black Crowes's Steve Dorman on drums and Wilco's Pat Sansone on bass. The album's debut single, "Don't Cross My Land," made *Rolling Stone's* "Ten Best Country and Americana Songs to Hear Right Now" that month.
 
 [Watch on Youtube: Don't Cross My Land](https://www.youtube.com/watch?v=mFcXfjpmKRM)
 

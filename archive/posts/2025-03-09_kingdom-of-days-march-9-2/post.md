@@ -16,7 +16,7 @@ That night, the boys play two shows at Liberty Hall.
 
 ![](../../assets/2020/03/1975-03-09.jpg)
 
-**1985:** On this week's edition of *American Top 40,* host Casey Kasem regales listeners with tales of Bruce's Monopoly prowess while introducing his latest chart-climber, "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)."
+**1985:** On this week's edition of *American Top 40*, host Casey Kasem regales listeners with tales of Bruce's Monopoly prowess while introducing his latest chart-climber, "[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)."
 
 [https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2022/03/AT40-1985-03-09.mp3?_=2)
 

@@ -16,7 +16,7 @@ Bruce and the E Street Band wrap the first leg of the Tour at the Carrier Dome i
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1985-01-27b.png?resize=758%2C422&amp;ssl=1)
 
-Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite Pop/Rock Album (for ), and Favorite Pop/Rock Male Video Artist. He’s not in attendance though, so his awards are accepted on his behalf by…
+Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite Pop/Rock Album (for ), and Favorite Pop/Rock Male Video Artist. He's not in attendance though, so his awards are accepted on his behalf by…
 
 **1986:** *Born in the U.S.A.*
 
@@ -28,7 +28,7 @@ Bruce wins three American Music Awards: Favorite Pop/Rock Male Artist, Favorite 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1986-01-27.png?resize=758%2C369&amp;ssl=1)
 
-Bruce debuts “” at the AIDS benefit in Los Angeles.
+Bruce debuts "" at the AIDS benefit in Los Angeles.
 
 **1994:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)*Commitment to Life*
 
@@ -48,9 +48,9 @@ Bruce takes his solo tour to Tokyo, playing the first of four shows at the Inter
 
 [https://www.youtube.com/embed/wIjVa0j4N68?feature=oembed](https://www.youtube.com/embed/wIjVa0j4N68?feature=oembed)
 
-: Bruce’s sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.
+: Bruce's sixteenth studio album, is released. Meanwhile, Bruce and the E Street Band rehearse for their upcoming Super Bowl halftime show at Raymond James Stadium in Tampa.
 
-**2009***Working on a Dream,*
+**2009***Working on a Dream*,
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ](https://www.youtube.com/embed/videoseries?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
 
@@ -60,9 +60,9 @@ Bruce takes his solo tour to Tokyo, playing the first of four shows at the Inter
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2009-01-27b.png?resize=758%2C1448&amp;ssl=1)
 
-The River Tour (2016 Edition) moves on to Madison Square Garden, where “” makes its tour premiere.
+The River Tour (2016 Edition) moves on to Madison Square Garden, where "" makes its tour premiere.
 
-**2016:** [Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)
+**2016:** [Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)
 
 [https://www.youtube.com/embed/2vkOSjgsP0s?feature=oembed](https://www.youtube.com/embed/2vkOSjgsP0s?feature=oembed)
 
@@ -72,7 +72,7 @@ The River Tour (2016 Edition) moves on to Madison Square Garden, where “” ma
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/The_Journal_Times_Fri__Jan_29__2016_.jpg?resize=758%2C967&amp;ssl=1)
 
-Night 3 in Perth features the first and only performance of “” in Australia to date.
+Night 3 in Perth features the first and only performance of "" in Australia to date.
 
 **2017:**[Drive All Night](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)
 

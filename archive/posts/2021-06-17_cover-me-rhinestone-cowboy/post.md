@@ -2,7 +2,7 @@
 
 Sure, Bruce.
 
-I’m sure that’s all it was: a beautiful song that came to mind in the moment when you were putting together your set list for your *Western Stars* film.
+I'm sure that's all it was: a beautiful song that came to mind in the moment when you were putting together your set list for your *Western Stars* film.
 
 It probably had nothing to do with its inspiration, a country singer named David Allan Coe, who wore rhinestones and a mask on stage. Why? Because, his father taught him an important lesson:
 
@@ -10,17 +10,17 @@ It probably had nothing to do with its inspiration, a country singer named David
 
 ![](../../assets/2021/06/dac.jpg)
 
-It’s probably just happenstance that the song Coe inspired–made famous by Glenn Campbell (but originally written and recorded by Larry Weiss)–was about an obscure singer questing for stardom but just barely scraping by, just like Bruce was at the time.
+It's probably just happenstance that the song Coe inspired–made famous by Glenn Campbell (but originally written and recorded by Larry Weiss)–was about an obscure singer questing for stardom but just barely scraping by, just like Bruce was at the time.
 
 [Watch on Youtube: Glen Campbell - Rhinestone Cowboy](https://www.youtube.com/watch?v=8kAU3B9Pi_U)
 
-It’s a *complete* coincidence that at the very moment Bruce exploded into mainstream stardom with *Born to Run* in the autumn of 1975, Campbell’s song was riding the top of the charts.
+It's a *complete* coincidence that at the very moment Bruce exploded into mainstream stardom with *Born to Run* in the autumn of 1975, Campbell's song was riding the top of the charts.
 
 ![](../../assets/2021/06/clip_79697004.jpg)
 
-And of course, performing a song named after an imitation wasn’t at all a wink from a small-town New Jersey rocker to his fans while performing a suite of Western-themed songs from his barn.
+And of course, performing a song named after an imitation wasn't at all a wink from a small-town New Jersey rocker to his fans while performing a suite of Western-themed songs from his barn.
 
-Nope, “Rhinestone Cowboy” was just a lovely song to end a film with.
+Nope, "Rhinestone Cowboy" was just a lovely song to end a film with.
 
 Sometimes a rhinestone is just… well, a rhinestone.
 

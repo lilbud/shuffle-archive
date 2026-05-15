@@ -28,7 +28,7 @@ Finding themselves with time to spare following a gig at Duke University, Bruce 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0329.jpg?resize=758%2C812&amp;ssl=1)
 
-: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform “One Step Up” below.
+: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform "One Step Up" below.
 
 **1988**
 
@@ -38,7 +38,7 @@ is certified 3x multi-platinum by the Recording Industry Association of America.
 
 **1989:***Video Anthology/1978-1988*
 
-Bruce opens with “Trapped” and pulls out the Magic tour premiere of “Point Blank” and a very rare “Your Own Worst Enemy” at his KeyArena show in Seattle.
+Bruce opens with "Trapped" and pulls out the Magic tour premiere of "Point Blank" and a very rare "Your Own Worst Enemy" at his KeyArena show in Seattle.
 
 **2008:**
 
@@ -48,9 +48,9 @@ Bruce opens with “Trapped” and pulls out the Magic tour premiere of “Point
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-29.png?resize=758%2C1155&amp;ssl=1)
 
-Night Two in Philadelphia features a rare (outside of Philly, anyway) “Streets of Philadelphia” and a glorious, brassy “Kitty’s Back.” Also today: Bruce appears on the cover of the new issue of which features an interview with him by Jon Stewart.
+Night Two in Philadelphia features a rare (outside of Philly, anyway) "Streets of Philadelphia" and a glorious, brassy "Kitty's Back." Also today: Bruce appears on the cover of the new issue of which features an interview with him by Jon Stewart.
 
-**2012:***Rolling Stone,*
+**2012:***Rolling Stone*,
 
 [https://www.youtube.com/embed/QimUtzbHEvg?feature=oembed](https://www.youtube.com/embed/QimUtzbHEvg?feature=oembed)
 
@@ -68,7 +68,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and President Barack Obama release Episode 7 of their podcast, entitled “Finding Home: Fatherhood.”
+Bruce and President Barack Obama release Episode 7 of their podcast, entitled "Finding Home: Fatherhood."
 
 **2021:** *Renegades: Born in the U.S.A.*
 
@@ -78,7 +78,7 @@ Bruce and President Barack Obama release Episode 7 of their podcast, entitled �
 
 <https://estreetshuffle.com/wp-content/uploads/2025/03/8a34-53b8-4d4c-a599-a8b2b4e38fc0.mp3>
 
-“Darkness on the Edge of Town” makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.
+"Darkness on the Edge of Town" makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.
 
 **2023:**
 

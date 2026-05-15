@@ -16,7 +16,7 @@ Child plays an outdoor set at West End Park in Long Branch, New Jersey. (Note: B
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Asbury_Park_Press_Mon__May_5__1969_-1-scaled.jpg?resize=758%2C1234&amp;ssl=1)
 
-Bruce and the E Street Band headline Montclair State University’s Spring Carnival, opening with “New York City Serenade.”
+Bruce and the E Street Band headline Montclair State University's Spring Carnival, opening with "New York City Serenade."
 
 **1974:**
 
@@ -24,7 +24,7 @@ Bruce and the E Street Band headline Montclair State University’s Spring Carni
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0504.jpg?resize=758%2C533&amp;ssl=1)
 
-At a recording session at the Record Plant in New York City, Bruce works on “Lonely Night in the Park” and “She’s the One.”
+At a recording session at the Record Plant in New York City, Bruce works on "Lonely Night in the Park" and "She's the One."
 
 **1975:** *Born to Run*
 
@@ -36,21 +36,21 @@ Bruce plays his first-ever show in Mississippi, at the Coliseum in Jackson.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-05-04.jpg?resize=758%2C729&amp;ssl=1)
 
-Bruce and the E Street Band record “Murder Incorporated” at the Power Station in New York City.
+Bruce and the E Street Band record "Murder Incorporated" at the Power Station in New York City.
 
 **1982:**
 
 [https://www.youtube.com/embed/oshU-C5zTWE?feature=oembed](https://www.youtube.com/embed/oshU-C5zTWE?feature=oembed)
 
-As “I’m on Fire” starts its decline on the charts, host Casey Kasem shares the story of the night Bruce broke into Graceland.
+As "I'm on Fire" starts its decline on the charts, host Casey Kasem shares the story of the night Bruce broke into Graceland.
 
 **1985:** *American Top 40*<https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1985-05-04.mp3>
 
-On Night Two at the Air Canada Center in Toronto, Bruce plays “Incident on 57th Street” for the first time ever in Canada.
+On Night Two at the Air Canada Center in Toronto, Bruce plays "Incident on 57th Street" for the first time ever in Canada.
 
 **2000:** <https://estreetshuffle.com/wp-content/uploads/2025/05/2000-05-04-D2-Track02-Incident-On-57th-Street.mp3>
 
-Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the ceremony, Bruce inducts Frank Sinatra and plays “I Thank You” and “Glory Days” with La Bamba and The Hubcaps.
+Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the ceremony, Bruce inducts Frank Sinatra and plays "I Thank You" and "Glory Days" with La Bamba and The Hubcaps.
 
 **2008:**
 
@@ -66,7 +66,7 @@ Bruce is inducted into the New Jersey Hall of Fame by Danny DeVito. Later in the
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-04b.jpg?resize=758%2C671&amp;ssl=1)
 
-Bruce brings the Working on a Dream Tour to the Nassau Coliseum in Uniondale, New York, where he plays the tour premieres of “Expressway to Your Heart” (by request) and “Rendezvous.” This show is available as part of Bruce’s official archive series.
+Bruce brings the Working on a Dream Tour to the Nassau Coliseum in Uniondale, New York, where he plays the tour premieres of "Expressway to Your Heart" (by request) and "Rendezvous." This show is available as part of Bruce's official archive series.
 
 **2009:**
 
@@ -82,7 +82,7 @@ Bruce brings the Working on a Dream Tour to the Nassau Coliseum in Uniondale, Ne
 
 [https://www.youtube.com/embed/fxykBcPTu7s?feature=oembed](https://www.youtube.com/embed/fxykBcPTu7s?feature=oembed)
 
-Bruce followed up an amazing Night One in Solna, Sweden, with an even hotter Night Two, opening with “My Love Will Not Let You Down,” “Leap of Faith,” “I’m a Rocker, “and “Better Days,” before finally dipping into the album. As he did the prior night, Bruce plays another full album–this time .
+Bruce followed up an amazing Night One in Solna, Sweden, with an even hotter Night Two, opening with "My Love Will Not Let You Down," "Leap of Faith," "I'm a Rocker, "and "Better Days," before finally dipping into the album. As he did the prior night, Bruce plays another full album–this time .
 
 **2013:** *Wrecking Ball**Darkness on the Edge of Town*
 
@@ -102,13 +102,13 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce makes a surprise appearance at the Saban Theater in Los Angeles, joining Little Steven & The Disciples of Soul on stage for three songs: “Tenth Avenue Freeze-Out,” “Sun City,” and “I Don’t Want to Go Home.”
+Bruce makes a surprise appearance at the Saban Theater in Los Angeles, joining Little Steven & The Disciples of Soul on stage for three songs: "Tenth Avenue Freeze-Out," "Sun City," and "I Don't Want to Go Home."
 
 **2019:**
 
 [https://www.youtube.com/embed/3quQa4c7n_4?feature=oembed](https://www.youtube.com/embed/3quQa4c7n_4?feature=oembed)
 
-In the area early for his upcoming shows in Dublin, Bruce stops by The Burrow pub in Rathangan, County Kildare, his Irish ancestral home. Over a pint, he leads the locals through a verse of “My Hometown.”
+In the area early for his upcoming shows in Dublin, Bruce stops by The Burrow pub in Rathangan, County Kildare, his Irish ancestral home. Over a pint, he leads the locals through a verse of "My Hometown."
 
 **2023:**
 

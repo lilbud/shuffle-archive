@@ -2,7 +2,7 @@
 
 *No updates***New for 2025:**
 
-Adele Springsteen delights her fifteen -year-old son Bruce on Christmas morning, presenting him with a brand-new Japanese electric guitar and amplifier. Decades later, Bruce will retell the tale in “.”
+Adele Springsteen delights her fifteen -year-old son Bruce on Christmas morning, presenting him with a brand-new Japanese electric guitar and amplifier. Decades later, Bruce will retell the tale in "."
 
 **1964:** [The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)
 

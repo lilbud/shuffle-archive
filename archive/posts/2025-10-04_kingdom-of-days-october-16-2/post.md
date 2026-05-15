@@ -18,7 +18,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1971-1016-300x189.jpg?resize=758%2C478)
 
-Bruce and the E Street Band play their second of five nights at Oliver’s in Boston.
+Bruce and the E Street Band play their second of five nights at Oliver's in Boston.
 
 **1973:**
 
@@ -30,9 +30,9 @@ Bruce holds a recording session for his upcoming third album at 914 Sound Studio
 
 **1974:**
 
-Bruce and the E Street Band kick off a four-night/six-show stand at The Roxy Theater in West Hollywood. Thanks to Columbia Records (but unknown to Bruce), the audience is filled with industry insiders and media, resulting in a quieter-than-usual audience and at least one underwhelmed critic. Among the notables in the audience: Jackson Browne, Neil Diamond, Jim Messina, Jack Nicholson, Peter Boyle, Robert De Niro, and Carole King, to whom Bruce dedicates his debut of her song, “.” It’s speculated that De Niro swiped Bruce’s “you talking to ” routine performed at this show for his part in 
+Bruce and the E Street Band kick off a four-night/six-show stand at The Roxy Theater in West Hollywood. Thanks to Columbia Records (but unknown to Bruce), the audience is filled with industry insiders and media, resulting in a quieter-than-usual audience and at least one underwhelmed critic. Among the notables in the audience: Jackson Browne, Neil Diamond, Jim Messina, Jack Nicholson, Peter Boyle, Robert De Niro, and Carole King, to whom Bruce dedicates his debut of her song, "." It's speculated that De Niro swiped Bruce's "you talking to " routine performed at this show for his part in 
 
-**1975:** [Goin’ Back](https://estreetshuffle.com/index.php/2021/02/07/cover-me-goin-back/)*me?**Taxi Driver.*
+**1975:** [Goin' Back](https://estreetshuffle.com/index.php/2021/02/07/cover-me-goin-back/)*me?**Taxi Driver.*
 
 
 
@@ -54,13 +54,13 @@ Bruce and the boys bring the Lawsuit Tour to The College of William and Mary in 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47632577371_ef190e6387_o-210x300.jpg?resize=758%2C1083)
 
-In town for a River Tour show the next night, Bruce goes out driving and ends up in a movie theater, where he catches the new Woody Allen movie, A fan notices him, strikes up a conversation, and invites him over to his house for dinner. And this is how Bruce meets the Satanovksys and the now famous “Miss Sophie.”
+In town for a River Tour show the next night, Bruce goes out driving and ends up in a movie theater, where he catches the new Woody Allen movie, A fan notices him, strikes up a conversation, and invites him over to his house for dinner. And this is how Bruce meets the Satanovksys and the now famous "Miss Sophie."
 
 **1980:***Stardust Memories.*
 
 [https://www.youtube.com/embed/ezPRW1wt0NE?feature=oembed](https://www.youtube.com/embed/ezPRW1wt0NE?feature=oembed)
 
-Steve Van Zandt releases “Sun City,” a single by Artists United Against Apartheid in protest of the South African policy, publicly and collectively declaring a boycott of the controversial resort. Bruce is one of the many, many artists appearing in the song.
+Steve Van Zandt releases "Sun City," a single by Artists United Against Apartheid in protest of the South African policy, publicly and collectively declaring a boycott of the controversial resort. Bruce is one of the many, many artists appearing in the song.
 
 **1985:**
 
@@ -92,21 +92,21 @@ Bruce rehearses with Joe Grushecky and the Houserockers at the Stone Pony for th
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-16b-245x300.png?resize=758%2C928)
 
-Bruce plays “” for the very first time, nine years before its album release, at this solo acoustic show at the Paramount Theater in Denver.
+Bruce plays "" for the very first time, nine years before its album release, at this solo acoustic show at the Paramount Theater in Denver.
 
-**1996:** [Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
+**1996:** [Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
 
 [https://www.youtube.com/embed/qTMe5fUtv3g?feature=oembed](https://www.youtube.com/embed/qTMe5fUtv3g?feature=oembed)
 
-Bruce and the E Street Band bring the Rising Tour to Barcelona, where the show is filmed and released on DVD as Bruce tour premieres “” on solo piano (forgetting the lyrics), and the setlist also includes a rare “.”
+Bruce and the E Street Band bring the Rising Tour to Barcelona, where the show is filmed and released on DVD as Bruce tour premieres "" on solo piano (forgetting the lyrics), and the setlist also includes a rare "."
 
 **2002:** *Live in Barcelona.* [Spirit in the Night](http://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89)
 
-Bruce, Patti, Roy, Billy Joel, India.Arie, and John Legend perform at a benefit for presidential candidate Barack Obama in New York City. Bruce joins John Legend for “If You’re Out There” before performing “” and “This Hard Land” as solo acoustic numbers. Finally he, Patti, and Roy join Billy and his band for a set of combined Joel/Springsteen classics capped by a show-closing “” with the Obamas.
+Bruce, Patti, Roy, Billy Joel, India.Arie, and John Legend perform at a benefit for presidential candidate Barack Obama in New York City. Bruce joins John Legend for "If You're Out There" before performing "" and "This Hard Land" as solo acoustic numbers. Finally he, Patti, and Roy join Billy and his band for a set of combined Joel/Springsteen classics capped by a show-closing "" with the Obamas.
 
-**2008:** *Change Rocks*[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Signed, Sealed, Delivered I’m Yours](https://estreetshuffle.com/index.php/2021/11/29/matr-john-legend-bruce-springsteen-billy-joel-and-india-arie-signed-sealed-delivered-im-yours/)
+**2008:** *Change Rocks*[The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Signed, Sealed, Delivered I'm Yours](https://estreetshuffle.com/index.php/2021/11/29/matr-john-legend-bruce-springsteen-billy-joel-and-india-arie-signed-sealed-delivered-im-yours/)
 
 [https://www.youtube.com/embed/cDCy0G9MpyU?feature=oembed](https://www.youtube.com/embed/cDCy0G9MpyU?feature=oembed)
 
@@ -118,7 +118,7 @@ Bruce, Patti, Roy, Billy Joel, India.Arie, and John Legend perform at a benefit 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2008-10-16-193x300.png?resize=758%2C1179)
 
-Bruce guest-stars at Right to Rock 2012 in New York City, honoring Steve Van Zandt. Bruce salutes his best friend before joining him on stage (along with Southside Johnny, Elvis Costello, and a host of stars) for three of Steve’s songs.
+Bruce guest-stars at Right to Rock 2012 in New York City, honoring Steve Van Zandt. Bruce salutes his best friend before joining him on stage (along with Southside Johnny, Elvis Costello, and a host of stars) for three of Steve's songs.
 
 **2012:**
 
@@ -152,7 +152,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Among 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-16d-300x300.jpg?resize=758%2C758)
 
-Bruce, Patti, their daughter Jessica, and Bruce’s co-director Thom Zimny attend a special screening of at the Metrograph in New York City. Following the show, Bruce and Thom are interviewed by Warner Bros chairman Toby Emmerich.
+Bruce, Patti, their daughter Jessica, and Bruce's co-director Thom Zimny attend a special screening of at the Metrograph in New York City. Following the show, Bruce and Thom are interviewed by Warner Bros chairman Toby Emmerich.
 
 **2019:** *Western Stars*
 

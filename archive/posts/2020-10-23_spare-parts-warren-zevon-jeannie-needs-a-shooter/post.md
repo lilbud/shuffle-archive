@@ -34,7 +34,7 @@ Just how extensive that help was varies by account from a collaborative effort t
 
 For what it's worth, though, Bruce is listed first on the songwriting credit, although that may simply be an alphabetical matter.
 
-Zevon released "Jeannie Needs a Shooter" on his fourth album, *Bad Luck Streak in Dancing School,* and it quickly became a fan favorite.
+Zevon released "Jeannie Needs a Shooter" on his fourth album, *Bad Luck Streak in Dancing School*, and it quickly became a fan favorite.
 
 Oh, and Bruce finally did play the original "Janey Needs a Shooter" for Warren once they'd finished their collaborative version, and only then did Warren sheepishly realize how far afield he'd strayed in his interpretation.
 

@@ -2,7 +2,7 @@
 
 *Audio for 1978 and 1979; video for 2009 and 2013***New for 2025:**
 
-Bruce and the E Street Band play a gig at the State University of New York in Oneonta. Even the school’s yearbook can’t spell his name correctly.
+Bruce and the E Street Band play a gig at the State University of New York in Oneonta. Even the school's yearbook can't spell his name correctly.
 
 **1974:**
 
@@ -10,7 +10,7 @@ Bruce and the E Street Band play a gig at the State University of New York in On
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1974-0921-218x300.jpg?resize=758%2C1043)
 
-Bruce plays his first-ever show in Minnesota at Minneapolis’ Guthrie Theater.
+Bruce plays his first-ever show in Minnesota at Minneapolis' Guthrie Theater.
 
 **1975:**
 
@@ -18,7 +18,7 @@ Bruce plays his first-ever show in Minnesota at Minneapolis’ Guthrie Theater.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1975-09-21-165x300.jpg?resize=758%2C1378)
 
-Bruce and the E Street Band wrap up their spectacular three-night Darkness Tour homecoming stand at Passaic’s Capitol Theater. There won’t be a birthday show this year, so the band and crew take the opportunity to present Bruce with an early on-stage “birthday cake.”
+Bruce and the E Street Band wrap up their spectacular three-night Darkness Tour homecoming stand at Passaic's Capitol Theater. There won't be a birthday show this year, so the band and crew take the opportunity to present Bruce with an early on-stage "birthday cake."
 
 **1978:**
 
@@ -30,7 +30,7 @@ Bruce and the E Street Band wrap up their spectacular three-night Darkness Tour 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1978-09-21-300x195.jpg?resize=758%2C492)
 
-Bruce headlines the first of two famous “No Nukes” concerts at Madison Square Garden under the aegis of Musicians United for Safe Energy (MUSE), performing an abbreviated but well-documented set that features the very first performance of “.” That debut performance will become the song’s official video, and audio recordings of “” and “” (with Jackson Browne and Rosemary Butler) will be released on the official companion album released toward the end of the year. This show is available as part of Bruce’s official archive series (get it ), and selections are available on video in the concert film, .
+Bruce headlines the first of two famous "No Nukes" concerts at Madison Square Garden under the aegis of Musicians United for Safe Energy (MUSE), performing an abbreviated but well-documented set that features the very first performance of "." That debut performance will become the song's official video, and audio recordings of "" and "" (with Jackson Browne and Rosemary Butler) will be released on the official companion album released toward the end of the year. This show is available as part of Bruce's official archive series (get it ), and selections are available on video in the concert film, .
 
 **1979:** [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)[Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)[Stay](http://estreetshuffle.com/index.php/2018/07/22/meeting-across-the-river-bruce-springsteen-and-jackson-browne-stay/)[here](http://live.brucespringsteen.net/live-music/0,20918/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-9-21-1979-Madison-Square-Garden-New-York-NY.html)*The Legendary 1979 No Nukes Concerts*
 
@@ -58,7 +58,7 @@ Bruce makes a guest appearance with Dave Edmunds at the Peppermint Lounge in New
 
 [https://www.youtube.com/embed/4d4CzXI7yss?feature=oembed](https://www.youtube.com/embed/4d4CzXI7yss?feature=oembed)
 
-Bruce and the band play their first of two Born in the U.S.A. shows at Pittsburgh’s Civic Arena, where Bruce throws a little shade on President Reagan’s endorsement of his music from a few days prior. Earlier in the day, becomes the first-ever compact disc to be pressed in the United States.
+Bruce and the band play their first of two Born in the U.S.A. shows at Pittsburgh's Civic Arena, where Bruce throws a little shade on President Reagan's endorsement of his music from a few days prior. Earlier in the day, becomes the first-ever compact disc to be pressed in the United States.
 
 **1984:** *Born in the U.S.A.*
 
@@ -74,7 +74,7 @@ Bruce and the band play their first of two Born in the U.S.A. shows at Pittsburg
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1984-09-21b-256x300.jpg?resize=758%2C888)
 
-The Human Rights Now! Tour hits the American west coast with a show at the Los Angeles Memorial Coliseum. Joan Baez makes a guest appearance, Bruce plays “Jungleland” for the last time until the Reunion Tour, and Bono joins the company for an encore of “.”
+The Human Rights Now! Tour hits the American west coast with a show at the Los Angeles Memorial Coliseum. Joan Baez makes a guest appearance, Bruce plays "Jungleland" for the last time until the Reunion Tour, and Bono joins the company for an encore of "."
 
 **1988:** [Chimes of Freedom](http://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)
 
@@ -90,13 +90,13 @@ The Human Rights Now! Tour hits the American west coast with a show at the Los A
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1988-09-21b-65x300.jpg?resize=758%2C3498)
 
-Night Four (of six) in Philadelphia on the Reunion Tour starts with a surprise: the tour premiere and one-off performance of “” not seen at a proper concert since 1975. Rocketing from there into “,” the show is off to a searing start.
+Night Four (of six) in Philadelphia on the Reunion Tour starts with a surprise: the tour premiere and one-off performance of "" not seen at a proper concert since 1975. Rocketing from there into "," the show is off to a searing start.
 
-**1999:** [Little Queenie](http://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)[Take ’em as They Come](http://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)
+**1999:** [Little Queenie](http://estreetshuffle.com/index.php/2018/12/11/cover-me-little-queenie/)[Take 'em as They Come](http://estreetshuffle.com/index.php/2019/03/29/roll-of-the-dice-take-em-as-they-come/)
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zA7rdeP92aA2CCyborw8VfW](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zA7rdeP92aA2CCyborw8VfW)
 
-The world is still reeling from the effects of the 9/11 terror attacks on the U.S., nowhere more so than in the New York/New Jersey area. A national telethon is held to raise money for the victims and their families, and the show is broadcast live by every major American network. Bruce opens the event with a new song, “My City of Ruins,” unplayed and unheard outside of its Asbury Park premiere the previous December. Bruce plays the song solo on acoustic guitar and harmonica, but he is surrounded by a choir of backing vocalists that include Patti, Steve, Clarence, Soozie, Lisa Lowell, Layonne Holmes, and Dee Holmes (backing vocalist for The Bruce Springsteen Band in Bruce’s pre-E Street days).
+The world is still reeling from the effects of the 9/11 terror attacks on the U.S., nowhere more so than in the New York/New Jersey area. A national telethon is held to raise money for the victims and their families, and the show is broadcast live by every major American network. Bruce opens the event with a new song, "My City of Ruins," unplayed and unheard outside of its Asbury Park premiere the previous December. Bruce plays the song solo on acoustic guitar and harmonica, but he is surrounded by a choir of backing vocalists that include Patti, Steve, Clarence, Soozie, Lisa Lowell, Layonne Holmes, and Dee Holmes (backing vocalist for The Bruce Springsteen Band in Bruce's pre-E Street days).
 
 **2001:**
 
@@ -108,7 +108,7 @@ The world is still reeling from the effects of the 9/11 terror attacks on the U.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2001-09-21b.jpg?resize=758%2C936&amp;ssl=1)
 
-Two more “missing years” songs makes their tour (and E Street Band) debuts in the home stretch of the Rising Tour, when “” and “” come out to play at Comerica Park in Detroit–but the best highlight is saved for the encores, when Martha Reeves joins Bruce and the band to play her 1963 hit “.”
+Two more "missing years" songs makes their tour (and E Street Band) debuts in the home stretch of the Rising Tour, when "" and "" come out to play at Comerica Park in Detroit–but the best highlight is saved for the encores, when Martha Reeves joins Bruce and the band to play her 1963 hit "."
 
 **2003:** [Local Hero](http://estreetshuffle.com/index.php/2019/01/17/roll-of-the-dice-local-hero/)[My Beautiful Reward](https://estreetshuffle.com/index.php/2023/02/19/roll-of-the-dice-my-beautiful-reward/)[Heat Wave](http://estreetshuffle.com/index.php/2020/02/18/matr-bruce-springsteen-and-martha-reeves-heat-wave/)
 
@@ -124,7 +124,7 @@ Also today, is nominated for Emmy Awards in the Outstanding Variety, Music, or C
 
 *Bruce Springsteen & The E Street Band* *Cher: The Farewell Tour**56th Annual Tony Awards.*
 
-Patti’s solo mini-tour continues at the Bowery Ballroom in New York City, where Bruce joins her on guitar and backing vocals for “” and “.”
+Patti's solo mini-tour continues at the Bowery Ballroom in New York City, where Bruce joins her on guitar and backing vocals for "" and "."
 
 **2004:** [As Long As I (Can Be With You)](http://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)[Love (Stand Up)](https://estreetshuffle.com/index.php/2021/02/14/matr-patti-scialfa-and-bruce-springsteen-love-stand-up/)<http://estreetshuffle.com/wp-content/uploads/2020/09/02-As-Long-As-I-Can-Be-With-You.mp3><http://estreetshuffle.com/wp-content/uploads/2020/09/01-Love-Stand-Up.mp3>
 
@@ -132,7 +132,7 @@ Bruce and the E Street Band rehearse for their upcoming Magic Tour at Convention
 
 **2007:**
 
-The Working on a Dream Tour stops at Wells Fargo Arena in Des Moines, where Bruce tour premieres “” followed immediately by a rare “” segueing into “Rosalita (Come Out Tonight)” — the first time the two songs have been played back-to-back like that in 29 years.
+The Working on a Dream Tour stops at Wells Fargo Arena in Des Moines, where Bruce tour premieres "" followed immediately by a rare "" segueing into "Rosalita (Come Out Tonight)" — the first time the two songs have been played back-to-back like that in 29 years.
 
 **2009:** [The Wanderer](http://estreetshuffle.com/index.php/2019/05/08/cover-me-the-wanderer/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
@@ -144,9 +144,9 @@ The Working on a Dream Tour stops at Wells Fargo Arena in Des Moines, where Bruc
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-21b-300x290.jpg?resize=758%2C733)
 
-Bruce and the E Street Band play their second of three Wrecking Ball shows at MetLife Stadium in East Rutherford, and what a show: Bruce stuns the crowd by opening with the live debut of “,” tour premiering “From Small Things (Big Things One Day Come)” and “,” rare outings for “” and “,” and inviting Gary U.S. Bonds to join the band for four songs, including the tour premieres of “” and “.”
+Bruce and the E Street Band play their second of three Wrecking Ball shows at MetLife Stadium in East Rutherford, and what a show: Bruce stuns the crowd by opening with the live debut of "," tour premiering "From Small Things (Big Things One Day Come)" and "," rare outings for "" and "," and inviting Gary U.S. Bonds to join the band for four songs, including the tour premieres of "" and "."
 
-**2012:** [Living on the Edge of the World](http://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/)[Mary’s Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)[Talk to Me](http://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)[This Depression](http://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)[This Little Girl](http://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)
+**2012:** [Living on the Edge of the World](http://estreetshuffle.com/index.php/2018/10/18/roll-of-the-dice-living-on-the-edge-of-the-world/)[Mary's Place](https://estreetshuffle.com/index.php/2022/03/25/roll-of-the-dice-marys-place/)[Talk to Me](http://estreetshuffle.com/index.php/2019/02/26/roll-of-the-dice-talk-to-me/)[This Depression](http://estreetshuffle.com/index.php/2020/02/21/roll-of-the-dice-this-depression/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)[This Little Girl](http://estreetshuffle.com/index.php/2018/09/06/rotd-matr-cover-me-gary-u-s-bonds-bruce-springsteen-the-e-street-band-this-little-girl/)
 
 [https://www.youtube.com/embed/fwmwfjZdrKA?feature=oembed](https://www.youtube.com/embed/fwmwfjZdrKA?feature=oembed)
 
@@ -154,7 +154,7 @@ Bruce and the E Street Band play their second of three Wrecking Ball shows at Me
 
 [https://www.youtube.com/embed/zA5lkIvT5So?feature=oembed](https://www.youtube.com/embed/zA5lkIvT5So?feature=oembed)
 
-The Wrecking Ball Tour finally comes to a close at Rock in Rio, Bruce’s first appearance in Brazil in 25 years. Bruce opens the show with the second and last performance (to date) of “” and plays from start to finish. The last song of the Wrecking Ball Tour: an acoustic “This Hard Land.”
+The Wrecking Ball Tour finally comes to a close at Rock in Rio, Bruce's first appearance in Brazil in 25 years. Bruce opens the show with the second and last performance (to date) of "" and plays from start to finish. The last song of the Wrecking Ball Tour: an acoustic "This Hard Land."
 
 **2013:** [Sociedade Alternativa](https://estreetshuffle.com/index.php/2021/10/07/cover-me-sociedade-alternativa/)*Born in the U.S.A.*
 

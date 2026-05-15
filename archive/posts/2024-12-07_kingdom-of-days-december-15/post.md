@@ -8,7 +8,7 @@ Bruce and the E Street Band play a gig at Nassau Community College in Garden Cit
 
 [https://videopress.com/embed/0GMcGpH8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/0GMcGpH8?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce and the band play their first of two nights at the Winterland Ballroom in San Francisco on the Darkness Tour, and it will go down in history as one of their best. Broadcast live on KSAN-FM and captured as a soundboard recording, this show will be prolifically bootlegged for decades to come. It will finally be officially released more than four decades later as part of Bruce’s archive series–get it .
+Bruce and the band play their first of two nights at the Winterland Ballroom in San Francisco on the Darkness Tour, and it will go down in history as one of their best. Broadcast live on KSAN-FM and captured as a soundboard recording, this show will be prolifically bootlegged for decades to come. It will finally be officially released more than four decades later as part of Bruce's archive series–get it .
 
 **1978:** [here](https://live.brucespringsteen.net/live-music/0,23615/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-12-15-1978-Winterland-Arena-San-Francisco-CA.html)
 
@@ -42,7 +42,7 @@ Bruce plays his first of two solo acoustic shows at the Orpheum Theater in Bosto
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1995-1215-201x300.jpg?resize=758%2C1132)
 
-Bruce makes a guest appearance with Tim McLoone’s Holiday Express at the Continental Airlines Arena in East Rutherford.
+Bruce makes a guest appearance with Tim McLoone's Holiday Express at the Continental Airlines Arena in East Rutherford.
 
 **2001:**
 
@@ -64,7 +64,7 @@ Bruce and the E Street Band bring the Magic Tour to the Odyssey Arena in Belfast
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/The_Daily_Telegraph_Mon__Dec_17__2007_.jpg?resize=758%2C624&amp;ssl=1)
 
-Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for “.”
+Bruce joins The Rolling Stones on stage at the Prudential Center in Newark, joining Mick Jagger on vocals for "."
 
 **2012:** [Tumbling Dice](https://estreetshuffle.com/index.php/2022/08/17/matr-the-rolling-stones-and-bruce-springsteen-tumbling-dice/)
 
@@ -94,6 +94,6 @@ closes its theatrical run at the Walter Kerr Theater in New York City. In attend
 
 Bruce appears on a television special entitled speaking in support of WhyHunger.
 
-**2020:** *Play On: Celebrating the Power of Music to Make Change,*
+**2020:** *Play On: Celebrating the Power of Music to Make Change*,
 
 [https://videopress.com/embed/GHZohMSF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GHZohMSF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)

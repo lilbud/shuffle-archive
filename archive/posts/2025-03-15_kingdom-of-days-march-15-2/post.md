@@ -90,7 +90,7 @@ After the speech, Bruce plays a warm-up show for the upcoming Wrecking Ball Tour
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2021:** Spotify premieres Episode 5 of *Renegades: Born in the U.S.A.,* the new podcast from Bruce and President Barack Obama. This episode is entitled "Every Man for Himself: Money and the American Dream." In addition to their conversation, Bruce performs acoustic versions of "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" and "[Used Cars.](https://estreetshuffle.com/index.php/2019/06/13/roll-of-the-dice-used-cars/)"
+**2021:** Spotify premieres Episode 5 of *Renegades: Born in the U.S.A.*, the new podcast from Bruce and President Barack Obama. This episode is entitled "Every Man for Himself: Money and the American Dream." In addition to their conversation, Bruce performs acoustic versions of "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)" and "[Used Cars.](https://estreetshuffle.com/index.php/2019/06/13/roll-of-the-dice-used-cars/)"
 
 [Spotify Embed: Money & the American Dream](https://open.spotify.com/embed/episode/15i7EaLqjjfVeaqMqnj43w?si=4d79a9c9986a40e7&utm_source=oembed)
 

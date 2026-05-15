@@ -1,6 +1,6 @@
-The band is Solar Circus, a North Jersey-based Grateful Dead-influenced band (at one point, Dead songs comprised about half their sets) that broke up in 1997 but can’t quite manage to stay broken. (The members were still getting together for live shows as recently as 2020.)
+The band is Solar Circus, a North Jersey-based Grateful Dead-influenced band (at one point, Dead songs comprised about half their sets) that broke up in 1997 but can't quite manage to stay broken. (The members were still getting together for live shows as recently as 2020.)
 
-The song is “Stems and Seeds,” the opening track from the band’s 1992 *Step Right Up* album and featured song in *Tie-died: Rock ‘n Roll’s Most Deadicated Fans.*
+The song is "Stems and Seeds," the opening track from the band's 1992 *Step Right Up* album and featured song in *Tie-died: Rock ‘n Roll's Most Deadicated Fans.*
 
 [https://www.youtube.com/embed/dWxYkrA-594?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/dWxYkrA-594?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
@@ -10,11 +10,11 @@ Solar Circus played a gig that night at the Metro Lounge in Long Branch, New Jer
 
 Taking in the show from the bar was a famous local musician.
 
-“We were lucky enough to find Bruce sitting in the back of the bar,” recalled Solar Circus vocalist and lead guitarist Mark Diomede, so he asked Bruce to join them. “He got this faraway look in his eye for a second, then he agreed to do a couple songs.”
+"We were lucky enough to find Bruce sitting in the back of the bar," recalled Solar Circus vocalist and lead guitarist Mark Diomede, so he asked Bruce to join them. "He got this faraway look in his eye for a second, then he agreed to do a couple songs."
 
-In true Springsteen fashion, a couple of songs turned into five; in true Dead fashion, those five songs kept Bruce on stage for more than an hour. They played three covers together (“Mustang Sally,” “All Along the Watchtower,” and a 30-minute version of “Not Fade Away”), and they played two Solar Circus originals, including “Stems and Seeds.”
+In true Springsteen fashion, a couple of songs turned into five; in true Dead fashion, those five songs kept Bruce on stage for more than an hour. They played three covers together ("Mustang Sally," "All Along the Watchtower," and a 30-minute version of "Not Fade Away"), and they played two Solar Circus originals, including "Stems and Seeds."
 
-Bruce doesn’t sing in the recording below (since this was an impromptu performance, we can assume that he wasn’t familiar enough with the band’s original songs), but we can hear his prominent guitar throughout, especially when he takes a solo about five minutes in.
+Bruce doesn't sing in the recording below (since this was an impromptu performance, we can assume that he wasn't familiar enough with the band's original songs), but we can hear his prominent guitar throughout, especially when he takes a solo about five minutes in.
 
 [https://videopress.com/embed/wvkjqrYF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wvkjqrYF?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

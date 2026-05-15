@@ -82,7 +82,7 @@ If you aren't in Denver tonight, you still have a chance to see The Boss: the mo
 
 [Watch on Youtube: Bruce Springsteen Chase Center San Francisco, CA 3/31/2024-Light of Day](https://www.youtube.com/watch?v=FaQGdRu2ysI)
 
-If you can't be at the show tonight, you can still catch The Boss on HBO's *Curb Your Enthusiasm,* where he makes a very funny (and completely improvised) guest appearance.
+If you can't be at the show tonight, you can still catch The Boss on HBO's *Curb Your Enthusiasm*, where he makes a very funny (and completely improvised) guest appearance.
 
 [Watch on Youtube: Curb Your Enthusiasm: Boss](https://www.youtube.com/watch?v=aTBsNMZZPf8)
 

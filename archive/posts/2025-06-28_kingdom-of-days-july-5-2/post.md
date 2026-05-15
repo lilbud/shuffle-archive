@@ -6,7 +6,7 @@ The Castiles play a set at the West End Casino in Long Branch, New Jersey.
 
 **1968:**
 
-The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant’s Cinema III movie theater in Red Bank, New Jersey. This is perhaps Bruce’s first overtly political action as a musician, and even then his favored candidates were decidedly liberal.
+The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant's Cinema III movie theater in Red Bank, New Jersey. This is perhaps Bruce's first overtly political action as a musician, and even then his favored candidates were decidedly liberal.
 
 **1972:**
 
@@ -50,7 +50,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1978-07-05b-168x300.jpg?resize=758%2C1353)
 
-Bruce and the E Street Band play their third of six nights opening the Brendan Byrne Arena in the Meadowlands, where they play “” for the first time in the U.S. 
+Bruce and the E Street Band play their third of six nights opening the Brendan Byrne Arena in the Meadowlands, where they play "" for the first time in the U.S. 
 
 **1981:** [Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)(Photo credit: Dari)
 
@@ -72,9 +72,9 @@ The Born in the U.S.A. Tour moves on to its second stop: the Riverfront Coliseum
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1984-07-05b.jpg?resize=758%2C417&amp;ssl=1)
 
-Bruce and the E Street Band play a stunner of a show–their second in Gothenburg on the Magic Tour–with their first full-band “ in 27 years as the centerpiece (check out the sound check below), and a rare “” and “” in the set as well.
+Bruce and the E Street Band play a stunner of a show–their second in Gothenburg on the Magic Tour–with their first full-band " in 27 years as the centerpiece (check out the sound check below), and a rare "" and "" in the set as well.
 
-**2008:** [Drive All Night”](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/) [Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)[Janey, Don’t You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)
+**2008:** [Drive All Night"](http://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/) [Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)[Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)
 
 [https://videopress.com/embed/Mty4EdEG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Mty4EdEG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -86,7 +86,7 @@ Bruce and the E Street Band play a stunner of a show–their second in Gothenbur
 
 [https://www.youtube.com/embed/15TaIa02qc0?feature=oembed](https://www.youtube.com/embed/15TaIa02qc0?feature=oembed)
 
-Bruce takes the Working on a Dream Tour to Vienna for a night, where he plays “” outside of the U.S. for the first time, along with the tour premieres of “Into the Fire” and “.”
+Bruce takes the Working on a Dream Tour to Vienna for a night, where he plays "" outside of the U.S. for the first time, along with the tour premieres of "Into the Fire" and "."
 
 **2009:** [Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
@@ -96,7 +96,7 @@ Bruce takes the Working on a Dream Tour to Vienna for a night, where he plays �
 
 [https://www.youtube.com/embed/uZmO4suisxY?feature=oembed](https://www.youtube.com/embed/uZmO4suisxY?feature=oembed)
 
-Night Two in Bercy on the Wrecking Ball Tour features a highly audibled old-school setlist, featuring the tour premiere of “” and performances of “,” “,” “,” “Thunder Road” and more. This show is available as part of Bruce’s official archive series–get it .
+Night Two in Bercy on the Wrecking Ball Tour features a highly audibled old-school setlist, featuring the tour premiere of "" and performances of "," "," "," "Thunder Road" and more. This show is available as part of Bruce's official archive series–get it .
 
 **2012:** [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[here](https://live.brucespringsteen.net/packages/2,1226/Bruce-Springsteen-Paris-2012.html)
 
@@ -106,9 +106,9 @@ Night Two in Bercy on the Wrecking Ball Tour features a highly audibled old-scho
 
 [https://www.youtube.com/embed/sRYp2YfbKvA?feature=oembed](https://www.youtube.com/embed/sRYp2YfbKvA?feature=oembed)
 
-Monchengladbach gets one of the most surprising setlists of the Wrecking Ball Tour when Bruce opens with “” and plays the tour premieres of three very rare songs: “,” “,” and “.” In the encores, Jay Weinberg makes a guest appearance on “.”
+Monchengladbach gets one of the most surprising setlists of the Wrecking Ball Tour when Bruce opens with "" and plays the tour premieres of three very rare songs: "," "," and "." In the encores, Jay Weinberg makes a guest appearance on "."
 
-**2013:** [Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)[One Way Street](http://estreetshuffle.com/index.php/2019/01/14/roll-of-the-dice-one-way-street/)[Man’s Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)[Shake, Rattle and Roll](http://estreetshuffle.com/index.php/2020/04/18/cover-me-shake-rattle-and-roll/)[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)
+**2013:** [Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)[One Way Street](http://estreetshuffle.com/index.php/2019/01/14/roll-of-the-dice-one-way-street/)[Man's Job](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)[Shake, Rattle and Roll](http://estreetshuffle.com/index.php/2020/04/18/cover-me-shake-rattle-and-roll/)[Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)
 
 [https://www.youtube.com/embed/uTrcxhY48cM?feature=oembed](https://www.youtube.com/embed/uTrcxhY48cM?feature=oembed)
 
@@ -116,7 +116,7 @@ Monchengladbach gets one of the most surprising setlists of the Wrecking Ball To
 
 [https://www.youtube.com/embed/ejOyEOjCO7c?feature=oembed](https://www.youtube.com/embed/ejOyEOjCO7c?feature=oembed)
 
-Night Two in Milan on the 2016 River Tour features the tour premiere of “.” This show is available to stream or purchase .
+Night Two in Milan on the 2016 River Tour features the tour premiere of "." This show is available to stream or purchase .
 
 **2016:** [Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)[here](https://live.brucespringsteen.net/live-music/0,14122/Bruce-Springsteen-mp3-flac-download-7-5-2016-Stadio-San-Siro-Milan-IT.html)
 
@@ -124,7 +124,7 @@ Night Two in Milan on the 2016 River Tour features the tour premiere of “.” 
 
 [https://www.youtube.com/embed/fnh9R7y0Wc0?feature=oembed](https://www.youtube.com/embed/fnh9R7y0Wc0?feature=oembed)
 
-Lucky fans in Hanover witness the live premiere of “” more than a half-century after Bruce first wrote it. Also tour premiering tonight: “Into the Fire.”
+Lucky fans in Hanover witness the live premiere of "" more than a half-century after Bruce first wrote it. Also tour premiering tonight: "Into the Fire."
 
 **2024:** [Janey Needs a Shooter](https://estreetshuffle.com/index.php/2020/07/27/roll-of-the-dice-janey-needs-a-shooter/)
 

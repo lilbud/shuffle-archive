@@ -26,11 +26,11 @@
 >
 >
 >
-> *–Sebastian Rotella, “[Children of the Border](https://www.latimes.com/archives/la-xpm-1993-04-03-mn-18653-story.html)” — Los Angeles Times, April 3, 1993*
+> *–Sebastian Rotella, "[Children of the Border](https://www.latimes.com/archives/la-xpm-1993-04-03-mn-18653-story.html)" — Los Angeles Times, April 3, 1993*
 
-So begins a heartbreaking article by Sebastian Rotella in the Los Angeles Times in the spring of 1993. Bruce was living in California at the time, raising two young children. Like any parent coming across Rotella’s essay, Bruce must have been shaken to his core by it.
+So begins a heartbreaking article by Sebastian Rotella in the Los Angeles Times in the spring of 1993. Bruce was living in California at the time, raising two young children. Like any parent coming across Rotella's essay, Bruce must have been shaken to his core by it.
 
-Bruce discreetly tried to contact Rotella about his article through Terry Magovern (who didn’t identify who he was representing), but Rotella was in Mexico at the time and didn’t return the call.
+Bruce discreetly tried to contact Rotella about his article through Terry Magovern (who didn't identify who he was representing), but Rotella was in Mexico at the time and didn't return the call.
 
 ![](../../assets/2020/03/balboa1-1.jpg)
 
@@ -40,27 +40,27 @@ Nevertheless, in 1995, Bruce adapted the article into a song, recorded it, and r
 
 [Watch on Youtube: Balboa Park](https://www.youtube.com/watch?v=IWmdBgHjLlY)
 
-“Balboa Park” is truly a solo recording. Bruce plays guitar and keyboards–the only instruments to be heard–on the track, along with vocals so soft and intimate that it sounds like you’re listening to a story told around a campfire.
+"Balboa Park" is truly a solo recording. Bruce plays guitar and keyboards–the only instruments to be heard–on the track, along with vocals so soft and intimate that it sounds like you're listening to a story told around a campfire.
 
-The song reads like a musical adaptation of the article. Bruce makes no attempt at a chorus and puts very little effort into a melody. The story’s the thing, and Bruce wants nothing to detract from it. The story of Spider’s Balboa Park is a million miles away from Spanish Johnny’s [57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).
+The song reads like a musical adaptation of the article. Bruce makes no attempt at a chorus and puts very little effort into a melody. The story's the thing, and Bruce wants nothing to detract from it. The story of Spider's Balboa Park is a million miles away from Spanish Johnny's [57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).
 
 > *He lay his blanket underneath the freeway as the evening sky grew dark*
 > *Took a sniff of toncho from his coke can, headed through Balboa Park*
 > *Where the men in their Mercedes come nightly to employ*
 > *In the cool San Diego evening the services of the border boys*
 
-The first verse is lifted almost directly from the opening of Rotella’s article. The BMWs have been changed to Mercedes, and while Bruce uses the street name (toncho) for the Octane Booster that Carlitos sniffs to ward off the cold and hunger, he retains the Coke can imagery.
+The first verse is lifted almost directly from the opening of Rotella's article. The BMWs have been changed to Mercedes, and while Bruce uses the street name (toncho) for the Octane Booster that Carlitos sniffs to ward off the cold and hunger, he retains the Coke can imagery.
 
 The second verse focuses on Martin, another boy profiled in the article:
 
 > *He grew up near the Zona Norte with the hustlers and smugglers he hung out with*
-> *He swallowed their balloons of cocaine, brought ’em across the Twelfth Street strip*
+> *He swallowed their balloons of cocaine, brought 'em across the Twelfth Street strip*
 > *Sleeping in a shelter if the night got too cold*
 > *Running from the migra of the border patrol*
 
-In Rotella’s chronicle, the boys–as young as age nine–sleep in a row of blankets underneath a concrete bridge by a freeway interchange, taking colorful nicknames like “Batman, “Squirrel,” Little Dracula,” and “Karate Kid.”
+In Rotella's chronicle, the boys–as young as age nine–sleep in a row of blankets underneath a concrete bridge by a freeway interchange, taking colorful nicknames like "Batman, "Squirrel," Little Dracula," and "Karate Kid."
 
-In Bruce’s version:
+In Bruce's version:
 
 > *Past the salvage yard ‘cross the train tracks and in through the storm drain*
 > *They stretched their blankets out ‘neath the freeway and each one took a name*
@@ -72,18 +72,18 @@ The boys know the danger they live in (the poison in their blood is the HIV viru
 > *He did what he had to for the money, sometimes he sent home what he could spare*
 > *The rest went to high-top sneakers and toncho and jeans like the gavachos wear*
 
-The vignette that closes the song, though, is Bruce’s–the boys of “Balboa Park” are so invisible, that one of them gets hit hard by a passing car. The driver speeds away, and Spider retreats to his refuge, hiding in nowhere as drivers speed past, heading to anywhere else.
+The vignette that closes the song, though, is Bruce's–the boys of "Balboa Park" are so invisible, that one of them gets hit hard by a passing car. The driver speeds away, and Spider retreats to his refuge, hiding in nowhere as drivers speed past, heading to anywhere else.
 
 > *One night the border patrol swept Twelfth Street, a big car come fast down the boulevard*
 > *Spider stood caught in its headlights, got hit and went down hard*
 > *Car sped away, Spider held his stomach, limped to his blanket ‘neath the underpass*
 > *Lie there tasting his own blood on his tongue, closed his eyes and listened to the cars rushing by so fast*
 
-Bruce performed “Balboa Park” nightly throughout the Ghost of Tom Joad Tour, but never since. The tale is too intimate, too quiet to translate to any setting other than a small theater. And when he played it each night, Bruce always took care to explain the emotional inspiration for the song–the grace of childhood that a parent wants to protect for as long as possible.
+Bruce performed "Balboa Park" nightly throughout the Ghost of Tom Joad Tour, but never since. The tale is too intimate, too quiet to translate to any setting other than a small theater. And when he played it each night, Bruce always took care to explain the emotional inspiration for the song–the grace of childhood that a parent wants to protect for as long as possible.
 
 [Watch Video Highlight](https://videopress.com/embed/Qot7QYTM)
 
-There were as many as fifty boys in Rotella’s original 1993 article. More than a quarter-century on, who knows where or who those boys are now? We don’t, and that’s just one more haunting aspect of “Balboa Park.”
+There were as many as fifty boys in Rotella's original 1993 article. More than a quarter-century on, who knows where or who those boys are now? We don't, and that's just one more haunting aspect of "Balboa Park."
 
 **Balboa Park**
 **Recorded** March-August 1995  

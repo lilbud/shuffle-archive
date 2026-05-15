@@ -112,6 +112,6 @@ At the recording session itself, Bruce works on "[Independence Day](https://estr
 
 [Watch on Youtube: Bruce Springsteen - "I'm On Fire" - Theater a MSG - 11/4/19](https://www.youtube.com/watch?v=QnG-5RqFLDU)
 
-**2024:** Bruce visits the set of *Springsteen: Deliver Me From Nowhere,* filming today in Bayonne, New Jersey.
+**2024:** Bruce visits the set of *Springsteen: Deliver Me From Nowhere*, filming today in Bayonne, New Jersey.
 
 [Watch on Youtube: Bruce at Deliver Me From Nowhere filmset in Bayonne, NJ](https://www.youtube.com/watch?v=bbFBQP3SJiw)

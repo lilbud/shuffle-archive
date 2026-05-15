@@ -14,7 +14,7 @@ But despite at least a half-dozen attempts that day, "Tonight" never developed i
 
 (All was not lost that day, however. Bruce and the band worked on another new song that day, one that had more promise–so much promise, in fact, that "[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)" made its debut on stage just six days later when the tour resumed.)
 
-Months later, after the Darkness Tour ended and Bruce began working on what would become *The River,* he took another run at "Tonight," keeping the riff (and speeding it up even more) but re-writing the song as "Break My Heart."
+Months later, after the Darkness Tour ended and Bruce began working on what would become *The River*, he took another run at "Tonight," keeping the riff (and speeding it up even more) but re-writing the song as "Break My Heart."
 
 [Watch Video Highlight](https://videopress.com/embed/oFuAmdF3)
 

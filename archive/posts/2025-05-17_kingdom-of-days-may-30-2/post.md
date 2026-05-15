@@ -14,7 +14,7 @@ Child plays a gig at Pandemonium in Wanamassa, New Jersey.
 
 **1969:**
 
-Bruce plays his first North Carolina show, opening for Chicago at the Cumberland County Memorial Arena in Fayetteville. This is the start of a thirteen-show tour with Chicago, which will not go well–Bruce’s music and style are not a good fit for Chicago fans.
+Bruce plays his first North Carolina show, opening for Chicago at the Cumberland County Memorial Arena in Fayetteville. This is the start of a thirteen-show tour with Chicago, which will not go well–Bruce's music and style are not a good fit for Chicago fans.
 
 **1973:**
 
@@ -26,7 +26,7 @@ Bruce plays his first North Carolina show, opening for Chicago at the Cumberland
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1973-05-30-294x300.jpg?resize=758%2C773)
 
-Southside Johnny’s debut album release party at The Stone Pony is broadcast live on WNEW-FM and other stations. Bruce, Stevie, Max, Clarence, Ronnie Spector, and other notables are in attendance and join Southside for the encore performance of “.”
+Southside Johnny's debut album release party at The Stone Pony is broadcast live on WNEW-FM and other stations. Bruce, Stevie, Max, Clarence, Ronnie Spector, and other notables are in attendance and join Southside for the encore performance of "."
 
 **1976:** [Having a Party](https://estreetshuffle.com/index.php/2021/12/31/matr-bruce-springsteen-and-southside-johnny-having-a-party/)
 
@@ -42,19 +42,19 @@ Southside Johnny’s debut album release party at The Stone Pony is broadcast li
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1976-05-30b-300x251.jpg?resize=758%2C634)
 
-At Night Two of three at Boston’s Music Hall, Bruce tour premieres “Because the Night” as an encore.
+At Night Two of three at Boston's Music Hall, Bruce tour premieres "Because the Night" as an encore.
 
 **1978:**
 
 [https://www.youtube.com/embed/The8c38RJr0?feature=oembed](https://www.youtube.com/embed/The8c38RJr0?feature=oembed)
 
-Bruce and the E Street Band work on “” and “” at the Power Station in New York City.
+Bruce and the E Street Band work on "" and "" at the Power Station in New York City.
 
 **1979:** [Mary Lou](https://estreetshuffle.com/index.php/2019/04/03/roll-of-the-dice-mary-lou/)[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
 
 [https://www.youtube.com/embed/xcka1wNBS9Q?feature=oembed](https://www.youtube.com/embed/xcka1wNBS9Q?feature=oembed)
 
-: Bruce and the E Street Band play “” for the first time in Europe at their second of six nights at London’s Wembley Arena on the original River Tour.
+: Bruce and the E Street Band play "" for the first time in Europe at their second of six nights at London's Wembley Arena on the original River Tour.
 
 **1981**[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)
 
@@ -62,7 +62,7 @@ Bruce and the E Street Band work on “” and “” at the Power Station in Ne
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1981-0530-218x300.jpg?resize=758%2C1043)
 
-Bruce’s World Tour 1993 stops for a night in the town of Gentofte, Denmark.
+Bruce's World Tour 1993 stops for a night in the town of Gentofte, Denmark.
 
 **1993:**
 
@@ -70,13 +70,13 @@ Bruce’s World Tour 1993 stops for a night in the town of Gentofte, Denmark.
 
 [https://www.youtube.com/embed/CcTqWBfRP2E?feature=oembed](https://www.youtube.com/embed/CcTqWBfRP2E?feature=oembed)
 
-Bruce opens the second Reunion show in Berlin with “.”
+Bruce opens the second Reunion show in Berlin with "."
 
 **1999:** [I Wanna Be With You](http://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)
 
 [https://videopress.com/embed/6Fi5ZNeC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/6Fi5ZNeC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce plays a solo acoustic show at Forest National in Brussels, where “” makes its Devils & Dust Tour premiere.
+Bruce plays a solo acoustic show at Forest National in Brussels, where "" makes its Devils & Dust Tour premiere.
 
 **2005:**[State Trooper](http://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)
 
@@ -90,7 +90,7 @@ Bruce plays a solo acoustic show at Forest National in Brussels, where “” ma
 
 [https://videopress.com/embed/QwuQ1j79?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/QwuQ1j79?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The Seeger Sessions Tour arrives at the Germain Amphitheater in Columbus, where Bruce premieres The Band’s “.”
+The Seeger Sessions Tour arrives at the Germain Amphitheater in Columbus, where Bruce premieres The Band's "."
 
 **2006:** [Rag Mama Rag](http://estreetshuffle.com/index.php/2019/04/30/cover-me-rag-mama-rag/)
 
@@ -106,7 +106,7 @@ The Magic Tour gets its longest show to date, at Emirates Stadium in London.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2008-05-30.jpg?resize=758%2C1422&amp;ssl=1)
 
-Bruce and the E Street Band kick off the European leg of the Working on a Dream Tour by headlining Pinkpop in The Netherlands, where “From Small Things (Big Things One Day Come)” makes its tour debut and Brandon Flowers guest-stars on “Thunder Road.”
+Bruce and the E Street Band kick off the European leg of the Working on a Dream Tour by headlining Pinkpop in The Netherlands, where "From Small Things (Big Things One Day Come)" makes its tour debut and Brandon Flowers guest-stars on "Thunder Road."
 
 **2009:**
 
@@ -116,7 +116,7 @@ Bruce and the E Street Band kick off the European leg of the Working on a Dream 
 
 [https://www.youtube.com/embed/x49CyXVo15c?feature=oembed](https://www.youtube.com/embed/x49CyXVo15c?feature=oembed)
 
-The Wrecking Ball Tour arrives in Berlin, and Bruce marks the occasion by opening with his only known performance of Wizz Jones’ “” and tour debuting “.”
+The Wrecking Ball Tour arrives in Berlin, and Bruce marks the occasion by opening with his only known performance of Wizz Jones' "" and tour debuting "."
 
 **2012:** [When I Leave Berlin](https://estreetshuffle.com/index.php/2020/07/19/cover-me-when-i-leave-berlin/)[Save My Love](http://estreetshuffle.com/index.php/2019/07/16/roll-of-the-dice-save-my-love/)
 
@@ -124,7 +124,7 @@ The Wrecking Ball Tour arrives in Berlin, and Bruce marks the occasion by openin
 
 [https://www.youtube.com/embed/UoK7-pBGw8c?feature=oembed](https://www.youtube.com/embed/UoK7-pBGw8c?feature=oembed)
 
-Bruce and Patti perform some classic covers with Bobby Bandiera’s band at the wedding of Patti’s personal assistant in Oakland, New Jersey.
+Bruce and Patti perform some classic covers with Bobby Bandiera's band at the wedding of Patti's personal assistant in Oakland, New Jersey.
 
 **2015:**
 
@@ -136,7 +136,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce releases “” the third single from his upcoming album.
+Bruce releases "" the third single from his upcoming album.
 
 **2019:** [Tucson Train,](http://estreetshuffle.com/index.php/2020/05/25/roll-of-the-dice-tucson-train/)*Western Stars*
 

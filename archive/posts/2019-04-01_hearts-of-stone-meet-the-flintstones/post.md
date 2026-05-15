@@ -1,4 +1,4 @@
-Our long-running *Kingdom of Days, Roll of the Dice, Cover Me, Meeting Across the River,* and *Where the Band Was* series have been so well-received that I've decided to launch a sixth series starting today!
+Our long-running *Kingdom of Days, Roll of the Dice, Cover Me, Meeting Across the River*, and *Where the Band Was* series have been so well-received that I've decided to launch a sixth series starting today!
 
 Welcome to *Hearts of Stone*, in which we'll explore the works of the lesser known but not lesser talent, Bruce Springstone.
 

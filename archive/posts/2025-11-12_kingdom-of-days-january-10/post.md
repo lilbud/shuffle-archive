@@ -4,17 +4,17 @@ Steel Mill plays the College of Marin during their California sojourn.
 
 **1970:**
 
-Bruce and the band continue their Boston residency with two shows at Paul’s Mall.
+Bruce and the band continue their Boston residency with two shows at Paul's Mall.
 
 **1973:**
 
-At his home studio in Holmdel, Bruce and the E Street Band rehearse “Restless Nights.”
+At his home studio in Holmdel, Bruce and the E Street Band rehearse "Restless Nights."
 
 **1980:**
 
 [https://www.youtube.com/embed/KsosBOD17_0?feature=oembed](https://www.youtube.com/embed/KsosBOD17_0?feature=oembed)
 
-Bruce releases Arthur Baker’s 12-inch “Freedom Mix” of “”
+Bruce releases Arthur Baker's 12-inch "Freedom Mix" of ""
 
 **1985:** [Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
@@ -26,13 +26,13 @@ That night, the Born in the U.S.A. Tour stops in Louisville at Freedom Hall.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1985-01-10b.png?resize=758%2C642&amp;ssl=1)
 
-Bruce records “” at his home studio in Rumson.
+Bruce records "" at his home studio in Rumson.
 
 **1987:** [When You Need Me](https://estreetshuffle.com/index.php/2020/01/30/roll-of-the-dice-when-you-need-me/)
 
 [https://www.youtube.com/embed/mimaPIQVUjI?feature=oembed](https://www.youtube.com/embed/mimaPIQVUjI?feature=oembed)
 
-Bruce debuts a new song, “,” at the first of two nights at the Fox Theater in Detroit. Suffice it to say it’s not among the deeper songs in Bruce’s catalog. Check out the world premiere of this still unreleased song below. Bruce tour premieres “” tonight as well.
+Bruce debuts a new song, "," at the first of two nights at the Fox Theater in Detroit. Suffice it to say it's not among the deeper songs in Bruce's catalog. Check out the world premiere of this still unreleased song below. Bruce tour premieres "" tonight as well.
 
 **1996:**[Sell It and They Will Come](http://estreetshuffle.com/index.php/2019/02/09/roll-of-the-dice-sell-it-and-they-will-come/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)<http://estreetshuffle.com/wp-content/uploads/2018/01/109-Sell-It-and-They-will-Come-online-audio-converter.com_.mp3>
 
@@ -56,11 +56,11 @@ continues its theatrical run at the Walter Kerr Theater in New York City. In att
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First-hand reports from fans listening at the stage door confirm the return of “” after more than 50 years, although it will receive only three outings on the tour proper.
+Bruce and the E Street Band rehearse for their upcoming world tour at The Vogel in Red Bank, New Jersey. First-hand reports from fans listening at the stage door confirm the return of "" after more than 50 years, although it will receive only three outings on the tour proper.
 
 **2023:** [If I Was The Priest](https://estreetshuffle.com/index.php/2018/12/28/roll-of-the-dice-if-i-was-the-priest/)
 
-Bruce visits the set of , filming today in downtown Freehold. After filming wraps for the morning, he joins the crew for lunch at Federici’s.
+Bruce visits the set of , filming today in downtown Freehold. After filming wraps for the morning, he joins the crew for lunch at Federici's.
 
 **2025:** *Deliver Me From Nowhere*
 

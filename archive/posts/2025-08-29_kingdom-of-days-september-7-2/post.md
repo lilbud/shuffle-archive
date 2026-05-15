@@ -14,7 +14,7 @@ Bruce and the as yet unnamed E Street Band headline during freshman orientation 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1973-0907a-300x78.jpg?resize=758%2C197)
 
-Live at the Ya Ya Lounge in New Orleans, it’s… Lee Dorsey and the E Street Band? Bruce is on his way to the next tour stop in Texas, but the E Street Band stays behind in New Orleans to play a gig at the club without him. The gig is a barter for Dorsey lending his vocals on Southside Johnny’s upcoming Steve Van Zandt-produced album.
+Live at the Ya Ya Lounge in New Orleans, it's… Lee Dorsey and the E Street Band? Bruce is on his way to the next tour stop in Texas, but the E Street Band stays behind in New Orleans to play a gig at the club without him. The gig is a barter for Dorsey lending his vocals on Southside Johnny's upcoming Steve Van Zandt-produced album.
 
 **1975:**
 
@@ -22,7 +22,7 @@ Live at the Ya Ya Lounge in New Orleans, it’s… Lee Dorsey and the E Street B
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1975-0907-300x300.jpg?resize=758%2C758)
 
-In honor of Buddy Holly’s birthday, Bruce tour premieres “” as an encore at his Born in the U.S.A. show in Hartford. They won’t ever play it again (at least to date).
+In honor of Buddy Holly's birthday, Bruce tour premieres "" as an encore at his Born in the U.S.A. show in Hartford. They won't ever play it again (at least to date).
 
 **1984:** [Rave On](http://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)
 
@@ -30,13 +30,13 @@ In honor of Buddy Holly’s birthday, Bruce tour premieres “” as an encore a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1984-09-07-291x300.jpg?resize=758%2C782)
 
-: At the annual MTV Video Music Awards, “” loses in all five of its nominated categories: Video of the Year (to INXS’ “Need You Tonight/Mediate”); Best Male Video (to Prince’s “U Got the Look”); Best Art Direction (to Squeeze’s “Hourglass”); Best Editing (again to INXS); and Viewer’s Choice (INXS).
+: At the annual MTV Video Music Awards, "" loses in all five of its nominated categories: Video of the Year (to INXS' "Need You Tonight/Mediate"); Best Male Video (to Prince's "U Got the Look"); Best Art Direction (to Squeeze's "Hourglass"); Best Editing (again to INXS); and Viewer's Choice (INXS).
 
 **1988**[Tunnel of Love](https://estreetshuffle.com/index.php/2021/06/15/roll-of-the-dice-tunnel-of-love/)
 
 [https://www.youtube.com/embed/M4K7XZGeHTE?feature=oembed](https://www.youtube.com/embed/M4K7XZGeHTE?feature=oembed)
 
-Night Two at Fenway Park on the Rising Tour features the tour premiere of “,” a reprise opener of “” and a Peter Wolf guest appearance on the show-closing “.”
+Night Two at Fenway Park on the Rising Tour features the tour premiere of "," a reprise opener of "" and a Peter Wolf guest appearance on the show-closing "."
 
 **2003:** [Frankie](http://estreetshuffle.com/index.php/2019/03/31/roll-of-the-dice-frankie/)[Diddy Wah Diddy](https://estreetshuffle.com/index.php/2021/06/11/cover-me-diddy-wah-diddy/)[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)
 
@@ -50,7 +50,7 @@ Night Two at Fenway Park on the Rising Tour features the tour premiere of “,�
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2003-09-07b-300x230.jpg?resize=758%2C581)
 
-Bruce plays his first-ever show at Wrigley Field in Chicago when the Wrecking Ball Tour arrives for the first of two nights, and what a show it is: Bruce opens with “” with the Darkness Tour intro and tour premieres “.” Tom Morello and Eddie Vedder both make multiple guest appearances.
+Bruce plays his first-ever show at Wrigley Field in Chicago when the Wrecking Ball Tour arrives for the first of two nights, and what a show it is: Bruce opens with "" with the Darkness Tour intro and tour premieres "." Tom Morello and Eddie Vedder both make multiple guest appearances.
 
 **2012:** [Prove It All Night](https://estreetshuffle.com/index.php/2020/10/24/roll-of-the-dice-prove-it-all-night/)[None But the Brave](http://estreetshuffle.com/index.php/2018/09/24/roll-of-the-dice-none-but-the-brave/)
 
@@ -66,7 +66,7 @@ Bruce plays his first-ever show at Wrigley Field in Chicago when the Wrecking Ba
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2012-09-07b-189x300.jpg?resize=758%2C1203)
 
-A show for the ages at Citizens Bank Park in Philadelphia–clocking in at 4:04, it remains Bruce’s longest show in the U.S. and his second longest show ever. The setlist continues the chronological “autobiography” theme of the victory lap, opening once again with a string-accompanied “New York City Serenade” and a stunning pre-1974 songs. Philly specials abound: “” “,” and “” all make their tour debut. For more highlights from this show, see my .
+A show for the ages at Citizens Bank Park in Philadelphia–clocking in at 4:04, it remains Bruce's longest show in the U.S. and his second longest show ever. The setlist continues the chronological "autobiography" theme of the victory lap, opening once again with a string-accompanied "New York City Serenade" and a stunning pre-1974 songs. Philly specials abound: "" "," and "" all make their tour debut. For more highlights from this show, see my .
 
 **2016:** *eleven*[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)[Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)[report](http://estreetshuffle.com/index.php/2018/09/07/where-the-band-was-philadelphia-september-7-2016/)*Where the Band Was*
 
@@ -84,7 +84,7 @@ A show for the ages at Citizens Bank Park in Philadelphia–clocking in at 4:04,
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2016-09-07b-115x300.jpg?resize=758%2C1977)
 
-continues its theatrical run at the Walter Kerr Theater in New York City. Following this show, Bruce takes a three-week break. Earlier in the day, Bruce and Patti attend Ralph Lauren’s 50th anniversary party at New York Fashion Week.
+continues its theatrical run at the Walter Kerr Theater in New York City. Following this show, Bruce takes a three-week break. Earlier in the day, Bruce and Patti attend Ralph Lauren's 50th anniversary party at New York Fashion Week.
 
 **2018:** *Springsteen on Broadway*
 
@@ -92,7 +92,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Follow
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/2018-09-07-240x300.jpg?resize=758%2C948)
 
-On the 20th anniversary of the September 11th terror attacks, a new documentary film is released featuring Bruce’s narration. (Skip to the five-minute mark to hear Bruce’s contribution.)
+On the 20th anniversary of the September 11th terror attacks, a new documentary film is released featuring Bruce's narration. (Skip to the five-minute mark to hear Bruce's contribution.)
 
 **2021:**
 

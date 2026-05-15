@@ -22,7 +22,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-1017-185x300.jpg?resize=758%2C1229)
 
-Bruce and the E Street Band play their third of five nights at Oliver’s in Boston.
+Bruce and the E Street Band play their third of five nights at Oliver's in Boston.
 
 **1973:**
 
@@ -30,7 +30,7 @@ Bruce and the E Street Band play their third of five nights at Oliver’s in Bos
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1973-1016-240x300.jpg?resize=758%2C947)
 
-Bruce and the E Street Band work on “” during a recording session at 914 Sound Studios in Blauvelt, New York.
+Bruce and the E Street Band work on "" during a recording session at 914 Sound Studios in Blauvelt, New York.
 
 **1974:** [Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)
 
@@ -54,7 +54,7 @@ Bruce and the boys play their first of two Lawsuit Tour shows at Georgetown Univ
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1976-1017.jpg?resize=731%2C573&amp;ssl=1)
 
-Bruce makes a guest appearance with The Knack at their show at the Troubadour in West Hollywood, where they jam to “Mona” into “.”
+Bruce makes a guest appearance with The Knack at their show at the Troubadour in West Hollywood, where they jam to "Mona" into "."
 
 **1978:** [Not Fade Away](http://estreetshuffle.com/index.php/2020/06/24/cover-me-not-fade-away/)
 
@@ -100,7 +100,7 @@ Bruce and the E Street Band play their first of two Born in the U.S.A. Tour show
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-17b-300x300.png?resize=758%2C758)
 
-World Tour 1992 continues its Canadian leg with a show at the Olympic Saddledome in Calgary, Bruce’s first-ever show in Alberta.
+World Tour 1992 continues its Canadian leg with a show at the Olympic Saddledome in Calgary, Bruce's first-ever show in Alberta.
 
 **1992:**
 
@@ -116,7 +116,7 @@ is certified 3x multi-platinum and 14x multi-platinum by the Recording Industry 
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0](https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushecky at The Stone Pony for the kick-off of a mini-tour in support of , Joe’s new Bruce-produced album released earlier today.
+Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushecky at The Stone Pony for the kick-off of a mini-tour in support of , Joe's new Bruce-produced album released earlier today.
 
 **1995:** [](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*American Babylon*
 
@@ -132,7 +132,7 @@ Bruce becomes an unofficial member of The Houserockers when he joins Joe Grushec
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-17c-300x206.png?resize=758%2C520)
 
-Bruce plays the second of two solo acoustic Ghost of Tom Joad Tour shows at Denver’s Paramount Theater.
+Bruce plays the second of two solo acoustic Ghost of Tom Joad Tour shows at Denver's Paramount Theater.
 
 **1996:**
 
@@ -158,7 +158,7 @@ Bruce and the reunited E Street Band kick off a four-night stand in Los Angeles 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1999-1017-181x300.jpg?resize=758%2C1258)
 
-Bruce straps on an electric guitar for a change, when he takes a short break from his solo acoustic tour to join U2 on stage (along with Patti) for “” at the Wachovia Center in Philadelphia.
+Bruce straps on an electric guitar for a change, when he takes a short break from his solo acoustic tour to join U2 on stage (along with Patti) for "" at the Wachovia Center in Philadelphia.
 
 **2005:** [People Get Ready](http://estreetshuffle.com/index.php/2019/01/06/matr-u2-bruce-springsteen-and-patti-scialfa-people-get-ready/)
 
@@ -202,7 +202,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and Little Steven hold court at Asbury Lanes as a promotional event for , Steven’s autobiography, and as a benefit for TeachRock. Jon Stewart, Jon Landau, Nona Hendryx, Steve Buscemi, and Richie Sambora appear as panelists before the main event.
+Bruce and Little Steven hold court at Asbury Lanes as a promotional event for , Steven's autobiography, and as a benefit for TeachRock. Jon Stewart, Jon Landau, Nona Hendryx, Steve Buscemi, and Richie Sambora appear as panelists before the main event.
 
 **2021:** *Unrequited Infatuations*
 

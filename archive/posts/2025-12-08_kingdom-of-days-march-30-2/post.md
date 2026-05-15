@@ -1,12 +1,12 @@
 
 
-At the Record Plant in New York City, Bruce and his studio team complete the mix for “Darkness on the Edge of Town.”
+At the Record Plant in New York City, Bruce and his studio team complete the mix for "Darkness on the Edge of Town."
 
 **1978:**
 
 [https://www.youtube.com/embed/0LpdEyGhNxM?feature=oembed](https://www.youtube.com/embed/0LpdEyGhNxM?feature=oembed)
 
-Bruce and the E Street Band rehearse for their upcoming album in Bruce’s home studio in Holmdel, although several of the songs they work on won’t see release for almost four decades.
+Bruce and the E Street Band rehearse for their upcoming album in Bruce's home studio in Holmdel, although several of the songs they work on won't see release for almost four decades.
 
 **1979:**
 
@@ -18,7 +18,7 @@ Bruce postpones a show in Edinburgh to recover from the previous leg of the Rive
 
 **1981:**
 
-Detroit radio station WRIF-FM airs a bootleg of last month’s Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can’t envision a day when bootlegs are commonly played on the radio.
+Detroit radio station WRIF-FM airs a bootleg of last month's Tunnel of Love Express concert from Worcester, angering Columbia Records executives who can't envision a day when bootlegs are commonly played on the radio.
 
 **1988:**
 
@@ -42,7 +42,7 @@ Bruce and his new touring band rehearse in Glasgow before kicking off World Tour
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1993-03-30b.png?resize=758%2C1508&amp;ssl=1)
 
-Bruce’s scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year’s Oscars ceremony.
+Bruce's scheduled solo show in Antwerp is postponed to the following month so that he can perform at this year's Oscars ceremony.
 
 **1996:**
 
@@ -58,7 +58,7 @@ In town a day early for their show in Vancouver, Bruce and Max take their sons t
 
 [https://www.youtube.com/embed/ftsBk0Sq2A8?feature=oembed](https://www.youtube.com/embed/ftsBk0Sq2A8?feature=oembed)
 
-Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on “Tougher Than the Rest.”
+Bruce and the E Street Band play their first of two nights at Hanging Rock in Macedon, Australia. Jimmy Barnes guests on "Tougher Than the Rest."
 
 **2013:**
 

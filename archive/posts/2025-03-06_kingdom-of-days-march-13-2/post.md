@@ -2,7 +2,7 @@
 
 *No updates***New for 2025:**
 
-Child, Bruce’s new band, performs at Pandemonium in Wanamassa, New Jersey.
+Child, Bruce's new band, performs at Pandemonium in Wanamassa, New Jersey.
 
 **1969:**
 
@@ -10,7 +10,7 @@ Bruce jams with local musicians at an open mic night at The Upstage in Asbury Pa
 
 **1971:**
 
-Night Two of seven at Oliver’s in Boston.
+Night Two of seven at Oliver's in Boston.
 
 **1973:**
 
@@ -64,11 +64,11 @@ Bruce and the E Street Band play the aptly named Reunion Arena in Dallas.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2000-03-13.jpg?resize=601%2C4745&amp;ssl=1)
 
-Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park’s Paramount Theater.
+Bruce and the Sessions Band rehearse for their upcoming tour at Asbury Park's Paramount Theater.
 
 **2006:**
 
-: The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg’s benefit.
+: The E Street Band rehearses for the Working on a Dream Tour–without Bruce–for substitute drummer Jay Weinberg's benefit.
 
 **2009**
 

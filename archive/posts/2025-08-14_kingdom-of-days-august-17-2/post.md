@@ -2,11 +2,11 @@
 
 *Audio for 1975***New for 2025:**
 
-Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that’s where the band wants to be–but they honor their commitment.
+Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that's where the band wants to be–but they honor their commitment.
 
 **1969:**
 
-Bruce and the E Street Band wrap up their legendary five-night stand at The Bottom Line in New York City with two final shows. The buzz from these shows will turbocharge Bruce’s career and the remainder of the Born to Run Tour.
+Bruce and the E Street Band wrap up their legendary five-night stand at The Bottom Line in New York City with two final shows. The buzz from these shows will turbocharge Bruce's career and the remainder of the Born to Run Tour.
 
 **1975:**
 
@@ -18,9 +18,9 @@ Bruce and the boys play their second night at Red Rocks Amphitheater on the Rive
 
 [https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeU6hH1IQ-_RzSrXz3-Te7tL](https://www.youtube.com/embed/videoseries?list=PLsxNBNx2akeU6hH1IQ-_RzSrXz3-Te7tL)
 
-The Born in the U.S.A. Tour’s ten-night stand at the Brendan Byrne Arena in East Rutherford reaches Night Eight, a show notable for the first-ever performance of “” and the tour premiere of “Follow That Dream.”
+The Born in the U.S.A. Tour's ten-night stand at the Brendan Byrne Arena in East Rutherford reaches Night Eight, a show notable for the first-ever performance of "" and the tour premiere of "Follow That Dream."
 
-**1984:** [I’m Goin’ Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)
+**1984:** [I'm Goin' Down](https://estreetshuffle.com/index.php/2021/06/05/roll-of-the-dice-im-goin-down/)
 
 [https://www.youtube.com/embed/_PJFou1o1JE?feature=oembed](https://www.youtube.com/embed/_PJFou1o1JE?feature=oembed)
 
@@ -38,7 +38,7 @@ Bruce and his new touring band bring World Tour 1992 to the Detroit area for the
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1992-08-17b-211x300.png?resize=758%2C1078)
 
-Bruce postpones a scheduled Reunion show in Detroit to the following month due to “scheduling conflicts.”
+Bruce postpones a scheduled Reunion show in Detroit to the following month due to "scheduling conflicts."
 
 **1999:**
 
@@ -62,7 +62,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-resumes its limited return engagement at the St. James Theater in New York City after a month-long break. During the hiatus, the pandemic has resurged and masks are a requirement among the audience again. Bruce also winks at the recent “Thunder Road” debate, definitively and repetitively singing “sways” to put the matter to rest.
+resumes its limited return engagement at the St. James Theater in New York City after a month-long break. During the hiatus, the pandemic has resurged and masks are a requirement among the audience again. Bruce also winks at the recent "Thunder Road" debate, definitively and repetitively singing "sways" to put the matter to rest.
 
 **2021:** *Springsteen on Broadway* <https://estreetshuffle.com/wp-content/uploads/2022/08/05-Thunder-Road.mp3>
 

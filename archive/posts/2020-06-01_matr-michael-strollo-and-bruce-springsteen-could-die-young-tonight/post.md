@@ -1,6 +1,6 @@
 In the early 2000s, Michael Strollo made a local name for himself as the lead singer of Exit 105, a terrific Jersey Shore-based rock band. (Where else would a band with that name be from?)
 
-Strollo went solo in 2008 and released his first album, *Bedroom Eyes,* in 2010. Among the standout songs on that album is a sad, beautiful ballad called "Could Die Young Tonight."
+Strollo went solo in 2008 and released his first album, *Bedroom Eyes*, in 2010. Among the standout songs on that album is a sad, beautiful ballad called "Could Die Young Tonight."
 
 [Watch on Youtube: Could Die Young Tonight](https://www.youtube.com/watch?v=SYn3Jp8Gqbc)
 

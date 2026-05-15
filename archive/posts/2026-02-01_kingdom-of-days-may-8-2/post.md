@@ -2,7 +2,7 @@
 
 > *Here is a copy of a couple of the reels of Bruce Springsteen, a very talented kid who recorded these twelve songs in a period of around two hours last Wednesday . . . I think we better act quickly because many people heard the boy at The Gaslight so that his fame is beginning to spread.*
 
-**1975:** Bruce records an early take of “Linda Let Me Be the One” at the Record Plant in New York City.
+**1975:** Bruce records an early take of "Linda Let Me Be the One" at the Record Plant in New York City.
 
 [https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2021/03/lindaletmebetheone_unofficial.mp3?_=2)
 
@@ -12,19 +12,19 @@
 
 ![](../../assets/2021/05/1976-0508.jpg)
 
-**1981:** Night Two in Stockholm for the original River Tour opens with Bruce’s last known performance of “Run Through the Jungle” and features the European debut of “The Price You Pay.”
+**1981:** Night Two in Stockholm for the original River Tour opens with Bruce's last known performance of "Run Through the Jungle" and features the European debut of "The Price You Pay."
 
 [Watch on Youtube: Bruce Springsteen - Live in Stockholm - May 8th, 1981](https://www.youtube.com/watch?v=9sE_NKOV_8o)
 
 [Watch on Youtube: Bruce Springsteen - Point Blank 1981 (Intro Speech, audio)](https://www.youtube.com/watch?v=c79ved0jczQ)
 
-**1982:** Bruce guests with Beaver Brown at The Fast Lane in Asbury Park for “Jole Blon,” “Jersey Girl,” “Lucille,” and “Around and Around.”
+**1982:** Bruce guests with Beaver Brown at The Fast Lane in Asbury Park for "Jole Blon," "Jersey Girl," "Lucille," and "Around and Around."
 
 [Watch Video Highlight](https://videopress.com/embed/FYSJTZ6R)
 
 ![](../../assets/2018/05/1982-0508.jpg)
 
-**1992:** MTV’s *Week in Rock* features an interview with Bruce to promote his upcoming tour and *Saturday Night Live* appearance.
+**1992:** MTV's *Week in Rock* features an interview with Bruce to promote his upcoming tour and *Saturday Night Live* appearance.
 
 [Watch on Youtube: Week in Rock - Bruce Springsteen, May 8, 1992](https://www.youtube.com/watch?v=RPaGEiLEgFE)
 
@@ -40,7 +40,7 @@
 
 ![](../../assets/2024/05/La_Prensa_Mon__May_13__1996_-scaled.jpg)
 
-**2000:** Bruce and the E Street band play their second of two shows at the Hartford Civic Center, opening with the first performance of “Roulette” in almost twelve years.
+**2000:** Bruce and the E Street band play their second of two shows at the Hartford Civic Center, opening with the first performance of "Roulette" in almost twelve years.
 
 [Watch on Youtube: Bruce Springsteen - Live In Hartford 08/05/2000 - Full Concert (4K Remastered)](https://www.youtube.com/watch?v=edCybrLZ0yg)
 
@@ -54,17 +54,17 @@
 
 [Watch on Youtube: Bruce Springsteen Land Of Hope And Dreams (Live 2000 05 08)](https://www.youtube.com/watch?v=pai9_124wjk)
 
-**2003:** The second of two Rising shows at Stadion Feyenoord in Rotterdam features a solo acoustic “Darkness on the Edge of Town.”
+**2003:** The second of two Rising shows at Stadion Feyenoord in Rotterdam features a solo acoustic "Darkness on the Edge of Town."
 
 [Watch on Youtube: Rotterdam 08/05/2003](https://www.youtube.com/watch?v=videoseries)
 
-**2005:** *Devils & Dust* captures the Number One slot on the U.S. album chart, Bruce’s 13th studio album to accomplish that feat.
+**2005:** *Devils & Dust* captures the Number One slot on the U.S. album chart, Bruce's 13th studio album to accomplish that feat.
 
 **2006:** As the Seeger Sessions Tour rolls into London, Bruce plays his first show at the Hammersmith Odeon (now called the Hammersmith Apollo) since his original famed 1975 stand.
 
 [Watch on Youtube: Bruce 'The Boss' Springsteen at Hammersmith May 8th 2006](https://www.youtube.com/watch?v=niCOPuhUF50)
 
-**2009:** Bruce takes the Working on a Dream Tour to Penn State University, where he performs “My Generation” for the first time. The set also includes the tour premieres of “This Life,” “Bobby Jean,” and “Wooly Bully.”
+**2009:** Bruce takes the Working on a Dream Tour to Penn State University, where he performs "My Generation" for the first time. The set also includes the tour premieres of "This Life," "Bobby Jean," and "Wooly Bully."
 
 [Watch on Youtube: Bruce Springsteen - My Generation - Live from University Park - Working On A Dream Tour - 2009](https://www.youtube.com/watch?v=21ShrNP31CY)
 
@@ -72,7 +72,7 @@
 
 ![](../../assets/2024/05/Centre_Daily_Times_Sat__May_9__2009_-scaled.jpg)
 
-**2013:** The second Wrecking Ball show in Turku features the live premiere of “[Wages of Sin](https://estreetshuffle.com/index.php/2020/02/07/roll-of-the-dice-wages-of-sin/),” the tour debut of “I’ll Work For Your Love,” and a rare “Ain’t Good Enough for You.” (photo credit: Jan Alin)
+**2013:** The second Wrecking Ball show in Turku features the live premiere of "[Wages of Sin](https://estreetshuffle.com/index.php/2020/02/07/roll-of-the-dice-wages-of-sin/)," the tour debut of "I'll Work For Your Love," and a rare "Ain't Good Enough for You." (photo credit: Jan Alin)
 
 ![](../../assets/2019/05/jan.jpg)
 
@@ -86,7 +86,7 @@
 
 [Watch on Youtube: Bruce Springsteen Turku 08/05/2013 Full Concert](https://www.youtube.com/watch?v=z9gAZPL3vIk)
 
-**2017:** At The Upstage in Asbury Park, Bruce films an interview for the documentary *Just Before the Dawn: Riot, Redemption, Rock ‘n’ Roll*.
+**2017:** At The Upstage in Asbury Park, Bruce films an interview for the documentary *Just Before the Dawn: Riot, Redemption, Rock ‘n' Roll*.
 
 [Watch on Youtube: Just Before The Dawn Trailer](https://www.youtube.com/watch?v=Ion1vlKrsgM)
 

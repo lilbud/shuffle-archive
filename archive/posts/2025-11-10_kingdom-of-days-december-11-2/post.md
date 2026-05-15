@@ -10,7 +10,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-12-10.png?resize=758%2C913&amp;ssl=1)
 
-Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall University, where they play “” for the last time to date.
+Bruce and the E Street Band make a Born to Run Tour stop at Seton Hall University, where they play "" for the last time to date.
 
 **1975:** [Party Lights](https://estreetshuffle.com/index.php/2022/06/01/cover-me-party-lights/)
 
@@ -34,7 +34,7 @@ The original River Tour stops at the Civic Center in Providence, Rhode Island. T
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1980-12-11.png?resize=758%2C1386&amp;ssl=1)
 
-Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, where they add “My Old Kentucky Home” to “” for the occasion.
+Bruce and the E Street Band bring the Born in the U.S.A. Tour to Lexington, where they add "My Old Kentucky Home" to "" for the occasion.
 
 **1984:** [Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
@@ -66,8 +66,8 @@ Bruce makes an appearance on Italian television, performing and sitting down for
 
 [https://www.youtube.com/embed/r5h51SBnXUo?feature=oembed](https://www.youtube.com/embed/r5h51SBnXUo?feature=oembed)
 
-Bruce and the E Street Band team up with the Max Weinberg 7 on for a special holiday performance and one of Bruce’s all-time best television appearances.
+Bruce and the E Street Band team up with the Max Weinberg 7 on for a special holiday performance and one of Bruce's all-time best television appearances.
 
-**2002:** *Late Night with Conan O’Brien*
+**2002:** *Late Night with Conan O'Brien*
 
 [https://www.youtube.com/embed/jCfSu99bAqc?feature=oembed](https://www.youtube.com/embed/jCfSu99bAqc?feature=oembed)

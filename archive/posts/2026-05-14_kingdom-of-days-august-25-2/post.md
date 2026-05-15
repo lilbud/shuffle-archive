@@ -1,6 +1,6 @@
 **1970:** Bruce hires Robbin Thompson as vocalist for Steel Mill and kicks off three days of rehearsals at the Challenger Eastern Surfboard factory in Wanamassa, New Jersey.
 
-**1973:** Bruce and the E Street Band play their sixth night of a week-long residency at Oliver’s in Boston.
+**1973:** Bruce and the E Street Band play their sixth night of a week-long residency at Oliver's in Boston.
 
 **1975:** Finally! After fourteen months of recording and production, Bruce releases *Born to Run*, his third studio album, to radio stations. (It will reach record store shelves next week.) Reviews are mostly positive.
 
@@ -16,15 +16,15 @@
 
 ![](../../assets/2020/08/1975-08-25b.png)
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to New Haven for a show at the Veterans Memorial Coliseum, where they play a tour one-off of “It’s Gonna Work Out Fine.” After the show, Bruce sits down for an interview with Bob Harris for the UK television show, *Old Grey Whistle Test*.
+**1978:** Bruce and the E Street Band bring the Darkness Tour to New Haven for a show at the Veterans Memorial Coliseum, where they play a tour one-off of "It's Gonna Work Out Fine." After the show, Bruce sits down for an interview with Bob Harris for the UK television show, *Old Grey Whistle Test*.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=8jvarthD60U)
 
 [Watch Video Highlight](https://videopress.com/embed/MtTTMnWz?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad’s Place.
+Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad's Place.
 
-**1979:** Bruce and the band record “Point Blank” and an early arrangement of “You Can Look (Buy You Better Not Touch)” during a recording session at the Power Station in New York City.
+**1979:** Bruce and the band record "Point Blank" and an early arrangement of "You Can Look (Buy You Better Not Touch)" during a recording session at the Power Station in New York City.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=aQcxrt9-6ZI)
 
@@ -38,7 +38,7 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad�
 
 ![](../../assets/2020/08/1984-08-25c.png)
 
-**1992:** World Tour 1992 moves on to the Washington DC area, with the first of two shows at the Capital Center in Largo. Bruce plays “Dancing in the Dark” for the last time on the tour. It will surface once more next year, and then not again until the Reunion Tour.
+**1992:** World Tour 1992 moves on to the Washington DC area, with the first of two shows at the Capital Center in Largo. Bruce plays "Dancing in the Dark" for the last time on the tour. It will surface once more next year, and then not again until the Reunion Tour.
 
 [Watch Video Highlight](https://videopress.com/embed/BgCpUOF3?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -66,13 +66,13 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad�
 
 ![](../../assets/2024/08/Philadelphia_Daily_News_2006_08_28_Page_37-scaled.jpg)
 
-**2009:** Jay Weinberg flies solo on drums for the entire Working on a Dream show in Saratoga Springs, but it’s the soundcheck that’s most interesting about this show: check out a rare “Spare Parts” and Little Steven on lead vocals for “Prove It All Night” and “Hungry Heart.”
+**2009:** Jay Weinberg flies solo on drums for the entire Working on a Dream show in Saratoga Springs, but it's the soundcheck that's most interesting about this show: check out a rare "Spare Parts" and Little Steven on lead vocals for "Prove It All Night" and "Hungry Heart."
 
 [Watch Video Highlight](https://videopress.com/embed/AmZyGrtP?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
 ![](../../assets/2021/08/2009-08-25.jpg)
 
-**2016:** Bruce flirts with the four-hour mark at Night Two at MetLife Stadium, stopping just short of it but setting a new American record for show length just the same. “New York City Serenade” with strings is once again the opener, and “Jersey Girl” with fireworks is once again the closer (this time with a marriage proposal that ends the evening on a wonderfully loose and romantic note). Tom Morello makes his final E Street Band appearance to date, on stage for four songs.
+**2016:** Bruce flirts with the four-hour mark at Night Two at MetLife Stadium, stopping just short of it but setting a new American record for show length just the same. "New York City Serenade" with strings is once again the opener, and "Jersey Girl" with fireworks is once again the closer (this time with a marriage proposal that ends the evening on a wonderfully loose and romantic note). Tom Morello makes his final E Street Band appearance to date, on stage for four songs.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=odKf_k4x0iI)
 
@@ -84,7 +84,7 @@ Later that night, Bruce and Clarence join Beaver Brown on stage nearby at Toad�
 
 ![](../../assets/2020/08/2016-08-25.png)
 
-**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so fans in attendance get the show’s “B” set with the “This Hard Land” encore. In the audience tonight: Argentine tennis player Juan Martin del Potro.
+**2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so fans in attendance get the show's "B" set with the "This Hard Land" encore. In the audience tonight: Argentine tennis player Juan Martin del Potro.
 
 ![](../../assets/2021/08/juanmartin-1.jpg)
 

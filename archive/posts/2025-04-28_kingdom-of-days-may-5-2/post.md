@@ -22,7 +22,7 @@ Bruce postpones a scheduled concert at Kent State University to June 1.
 
 **1974:**
 
-At a recording session at the Record Plant in New York City, Bruce begins work on “.”
+At a recording session at the Record Plant in New York City, Bruce begins work on "."
 
 **1975:** *Born to Run*[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 
@@ -32,7 +32,7 @@ Bruce plays his first-ever show in Norway, when the River Tour comes to Drammen.
 
 [https://videopress.com/embed/fZwe49y9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fZwe49y9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-At The Power Station studio in New York City, Bruce and the E Street Band record “” “,” “” and the still unreleased “Stop the War.”
+At The Power Station studio in New York City, Bruce and the E Street Band record "" "," "" and the still unreleased "Stop the War."
 
 **1982:** [Glory Days,](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[My Love Will Not Let You Down](http://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)[A Good Man Is Hard to Find (Pittsburgh)](https://estreetshuffle.com/index.php/2021/04/30/roll-of-the-dice-a-good-man-is-hard-to-find-pittsburgh/)
 
@@ -64,7 +64,7 @@ Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Ex
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1988-0505-214x300.jpg?resize=758%2C1064)
 
-The Recording Industry Association of America certifies “” as gold and “” as platinum.
+The Recording Industry Association of America certifies "" as gold and "" as platinum.
 
 **1992:** [Santa Claus Is Coming to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
@@ -90,7 +90,7 @@ Bruce receives the Polar Music Prize from King Carl XVI Gustaf of Sweden. The ce
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1997-05-05-300x167.jpg?resize=758%2C422)
 
-Bruce tour premieres “” and an acoustic arrangement of “” at his solo acoustic show at Oakland’s Paramount Theater. For more highlights from this show, see my .
+Bruce tour premieres "" and an acoustic arrangement of "" at his solo acoustic show at Oakland's Paramount Theater. For more highlights from this show, see my .
 
 **2005:** [Nebraska](http://estreetshuffle.com/index.php/2018/04/16/roll-of-the-dice-nebraska/)[Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)[report](http://estreetshuffle.com/index.php/2018/05/05/where-the-band-was-oakland-may-5-2005/)*Where the Band Was*
 
@@ -102,7 +102,7 @@ Bruce tour premieres “” and an acoustic arrangement of “” at his solo ac
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-05b.jpg?resize=758%2C1058&amp;ssl=1)
 
-The first European leg of the Seeger Sessions Tour kicks off at the Point Theater in Dublin with the tour debuts of “” and “.”
+The first European leg of the Seeger Sessions Tour kicks off at the Point Theater in Dublin with the tour debuts of "" and "."
 
 **2006:** [Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Erie Canal](https://estreetshuffle.com/index.php/2019/11/02/cover-me-erie-canal/)
 
@@ -110,7 +110,7 @@ The first European leg of the Seeger Sessions Tour kicks off at the Point Theate
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Sat__May_6__2006_.jpg?resize=758%2C347&amp;ssl=1)
 
-Bruce plays his fourth show in four days, as the Working on a Dream Tour rolls into Charlottesville, Virginia, for a show at the John Paul Jones arena. The set list includes a one-off cover (by request) of The Kinks’ “,” along with the tour premieres of “” and “.”
+Bruce plays his fourth show in four days, as the Working on a Dream Tour rolls into Charlottesville, Virginia, for a show at the John Paul Jones arena. The set list includes a one-off cover (by request) of The Kinks' "," along with the tour premieres of "" and "."
 
 **2009:** [You Really Got Me](https://estreetshuffle.com/index.php/2020/12/01/cover-me-you-really-got-me/)[Gypsy Biker](http://estreetshuffle.com/index.php/2019/05/02/roll-of-the-dice-gypsy-biker/)[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)
 
@@ -120,7 +120,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce appears at the opening night of Netflix’s third annual FYSEE event, playing two songs and joining director Martin Scorsese for a Q&A session.
+Bruce appears at the opening night of Netflix's third annual FYSEE event, playing two songs and joining director Martin Scorsese for a Q&A session.
 
 **2019:**
 
@@ -128,13 +128,13 @@ Bruce appears at the opening night of Netflix’s third annual FYSEE event, play
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-05-05-300x300.jpg?resize=758%2C758)
 
-Bruce kicks off a three-night stand in Dublin without any tour premieres, the first debut-less show since March. The encores open with “Land of Hope and Dreams,” dedicated to Charlie Bird, who is in attendance tonight.
+Bruce kicks off a three-night stand in Dublin without any tour premieres, the first debut-less show since March. The encores open with "Land of Hope and Dreams," dedicated to Charlie Bird, who is in attendance tonight.
 
 **2023:**
 
 [https://www.youtube.com/embed/GqK9Q3Dq5B8?feature=oembed](https://www.youtube.com/embed/GqK9Q3Dq5B8?feature=oembed)
 
-Bruce and the E Street Band kick off the European leg of their World Tour with the tour debut of “So Young and In Love” at Principality Stadium in Cardiff. Also tour premiering tonight by request: “.”
+Bruce and the E Street Band kick off the European leg of their World Tour with the tour debut of "So Young and In Love" at Principality Stadium in Cardiff. Also tour premiering tonight by request: "."
 
 **2024:** [Better Days](https://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)
 

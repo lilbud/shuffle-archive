@@ -2,7 +2,7 @@
 
 *Audio for 1975***New for 2025:**
 
-The Bruce Springsteen Band headlines two shows at D’Scene in South Amboy, New Jersey.
+The Bruce Springsteen Band headlines two shows at D'Scene in South Amboy, New Jersey.
 
 **1971:**
 
@@ -10,7 +10,7 @@ The Bruce Springsteen Band headlines two shows at D’Scene in South Amboy, New 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1971-0722-300x207.jpg?resize=734%2C506)
 
-Bruce and his band headline two shows at Max’s Kansas City in New York, with The Wailers opening for them.
+Bruce and his band headline two shows at Max's Kansas City in New York, with The Wailers opening for them.
 
 **1973:**
 
@@ -18,9 +18,9 @@ Bruce and his band headline two shows at Max’s Kansas City in New York, with T
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/1973-07-22-288x300.jpg?resize=753%2C784)
 
-It’s Night Two on the Born to Run Tour, and the band continues developing the show at the Geneva Theater in Geneva, New York, where “” makes its tour debut. At soundcheck, Bruce and the band cover “” and “.”
+It's Night Two on the Born to Run Tour, and the band continues developing the show at the Geneva Theater in Geneva, New York, where "" makes its tour debut. At soundcheck, Bruce and the band cover "" and "."
 
-**1975:** [She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)[Needles and Pins](http://estreetshuffle.com/index.php/2019/02/27/cover-me-needles-and-pins/)[You Really Got Me](https://estreetshuffle.com/index.php/2020/12/01/cover-me-you-really-got-me/)
+**1975:** [She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)[Needles and Pins](http://estreetshuffle.com/index.php/2019/02/27/cover-me-needles-and-pins/)[You Really Got Me](https://estreetshuffle.com/index.php/2020/12/01/cover-me-you-really-got-me/)
 
 [https://www.youtube.com/embed/zaANhuBBSzc?feature=oembed](https://www.youtube.com/embed/zaANhuBBSzc?feature=oembed)
 
@@ -34,15 +34,15 @@ It’s Night Two on the Born to Run Tour, and the band continues developing the 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1975-07-22-300x270.png?resize=758%2C682)
 
-: CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on “” and “.”
+: CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on "" and "."
 
-**1976**[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)[I Don’t Want to Go Home](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)
+**1976**[The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)[I Don't Want to Go Home](http://estreetshuffle.com/index.php/2018/03/30/meeting-across-the-river-bruce-springsteen-and-steve-van-zandt-i-dont-want-to-go-home/)
 
 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/1976-0722-226x300.jpg?resize=758%2C1006)
 
-Bruce’s Darkness Tour show in Birmingham, Alabama is postponed to September due to a throat infection.
+Bruce's Darkness Tour show in Birmingham, Alabama is postponed to September due to a throat infection.
 
 **1978:**
 
@@ -56,7 +56,7 @@ Fresh off of his history-making East Berlin show, Bruce crosses the border to We
 
 [https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1Ap7bmpnYqLbgqSwEfAqmhn](https://www.youtube.com/embed/videoseries?list=PLu8VBPtfGX1Ap7bmpnYqLbgqSwEfAqmhn)
 
-Bruce joins Peter Hartung & The Remakes on stage at McLoone’s Rum Runner in Sea Bright, New Jersey.
+Bruce joins Peter Hartung & The Remakes on stage at McLoone's Rum Runner in Sea Bright, New Jersey.
 
 **1989:**
 
@@ -82,7 +82,7 @@ Bruce and the E Street Band rehearse for the upcoming Rising Tour at the Expo Th
 
 **2002:**
 
-Bruce takes a stroll along the Jersey shore, stops and borrows a guitar, and plays “Born to Run.”
+Bruce takes a stroll along the Jersey shore, stops and borrows a guitar, and plays "Born to Run."
 
 **2011:**
 
@@ -90,7 +90,7 @@ Bruce takes a stroll along the Jersey shore, stops and borrows a guitar, and pla
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/2011-0722-300x300.jpg?resize=758%2C758)
 
-On the one year anniversary of the Norway attacks, Bruce and Steve play “” at the memorial concert for the victims in Oslo.
+On the one year anniversary of the Norway attacks, Bruce and Steve play "" at the memorial concert for the victims in Oslo.
 
 **2012:** [We Shall Overcome](http://estreetshuffle.com/index.php/2018/08/15/roll-of-the-dice-cover-me-we-shall-overcome/)
 

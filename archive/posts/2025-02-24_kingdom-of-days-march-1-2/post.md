@@ -8,7 +8,7 @@ A scheduled date in San Jose opening for Paul Butterfield is cancelled due to lo
 
 **1973:**
 
-Bruce cancels a show at the New Jersey State Theater due to illness. Who knew Bruce graduated from Rutgers? (The journalist below sure doesn’t.) Disappointed Springsteen fans ask for their money back; the theater obliges and throws in a bonus.
+Bruce cancels a show at the New Jersey State Theater due to illness. Who knew Bruce graduated from Rutgers? (The journalist below sure doesn't.) Disappointed Springsteen fans ask for their money back; the theater obliges and throws in a bonus.
 
 **1974:**
 
@@ -28,11 +28,11 @@ Yet another cancellation, this one in Syracuse, due to a conflict with mixing se
 
 **1975:***Born to Run*
 
-Bruce sits in with the David Johansen Group at The Fast Lane in Asbury Park, joining the band for “Personality Crisis” and “.”
+Bruce sits in with the David Johansen Group at The Fast Lane in Asbury Park, joining the band for "Personality Crisis" and "."
 
 **1980:**[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)
 
-Friday Night Videos airs Part 2 of its “Private Reel” profile of Bruce.
+Friday Night Videos airs Part 2 of its "Private Reel" profile of Bruce.
 
 **1985:**
 
@@ -52,7 +52,7 @@ At the Grammy Awards, Bruce appears with B.B. King, Bonnie Raitt, Steve Winwood 
 
 [https://www.youtube.com/embed/AjM2KHrNUxk?feature=oembed](https://www.youtube.com/embed/AjM2KHrNUxk?feature=oembed)
 
-Bruce performs “” and wins Grammys for Best Rock Song, Best Male Rock Vocal Performance, Song of the Year, and Best Song Written Specifically for a Motion Picture or for Television. The only nomination for which he doesn’t take home the award is for Record of the Year. Check out the footage of the awards, post-ceremony interviews and more below.
+Bruce performs "" and wins Grammys for Best Rock Song, Best Male Rock Vocal Performance, Song of the Year, and Best Song Written Specifically for a Motion Picture or for Television. The only nomination for which he doesn't take home the award is for Record of the Year. Check out the footage of the awards, post-ceremony interviews and more below.
 
 **1995:**[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
@@ -68,7 +68,7 @@ Bruce performs “” and wins Grammys for Best Rock Song, Best Male Rock Vocal 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1995-03-01.png?resize=758%2C351&amp;ssl=1)
 
-If press reports are accurate, Bruce gets a workout in at Marco’s Gym in Edinburgh during an off-day on his solo acoustic tour. The timing is odd, however, since he played in Birmingham last night and will perform in Newcastle tomorrow. His Edinburgh show isn’t for another two days. Perhaps he’s making Edinburgh his base of operations for this leg of the tour.
+If press reports are accurate, Bruce gets a workout in at Marco's Gym in Edinburgh during an off-day on his solo acoustic tour. The timing is odd, however, since he played in Birmingham last night and will perform in Newcastle tomorrow. His Edinburgh show isn't for another two days. Perhaps he's making Edinburgh his base of operations for this leg of the tour.
 
 **1996:**
 
@@ -84,7 +84,7 @@ Bruce sets a Ticketmaster record, becoming the first artist to sell tickets for 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-03-01-300x262.jpg?resize=758%2C662)
 
-Bruce plays the first of two shows in Auckland, New Zealand. He opens with an acoustic cover of Lorde’s “,” tour debuts “,” and plays the full album. This show has an opening act: Jimmy Barnes, who recorded Steve Van Zandt’s “Ride the Night Away” on his 1985 album, . Steve makes a guest appearance during Jimmy’s set to join him for that song.
+Bruce plays the first of two shows in Auckland, New Zealand. He opens with an acoustic cover of Lorde's "," tour debuts "," and plays the full album. This show has an opening act: Jimmy Barnes, who recorded Steve Van Zandt's "Ride the Night Away" on his 1985 album, . Steve makes a guest appearance during Jimmy's set to join him for that song.
 
 **2014:**[Royals](https://estreetshuffle.com/index.php/2020/04/25/cover-me-royals/)[Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)*Born in the U.S.A.* *For the Working Class Man*
 
@@ -102,7 +102,7 @@ Patti Scialfa returns to after recuperating from a back injury, as the show cont
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and President Obama debut Episode 3 of their podcast, This episode is entitled “Amazing Grace: American Music,” and it features a duet of sorts on “.”
+Bruce and President Obama debut Episode 3 of their podcast, This episode is entitled "Amazing Grace: American Music," and it features a duet of sorts on "."
 
 **2021:** *Renegades: Born in the U.S.A.* [Further On Up the Road](https://estreetshuffle.com/index.php/2022/01/01/roll-of-the-dice-further-on-up-the-road/)
 

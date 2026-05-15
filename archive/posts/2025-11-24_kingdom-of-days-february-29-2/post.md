@@ -1,6 +1,6 @@
 
 
-Bruce and the E Street Band wrap up their three-night opening stand for the Tunnel of Love Express Tour at the Centrum in Worcester, Massachusetts, where Bruce plays “” for the very first time.
+Bruce and the E Street Band wrap up their three-night opening stand for the Tunnel of Love Express Tour at the Centrum in Worcester, Massachusetts, where Bruce plays "" for the very first time.
 
 **1988:** [Love Me Tender](http://estreetshuffle.com/index.php/2019/03/02/cover-me-love-me-tender/)
 

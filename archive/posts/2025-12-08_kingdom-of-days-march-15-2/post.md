@@ -1,10 +1,10 @@
 
 
-: Bruce and the band play their fourth of seven nights at Oliver’s in Boston.
+: Bruce and the band play their fourth of seven nights at Oliver's in Boston.
 
 **1973**
 
-Bruce plays Austin for the first time to a sold-out crowd at Armadillo World Headquarters. He’ll be back in 38 years to the day to keynote at SXSW. 
+Bruce plays Austin for the first time to a sold-out crowd at Armadillo World Headquarters. He'll be back in 38 years to the day to keynote at SXSW. 
 
 **1974:** (photo credit: Burton Wilson)
 
@@ -32,7 +32,7 @@ Bruce and the band play their third show in three nights, this time at Broome Co
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1977-0315.jpg?resize=456%2C800&amp;ssl=1)
 
-At the Record Plant in New York City, Bruce records “(I Love) Everything About You,” which remains unreleased to this day.
+At the Record Plant in New York City, Bruce records "(I Love) Everything About You," which remains unreleased to this day.
 
 **1978:**
 
@@ -44,7 +44,7 @@ In town a day early for his show in Rosemont the next night, Bruce has dinner ou
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-03-15.png?resize=758%2C935&amp;ssl=1)
 
-Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street Band play a mini-set that includes Springsteen classics like “The Promised Land” and “Tenth Avenue Freeze-Out,” a duet with Wilson Pickett (and Billy Joel on keyboard) and an all-star jam on “Let It Be.”
+Bono inducts Bruce into the Hall of Fame, and afterward, Bruce and the E Street Band play a mini-set that includes Springsteen classics like "The Promised Land" and "Tenth Avenue Freeze-Out," a duet with Wilson Pickett (and Billy Joel on keyboard) and an all-star jam on "Let It Be."
 
 **1999:**
 
@@ -98,7 +98,7 @@ After the speech, Bruce plays a warm-up show for the upcoming Wrecking Ball Tour
 
 [https://www.youtube.com/embed/pYdwoJqkMbA?feature=oembed](https://www.youtube.com/embed/pYdwoJqkMbA?feature=oembed)
 
-In today’s episode of Legends of Springsteen, Bruce tours around the Lake Okeechobee area of Florida on his motorcycle, taking selfies and photos, hanging out at a local watering hole, and making a PSA for wearing a bike helmet.
+In today's episode of Legends of Springsteen, Bruce tours around the Lake Okeechobee area of Florida on his motorcycle, taking selfies and photos, hanging out at a local watering hole, and making a PSA for wearing a bike helmet.
 
 **2014:**
 
@@ -118,9 +118,9 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Spotify premieres Episode 5 of the new podcast from Bruce and President Barack Obama. This episode is entitled “Every Man for Himself: Money and the American Dream.” In addition to their conversation, Bruce performs acoustic versions of “Atlantic City” and “Used Cars.”
+Spotify premieres Episode 5 of the new podcast from Bruce and President Barack Obama. This episode is entitled "Every Man for Himself: Money and the American Dream." In addition to their conversation, Bruce performs acoustic versions of "Atlantic City" and "Used Cars."
 
-**2021:** *Renegades: Born in the U.S.A.,*
+**2021:** *Renegades: Born in the U.S.A.*,
 
 
 

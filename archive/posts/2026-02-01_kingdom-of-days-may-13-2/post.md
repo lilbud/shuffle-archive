@@ -1,6 +1,6 @@
 
 
-Laurel Canyon sends Bruce a royalty check for $67,000, but an auditor determines it should have been for $2,000,000, ramping up a legal battle that will keep Bruce out of the studio for some time to come. In the meantime, Bruce and the E Street Band bring the Chicken Scratch Tour to New Orleans for a single show at the Municipal Auditorium. This show features Bruce’s first performance of Gary U.S. Bonds’ “New Orleans” and one of the longest-ever performances of “It’s Hard to Be a Saint in the City.”
+Laurel Canyon sends Bruce a royalty check for $67,000, but an auditor determines it should have been for $2,000,000, ramping up a legal battle that will keep Bruce out of the studio for some time to come. In the meantime, Bruce and the E Street Band bring the Chicken Scratch Tour to New Orleans for a single show at the Municipal Auditorium. This show features Bruce's first performance of Gary U.S. Bonds' "New Orleans" and one of the longest-ever performances of "It's Hard to Be a Saint in the City."
 
 **1976:**
 
@@ -10,7 +10,7 @@ Laurel Canyon sends Bruce a royalty check for $67,000, but an auditor determines
 
 [https://www.youtube.com/embed/4Kh6DeLxuGo?feature=oembed](https://www.youtube.com/embed/4Kh6DeLxuGo?feature=oembed)
 
-When Southside Johnny takes ill and can’t perform, Steve Van Zandt transforms his Red Bank show into The Asbury Park All-Star Revue, featuring the Jukes, Bruce and the E Street Band, and Ronnie Spector. Steve performs lead vocals for most of the show, with Bruce on guitar and backing vocals, but Bruce steps up to the mic when the super-band plays his own songs. The Revue plays two shows on this night, and you can hear them both below.
+When Southside Johnny takes ill and can't perform, Steve Van Zandt transforms his Red Bank show into The Asbury Park All-Star Revue, featuring the Jukes, Bruce and the E Street Band, and Ronnie Spector. Steve performs lead vocals for most of the show, with Bruce on guitar and backing vocals, but Bruce steps up to the mic when the super-band plays his own songs. The Revue plays two shows on this night, and you can hear them both below.
 
 **1977:**
 
@@ -18,13 +18,13 @@ When Southside Johnny takes ill and can’t perform, Steve Van Zandt transforms 
 
 [https://videopress.com/embed/aCzHx7js?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/aCzHx7js?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-At the Apollo Theater in Manchester, England, Bruce plays “Johnny Bye-Bye” for the very first time and dedicates “This Land Is Your Land” to Bob Marley, who died two days ago.
+At the Apollo Theater in Manchester, England, Bruce plays "Johnny Bye-Bye" for the very first time and dedicates "This Land Is Your Land" to Bob Marley, who died two days ago.
 
 **1981:**
 
 [https://videopress.com/embed/h9MVaf2z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/h9MVaf2z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce records “Darlington County” at The Power Station in New York City.
+Bruce records "Darlington County" at The Power Station in New York City.
 
 **1982:**
 
@@ -58,7 +58,7 @@ Bruce, Patti, Southside Johnny, and Bobby Bandiera perform at The Stone Pony for
 
 [https://www.youtube.com/embed/VxOABCbCexk?feature=oembed](https://www.youtube.com/embed/VxOABCbCexk?feature=oembed)
 
-At Sting and Trudie’s eighties-themed Rainforest Benefit show at Carnegie Hall, Bruce performs “Cuts Like a Knife” and joins an all-star jam for “Don’t Stop Believin’.”
+At Sting and Trudie's eighties-themed Rainforest Benefit show at Carnegie Hall, Bruce performs "Cuts Like a Knife" and joins an all-star jam for "Don't Stop Believin'."
 
 **2010:**
 
@@ -70,7 +70,7 @@ At Sting and Trudie’s eighties-themed Rainforest Benefit show at Carnegie Hall
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2010-05-13.jpg?resize=758%2C820&amp;ssl=1)
 
-The first European leg of the Wrecking Ball Tour kicks off in Seville. The set features the tour premiere of “I’m Goin’ Down.”
+The first European leg of the Wrecking Ball Tour kicks off in Seville. The set features the tour premiere of "I'm Goin' Down."
 
 **2012:**
 
@@ -82,7 +82,7 @@ The first European leg of the Wrecking Ball Tour kicks off in Seville. The set f
 
 [https://www.youtube.com/embed/_ALY3XPMdc4?feature=oembed](https://www.youtube.com/embed/_ALY3XPMdc4?feature=oembed)
 
-Bruce plays a sizzling show in Albany, opening with a cover of INXS’s “Don’t Change.” Tour premieres and rarities abound, including “Treat Her Right,” “Save the Last Dance for Me,” “Better Days,” “Seaside Bar Song,” and “Kingdom of Days.”
+Bruce plays a sizzling show in Albany, opening with a cover of INXS's "Don't Change." Tour premieres and rarities abound, including "Treat Her Right," "Save the Last Dance for Me," "Better Days," "Seaside Bar Song," and "Kingdom of Days."
 
 **2014:**
 
@@ -98,7 +98,7 @@ Bruce and the E Street Band rehearse in Barcelona for the European leg of The Ri
 
 **2016:**
 
-Bruce receives the Woody Guthrie Prize from Nora Guthrie at his farm in Colts Neck, in a live-streamed event for members of the Woody Guthrie Center. Following his acceptance, Bruce performs a rarity-filled four-song acoustic set, featuring covers of “Tom Joad” and “Plane Wreck at Los Gatos (Deportee)” and a gorgeous “Across the Border.”
+Bruce receives the Woody Guthrie Prize from Nora Guthrie at his farm in Colts Neck, in a live-streamed event for members of the Woody Guthrie Center. Following his acceptance, Bruce performs a rarity-filled four-song acoustic set, featuring covers of "Tom Joad" and "Plane Wreck at Los Gatos (Deportee)" and a gorgeous "Across the Border."
 
 **2021:**
 

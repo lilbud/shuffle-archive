@@ -1,16 +1,16 @@
 
 
-One time only: At Neil Young’s inaugural Bridge School Benefit in 1986, Bruce joined Crosby, Still, Nash and Young for a beautifully loose rendition of “Teach Your Children.”
+One time only: At Neil Young's inaugural Bridge School Benefit in 1986, Bruce joined Crosby, Still, Nash and Young for a beautifully loose rendition of "Teach Your Children."
 
 Don Henley, Tom Petty, and Robin Williams(!) join in as well, and while Danny and Nils are only visible for a moment, you can hear them throughout.
 
 [https://www.youtube.com/embed/bA_cmqYfwFI?feature=oembed](https://www.youtube.com/embed/bA_cmqYfwFI?feature=oembed)
 
-The original, of course, can’t be topped.
+The original, of course, can't be topped.
 
 [https://www.youtube.com/embed/UuBGEoxbFN4?feature=oembed](https://www.youtube.com/embed/UuBGEoxbFN4?feature=oembed)
 
-35 years later, Bruce reprised “Teach Your Children” with Steve Earle, Willie Nile, and Rosanne Cash at Earle’s benefit show in New Yor City.
+35 years later, Bruce reprised "Teach Your Children" with Steve Earle, Willie Nile, and Rosanne Cash at Earle's benefit show in New Yor City.
 
 **Update:**
 

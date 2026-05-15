@@ -1,6 +1,6 @@
 
 
-When Bruce’s mom complained that he always sang about his father but never about her, Bruce replied by covering “A Woman’s Got the Power” by the great Philly band The A’s during a Meadowlands appearance early on the Tour. (This was before Bruce wrote “.”)
+When Bruce's mom complained that he always sang about his father but never about her, Bruce replied by covering "A Woman's Got the Power" by the great Philly band The A's during a Meadowlands appearance early on the Tour. (This was before Bruce wrote ".")
 
 *Born in the U.S.A.*[The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)
 
@@ -10,13 +10,13 @@ On-stage, Bruce credited the song to Clarence Clemons and the Red Bank Rockers, 
 
 [https://www.youtube.com/embed/fZgnx0oqv1c?feature=oembed](https://www.youtube.com/embed/fZgnx0oqv1c?feature=oembed)
 
-…but as a Philly child of the 80s, hometown pride compels to me to credit local band The A’s for the original, released in 1981. Their version will always be my favorite.
+…but as a Philly child of the 80s, hometown pride compels to me to credit local band The A's for the original, released in 1981. Their version will always be my favorite.
 
 [https://www.youtube.com/embed/5Iw1wpLauVY?feature=oembed](https://www.youtube.com/embed/5Iw1wpLauVY?feature=oembed)
 
 August 9, 1984 (East Rutherford, NJ)
 October 22, 2011 (Asbury Park, NJ)
 
-**A Woman’s Got the Power** **First performed:**<br>
+**A Woman's Got the Power** **First performed:**<br>
 
 **Last performed:**<br>

@@ -1,4 +1,4 @@
-In 1976, Bruce Springsteen and Patti Smith were both stars on the ascent, each riding high on their recent breakthrough albums (*Born to Run* and *Horses,* respectively).
+In 1976, Bruce Springsteen and Patti Smith were both stars on the ascent, each riding high on their recent breakthrough albums (*Born to Run* and *Horses*, respectively).
 
 Bruce and Patti had become fast friends and traded appearances on each other's stages that autumn, but on the night of November 26th at The Palladium in New York City, Bruce made much more than a cameo.
 

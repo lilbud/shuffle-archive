@@ -40,7 +40,7 @@ They had good reason to be jubilant–even from those muddy recordings, we can t
 
 Less than three months later, Bruce took the band into the studio and recorded a finished take of "Under the Gun," but to the best of my knowledge that version has never escaped into the wild.
 
-That makes it a great candidate for *Tracks 2,* so let's keep our fingers crossed that we get a chance to hear the finished song someday.
+That makes it a great candidate for *Tracks 2*, so let's keep our fingers crossed that we get a chance to hear the finished song someday.
 
 **Under the Gun**
 **Recorded:** June 14, 1979<br>

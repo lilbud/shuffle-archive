@@ -12,7 +12,7 @@
 
 ![](../../assets/2019/06/mecca.jpg)
 
-**1981:** Bruce and Pete Townshend catch U2’s gig at the Hammersmith Palais in London.
+**1981:** Bruce and Pete Townshend catch U2's gig at the Hammersmith Palais in London.
 
 ![](../../assets/2018/06/1981-0609.jpg)
 
@@ -26,7 +26,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_C12AhdgoTc)
 
-**1989:** Bruce and Max join Nils for four songs at Nils’ gig at the Stone Pony.
+**1989:** Bruce and Max join Nils for four songs at Nils' gig at the Stone Pony.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9t233EpGPOk)
 
@@ -36,7 +36,7 @@
 
 ![](../../assets/2020/05/1989-06-09.jpg)
 
-**2009:** Norwegian fans enjoy the tour premiere of “Back in Your Arms” at the first of two Working on a Dream shows in Bergen.
+**2009:** Norwegian fans enjoy the tour premiere of "Back in Your Arms" at the first of two Working on a Dream shows in Bergen.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=-qv74yl6Ye0)
 
@@ -50,7 +50,7 @@
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2021:** *From My Home to Yours* continues its run on E Street Radio with Episode 23, “Old Bones.”
+**2021:** *From My Home to Yours* continues its run on E Street Radio with Episode 23, "Old Bones."
 
 [https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3?_=11](https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3?_=11)
 

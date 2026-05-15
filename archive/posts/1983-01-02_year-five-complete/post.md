@@ -4,7 +4,7 @@ A ghost story, and also a cautionary tale. But it started out as a musical comed
 
 In 1962, Elvis Presley was already an established movie star. He was a prolific one, too: he starred in no less than three films that year.
 
-First out of the gate was *Follow That Dream,* hyped by the studio as Elvis' "funniest, happiest, dreamiest motion picture!"
+First out of the gate was *Follow That Dream*, hyped by the studio as Elvis' "funniest, happiest, dreamiest motion picture!"
 
 [Watch on Youtube: Follow That Dream | 1962 | Theatrical Trailer](https://www.youtube.com/watch?v=ljm1EqLxAGk)
 

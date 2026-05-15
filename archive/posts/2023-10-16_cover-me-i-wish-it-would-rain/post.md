@@ -22,7 +22,7 @@ That's some serious talent to throw down with, but Springsteen wasn't deterred. 
 
 [Watch on Youtube: Bruce Springsteen - I Wish It Would Rain (Official Audio)](https://www.youtube.com/watch?v=iZ6Ojns6Fs0)
 
-The arrangement is faithful, even if the antagonist isn't, and the lyrical changes are tactfully minor. (Bruce sings "My girl has found another and gone *astray*" instead of "gone *away,*" a small but fitting substitution.)
+The arrangement is faithful, even if the antagonist isn't, and the lyrical changes are tactfully minor. (Bruce sings "My girl has found another and gone *astray*" instead of "gone *away*," a small but fitting substitution.)
 
 The finished track is one of Bruce's favorites on the album. "I just felt great," he recollected to Greene. "It came out great, so we used it."
 

@@ -28,17 +28,17 @@ Bruce plays a sparsely-attended gig at the Municipal Auditorium in Shreveport, L
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1976-05-05.jpg?resize=758%2C387&amp;ssl=1)
 
-At a mixing session for at Clover Studios in Los Angeles, Bruce works on “I Wanna Marry You.”
+At a mixing session for at Clover Studios in Los Angeles, Bruce works on "I Wanna Marry You."
 
 **1980:** *The River*
 
-Bruce and the E Street Band record “Working on the Highway” at the Power Station in New York City.
+Bruce and the E Street Band record "Working on the Highway" at the Power Station in New York City.
 
 **1982:**
 
 [https://www.youtube.com/embed/5OEA9_Gtims?feature=oembed](https://www.youtube.com/embed/5OEA9_Gtims?feature=oembed)
 
-Bruce and the E Street Band play their second of two nights at the Tacoma Dome on the Tunnel of Love Express Tour. The soundcheck–captured on tape–features a fascinating set of covers, including “Big Boss Man,” “Crying in the Rain,” and “Cathy’s Clown.” Take a listen below.
+Bruce and the E Street Band play their second of two nights at the Tacoma Dome on the Tunnel of Love Express Tour. The soundcheck–captured on tape–features a fascinating set of covers, including "Big Boss Man," "Crying in the Rain," and "Cathy's Clown." Take a listen below.
 
 **1988:**
 
@@ -52,7 +52,7 @@ Bruce and the E Street Band play their second of two nights at the Tacoma Dome o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/Morning_News_Tribune_Mon__May_9__1988_-1-scaled.jpg?resize=758%2C2251&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1988-0506.jpg?resize=758%2C422&amp;ssl=1)
 
-Bruce unveils his new band at a ninety-minute show at The Bottom Line in New York City. MTV’s Week in Rock features some footage from the show, along with an interview with Bruce.
+Bruce unveils his new band at a ninety-minute show at The Bottom Line in New York City. MTV's Week in Rock features some footage from the show, along with an interview with Bruce.
 
 **1992:**
 
@@ -68,13 +68,13 @@ Bruce plays the first of two solo acoustic shows at Teatro Tivoli in Barcelona.
 
 [https://www.youtube.com/embed/QMhPP0rBgD8?feature=oembed](https://www.youtube.com/embed/QMhPP0rBgD8?feature=oembed)
 
-Bruce kicks off the final leg of his marathon solo acoustic tour with his first-ever show in Austria, the first of two nights in Vienna. This show features the European debut of “Freehold.”
+Bruce kicks off the final leg of his marathon solo acoustic tour with his first-ever show in Austria, the first of two nights in Vienna. This show features the European debut of "Freehold."
 
 **1997:**
 
 [https://videopress.com/embed/RE7Q1cpQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RE7Q1cpQ?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The second European leg of the Rising Tour kicks off with the first of two shows at Stadion Feyenoord in Rotterdam. Bruce opens the show with an acoustic “Born in the U.S.A.” and plays a solo piano “Incident on 57th Street,” his first performance of that song in The Netherlands.
+The second European leg of the Rising Tour kicks off with the first of two shows at Stadion Feyenoord in Rotterdam. Bruce opens the show with an acoustic "Born in the U.S.A." and plays a solo piano "Incident on 57th Street," his first performance of that song in The Netherlands.
 
 **2003:**
 
@@ -98,7 +98,7 @@ Bruce makes an appearance at Fairleigh Dickinson University in Madison, New Jers
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2010-05-06.jpg?resize=597%2C960&amp;ssl=1)
 
-At the Cynthia Woods Mitchell Pavilion in Houston, one of the smaller venues on the High Hopes Tour, Bruce plans to open the show with “This Is Your Sword.” Luckily, Tom Morello has a better idea: as they walk on stage, Tom suggests to Bruce that he open with “” instead, setting the tone for a high-energy show that features a guest spot by Joe Ely and the tour debut of “All or Nothin’ at All” and “One Step Up.”
+At the Cynthia Woods Mitchell Pavilion in Houston, one of the smaller venues on the High Hopes Tour, Bruce plans to open the show with "This Is Your Sword." Luckily, Tom Morello has a better idea: as they walk on stage, Tom suggests to Bruce that he open with "" instead, setting the tone for a high-energy show that features a guest spot by Joe Ely and the tour debut of "All or Nothin' at All" and "One Step Up."
 
 **2014:** [Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)
 
@@ -110,7 +110,7 @@ Bruce attends the memorial service and delivers a eulogy for original fan Obie D
 
 **2017:**
 
-Bruce inducts Steve Van Zandt into the New Jersey Hall of Fame. Following Little Steven’s acceptance speech, Bruce joins his friend and the Disciples of Soul for a performance of “I Don’t Want to Go Home.”
+Bruce inducts Steve Van Zandt into the New Jersey Hall of Fame. Following Little Steven's acceptance speech, Bruce joins his friend and the Disciples of Soul for a performance of "I Don't Want to Go Home."
 
 **2018:**
 
@@ -118,6 +118,6 @@ Bruce inducts Steve Van Zandt into the New Jersey Hall of Fame. Following Little
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2018-05-05.jpg?resize=758%2C548&amp;ssl=1)
 
-It’s starting to look like a series: Bruce makes his third appearance as radio DJ on his E Street Radio show, 
+It's starting to look like a series: Bruce makes his third appearance as radio DJ on his E Street Radio show, 
 
 **2020:** *From My Home to Yours.*<https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-06-Bruce-E-Street-Radio-DJ-set-3.mp3>

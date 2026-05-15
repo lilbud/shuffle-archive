@@ -2,7 +2,7 @@
 
 *New entry for 1979 and 2024; audio for 2000; video for 2003***New for 2025:**
 
-Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce’s opening act performance along with it.
+Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce's opening act performance along with it.
 
 **1973:**
 
@@ -10,7 +10,7 @@ Chicago cancels their concert in Buffalo at the last minute, scuttling Bruce’s
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Buffalo_Evening_News_Tue__Jun_12__1973_.jpg?w=758&amp;ssl=1)
 
-Another abrupt cancellation: Bruce’s scheduled Darkness Tour stop in La Crosse, Wisconsin is advertised right up until the day before the show before cancelling without public explanation.
+Another abrupt cancellation: Bruce's scheduled Darkness Tour stop in La Crosse, Wisconsin is advertised right up until the day before the show before cancelling without public explanation.
 
 **1978:**
 
@@ -18,13 +18,13 @@ Another abrupt cancellation: Bruce’s scheduled Darkness Tour stop in La Crosse
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/The_La_Crosse_Tribune_Sun__Jun_4__1978_.jpg?w=758&amp;ssl=1)
 
-Bruce works on “” during a recording session at The Power Station in New York City.
+Bruce works on "" during a recording session at The Power Station in New York City.
 
 **1979:** [Ramrod](https://estreetshuffle.com/index.php/2022/09/10/roll-of-the-dice-ramrod/)
 
 [https://www.youtube.com/embed/XwJp0FaZNG4?feature=oembed](https://www.youtube.com/embed/XwJp0FaZNG4?feature=oembed)
 
-Bruce joins Jackson Browne on stage for “” and “” in New York’s Central Park at the Rally for Disarmament. Later that night, Bruce plays three songs with Sonny Kenn at Big Man’s West in Red Bank.
+Bruce joins Jackson Browne on stage for "" and "" in New York's Central Park at the Rally for Disarmament. Later that night, Bruce plays three songs with Sonny Kenn at Big Man's West in Red Bank.
 
 **1982:** [The Promised Land](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[Running on Empty](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)
 
@@ -52,7 +52,7 @@ Night Two in Turin on the Tunnel of Love Tour is cancelled due to low ticket sal
 
 **1988:**
 
-The Reunion Tour’s legendary ten-night final stand kicks off at Madison Square Garden with the world premiere of “.” Despite the controversy that preceded the show and the mixed audience reaction tonight, Bruce plays “American Skin (41 Shots)” at this and each remaining show. You can hear just how strong the audience reaction was below.
+The Reunion Tour's legendary ten-night final stand kicks off at Madison Square Garden with the world premiere of "." Despite the controversy that preceded the show and the mixed audience reaction tonight, Bruce plays "American Skin (41 Shots)" at this and each remaining show. You can hear just how strong the audience reaction was below.
 
 **2000:** [Code of Silence](http://estreetshuffle.com/index.php/2018/08/27/codeofsilence/)
 
@@ -68,7 +68,7 @@ The Reunion Tour’s legendary ten-night final stand kicks off at Madison Square
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2000-06-12-229x300.jpg?resize=758%2C993)
 
-Wolfgang Niedecken guest-stars on “” at Bruce’s Rising show in Hamburg.
+Wolfgang Niedecken guest-stars on "" at Bruce's Rising show in Hamburg.
 
 **2003:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
@@ -78,7 +78,7 @@ Wolfgang Niedecken guest-stars on “” at Bruce’s Rising show in Hamburg.
 
 [https://www.youtube.com/embed/tzH8YVrxIUY?feature=oembed](https://www.youtube.com/embed/tzH8YVrxIUY?feature=oembed)
 
-A scheduled solo acoustic show in Berlin is rescheduled after Terry Magovern’s fiancée passes away.
+A scheduled solo acoustic show in Berlin is rescheduled after Terry Magovern's fiancée passes away.
 
 **2005:**
 
@@ -94,7 +94,7 @@ Clarence Clemons suffers a severe stroke, and his friends and family rush to his
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2011-06-12-300x163.jpg?resize=758%2C412)
 
-World Tour 2024 resumes in Madrid with a recovered Bruce Springsteen tour premiering “” and “Rockin’ All Over the World.”
+World Tour 2024 resumes in Madrid with a recovered Bruce Springsteen tour premiering "" and "Rockin' All Over the World."
 
 **2024:** [Frankie Fell in Love](https://estreetshuffle.com/index.php/2018/02/12/roll-of-the-dice-frankie-fell-in-love/)
 

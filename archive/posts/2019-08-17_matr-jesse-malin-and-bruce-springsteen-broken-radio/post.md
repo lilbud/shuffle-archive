@@ -2,7 +2,7 @@ Among the many, many reasons I have to be grateful to Bruce Springsteen, I owe h
 
 After listening to Jesse perform songs from his debut album at Bruce's Asbury Park holiday shows in 2003, I ran right out and bought a copy of *The Fine Art of Self-Destruction*. It remains one of my favorite and most-played albums to this day. I didn't know at the time that I'd caught Malin at a key moment in his evolution from punk band frontman to singer-songwriter, but I could certainly sense that in his music. That album felt at once fresh and nostalgic, and I already want to go listen to it again as soon as I finish writing.
 
-By the time Jesse released his third album, *Glitter in the Gutter,* in 2007, I was a fan for life. Even so, I was completely unprepared for the power of the fourth track on that CD, "Broken Radio."
+By the time Jesse released his third album, *Glitter in the Gutter*, in 2007, I was a fan for life. Even so, I was completely unprepared for the power of the fourth track on that CD, "Broken Radio."
 
 [Jesse Malin- Broken Radio (with Bruce Springsteen)](https://player.vimeo.com/video/561594962?dnt=1&app_id=122963)
 

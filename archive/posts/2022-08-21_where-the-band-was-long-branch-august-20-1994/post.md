@@ -1,10 +1,10 @@
 Editor's Note
 
-***Editor’s Note:*** *After I chronicled the events of August 20th in Springsteen history a year ago, Attorney and Jersey Shore Music Scene Aficionado, Terry Camp reached out to me to provide a LOT of first-hand additional detail about the events of (and leading up to) that unexpectedly amazing night of August 20, 1994).*
+***Editor's Note:*** *After I chronicled the events of August 20th in Springsteen history a year ago, Attorney and Jersey Shore Music Scene Aficionado, Terry Camp reached out to me to provide a LOT of first-hand additional detail about the events of (and leading up to) that unexpectedly amazing night of August 20, 1994).*
 
-> *This year, he’s generously agreed to share his story here on the Shuffle, so without further ado, here’s Terry’s report (complete with great photos) from Long Branch, New Jersey… 25 years ago tonight.*
+> *This year, he's generously agreed to share his story here on the Shuffle, so without further ado, here's Terry's report (complete with great photos) from Long Branch, New Jersey… 25 years ago tonight.*
 
-Stop me if you’ve heard this one: Bruce Springsteen, Joe Grushecky, John Eddie… and Dion walk into a bar.
+Stop me if you've heard this one: Bruce Springsteen, Joe Grushecky, John Eddie… and Dion walk into a bar.
 
 Summer 1994: The Stone Pony had been bought by Steve Nassar. His program focused on (then) modern acts and passed on the Old Guard bands. From that petri dish, John Eddie developed the concept for the *Marz, American Style* series at Marz Niteclub (formerly Club Paradise, now an empty lot) in Long Branch, New Jersey.
 
@@ -14,7 +14,7 @@ On July 16, Nassar and the Pony celebrated the club's 20th Anniversary by bringi
 
 [Watch on Youtube: I PLAYED THE FOOL (Bruce Springsteen and Southside Johnny and the Asbury Jukes)](https://www.youtube.com/watch?v=ytSVHBMmYqg)
 
-I spoke to Bruce backstage after and invited him to Marz. "Y'all got a lotta great bannnnds playin' there!" I told him the night's line-up and suggested he come by sometime. Bruce’s response: "We might come by TONIGHT! You got a place to park over there?" (Turns out Bruce, Patti and agent Barry Bell had planned on heading over well before my invite, since Willie was a friend.)
+I spoke to Bruce backstage after and invited him to Marz. "Y'all got a lotta great bannnnds playin' there!" I told him the night's line-up and suggested he come by sometime. Bruce's response: "We might come by TONIGHT! You got a place to park over there?" (Turns out Bruce, Patti and agent Barry Bell had planned on heading over well before my invite, since Willie was a friend.)
 
 Jump to later: (1) The Summer Stage Pony crowd was packed inside the Pony expecting Bruce to re-create 1982 as Cats on a Smooth Surface were reuniting, and (2) Bruce was at Marz and elected not to perform there, either. At the end of the night, I handed him a few club t-shirts and he said, "We had a good time, we'll be back!"
 
@@ -22,7 +22,7 @@ Joe Grushecky and the Houserockers played the Marz series on June 25th, and we r
 
 About 6:00 pm on August 20th, I arrive at Marz. Joe comes over and says, "I got Bruce over here and we'd like to get up and soundcheck." Our friend and loud sound guy, the late George Iocca, didn't have mics set up yet. But Joe and Bruce wanted to go so they got going. George was cranky but hey…
 
-So, we were expecting Joe Grushecky songs and some traditional covers. Instead, for the ten of us in the house: the rehearsal included “[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/),” “[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/),” “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/),” “Glory Days” and “[Born on the Bayou](https://estreetshuffle.com/index.php/2021/04/19/matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/)” (a Creedence cover). We were pretty amazed.
+So, we were expecting Joe Grushecky songs and some traditional covers. Instead, for the ten of us in the house: the rehearsal included "[Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)," "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)," "[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)," "Glory Days" and "[Born on the Bayou](https://estreetshuffle.com/index.php/2021/04/19/matr-john-fogerty-and-bruce-springsteen-born-on-the-bayou/)" (a Creedence cover). We were pretty amazed.
 
 ![](../../assets/2019/08/Bruce-Marz-8-20-94-Living-Proofwm-2.jpg)
 
@@ -34,9 +34,9 @@ The venue fit about 450. We actually probably only had 380, which worked, becaus
 
 ![](../../assets/2019/08/Bruce-8-20-94-Marz-1-Urbish.jpg)
 
-There was a moment backstage when Joe was on that I was alone with Bruce. My friend, Dan Feuerstein, was getting married the next day and was a big fan. (Side note: Dan is cousins with his look-alike, film and TV actor Mark Feuerstein.) Anyway, Bruce was kind enough to sign a “Congrats” note to Dan and his bride which I presented the next day in upstate New York.
+There was a moment backstage when Joe was on that I was alone with Bruce. My friend, Dan Feuerstein, was getting married the next day and was a big fan. (Side note: Dan is cousins with his look-alike, film and TV actor Mark Feuerstein.) Anyway, Bruce was kind enough to sign a "Congrats" note to Dan and his bride which I presented the next day in upstate New York.
 
-Bruce ultimately was far more than a finale guest. He joined Joe and the Houserockers for most of their long set. Then, they had John Eddie up to do “[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)” and Dion up to do "[The Wanderer](https://estreetshuffle.com/index.php/2019/05/08/cover-me-the-wanderer/)" to close it.
+Bruce ultimately was far more than a finale guest. He joined Joe and the Houserockers for most of their long set. Then, they had John Eddie up to do "[Around and Around](https://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)" and Dion up to do "[The Wanderer](https://estreetshuffle.com/index.php/2019/05/08/cover-me-the-wanderer/)" to close it.
 
 [Watch Video Highlight](https://videopress.com/embed/u8yCOevT?hd=1&cover=1)
 
@@ -62,4 +62,4 @@ Living Proof photo in b/w: Terry Camp
 
 What's your story?
 
-*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you’d like to be our next guest blogger!*
+*Want to share your story on E Street Shuffle?* *[Drop me a line](mailto:ken@estreetshuffle.com)* *if you'd like to be our next guest blogger!*

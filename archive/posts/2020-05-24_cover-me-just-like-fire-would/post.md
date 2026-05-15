@@ -18,7 +18,7 @@ It really does sound like an E Street Band song, which may be why Bruce kept his
 
 Even though he only performed it that one time on the tour, Bruce obviously enjoyed covering "Just Like Fire Would" enough to record it in the studio that same month. (Bruce, Tom Morello, and the band spent some time in a local studio while they toured the country.)
 
-The result was a track that Bruce admired enough to include it on his next album, *High Hopes,* released ten months later. And while it was never officially released as a single, Bruce did release a video for "Just Like Fire Would" a week after the album was released.
+The result was a track that Bruce admired enough to include it on his next album, *High Hopes*, released ten months later. And while it was never officially released as a single, Bruce did release a video for "Just Like Fire Would" a week after the album was released.
 
 [Watch on Youtube: Bruce Springsteen - Just Like Fire Would (Video)](https://www.youtube.com/watch?v=hJ4a_tgJp4I)
 

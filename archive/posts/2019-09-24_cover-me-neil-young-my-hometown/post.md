@@ -2,7 +2,7 @@ Once upon a time, there was a thing called a vinyl recording booth. Usually foun
 
 They're antiques today, but Jack White had one refurbished, and Neil Young took advantage of it, recording his 33rd studio album entirely within it.
 
-That album, *A Letter Home,* features an array of cover songs that Neil felt would take on new meaning when recorded in the low-fidelity booth. And wouldn't you know it, he was right.
+That album, *A Letter Home*, features an array of cover songs that Neil felt would take on new meaning when recorded in the low-fidelity booth. And wouldn't you know it, he was right.
 
 *A Letter Home* is a fascinating album. Each well-known vintage song sounds... well, more vintagy. Especially the album's penultimate track, a cover of Bruce's "[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)."
 

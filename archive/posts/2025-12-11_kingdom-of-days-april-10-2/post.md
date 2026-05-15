@@ -4,7 +4,7 @@ Child performs at the Pandemonium in Wanamassa, New Jersey.
 
 **1969:**
 
-The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays host to the “Bruce Springsteen Acoustyc Jam.”
+The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays host to the "Bruce Springsteen Acoustyc Jam."
 
 **1971:**
 
@@ -12,7 +12,7 @@ The Green Mermaid coffee house (underneath The Upstage) in Asbury Park plays hos
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1971-0410.jpg?resize=488%2C800&amp;ssl=1)
 
-Bruce Springsteen meets future manager Jon Landau when Landau spots Bruce reading his review of during the break between two shows at Charlie’s Place in Cambridge, Massachusetts.
+Bruce Springsteen meets future manager Jon Landau when Landau spots Bruce reading his review of during the break between two shows at Charlie's Place in Cambridge, Massachusetts.
 
 **1974:***The Wild, The Innocent & The E Street Shuffle*
 
@@ -28,7 +28,7 @@ As a favor to John Hammond, Bruce performs at Choate Rosemary Hall in Wallingfor
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0410.jpg?resize=758%2C496&amp;ssl=1)
 
-Bruce and the E Street Band work on “The Ties that Bind” at the Power Station in New York City.
+Bruce and the E Street Band work on "The Ties that Bind" at the Power Station in New York City.
 
 **1979:**
 
@@ -36,7 +36,7 @@ Bruce works on mixing and overdubs for several tracks at Clover Studios in Los A
 
 **1980:** *The River*
 
-Bruce sits in with Beaver Brown for four songs at Big Man’s West in Red Bank.
+Bruce sits in with Beaver Brown for four songs at Big Man's West in Red Bank.
 
 **1982:**
 
@@ -58,7 +58,7 @@ Bruce begins an Italian mini-tour with a solo acoustic show at the Auditorium Sa
 
 [https://www.youtube.com/embed/j2Wx5WNOidc?feature=oembed](https://www.youtube.com/embed/j2Wx5WNOidc?feature=oembed)
 
-Bruce’s 1998 U.K. legal victory against Masquerade Music is upheld by the Court of Appeal. Masquerade had imported and released an album of unreleased Springsteen songs without the artist’s permission.
+Bruce's 1998 U.K. legal victory against Masquerade Music is upheld by the Court of Appeal. Masquerade had imported and released an album of unreleased Springsteen songs without the artist's permission.
 
 **2001:**
 
@@ -76,7 +76,7 @@ Bruce plays a benefit show with local musicians (including Bobby Bandiera and Ed
 
 [https://videopress.com/embed/9hgdYBzC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/9hgdYBzC?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The Working on a Dream Tour comes to Denver, along with four tour premieres including “Racing in the Street,” “Tougher Than the Rest,” “The E Street Shuffle,” and “The Ties That Bind.”
+The Working on a Dream Tour comes to Denver, along with four tour premieres including "Racing in the Street," "Tougher Than the Rest," "The E Street Shuffle," and "The Ties That Bind."
 
 **2009:**
 
@@ -92,7 +92,7 @@ Bruce inducts the E Street Band (past and present) into the Rock and Roll Hall o
 
 [https://www.youtube.com/embed/ePb_a23uBw0?feature=oembed](https://www.youtube.com/embed/ePb_a23uBw0?feature=oembed)
 
-A scheduled show in Greensboro is cancelled due to the state’s adoption of an anti-transgender law.
+A scheduled show in Greensboro is cancelled due to the state's adoption of an anti-transgender law.
 
 **2016:**
 
@@ -100,7 +100,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce visits John Mellencamp at his studio in Belmont, Indiana, where he contributes to three tracks for John’s upcoming album, 
+Bruce visits John Mellencamp at his studio in Belmont, Indiana, where he contributes to three tracks for John's upcoming album, 
 
 **2021:** *Strictly a One-Eyed Jack.*
 

@@ -2,13 +2,13 @@
 
 *New entry for 1978; video for 2013***New for 2025:**
 
-The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factory in Highlands, New Jersey. Tinker West records the sessions, and his tapes will prove to be the highest quality recording of The Bruce Springsteen Band and a fascinating document of that period. Standout tracks include “,” “” “” and an absolutely stunning must-hear cover of “” Take a listen:
+The Bruce Springsteen Band rehearses at the Challenger Eastern Surfboards factory in Highlands, New Jersey. Tinker West records the sessions, and his tapes will prove to be the highest quality recording of The Bruce Springsteen Band and a fascinating document of that period. Standout tracks include "," "" "" and an absolutely stunning must-hear cover of "" Take a listen:
 
-**1972:** [When You Dance](http://estreetshuffle.com/index.php/2018/08/12/roll-of-the-dice-when-you-dance/)[Look Toward the Land,](http://estreetshuffle.com/index.php/2018/12/10/roll-of-the-dice-look-towards-the-land/)[Funk Song,](http://estreetshuffle.com/index.php/2018/05/02/roll-of-the-dice-funk-song/)[It’s All Over Now, Baby Blue.](http://estreetshuffle.com/index.php/2019/01/12/cover-me-its-all-over-now-baby-blue/)
+**1972:** [When You Dance](http://estreetshuffle.com/index.php/2018/08/12/roll-of-the-dice-when-you-dance/)[Look Toward the Land,](http://estreetshuffle.com/index.php/2018/12/10/roll-of-the-dice-look-towards-the-land/)[Funk Song,](http://estreetshuffle.com/index.php/2018/05/02/roll-of-the-dice-funk-song/)[It's All Over Now, Baby Blue.](http://estreetshuffle.com/index.php/2019/01/12/cover-me-its-all-over-now-baby-blue/)
 
 [https://videopress.com/embed/gDKpMFQm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/gDKpMFQm?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce and the band play their third of seven nights at Oliver’s in Boston.
+Bruce and the band play their third of seven nights at Oliver's in Boston.
 
 **1973:**
 
@@ -30,13 +30,13 @@ The Lawsuit Tour moves on to the Mid-Hudson Civic Center in Poughkeepsie, New Yo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1977-03-14.jpg?resize=758%2C1310&amp;ssl=1)
 
-Bruce work on “” for his upcoming album at the Record Plant in New York City.
+Bruce work on "" for his upcoming album at the Record Plant in New York City.
 
 **1978:** [Factory](https://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)
 
 [https://www.youtube.com/embed/3YuEJ_XolkM?feature=oembed](https://www.youtube.com/embed/3YuEJ_XolkM?feature=oembed)
 
-Bruce and Garry jam with Robert Gordon on “” and “” at The Fast Lane in Asbury Park. Take a listen below.
+Bruce and Garry jam with Robert Gordon on "" and "" at The Fast Lane in Asbury Park. Take a listen below.
 
 **1979:** [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[Heartbreak Hotel](https://estreetshuffle.com/index.php/2021/04/11/matr-bruce-springsteen-and-robert-gordon-heartbreak-hotel/)
 
@@ -48,7 +48,7 @@ Bruce and Garry jam with Robert Gordon on “” and “” at The Fast Lane in 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1979-0314-300x226.jpg?resize=758%2C571)
 
-Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved to add a mid-song story to “.”
+Night Two in Richfield for the Tunnel of Love Express Tour, where Bruce is moved to add a mid-song story to "."
 
 **1988:** [Walk Like a Man](http://estreetshuffle.com/index.php/2018/07/21/roll-of-the-dice-walk-like-a-man/)
 
@@ -62,7 +62,7 @@ Bruce plays a solo acoustic show at the Spektrum in Oslo.
 
 [https://videopress.com/embed/dKDhatIc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dKDhatIc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-At Alltel Arena in Little Rock, Bruce plays “” for the first time in 26 years.
+At Alltel Arena in Little Rock, Bruce plays "" for the first time in 26 years.
 
 **2000:** [Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)
 
@@ -72,9 +72,9 @@ At Alltel Arena in Little Rock, Bruce plays “” for the first time in 26 year
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2000-03-14-300x180.jpg?resize=758%2C455)
 
-Bruce returns a favor by inducting U2 into the Rock and Roll Hall of Fame; he later performs with them on “.”
+Bruce returns a favor by inducting U2 into the Rock and Roll Hall of Fame; he later performs with them on "."
 
-**2005:**[I Still Haven’t Found What I’m Looking For](http://estreetshuffle.com/index.php/2019/02/25/matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/)
+**2005:**[I Still Haven't Found What I'm Looking For](http://estreetshuffle.com/index.php/2019/02/25/matr-bruce-springsteen-and-u2-i-still-havent-found-what-im-looking-for/)
 
 [https://www.youtube.com/embed/5onUXFV9Vto?feature=oembed](https://www.youtube.com/embed/5onUXFV9Vto?feature=oembed)
 
@@ -82,7 +82,7 @@ Bruce returns a favor by inducting U2 into the Rock and Roll Hall of Fame; he la
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2005-03-14.png?resize=758%2C705&amp;ssl=1)
 
-Bruce plays Omaha for the first time in 30 years when the Magic Tour stops at Qwest Center. Conor Oberst makes a guest-appearance on “Thunder Road.” (It’s not exactly a highlight.)
+Bruce plays Omaha for the first time in 30 years when the Magic Tour stops at Qwest Center. Conor Oberst makes a guest-appearance on "Thunder Road." (It's not exactly a highlight.)
 
 **2008:**
 
@@ -96,15 +96,15 @@ Bruce plays Omaha for the first time in 30 years when the Magic Tour stops at Qw
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2008-03-14b-300x90.jpg?resize=758%2C227)
 
-Bruce and Curtis King join Darlene Love on stage at her induction ceremony into the Rock and Roll Hall of Fame. Their short set includes “,” “,” and “.” Bette Midler joins for the final song.
+Bruce and Curtis King join Darlene Love on stage at her induction ceremony into the Rock and Roll Hall of Fame. Their short set includes "," "," and "." Bette Midler joins for the final song.
 
-**2011:** [Zip a Dee Doo Dah](http://estreetshuffle.com/index.php/2018/08/28/meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/)[(Today I Met) The Boy I’m Going to Marry](http://estreetshuffle.com/index.php/2018/11/12/matr-darlene-love-bruce-springsteen-and-the-cbs-orchestra-today-i-met-the-boy-im-gonna-marry/)[He’s a Rebel](https://estreetshuffle.com/index.php/2021/10/02/matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/)
+**2011:** [Zip a Dee Doo Dah](http://estreetshuffle.com/index.php/2018/08/28/meeting-across-the-river-darlene-love-and-bruce-springsteen-zip-a-dee-doo-dah/)[(Today I Met) The Boy I'm Going to Marry](http://estreetshuffle.com/index.php/2018/11/12/matr-darlene-love-bruce-springsteen-and-the-cbs-orchestra-today-i-met-the-boy-im-gonna-marry/)[He's a Rebel](https://estreetshuffle.com/index.php/2021/10/02/matr-darlene-love-bette-midler-and-bruce-springsteen-hes-a-rebel/)
 
 [https://www.youtube.com/embed/d36vCrKrxp8?feature=oembed](https://www.youtube.com/embed/d36vCrKrxp8?feature=oembed)
 
-Bruce joins Alejandro Escovedo, Joe Ely, and Garland Jeffreys on-stage at the Austin Music Awards for “,” “,” “,” and “.”
+Bruce joins Alejandro Escovedo, Joe Ely, and Garland Jeffreys on-stage at the Austin Music Awards for "," "," "," and "."
 
-**2012:** [Midnight Train](http://estreetshuffle.com/index.php/2018/03/04/matr-bruce-springsteen-joe-ely-and-alejandro-escovedo-midnight-train/)[Always a Friend](https://estreetshuffle.com/index.php/2020/08/31/matr-alejandro-escovedo-and-bruce-springsteen-always-a-friend/)[Blowin’ Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/)[Beast of Burden](http://estreetshuffle.com/index.php/2018/03/19/matr-bruce-springsteen-and-alejandro-escovedo-beast-of-burden/)
+**2012:** [Midnight Train](http://estreetshuffle.com/index.php/2018/03/04/matr-bruce-springsteen-joe-ely-and-alejandro-escovedo-midnight-train/)[Always a Friend](https://estreetshuffle.com/index.php/2020/08/31/matr-alejandro-escovedo-and-bruce-springsteen-always-a-friend/)[Blowin' Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/)[Beast of Burden](http://estreetshuffle.com/index.php/2018/03/19/matr-bruce-springsteen-and-alejandro-escovedo-beast-of-burden/)
 
 [https://www.youtube.com/embed/DmLPWWvrT6I?feature=oembed](https://www.youtube.com/embed/DmLPWWvrT6I?feature=oembed)
 
@@ -116,7 +116,7 @@ Bruce joins Alejandro Escovedo, Joe Ely, and Garland Jeffreys on-stage at the Au
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2012-03-14-scaled.jpg?resize=573%2C2560&amp;ssl=1)
 
-The Australian leg of the Wrecking Ball Tour kicks off with the first of two nights in Brisbane. Tom Morello is along for the ride, filling in for Steve Van Zandt (who is filming his series during this time), and “” is premiered, sparking the inspiration as the tour progresses for what will become the album.
+The Australian leg of the Wrecking Ball Tour kicks off with the first of two nights in Brisbane. Tom Morello is along for the ride, filling in for Steve Van Zandt (who is filming his series during this time), and "" is premiered, sparking the inspiration as the tour progresses for what will become the album.
 
 **2013:** *Lilyhammer* [Just Like Fire Would](https://estreetshuffle.com/index.php/2020/05/24/cover-me-just-like-fire-would/)*High Hopes*
 

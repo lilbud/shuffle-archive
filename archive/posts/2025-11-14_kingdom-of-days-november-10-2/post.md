@@ -88,7 +88,7 @@
 
 [Watch on Youtube: Bruce Springsteen - Cleveland - Higher & Higher - 11/10/2009](https://www.youtube.com/watch?v=KTLzdjwUBKo)
 
-**2014:** Bruce appears on *The Daily Show with Jon Stewart,* along with *Outlaw Pete* illustrator Frank Caruso.
+**2014:** Bruce appears on *The Daily Show with Jon Stewart*, along with *Outlaw Pete* illustrator Frank Caruso.
 
 [Watch Video Highlight](https://videopress.com/embed/Va5IQNm9)
 

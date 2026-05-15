@@ -30,9 +30,9 @@ Bruce and the E Street Band open for the late, great Dr. John at the Santa Monic
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/santamonicanews-141x300.jpg?resize=758%2C1613)
 
-Bruce puts the finishing touches on when he completes overdubs for “” at the Record Plant in New York City. That evening, Bruce and the E Street Band play a gig at Kutztown State College.
+Bruce puts the finishing touches on when he completes overdubs for "" at the Record Plant in New York City. That evening, Bruce and the E Street Band play a gig at Kutztown State College.
 
-**1975:** *Born to Run*[She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
+**1975:** *Born to Run*[She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
 
 [https://www.youtube.com/embed/blbFaatKszE?feature=oembed](https://www.youtube.com/embed/blbFaatKszE?feature=oembed)
 
@@ -40,9 +40,9 @@ Bruce puts the finishing touches on when he completes overdubs for “” at the
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1975-07-25-261x300.png?resize=758%2C871)
 
-Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for eight songs, including “,” “,” “,” and “.” Listen to Bruce’s full set below.
+Bruce joins Cats on a Smooth Surface on stage at The Stone Pony for eight songs, including "," "," "," and "." Listen to Bruce's full set below.
 
-**1982:** [Come On, Let’s Go](http://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Around and Around](http://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)[Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
+**1982:** [Come On, Let's Go](http://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)[Lucille](http://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Around and Around](http://estreetshuffle.com/index.php/2020/02/26/cover-me-around-and-around/)[Long Tall Sally](http://estreetshuffle.com/index.php/2019/04/19/cover-me-long-tall-sally/)
 
 [https://www.youtube.com/embed/RPenU9SOFzI?feature=oembed](https://www.youtube.com/embed/RPenU9SOFzI?feature=oembed)
 
@@ -54,7 +54,7 @@ is certified as 3x platinum in the U.K.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/07/platinum-300x250.jpg?resize=744%2C620)
 
-Bruce plays a Tunnel of Love show in Copenhagen, where Link Wray guest-stars on “.”
+Bruce plays a Tunnel of Love show in Copenhagen, where Link Wray guest-stars on "."
 
 **1988:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
@@ -88,9 +88,9 @@ Bruce and Patti welcome their first son, Evan James, into the world.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1990-07-25-300x278.png?resize=758%2C702)
 
-On Night Two (of eleven!) at Brendan Byrne Arena in East Rutherford on World Tour 1992, Bruce tour premieres “” and “” He also plays “” for the last time to date. This show is available for purchase as part of Bruce’s official archive series–get it .
+On Night Two (of eleven!) at Brendan Byrne Arena in East Rutherford on World Tour 1992, Bruce tour premieres "" and "" He also plays "" for the last time to date. This show is available for purchase as part of Bruce's official archive series–get it .
 
-**1992:** [Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)[Ninety-nine and a Half (Won’t Do).](https://estreetshuffle.com/index.php/2020/10/11/cover-me-ninety-nine-and-a-half-wont-do/)[Real Man](http://estreetshuffle.com/index.php/2020/04/15/roll-of-the-dice-real-man/)[here](http://live.brucespringsteen.net/live-music/0,21905/Bruce-Springsteen-mp3-flac-download-7-25-1992-Meadowlands-Arena-East-Rutherford-NJ.html)
+**1992:** [Open All Night](https://estreetshuffle.com/index.php/2020/10/28/roll-of-the-dice-open-all-night/)[Ninety-nine and a Half (Won't Do).](https://estreetshuffle.com/index.php/2020/10/11/cover-me-ninety-nine-and-a-half-wont-do/)[Real Man](http://estreetshuffle.com/index.php/2020/04/15/roll-of-the-dice-real-man/)[here](http://live.brucespringsteen.net/live-music/0,21905/Bruce-Springsteen-mp3-flac-download-7-25-1992-Meadowlands-Arena-East-Rutherford-NJ.html)
 
 [https://www.youtube.com/embed/nybVvtv6Kjw?feature=oembed](https://www.youtube.com/embed/nybVvtv6Kjw?feature=oembed)
 
@@ -102,7 +102,7 @@ On Night Two (of eleven!) at Brendan Byrne Arena in East Rutherford on World Tou
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1992-07-25b-259x300.png?resize=758%2C878)
 
-Soozie Tyrell joins the E Street Band as an unofficial member at a warm-up show at Convention Hall in Asbury Park. She’ll be with the band ever after. Nine songs from are played for the first time with the band tonight.
+Soozie Tyrell joins the E Street Band as an unofficial member at a warm-up show at Convention Hall in Asbury Park. She'll be with the band ever after. Nine songs from are played for the first time with the band tonight.
 
 **2002:** *The Rising*
 

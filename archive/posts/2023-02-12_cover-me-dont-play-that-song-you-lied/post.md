@@ -20,7 +20,7 @@ Anyone familiar with King's 1961 hit single will surely recognize the same chass
 
 Today, both King's and Franklin's versions are considered definitive, but as popular as they were, neither directly inspired Bruce's cover on *Only the Strong Survive*.
 
-"There's a crazy beach version of it," Bruce told Chris Jordan for the *Asbury Park Press,* "and I'm forgetting the artist's name at the time, but it was like a little wedding version of it with a drum machine and it had that shuffling rhythm. I said, 'Wow, that's a great rhythm to sing that song in.' I have to find out who we're copying there."
+"There's a crazy beach version of it," Bruce told Chris Jordan for the *Asbury Park Press*, "and I'm forgetting the artist's name at the time, but it was like a little wedding version of it with a drum machine and it had that shuffling rhythm. I said, 'Wow, that's a great rhythm to sing that song in.' I have to find out who we're copying there."
 
 I'm not sure if Bruce ever publicly acknowledged which version caught his imagination so strongly, but this 1969 version by Derrick Morgan is a compelling candidate.
 

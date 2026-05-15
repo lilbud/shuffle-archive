@@ -10,11 +10,11 @@ Bruce reschedules a planned gig at The Stone Balloon in Newark, Delaware for the
 
 **1974:**
 
-Bruce and the E Street Band complete the recording of “Thunder Road” at the Record Plant in New York City.
+Bruce and the E Street Band complete the recording of "Thunder Road" at the Record Plant in New York City.
 
 **1975:**
 
-Bruce and the E Street Band bring the Darkness Tour to the New Orleans Municipal Auditorium, where the setlist features Bruce’s one and only cover of “.”
+Bruce and the E Street Band bring the Darkness Tour to the New Orleans Municipal Auditorium, where the setlist features Bruce's one and only cover of "."
 
 **1978:** [Honky Tonk](http://estreetshuffle.com/index.php/2019/09/26/cover-me-honky-tonk/)
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band bring the Darkness Tour to the New Orleans Municipal
 
 [https://www.youtube.com/embed/kJCwCcvLG9g?feature=oembed](https://www.youtube.com/embed/kJCwCcvLG9g?feature=oembed)
 
-At The Power Station in New York City, Bruce records “” and “.” The former won’t be released for almost twenty years, the latter not for another fifteen years after that.
+At The Power Station in New York City, Bruce records "" and "." The former won't be released for almost twenty years, the latter not for another fifteen years after that.
 
 **1979:** [Ricky Wants a Man of Her Own](http://estreetshuffle.com/index.php/2018/11/23/roll-of-the-dice-ricky-wants-a-man-of-her-own/)[Cindy](http://estreetshuffle.com/index.php/2018/08/03/roll-of-the-dice-cindy/)
 
@@ -30,7 +30,7 @@ At The Power Station in New York City, Bruce records “” and “.” The form
 
 [https://www.youtube.com/embed/ZlI-L52KrnY?feature=oembed](https://www.youtube.com/embed/ZlI-L52KrnY?feature=oembed)
 
-Bruce’s five-night River stand at The Spectrum in Philly continues.
+Bruce's five-night River stand at The Spectrum in Philly continues.
 
 **1981:**
 
@@ -38,7 +38,7 @@ Bruce’s five-night River stand at The Spectrum in Philly continues.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/07/1981-07-16.jpg?resize=758%2C687&amp;ssl=1)
 
-Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including “,” “,” and “‘.”
+Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including "," "," and "‘."
 
 **1983:** [Lucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)[Wooly Bully](https://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)[Keep-a-Knockin](http://estreetshuffle.com/index.php/2018/11/09/matr-bruce-springsteen-midnight-thunder-and-southside-johnny-keep-knockin/)
 
@@ -52,7 +52,7 @@ On a night off in between Born in the U.S.A. shows in Chicago, Bruce is spotted 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1984-07-16-300x89.png?resize=758%2C225)
 
-Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including “,” “” and “.”
+Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including "," "" and "."
 
 **1994:** [I Played the Fool](http://estreetshuffle.com/index.php/2019/04/04/matr-i-played-the-fool/)[Funky Broadway,](https://estreetshuffle.com/index.php/2019/10/28/matr-bruce-springsteen-and-the-shots-funky-broadway/)[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)
 
@@ -76,7 +76,7 @@ Bruce and the E Street Band rehearse for the upcoming Rising Tour.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/07/rehearsal-300x202.jpg?resize=758%2C509)
 
-The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres “” for the occasion.
+The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres "" for the occasion.
 
 **2005:** [Does This Bus Stop at 82nd Street](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)
 
@@ -98,9 +98,9 @@ Bruce and the band bring the Working on a Dream Tour to Carhaix, France. The sho
 
 [https://www.youtube.com/embed/RuIcvmViugc?feature=oembed](https://www.youtube.com/embed/RuIcvmViugc?feature=oembed)
 
-Bruce opens his show in Limerick with the tour premiere of “” and closes it the same way. In between, fans enjoy the tour premiere of “” and a full album performance of . If you count a three-song pre-show, this show also features the live debut of “” at one of Bruce’s own shows.
+Bruce opens his show in Limerick with the tour premiere of "" and closes it the same way. In between, fans enjoy the tour premiere of "" and a full album performance of . If you count a three-song pre-show, this show also features the live debut of "" at one of Bruce's own shows.
 
-**2013:** [This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)[Ain’t Too Proud to Beg](https://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)*Born to Run*[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/)
+**2013:** [This Little Light of Mine](https://estreetshuffle.com/index.php/2020/06/29/cover-me-this-little-light-of-mine/)[Ain't Too Proud to Beg](https://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)*Born to Run*[Hearts of Stone](https://estreetshuffle.com/index.php/2022/09/07/roll-of-the-dice-hearts-of-stone/)
 
 [https://www.youtube.com/embed/t-dRgoK7cjQ?feature=oembed](https://www.youtube.com/embed/t-dRgoK7cjQ?feature=oembed)
 
@@ -112,7 +112,7 @@ Bruce opens his show in Limerick with the tour premiere of “” and closes it 
 
 [https://www.youtube.com/embed/wtwIatGvFP4?feature=oembed](https://www.youtube.com/embed/wtwIatGvFP4?feature=oembed)
 
-A stunning opening number at a magical venue: The Roma Sinfonietta strings join the E Street Band for “New York City Serenade” to kick off Bruce’s first show at the ancient Circus Maximus in Rome. “” and “” also make their tour premieres. For more highlights from this show, see my from this night.
+A stunning opening number at a magical venue: The Roma Sinfonietta strings join the E Street Band for "New York City Serenade" to kick off Bruce's first show at the ancient Circus Maximus in Rome. "" and "" also make their tour premieres. For more highlights from this show, see my from this night.
 
 **2016:** [Summertime Blues](http://estreetshuffle.com/index.php/2020/01/02/cover-me-summertime-blues/)[The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[](http://estreetshuffle.com/index.php/2018/07/16/where-the-band-was-rome-july-16-2016/)*Where the Band Was*[report](http://estreetshuffle.com/index.php/2018/07/16/where-the-band-was-rome-july-16-2016/)
 

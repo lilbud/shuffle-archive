@@ -1,8 +1,8 @@
-**1973:** Bruce and the E Street Band play their third night of a week-long residency at Oliver’s in Boston.
+**1973:** Bruce and the E Street Band play their third night of a week-long residency at Oliver's in Boston.
 
 ![](../../assets/2020/08/1973-08-22.png)
 
-**1975:** Bruce and the boys play their second of three nights at Alex Cooley’s Electric Ballroom in Atlanta.
+**1975:** Bruce and the boys play their second of three nights at Alex Cooley's Electric Ballroom in Atlanta.
 
 ![](../../assets/2018/08/1975-0822.jpg)
 
@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1D4drCKmEeRRz7nBqEGW0pV)
 
-**1984:** Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park for “Travelin’ Band” and “I’m Bad, I’m Nationwide.”
+**1984:** Bruce joins La Bamba and the Hubcaps on stage at The Stone Pony in Asbury Park for "Travelin' Band" and "I'm Bad, I'm Nationwide."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OvXIhNv4tKE)
 
@@ -24,7 +24,7 @@
 
 
 
-**1985:** At Night Four at Giants Stadium on the Born in the U.S.A. Tour, Little Steven makes a guest appearance during the encores. This show is available as part of Bruce’s official archive series–get it [here](https://www.nugs.net/live-download-of-bruce-springsteen-giants-stadium-east-rutherford-nj-08-22-1985-mp3-flac-or-online-music-streaming/26772.html).
+**1985:** At Night Four at Giants Stadium on the Born in the U.S.A. Tour, Little Steven makes a guest appearance during the encores. This show is available as part of Bruce's official archive series–get it [here](https://www.nugs.net/live-download-of-bruce-springsteen-giants-stadium-east-rutherford-nj-08-22-1985-mp3-flac-or-online-music-streaming/26772.html).
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=s-K4f0YDhsg)
 
@@ -42,7 +42,7 @@
 
 ![](../../assets/2020/08/1985-08-22.png)
 
-**1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm’s All-Stars for “Up on Cripple Creek” and “L[ucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/).”
+**1987:** Bruce makes a surprise appearance at The Stone Pony for a second night in a row–this time joining Levon Helm's All-Stars for "Up on Cripple Creek" and "L[ucille](https://estreetshuffle.com/index.php/2018/11/29/cover-me-lucille/)."
 
 [Watch Video Highlight](https://videopress.com/embed/gxirqWhO?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -52,7 +52,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/bFZgm7vd?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
-**1999:** Bruce and the E Street Band play their second of five Reunion shows at Boston’s Fleet Center.
+**1999:** Bruce and the E Street Band play their second of five Reunion shows at Boston's Fleet Center.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=bMDI9tdyfbc)
 

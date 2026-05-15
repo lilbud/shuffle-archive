@@ -20,7 +20,7 @@ The Chicken Scratch Tour moves on to a three-show Ohio swing, starting with a sh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0405.jpg?resize=610%2C1000&amp;ssl=1)
 
-“Streets of Fire” receives its final mix at the Record Plant in New York City.
+"Streets of Fire" receives its final mix at the Record Plant in New York City.
 
 **1978:**
 
@@ -34,13 +34,13 @@ Night Two at the Capital Center in Largo, Maryland, along the Tunnel of Love Exp
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1988-04-05.jpg?resize=722%2C825&amp;ssl=1)
 
-A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on where they premiere “Secret Garden.”
+A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on where they premiere "Secret Garden."
 
-**1995:** *The Late Show with David Letterman,*
+**1995:** *The Late Show with David Letterman*,
 
 [https://www.youtube.com/embed/KLtihzJ6gdw?feature=oembed](https://www.youtube.com/embed/KLtihzJ6gdw?feature=oembed)
 
-…and then later that night, they play a private gig at Sony Music Studios in New York City. Highlights include the debuts of “I’m Turning Into Elvis,” “Blood Brothers,” and the first full-band “This Hard Land.”
+…and then later that night, they play a private gig at Sony Music Studios in New York City. Highlights include the debuts of "I'm Turning Into Elvis," "Blood Brothers," and the first full-band "This Hard Land."
 
 [https://videopress.com/embed/VFJF5tXA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VFJF5tXA?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -62,13 +62,13 @@ Bruce makes a surprise appearance at a Carnegie Hall benefit show, , joining Cra
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/2007-04-05.jpg?resize=758%2C494&amp;ssl=1)
 
-Another radio station contest to pick a song for the set list–this time “Fire” is the winner for this Magic Tour stop at HP Pavilion in San Jose. “Out in the Street” and “Bobby Jean” make their tour debut tonight as well.
+Another radio station contest to pick a song for the set list–this time "Fire" is the winner for this Magic Tour stop at HP Pavilion in San Jose. "Out in the Street" and "Bobby Jean" make their tour debut tonight as well.
 
 **2008:**
 
 [https://videopress.com/embed/4ds7LEvR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4ds7LEvR?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare “I’m a Rocker” and “Sherry Darling.”
+Bruce continues tinkering with the set list on the third night of the Working on a Dream Tour in Austin, with seven tour premieres, including a rare "I'm a Rocker" and "Sherry Darling."
 
 **2009:**
 
@@ -82,7 +82,7 @@ Bruce continues tinkering with the set list on the third night of the Working on
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2009-04-05b.jpg?resize=415%2C961&amp;ssl=1)
 
-At a River Tour stop in Dallas, things get a little out of hand during “Dancing in the Dark.”
+At a River Tour stop in Dallas, things get a little out of hand during "Dancing in the Dark."
 
 **2016:**
 
@@ -92,11 +92,11 @@ At a River Tour stop in Dallas, things get a little out of hand during “Dancin
 
 [https://www.youtube.com/embed/ynUvaSq_ynM?feature=oembed](https://www.youtube.com/embed/ynUvaSq_ynM?feature=oembed)
 
-continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn’t present tonight, so theatergoers get the “B” setlist featuring “Long Time Comin'” and “The Ghost of Tom Joad” in place of “Brilliant Disguise” and “Tougher Than the Rest.”
+continues its theatrical run at the Walter Kerr Theater in New York City. Patti isn't present tonight, so theatergoers get the "B" setlist featuring "Long Time Comin'" and "The Ghost of Tom Joad" in place of "Brilliant Disguise" and "Tougher Than the Rest."
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and President Barack Obama release the final episode of their Spotify podcast, This episode is entitled “The Rising: Looking Towards American Renewal” and features an acoustic performance of “Born in the U.S.A.”
+Bruce and President Barack Obama release the final episode of their Spotify podcast, This episode is entitled "The Rising: Looking Towards American Renewal" and features an acoustic performance of "Born in the U.S.A."
 
 **2021:** *Renegades: Born in the U.S.A.*
 
@@ -106,7 +106,7 @@ Bruce and President Barack Obama release the final episode of their Spotify podc
 
 <https://estreetshuffle.com/wp-content/uploads/2025/04/79a3-710a-498b-8305-22729e94d6c8.mp3>
 
-For the fourth show in a row, Bruce introduces a tour debut into his mostly static World Tour setlist. Tonight, “Atlantic City” premieres at Rocket Mortgage Fieldhouse in Cleveland.
+For the fourth show in a row, Bruce introduces a tour debut into his mostly static World Tour setlist. Tonight, "Atlantic City" premieres at Rocket Mortgage Fieldhouse in Cleveland.
 
 **2023:**
 

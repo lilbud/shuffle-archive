@@ -30,7 +30,7 @@ That summer, Bruce travelled to Berlin to record a live video for "[Hungry Heart
 
 [Watch on Youtube: Bruce Springsteen - Down The Road Apiece](https://www.youtube.com/watch?v=jwbwL5s12wo)
 
-That Berlin performance might have been a one-off, if not for Joe Grushecky. A big Rolling Stones fan, Joe added "Down the Road Apiece" to his set lists on his October Assault mini-tour for [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) later that year. Since Bruce was an honorary Houserocker for the entire tour, that added another half-dozen "Down the Road Apiece" performances to the record, and we're fortunate that one of them has seen official release on Joe's 1999 live album, *Down the Road Apiece: Live,* with Joe and Bruce sharing lead vocals.
+That Berlin performance might have been a one-off, if not for Joe Grushecky. A big Rolling Stones fan, Joe added "Down the Road Apiece" to his set lists on his October Assault mini-tour for [*American Babylon*](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/) later that year. Since Bruce was an honorary Houserocker for the entire tour, that added another half-dozen "Down the Road Apiece" performances to the record, and we're fortunate that one of them has seen official release on Joe's 1999 live album, *Down the Road Apiece: Live*, with Joe and Bruce sharing lead vocals.
 
 [Watch on Youtube: Down The Road Apiece](https://www.youtube.com/watch?v=b13zMkXf2t0)
 

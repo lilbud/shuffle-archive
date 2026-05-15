@@ -14,7 +14,7 @@ Even shorter-lived than Dr. Zoom and the Sonic Boom: , making their debut perfor
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1971-0521-234x300.jpg?resize=758%2C972)
 
-Bruce cuts the first version of “Born to Run” in the studio (instrumental only).
+Bruce cuts the first version of "Born to Run" in the studio (instrumental only).
 
 **1974:**
 
@@ -48,7 +48,7 @@ Bruce rehearses with his new band for their upcoming tour. After the rehearsal, 
 
 [https://www.youtube.com/embed/D_QFzQ0fCDI?feature=oembed](https://www.youtube.com/embed/D_QFzQ0fCDI?feature=oembed)
 
-ABC-TV airs a Rolling special featuring rare (for the time) band performances of “” and “.”
+ABC-TV airs a Rolling special featuring rare (for the time) band performances of "" and "."
 
 **1998:** *Stone State of the Union*[The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)
 
@@ -56,7 +56,7 @@ ABC-TV airs a Rolling special featuring rare (for the time) band performances of
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1998-05-21.jpg?resize=758%2C858&amp;ssl=1)
 
-Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of “” and the first “” in 20 years. Watch the soundcheck below, featuring a lovely, lonely “” and a bit of Patti Scialfa’s beautiful ballad, “.”
+Night 3 of 4 at Earls Court in London features the Reunion Tour premiere of "" and the first "" in 20 years. Watch the soundcheck below, featuring a lovely, lonely "" and a bit of Patti Scialfa's beautiful ballad, "."
 
 **1999:** [You Can Look (But You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)[Meeting Across the River](http://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[As Long As I (Can Be With You)](https://estreetshuffle.com/index.php/2018/10/02/meeting-across-the-river-patti-scialfa-and-bruce-springsteen-as-long-as-i-can-be-with-you/)
 
@@ -108,7 +108,7 @@ The final stand of the first American leg of the Working on a Dream Tour begins 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2009-05-21b.jpg?resize=758%2C871&amp;ssl=1)
 
-When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres “My City of Ruins,” and “.” Buy or stream this show .
+When the River Tour (2016 Edition) reaches Madrid, Bruce tour premieres "My City of Ruins," and "." Buy or stream this show .
 
 **2016:** [Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)[here](https://live.brucespringsteen.net/live-music/0,14109/Bruce-Springsteen-mp3-flac-download-5-21-2016-Estadio-Santiago-Bernabeu-Madrid-ES.html)
 

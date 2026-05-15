@@ -40,7 +40,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/zjtTvBOg)
 
-**2005:** Bruce releases *Devils & Dust,* his thirteenth studio album. (The album was released in Europe a day earlier.)
+**2005:** Bruce releases *Devils & Dust*, his thirteenth studio album. (The album was released in Europe a day earlier.)
 
 [Watch on Youtube: Devils & Dust](https://www.youtube.com/playlist?list=OLAK5uy_ljJkvfatynKRT3tSQqRz4KwELqrCKqlE8)
 

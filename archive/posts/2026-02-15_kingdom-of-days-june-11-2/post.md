@@ -1,4 +1,4 @@
-**1988:** The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of “Because the Night.”
+**1988:** The European leg of the Tunnel of Love Tour kicks off in Italy, starting with a show at Stadio Comunale in Turin that features the tour premiere of "Because the Night."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Q9KzCea1pas)
 
@@ -28,9 +28,9 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jIyY16fAwxs)
 
-**2005:** A scheduled solo acoustic show in Hamburg is rescheduled after Terry Magovern’s fiancée passes away.
+**2005:** A scheduled solo acoustic show in Hamburg is rescheduled after Terry Magovern's fiancée passes away.
 
-**2006:** The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where “Long Black Veil” makes its American premiere.
+**2006:** The Seeger Sessions Tour stops at Xcel Energy Center in St. Paul, where "Long Black Veil" makes its American premiere.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=OJZmPNby-9U)
 
@@ -60,7 +60,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=NPS5b-XWCyU)
 
-**2025:** The Land of Hope and Dreams Tour moves on to Olympiastadion in Berlin, where “Two Hearts” and “Seven Nights to Rock” receive rare outings.
+**2025:** The Land of Hope and Dreams Tour moves on to Olympiastadion in Berlin, where "Two Hearts" and "Seven Nights to Rock" receive rare outings.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=9QYg0126zzY)
 

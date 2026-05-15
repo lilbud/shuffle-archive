@@ -38,7 +38,7 @@
 
 **1984:** In town a day early for his Born in the U.S.A. Tour stop, Bruce makes his second guest appearance with the Iron City Houserockers (fronted by Joe Grushecky in one of the band's final performances) at the Pennsylvania Decade in Pittsburgh.
 
-**1993:** Patti Scialfa appears on *The Late Show with David Letterman,* promoting her recent *Rumble Doll* album and performing "Lucky Girl."
+**1993:** Patti Scialfa appears on *The Late Show with David Letterman*, promoting her recent *Rumble Doll* album and performing "Lucky Girl."
 
 [Watch Video Highlight](https://videopress.com/embed/3ZCFGfGj)
 

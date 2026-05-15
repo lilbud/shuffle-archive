@@ -94,4 +94,4 @@
 
 **2023:** Bruce's scheduled show in San Francisco (already postponed once this year) is moved again to the following March due to his peptic ulcer disease.
 
-**2024:** Bruce drops by the set of *Deliver Me From Nowhere,* filming today at Convention Hall in Asbury Park.
+**2024:** Bruce drops by the set of *Deliver Me From Nowhere*, filming today at Convention Hall in Asbury Park.

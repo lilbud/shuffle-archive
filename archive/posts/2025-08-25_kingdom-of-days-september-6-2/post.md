@@ -10,7 +10,7 @@ Steel Mill rehearses for their upcoming and destined-for-legend Clearwater Swim 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1970-09-06.jpg?resize=562%2C1393&amp;ssl=1)
 
-Boz Scaggs guest-stars on “Twist and Shout” when Bruce plays his first-ever show in Louisiana at the New Orleans Theater of the Performing Arts. 
+Boz Scaggs guest-stars on "Twist and Shout" when Bruce plays his first-ever show in Louisiana at the New Orleans Theater of the Performing Arts. 
 
 **1975:** (Photo credit: Barbara Pyle)
 
@@ -42,7 +42,7 @@ The Born in the U.S.A. Tour stadium leg continues with a show at the Hoosier Dom
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1985-09-06b-300x220.jpg?resize=758%2C556)
 
-Bruce plays his first and only show in Hungary when the Human Rights Now! Tour arrives in Budapest. Tour premiering tonight: “” and “.” Meanwhile, Bruce’s EP is released to support the tour.
+Bruce plays his first and only show in Hungary when the Human Rights Now! Tour arrives in Budapest. Tour premiering tonight: "" and "." Meanwhile, Bruce's EP is released to support the tour.
 
 **1988:** [Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)*Chimes of Freedom*
 
@@ -62,9 +62,9 @@ Bruce plays his first and only show in Hungary when the Human Rights Now! Tour a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1988-09-06-137x300.jpg?resize=758%2C1660)
 
-Bruce and the E Street Band play their first ever show at Boston’s Fenway Park, opening with the E Street Band premiere of “” and featuring a rare “” and a show-closing “” with Peter Wolf.
+Bruce and the E Street Band play their first ever show at Boston's Fenway Park, opening with the E Street Band premiere of "" and featuring a rare "" and a show-closing "" with Peter Wolf.
 
-**2003:** [Diddy Wah Diddy](https://estreetshuffle.com/index.php/2021/06/11/cover-me-diddy-wah-diddy/)[Janey, Don’t You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)
+**2003:** [Diddy Wah Diddy](https://estreetshuffle.com/index.php/2021/06/11/cover-me-diddy-wah-diddy/)[Janey, Don't You Lose Heart](http://estreetshuffle.com/index.php/2019/04/06/roll-of-the-dice-janey-dont-you-lose-heart/)[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)
 
 [https://www.youtube.com/embed/_jfOIVK70kc?feature=oembed](https://www.youtube.com/embed/_jfOIVK70kc?feature=oembed)
 

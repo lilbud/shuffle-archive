@@ -14,7 +14,7 @@ The Bruce Springsteen Band headlines a show at Rutgers University.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1972-0415-300x231.jpg?resize=758%2C584)
 
-Bruce’s interview with Bill Ayres (recorded in late 1974) premieres on the radio show It’s not exactly Bruce at his most articulate, but it’s an interesting listen.
+Bruce's interview with Bill Ayres (recorded in late 1974) premieres on the radio show It's not exactly Bruce at his most articulate, but it's an interesting listen.
 
 **1975:** *On This Rock.*
 
@@ -44,7 +44,7 @@ Bruce joins Beaver Brown and Asbury Jukes members Joel Gramolini, Kevin Kavanaug
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1979-0415b-300x219.jpg?resize=745%2C544)
 
-The fourth of five nights at Tokyo’s Yoyogi National Gymnasium.
+The fourth of five nights at Tokyo's Yoyogi National Gymnasium.
 
 **1985:**
 
@@ -84,7 +84,7 @@ Courtney Cox hosts During her monologue, she reminisces about and relives her bi
 
 [https://player.vimeo.com/video/188183887?dnt=1&amp;app_id=122963](https://player.vimeo.com/video/188183887?dnt=1&amp;app_id=122963)
 
-Bruce and the E Street Band bring the Reunion Tour to Cologne, where Wolfgang Niedecken guest-stars in the encores on the tour premiere of “.” “” and “” also make their tour debuts tonight.
+Bruce and the E Street Band bring the Reunion Tour to Cologne, where Wolfgang Niedecken guest-stars in the encores on the tour premiere of "." "" and "" also make their tour debuts tonight.
 
 **1999:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Working on the Highway](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
@@ -94,7 +94,7 @@ Bruce and the E Street Band bring the Reunion Tour to Cologne, where Wolfgang Ni
 
 [https://videopress.com/embed/T5qgXOUh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/T5qgXOUh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce and the E Street Band play a Reunion gig at Freedom Hall in Louisville. The set features a rare “.”
+Bruce and the E Street Band play a Reunion gig at Freedom Hall in Louisville. The set features a rare "."
 
 **2000:** [Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)
 
@@ -110,7 +110,7 @@ Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2005-04-15-300x92.jpg?resize=758%2C232)
 
-At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on “” and “.” Making their tour premieres tonight: “,” “” and “.”
+At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on "" and "." Making their tour premieres tonight: "," "" and "."
 
 **2009:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[Hard Times (Come Again No More)](https://estreetshuffle.com/index.php/2022/01/21/cover-me-hard-times-come-again-no-more/)[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)[Spirit in the Night,](https://estreetshuffle.com/index.php/2020/03/01/roll-of-the-dice-spirit-in-the-night/)[Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)
 
@@ -124,7 +124,7 @@ At the first of two nights at the L.A. Sports Arena, Tom Morello guest-stars on 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2009-04-15b-283x300.jpg?resize=758%2C803)
 
-Bruce joins Rosanne Cash on stage at Duke University for a live performance of their duet, “.”
+Bruce joins Rosanne Cash on stage at Duke University for a live performance of their duet, "."
 
 **2010:** [Sea of Heartbreak](http://estreetshuffle.com/index.php/2018/01/12/meeting-across-the-river-bruce-springsteen-and-rosanne-cash/)
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2010-04-15.jpg?resize=758%2C382&amp;ssl=1)
@@ -133,9 +133,9 @@ Bruce joins Rosanne Cash on stage at Duke University for a live performance of t
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2010-0415-300x165.jpg?resize=758%2C416)
 
-airs the third and final part of “The Bruce and Stevie Show.” Essential listening for fans of Bruce, Steve, great music, and great friendships.
+airs the third and final part of "The Bruce and Stevie Show." Essential listening for fans of Bruce, Steve, great music, and great friendships.
 
-**2011:** *Little Steven’s Underground Garage*
+**2011:** *Little Steven's Underground Garage*
 
 [https://videopress.com/embed/PUo91OY3?hd=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1](https://videopress.com/embed/PUo91OY3?hd=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1)
 
@@ -145,7 +145,7 @@ Bruce and Patti catch their friend Rita Wilson in concert at 54 Below on New Yor
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/04/medium-3.jpg?resize=500%2C357&amp;ssl=1)
 
-The High Hopes Tour hits Columbus, bringing with it the tour premiere of “.”
+The High Hopes Tour hits Columbus, bringing with it the tour premiere of "."
 
 **2014:** [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
 
@@ -153,7 +153,7 @@ The High Hopes Tour hits Columbus, bringing with it the tour premiere of “.”
 
 [https://www.youtube.com/embed/H-O2GGJ2yTs?feature=oembed](https://www.youtube.com/embed/H-O2GGJ2yTs?feature=oembed)
 
-Bruce attends the wedding of Max Weinberg’s daughter, Ali.
+Bruce attends the wedding of Max Weinberg's daughter, Ali.
 
 **2016:**
 
@@ -173,7 +173,7 @@ Bruce and Patti are scheduled to present (and perform) at the first annual Ameri
 
 [https://www.youtube.com/embed/NfQLwYRdESk?feature=oembed](https://www.youtube.com/embed/NfQLwYRdESk?feature=oembed)
 
-Bruce tour premieres “Adam Raised a Cain” when the E Street Band brings their world tour to MVP Arena in Albany.
+Bruce tour premieres "Adam Raised a Cain" when the E Street Band brings their world tour to MVP Arena in Albany.
 
 **2024:**
 

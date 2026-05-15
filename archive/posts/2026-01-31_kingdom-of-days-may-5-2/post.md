@@ -20,7 +20,7 @@ Bruce postpones a scheduled concert at Kent State University to June 1.
 
 **1974:**
 
-At a recording session at the Record Plant in New York City, Bruce begins work on “Tenth Avenue Freeze-Out.”
+At a recording session at the Record Plant in New York City, Bruce begins work on "Tenth Avenue Freeze-Out."
 
 **1975:** *Born to Run*
 
@@ -30,7 +30,7 @@ Bruce plays his first-ever show in Norway, when the River Tour comes to Drammen.
 
 [https://videopress.com/embed/fZwe49y9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/fZwe49y9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-At The Power Station studio in New York City, Bruce and the E Street Band record “Glory Days,” “My Love Will Not Let You Down,” “A Good Man Is Hard to Find (Pittsburgh)” and the still unreleased “Stop the War.”
+At The Power Station studio in New York City, Bruce and the E Street Band record "Glory Days," "My Love Will Not Let You Down," "A Good Man Is Hard to Find (Pittsburgh)" and the still unreleased "Stop the War."
 
 **1982:**
 
@@ -62,7 +62,7 @@ Bruce plays the first of two nights at the Tacoma Dome for the Tunnel of Love Ex
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/1988-0505.jpg?resize=342%2C480&amp;ssl=1)
 
-The Recording Industry Association of America certifies “Santa Claus Is Coming to Town” as gold and “Dancing in the Dark” as platinum.
+The Recording Industry Association of America certifies "Santa Claus Is Coming to Town" as gold and "Dancing in the Dark" as platinum.
 
 **1992:**
 
@@ -88,7 +88,7 @@ Bruce receives the Polar Music Prize from King Carl XVI Gustaf of Sweden. The ce
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1997-05-05.jpg?resize=758%2C422&amp;ssl=1)
 
-Bruce tour premieres “Nebraska” and an acoustic arrangement of “Land of Hope and Dreams” at his solo acoustic show at Oakland’s Paramount Theater.
+Bruce tour premieres "Nebraska" and an acoustic arrangement of "Land of Hope and Dreams" at his solo acoustic show at Oakland's Paramount Theater.
 
 **2005:**
 
@@ -104,7 +104,7 @@ Bruce tour premieres “Nebraska” and an acoustic arrangement of “Land of Ho
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-05b.jpg?resize=687%2C957&amp;ssl=1)
 
-The first European leg of the Seeger Sessions Tour kicks off at the Point Theater in Dublin with the tour debuts of “Adam Raised a Cain” and “Erie Canal.”
+The first European leg of the Seeger Sessions Tour kicks off at the Point Theater in Dublin with the tour debuts of "Adam Raised a Cain" and "Erie Canal."
 
 **2006:**
 
@@ -112,7 +112,7 @@ The first European leg of the Seeger Sessions Tour kicks off at the Point Theate
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Independent_Sat__May_6__2006_.jpg?resize=758%2C347&amp;ssl=1)
 
-Bruce plays his fourth show in four days, as the Working on a Dream Tour rolls into Charlottesville, Virginia, for a show at the John Paul Jones arena. The set list includes a one-off cover (by request) of The Kinks’ “You Really Got Me,” along with the tour premieres of “Gypsy Biker” and “Roulette.”
+Bruce plays his fourth show in four days, as the Working on a Dream Tour rolls into Charlottesville, Virginia, for a show at the John Paul Jones arena. The set list includes a one-off cover (by request) of The Kinks' "You Really Got Me," along with the tour premieres of "Gypsy Biker" and "Roulette."
 
 **2009:**
 
@@ -122,7 +122,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce appears at the opening night of Netflix’s third annual FYSEE event, playing two songs and joining director Martin Scorsese for a Q&A session.
+Bruce appears at the opening night of Netflix's third annual FYSEE event, playing two songs and joining director Martin Scorsese for a Q&A session.
 
 **2019:**
 
@@ -132,13 +132,13 @@ Bruce appears at the opening night of Netflix’s third annual FYSEE event, play
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2019-05-05.jpg?resize=758%2C760&amp;ssl=1)
 
-Bruce kicks off a three-night stand in Dublin without any tour premieres, the first debut-less show since March. The encores open with “Land of Hope and Dreams,” dedicated to Charlie Bird, who is in attendance tonight.
+Bruce kicks off a three-night stand in Dublin without any tour premieres, the first debut-less show since March. The encores open with "Land of Hope and Dreams," dedicated to Charlie Bird, who is in attendance tonight.
 
 **2023:**
 
 [https://www.youtube.com/embed/GqK9Q3Dq5B8?feature=oembed](https://www.youtube.com/embed/GqK9Q3Dq5B8?feature=oembed)
 
-Bruce and the E Street Band kick off the European leg of their World Tour with the tour debut of “So Young and In Love” at Principality Stadium in Cardiff. Also tour premiering tonight by request: “Better Days.”
+Bruce and the E Street Band kick off the European leg of their World Tour with the tour debut of "So Young and In Love" at Principality Stadium in Cardiff. Also tour premiering tonight by request: "Better Days."
 
 **2024:**
 

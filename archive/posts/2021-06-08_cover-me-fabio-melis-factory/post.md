@@ -2,7 +2,7 @@ You guys, I'm starting to panic.
 
 When the organizers of this year's [*Cover Me* contest](https://www.noiespringsteen.com/contest/) asked me to join their jury, I leapt at the opportunity.
 
-*How hard can it be,* I thought to myself. I mean, how many artists are gonna be able to not only cover Bruce's music really well but also reinterpret, reimagine, or reinvent his songs to bring something fresh and new to the table?
+*How hard can it be*, I thought to myself. I mean, how many artists are gonna be able to not only cover Bruce's music really well but also reinterpret, reimagine, or reinvent his songs to bring something fresh and new to the table?
 
 It turns out the answer to that question is: A LOT.
 

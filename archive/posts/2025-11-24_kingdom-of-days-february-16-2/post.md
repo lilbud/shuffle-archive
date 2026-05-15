@@ -20,7 +20,7 @@ Bruce and the band play Monmouth College in West Long Branch, New Jersey. Ticket
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1973-02-16-300x288.jpg?resize=758%2C729)
 
-does its best to wake the world beyond Philly and Texas to Springsteen’s power and talent. It won’t take much longer.
+does its best to wake the world beyond Philly and Texas to Springsteen's power and talent. It won't take much longer.
 
 **1975:** *The Philadelphia Inquirer*
 
@@ -48,7 +48,7 @@ Bruce and the E Street Band play a gig at Veterans Memorial Auditorium in Columb
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1981-02-16.jpg?resize=535%2C2170&amp;ssl=1)
 
-At The Hit Factory in New York City, Bruce records “Refrigerator Blues,” which to this date does not circulate.
+At The Hit Factory in New York City, Bruce records "Refrigerator Blues," which to this date does not circulate.
 
 **1983:**
 
@@ -56,7 +56,7 @@ Bruce scores his first Number One album in the U.K. with .
 
 **1985:** *Born in the U.S.A*
 
-Bruce joins Bruce Willis, Stephen Stills, and John McEnroe(!) on “” at the Tent on the Beach in Malibu.
+Bruce joins Bruce Willis, Stephen Stills, and John McEnroe(!) on "" at the Tent on the Beach in Malibu.
 
 **1991:**[C.C. Rider](https://estreetshuffle.com/index.php/2021/08/29/cover-me-c-c-rider/)
 
@@ -76,9 +76,9 @@ In Paris, Bruce is interviewed about his new album by journalist Antoine de Caun
 
 [https://videopress.com/embed/BlkrjD6J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BlkrjD6J?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Night Two in Melbourne on the High Hopes Tour features a full album performance of and tour debuts of “,” “,” “,” ,” and “.” Curiously, no official recording is available of this show.
+Night Two in Melbourne on the High Hopes Tour features a full album performance of and tour debuts of "," "," "," ," and "." Curiously, no official recording is available of this show.
 
-**2014:***Born to Run* [Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)[Growin’ Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)
+**2014:***Born to Run* [Lucky Town](https://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)[Roulette](https://estreetshuffle.com/index.php/2022/04/16/roll-of-the-dice-roulette/)[Growin' Up](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)[Meeting Across the River](https://estreetshuffle.com/index.php/2019/08/04/roll-of-the-dice-meeting-across-the-river/)
 
 [https://www.youtube.com/embed/CmsEn31SK_E?feature=oembed](https://www.youtube.com/embed/CmsEn31SK_E?feature=oembed)
 
@@ -100,15 +100,15 @@ At the BB&T Center in Sunrise, Bruce and band perform a standard early River Tou
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2016-02-16.png?resize=758%2C980&amp;ssl=1)
 
-Night Two in Brisbane features the Australian premiere of “,” rare outings for “,” “,” and “Follow that Dream,” and a guest audience member for “” Also tour premiering tonight: “” and “.”
+Night Two in Brisbane features the Australian premiere of "," rare outings for "," "," and "Follow that Dream," and a guest audience member for "" Also tour premiering tonight: "" and "."
 
-**2017:**[Working on a Dream](http://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)[Roll of the Dice](http://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)[Growin’ Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)
+**2017:**[Working on a Dream](http://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)[Roll of the Dice](http://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)[Growin' Up.](https://estreetshuffle.com/index.php/2022/09/29/roll-of-the-dice-growin-up/)[Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)[Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)
 
 [https://videopress.com/embed/Y4yBWysX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Y4yBWysX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-COVID-19 continues its tour across the E Street Band, moving on from Nils (who returns to the stage) and taking temporary residence in Jake. E Street Horns saxophonist Ed Manion steps up for double-duty, and the band soldiers on in Austin. “” makes its tour premiere tonight. “,” an early highlight, is dropped from the set and won’t appear again.
+COVID-19 continues its tour across the E Street Band, moving on from Nils (who returns to the stage) and taking temporary residence in Jake. E Street Horns saxophonist Ed Manion steps up for double-duty, and the band soldiers on in Austin. "" makes its tour premiere tonight. "," an early highlight, is dropped from the set and won't appear again.
 
-**2023:** [Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Don’t Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)
+**2023:** [Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)
 
 [https://www.youtube.com/embed/PtGtO9xQ6cM?feature=oembed](https://www.youtube.com/embed/PtGtO9xQ6cM?feature=oembed)
 

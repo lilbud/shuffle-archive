@@ -1,10 +1,10 @@
 
 
-Clarence “Big Man” Clemons is born in Norfolk, Virginia.
+Clarence "Big Man" Clemons is born in Norfolk, Virginia.
 
 **1942:**
 
-Bruce and the band continue their Boston residency with two shows at Paul’s Mall.
+Bruce and the band continue their Boston residency with two shows at Paul's Mall.
 
 **1973:**
 
@@ -28,13 +28,13 @@ At his home studio in Holmdel, Bruce and the E Street Band rehearse material for
 
 [https://www.youtube.com/embed/3pAfoBsiEh4?feature=oembed](https://www.youtube.com/embed/3pAfoBsiEh4?feature=oembed)
 
-Bruce plays the second of two shows at Detroit’s Fox Theater.
+Bruce plays the second of two shows at Detroit's Fox Theater.
 
 **1996:**
 
 [https://videopress.com/embed/w4Rg1WKW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/w4Rg1WKW?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-On the occasion of Clarence’s 60th birthday, Bruce joins Clarence on stage at B.B. King’s nightclub in Mashantucket, Connecticut. They play four songs together, including “” with B.B. King.
+On the occasion of Clarence's 60th birthday, Bruce joins Clarence on stage at B.B. King's nightclub in Mashantucket, Connecticut. They play four songs together, including "" with B.B. King.
 
 **2002:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)
 
@@ -46,7 +46,7 @@ On the occasion of Clarence’s 60th birthday, Bruce joins Clarence on stage at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2001-01-11b.png?resize=655%2C1651&amp;ssl=1)
 
-: At the 66th Annual Golden Globes, Bruce wins the award for Best Original Song for “” (and wishes Clarence a happy birthday in his acceptance speech).
+: At the 66th Annual Golden Globes, Bruce wins the award for Best Original Song for "" (and wishes Clarence a happy birthday in his acceptance speech).
 
 **2009**[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)
 

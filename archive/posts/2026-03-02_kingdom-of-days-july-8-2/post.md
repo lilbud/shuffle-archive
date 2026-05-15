@@ -1,12 +1,12 @@
 **1973:** Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1975:** Bruce completes “Linda Let Me Be The One” at the Record Plant in New York City. It will remain in the vault for 23 years.
+**1975:** Bruce completes "Linda Let Me Be The One" at the Record Plant in New York City. It will remain in the vault for 23 years.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=G4yx0JdiKfo)
 
-**1977:** Bruce and the E Street Band work on “The Promise” and “Talk to Me” during recording sessions at Atlantic Studios in New York City.
+**1977:** Bruce and the E Street Band work on "The Promise" and "Talk to Me" during recording sessions at Atlantic Studios in New York City.
 
-**1978:** One day after their legendary Roxy show, Bruce and the boys take the Darkness Tour to the Arizona Veterans Memorial Coliseum in Phoenix, where several songs are filmed and released as promotional clips (and later included in the *Darkness on the Edge of Town* 30th anniversary box set). Bruce’s official video for “Rosalita (Come Out Tonight)” is from this show. “Raise Your Hand” is filmed but not released, but you can watch it below.
+**1978:** One day after their legendary Roxy show, Bruce and the boys take the Darkness Tour to the Arizona Veterans Memorial Coliseum in Phoenix, where several songs are filmed and released as promotional clips (and later included in the *Darkness on the Edge of Town* 30th anniversary box set). Bruce's official video for "Rosalita (Come Out Tonight)" is from this show. "Raise Your Hand" is filmed but not released, but you can watch it below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=YAxyHv7k0hA)
 
@@ -22,7 +22,7 @@
 
 ![](../../assets/2020/06/1978-07-08.jpg)
 
-**1981:** Bruce and the E Street Band play their fifth of six nights at the Brendan Byrne Arena in East Rutherford, as the River Tour continues. Two songs–“Two Hearts” and “Candy’s Room”–will be released on *Live 1975-85*. Before the show, Bruce soundchecks his original song “All I Need,” which he would eventually donate to Gary U.S. Bonds for his *On the Line* album.
+**1981:** Bruce and the E Street Band play their fifth of six nights at the Brendan Byrne Arena in East Rutherford, as the River Tour continues. Two songs–"Two Hearts" and "Candy's Room"–will be released on *Live 1975-85*. Before the show, Bruce soundchecks his original song "All I Need," which he would eventually donate to Gary U.S. Bonds for his *On the Line* album.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Q6CRuzDAzkM)
 
@@ -44,7 +44,7 @@
 
 **1992:** The Recording Industry Association of America certifies *Live 1975-85* as 12x multi-platinum.
 
-**2008:** At Magic Night Two in Oslo, Bruce tour premieres “If I Should Fall Behind” (in its only tour appearance) and plays a rare “From Small Things (Big Things One Day Come).”
+**2008:** At Magic Night Two in Oslo, Bruce tour premieres "If I Should Fall Behind" (in its only tour appearance) and plays a rare "From Small Things (Big Things One Day Come)."
 
 [Watch Video Highlight](https://videopress.com/embed/jglWnfIg)
 

@@ -6,7 +6,7 @@ Bruce jams with local musicians at an open mic night at The Upstage in Asbury Pa
 
 **1971:**
 
-Bruce plays the first night of seven at Oliver’s in Boston.
+Bruce plays the first night of seven at Oliver's in Boston.
 
 **1973:**
 
@@ -28,7 +28,7 @@ is certified as 12x Platinum by the Recording Industry Association of America.
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0](https://www.youtube.com/embed/videoseries?list=OLAK5uy_knulz6rBDTjgdDwskLxzD8g7gAdqRY4T0)
 
-Bruce and the E Street Band rehearse at Asbury Park’s Paramount Theater for the upcoming Working on a Dream Tour.
+Bruce and the E Street Band rehearse at Asbury Park's Paramount Theater for the upcoming Working on a Dream Tour.
 
 **2009:**
 
@@ -36,11 +36,11 @@ Bruce and the E Street Band rehearse at Asbury Park’s Paramount Theater for th
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/2009-0312-300x200.jpg?resize=758%2C505)
 
-Bruce and the expanded E Street Band play their last private pre-tour rehearsal at Asbury Park’s Convention Hall. Among the songs rehearsed: “” not played in 24 years. It will remain unplayed in concert.
+Bruce and the expanded E Street Band play their last private pre-tour rehearsal at Asbury Park's Convention Hall. Among the songs rehearsed: "" not played in 24 years. It will remain unplayed in concert.
 
 **2012:** [Vigilante Man,](https://estreetshuffle.com/index.php/2021/09/14/cover-me-vigilante-man/)
 
-This time it’s Bruce who is laid low by illness (not COVID, though), forcing the postponement (and eventually re-postponement) of his scheduled show at Mohegan Sun Arena in Uncasville.
+This time it's Bruce who is laid low by illness (not COVID, though), forcing the postponement (and eventually re-postponement) of his scheduled show at Mohegan Sun Arena in Uncasville.
 
 **2023:**
 

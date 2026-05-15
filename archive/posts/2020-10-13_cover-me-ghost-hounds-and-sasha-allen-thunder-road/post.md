@@ -4,7 +4,7 @@ The Ghost Hounds perfectly capture the gritty sound of the Steel City, and if yo
 
 With each show, they've been building a following, and their most recent album, *[Roses are Black](https://www.youtube.com/playlist?list=OLAK5uy_llAOgYitqT7FXNjcmTD6786UvJuzYP_68)* is very much worth seeking out.
 
-They may not be on the road at the moment, but they haven't let the pandemic stop them from making music. Back in May, they released a cover of "Thunder Road" recorded with guest artist Sasha Allen. (You may have seen Sasha on *The Voice,* on Broadway, or on tour with the Stones.)
+They may not be on the road at the moment, but they haven't let the pandemic stop them from making music. Back in May, they released a cover of "Thunder Road" recorded with guest artist Sasha Allen. (You may have seen Sasha on *The Voice*, on Broadway, or on tour with the Stones.)
 
 As revealed in a Zoom call this summer, the band selected "Thunder Road" over such rock classics like "I Love Rock and Roll" and "[Stand By Me](https://estreetshuffle.com/index.php/2021/12/12/matr-u2-and-bruce-springsteen-stand-by-me/)," fully aware that choosing Bruce's classic would require a "really bold attempt."
 

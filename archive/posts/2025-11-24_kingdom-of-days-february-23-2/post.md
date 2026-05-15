@@ -18,7 +18,7 @@ In the wee hours of Sunday morning, Bruce, Vinnie Roslin, and Big Bad Bobby Will
 
 **1969:**
 
-Ernest “Boom” Carter makes his debut as the E Street Band’s drummer at the Satellite Lounge in Cookstown, New Jersey. Bruce tried to cancel this show to give Carter time to come up to speed on the band’s material, but the owner of the club took that news in a very New Jersey fashion. I’ll let Bruce tell the rest of the story:
+Ernest "Boom" Carter makes his debut as the E Street Band's drummer at the Satellite Lounge in Cookstown, New Jersey. Bruce tried to cancel this show to give Carter time to come up to speed on the band's material, but the owner of the club took that news in a very New Jersey fashion. I'll let Bruce tell the rest of the story:
 
 **1974:**
 
@@ -34,7 +34,7 @@ Bruce and the E Street Band play the Westbury Music Fair in Westbury, New York. 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/02/Newsday__Suffolk_Edition__Mon__Feb_24__1975_-scaled.jpg?resize=753%2C2560&amp;ssl=1)
 
-Twelve-year old Eddie Vedder sees Bruce Springsteen and the E Street Band play Chicago’s Auditorium Theater.
+Twelve-year old Eddie Vedder sees Bruce Springsteen and the E Street Band play Chicago's Auditorium Theater.
 
 **1977:**
 
@@ -60,23 +60,23 @@ Twelve-year old Eddie Vedder sees Bruce Springsteen and the E Street Band play C
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1981-0223-255x300.jpg?resize=758%2C891)
 
-Bruce and Madonna make a surprise appearance on-stage with Prince at The Forum in Inglewood, CA. The three mega-stars play “” together. Some sources say that Bruce stayed on stage for “America,” and “” with Prince as well, but those reports are unconfirmed. Brucebase leans towards it because they hear Prince yelling “Bruce” at the beginning of “America,” but I’m pretty sure Prince is actually saying “Peace!” (the first word of the song). Regardless, I’m sharing those two tracks here just in case. They are certainly amazing performances regardless of whether Bruce appears on them or not.
+Bruce and Madonna make a surprise appearance on-stage with Prince at The Forum in Inglewood, CA. The three mega-stars play "" together. Some sources say that Bruce stayed on stage for "America," and "" with Prince as well, but those reports are unconfirmed. Brucebase leans towards it because they hear Prince yelling "Bruce" at the beginning of "America," but I'm pretty sure Prince is actually saying "Peace!" (the first word of the song). Regardless, I'm sharing those two tracks here just in case. They are certainly amazing performances regardless of whether Bruce appears on them or not.
 
-**1985:**[Baby, I’m a Star](https://estreetshuffle.com/index.php/2020/08/07/matr-prince-bruce-springsteen-and-madonna-baby-im-a-star/)[Purple Rain](https://estreetshuffle.com/index.php/2021/03/03/cover-me-purple-rain/)
+**1985:**[Baby, I'm a Star](https://estreetshuffle.com/index.php/2020/08/07/matr-prince-bruce-springsteen-and-madonna-baby-im-a-star/)[Purple Rain](https://estreetshuffle.com/index.php/2021/03/03/cover-me-purple-rain/)
 
 
 
 [https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F282257711&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758](https://w.soundcloud.com/player/?visual=true&amp;url=https%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F282257711&amp;show_artwork=true&amp;maxheight=1000&amp;maxwidth=758)
 
-“America”:
+"America":
 
 <http://estreetshuffle.com/wp-content/uploads/2019/02/02-Americas.mp3>
 
-“Purple Rain”:
+"Purple Rain":
 
 <http://estreetshuffle.com/wp-content/uploads/2019/02/03-PURPLE-RAIN.mp3>
 
-Bruce performs “” on French television. Here’s the rehearsal and the actual performance:
+Bruce performs "" on French television. Here's the rehearsal and the actual performance:
 
 **1996:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
 
@@ -84,11 +84,11 @@ Bruce performs “” on French television. Here’s the rehearsal and the actua
 
 [https://www.youtube.com/embed/kM3S5LGQMA8?feature=oembed](https://www.youtube.com/embed/kM3S5LGQMA8?feature=oembed)
 
-Despite being nominated for both the Best Male Rock Vocal Performance and Best Rock Song categories (both for “The Promise”), Bruce takes home no Grammy Awards this year.
+Despite being nominated for both the Best Male Rock Vocal Performance and Best Rock Song categories (both for "The Promise"), Bruce takes home no Grammy Awards this year.
 
 **2000:**
 
-At the 45th Grammy Awards in Madison Square Garden, Bruce performs and wins three awards (Best Male Rock Vocal Performance and Best Rock Song for “,” and Best Rock Album for ). Although nominated for Album of the Year and Song of the Year as well, Bruce does not win in those categories. At the end of the show, Bruce and Steve pay tribute to Joe Strummer with Elvis Costello and Dave Grohl, performing “.”
+At the 45th Grammy Awards in Madison Square Garden, Bruce performs and wins three awards (Best Male Rock Vocal Performance and Best Rock Song for "," and Best Rock Album for ). Although nominated for Album of the Year and Song of the Year as well, Bruce does not win in those categories. At the end of the show, Bruce and Steve pay tribute to Joe Strummer with Elvis Costello and Dave Grohl, performing "."
 
 **2003:**[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)*The Rising*[London Calling](http://estreetshuffle.com/index.php/2018/04/09/matr-bruce-springsteen-elvis-costello-steve-van-zandt-dave-grohl-london-calling/)
 
@@ -102,7 +102,7 @@ At the 45th Grammy Awards in Madison Square Garden, Bruce performs and wins thre
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2003-02-23b.png?resize=758%2C420&amp;ssl=1)
 
-The second of two shows at Hope Estate winery in Hunter Valley, Australia. The show kicks off with a cover of “” and features a penultimate encore of a rare solo acoustic “.” Also tour premiering tonight: “” and “”
+The second of two shows at Hope Estate winery in Hunter Valley, Australia. The show kicks off with a cover of "" and features a penultimate encore of a rare solo acoustic "." Also tour premiering tonight: "" and ""
 
 **2014:** [Spill the Wine](http://estreetshuffle.com/index.php/2018/03/15/cover-me-spill-the-wine/)[I Wish I Were Blind](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/)[Brilliant Disguise](https://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[4th of July, Asbury Park (Sandy).](https://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
@@ -118,7 +118,7 @@ The second of two shows at Hope Estate winery in Hunter Valley, Australia. The s
 
 [https://www.youtube.com/embed/ukm6r06AWvM?feature=oembed](https://www.youtube.com/embed/ukm6r06AWvM?feature=oembed)
 
-Bruce and the E Street Band play Quicken Loans Arena in Cleveland. Joe and Johnny Grushecky guest-star on “Born to Run,” and the band performs “” as a tour premiere for the local crowd.
+Bruce and the E Street Band play Quicken Loans Arena in Cleveland. Joe and Johnny Grushecky guest-star on "Born to Run," and the band performs "" as a tour premiere for the local crowd.
 
 **2016:** [Youngstown](https://estreetshuffle.com/index.php/2023/05/01/roll-of-the-dice-youngstown/)
 

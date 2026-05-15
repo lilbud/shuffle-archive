@@ -18,7 +18,7 @@
 
 [Watch on Youtube: down in the valley ( Solomon Burke cover)](https://www.youtube.com/watch?v=pBaV-gpRnOg)
 
-**1980:** Bruce releases his fifth studio album, *The River,* and The River Tour (already in progress) moves on to the St Paul Civic Center Arena for one night. Parts of the show are captured on Super-8 film.
+**1980:** Bruce releases his fifth studio album, *The River*, and The River Tour (already in progress) moves on to the St Paul Civic Center Arena for one night. Parts of the show are captured on Super-8 film.
 
 [Watch on Youtube: Bruce Springsteen - Live in St. Paul, MN (October 13th, 1980) - Super 8 Film](https://www.youtube.com/watch?v=HPMEAOlLFt4)
 

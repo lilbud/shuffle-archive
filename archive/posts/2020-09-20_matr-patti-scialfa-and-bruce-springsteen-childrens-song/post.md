@@ -2,7 +2,7 @@ In 2011, Christy Turlington directed and released a documentary called *No Woman
 
 [Watch on Youtube: No Woman, No Cry (2011) - Official Trailer](https://www.youtube.com/watch?v=2EqOnBTi_fs)
 
-The film inspired a companion benefit album called *Every Mother Counts,* named after Turlington's foundation. Turlington personally recruited the artists–all women–who contributed to the album.
+The film inspired a companion benefit album called *Every Mother Counts*, named after Turlington's foundation. Turlington personally recruited the artists–all women–who contributed to the album.
 
 One of those artists was Patti Scialfa. Patti readily agreed to participate, but she had trouble finding the right song until Bruce reminded her of a song she'd written years before when their children were young. Patti liked the idea, but she wasn't overly fond of the way she sounded singing it, so she rewrote it to her comfort.
 

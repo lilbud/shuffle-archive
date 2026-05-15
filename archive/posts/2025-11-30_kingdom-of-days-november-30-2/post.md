@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen - "Johnny Bye Bye" - Houston, 1980-11-30](https://www.youtube.com/watch?v=2IEIBCk4wKo)
 
-**1985:** On this week's episode of *American Top 40,* host Casey Kasem introduces Clarence's new single with the story of how The Boss and The Big Man first met.
+**1985:** On this week's episode of *American Top 40*, host Casey Kasem introduces Clarence's new single with the story of how The Boss and The Big Man first met.
 
 [https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/11/AT40-1985-11-30.mp3?_=1)
 

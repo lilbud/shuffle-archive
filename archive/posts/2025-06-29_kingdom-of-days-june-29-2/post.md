@@ -124,7 +124,7 @@ Meanwhile, "[Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2021:** It's Night Two for the return engagement of *Springsteen on Broadway,* and Bob Seger is in attendance.
+**2021:** It's Night Two for the return engagement of *Springsteen on Broadway*, and Bob Seger is in attendance.
 
 ![](../../assets/2022/06/2021-06-29.jpg)
 

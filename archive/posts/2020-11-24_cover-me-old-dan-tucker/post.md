@@ -18,7 +18,7 @@ One of the songs recorded during that second Seeger Session was a rollicking cov
 
 [Watch on Youtube: Ole Dan Tucker by Pete Seeger](https://www.youtube.com/watch?v=Kxn6lXyRHPI)
 
-If you're a child of the 1970s like me, you probably learned "Old Dan Tucker" from the television show *Little House on the Prairie,* where it was sung often by Victor French in character as Mr. Edwards. (It should be noted that French did a pretty great Springsteen impression long before Bruce was even famous.)
+If you're a child of the 1970s like me, you probably learned "Old Dan Tucker" from the television show *Little House on the Prairie*, where it was sung often by Victor French in character as Mr. Edwards. (It should be noted that French did a pretty great Springsteen impression long before Bruce was even famous.)
 
 [Watch on Youtube: Mr. Edwards (Victor French) - Old Dan Tucker](https://www.youtube.com/watch?v=Jz8JctpeNwg)
 

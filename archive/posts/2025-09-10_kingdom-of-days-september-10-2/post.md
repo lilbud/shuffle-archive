@@ -22,7 +22,7 @@
 
 ![](../../assets/2020/09/1981-09-10.jpg)
 
-**1984:** On a free day in between shows, Clarence appears as a guest on *Late Night with David Letterman,* and he performs a familiar song with the Red Bank Rockers.
+**1984:** On a free day in between shows, Clarence appears as a guest on *Late Night with David Letterman*, and he performs a familiar song with the Red Bank Rockers.
 
 [Watch on Youtube: Late Night with David Letterman - 9/10/1984](https://www.youtube.com/watch?v=-kpB6TJCrhs)
 

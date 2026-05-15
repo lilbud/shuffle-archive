@@ -1,18 +1,18 @@
 
 
-Willie Nile’s “One Guitar” won the AIM Independent Music Award for Best Social Action Song in 2013. It was well deserved. Willie’s metaphor for the power of the individual is tailor-suited for Bruce, and the two have performed it together at three Light of Day concerts over a four-year span.
+Willie Nile's "One Guitar" won the AIM Independent Music Award for Best Social Action Song in 2013. It was well deserved. Willie's metaphor for the power of the individual is tailor-suited for Bruce, and the two have performed it together at three Light of Day concerts over a four-year span.
 
-Here’s the most recent one, from 2015:
+Here's the most recent one, from 2015:
 
 [https://www.youtube.com/embed/wI-WmKdRRkc?feature=oembed](https://www.youtube.com/embed/wI-WmKdRRkc?feature=oembed)
 
-…along with Willie’s original, one of the great rock anthems.
+…along with Willie's original, one of the great rock anthems.
 
 [https://www.youtube.com/embed/6_YBsy_HtWg?feature=oembed](https://www.youtube.com/embed/6_YBsy_HtWg?feature=oembed)
 
 **Update 1/25/2020:**
 
-Bruce and Willie reprised their Light of Day “One Guitar” duet last week in Asbury Park, and it was a fantastic performance. Take it in below:
+Bruce and Willie reprised their Light of Day "One Guitar" duet last week in Asbury Park, and it was a fantastic performance. Take it in below:
 
 [https://www.youtube.com/embed/DWKZzyuYC1U?feature=oembed](https://www.youtube.com/embed/DWKZzyuYC1U?feature=oembed)
 

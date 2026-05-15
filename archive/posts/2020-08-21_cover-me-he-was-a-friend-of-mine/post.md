@@ -6,7 +6,7 @@ When Smith Casey recorded it in 1939, the song was called "Shorty George," but i
 
 Modern audiences were *almost* introduced to it in 1961 when Bob Dylan recorded it for his first album, but he ended up leaving it off the final record. (Dylan would finally release it decades later.)
 
-So it was The Byrds who brought the song to popular attention in their 1965 album *Turn! Turn! Turn!,* but their version had been significantly rewritten to refer to the late President Kennedy.
+So it was The Byrds who brought the song to popular attention in their 1965 album *Turn! Turn! Turn!*, but their version had been significantly rewritten to refer to the late President Kennedy.
 
 [Watch on Youtube: The Byrds - He Was A Friend Of Mine (Audio)](https://www.youtube.com/watch?v=sW888n-gVXI)
 

@@ -26,7 +26,7 @@
 
 ![](../../assets/2021/02/1986-02-27.png)
 
-**1988:** On the release date for "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)," his third single and video from *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/),* Bruce visits his friend John Mulheren in the Monmouth County jail.
+**1988:** On the release date for "[One Step Up](https://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)," his third single and video from *[Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)*, Bruce visits his friend John Mulheren in the Monmouth County jail.
 
 ![](../../assets/2020/02/1988-02-27.jpg)
 
@@ -38,7 +38,7 @@
 
 **2000:** Bruce and the E Street Band rehearse for the next leg of the Reunion Tour at Penn State University.
 
-**2012:** Bruce and the E Street Band (plus Curt Ramm) make a guest appearance on *Late Night with Jimmy Fallon,* where they play "[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)" and "[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)."
+**2012:** Bruce and the E Street Band (plus Curt Ramm) make a guest appearance on *Late Night with Jimmy Fallon*, where they play "[We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)" and "[Wrecking Ball](https://estreetshuffle.com/index.php/2022/08/12/roll-of-the-dice-wrecking-ball/)."
 
 [Watch Video Highlight](https://videopress.com/embed/CTNZOLZP)
 

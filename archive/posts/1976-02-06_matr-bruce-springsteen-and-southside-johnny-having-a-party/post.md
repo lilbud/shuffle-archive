@@ -14,7 +14,7 @@ After Cooke's passing, "Having a Party" became a bittersweet reminder of a simpl
 
 Until 1976, that is.
 
-In the spring of 1976, Asbury Park was ready to introduce its next great rock and roll band to the world. Southside Johnny and The Asbury Jukes had recorded their first album, *I Don't Want to Go Home,* and it was due to be released on June 7th.
+In the spring of 1976, Asbury Park was ready to introduce its next great rock and roll band to the world. Southside Johnny and The Asbury Jukes had recorded their first album, *I Don't Want to Go Home*, and it was due to be released on June 7th.
 
 In those days, Southside and the Jukes played three nights a week at a little-known local club called The Stone Pony, and on May 30th, a week prior to their record release, the Pony hosted a special release party for their house band.
 
@@ -24,7 +24,7 @@ That last encore was a cover of Cooke's traditional set-closer, and while Bruce 
 
 [Watch Video Highlight](https://videopress.com/embed/1e4Pz1em)
 
-After that show, rock and roll fans from all over the east coast started making pilgrimages to the Pony to hear Southside and the Jukes, and "Having a Party" became Southside's traditional closer as well. It became such a signature song for them, in fact, that within a year the band was performing it in full in a major motion picture, the 1977 drama *Between the Lines,* which featured some great close-ups of the Jukes in action.
+After that show, rock and roll fans from all over the east coast started making pilgrimages to the Pony to hear Southside and the Jukes, and "Having a Party" became Southside's traditional closer as well. It became such a signature song for them, in fact, that within a year the band was performing it in full in a major motion picture, the 1977 drama *Between the Lines*, which featured some great close-ups of the Jukes in action.
 
 [Watch Video Highlight](https://videopress.com/embed/R8LjfjuT)
 

@@ -12,7 +12,7 @@ Steel Mill is among the three top bands from a summer festival invited back to p
 
 Bruce and the E Street Band play a River Tour show at the Seattle Center Coliseum. Distributed at the show: the first issue of a four-page fanzine published by local fan Charles R. Cross. Over the four decades that follow, will evolve and thrive as a magazine, web site, and online community dedicated to bringing together Springsteen fans from around the world.
 
-**1980:** *Backstreets,* *Backstreets*
+**1980:** *Backstreets*, *Backstreets*
 
 [https://www.youtube.com/embed/pRVAyY8cQqM?feature=oembed](https://www.youtube.com/embed/pRVAyY8cQqM?feature=oembed)
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band play a River Tour show at the Seattle Center Coliseu
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-10-24-300x185.png?resize=758%2C468)
 
-Bruce joins Joe Grushecky and the Houserockers for their show at Chicago’s Park West. Check out the news coverage of the event.
+Bruce joins Joe Grushecky and the Houserockers for their show at Chicago's Park West. Check out the news coverage of the event.
 
 **1995:**
 
@@ -34,7 +34,7 @@ Bruce joins Joe Grushecky and the Houserockers for their show at Chicago’s Par
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1995-10-24-300x229.png?resize=758%2C579)
 
-Bruce and the E Street Band bring the Rising Tour to the Globe Arena in Stockholm, where “Gloria” makes its tour debut.
+Bruce and the E Street Band bring the Rising Tour to the Globe Arena in Stockholm, where "Gloria" makes its tour debut.
 
 **2002:**
 
@@ -52,7 +52,7 @@ Bruce plays a solo acoustic show at the Richmond Coliseum.
 
 [https://www.youtube.com/embed/evlvN2qZym8?feature=oembed](https://www.youtube.com/embed/evlvN2qZym8?feature=oembed)
 
-The Seeger Sessions Tour arrives in Barcelona, where Bruce tour premieres “” to open the encores. “” is recorded and will be released on 
+The Seeger Sessions Tour arrives in Barcelona, where Bruce tour premieres "" to open the encores. "" is recorded and will be released on 
 
 **2006:** [Land of Hope and Dreams](http://estreetshuffle.com/index.php/2018/01/05/roll-of-the-dice-land-of-hope-and-dreams/)[Love of the Common People](http://estreetshuffle.com/index.php/2020/10/21/cover-me-love-of-the-common-people/)*Live in Dublin.*
 
@@ -74,15 +74,15 @@ Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-24-300x300.jpg?resize=758%2C758)
 
-airs the first half of Bruce’s interview with Gayle King.
+airs the first half of Bruce's interview with Gayle King.
 
 **2019:***CBS This Morning*
 
 [https://www.youtube.com/embed/qLq_iqbEhcM?feature=oembed](https://www.youtube.com/embed/qLq_iqbEhcM?feature=oembed)
 
-Promotional activities for Bruce’s album continue with appearances on Dermot O’Leary’s radio show and 
+Promotional activities for Bruce's album continue with appearances on Dermot O'Leary's radio show and 
 
-**2020:** *Letter to You*[RNZ’s .](https://www.rnz.co.nz/audio/player?audio_id=2018769750#)*Music 101*<https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp3>
+**2020:** *Letter to You*[RNZ's .](https://www.rnz.co.nz/audio/player?audio_id=2018769750#)*Music 101*<https://estreetshuffle.com/wp-content/uploads/2023/10/01.-Bruce-Radio-2-24.10.2020__Merged.mp3>
 
 Bruce joins former President Barack Obama in a series of pre-recorded interviews with television hosts from around the world to promote their new book, 
 

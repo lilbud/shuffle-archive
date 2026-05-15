@@ -14,7 +14,7 @@ Bruce and his new touring band rehearse for their upcoming tour on a Hollywood s
 
 [https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed](https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed)
 
-Not one but two guest-stars when Bruce’s World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe’s “Settle for Love” (which the two played at Joe’s show the night before), and Jerry Lee Lewis joined Bruce for encores of “Great Balls of Fire” and “Whole Lotta Shakin’ Goin’ On.” Despite the special guests, the show is poorly reviewed by local press.
+Not one but two guest-stars when Bruce's World Tour 1993 stops at the RDS Arena in Dublin: Joe Ely joins Bruce for Joe's "Settle for Love" (which the two played at Joe's show the night before), and Jerry Lee Lewis joined Bruce for encores of "Great Balls of Fire" and "Whole Lotta Shakin' Goin' On." Despite the special guests, the show is poorly reviewed by local press.
 
 **1993:**
 
@@ -24,7 +24,7 @@ Not one but two guest-stars when Bruce’s World Tour 1993 stops at the RDS Aren
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Star_Tue__May_25__1993_.jpg?resize=758%2C793&amp;ssl=1)
 
-Bruce and Patti attend Don Henley’s wedding. Several musicians are in attendance and perform, including Bruce on “634-5789 (Soulsville, U.S.A.)”
+Bruce and Patti attend Don Henley's wedding. Several musicians are in attendance and perform, including Bruce on "634-5789 (Soulsville, U.S.A.)"
 
 **1995:**
 
@@ -42,11 +42,11 @@ The first U.S. leg of the Devils & Dust Tour concludes with a show at the Orpheu
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/2005-05-20b.jpg?resize=758%2C348&amp;ssl=1)
 
-“Devils & Dust” makes its Seeger Sessions Tour debut at the Oslo Spektrum.
+"Devils & Dust" makes its Seeger Sessions Tour debut at the Oslo Spektrum.
 
 **2006:**
 
-Sirius XM debuts the fourth installment of Bruce’s series.
+Sirius XM debuts the fourth installment of Bruce's series.
 
 **2020:** *From My Home to Yours* <https://estreetshuffle.com/wp-content/uploads/2021/05/2020-05-20-Bruce-E-Street-Radio-DJ-set-4.mp3>
 

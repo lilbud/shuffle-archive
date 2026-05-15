@@ -1,6 +1,6 @@
 
 
-Four days before Bruce’s scheduled show at Auburn University, Bruce makes an unannounced visit to the campus… or does he? (h/t Bud McLaughlin)
+Four days before Bruce's scheduled show at Auburn University, Bruce makes an unannounced visit to the campus… or does he? (h/t Bud McLaughlin)
 
 **1976:**
 
@@ -8,7 +8,7 @@ Four days before Bruce’s scheduled show at Auburn University, Bruce makes an u
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1976-05-07.jpg?resize=581%2C908&amp;ssl=1)
 
-At a mixing station for at Clover Studios in Los Angeles, Bruce and team complete the mix for “I Wanna Marry You.”
+At a mixing station for at Clover Studios in Los Angeles, Bruce and team complete the mix for "I Wanna Marry You."
 
 **1980:** *The River*
 
@@ -20,11 +20,11 @@ Bruce and the E Street Band play their first of two nights at Johanneshovs Issta
 
 [https://www.youtube.com/embed/WskRlbSBWuU?feature=oembed](https://www.youtube.com/embed/WskRlbSBWuU?feature=oembed)
 
-Bruce and the E Street Band work on “My Love Will Not Let You Down” at the Power Station in New York City.
+Bruce and the E Street Band work on "My Love Will Not Let You Down" at the Power Station in New York City.
 
 **1982:**
 
-Bruce and the E Street Band rehearse for the Born in the U.S.A. Tour at what was once Big Man’s West.
+Bruce and the E Street Band rehearse for the Born in the U.S.A. Tour at what was once Big Man's West.
 
 **1984:**
 
@@ -34,7 +34,7 @@ Bruce appears in a commercial with Tom Hanks to promote his upcoming appearance 
 
 [https://www.youtube.com/embed/Eh6vxRrjnv4?feature=oembed](https://www.youtube.com/embed/Eh6vxRrjnv4?feature=oembed)
 
-Bruce’s mini-tour of Spain continues with a show in Gijon, featuring the tour premiere of “Across the Borderline” (with its final verse in Spanish).
+Bruce's mini-tour of Spain continues with a show in Gijon, featuring the tour premiere of "Across the Borderline" (with its final verse in Spanish).
 
 **1993:**
 
@@ -54,7 +54,7 @@ Bruce performs his second of two solo acoustic shows at Teatro Tivoli in Barcelo
 
 **1996:** <https://estreetshuffle.com/wp-content/uploads/2025/05/107-Mansion-on-the-Hill.mp3>
 
-On Night Two in Vienna during Bruce’s first-ever tour stop in Austria, Patti makes a guest appearance in the encores, joining Bruce on “Two Hearts.”
+On Night Two in Vienna during Bruce's first-ever tour stop in Austria, Patti makes a guest appearance in the encores, joining Bruce on "Two Hearts."
 
 **1997:**
 
@@ -68,13 +68,13 @@ Bruce brings the Reunion Tour to Hartford for the first of two nights.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2000-05-07.jpg?resize=638%2C958&amp;ssl=1)
 
-At his solo acoustic show in Denver, Bruce plays the tour debut of “The Promise.”
+At his solo acoustic show in Denver, Bruce plays the tour debut of "The Promise."
 
 **2005:**
 
 [https://videopress.com/embed/NWEGes7W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/NWEGes7W?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The Seeger Sessions Tour picks up steam in Manchester with the live premiere of “” and the tour debut of the “/” mash-up.
+The Seeger Sessions Tour picks up steam in Manchester with the live premiere of "" and the tour debut of the "/" mash-up.
 
 **2006:** [How Can I Keep From Singing](http://estreetshuffle.com/index.php/2019/11/21/cover-me-how-can-i-keep-from-singing/)[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Mystery Train](https://estreetshuffle.com/index.php/2019/05/21/cover-me-mystery-train/)
 
@@ -94,7 +94,7 @@ Bruce and the E Street Band (with guests The Mighty Max Horns) play a benefit sh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2008-05-07b.jpg?resize=758%2C381&amp;ssl=1)
 
-Bruce plays the tour premiere of “Louie Louie” at the Air Canada Center in Toronto on the Working on a Dream Tour.
+Bruce plays the tour premiere of "Louie Louie" at the Air Canada Center in Toronto on the Working on a Dream Tour.
 
 **2009:**
 
@@ -106,7 +106,7 @@ Bruce plays the tour premiere of “Louie Louie” at the Air Canada Center in T
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2009-05-07.jpg?resize=758%2C279&amp;ssl=1)
 
-At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce and the band play “Brilliant Disguise” for the first time on the tour and open the encores with a rare “Queen of the Supermarket.”
+At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce and the band play "Brilliant Disguise" for the first time on the tour and open the encores with a rare "Queen of the Supermarket."
 
 **2013:**
 
@@ -120,7 +120,7 @@ At the first of two Wrecking Ball shows at HK Areena in Turku, Finland, Bruce an
 
 [https://www.youtube.com/embed/gXElNNsFvPM?feature=oembed](https://www.youtube.com/embed/gXElNNsFvPM?feature=oembed)
 
-Bruce and Patti fly to Los Angeles for the USC Shoah Foundation’s Ambassadors for Humanity gala, where Bruce performs “The Promised Land” and “Dancing in the Dark.”
+Bruce and Patti fly to Los Angeles for the USC Shoah Foundation's Ambassadors for Humanity gala, where Bruce performs "The Promised Land" and "Dancing in the Dark."
 
 **2014:**
 

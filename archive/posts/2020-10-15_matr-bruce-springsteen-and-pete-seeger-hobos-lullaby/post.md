@@ -14,7 +14,7 @@ Bruce covered it too, at the original gathering of Seeger Sessions musicians on 
 
 "Hobo's Lullaby" was one of the three recordings held back from the album that was released almost a decade later. ("Pretty Boy Floyd" and "I Come and Stand at Every Door" were the other two.)
 
-When Bruce was asked to contribute a recording to the 2007 benefit compilation *Give Us Your Poor,* Bruce turned the recording into a duet by having Seeger record his vocal and banjo overdubs from his own cabin on the 4th of July, 2006.
+When Bruce was asked to contribute a recording to the 2007 benefit compilation *Give Us Your Poor*, Bruce turned the recording into a duet by having Seeger record his vocal and banjo overdubs from his own cabin on the 4th of July, 2006.
 
 The resulting track was released to very little notice, and that's a shame because it's a beautiful, lilting track.
 

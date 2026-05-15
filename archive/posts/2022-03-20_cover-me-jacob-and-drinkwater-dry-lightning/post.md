@@ -2,7 +2,7 @@ I thought we might take a break from the "[I'm on Fire](https://estreetshuffle.c
 
 Let's start with this fine acoustic performance of "[Dry Lightning](https://estreetshuffle.com/index.php/2020/10/16/roll-of-the-dice-dry-lightning/)."
 
-"Dry Lightning" was one of the more melodic tracks on *The Ghost of Tom Joad,* and if not for the state of radio in the mid-nineties, it might have found the audience it deserved. It certainly attracted a couple of notable covers, and a few under-the-radar ones as well.
+"Dry Lightning" was one of the more melodic tracks on *The Ghost of Tom Joad*, and if not for the state of radio in the mid-nineties, it might have found the audience it deserved. It certainly attracted a couple of notable covers, and a few under-the-radar ones as well.
 
 This one by Oslo-based singer-songwriter Tobias ben Jacob with Lukas Drinkwater on the double bass is one of my favorites. Jacob and Drinkwater performed it during their appearance on The Big Comfy Sessions, an erstwhile acoustic series filmed at The Big Comfy Bookshop in Coventry.
 

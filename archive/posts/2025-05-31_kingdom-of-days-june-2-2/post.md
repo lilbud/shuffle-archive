@@ -12,13 +12,13 @@ Listen to Bruce recall his memory of this show 36 years later:
 
 [https://www.youtube.com/embed/KhV6i-sWdBg?feature=oembed](https://www.youtube.com/embed/KhV6i-sWdBg?feature=oembed)
 
-Bruce and the band headline at the Agora in Toledo, Ohio. This show is notable for its opener: the only known performance of “A Night Like This” (also known as “Angel Baby” or “Dance On Little Angel”), an outtake that remains unreleased to this day.
+Bruce and the band headline at the Agora in Toledo, Ohio. This show is notable for its opener: the only known performance of "A Night Like This" (also known as "Angel Baby" or "Dance On Little Angel"), an outtake that remains unreleased to this day.
 
 **1974:**
 
 [https://www.youtube.com/embed/iBgH1Irpf2w?feature=oembed](https://www.youtube.com/embed/iBgH1Irpf2w?feature=oembed)
 
-Recording continues for Bruce’s fourth album. Today the band works on “.”
+Recording continues for Bruce's fourth album. Today the band works on "."
 
 **1977:** [Rendezvous](https://estreetshuffle.com/index.php/2021/05/08/roll-of-the-dice-rendezvous/)
 
@@ -38,13 +38,13 @@ A year and a day after recording sessions begin, Bruce releases his fourth studi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/Bruce-Darkness-Review-Billboard-Jun-24-1978_0001.jpg?resize=758%2C1216&amp;ssl=1)
 
-That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis during the Darkness Tour, and the band tour premieres “” for the occasion.
+That night, Bruce makes a return visit to the U.S. Naval Academy in Annapolis during the Darkness Tour, and the band tour premieres "" for the occasion.
 
 [Sea Cruise](http://estreetshuffle.com/index.php/2018/04/08/cover-me-sea-cruise/)
 
 [https://videopress.com/embed/BynSK9FG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/BynSK9FG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-At Night Four at London’s Wembley Arena, Link Wray guest-stars on “.” In attendance at tonight’s show: Joe Jackson, Kim Carnes, Elvis Costello, Paul Cook of The Sex Pistols, all of The Pretenders except for Chrissie Hynde, all of the Ants except for Adam, and unnamed members of U2, The Psychedelic Furs, The Fabulous Thunderbirds, and The Members.
+At Night Four at London's Wembley Arena, Link Wray guest-stars on "." In attendance at tonight's show: Joe Jackson, Kim Carnes, Elvis Costello, Paul Cook of The Sex Pistols, all of The Pretenders except for Chrissie Hynde, all of the Ants except for Adam, and unnamed members of U2, The Psychedelic Furs, The Fabulous Thunderbirds, and The Members.
 
 **1981:** [I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)
 
@@ -58,7 +58,7 @@ Recording continues for what will become at The Hit Factory in New York City.
 
 **1983:** *Born in the U.S.A.*
 
-Bruce, Roy, Patti, and the Miami Horns join Max Weinberg’s band Killer Joe on stage at The Stone Pony for four songs.
+Bruce, Roy, Patti, and the Miami Horns join Max Weinberg's band Killer Joe on stage at The Stone Pony for four songs.
 
 **1989:**
 
@@ -66,7 +66,7 @@ Bruce, Roy, Patti, and the Miami Horns join Max Weinberg’s band Killer Joe on 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1989-06-02-152x300.jpg?resize=758%2C1496)
 
-Bruce and the E Street Band bring the Reunion Tour to Paris for the first of two nights. Elliott Murphy makes a guest appearance on “.”
+Bruce and the E Street Band bring the Reunion Tour to Paris for the first of two nights. Elliott Murphy makes a guest appearance on "."
 
 **1999:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
@@ -88,9 +88,9 @@ Bruce plays a solo acoustic show in Madrid.
 
 [https://videopress.com/embed/HAYMQ1R9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/HAYMQ1R9?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The Working on a Dream Tour starts its Scandinavian swing with a show at Ratinan Stadion in Tampere, Finland. It may be June, but that doesn’t stop Bruce from playing “” as a request, along with a wonderful cover of “.”
+The Working on a Dream Tour starts its Scandinavian swing with a show at Ratinan Stadion in Tampere, Finland. It may be June, but that doesn't stop Bruce from playing "" as a request, along with a wonderful cover of "."
 
-**2009:** [Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[The Dark End of the Street](http://estreetshuffle.com/index.php/2019/07/22/cover-me-the-dark-end-of-the-street/)
+**2009:** [Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[The Dark End of the Street](http://estreetshuffle.com/index.php/2019/07/22/cover-me-the-dark-end-of-the-street/)
 
 
 
@@ -102,9 +102,9 @@ The Working on a Dream Tour starts its Scandinavian swing with a show at Ratinan
 
 [https://videopress.com/embed/iLz3cZeB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/iLz3cZeB?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The Wrecking Ball Tour makes a brief stop in Spain for a show at San Sebastian, opening with the tour premiere of “.”
+The Wrecking Ball Tour makes a brief stop in Spain for a show at San Sebastian, opening with the tour premiere of "."
 
-**2012:**[Who’ll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)
+**2012:**[Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)
 
 [https://www.youtube.com/embed/oZ8IoszA4Y0?feature=oembed](https://www.youtube.com/embed/oZ8IoszA4Y0?feature=oembed)
 

@@ -16,7 +16,7 @@
 
 ![](../../assets/2020/07/1974-07-19b.png)
 
-**1975:** With the opening show of the Born to Run Tour only a day away, and final production tinkering running almost to the last minute ("Jungleland" is *still* unfinished), Bruce and the E Street Band rehearse the show for the first and only time at the Record Plant in New York City. The rehearsal runs a staggering *nineteen hours,* which probably explains their subdued appearance in the sunrise photo below. (Photo credit: Barbara Pyle)
+**1975:** With the opening show of the Born to Run Tour only a day away, and final production tinkering running almost to the last minute ("Jungleland" is *still* unfinished), Bruce and the E Street Band rehearse the show for the first and only time at the Record Plant in New York City. The rehearsal runs a staggering *nineteen hours*, which probably explains their subdued appearance in the sunrise photo below. (Photo credit: Barbara Pyle)
 
 ![](../../assets/2018/07/1975-0719.jpg)
 

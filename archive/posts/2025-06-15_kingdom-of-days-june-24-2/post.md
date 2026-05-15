@@ -14,7 +14,7 @@ Bruce and the E Street Band play their third consecutive night at Fat City in Se
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1973-0624-172x300.jpg?resize=758%2C1323)
 
-Bruce and the E Street Band record “” at Atlantic Studios in New York City.
+Bruce and the E Street Band record "" at Atlantic Studios in New York City.
 
 **1977:** [Streets of Fire](https://estreetshuffle.com/index.php/2021/11/06/roll-of-the-dice-streets-of-fire/)
 
@@ -28,11 +28,11 @@ Bruce and the E Street Band bring the Darkness Tour to the Pacific Northwest, st
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/06/1978-06-23-scaled.jpg?resize=758%2C300&amp;ssl=1)
 
-Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man’s West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.
+Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man's West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.
 
 **1984:**
 
-Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including “.”
+Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including "."
 
 **1989:**[Under the Boardwalk](http://estreetshuffle.com/index.php/2018/05/04/meeting-across-the-river-bruce-springsteen-and-bobby-bandiera-under-the-boardwalk/)
 
@@ -40,7 +40,7 @@ Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three son
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1989-06-24.jpg?resize=758%2C558&amp;ssl=1)
 
-A momentous night: Bruce and his touring band play a special “Concert to Fight Hunger” at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in “.” For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording, available for purchase .
+A momentous night: Bruce and his touring band play a special "Concert to Fight Hunger" at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in "." For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording, available for purchase .
 
 **1993:** [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[here](http://live.brucespringsteen.net/live-music/0,18680/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-24-1993-Brendan-Byrne-Arena-East-Rutherford-NJ.html)
 
@@ -82,7 +82,7 @@ The Seeger Sessions Tour starts its last American stand at the PNC Bank Arts Cen
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/2006-06-24-300x291.jpg?resize=758%2C735)
 
-Bruce performs “” at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for “.”
+Bruce performs "" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "."
 
 **2007:** [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)[You Never Can Tell](http://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)
 
@@ -98,7 +98,7 @@ Bruce and the E Street Band headline at the Isle of Wight Festival.
 
 [https://www.youtube.com/embed/XNoFc-kna6g?feature=oembed](https://www.youtube.com/embed/XNoFc-kna6g?feature=oembed)
 
-debuts at #2 on the Billboard Album chart, just behind Madonna’s album–the first time Bruce and Madonna have sat atop the chart together since 1985.
+debuts at #2 on the Billboard Album chart, just behind Madonna's album–the first time Bruce and Madonna have sat atop the chart together since 1985.
 
 **2019:** *Western Stars**Madame X*
 

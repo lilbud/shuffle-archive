@@ -46,9 +46,9 @@ is certified gold by the Recording Industry Association of America.
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_mP8T22kYL-tavvs0Mrd9UeFWZK2kUH1_Y](https://www.youtube.com/embed/videoseries?list=OLAK5uy_mP8T22kYL-tavvs0Mrd9UeFWZK2kUH1_Y)
 
-Bruce performs a solo acoustic rendition of “” at perhaps the most unexpected venue for it: the funeral for long-time friend John Mulheren at the Holy Cross Roman Catholic Church in Rumson.
+Bruce performs a solo acoustic rendition of "" at perhaps the most unexpected venue for it: the funeral for long-time friend John Mulheren at the Holy Cross Roman Catholic Church in Rumson.
 
-**2003:**[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
+**2003:**[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
 
 
@@ -58,7 +58,7 @@ Bruce performs a solo acoustic rendition of “” at perhaps the most unexpecte
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2003-12-19b.png?resize=758%2C480&amp;ssl=1)
 
-This year’s holiday shows are at Harry’s Roadhouse in Asbury Park, and although there are a pair of shows, they’re both on the same night. Bobby Bandiera provides the backing band for both shows; Southside Johnny guest stars for the early show (joining Bruce for ““) and Max, Patti, and Willie Nile join Bruce for the late show. Both setlists are a mix of seasonal and eclectic, and both deserve a listen this time each year.
+This year's holiday shows are at Harry's Roadhouse in Asbury Park, and although there are a pair of shows, they're both on the same night. Bobby Bandiera provides the backing band for both shows; Southside Johnny guest stars for the early show (joining Bruce for "") and Max, Patti, and Willie Nile join Bruce for the late show. Both setlists are a mix of seasonal and eclectic, and both deserve a listen this time each year.
 
 **2004:** [The Fever](https://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)
 
@@ -94,9 +94,9 @@ The first European leg of the Magic Tour wraps up in London at the O2 Arena.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2023/12/The_Independent_Sat__Dec_22__2007_-scaled.jpg?resize=758%2C124&amp;ssl=1)
 
-Bruce and the E Street Band perform on where Bruce debuts “.” They also play “,” and in a departure for the show, they play a third song: “Santa Claus is Comin’ to Town” with Paul McCartney, Tina Fey, Amy Poehler, and the entire cast and crew.
+Bruce and the E Street Band perform on where Bruce debuts "." They also play "," and in a departure for the show, they play a third song: "Santa Claus is Comin' to Town" with Paul McCartney, Tina Fey, Amy Poehler, and the entire cast and crew.
 
-**2015:** *Saturday Night Live,* [Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/)[The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)
+**2015:** *Saturday Night Live*, [Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/)[The Ties That Bind](http://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)
 
 [https://www.youtube.com/embed/i86lXf1MDsY?feature=oembed](https://www.youtube.com/embed/i86lXf1MDsY?feature=oembed)
 

@@ -20,7 +20,7 @@ is certified gold by the Recording Industry Association of America.
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_nZs0gvllzGn7y9-5OuorN7W37HPrPGrn8](https://www.youtube.com/embed/videoseries?list=OLAK5uy_nZs0gvllzGn7y9-5OuorN7W37HPrPGrn8)
 
-Bruce and the E Street Band record “” at The Power Station in New York City. It will remain unreleased for more than 35 years.
+Bruce and the E Street Band record "" at The Power Station in New York City. It will remain unreleased for more than 35 years.
 
 **1979:** [Party Lights](https://estreetshuffle.com/index.php/2019/11/14/roll-of-the-dice-party-lights/)
 
@@ -32,7 +32,7 @@ Fresh off the fifteen-month Born in the U.S.A. Tour, Nils appears on
 
 [https://www.youtube.com/embed/Sm-860N8T1w?feature=oembed](https://www.youtube.com/embed/Sm-860N8T1w?feature=oembed)
 
-Bruce films the video for “” at Fort Hancock in Sandy Hook, New Jersey, singing the vocal live over the album’s instrumental track for a remarkable 24 takes. Meiert Avis directs the shoot and the video, and we are fortunate to have of the events.
+Bruce films the video for "" at Fort Hancock in Sandy Hook, New Jersey, singing the vocal live over the album's instrumental track for a remarkable 24 takes. Meiert Avis directs the shoot and the video, and we are fortunate to have of the events.
 
 **1987:** [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[his lengthy and fascinating recollection](http://meiertavis.com/archives/1215)
 
@@ -40,13 +40,13 @@ Bruce films the video for “” at Fort Hancock in Sandy Hook, New Jersey, sing
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/1987-1008-300x206.jpg?resize=744%2C510)
 
-That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in New York City, where they perform “” and “Sun City.”
+That evening, Bruce joins Little Steven and the Disciples of Soul at The Ritz in New York City, where they perform "" and "Sun City."
 
 [Native American](http://estreetshuffle.com/index.php/2019/10/25/matr-little-steven-and-bruce-springsteen-native-american/)
 
 [https://www.youtube.com/embed/WkJkooAjDrg?feature=oembed](https://www.youtube.com/embed/WkJkooAjDrg?feature=oembed)
 
-A scheduled show at Mountain View’s Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.
+A scheduled show at Mountain View's Shoreline Amphitheater is postponed until later in the month after Bruce takes ill.
 
 **1992:**
 
@@ -54,7 +54,7 @@ A scheduled show at Mountain View’s Shoreline Amphitheater is postponed until 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1992-10-08.jpg?resize=725%2C3346&amp;ssl=1)
 
-Bruce and Mike Appel testify in the Royal Courts of Justice in London to prevent the unauthorized publication of some of Bruce’s early recorded but unreleased songs.
+Bruce and Mike Appel testify in the Royal Courts of Justice in London to prevent the unauthorized publication of some of Bruce's early recorded but unreleased songs.
 
 **1998:**
 
@@ -66,7 +66,7 @@ Bruce and Mike Appel testify in the Royal Courts of Justice in London to prevent
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1998-10-08b-295x300.jpg?resize=758%2C771)
 
-The Vote for Change Tour stops in Orlando, where Tracy Chapman joins Bruce on stage for “” and Bruce guests with R.E.M. on “.”
+The Vote for Change Tour stops in Orlando, where Tracy Chapman joins Bruce on stage for "" and Bruce guests with R.E.M. on "."
 
 **2004:** [My Hometown](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)[Permanent Vacation](http://estreetshuffle.com/index.php/2018/04/20/meeting-across-the-river-rem-and-bruce-springsteen-permanent-vacation/)
 
@@ -88,7 +88,7 @@ Bruce and the Sessions Band play a show at Palamaggio in Caserta, Italy.
 
 [https://www.youtube.com/embed/mWKhbNVX9L0?feature=oembed](https://www.youtube.com/embed/mWKhbNVX9L0?feature=oembed)
 
-At Night Four of five at Giants Stadium on the Working on a Dream Tour, Bruce and the E Street Band perform the entire album, during which Jake Clemons makes an early E Street appearance with Ed Manion and Curt Ramm on “.”
+At Night Four of five at Giants Stadium on the Working on a Dream Tour, Bruce and the E Street Band perform the entire album, during which Jake Clemons makes an early E Street appearance with Ed Manion and Curt Ramm on "."
 
 **2009:** *Born to Run* [Tenth Avenue Freeze-Out](http://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)
 

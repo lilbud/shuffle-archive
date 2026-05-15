@@ -2,7 +2,7 @@
 
 *No updates***New for 2025:**
 
-Bruce catches The Doors’ concert at Asbury Park’s Convention Hall. Watch actual footage of Jim Morrison from that day below.
+Bruce catches The Doors' concert at Asbury Park's Convention Hall. Watch actual footage of Jim Morrison from that day below.
 
 **1968:**
 
@@ -24,7 +24,7 @@ Bruce plays tour guide and historian to Phil Ceccola, who interviews and photogr
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1975-0831.jpg?resize=758%2C704)
 
-What was originally scheduled to be the closing night of six shows at Giants Stadium (the August 30 show was rained out and postponed until September 1, making it the new closer) is still pretty special: Little Steven rejoins the E Street Band for the encores, which end with the live debut of “.”
+What was originally scheduled to be the closing night of six shows at Giants Stadium (the August 30 show was rained out and postponed until September 1, making it the new closer) is still pretty special: Little Steven rejoins the E Street Band for the encores, which end with the live debut of "."
 
 **1985:** [Stand On It](https://estreetshuffle.com/index.php/2021/10/08/roll-of-the-dice-stand-on-it/)
 
@@ -44,7 +44,7 @@ Bruce and the reunited E Street Band kick off a three-show stand at the MCI Cent
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/1999-08-31b.png?resize=758%2C1307&amp;ssl=1)
 
-Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of “.” A few songs later, “” makes its only tour appearance, and a full-band “” fittingly closes the show.
+Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of "." A few songs later, "" makes its only tour appearance, and a full-band "" fittingly closes the show.
 
 **2003:** [Cynthia](http://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)<https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3>
 

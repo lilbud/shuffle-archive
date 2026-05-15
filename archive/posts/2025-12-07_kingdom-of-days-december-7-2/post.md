@@ -96,7 +96,7 @@
 
 [Watch on Youtube: Bruce Springsteen, Jon Bon Jovi & Friends - (What's So Funny 'Bout) Peace, Love, and Understanding](https://www.youtube.com/watch?v=9QSZsvxHxV8)
 
-**2010:** Bruce and the E Street Band gather at the Carousel House in Asbury Park, where a small crowd of sixty lucky fans witness the last E Street Band performance with Clarence Clemons. Bruce and the band are filming a special performance to promote the release of *The Promise,* and seven songs from that album are played live for the first time. The band is complemented by The Miami Horns and David Lindley on violin. For more highlights from this show, see [today's guest-blog](https://estreetshuffle.com/index.php/2020/12/07/where-the-band-was-asbury-park-december-7-2010-mariettas-story/) by Marietta Phillips, who is at the show tonight.
+**2010:** Bruce and the E Street Band gather at the Carousel House in Asbury Park, where a small crowd of sixty lucky fans witness the last E Street Band performance with Clarence Clemons. Bruce and the band are filming a special performance to promote the release of *The Promise*, and seven songs from that album are played live for the first time. The band is complemented by The Miami Horns and David Lindley on violin. For more highlights from this show, see [today's guest-blog](https://estreetshuffle.com/index.php/2020/12/07/where-the-band-was-asbury-park-december-7-2010-mariettas-story/) by Marietta Phillips, who is at the show tonight.
 
 [Watch on Youtube: Racing in the Street ('78) - Asbury Park 07-12-2010](https://www.youtube.com/watch?v=NZ4YA6aj7rA)
 

@@ -4,7 +4,7 @@ It's well-known that Weinberg and Bittan are all over Meat Loaf's immortal 1977 
 
 [Watch on Youtube: Paradise By the Dashboard Light](https://www.youtube.com/watch?v=a136H5K3OKw)
 
-It's less-known that for years after *Bat Out of Hell,* composer/producer Jim Steinman continued to tap Max and Roy for studio sessions.
+It's less-known that for years after *Bat Out of Hell*, composer/producer Jim Steinman continued to tap Max and Roy for studio sessions.
 
 That led to Max and Roy appearing on Bonnie Tyler's "Total Eclipse of the Heart" in 1982, giving the E Streeters a claim that their Boss couldn't match: performing on a #1 hit single.
 

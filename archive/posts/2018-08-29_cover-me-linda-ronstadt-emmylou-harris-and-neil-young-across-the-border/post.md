@@ -2,7 +2,7 @@ Recently, I shared a [beautiful cover](https://estreetshuffle.com/index.php/2018
 
 This cover of "[Across the Border](https://estreetshuffle.com/index.php/2020/09/06/roll-of-the-dice-across-the-border/)" combines not just two but *three* great voices: Emmylou, Linda Ronstadt, and Neil Young (who hangs out on backing vocals but contributes a prominent harmonica).
 
-From Linda and Emmylou's 1999 album of duets, *Western Wall: The Tucson Sessions,* this is "Across the Border."
+From Linda and Emmylou's 1999 album of duets, *Western Wall: The Tucson Sessions*, this is "Across the Border."
 
 [Watch on Youtube: Across the Border](https://www.youtube.com/watch?v=y_AP8age7rE)
 

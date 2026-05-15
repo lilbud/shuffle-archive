@@ -1,12 +1,12 @@
-**1968:** Earth makes their debut performance at the Off Broad Street Coffee House in Red Bank, New Jersey. Earth is Bruce’s new band, featuring John Graham on bass and Michael Burke on drums. (Bob Alfano will join later on organ.)
+**1968:** Earth makes their debut performance at the Off Broad Street Coffee House in Red Bank, New Jersey. Earth is Bruce's new band, featuring John Graham on bass and Michael Burke on drums. (Bob Alfano will join later on organ.)
 
 ![](../../assets/2018/08/1968-0816.jpg)
 
-**1969:** Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that’s where the band wants to be–but they honor their commitment.
+**1969:** Child reluctantly plays a gig at The Student Prince in Asbury Park. Why reluctantly? Because Woodstock was happening at the same time, and that's where the band wants to be–but they honor their commitment.
 
 **1973:** Bruce cancels a scheduled show in East Paterson, New Jersey, to make room for recording sessions for his second album.
 
-**1975:** On the fourth of five legendary nights at New York City’s Bottom Line club on the Born to Run Tour, Bruce debuts his cover of “It’s Gonna Work Out Fine” at the first of two shows that night.
+**1975:** On the fourth of five legendary nights at New York City's Bottom Line club on the Born to Run Tour, Bruce debuts his cover of "It's Gonna Work Out Fine" at the first of two shows that night.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HaJpi_x1zaU)
 
@@ -16,17 +16,17 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=C2GEQ7jm7oQ)
 
-**1980:** Bruce joins Jackson Browne on stage for “Sweet Little Sixteen” and “Stay” at The Forum in Inglewood, California. (Photo credit: Carlo)
+**1980:** Bruce joins Jackson Browne on stage for "Sweet Little Sixteen" and "Stay" at The Forum in Inglewood, California. (Photo credit: Carlo)
 
 ![](../../assets/2018/08/1980-0816.jpg)
 
 ![](../../assets/2020/08/1980-08-16.png)
 
-**1981:** Bruce and the E Street Band return to Red Rocks on the River Tour, debuting their cover of Frankie Ford’s “Sea Cruise” and opening with “Who’ll Stop the Rain” — both inspired by the heavy rain that night.
+**1981:** Bruce and the E Street Band return to Red Rocks on the River Tour, debuting their cover of Frankie Ford's "Sea Cruise" and opening with "Who'll Stop the Rain" — both inspired by the heavy rain that night.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=yMelZDKYN28)
 
-**1984:** At Night Seven of their ten-night Meadowlands stand on the Born in the U.S.A. Tour, Bruce and the band tour debut “Johnny Bye-Bye,” played here in a new, faster arrangement than on the River Tour.
+**1984:** At Night Seven of their ten-night Meadowlands stand on the Born in the U.S.A. Tour, Bruce and the band tour debut "Johnny Bye-Bye," played here in a new, faster arrangement than on the River Tour.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=VTU3sV309Y8)
 
@@ -34,11 +34,11 @@
 
 ![](../../assets/2020/08/1987-08-16.png)
 
-**1989:** Bruce makes a guest appearance with Bobby Bandiera at Cheers in Long Branch, New Jersey. Their set includes “New Orleans,” “Keep A-Knockin’,” “Light of Day,” and more.
+**1989:** Bruce makes a guest appearance with Bobby Bandiera at Cheers in Long Branch, New Jersey. Their set includes "New Orleans," "Keep A-Knockin'," "Light of Day," and more.
 
-**1999:** Bruce postpones a scheduled Reunion show in Detroit to the following month due to “scheduling conflicts.”
+**1999:** Bruce postpones a scheduled Reunion show in Detroit to the following month due to "scheduling conflicts."
 
-**2003:** The Rising Tour stadium leg makes its too-brief (only two shows!) west coast swing, starting with a beautiful evening at Pacific Bell Park in San Francisco, where Bruce plays the first-ever full-band “Across the Border.”
+**2003:** The Rising Tour stadium leg makes its too-brief (only two shows!) west coast swing, starting with a beautiful evening at Pacific Bell Park in San Francisco, where Bruce plays the first-ever full-band "Across the Border."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_uGfbByFzcw)
 
@@ -46,7 +46,7 @@
 
 ![](../../assets/2020/08/2003-08-16.png)
 
-**2008:** The Magic Tour is in its home stretch, as Bruce kicks off his Charleston, South Carolina show with a cover of “Double Shot (of My Baby’s Love),” played here for the first time in 27 years.
+**2008:** The Magic Tour is in its home stretch, as Bruce kicks off his Charleston, South Carolina show with a cover of "Double Shot (of My Baby's Love)," played here for the first time in 27 years.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=r8RsI7CYIEs)
 

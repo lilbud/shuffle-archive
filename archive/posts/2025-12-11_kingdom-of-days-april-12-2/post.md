@@ -1,6 +1,6 @@
 
 
-Carol Dennis, back-up singer for Bruce’s 1992-1993 World Tour, is born.
+Carol Dennis, back-up singer for Bruce's 1992-1993 World Tour, is born.
 
 **1954:**
 
@@ -12,7 +12,7 @@ Child plays the Pandemonium in Wanamassa, New Jersey, part of their month-long r
 
 **1969:**
 
-Bruce plays two shows at Charlie’s Place in Cambridge, Massachusetts–his final night of four at that venue.
+Bruce plays two shows at Charlie's Place in Cambridge, Massachusetts–his final night of four at that venue.
 
 **1974:**
 
@@ -20,7 +20,7 @@ Bruce plays two shows at Charlie’s Place in Cambridge, Massachusetts–his fin
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1974-04-12.jpg?resize=758%2C396&amp;ssl=1)
 
-At the Cambria County War Memorial in Johnstown, Pennsylvania, Bruce and the E Street Band play their final full-band “” for 23 years. Promoters are getting Bruce’s name right these days, but they’re still struggling with the band’s.
+At the Cambria County War Memorial in Johnstown, Pennsylvania, Bruce and the E Street Band play their final full-band "" for 23 years. Promoters are getting Bruce's name right these days, but they're still struggling with the band's.
 
 **1976:** [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
 
@@ -28,7 +28,7 @@ At the Cambria County War Memorial in Johnstown, Pennsylvania, Bruce and the E S
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1976-0412.jpg?resize=758%2C873&amp;ssl=1)
 
-Bruce works on mixing and overdubs for several tracks at Clover Studios in Los Angeles, completing mixes for “Sherry Darling” and “Wreck on the Highway.”
+Bruce works on mixing and overdubs for several tracks at Clover Studios in Los Angeles, completing mixes for "Sherry Darling" and "Wreck on the Highway."
 
 **1980:** *The River*
 
@@ -36,7 +36,7 @@ Bruce works on mixing and overdubs for several tracks at Clover Studios in Los A
 
 [https://www.youtube.com/embed/D-MthLm7_m0?feature=oembed](https://www.youtube.com/embed/D-MthLm7_m0?feature=oembed)
 
-Bruce, Patti, Max, Roy, Jon Bon Jovi, and John Luraschi join Cats on a Smooth Surface on stage at The Stone Pony, where Bruce plays “Light of Day” for the very first time. Video clips of “Lucille” and “Kansas City” have been available on YouTube for a while, but here’s a longer, newly uploaded video that includes “Wooly Bully” as well.
+Bruce, Patti, Max, Roy, Jon Bon Jovi, and John Luraschi join Cats on a Smooth Surface on stage at The Stone Pony, where Bruce plays "Light of Day" for the very first time. Video clips of "Lucille" and "Kansas City" have been available on YouTube for a while, but here's a longer, newly uploaded video that includes "Wooly Bully" as well.
 
 **1987:**
 
@@ -58,7 +58,7 @@ The Tunnel of Love Express stops in Houston for the first of two shows at The Su
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1988-04-12c.jpg?resize=543%2C959&amp;ssl=1)
 
-Bruce’s second live album is released: . However, the album is only available in Europe, leading American fans to scour record stores for imported copies.
+Bruce's second live album is released: . However, the album is only available in Europe, leading American fans to scour record stores for imported copies.
 
 **1993:** *In Concert/M**TV Plugged*
 
@@ -66,7 +66,7 @@ Bruce’s second live album is released: . However, the album is only available 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Jersey_Journal_Fri__Apr_30__1993_-scaled.jpg?resize=758%2C407&amp;ssl=1)
 
-Bruce joins Sting, James Taylor, Elton John, Billy Joel, Jon Bon Jovi, Paul Simon, and others at a benefit for the Rainforest Foundation at Carnegie Hall. The set list is fun and Elvis-inspired–besides covers of “Viva Las Vegas,” “Burning Love” and other classics, Bruce performs “I’m Turning Into Elvis” in full for the first time and duets with James Taylor on “The River.”
+Bruce joins Sting, James Taylor, Elton John, Billy Joel, Jon Bon Jovi, Paul Simon, and others at a benefit for the Rainforest Foundation at Carnegie Hall. The set list is fun and Elvis-inspired–besides covers of "Viva Las Vegas," "Burning Love" and other classics, Bruce performs "I'm Turning Into Elvis" in full for the first time and duets with James Taylor on "The River."
 
 **1995:**
 
@@ -80,7 +80,7 @@ Bruce joins Sting, James Taylor, Elton John, Billy Joel, Jon Bon Jovi, Paul Simo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1995-04-12.jpg?resize=758%2C632&amp;ssl=1)
 
-Bruce and the E Street Band play a Reunion Tour show for a low-energy crowd in Nashville. Bruce would still recall it seven years later to friend-of-the-blog Bryan Meng as the “worst crowd of the entire tour.” (Nashville would redeem itself on the Magic Tour.)
+Bruce and the E Street Band play a Reunion Tour show for a low-energy crowd in Nashville. Bruce would still recall it seven years later to friend-of-the-blog Bryan Meng as the "worst crowd of the entire tour." (Nashville would redeem itself on the Magic Tour.)
 
 **2000:**
 
@@ -92,11 +92,11 @@ Bruce rehearses for his upcoming solo acoustic tour at the Paramount Theater in 
 
 **2005:**
 
-At Asbury Park’s Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour.
+At Asbury Park's Convention Hall, Bruce and the Sessions Band rehearse for their upcoming tour.
 
 **2006:**
 
-The Wrecking Ball Tour stops at The Palace of Auburn Hills, where Bruce breaks out tour premieres of “Incident on 57th Street” and “Youngstown.”
+The Wrecking Ball Tour stops at The Palace of Auburn Hills, where Bruce breaks out tour premieres of "Incident on 57th Street" and "Youngstown."
 
 **2012:**
 
@@ -104,7 +104,7 @@ The Wrecking Ball Tour stops at The Palace of Auburn Hills, where Bruce breaks o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2012-04-12.jpg?resize=758%2C413&amp;ssl=1)
 
-A true seaside show, Bruce’s concert in Virginia Beach opens with a one-off cover of “,” and features rare performances of “Seaside Bar Song” and “Jersey Girl” along with the tour premieres of “The Wall” and “Talk to Me.”
+A true seaside show, Bruce's concert in Virginia Beach opens with a one-off cover of "," and features rare performances of "Seaside Bar Song" and "Jersey Girl" along with the tour premieres of "The Wall" and "Talk to Me."
 
 **2014:** [May I](http://estreetshuffle.com/index.php/2019/10/01/cover-me-may-i/)
 
@@ -112,7 +112,7 @@ A true seaside show, Bruce’s concert in Virginia Beach opens with a one-off co
 
 [https://www.youtube.com/embed/Aa71oVuQcs4?feature=oembed](https://www.youtube.com/embed/Aa71oVuQcs4?feature=oembed)
 
-Columbus gets a rare performance of “I Wanna Be With You” when the River Tour stops for a night at the Schottenstein Center.
+Columbus gets a rare performance of "I Wanna Be With You" when the River Tour stops for a night at the Schottenstein Center.
 
 **2016:**
 
@@ -124,7 +124,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and the E Street Band tour premiere “Seeds” at Mohegan Sun Arena in Uncasville.
+Bruce and the E Street Band tour premiere "Seeds" at Mohegan Sun Arena in Uncasville.
 
 **2024:**
 

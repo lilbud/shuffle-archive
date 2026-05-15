@@ -82,7 +82,7 @@ Later that night, Bruce drops by The Stone Pony, where he joins Nils Lofgren on 
 
 **2018:** *Springsteen on Broadway* continues its theatrical run at the Walter Kerr Theater in New York City.
 
-**2021:** Bruce debuts Episode 26 of *From My Home to Yours,* entitled "My Hometown," on E Street Radio. Later that evening, *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.
+**2021:** Bruce debuts Episode 26 of *From My Home to Yours*, entitled "My Hometown," on E Street Radio. Later that evening, *Springsteen on Broadway* continues its limited return engagement at the St. James Theater in New York City.
 
 [https://estreetshuffle.com/wp-content/uploads/2022/08/2021-08-18-Bruce-E-Street-Radio-DJ-set-26.mp3?_=3](https://estreetshuffle.com/wp-content/uploads/2022/08/2021-08-18-Bruce-E-Street-Radio-DJ-set-26.mp3?_=3)
 

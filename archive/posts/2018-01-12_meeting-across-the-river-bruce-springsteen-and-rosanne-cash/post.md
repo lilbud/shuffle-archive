@@ -14,7 +14,7 @@ If only Johnny Cash had released it as a single when he recorded it for his 1996
 
 He didn't though, and the streak ended. But that didn't stop Cash's daughter Rosanne from taking a run at it herself in 2009.
 
-Well, not exactly by herself. From Cash's album, *The List,* here's "Sea of Heartbreak" with Bruce Springsteen.
+Well, not exactly by herself. From Cash's album, *The List*, here's "Sea of Heartbreak" with Bruce Springsteen.
 
 [Watch on Youtube: ROSANNE CASH (with BRUCE SPRINGSTEEN) - Sea Of Heartbreak (2009)](https://www.youtube.com/watch?v=A3LSrcKksCo)
 

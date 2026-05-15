@@ -36,7 +36,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/pbxCty6f)
 
-**1993:** Patti Scialfa releases her first solo album, *Rumble Doll,* along with "Lucky Girl," the lead-off single and video. Listen to Patti's promotional radio interview and performance below.
+**1993:** Patti Scialfa releases her first solo album, *Rumble Doll*, along with "Lucky Girl," the lead-off single and video. Listen to Patti's promotional radio interview and performance below.
 
 [Watch on Youtube: Patti Scialfa radio interview/performance for Rumble Doll](https://www.youtube.com/watch?v=-J5occ_FqcA)
 

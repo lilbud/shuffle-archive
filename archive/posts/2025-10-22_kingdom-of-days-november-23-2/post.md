@@ -44,7 +44,7 @@ The River Tour arrives in Washington, DC for the first of a two-night stand at t
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1980-11-23-300x145.png?resize=758%2C366)
 
-MTV premieres Bruce’s new video, “” That night, Bruce and the E Street Band bring the Born in the U.S.A. Tour to the University of Texas in Austin.
+MTV premieres Bruce's new video, "" That night, Bruce and the E Street Band bring the Born in the U.S.A. Tour to the University of Texas in Austin.
 
 **1984:** [Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
@@ -66,7 +66,7 @@ Bruce and his new touring band bring World Tour 1992 to the Orlando Arena.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-11-23b-300x275.png?resize=758%2C695)
 
-Bruce plays a Rising show full of surprises at the American Airlines Arena in Miami. No less than four tour premieres tonight, two of them with guest stars: “” “Because the Night” (with Bono and Dave Stewart), “So Young and in Love,” and “” (with Dion). And if the show needed more cameos, Bruce was happy to oblige: actor Vincent Pastore from The Sopranos introduced the encores.
+Bruce plays a Rising show full of surprises at the American Airlines Arena in Miami. No less than four tour premieres tonight, two of them with guest stars: "" "Because the Night" (with Bono and Dave Stewart), "So Young and in Love," and "" (with Dion). And if the show needed more cameos, Bruce was happy to oblige: actor Vincent Pastore from The Sopranos introduced the encores.
 
 **2002:** [Out in the Street,](https://estreetshuffle.com/index.php/2021/10/28/roll-of-the-dice-out-in-the-street/)[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
@@ -78,7 +78,7 @@ Bruce plays a Rising show full of surprises at the American Airlines Arena in Mi
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2002-11-23-300x103.png?resize=758%2C260)
 
-Bruce contributes a brief video salute for Steve Van Zandt’s tribute at the Rock and Roll Forever Foundation’s First Annual Gala at the Hard Rock Cafe in New York City. The benefit auction includes two guitars autographed by the E Street Band during their recording session that finished just the day before.
+Bruce contributes a brief video salute for Steve Van Zandt's tribute at the Rock and Roll Forever Foundation's First Annual Gala at the Hard Rock Cafe in New York City. The benefit auction includes two guitars autographed by the E Street Band during their recording session that finished just the day before.
 
 **2019:** [Letter to You](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)
 

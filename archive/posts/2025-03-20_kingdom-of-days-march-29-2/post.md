@@ -30,7 +30,7 @@ Finding themselves with time to spare following a gig at Duke University, Bruce 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1976-0329-280x300.jpg?resize=758%2C812)
 
-: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform “” below.
+: Night Two in Detroit along the Tunnel of Love Express Tour. Watch Bruce perform "" below.
 
 **1988**[One Step Up](http://estreetshuffle.com/index.php/2018/08/17/roll-of-the-dice-one-step-up/)
 
@@ -40,7 +40,7 @@ is certified 3x multi-platinum by the Recording Industry Association of America.
 
 **1989:***Video Anthology/1978-1988*
 
-Bruce opens with “” and pulls out the Magic tour premiere of “” and a very rare “” at his KeyArena show in Seattle. For more highlights see my from this date.
+Bruce opens with "" and pulls out the Magic tour premiere of "" and a very rare "" at his KeyArena show in Seattle. For more highlights see my from this date.
 
 **2008:** [Trapped](http://estreetshuffle.com/index.php/2018/08/05/roll-of-the-dice-cover-me-trapped/)[Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[Your Own Worst Enemy](https://estreetshuffle.com/index.php/2020/05/31/roll-of-the-dice-your-own-worst-enemy/)[report](http://estreetshuffle.com/index.php/2018/03/29/where-the-band-was-seattle-march-29-2008/)*Where the Band Was*
 
@@ -50,9 +50,9 @@ Bruce opens with “” and pulls out the Magic tour premiere of “” and a ve
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2008-03-29.png?resize=758%2C1155&amp;ssl=1)
 
-Night Two in Philadelphia features a rare (outside of Philly, anyway) “” and a glorious, brassy “.” Also today: Bruce appears on the cover of the new issue of which features .
+Night Two in Philadelphia features a rare (outside of Philly, anyway) "" and a glorious, brassy "." Also today: Bruce appears on the cover of the new issue of which features .
 
-**2012:**[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)*Rolling Stone,* [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/)
+**2012:**[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)*Rolling Stone*, [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/)
 
 [https://www.youtube.com/embed/QimUtzbHEvg?feature=oembed](https://www.youtube.com/embed/QimUtzbHEvg?feature=oembed)
 
@@ -70,7 +70,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce and President Barack Obama release Episode 7 of their podcast, entitled “Finding Home: Fatherhood.”
+Bruce and President Barack Obama release Episode 7 of their podcast, entitled "Finding Home: Fatherhood."
 
 **2021:** *Renegades: Born in the U.S.A.*
 
@@ -78,7 +78,7 @@ Bruce and President Barack Obama release Episode 7 of their podcast, entitled �
 
 [https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&amp;utm_source=oembed](https://open.spotify.com/embed/episode/1NTNCe83v8fBXxLe5RKhSY?si=17cb78b9cc6e4a41&amp;utm_source=oembed)
 
-“” makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.
+"" makes its tour debut at Little Caesars Arena when Bruce and the E Street Band bring their World Tour to Detroit.
 
 **2023:** [Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)
 

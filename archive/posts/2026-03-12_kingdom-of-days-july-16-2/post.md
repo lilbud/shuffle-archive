@@ -2,27 +2,27 @@
 
 **1974:** Bruce reschedules a planned gig at The Stone Balloon in Newark, Delaware for the following month.
 
-**1975:** Bruce and the E Street Band complete the recording of “Thunder Road” at the Record Plant in New York City.
+**1975:** Bruce and the E Street Band complete the recording of "Thunder Road" at the Record Plant in New York City.
 
-**1978:** Bruce and the E Street Band bring the Darkness Tour to the New Orleans Municipal Auditorium, where the setlist features Bruce’s one and only cover of “Honky Tonk.”
+**1978:** Bruce and the E Street Band bring the Darkness Tour to the New Orleans Municipal Auditorium, where the setlist features Bruce's one and only cover of "Honky Tonk."
 
 [Watch Video Highlight](https://videopress.com/embed/xE7qS26M)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=kJCwCcvLG9g)
 
-**1979:** At The Power Station in New York City, Bruce records “Ricky Wants a Man of Her Own” and “Cindy.” The former won’t be released for almost twenty years, the latter not for another fifteen years after that.
+**1979:** At The Power Station in New York City, Bruce records "Ricky Wants a Man of Her Own" and "Cindy." The former won't be released for almost twenty years, the latter not for another fifteen years after that.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=xuA_Q9iVyOY)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ZlI-L52KrnY)
 
-**1981:** Bruce’s five-night River stand at The Spectrum in Philly continues.
+**1981:** Bruce's five-night River stand at The Spectrum in Philly continues.
 
 [Watch Video Highlight](https://videopress.com/embed/8V1HMlo9)
 
 ![](../../assets/2021/07/1981-07-16.jpg)
 
-**1983:** Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including “Lucille,” “Wooly Bully,” and “Keep-a-Knockin’.”
+**1983:** Bruce guest-stars with Midnight Thunder for six songs at The Headliner in Neptune, New Jersey, including "Lucille," "Wooly Bully," and "Keep-a-Knockin'."
 
 [Watch Video Highlight](https://videopress.com/embed/rSVwCU6r)
 
@@ -30,7 +30,7 @@
 
 ![](../../assets/2020/07/1984-07-16.png)
 
-**1994:** Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including “I Played the Fool,” “Funky Broadway,” and “Jersey Girl.”
+**1994:** Bruce (along with Jon Bon Jovi, Patti, and Max) celebrates the 20th anniversary of The Stone Pony by joining Southside Johnny on stage for seven songs, including "I Played the Fool," "Funky Broadway," and "Jersey Girl."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ytSVHBMmYqg)
 
@@ -44,7 +44,7 @@
 
 ![](../../assets/2019/07/rehearsal.jpg)
 
-**2005:** The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres “Does This Bus Stop at 82nd Street” for the occasion.
+**2005:** The Devils & Dust Tour returns to the U.S., and the first show of the leg is at the Pepsi Arena in Albany. Bruce tour premieres "Does This Bus Stop at 82nd Street" for the occasion.
 
 [Watch Video Highlight](https://videopress.com/embed/bYjdK3w0)
 
@@ -62,7 +62,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RuIcvmViugc)
 
-**2013:** Bruce opens his show in Limerick with the tour premiere of “This Little Light of Mine” and closes it the same way. In between, fans enjoy the tour premiere of “Ain’t Too Proud to Beg” and a full album performance of *Born to Run*. If you count a three-song pre-show, this show also features the live debut of “Hearts of Stone” at one of Bruce’s own shows.
+**2013:** Bruce opens his show in Limerick with the tour premiere of "This Little Light of Mine" and closes it the same way. In between, fans enjoy the tour premiere of "Ain't Too Proud to Beg" and a full album performance of *Born to Run*. If you count a three-song pre-show, this show also features the live debut of "Hearts of Stone" at one of Bruce's own shows.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=t-dRgoK7cjQ)
 
@@ -74,7 +74,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wtwIatGvFP4)
 
-**2016:** A stunning opening number at a magical venue: The Roma Sinfonietta strings join the E Street Band for “New York City Serenade” to kick off Bruce’s first show at the ancient Circus Maximus in Rome. “Summertime Blues” and “The Ghost of Tom Joad” also make their tour premieres.
+**2016:** A stunning opening number at a magical venue: The Roma Sinfonietta strings join the E Street Band for "New York City Serenade" to kick off Bruce's first show at the ancient Circus Maximus in Rome. "Summertime Blues" and "The Ghost of Tom Joad" also make their tour premieres.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=R-1v8w69IWo)
 

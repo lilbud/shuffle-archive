@@ -6,7 +6,7 @@ Bruce Springsteen has been a fan of John Fogerty for as long as he's been playin
 
 But at the dawn of the 21st century, it seemed for a while like John might have said all that he had to say. Seven long years went by without new music from Fogerty, until inspiration struck in an election year.
 
-In 2004, America was deeply divided over its leadership and involvement in a foreign war. That's the environment that John Fogerty was built for. John met the moment by releasing a new album, *Deja Vu All Over Again,* with a terrific title track that compared the current conflict with the Vietnam War in a tone both jaded and pointed.
+In 2004, America was deeply divided over its leadership and involvement in a foreign war. That's the environment that John Fogerty was built for. John met the moment by releasing a new album, *Deja Vu All Over Again*, with a terrific title track that compared the current conflict with the Vietnam War in a tone both jaded and pointed.
 
 [Watch on Youtube: Deja Vu (All Over Again)](https://www.youtube.com/watch?v=jiojReSUfLo)
 

@@ -16,7 +16,7 @@ Many notable artists have found themselves unable to resist the temptation to co
 
 [Watch on Youtube: What Becomes Of The Broken Hearted](https://www.youtube.com/watch?v=FGDJSTwU4U8)
 
-Bruce Springsteen is the latest cover artist to step up to the plate. Like the rest of *Only the Strong Survive,* his version of "What Becomes of the Brokenhearted" is faithful to the original. Refreshingly, though, it features some subtle enhancements that differentiate it in a positive way.
+Bruce Springsteen is the latest cover artist to step up to the plate. Like the rest of *Only the Strong Survive*, his version of "What Becomes of the Brokenhearted" is faithful to the original. Refreshingly, though, it features some subtle enhancements that differentiate it in a positive way.
 
 [Watch on Youtube: Bruce Springsteen - What Becomes of the Brokenhearted (Official Audio)](https://www.youtube.com/watch?v=Fo8H_m11awI)
 

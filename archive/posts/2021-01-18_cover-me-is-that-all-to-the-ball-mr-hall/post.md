@@ -2,7 +2,7 @@
 >
 > So Billy became what is known in the industry — a condescending term, by the way — as a one-hit wonder. But sometimes, just sometimes, once in a while, a one-hit wonder can make a more powerful impact than a recording star who's got 20 or 30 hits behind him.
 >
-> He did it with style and grace. You won't find him in the Rock and Roll Hall of Fame. He's not there. Metallica is. Abba is. Mamas and the Papas — I know they're in there. Jefferson Airplane, Alice Cooper, Steely Dan — I've got nothing against them. Soft rock, hard rock, psychedelic pop. I got nothing against any of that stuff, but after all, it is called the Rock and Roll Hall of Fame. Billy Lee Riley is not there. Yet. — *Bob Dylan,* February 2015
+> He did it with style and grace. You won't find him in the Rock and Roll Hall of Fame. He's not there. Metallica is. Abba is. Mamas and the Papas — I know they're in there. Jefferson Airplane, Alice Cooper, Steely Dan — I've got nothing against them. Soft rock, hard rock, psychedelic pop. I got nothing against any of that stuff, but after all, it is called the Rock and Roll Hall of Fame. Billy Lee Riley is not there. Yet. — *Bob Dylan*, February 2015
 
 We feature a lot of obscure covers here on the Shuffle, but today we're pushing the envelope with a cover of a song that was never a hit by an artist that never made it big. Oh, and technically Bruce didn't even cover it–he just soundchecked it twice, ten years apart.
 

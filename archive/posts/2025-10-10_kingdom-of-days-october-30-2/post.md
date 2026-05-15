@@ -20,7 +20,7 @@ Bruce and the boys headline two shows at The Main Point in Bryn Mawr, Pennsylvan
 
 **1973:**
 
-Patti Smith guest-stars on Night Three (of six) at the Palladium in New York City, joining Bruce and the Band for an unusual version of “Rosalita (Come Out Tonight).”
+Patti Smith guest-stars on Night Three (of six) at the Palladium in New York City, joining Bruce and the Band for an unusual version of "Rosalita (Come Out Tonight)."
 
 **1976:**
 
@@ -28,7 +28,7 @@ Patti Smith guest-stars on Night Three (of six) at the Palladium in New York Cit
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Philadelphia_Daily_News_1976_11_17_Page_31-scaled.jpg?resize=758%2C1412&amp;ssl=1)
 
-Bruce and the E Street Band kick off a four-night stand at the Los Angeles Sports Arena, where Flo and Eddie contribute guest backing vocals to “.”
+Bruce and the E Street Band kick off a four-night stand at the Los Angeles Sports Arena, where Flo and Eddie contribute guest backing vocals to "."
 
 **1980:**[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
@@ -50,7 +50,7 @@ Bruce releases the latest single, the from his mega-hit album.
 
 [https://www.youtube.com/embed/tRx212PUa4g?feature=oembed](https://www.youtube.com/embed/tRx212PUa4g?feature=oembed)
 
-Bruce premieres the video for his latest single, “,” the first single from Watch the video and news coverage below.
+Bruce premieres the video for his latest single, "," the first single from Watch the video and news coverage below.
 
 **1987:** [Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)*.* [Tunnel of Love](https://estreetshuffle.com/index.php/2022/08/08/album-companion-tunnel-of-love/)
 
@@ -78,7 +78,7 @@ Bruce and his new touring band bring World Tour 1992 to Iowa State University in
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/1992-10-30b.png?resize=758%2C1736&amp;ssl=1)
 
-Bruce’s solo acoustic show at the TD Banknorth Garden in Boston is filmed but will remain unreleased with one exception: a video for “” that Bruce will release fourteen years later in support of Project Adelante. In the encores, Bruce tour premieres “” as a Boston special. In attendance tonight: Senator John Kerry.
+Bruce's solo acoustic show at the TD Banknorth Garden in Boston is filmed but will remain unreleased with one exception: a video for "" that Bruce will release fourteen years later in support of Project Adelante. In the encores, Bruce tour premieres "" as a Boston special. In attendance tonight: Senator John Kerry.
 
 **2005:** [Matamoros Banks](http://estreetshuffle.com/index.php/2019/10/27/roll-of-the-dice-matamoros-banks/)[Dirty Water](https://estreetshuffle.com/index.php/2022/03/18/cover-me-dirty-water/)
 
@@ -88,7 +88,7 @@ Bruce’s solo acoustic show at the TD Banknorth Garden in Boston is filmed but 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2005-10-30-300x228.png?resize=758%2C576)
 
-Bruce and the Sessions Band complete their Scandinavian leg with a show at the Globe Arena in Stockholm, where Bruce tour premieres “.”
+Bruce and the Sessions Band complete their Scandinavian leg with a show at the Globe Arena in Stockholm, where Bruce tour premieres "."
 
 **2006:** [Jesus Was an Only Son](http://estreetshuffle.com/index.php/2018/04/25/roll-of-the-dice-jesus-was-an-only-son/)
 
@@ -96,9 +96,9 @@ Bruce and the Sessions Band complete their Scandinavian leg with a show at the G
 
 [https://www.youtube.com/embed/l3DkvDa6LIw?feature=oembed](https://www.youtube.com/embed/l3DkvDa6LIw?feature=oembed)
 
-At Night Two in Los Angeles on the Magic Tour, Bruce celebrates Halloween a day early, once again (as in Halloweens past) emerging from a coffin to start the show. Bruce also tour premieres “” during the encores.
+At Night Two in Los Angeles on the Magic Tour, Bruce celebrates Halloween a day early, once again (as in Halloweens past) emerging from a coffin to start the show. Bruce also tour premieres "" during the encores.
 
-**2007:** [Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
+**2007:** [Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
 
 [https://www.youtube.com/embed/YweY5JtFZH4?feature=oembed](https://www.youtube.com/embed/YweY5JtFZH4?feature=oembed)
 

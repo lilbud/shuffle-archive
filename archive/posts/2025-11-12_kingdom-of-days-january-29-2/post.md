@@ -20,11 +20,11 @@ Bruce sits in with Steve Van Zandt and The Big Bad Bobby Williams Band (which in
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/01/bobbywilliams-300x209.jpg?resize=758%2C528)
 
-The Bruce Springsteen Band continues a three-night gig at The Captain’s Garter in Neptune, New Jersey.
+The Bruce Springsteen Band continues a three-night gig at The Captain's Garter in Neptune, New Jersey.
 
 **1972:**
 
-Bruce and the band open for Freddie King at Muther’s Music Emporium in Nashville. Intended as an unofficial promotional opportunity co-located with a CBS Sales Convention, Mike Appel is unable to drum up the attendance he’d hoped for, and the theater is quite empty–but the show is recorded from the soundboard nonetheless. Listen to the unusual arrangement of “” below.
+Bruce and the band open for Freddie King at Muther's Music Emporium in Nashville. Intended as an unofficial promotional opportunity co-located with a CBS Sales Convention, Mike Appel is unable to drum up the attendance he'd hoped for, and the theater is quite empty–but the show is recorded from the soundboard nonetheless. Listen to the unusual arrangement of "" below.
 
 **1974:** [Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
@@ -48,9 +48,9 @@ Bruce and the E Street Band play Iowa State University on The River Tour.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1981-01-29a-300x190.jpg?resize=758%2C480)
 
-Bruce records “” at A&M Studios in Los Angeles. It will be released seven years later on .
+Bruce records "" at A&M Studios in Los Angeles. It will be released seven years later on .
 
-**1991:** [Goin’ Cali](http://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/)*Tracks*
+**1991:** [Goin' Cali](http://estreetshuffle.com/index.php/2019/01/01/roll-of-the-dice-goin-cali/)*Tracks*
 
 [https://www.youtube.com/embed/hSwtuwgZ9J4?feature=oembed](https://www.youtube.com/embed/hSwtuwgZ9J4?feature=oembed)
 
@@ -68,7 +68,7 @@ At the Paramount Theater in Asbury Park, Bruce rehearses for an upcoming benefit
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Asbury_Park_Press_1998_01_30_Page_2.jpg?resize=758%2C624&amp;ssl=1)
 
-Bruce and the E Street Band hold a press conference (Bruce’s first in over twenty years) and a dress rehearsal for their upcoming Super Bowl performance.
+Bruce and the E Street Band hold a press conference (Bruce's first in over twenty years) and a dress rehearsal for their upcoming Super Bowl performance.
 
 **2009:**
 
@@ -76,7 +76,7 @@ Bruce and the E Street Band hold a press conference (Bruce’s first in over twe
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Pittsburgh_Post_Gazette_2009_01_30_Page_48.jpg?resize=758%2C907&amp;ssl=1)
 
-Bruce plays a benefit for his kids’ school at The Stone Pony in Asbury Park, joined by Bobby Bandiera, Max Weinberg, and Southside Johnny.
+Bruce plays a benefit for his kids' school at The Stone Pony in Asbury Park, joined by Bobby Bandiera, Max Weinberg, and Southside Johnny.
 
 **2011:**
 
@@ -84,7 +84,7 @@ Bruce plays a benefit for his kids’ school at The Stone Pony in Asbury Park, j
 
 [https://www.youtube.com/embed/l7420VsTrPU?feature=oembed](https://www.youtube.com/embed/l7420VsTrPU?feature=oembed)
 
-The final night in Cape Town brings tour premieres, including the first-ever performance of “” Mos Def guest-stars in the encore for “Sun City.”
+The final night in Cape Town brings tour premieres, including the first-ever performance of "" Mos Def guest-stars in the encore for "Sun City."
 
 **2014:** *sixteen*[This Is Your Sword.](https://estreetshuffle.com/index.php/2021/02/04/roll-of-the-dice-this-is-your-sword/)
 
@@ -96,7 +96,7 @@ The final night in Cape Town brings tour premieres, including the first-ever per
 
 [https://www.youtube.com/embed/bWMS6wt_A5I?feature=oembed](https://www.youtube.com/embed/bWMS6wt_A5I?feature=oembed)
 
-Also today: Le Grand Journal publishes Antoine de Caunes’ interview with Bruce.
+Also today: Le Grand Journal publishes Antoine de Caunes' interview with Bruce.
 
 [https://www.youtube.com/embed/js0SOEnIOlw?feature=oembed](https://www.youtube.com/embed/js0SOEnIOlw?feature=oembed)
 

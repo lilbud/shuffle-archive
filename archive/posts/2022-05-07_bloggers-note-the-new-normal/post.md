@@ -11,7 +11,7 @@ And as a result, my posting schedule got a bit unpredictable, and occasional ski
 So some weeks back, I made the decision to put this site on half-time status... sort of. This means:
 
 - [*Kingdom of Days*](https://estreetshuffle.com/index.php/category/kingdom-of-days/) still runs daily, without interruption.
-- *[Roll of the Dice,](https://estreetshuffle.com/index.php/category/roll-of-the-dice/) [Cover Me](https://estreetshuffle.com/index.php/category/cover-me/), [Meeting Across the River](https://estreetshuffle.com/index.php/category/meeting-across-the-river/),* and [*Spare Parts*](https://estreetshuffle.com/index.php/category/spare-parts/) all share an "every other day" posting schedule–three or four posts a week in total.
+- *[Roll of the Dice,](https://estreetshuffle.com/index.php/category/roll-of-the-dice/) [Cover Me](https://estreetshuffle.com/index.php/category/cover-me/), [Meeting Across the River](https://estreetshuffle.com/index.php/category/meeting-across-the-river/)*, and [*Spare Parts*](https://estreetshuffle.com/index.php/category/spare-parts/) all share an "every other day" posting schedule–three or four posts a week in total.
 
 
 This schedule change gives me a lot of time back in my week, and (so far, at least) enables me to keep a regular cadence going.

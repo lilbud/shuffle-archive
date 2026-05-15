@@ -1,6 +1,6 @@
 **1968:** The Castiles play a set at the West End Casino in Long Branch, New Jersey.
 
-**1972:** The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant’s Cinema III movie theater in Red Bank, New Jersey. This is perhaps Bruce’s first overtly political action as a musician, and even then his favored candidates were decidedly liberal.
+**1972:** The Bruce Springsteen Band plays a benefit show for George McGovern at the Grant's Cinema III movie theater in Red Bank, New Jersey. This is perhaps Bruce's first overtly political action as a musician, and even then his favored candidates were decidedly liberal.
 
 ![](../../assets/2020/06/1972-07-05a.jpg)
 
@@ -26,7 +26,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 ![](../../assets/2020/06/1978-07-05b.jpg)
 
-**1981:** Bruce and the E Street Band play their third of six nights opening the Brendan Byrne Arena in the Meadowlands, where they play “Trapped” for the first time in the U.S. (Photo credit: Dari)
+**1981:** Bruce and the E Street Band play their third of six nights opening the Brendan Byrne Arena in the Meadowlands, where they play "Trapped" for the first time in the U.S. (Photo credit: Dari)
 
 ![](../../assets/2018/07/1981-0705.jpg)
 
@@ -40,7 +40,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 ![](../../assets/2021/07/1984-07-05b.jpg)
 
-**2008:** Bruce and the E Street Band play a stunner of a show–their second in Gothenburg on the Magic Tour–with their first full-band “Drive All Night"  in 27 years as the centerpiece (check out the sound check below), and a rare “Roulette” and “Janey, Don’t You Lose Heart” in the set as well.
+**2008:** Bruce and the E Street Band play a stunner of a show–their second in Gothenburg on the Magic Tour–with their first full-band "Drive All Night"  in 27 years as the centerpiece (check out the sound check below), and a rare "Roulette" and "Janey, Don't You Lose Heart" in the set as well.
 
 [Watch Video Highlight](https://videopress.com/embed/Mty4EdEG)
 
@@ -52,7 +52,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=15TaIa02qc0)
 
-**2009:** Bruce takes the Working on a Dream Tour to Vienna for a night, where he plays “Jersey Girl” outside of the U.S. for the first time, along with the tour premieres of “Into the Fire” and “4th of July, Asbury Park (Sandy).”
+**2009:** Bruce takes the Working on a Dream Tour to Vienna for a night, where he plays "Jersey Girl" outside of the U.S. for the first time, along with the tour premieres of "Into the Fire" and "4th of July, Asbury Park (Sandy)."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=KGGHLdDWLxM)
 
@@ -60,7 +60,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uZmO4suisxY)
 
-**2012:** Night Two in Bercy on the Wrecking Ball Tour features a highly audibled old-school setlist, featuring the tour premiere of “For You” and performances of “Racing in the Street,” “Incident on 57th Street,” “Something in the Night,” “Thunder Road” and more. This show is available as part of Bruce’s official archive series.
+**2012:** Night Two in Bercy on the Wrecking Ball Tour features a highly audibled old-school setlist, featuring the tour premiere of "For You" and performances of "Racing in the Street," "Incident on 57th Street," "Something in the Night," "Thunder Road" and more. This show is available as part of Bruce's official archive series.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=TK2tZ71K9e0)
 
@@ -68,7 +68,7 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=sRYp2YfbKvA)
 
-**2013:** Monchengladbach gets one of the most surprising setlists of the Wrecking Ball Tour when Bruce opens with “Jackson Cage” and plays the tour premieres of three very rare songs: “One Way Street,” “[Man’s](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)J[ob](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/),” and “Shake, Rattle and Roll.” In the encores, Jay Weinberg makes a guest appearance on “Radio Nowhere.”
+**2013:** Monchengladbach gets one of the most surprising setlists of the Wrecking Ball Tour when Bruce opens with "Jackson Cage" and plays the tour premieres of three very rare songs: "One Way Street," "[Man's](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)J[ob](https://estreetshuffle.com/index.php/2022/05/30/roll-of-the-dice-mans-job/)," and "Shake, Rattle and Roll." In the encores, Jay Weinberg makes a guest appearance on "Radio Nowhere."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=uTrcxhY48cM)
 
@@ -76,13 +76,13 @@ After the show, Bruce sits down for an interview with local TV reporter J. J. Ja
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=ejOyEOjCO7c)
 
-**2016:** Night Two in Milan on the 2016 River Tour features the tour premiere of “Streets of Fire.”
+**2016:** Night Two in Milan on the 2016 River Tour features the tour premiere of "Streets of Fire."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=K7wtrbrGPo4)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fnh9R7y0Wc0)
 
-**2024:** Lucky fans in Hanover witness the live premiere of “Janey Needs a Shooter” more than a half-century after Bruce first wrote it. Also tour premiering tonight: “Into the Fire.”
+**2024:** Lucky fans in Hanover witness the live premiere of "Janey Needs a Shooter" more than a half-century after Bruce first wrote it. Also tour premiering tonight: "Into the Fire."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=qAIwltiKfnI)
 

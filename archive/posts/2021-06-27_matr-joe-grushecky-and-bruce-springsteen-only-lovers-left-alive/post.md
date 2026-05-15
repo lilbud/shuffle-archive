@@ -10,9 +10,9 @@ Joe Grushecky's milestone *[American Babylon](https://estreetshuffle.com/index.p
 
 The absent father in "Only Lovers Left Alive" is laden with rock and roll imagery from his tattoo to his shoes, as if to caution the price that life on the road can exact. It doesn't require a leap of imagination to picture the father as a musician, and his bike as a tour bus.
 
-The father never returns, and looking for a place to belong, the son takes up with the tough crowd, skipping school, acting cool, and probably playing pool, too. While I'm sure the lyrical similarities to "Rosalita (Come Out Tonight)" are coincidental, they're also satisfyingly and fittingly ironic. Like much of *American Babylon,* "Only Lovers Left Alive" is as grounded in realism as Bruce's early work is rooted in romanticism.
+The father never returns, and looking for a place to belong, the son takes up with the tough crowd, skipping school, acting cool, and probably playing pool, too. While I'm sure the lyrical similarities to "Rosalita (Come Out Tonight)" are coincidental, they're also satisfyingly and fittingly ironic. Like much of *American Babylon*, "Only Lovers Left Alive" is as grounded in realism as Bruce's early work is rooted in romanticism.
 
-The song ends on an unresolved note; we never do find out whether the son takes after his father. "Only Lovers Left Alive" lingers long after its last notes close out *American Babylon,* a fitting way to end an album that questions what happens when we lose our ability to tell right from wrong.
+The song ends on an unresolved note; we never do find out whether the son takes after his father. "Only Lovers Left Alive" lingers long after its last notes close out *American Babylon*, a fitting way to end an album that questions what happens when we lose our ability to tell right from wrong.
 
 Joe and Bruce have never performed "Only Lovers Left Alive" in concert, but Bruce's guitar can be heard on the studio track. Intriguingly, Joe told me in our *American Babylon* conversation last year that an alternate but unreleased version exists with a long guitar solo by Bruce. If we're lucky, maybe that will see the light of day someday...
 

@@ -2,7 +2,7 @@
 
 *Video for 2004 and 2006***New for 2025:**
 
-: Bruce and the E Street Band perform their one-time-only cover of “Twistin’ the Night Away” at Albright College in Reading, Pennsylvania.
+: Bruce and the E Street Band perform their one-time-only cover of "Twistin' the Night Away" at Albright College in Reading, Pennsylvania.
 
 **1974**
 
@@ -48,9 +48,9 @@ Bruce releases his eighth studio album, , to much less fanfare than greeted his 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1987-10-05b-300x177.jpg?resize=758%2C447)
 
-Bruce and the E Street Band perform “” and “” on in New York City. The afternoon rehearsals are caught on tape–watch and see what happens when Bruce realizes he started the rehearsal without noticing that Patti wasn’t there yet.
+Bruce and the E Street Band perform "" and "" on in New York City. The afternoon rehearsals are caught on tape–watch and see what happens when Bruce realizes he started the rehearsal without noticing that Patti wasn't there yet.
 
-**2002:** [Lonesome Day](http://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)[You’re Missing](http://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/)*Saturday Night Live*
+**2002:** [Lonesome Day](http://estreetshuffle.com/index.php/2020/04/11/roll-of-the-dice-lonesome-day/)[You're Missing](http://estreetshuffle.com/index.php/2020/02/11/roll-of-the-dice-youre-missing/)*Saturday Night Live*
 
 [https://videopress.com/embed/chXvrMZv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/chXvrMZv?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -58,9 +58,9 @@ Bruce and the E Street Band perform “” and “” on in New York City. The a
 
 [https://videopress.com/embed/kXtX77yt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kXtX77yt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Neil Young guest stars at Bruce’s Vote for Change show in St. Paul, joining Bruce for “,” “,” and “.”
+Neil Young guest stars at Bruce's Vote for Change show in St. Paul, joining Bruce for "," "," and "."
 
-**2004:** [Souls of the Departed](http://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)[All Along the Watchtower](http://estreetshuffle.com/index.php/2020/08/13/matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/)[Rockin’ in the Free World](http://estreetshuffle.com/index.php/2019/04/16/matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/)
+**2004:** [Souls of the Departed](http://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)[All Along the Watchtower](http://estreetshuffle.com/index.php/2020/08/13/matr-bruce-springsteen-neil-young-and-exit-105-all-along-the-watchtower/)[Rockin' in the Free World](http://estreetshuffle.com/index.php/2019/04/16/matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/)
 
 [https://www.youtube.com/embed/grkLn4dpbZc?feature=oembed](https://www.youtube.com/embed/grkLn4dpbZc?feature=oembed)
 
@@ -70,7 +70,7 @@ Neil Young guest stars at Bruce’s Vote for Change show in St. Paul, joining Br
 
 [https://www.youtube.com/embed/ExdLcwIZdsk?feature=oembed](https://www.youtube.com/embed/ExdLcwIZdsk?feature=oembed)
 
-One of the best shows from the Seeger Sessions Tour, at the ancient Arena di Verona: Bruce tour premieres “” and “,” along with Patti’s “” (played in honor of her final appearance on the tour until its final stand) and Bruce’s first-ever performance of “” For more highlights from this show, see my .
+One of the best shows from the Seeger Sessions Tour, at the ancient Arena di Verona: Bruce tour premieres "" and "," along with Patti's "" (played in honor of her final appearance on the tour until its final stand) and Bruce's first-ever performance of "" For more highlights from this show, see my .
 
 **2006:** [Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)[Fire](http://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[Valerie](https://estreetshuffle.com/index.php/2020/12/13/matr-patti-scialfa-and-bruce-springsteen-valerie/)[Samson and Delilah.](http://estreetshuffle.com/index.php/2020/09/25/cover-me-samson-and-delilah/)[report](http://estreetshuffle.com/index.php/2018/10/05/where-the-band-was-verona-october-5-2006/)*Where the Band Was*
 
@@ -84,9 +84,9 @@ One of the best shows from the Seeger Sessions Tour, at the ancient Arena di Ver
 
 [https://www.youtube.com/embed/KvadUhGEKY0?feature=oembed](https://www.youtube.com/embed/KvadUhGEKY0?feature=oembed)
 
-The young Magic Tour rolls into Philadelphia for its first two-night stand. Night One at the Wachovia Center features tour debuts for “” “,” “” (in place of Patti’s ““) and “”
+The young Magic Tour rolls into Philadelphia for its first two-night stand. Night One at the Wachovia Center features tour debuts for "" "," "" (in place of Patti's "") and ""
 
-**2007:** [No Surrender,](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)[Candy’s Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Town Called Heartbreak](http://estreetshuffle.com/index.php/2020/08/09/matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/)[My Hometown.](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
+**2007:** [No Surrender,](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)[Candy's Room](https://estreetshuffle.com/index.php/2022/05/02/roll-of-the-dice-candys-room/)[Brilliant Disguise](http://estreetshuffle.com/index.php/2018/02/06/roll-of-the-dice-brilliant-disguise/)[Town Called Heartbreak](http://estreetshuffle.com/index.php/2020/08/09/matr-patti-scialfa-and-bruce-springsteen-town-called-heartbreak/)[My Hometown.](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
 
 [https://www.youtube.com/embed/1RrxmM2jpxg?feature=oembed](https://www.youtube.com/embed/1RrxmM2jpxg?feature=oembed)
 
@@ -96,7 +96,7 @@ The young Magic Tour rolls into Philadelphia for its first two-night stand. Nigh
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2007-10-05b-139x300.jpg?resize=758%2C1636)
 
-Bruce appears at a rally for presidential candidate Barack Obama at Ohio State University in Columbus, where Bruce opens with a partial “Mr. Spaceman” in honor of former senator and astronaut John Glenn.
+Bruce appears at a rally for presidential candidate Barack Obama at Ohio State University in Columbus, where Bruce opens with a partial "Mr. Spaceman" in honor of former senator and astronaut John Glenn.
 
 **2008:**
 
@@ -114,15 +114,15 @@ Bruce appears at a special interview event at the Nourse Theater in San Francisc
 
 [https://www.youtube.com/embed/nXqxyBWp9Ho?feature=oembed](https://www.youtube.com/embed/nXqxyBWp9Ho?feature=oembed)
 
-Bruce makes a small tweak in , swapping out “” for “” as previews continue. In attendance tonight: Jessica Springsteen
+Bruce makes a small tweak in , swapping out "" for "" as previews continue. In attendance tonight: Jessica Springsteen
 
 **2017:** *Springsteen on Broadway*[The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[The Rising](https://estreetshuffle.com/index.php/2020/11/21/roll-of-the-dice-the-rising/)
 
 [https://videopress.com/embed/jjFcAf1z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/jjFcAf1z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce plays his “B” setlist that includes “” and “This Hard Land” in place of his two duets with Patti. In attendance tonight: John Mayer.
+continues its theatrical run at the Walter Kerr Theater in New York City. Patti is absent tonight, so Bruce plays his "B" setlist that includes "" and "This Hard Land" in place of his two duets with Patti. In attendance tonight: John Mayer.
 
-**2018:** *Springsteen on Broadway* [Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
+**2018:** *Springsteen on Broadway* [Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
 
 
 

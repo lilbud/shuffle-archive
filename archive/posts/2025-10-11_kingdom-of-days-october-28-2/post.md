@@ -2,7 +2,7 @@
 
 *Audio for 1976; new entry for 2024***New for 2025:**
 
-The still-unnamed E Street Band makes its concert debut as the Greetings from Asbury Park Tour kicks off with Bruce’s first-ever show in Pennsylvania, where they open for Cheech & Chong at West Chester College. Bruce was a late addition by the school, and Cheech & Chong’s manager does not approve. He forces the school to end Bruce’s set early.
+The still-unnamed E Street Band makes its concert debut as the Greetings from Asbury Park Tour kicks off with Bruce's first-ever show in Pennsylvania, where they open for Cheech & Chong at West Chester College. Bruce was a late addition by the school, and Cheech & Chong's manager does not approve. He forces the school to end Bruce's set early.
 
 **1972:**
 
@@ -22,13 +22,13 @@ Bruce and the E Street Band kick off a six-night stand at the Palladium in New Y
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47579847782_3533f2d6a5_o-300x201.jpg?resize=758%2C508)
 
-Bruce and the E Street Band play their second of two River Tour shows at the Oakland Coliseum, where they open with “.” They won’t play it again for 28 years.
+Bruce and the E Street Band play their second of two River Tour shows at the Oakland Coliseum, where they open with "." They won't play it again for 28 years.
 
-**1980:** [Good Rockin’ Tonight](http://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)
+**1980:** [Good Rockin' Tonight](http://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)
 
 [https://www.youtube.com/embed/lkRSTU7xhfg?feature=oembed](https://www.youtube.com/embed/lkRSTU7xhfg?feature=oembed)
 
-Bruce and the band play their third of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, where “Rosalita (Come Out Tonight)” comes out for the last time that year.
+Bruce and the band play their third of seven Born in the U.S.A. shows at the Los Angeles Memorial Sports Arena, where "Rosalita (Come Out Tonight)" comes out for the last time that year.
 
 **1984:**
 
@@ -46,9 +46,9 @@ Bruce takes ill with a sore throat and postpones his scheduled show in St. Louis
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-10-28-300x170.png?resize=758%2C430)
 
-Bruce makes a return engagement at Neil Young’s Bridge School Benefit in Mountain View, playing a solo set that features the live debuts of “” and “,” and joining Neil, Chrissie Hynde, Hootie & the Blowfish, Steven Tyler, Beck, and Emmylou Harris for a show-closing “.”
+Bruce makes a return engagement at Neil Young's Bridge School Benefit in Mountain View, playing a solo set that features the live debuts of "" and "," and joining Neil, Chrissie Hynde, Hootie & the Blowfish, Steven Tyler, Beck, and Emmylou Harris for a show-closing "."
 
-**1995:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[Sinaloa Cowboys](https://estreetshuffle.com/index.php/2022/01/04/roll-of-the-dice-sinaloa-cowboys/)[Rockin’ in the Free World](http://estreetshuffle.com/index.php/2019/04/16/matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/)
+**1995:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)[Sinaloa Cowboys](https://estreetshuffle.com/index.php/2022/01/04/roll-of-the-dice-sinaloa-cowboys/)[Rockin' in the Free World](http://estreetshuffle.com/index.php/2019/04/16/matr-neil-young-bruce-springsteen-and-friends-rockin-in-the-free-world/)
 
 [https://www.youtube.com/embed/wsJb5NcjuIk?feature=oembed](https://www.youtube.com/embed/wsJb5NcjuIk?feature=oembed)
 
@@ -74,13 +74,13 @@ Bruce plays a solo acoustic show at the Arlene Schnitzer Concert Hall (formerly 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/The_Oregonian_1996_10_29_27.jpg?w=758&amp;ssl=1)![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/The_Oregonian_1996_10_29_29.jpg?resize=758%2C301&amp;ssl=1)
 
-Bruce and the E Street Band play their last of three Reunion Tour shows at the Oakland Arena, where “Sinaloa Cowboys” makes its tour and full-band debut and Southside Johnny guest-stars on “”
+Bruce and the E Street Band play their last of three Reunion Tour shows at the Oakland Arena, where "Sinaloa Cowboys" makes its tour and full-band debut and Southside Johnny guest-stars on ""
 
 **1999:** [Hungry Heart.](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
 [https://www.youtube.com/embed/bLo07jpukyM?feature=oembed](https://www.youtube.com/embed/bLo07jpukyM?feature=oembed)
 
-Bruce performs “” and “” at two rallies for presidential candidate John Kerry, the first in Madison, Wisconsin, the second at Ohio State University.
+Bruce performs "" and "" at two rallies for presidential candidate John Kerry, the first in Madison, Wisconsin, the second at Ohio State University.
 
 **2004:** [The Promised Land](http://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
 
@@ -100,7 +100,7 @@ Bruce performs “” and “” at two rallies for presidential candidate John 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2004-10-28b-188x300.png?resize=758%2C1209)
 
-Bruce’s solo acoustic show at the TD Banknorth Garden in Boston is filmed but remains in the vaults to this day. In 2008, “” from this show will be released as a single and on various promotional EPs.
+Bruce's solo acoustic show at the TD Banknorth Garden in Boston is filmed but remains in the vaults to this day. In 2008, "" from this show will be released as a single and on various promotional EPs.
 
 **2005:** [Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)<https://estreetshuffle.com/wp-content/uploads/2022/10/Bruce-Springsteen-Dream-Baby-Dream-Live.mp3>
 
@@ -126,7 +126,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2017:** *Springsteen on Broadway*
 
-At Bruce’s home in Colts Neck, host Ben Mankiewicz interviews Bruce for his upcoming guest appearance on TCM.
+At Bruce's home in Colts Neck, host Ben Mankiewicz interviews Bruce for his upcoming guest appearance on TCM.
 
 **2019:** *Turner Classic Movies*
 
@@ -136,17 +136,17 @@ At Bruce’s home in Colts Neck, host Ben Mankiewicz interviews Bruce for his up
 
 [//cdn.jwplayer.com/players/XuHSa09J-RTgEGJrS.html](//cdn.jwplayer.com/players/XuHSa09J-RTgEGJrS.html)
 
-E Street Radio airs Volume 14 of Bruce’s radio show, entitled “Farewell to the Thief.”
+E Street Radio airs Volume 14 of Bruce's radio show, entitled "Farewell to the Thief."
 
 **2020:***From My Home to Yours*<https://estreetshuffle.com/wp-content/uploads/2021/10/2020-10-28-Bruce-E-Street-Radio-DJ-set-14-1.mp3>
 
-Bruce releases the third advance single from his upcoming album: “.”
+Bruce releases the third advance single from his upcoming album: "."
 
-**2022:** *Only the Strong Survive* [Don’t Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)
+**2022:** *Only the Strong Survive* [Don't Play That Song](https://estreetshuffle.com/index.php/2023/02/12/cover-me-dont-play-that-song-you-lied/)
 
 [https://www.youtube.com/embed/6bM3L296ZNw?feature=oembed](https://www.youtube.com/embed/6bM3L296ZNw?feature=oembed)
 
-Bruce makes a surprise appearance at Monmouth University during the Springsteen Archives’ symposium celebrating the 50th anniversary of 
+Bruce makes a surprise appearance at Monmouth University during the Springsteen Archives' symposium celebrating the 50th anniversary of 
 
 **2023:** *The Wild, The Innocent & The E Street Shuffle.*
 

@@ -6,7 +6,7 @@ The Bruce Springsteen Band headlines a show at St. Jerome School in West Long Br
 
 **1971:**
 
-Bruce and his new, unnamed band headline a Halloween show at the National Guard Armory in Long Branch for the second year in a row. Bruce performs “” for the first known time at this second show on the Greetings From Asbury Park Tour.
+Bruce and his new, unnamed band headline a Halloween show at the National Guard Armory in Long Branch for the second year in a row. Bruce performs "" for the first known time at this second show on the Greetings From Asbury Park Tour.
 
 **1972:** [Thundercrack](https://estreetshuffle.com/index.php/2021/09/24/roll-of-the-dice-thundercrack/)
 
@@ -18,7 +18,7 @@ Bruce headlines two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
 **1973:**
 
-Bruce and the band headline at the Boston Music Hall, with Dr. John opening. Bruce plays his last known performance of “” to date.
+Bruce and the band headline at the Boston Music Hall, with Dr. John opening. Bruce plays his last known performance of "" to date.
 
 **1974:** [Cupid](https://estreetshuffle.com/index.php/2020/03/06/cover-me-cupid/)
 
@@ -38,7 +38,7 @@ Bruce and the E Street Band play to a small crowd (only 1,400 people out of 4,40
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1975-10-29-300x200.jpg?resize=758%2C505)
 
-“” continues to evolve as a work-in-progress at the second of six nights at the Palladium in New York City, where Gary U.S. Bonds makes his first-ever guest appearance during the encore for (what else?) “.”
+"" continues to evolve as a work-in-progress at the second of six nights at the Palladium in New York City, where Gary U.S. Bonds makes his first-ever guest appearance during the encore for (what else?) "."
 
 **1976:** [Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)[Quarter to Three](https://estreetshuffle.com/index.php/2021/08/21/cover-me-quarter-to-three/)
 
@@ -48,13 +48,13 @@ Bruce and the E Street Band play to a small crowd (only 1,400 people out of 4,40
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/32690199977_6e909f7e65_o-300x200.jpg?resize=758%2C505)
 
-On Night Four of seven at the L.A. Sports Arena, “” makes its one and only appearance on the Born in the U.S.A. Tour.
+On Night Four of seven at the L.A. Sports Arena, "" makes its one and only appearance on the Born in the U.S.A. Tour.
 
 **1984:** [Night](http://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)
 
 [https://www.youtube.com/embed/N9A7TwlUhks?feature=oembed](https://www.youtube.com/embed/N9A7TwlUhks?feature=oembed)
 
-Bruce jams with Tom Petty and the Heartbreakers at Tom’s house in the San Fernando Valley. Roger McGuinn and Jeff Lynne are present as well.
+Bruce jams with Tom Petty and the Heartbreakers at Tom's house in the San Fernando Valley. Roger McGuinn and Jeff Lynne are present as well.
 
 **1990:**
 
@@ -102,7 +102,7 @@ Bruce and the E Street Band play their first of two nights at the L.A. Memorial 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-29b-246x300.png?resize=758%2C924)
 
-Bruce and the E Street Band headline the first night of the Rock and Roll Hall of Fame’s 25th Anniversary Concerts in New York City. Guest-stars abound: Sam Moore, Tom Morello, John Fogerty, Darlene Love, Billy Joel, Jackson Browne, and Peter Wolf. The show is commercially available and essential viewing.
+Bruce and the E Street Band headline the first night of the Rock and Roll Hall of Fame's 25th Anniversary Concerts in New York City. Guest-stars abound: Sam Moore, Tom Morello, John Fogerty, Darlene Love, Billy Joel, Jackson Browne, and Peter Wolf. The show is commercially available and essential viewing.
 
 **2009:**
 
@@ -132,7 +132,7 @@ Bruce appears with former President Barack Obama (in a pre-recorded interview) o
 
 [https://www.youtube.com/embed/3W2ZCalmCi4?feature=oembed](https://www.youtube.com/embed/3W2ZCalmCi4?feature=oembed)
 
-Bruce inducts Patti Scialfa into the New Jersey Hall of Fame and joins a roster of New Jersey luminaries on stage for a show-closing performance of “.”
+Bruce inducts Patti Scialfa into the New Jersey Hall of Fame and joins a roster of New Jersey luminaries on stage for a show-closing performance of "."
 
 **2023:** [With a Little Help From My Friends](https://estreetshuffle.com/index.php/2018/06/03/matr-ringo-starrs-all-starr-band-bruce-springsteen-and-john-candy-with-a-little-help-from-my-friends/)
 

@@ -2,7 +2,7 @@
 
 *Audio for 1975; new entry for 1977 and 2024***New for 2025:**
 
-Steel Mill (or as the poster puts it, “Child under an assumed name”) headlines at Monmouth College in West Long Branch, New Jersey.
+Steel Mill (or as the poster puts it, "Child under an assumed name") headlines at Monmouth College in West Long Branch, New Jersey.
 
 **1969:**
 
@@ -14,7 +14,7 @@ Steel Mill (or as the poster puts it, “Child under an assumed name”) headlin
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1969-12-12.png?resize=758%2C1927&amp;ssl=1)
 
-Steel Mill replaces scheduled headliner Flock at Asbury Park’s Sunshine In when flight delays force to cancel at the last minute, leaving the local press to scratch their heads at why Bruce and company are settling for fill-in status.
+Steel Mill replaces scheduled headliner Flock at Asbury Park's Sunshine In when flight delays force to cancel at the last minute, leaving the local press to scratch their heads at why Bruce and company are settling for fill-in status.
 
 **1970:**
 
@@ -30,9 +30,9 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1971-12-10.png?resize=758%2C913&amp;ssl=1)
 
-Bruce and the E Street Band take the Born to Run Tour to C.W. Post College in Greenvale, New York, where Bruce debuts his cover of “,” apparently (according to Max) played as an audible with no prior rehearsal. The band’s encore performance of “” is recorded and officially released–it’s the version you’ll hear on the radio at least once this month. This show is available as part of Bruce’s official archive series–get it .
+Bruce and the E Street Band take the Born to Run Tour to C.W. Post College in Greenvale, New York, where Bruce debuts his cover of "," apparently (according to Max) played as an audible with no prior rehearsal. The band's encore performance of "" is recorded and officially released–it's the version you'll hear on the radio at least once this month. This show is available as part of Bruce's official archive series–get it .
 
-**1975:** [It’s My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[here](https://live.brucespringsteen.net/live-music/0,28028/Bruce-Springsteen-mp3-flac-download-12-12-1975-Post-Dome-CW-Post-College-Greenvale-NY.html)
+**1975:** [It's My Life](https://estreetshuffle.com/index.php/2021/11/23/cover-me-its-my-life/)[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)[here](https://live.brucespringsteen.net/live-music/0,28028/Bruce-Springsteen-mp3-flac-download-12-12-1975-Post-Dome-CW-Post-College-Greenvale-NY.html)
 
 [https://www.youtube.com/embed/fLI-vMZ4HEw?feature=oembed](https://www.youtube.com/embed/fLI-vMZ4HEw?feature=oembed)
 
@@ -64,7 +64,7 @@ Bruce brings his solo acoustic tour to the Beacon Theater in New York City for t
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1995-12-12.png?resize=758%2C561&amp;ssl=1)
 
-Patti and Soozie make several guest appearances throughout Bruce’s solo acoustic show at Ryman Auditorium in Nashville. In attendance tonight: Emmylou Harris, Mary Chapin Carpenter, and Amy Grant.
+Patti and Soozie make several guest appearances throughout Bruce's solo acoustic show at Ryman Auditorium in Nashville. In attendance tonight: Emmylou Harris, Mary Chapin Carpenter, and Amy Grant.
 
 **1996:**
 
@@ -72,7 +72,7 @@ Patti and Soozie make several guest appearances throughout Bruce’s solo acoust
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1996-12-12.png?resize=545%2C2973&amp;ssl=1)
 
-Bruce closes the show at Bobby Bandiera’s All-Star Holiday Concert at the Count Basie Theater in Red Bank, joining Bobby’s band, Southside Johnny and the Asbury Jukes, Jon Bon Jovi, The Grinch, and some muppets for some holiday fun.
+Bruce closes the show at Bobby Bandiera's All-Star Holiday Concert at the Count Basie Theater in Red Bank, joining Bobby's band, Southside Johnny and the Asbury Jukes, Jon Bon Jovi, The Grinch, and some muppets for some holiday fun.
 
 **2006:**
 
@@ -86,7 +86,7 @@ Bruce closes the show at Bobby Bandiera’s All-Star Holiday Concert at the Coun
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2006-12-12.png?resize=758%2C1346&amp;ssl=1)
 
-Bruce tour premieres “Because the Night” at his Magic Tour stop in Antwerp.
+Bruce tour premieres "Because the Night" at his Magic Tour stop in Antwerp.
 
 **2007:**
 
@@ -98,9 +98,9 @@ Bruce takes his daughter Jessica and friends to the Z100 Jingle Ball at Madison 
 
 **2008:**
 
-Bruce and the E Street Band join a line-up of stellar talent at Madison Square Garden for a benefit show to help the Robin Hood Relief Fund for Hurricane Sandy victims in the tri-state area. The show is televised and streamed, starting with Bruce’s opening four-song set (including “Born to Run” with a Jon Bon Jovi guest appearance) and Bruce’s guest-star turn with Bon Jovi (on ““) during his set.
+Bruce and the E Street Band join a line-up of stellar talent at Madison Square Garden for a benefit show to help the Robin Hood Relief Fund for Hurricane Sandy victims in the tri-state area. The show is televised and streamed, starting with Bruce's opening four-song set (including "Born to Run" with a Jon Bon Jovi guest appearance) and Bruce's guest-star turn with Bon Jovi (on "") during his set.
 
-**2012:** [Who Says You Can’t Go Home](https://estreetshuffle.com/index.php/2019/06/22/matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/)
+**2012:** [Who Says You Can't Go Home](https://estreetshuffle.com/index.php/2019/06/22/matr-jon-bon-jovi-and-bruce-springsteen-who-says-you-cant-go-home/)
 
 [https://www.youtube.com/embed/NQWFklgKA_E?feature=oembed](https://www.youtube.com/embed/NQWFklgKA_E?feature=oembed)
 
@@ -132,18 +132,18 @@ enters the final week of its theatrical run at the Walter Kerr Theater in New Yo
 
 **2018:** *Springsteen on Broadway*
 
-Still in the midst of the pandemic, Bruce and most of the E Street Band (minus Garry and Soozie, plus Jack Daley sitting in on bass) perform “” and “” on .
+Still in the midst of the pandemic, Bruce and most of the E Street Band (minus Garry and Soozie, plus Jack Daley sitting in on bass) perform "" and "" on .
 
-**2020:** [Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)[I’ll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)*Saturday Night Live*
+**2020:** [Ghosts](https://estreetshuffle.com/index.php/2023/07/06/roll-of-the-dice-ghosts/)[I'll See You in My Dreams](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)*Saturday Night Live*
 
 [https://videopress.com/embed/2OZScE6v?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/2OZScE6v?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 [https://videopress.com/embed/Ia5NayNl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ia5NayNl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce’s scheduled show in San Francisco (already postponed once this year) is moved again to the following March due to his peptic ulcer disease.
+Bruce's scheduled show in San Francisco (already postponed once this year) is moved again to the following March due to his peptic ulcer disease.
 
 **2023:**
 
 Bruce drops by the set of filming today at Convention Hall in Asbury Park.
 
-**2024:***Deliver Me From Nowhere,*
+**2024:***Deliver Me From Nowhere*,

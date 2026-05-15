@@ -1,6 +1,6 @@
-For today's entry, we need to travel *way,* way back–all the way to the American Civil War, in fact.
+For today's entry, we need to travel *way*, way back–all the way to the American Civil War, in fact.
 
-In 1861, George Poulton and W.W. Fosdick published a love song called "Aura Lea." Popular during the war, "Aura Lea" lingered in the periphery of American popular culture for decades after, notably appearing in the 1936 film adaptation of *Come and Get It,* where it was sung by Frances Farmer.
+In 1861, George Poulton and W.W. Fosdick published a love song called "Aura Lea." Popular during the war, "Aura Lea" lingered in the periphery of American popular culture for decades after, notably appearing in the 1936 film adaptation of *Come and Get It*, where it was sung by Frances Farmer.
 
 [Watch on Youtube: Frances Farmer, « Aura Lee »](https://www.youtube.com/watch?v=19MXMUX8WRU)
 

@@ -2,7 +2,7 @@
 
 *Advertisement for 1971; review for 1984; audio for 2007***New for 2025:**
 
-The Bruce Springsteen Band headlines at Rutgers University in New Brunswick. Their setlist features the last known performance of “.”
+The Bruce Springsteen Band headlines at Rutgers University in New Brunswick. Their setlist features the last known performance of "."
 
 **1971:** [Mary Louise Watson](http://estreetshuffle.com/index.php/2018/09/27/roll-of-the-dice-mary-louise-watson/)
 
@@ -10,7 +10,7 @@ The Bruce Springsteen Band headlines at Rutgers University in New Brunswick. The
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/12/medium-9.jpg?resize=385%2C500&amp;ssl=1)
 
-Bruce and his band kick off a three-night stand at the Student Prince in Asbury Park, Bruce’s first official gig in that club in almost exactly two years.
+Bruce and his band kick off a three-night stand at the Student Prince in Asbury Park, Bruce's first official gig in that club in almost exactly two years.
 
 **1973:**
 
@@ -34,7 +34,7 @@ Bruce and the E Street Band (plus Little Steven for the encore set for the third
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/12/The_Atlanta_Journal_1984_12_18_31.jpg?resize=758%2C388&amp;ssl=1)
 
-Bruce joins Clarence Clemons and The Red Bank Rockers on stage at the Ventura Theater in Ventura, California, playing “,” “,” and “.”
+Bruce joins Clarence Clemons and The Red Bank Rockers on stage at the Ventura Theater in Ventura, California, playing "," "," and "."
 
 **1989:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[Cadillac Ranch](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)[Sweet Little Sixteen](http://estreetshuffle.com/index.php/2018/06/18/cover-me-sweet-little-sixteen/)
 
@@ -42,7 +42,7 @@ Bruce joins Clarence Clemons and The Red Bank Rockers on stage at the Ventura Th
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1989-12-17.png?resize=758%2C331&amp;ssl=1)
 
-World Tour 1992 wraps up at Rupp Arena in Lexington, where Garry Tallent makes a guest appearance on “Glory Days” and “.” Bruce and the band will be back on the road in 1993, but “” won’t be heard again for a decade, “” disappears for 11 years, and “” will never be heard from again.
+World Tour 1992 wraps up at Rupp Arena in Lexington, where Garry Tallent makes a guest appearance on "Glory Days" and "." Bruce and the band will be back on the road in 1993, but "" won't be heard again for a decade, "" disappears for 11 years, and "" will never be heard from again.
 
 **1992:** [Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)[I Wish I Were Blind](https://estreetshuffle.com/index.php/2021/10/17/roll-of-the-dice-i-wish-i-were-blind/)[The Big Muddy](http://estreetshuffle.com/index.php/2019/01/29/roll-of-the-dice-the-big-muddy/)
 
@@ -52,13 +52,13 @@ World Tour 1992 wraps up at Rupp Arena in Lexington, where Garry Tallent makes a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1992-12-17.png?resize=758%2C285&amp;ssl=1)
 
-After a brief side trip to Boston, Bruce closes out his solo acoustic stand at the Beacon Theater in New York City, where he plays “” for the first time since he debuted it at the Christic shows five years earlier.
+After a brief side trip to Boston, Bruce closes out his solo acoustic stand at the Beacon Theater in New York City, where he plays "" for the first time since he debuted it at the Christic shows five years earlier.
 
 **1995:** [The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)
 
 [https://www.youtube.com/embed/agccv-vdZR4?feature=oembed](https://www.youtube.com/embed/agccv-vdZR4?feature=oembed)
 
-Bruce launches a tradition that will continue for several years to come, calling on friends to help throw a big holiday concert at Asbury Park’s Convention Hall to benefit local charities. On hand are the Max Weinberg 7, Danny, Garry, Roy, Patti (who debuts new music), Soozie, Steve, Nils, Clarence, Southside, Lisa Lowell, and Bobby Bandiera. In the encores, Bruce debuts a brand new song, “My City of Ruins,” written for and dedicated to Asbury Park. Before a year is up, however, the song will grow and take on new meaning and resonance to a wider audience.
+Bruce launches a tradition that will continue for several years to come, calling on friends to help throw a big holiday concert at Asbury Park's Convention Hall to benefit local charities. On hand are the Max Weinberg 7, Danny, Garry, Roy, Patti (who debuts new music), Soozie, Steve, Nils, Clarence, Southside, Lisa Lowell, and Bobby Bandiera. In the encores, Bruce debuts a brand new song, "My City of Ruins," written for and dedicated to Asbury Park. Before a year is up, however, the song will grow and take on new meaning and resonance to a wider audience.
 
 **2000:**
 
@@ -80,7 +80,7 @@ Bruce launches a tradition that will continue for several years to come, calling
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2000-12-17c.png?resize=758%2C743&amp;ssl=1)
 
-Bruce closes out the 2002 leg of the Rising Tour at the Conseco Fieldhouse in Indianapolis, where he tour premieres a rare “.”
+Bruce closes out the 2002 leg of the Rising Tour at the Conseco Fieldhouse in Indianapolis, where he tour premieres a rare "."
 
 **2002:** [Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)
 
@@ -88,7 +88,7 @@ Bruce closes out the 2002 leg of the Rising Tour at the Conseco Fieldhouse in In
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2002-12-17.png?resize=758%2C427&amp;ssl=1)
 
-Elliott Murphy guest stars on “” when the Magic Tour stops for a night in Paris.
+Elliott Murphy guest stars on "" when the Magic Tour stops for a night in Paris.
 
 **2007:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 

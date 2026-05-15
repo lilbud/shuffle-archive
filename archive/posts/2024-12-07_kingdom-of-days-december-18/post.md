@@ -22,15 +22,15 @@ A scheduled Darkness show in Portland, Oregon is postponed to the following day.
 
 **1978:**
 
-The River Tour comes home (or close to it, anyway) for the holidays, as Bruce and the band play their first of two nights at Madison Square Garden. Early in the set, they play “” for the first time ever.
+The River Tour comes home (or close to it, anyway) for the holidays, as Bruce and the band play their first of two nights at Madison Square Garden. Early in the set, they play "" for the first time ever.
 
-**1980:** [Who’ll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)
+**1980:** [Who'll Stop the Rain](https://estreetshuffle.com/index.php/2023/07/12/cover-me-wholl-stop-the-rain/)
 
 [https://videopress.com/embed/nmrhM2Ww?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/nmrhM2Ww?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce joins local musicians at the Stone Pony and plays “” for local ill and disabled children.
+Bruce joins local musicians at the Stone Pony and plays "" for local ill and disabled children.
 
-**1988:**[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
+**1988:**[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
 
 
@@ -52,6 +52,6 @@ Bruce holds his second of two inaugural Asbury Park holiday shows at Convention 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/2000-12-18b.png?resize=758%2C303&amp;ssl=1)
 
-BBC Radio 4 airs Bruce’s October 19th interview with Kirsty Young on in which Bruce chooses eight songs he wouldn’t want to live without.
+BBC Radio 4 airs Bruce's October 19th interview with Kirsty Young on in which Bruce chooses eight songs he wouldn't want to live without.
 
-**2016:***Desert Island Discs,* <https://estreetshuffle.com/wp-content/uploads/2023/12/DesertIslandDiscs-20161218-BruceSpringsteen.mp3>
+**2016:***Desert Island Discs*, <https://estreetshuffle.com/wp-content/uploads/2023/12/DesertIslandDiscs-20161218-BruceSpringsteen.mp3>

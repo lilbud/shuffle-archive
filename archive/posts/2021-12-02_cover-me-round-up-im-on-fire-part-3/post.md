@@ -14,7 +14,7 @@ Next is the most adventurous of today's batch. Harry Manx's music has a unique s
 
 [Watch on Youtube: Harry Manx & Kevin Breit - I'm on Fire ( Album / Studio Version )](https://www.youtube.com/watch?v=iVBhmab70PA)
 
-Netherlands-based Nikki Henskens is our newest artist in today's round-up. She just released *Balcony Baby,* her debut EP of original material*,* during the pandemic lockdown. You can check out her original music [here](https://nikkihenskens.nl/?fbclid=IwAR1Vrl2RDTKddAsQ94oE9kGLFywlx67RJStqsFsrBCfh7iGb5mxFMHOf6PU), but she's quite the cover artist as well. Her gorgeous vocals are front and center in this intimate solo performance of "I'm on Fire."
+Netherlands-based Nikki Henskens is our newest artist in today's round-up. She just released *Balcony Baby*, her debut EP of original material**, during the pandemic lockdown. You can check out her original music [here](https://nikkihenskens.nl/?fbclid=IwAR1Vrl2RDTKddAsQ94oE9kGLFywlx67RJStqsFsrBCfh7iGb5mxFMHOf6PU), but she's quite the cover artist as well. Her gorgeous vocals are front and center in this intimate solo performance of "I'm on Fire."
 
 [Watch on Youtube: I'm On Fire (Bruce Springsteen) covered by Nikki Henskens (live at Fiori e Musica)](https://www.youtube.com/watch?v=RPTVH6XLUEI)
 

@@ -14,11 +14,11 @@ Tyrone Davis was himself, and that was enough to jump start a career that took h
 
 When Bruce Springsteen covered it a half-century later, he wisely stayed with the original arrangement, right down to its trademark percussion and strings. He easily had the chops to go toe to toe with Davis vocally, so why fix something that wasn't broken?
 
-"Turn Back the Hands of Time" was such a good fit for Springsteen, in fact, that he released it as a single on the same day as his album of covers, *Only the Strong Survive,* with a natty performance video to promote it.
+"Turn Back the Hands of Time" was such a good fit for Springsteen, in fact, that he released it as a single on the same day as his album of covers, *Only the Strong Survive*, with a natty performance video to promote it.
 
 [Watch on Youtube: Bruce Springsteen - Turn Back the Hands of Time (Official Video)](https://www.youtube.com/watch?v=lTRS-dNAgvA)
 
-Four days later, Springsteen performed it live on *The Tonight Show,* with a big band that included his former bandmate David Sancious. It was a spectacular performance, arguably the strongest of his promotional appearances, and it seemed like "Turn Back the Hands of Time" would be a lock for his upcoming tour.
+Four days later, Springsteen performed it live on *The Tonight Show*, with a big band that included his former bandmate David Sancious. It was a spectacular performance, arguably the strongest of his promotional appearances, and it seemed like "Turn Back the Hands of Time" would be a lock for his upcoming tour.
 
 But of course here we are almost two years later, still waiting for a proper concert debut. Who knows if we'll ever see one, but at least we can always travel back to November 15, 2022 and imagine how great "Turn Back the Hands of Time" would sound live on the E Street stage.
 

@@ -36,7 +36,7 @@ The Darkness Tour returns to the east coast, starting with this show in Syracuse
 
 [https://videopress.com/embed/SLGR7g0C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/SLGR7g0C?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce and the band play their second of six shows at the Philadelphia Spectrum on the Born in the U.S.A. Tour, tour premiering “.”
+Bruce and the band play their second of six shows at the Philadelphia Spectrum on the Born in the U.S.A. Tour, tour premiering "."
 
 **1984:** [Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)
 
@@ -44,13 +44,13 @@ Bruce and the band play their second of six shows at the Philadelphia Spectrum o
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1984-0912-207x300.jpg?resize=758%2C1098)
 
-Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park’s Convention Hall.
+Bruce and the E Street Band rehearse for their upcoming Magic Tour at Asbury Park's Convention Hall.
 
 **2007:**
 
-The Working on a Dream Tour starts a southern swing with a show at the Ford Amphitheater in Tampa, with two notable tour premieres: the very first E Street Band performance of “” and “” (last played by the E Street Band 28 years prior).
+The Working on a Dream Tour starts a southern swing with a show at the Ford Amphitheater in Tampa, with two notable tour premieres: the very first E Street Band performance of "" and "" (last played by the E Street Band 28 years prior).
 
-**2009:** [All or Nothin’ At All](http://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)
+**2009:** [All or Nothin' At All](http://estreetshuffle.com/index.php/2018/01/30/roll-of-the-dice-all-or-nothing-at-all/)[Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)
 
 [https://www.youtube.com/embed/OpaaaA0M0j8?feature=oembed](https://www.youtube.com/embed/OpaaaA0M0j8?feature=oembed)
 
@@ -66,7 +66,7 @@ The Working on a Dream Tour starts a southern swing with a show at the Ford Amph
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/2009-09-12b-300x132.jpg?resize=758%2C334)
 
-The South American leg of the Wrecking Ball Tour kicks off at Movistar Arena in Santiago, Chile, Bruce’s first performance in this country. The encores begin with a Spanish-language cover of “” by activist Victor Jara, sung by Bruce in Spanish.
+The South American leg of the Wrecking Ball Tour kicks off at Movistar Arena in Santiago, Chile, Bruce's first performance in this country. The encores begin with a Spanish-language cover of "" by activist Victor Jara, sung by Bruce in Spanish.
 
 **2013:** [Manifesto](https://estreetshuffle.com/index.php/2021/01/31/cover-me-manifesto/)
 

@@ -18,7 +18,7 @@ The Castiles open for The Broadways at the Ocean Side Surf Club in Sea Bright, N
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1967-1222.jpg?resize=758%2C927)
 
-Bruce is in California visiting his parents, with no set return date. It appears that he anticipates staying a while, though, because he takes the time to obtain his California driver’s license.
+Bruce is in California visiting his parents, with no set return date. It appears that he anticipates staying a while, though, because he takes the time to obtain his California driver's license.
 
 **1971:**
 
@@ -26,7 +26,7 @@ Bruce is in California visiting his parents, with no set return date. It appears
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/cadriverlice-300x212.jpg?resize=758%2C535)
 
-Bruce and his band headline at Uncle Al’s Erlton Theater Lounge in Cherry Hill, New Jersey.
+Bruce and his band headline at Uncle Al's Erlton Theater Lounge in Cherry Hill, New Jersey.
 
 **1973:**
 
@@ -34,13 +34,13 @@ Bruce and his band headline at Uncle Al’s Erlton Theater Lounge in Cherry Hill
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/1973-1222-242x300.jpeg?resize=758%2C941)
 
-Bruce calls into WHFS-FM in Bethesda to record a Christmas message for his fans and the station’s listeners.
+Bruce calls into WHFS-FM in Bethesda to record a Christmas message for his fans and the station's listeners.
 
 **1977:**
 
 [https://videopress.com/embed/WyvLEBBw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/WyvLEBBw?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-As “” moves up the charts, host Casey Kasem lauds Bruce’s work ethic.
+As "" moves up the charts, host Casey Kasem lauds Bruce's work ethic.
 
 **1984:** [Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)*American Top 40*<https://estreetshuffle.com/wp-content/uploads/2021/12/AT40-1984-12-22.mp3>
 
@@ -48,7 +48,7 @@ Bruce holds a private holiday party and performance at The Stone Pony in Asbury 
 
 **2002:**
 
-Bruce makes a surprise appearance at Bobby Bandiera’s Hope Concert at the Count Basie Theater in Red Bank, performing a few numbers with Jon Bon Jovi, Southside Johnny, Gary U.S. Bonds, and others.
+Bruce makes a surprise appearance at Bobby Bandiera's Hope Concert at the Count Basie Theater in Red Bank, performing a few numbers with Jon Bon Jovi, Southside Johnny, Gary U.S. Bonds, and others.
 
 **2008:**
 

@@ -18,7 +18,7 @@ Bruce and the E Street Band bring the Darkness Tour to the Sports Arena in Toled
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1978-0605.jpg?resize=758%2C1421&amp;ssl=1)
 
-At the final night of a six-night stand at London’s Wembley Arena on the River Tour, Bruce plays “” for the very first time. This show is available for purchase as part of Bruce’s official archive series–get it .
+At the final night of a six-night stand at London's Wembley Arena on the River Tour, Bruce plays "" for the very first time. This show is available for purchase as part of Bruce's official archive series–get it .
 
 **1981:** [Jole Blon](http://estreetshuffle.com/index.php/2019/08/29/matr-gary-u-s-bonds-and-bruce-springsteen-jole-blon/)[here](http://live.brucespringsteen.net/live-music/0,19985/Bruce-Springsteen---The-E-Street-Band-mp3-flac-download-6-5-1981-Wembley-Arena-London-UK.html)
 
@@ -40,7 +40,7 @@ At the final night of a six-night stand at London’s Wembley Arena on the River
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1981-06-05.jpg?resize=758%2C394&amp;ssl=1)
 
-Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features the European debuts of “” and “.”
+Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features the European debuts of "" and "."
 
 **1985:** [Darlington County](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)[Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)
 
@@ -50,7 +50,7 @@ Night Two at St. James Park in Newcastle on the Born in the U.S.A. Tour features
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1985-06-05.jpg?resize=758%2C1300&amp;ssl=1)
 
-Bruce and his new band (plus Stevie and Patti) play a rehearsal show–only four days after they first began rehearsing together–broadcast live from Hollywood Center Studios Soundstage. For more highlights from this show, see today’s 
+Bruce and his new band (plus Stevie and Patti) play a rehearsal show–only four days after they first began rehearsing together–broadcast live from Hollywood Center Studios Soundstage. For more highlights from this show, see today's 
 
 **1992:** [guest blog.](http://estreetshuffle.com/?p=18728)*Where the Band Was*
 
@@ -58,7 +58,7 @@ Bruce and his new band (plus Stevie and Patti) play a rehearsal show–only four
 
 [https://www.youtube.com/embed/KExQodeFrdU?feature=oembed](https://www.youtube.com/embed/KExQodeFrdU?feature=oembed)
 
-Bruce attends Mariah Carey’s wedding to Tommy Mottola, president of Sony Music in Manhattan.
+Bruce attends Mariah Carey's wedding to Tommy Mottola, president of Sony Music in Manhattan.
 
 **1993:**
 
@@ -76,7 +76,7 @@ The Reunion Tour moves on to Spain, with a single show at Estadio la Romareda in
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDNk3-1NLB5Ele9zP7rXXd5](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zDNk3-1NLB5Ele9zP7rXXd5)
 
-Bruce and the Sessions Band appear on Later that night (the Tonight Show tapes during the day), the band plays a show at the Greek Theater in L.A., where Roy Bittan guest-stars on “.” Two videos of “” below, both pro-shot–one from the Tonight Show and one from the concert.
+Bruce and the Sessions Band appear on Later that night (the Tonight Show tapes during the day), the band plays a show at the Greek Theater in L.A., where Roy Bittan guest-stars on "." Two videos of "" below, both pro-shot–one from the Tonight Show and one from the concert.
 
 **2006:** *The Tonight Show with Jay Leno.* [Pay Me My Money Down](http://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)[How Can a Poor Man Stand Such Times and Live](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)
 
@@ -96,7 +96,7 @@ Bruce releases his album.
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZqlZZkO9kobqgum89LpuQ1](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZqlZZkO9kobqgum89LpuQ1)
 
-Swedish fans at the second of three Working on a Dream shows in Stockholm are treated to the tour premiere of “” and the first of only three performances ever of “.”
+Swedish fans at the second of three Working on a Dream shows in Stockholm are treated to the tour premiere of "" and the first of only three performances ever of "."
 
 **2009:** [Lost in the Flood](https://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)[Queen of the Supermarket](http://estreetshuffle.com/index.php/2018/10/04/roll-of-the-dice-queen-of-the-supermarket/)
 
@@ -108,9 +108,9 @@ Swedish fans at the second of three Working on a Dream shows in Stockholm are tr
 
 [https://www.youtube.com/embed/r9_wvmOitoo?feature=oembed](https://www.youtube.com/embed/r9_wvmOitoo?feature=oembed)
 
-Bruce returns to Wembley Stadium in London, opening with two tour premieres: “” and “.” Other highlights include the tour premiere of “” (acoustic), and a dedication of “” to the late, great Muhammad Ali.
+Bruce returns to Wembley Stadium in London, opening with two tour premieres: "" and "." Other highlights include the tour premiere of "" (acoustic), and a dedication of "" to the late, great Muhammad Ali.
 
-**2016:** [Does this Bus Stop at 82nd Street](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)[I’ll Work for Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
+**2016:** [Does this Bus Stop at 82nd Street](http://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)[Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)[I'll Work for Your Love](http://estreetshuffle.com/index.php/2018/02/14/roll-of-the-dice-ill-work-for-your-love/)[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
 
 [https://www.youtube.com/embed/VV9Rtf21lO8?feature=oembed](https://www.youtube.com/embed/VV9Rtf21lO8?feature=oembed)
 
@@ -124,7 +124,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce makes a surprise guest appearance with Coldplay at MetLife Stadium in East Rutherford, duetting with Chris Martin on “” and “.”
+Bruce makes a surprise guest appearance with Coldplay at MetLife Stadium in East Rutherford, duetting with Chris Martin on "" and "."
 
 **2022:** [Working on a Dream](https://estreetshuffle.com/index.php/2019/07/04/roll-of-the-dice-working-on-a-dream/)[Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 

@@ -2,7 +2,7 @@
 
 Both albums have stood the test of time, ranking only three notches apart on *Rolling Stone's* 500 Greatest Albums of All Time.
 
-The connections between Bruce and Patti run all the way back to the release of *Horses,* and possibly even before (they both attended a birthday party for New York club owner Mike Porco just a few weeks prior to Patti's November album release).
+The connections between Bruce and Patti run all the way back to the release of *Horses*, and possibly even before (they both attended a birthday party for New York club owner Mike Porco just a few weeks prior to Patti's November album release).
 
 During the *Born to Run/Horses* era, Bruce made a few appearances at Patti's concerts, but none as surprising and substantial as the night of November 26, 1976.
 

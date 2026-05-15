@@ -2,7 +2,7 @@
 
 *Audio for 2006; review for 2012; new entry for 2024***New for 2025:**
 
-Clarence Clemons plays his final show with Norman Selden’s Joyful Noyze at the Club Plaza in Bayville, New Jersey. Four days later, he will perform as a member of Bruce Springsteen’s new band.
+Clarence Clemons plays his final show with Norman Selden's Joyful Noyze at the Club Plaza in Bayville, New Jersey. Four days later, he will perform as a member of Bruce Springsteen's new band.
 
 **1972:**
 
@@ -34,7 +34,7 @@ Bruce and the E Street Band play their first of two Born in the U.S.A. shows at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1984-10-21c-300x75.png?resize=758%2C190)
 
-Bruce and his new touring band play their first of two nights at Mountain View’s Shoreline Amphitheater.
+Bruce and his new touring band play their first of two nights at Mountain View's Shoreline Amphitheater.
 
 **1992:**
 
@@ -56,7 +56,7 @@ Bruce joins John Eddie, Greg Kihn, Marshall Crenshaw, and Elliott Murphy on stag
 
 [https://www.youtube.com/embed/9osA0jMFeBk?feature=oembed](https://www.youtube.com/embed/9osA0jMFeBk?feature=oembed)
 
-Bruce joins Joe Grushecky and The Houserockers for their second of two shows at Nick’s Fat City in Pittsburgh, where Bruce plays “” in full for the first and only time. “” will eventually be released on Grushecky’s CD, and several songs from this show will be released on the 25th anniversary re-issue of .
+Bruce joins Joe Grushecky and The Houserockers for their second of two shows at Nick's Fat City in Pittsburgh, where Bruce plays "" in full for the first and only time. "" will eventually be released on Grushecky's CD, and several songs from this show will be released on the 25th anniversary re-issue of .
 
 **1995:** [Gimme Shelter](http://estreetshuffle.com/index.php/2019/09/09/matr-joe-grushecky-and-bruce-springsteen-gimme-shelter/)[Rebel Music](http://estreetshuffle.com/index.php/2020/03/25/matr-joe-grushecky-and-bruce-springsteen-rebel-music/)*October Assault* [](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)*American Babylon*
 
@@ -66,7 +66,7 @@ Bruce joins Joe Grushecky and The Houserockers for their second of two shows at 
 
 [https://www.youtube.com/embed/B5nlBl0H6YM?feature=oembed](https://www.youtube.com/embed/B5nlBl0H6YM?feature=oembed)
 
-Bruce plays a solo acoustic show at Arizona State University in Tempe, where local resident Nils Lofgren makes a guest appearance for “”
+Bruce plays a solo acoustic show at Arizona State University in Tempe, where local resident Nils Lofgren makes a guest appearance for ""
 
 **1996:** [No Surrender.](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)
 
@@ -94,13 +94,13 @@ Bruce, Patti, Max, and Jon Bon Jovi perform a cover set at a charity benefit/auc
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2000-10-21b-300x116.png?resize=758%2C293)
 
-Bruce plays a solo acoustic show at the Dunkin’ Donuts Center in Providence, where he plays “” on acoustic guitar for the first time on the tour.
+Bruce plays a solo acoustic show at the Dunkin' Donuts Center in Providence, where he plays "" on acoustic guitar for the first time on the tour.
 
 **2005:** [Atlantic City](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)
 
 [https://videopress.com/embed/mdvpoUqG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/mdvpoUqG?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce and the Sessions Band continue their Spanish tour with a show in Valencia, debuting their cover of “.”
+Bruce and the Sessions Band continue their Spanish tour with a show in Valencia, debuting their cover of "."
 
 **2006:** [Love of the Common People](http://estreetshuffle.com/index.php/2020/10/21/cover-me-love-of-the-common-people/)
 
@@ -110,7 +110,7 @@ Bruce and the Sessions Band continue their Spanish tour with a show in Valencia,
 
 [https://www.youtube.com/embed/jkIGTsVsbLk?feature=oembed](https://www.youtube.com/embed/jkIGTsVsbLk?feature=oembed)
 
-Bruce and the E Street Band bring the Magic Tour to Chicago’s United Center for the first of two nights.
+Bruce and the E Street Band bring the Magic Tour to Chicago's United Center for the first of two nights.
 
 **2007:**
 
@@ -122,9 +122,9 @@ Bruce and the E Street Band bring the Magic Tour to Chicago’s United Center fo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-21b-246x300.png?resize=758%2C924)
 
-Bruce and the band play a Wrecking Ball show at Copps Coliseum in Hamilton, Ontario, where Bruce tour premieres “” in tribute to an 11-year-old girl who recently passed away.
+Bruce and the band play a Wrecking Ball show at Copps Coliseum in Hamilton, Ontario, where Bruce tour premieres "" in tribute to an 11-year-old girl who recently passed away.
 
-**2012:** [Terry’s Song](http://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)
+**2012:** [Terry's Song](http://estreetshuffle.com/index.php/2018/07/30/roll-of-the-dice-terrys-song/)
 
 [https://www.youtube.com/embed/wLmM7zJFX_A?feature=oembed](https://www.youtube.com/embed/wLmM7zJFX_A?feature=oembed)
 

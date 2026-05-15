@@ -1,4 +1,4 @@
-When Warren Zevon was diagnosed with terminal lung cancer, he wrote and recorded a final album, *The Wind,* replete with themes of finality and metaphors of mortality. The album was released just two weeks before Zevon’s death.
+When Warren Zevon was diagnosed with terminal lung cancer, he wrote and recorded a final album, *The Wind*, replete with themes of finality and metaphors of mortality. The album was released just two weeks before Zevon's death.
 
 Zevon tapped some friends to help him complete his final work, Bruce among them.
 

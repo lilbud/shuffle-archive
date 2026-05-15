@@ -24,7 +24,7 @@
 
 ![](../../assets/2021/03/1988-04-05.jpg)
 
-**1995:** A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on *The Late Show with David Letterman,* where they premiere "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)."
+**1995:** A busy day for Bruce and the (temporarily) reunited E Street Band: First, they make an appearance on *The Late Show with David Letterman*, where they premiere "[Secret Garden](https://estreetshuffle.com/index.php/2019/05/30/roll-of-the-dice-secret-garden/)."
 
 [Watch on Youtube: Bruce Springsteen & E Street Band on Letterman, April 5, 1995](https://www.youtube.com/watch?v=KLtihzJ6gdw)
 

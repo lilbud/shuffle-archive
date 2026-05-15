@@ -8,7 +8,7 @@ Let's get started with my personal favorite of the bunch: The Ruth Moody Band's 
 
 [Watch on Youtube: The Ruth Moody Band - Dancing in the Dark (Official)](https://www.youtube.com/watch?v=BJbRLHh3j_8)
 
-The Canadian singer-songwriter (and member of The Wailin' Jennys) became a Springsteen fan through *Nebraska,* but when she decided to cover a song of his, she skipped forward a couple of years. "Everyone sort of covers the more ... sort of rawer stuff," she told The Huffington Post in 2013, "and I thought that could potentially be cool to take his greatest hit and folkify it."
+The Canadian singer-songwriter (and member of The Wailin' Jennys) became a Springsteen fan through *Nebraska*, but when she decided to cover a song of his, she skipped forward a couple of years. "Everyone sort of covers the more ... sort of rawer stuff," she told The Huffington Post in 2013, "and I thought that could potentially be cool to take his greatest hit and folkify it."
 
 She's right: it's *very* cool, and even the "heeeeeyyyyy baaaaaaaby" works without the slightest hint of 80s cheese.
 

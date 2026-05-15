@@ -8,11 +8,11 @@ A scheduled gig at Archbishop John Carroll High School in Radnor, Pennsylvania i
 
 **1974:**
 
-Bruce and the E Street Band work on “Sherry Darling” at the Power Station in New York City.
+Bruce and the E Street Band work on "Sherry Darling" at the Power Station in New York City.
 
 **1979:**
 
-Bruce records “My Father’s House” in his home studio. It will be released later on the year on .
+Bruce records "My Father's House" in his home studio. It will be released later on the year on .
 
 **1982:** *Nebraska*
 
@@ -22,7 +22,7 @@ Bruce and the E Street Band record for their upcoming album at The Hit Factory i
 
 **1983:**
 
-Bruce’s World Tour 1993 moves on to Rome for a show at Stadio Flaminio.
+Bruce's World Tour 1993 moves on to Rome for a show at Stadio Flaminio.
 
 **1993:**
 
@@ -36,7 +36,7 @@ The final stand of the Ghost of Tom Joad Tour begins with the first of two shows
 
 [https://www.youtube.com/embed/pSfuW0PzEr4?feature=oembed](https://www.youtube.com/embed/pSfuW0PzEr4?feature=oembed)
 
-The Reunion Tour stops at RDS Arena in Dublin, where the E Street Band plays “Red Headed Woman” for the very first time.
+The Reunion Tour stops at RDS Arena in Dublin, where the E Street Band plays "Red Headed Woman" for the very first time.
 
 **1999:**
 
@@ -50,7 +50,7 @@ is certified gold by the Recording Industry Association of America.
 
 [https://www.youtube.com/embed/Iuh96kiIU2M?list=PLk9jHCsuoh6mPdX4YMgcpjjqh2IW4oDmZ](https://www.youtube.com/embed/Iuh96kiIU2M?list=PLk9jHCsuoh6mPdX4YMgcpjjqh2IW4oDmZ)
 
-Bruce and the E Street Band play their final of three shows at RDS Arena in Dublin as the final European leg of the Magic Tour picks up steam. The setlist features a rare outing for “4th of July, Asbury Park (Sandy).”
+Bruce and the E Street Band play their final of three shows at RDS Arena in Dublin as the final European leg of the Magic Tour picks up steam. The setlist features a rare outing for "4th of July, Asbury Park (Sandy)."
 
 **2008:**
 
@@ -60,7 +60,7 @@ Bruce and the E Street Band play their final of three shows at RDS Arena in Dubl
 
 [https://www.youtube.com/embed/0ojWymGABfs?feature=oembed](https://www.youtube.com/embed/0ojWymGABfs?feature=oembed)
 
-Frankfurt fans get tour premieres of “Summertime Blues,” “Cadillac Ranch,” and “Sherry Darling” as the Wrecking Ball Tour reaches Germany.
+Frankfurt fans get tour premieres of "Summertime Blues," "Cadillac Ranch," and "Sherry Darling" as the Wrecking Ball Tour reaches Germany.
 
 **2012:**
 
@@ -72,7 +72,7 @@ Frankfurt fans get tour premieres of “Summertime Blues,” “Cadillac Ranch,�
 
 [https://www.youtube.com/embed/N4xxbtynLbU?feature=oembed](https://www.youtube.com/embed/N4xxbtynLbU?feature=oembed)
 
-Of all the tour premieres one might predict for the River Tour’s stop in Manchester, “Santa Claus is Comin’ to Town” probably wouldn’t be one of them (but that’s what it was).
+Of all the tour premieres one might predict for the River Tour's stop in Manchester, "Santa Claus is Comin' to Town" probably wouldn't be one of them (but that's what it was).
 
 **2016:**
 

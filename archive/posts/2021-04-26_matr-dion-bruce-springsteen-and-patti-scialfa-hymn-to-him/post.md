@@ -1,6 +1,6 @@
 Dion DiMucci is best known for his early doo-wop and rock hits in the 1960s and 1970s, but at the dawn of the eighties, Dion took a spiritual turn, becoming a born-again Christian and releasing a half-dozen Christian rock albums.
 
-The last of these was his 1986 LP *Velvet & Steel,* which featured a very eighties devotional entitled "Hymn to Him."
+The last of these was his 1986 LP *Velvet & Steel*, which featured a very eighties devotional entitled "Hymn to Him."
 
 [Watch on Youtube: Hymn to Him](https://www.youtube.com/watch?v=5kHUhwmN6s8)
 
@@ -14,7 +14,7 @@ Patti's husband was taken by it, too–so much so that he was moved to add his o
 
 [Watch on Youtube: Dion - "Hymn To Him" featuring Patti Scialfa & Bruce Springsteen - Official Music Video](https://www.youtube.com/watch?v=7BJ4Kg3Dl_4)
 
-"Hymn to Him" was released as an online video single on May 1, 2020, a month in advance of *Blues With Friends,* to a generally positive reception.
+"Hymn to Him" was released as an online video single on May 1, 2020, a month in advance of *Blues With Friends*, to a generally positive reception.
 
 And while it doesn't seem like a live performance is on the horizon any time soon, we can be grateful for one more beautiful piece of music from an otherwise mostly quiet year.
 

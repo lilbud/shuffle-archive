@@ -2,7 +2,7 @@ In 2003, songwriters Kevin Bowe and Todd Cerney wrote "The Blues Is My Business"
 
 [Watch on Youtube: The Blues Is My Business](https://www.youtube.com/watch?v=27cpSolK5Js)
 
-The song certainly caught Little Steven's attention–he covered it for his latest album, *Soulfire,* and he's been performing it all throughout his latest tour.
+The song certainly caught Little Steven's attention–he covered it for his latest album, *Soulfire*, and he's been performing it all throughout his latest tour.
 
 [Watch on Youtube: Little Steven - Blues Is My Business (Audio)](https://www.youtube.com/watch?v=5hkwIB6XFMw)
 

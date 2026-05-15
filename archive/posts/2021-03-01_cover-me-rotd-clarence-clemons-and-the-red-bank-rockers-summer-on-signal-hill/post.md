@@ -18,7 +18,7 @@ The retitling appears to have been a late decision, however, because when the so
 
 ![](../../assets/2021/03/nowandforever.jpg)
 
-Dave Marsh set the record straight in the very next issue of *Backstreets,* but for many fans, the is-it-or-isn't-it debate continued.
+Dave Marsh set the record straight in the very next issue of *Backstreets*, but for many fans, the is-it-or-isn't-it debate continued.
 
 In 2002, *Backstreets* finally got a chance to definitively settle the matter when Christopher Phillips had a chance to interview The Big Man himself. When asked who the studio musicians were on "Summer on Signal Hill," Clarence flatly stated that they were his band, The Red Bank Rockers.
 

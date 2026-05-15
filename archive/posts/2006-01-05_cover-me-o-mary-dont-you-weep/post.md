@@ -2,7 +2,7 @@ Of all the traditional songs that Bruce Springsteen arranged and recorded for *W
 
 "O Mary Don't You Weep" is a pre-Civil War African-American spiritual that draws heavily on biblical imagery from both testaments. Contrary to popular belief, the titular Mary is not the mother of Jesus; nor is it Mary Magdalene. The song refers to Mary of Bethany, who grieved with Jesus over the death of her brother Lazarus. (Many versions of the song refer to Mary's sister Martha also.) Moved by Mary's grief, Jesus raised Lazarus from the dead.
 
-Blended with the story of Exodus and the tale of the Great Flood, "O Mary Don't You Weep" is full of coded messages to an enslaved people: *Don't weep, don't mourn,* because God will help. Justice is coming (*Pharoah's army got drowned-ed. No more water but fire next time*). You will be free: *There'll be good times by and by*.
+Blended with the story of Exodus and the tale of the Great Flood, "O Mary Don't You Weep" is full of coded messages to an enslaved people: *Don't weep, don't mourn*, because God will help. Justice is coming (*Pharoah's army got drowned-ed. No more water but fire next time*). You will be free: *There'll be good times by and by*.
 
 No one knows who first wrote it, but it almost doesn't matter so often have its lyrics changed. No one knows who first sang it, and it's almost impossible to catalog all the recordings.
 

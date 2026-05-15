@@ -2,7 +2,7 @@
 
 ![](../../assets/2018/06/1973-0624.jpg)
 
-**1977:** Bruce and the E Street Band record “Streets of Fire” at Atlantic Studios in New York City.
+**1977:** Bruce and the E Street Band record "Streets of Fire" at Atlantic Studios in New York City.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HzIm7Ek6Vv0)
 
@@ -10,15 +10,15 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=1tApe9uQUCs)
 
-**1984:** Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man’s West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.
+**1984:** Bruce and the E Street Band rehearse for their upcoming Born in the U.S.A. Tour at the former site of Big Man's West in Red Bank, New Jersey. Nils has come down with chronic laryngitis, so Bruce invites Asbury Jukes back-up singer Patti Scialfa to try out as a backing vocalist for the E Street Band.
 
-**1989:** Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including “Under the Boardwalk.”
+**1989:** Bruce sits in with Bobby Bandiera at The Stone Pony in Asbury Park for three songs, including "Under the Boardwalk."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=j0h8kVXEdX0)
 
 ![](../../assets/2021/06/1989-06-24.jpg)
 
-**1993:** A momentous night: Bruce and his touring band play a special “Concert to Fight Hunger” at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in “Tenth Avenue Freeze-Out.” For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording.
+**1993:** A momentous night: Bruce and his touring band play a special "Concert to Fight Hunger" at the Brendan Byrne Arena in East Rutherford. Among the many, many guests: Joe Ely, Southside Johnny, The Miami Horns, Steve Van Zandt, Max Weinberg, Patti Scialfa, Soozie Tyrell… and in a thrilling moment: Clarence Clemons, who joins at the perfect moment in "Tenth Avenue Freeze-Out." For a brief moment in time, the E Street Band is almost reunited. Watch that moment below, along with news coverage, and then go get the official live recording.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=gc2zE_AcJBc)
 
@@ -54,7 +54,7 @@
 
 ![](../../assets/2020/06/2006-06-24.jpg)
 
-**2007:** Bruce performs “If I Should Fall Behind” at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for “[You Neve](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)r[Can Tell](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/).”
+**2007:** Bruce performs "If I Should Fall Behind" at a wedding for friends of his in River Vale, New Jersey; he later joins the wedding band for "[You Neve](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)r[Can Tell](https://estreetshuffle.com/index.php/2020/03/14/cover-me-you-never-can-tell/)."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=QIQjpeIfk9s)
 
@@ -66,7 +66,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=XNoFc-kna6g)
 
-**2019:** *Western Stars* debuts at #2 on the Billboard Album chart, just behind Madonna’s *Madame X* album–the first time Bruce and Madonna have sat atop the chart together since 1985.
+**2019:** *Western Stars* debuts at #2 on the Billboard Album chart, just behind Madonna's *Madame X* album–the first time Bruce and Madonna have sat atop the chart together since 1985.
 
 **2021:** Bruce holds a friends-and-family rehearsal show for the return of *Springsteen on Broadway* at the St. James Theater in New York City.
 

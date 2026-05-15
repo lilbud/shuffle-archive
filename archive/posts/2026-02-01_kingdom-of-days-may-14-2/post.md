@@ -1,6 +1,6 @@
 
 
-Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under that name, at Asbury Park’s Sunshine In.
+Dr. Zoom and the Sonic Boom make their debut (and penultimate) performance under that name, at Asbury Park's Sunshine In.
 
 **1971:**
 
@@ -20,13 +20,13 @@ Bruce cancels a scheduled gig at Tusculum College in Greeneville, Tennessee, to 
 
 **1974:** *Born to Run*
 
-Bruce rehearses with the E Street Band at his home studio in Holmdel. Listen to their rehearsal of “Bring on the Night” below.
+Bruce rehearses with the E Street Band at his home studio in Holmdel. Listen to their rehearsal of "Bring on the Night" below.
 
 **1979:**
 
 [https://www.youtube.com/embed/48hBjV19GlM?feature=oembed](https://www.youtube.com/embed/48hBjV19GlM?feature=oembed)
 
-Those poor ticket holders for Bruce’s second River Tour show in Manchester, England: The original concert was postponed from March 24th when Bruce took ill, and on this night, Bruce is sick again. He performs an abbreviated set (five songs fewer than the night before) at the Apollo Theatre, the shortest show of the European leg.
+Those poor ticket holders for Bruce's second River Tour show in Manchester, England: The original concert was postponed from March 24th when Bruce took ill, and on this night, Bruce is sick again. He performs an abbreviated set (five songs fewer than the night before) at the Apollo Theatre, the shortest show of the European leg.
 
 **1981:**
 
@@ -50,11 +50,11 @@ Bruce and Julianne hold their wedding reception, a day after their wedding.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1985-05-14.jpg?resize=542%2C959&amp;ssl=1)
 
-On , host Casey Kasem introduces Natalie Cole’s cover of “Pink Cadillac” with a medley of Springsteen covers that hit the Top 40.
+On , host Casey Kasem introduces Natalie Cole's cover of "Pink Cadillac" with a medley of Springsteen covers that hit the Top 40.
 
 **1988:** *American Top 40*<https://estreetshuffle.com/wp-content/uploads/2022/05/AT40-1988-05-14.mp3>
 
-Bruce’s World Tour 1993 moves on to Germany for the first of four shows. The opener is in Berlin, where Bruce plays “Satan’s Jeweled Crown” for the very first time. This show is available as part of Bruce’s official archive series.
+Bruce's World Tour 1993 moves on to Germany for the first of four shows. The opener is in Berlin, where Bruce plays "Satan's Jeweled Crown" for the very first time. This show is available as part of Bruce's official archive series.
 
 **1993:**
 
@@ -64,7 +64,7 @@ Bruce’s World Tour 1993 moves on to Germany for the first of four shows. The o
 
 [https://www.youtube.com/embed/spuJ2Tg638s?feature=oembed](https://www.youtube.com/embed/spuJ2Tg638s?feature=oembed)
 
-At his solo show at the Patriot Center in Fairfax, Bruce treats fans to the tour premieres of “Wreck on the Highway” (his first performance of that song in over a decade), “The Ghost of Tom Joad,” and “Dry Lightning.”
+At his solo show at the Patriot Center in Fairfax, Bruce treats fans to the tour premieres of "Wreck on the Highway" (his first performance of that song in over a decade), "The Ghost of Tom Joad," and "Dry Lightning."
 
 **2005:**
 
@@ -106,7 +106,7 @@ Bruce continues playing full albums on the Wrecking Ball Tour, this time in Cope
 
 [https://www.youtube.com/embed/tkucXqYD6I0?feature=oembed](https://www.youtube.com/embed/tkucXqYD6I0?feature=oembed)
 
-The High Hopes Tour makes its penultimate stop in Hershey, Pennsylvania, where the set includes an opening “Clampdown,” the tour premiere of “Be True,” and a stunning solo piano performance of “For You.”
+The High Hopes Tour makes its penultimate stop in Hershey, Pennsylvania, where the set includes an opening "Clampdown," the tour premiere of "Be True," and a stunning solo piano performance of "For You."
 
 **2014:**
 
@@ -122,7 +122,7 @@ The High Hopes Tour makes its penultimate stop in Hershey, Pennsylvania, where t
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2014-05-14a-1.jpg?resize=758%2C817&amp;ssl=1)
 
-The European leg of the River Tour kicks off with a show at Camp Nou in Barcelona. Immediately noticeable: Bruce is no longer playing the entire album, although he does play much of it, along with a rare outing for “I Wanna Be With You” and the tour premiere of “Twist and Shout.”
+The European leg of the River Tour kicks off with a show at Camp Nou in Barcelona. Immediately noticeable: Bruce is no longer playing the entire album, although he does play much of it, along with a rare outing for "I Wanna Be With You" and the tour premiere of "Twist and Shout."
 
 **2016:** *The River*
 
@@ -130,7 +130,7 @@ The European leg of the River Tour kicks off with a show at Camp Nou in Barcelon
 
 [https://www.youtube.com/embed/5iwY2o496cI?feature=oembed](https://www.youtube.com/embed/5iwY2o496cI?feature=oembed)
 
-The Land of Hope and Dreams Tour kicks off in Manchester with a defiant setlist that includes the live debut of “Rainmaker” and the long-awaited return of “Chimes of Freedom.” Bruce’s opening remarks make news worldwide.
+The Land of Hope and Dreams Tour kicks off in Manchester with a defiant setlist that includes the live debut of "Rainmaker" and the long-awaited return of "Chimes of Freedom." Bruce's opening remarks make news worldwide.
 
 **2025:**
 

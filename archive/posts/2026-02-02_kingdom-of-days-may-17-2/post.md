@@ -1,16 +1,16 @@
 
 
-Bruce and the E Street Band play their second River Tour show in Edinburgh, Scotland, with “The Ties That Bind” in the opening spot for the first time.
+Bruce and the E Street Band play their second River Tour show in Edinburgh, Scotland, with "The Ties That Bind" in the opening spot for the first time.
 
 **1981:**
 
 [https://www.youtube.com/embed/m4LeZxuFzvY?feature=oembed](https://www.youtube.com/embed/m4LeZxuFzvY?feature=oembed)
 
-Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing with the tour premiere of “It’s All Right.”
+Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing with the tour premiere of "It's All Right."
 
 **1993:**
 
-“” makes its Rising Tour premiere in Barcelona.
+"" makes its Rising Tour premiere in Barcelona.
 
 **2003:** [Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)
 
@@ -20,7 +20,7 @@ Bruce wraps up the German leg of his World Tour with a show in Mannheim, closing
 
 [https://www.youtube.com/embed/fbfKpMyBHr0?feature=oembed](https://www.youtube.com/embed/fbfKpMyBHr0?feature=oembed)
 
-Bruce shocks fans at the Tower Theater in Philadelphia when he performs “Iceman” for the very first time, on piano. “Ramrod” makes its tour premiere, and during the soundcheck, Bruce covers Dominic Behan’s “The Patriot Game” on pump organ. This show is available as part of Bruce’s official archive series.
+Bruce shocks fans at the Tower Theater in Philadelphia when he performs "Iceman" for the very first time, on piano. "Ramrod" makes its tour premiere, and during the soundcheck, Bruce covers Dominic Behan's "The Patriot Game" on pump organ. This show is available as part of Bruce's official archive series.
 
 **2005:**
 
@@ -36,7 +36,7 @@ Bruce shocks fans at the Tower Theater in Philadelphia when he performs “Icema
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/2005-05-17c.jpg?resize=755%2C958&amp;ssl=1)
 
-Wolfgang Niedecken joins Bruce and the Sessions Band for “Buffalo Gals” in Frankfurt.
+Wolfgang Niedecken joins Bruce and the Sessions Band for "Buffalo Gals" in Frankfurt.
 
 **2006:**
 
@@ -54,7 +54,7 @@ Bruce joins Mike Ness on stage at The Stone Pony.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/05/2008-0517.jpg?resize=320%2C255&amp;ssl=1)
 
-An amazing Wrecking Ball show in Barcelona, where the tour premieres (“Hungry Heart” and “You Can Look (But You Better Not Touch)” are the least of the highlights. This show will be remembered as the night when the legendary extended instrumental intro to “Prove It All Night” from the Darkness Tour finally returned–by request–after being absent for 32 years.
+An amazing Wrecking Ball show in Barcelona, where the tour premieres ("Hungry Heart" and "You Can Look (But You Better Not Touch)" are the least of the highlights. This show will be remembered as the night when the legendary extended instrumental intro to "Prove It All Night" from the Darkness Tour finally returned–by request–after being absent for 32 years.
 
 **2012:**
 
@@ -66,7 +66,7 @@ At the soundcheck, the band rehearses a song that remains unknown–anyone know 
 
 [https://www.youtube.com/embed/43OA9MuzoGU?feature=oembed](https://www.youtube.com/embed/43OA9MuzoGU?feature=oembed)
 
-The first night of a jaw-dropping two-night closing stand for the High Hopes Tour in an unusual venue: the Mohegan Sun Casino in Uncasville, Connecticut. The set list features an embarrassment of riches from the opening “Racing in the Street ’78” to the tour premiere of “The Price You Pay” and “Quarter to Three” to the closing “Thunder Road.” Little Steven makes his unannounced and triumphant return to the band for these last two shows.
+The first night of a jaw-dropping two-night closing stand for the High Hopes Tour in an unusual venue: the Mohegan Sun Casino in Uncasville, Connecticut. The set list features an embarrassment of riches from the opening "Racing in the Street '78" to the tour premiere of "The Price You Pay" and "Quarter to Three" to the closing "Thunder Road." Little Steven makes his unannounced and triumphant return to the band for these last two shows.
 
 **2014:**
 
@@ -86,7 +86,7 @@ The first night of a jaw-dropping two-night closing stand for the High Hopes Tou
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/The_Day_Mon__May_19__2014_-scaled.jpg?resize=758%2C319&amp;ssl=1)
 
-tracks still dominate the set list as the European leg gathers steam, but there’s still plenty of room for tour premieres: “Fire,” “Murder Incorporated,” “Waitin’ on a Sunny Day” and a solo acoustic “This Hard Land” all make their debut in San Sebastian.
+tracks still dominate the set list as the European leg gathers steam, but there's still plenty of room for tour premieres: "Fire," "Murder Incorporated," "Waitin' on a Sunny Day" and a solo acoustic "This Hard Land" all make their debut in San Sebastian.
 
 **2016:** *The River*
 
@@ -104,7 +104,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City. Actres
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/05/conniebritto.jpg?resize=484%2C500&amp;ssl=1)
 
-Night Two in Manchester on the Land of Hope and Dreams Tour features the return of “Out in the Street” to the setlist, absent since 2023.
+Night Two in Manchester on the Land of Hope and Dreams Tour features the return of "Out in the Street" to the setlist, absent since 2023.
 
 **2025:**
 

@@ -4,7 +4,7 @@ She gets it, that anonymous fan. The rest of this essay is just going to use a l
 
 Although it's my practice here to do so, we're not going to analyze the lyrics to "Streets of Fire" today, because the lyrics are not the point. I'm not even going to print them here; you can look them up if you must.
 
-Because if you're listening to the words, you're doing it wrong. "Streets of Fire" isn't a song you *hear*. It's a song you *feel,* like Jeff Buckley's performance of "Hallelujah" or R.E.M.'s "Everybody Hurts."
+Because if you're listening to the words, you're doing it wrong. "Streets of Fire" isn't a song you *hear*. It's a song you *feel*, like Jeff Buckley's performance of "Hallelujah" or R.E.M.'s "Everybody Hurts."
 
 And when you feel "Streets of Fire," you are in the dark. You are in the rain. You are in the wind.
 

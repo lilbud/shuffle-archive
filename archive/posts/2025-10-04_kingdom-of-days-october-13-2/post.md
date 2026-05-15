@@ -26,15 +26,15 @@ Bruce and the E Street Band bring the Lawsuit Tour to Kean College in Union, New
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/medium.jpg?resize=758%2C758&amp;ssl=1)
 
-Bruce joins Southside Johnny on stage for four songs (including “” and ““) at The Stone Pony in Asbury Park.
+Bruce joins Southside Johnny on stage for four songs (including "" and "") at The Stone Pony in Asbury Park.
 
-**1977:** [Down in the Valley](http://estreetshuffle.com/index.php/2019/01/16/matr-bruce-springsteen-and-southside-johnny-down-in-the-valley/)[Ain’t Too Proud to Beg](http://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)
+**1977:** [Down in the Valley](http://estreetshuffle.com/index.php/2019/01/16/matr-bruce-springsteen-and-southside-johnny-down-in-the-valley/)[Ain't Too Proud to Beg](http://estreetshuffle.com/index.php/2018/10/06/cover-me-aint-too-proud-to-beg/)
 
 [https://www.youtube.com/embed/pBaV-gpRnOg?feature=oembed](https://www.youtube.com/embed/pBaV-gpRnOg?feature=oembed)
 
 Bruce releases his fifth studio album, and The River Tour (already in progress) moves on to the St Paul Civic Center Arena for one night. Parts of the show are captured on Super-8 film.
 
-**1980:** *The River,*
+**1980:** *The River*,
 
 [https://www.youtube.com/embed/HPMEAOlLFt4?feature=oembed](https://www.youtube.com/embed/HPMEAOlLFt4?feature=oembed)
 
@@ -52,7 +52,7 @@ Bruce releases his fifth studio album, and The River Tour (already in progress) 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1980-10-13b-277x300.png?resize=758%2C821)
 
-Neil and Pegi Young hold their first benefit for The Bridge School for children with special needs in Mountain View, California, and Neil enlists a few friends for the inaugural event. Former bandmate Nils Lofgren plays a set (in which Bruce makes a brief guest appearance), and Bruce plays a rare (at the time, at least) acoustic set with Nils and Danny as well. Of note: a new arrangement for “” set to the tune of “,” and an a capella “.” Crosby, Stills, Nash & Young join Bruce for “,” and Tom Petty, Don Henley, and Robin Williams join Bruce and CSNY for the “” finale. This show is available as part of Bruce’s official archive series–get it .
+Neil and Pegi Young hold their first benefit for The Bridge School for children with special needs in Mountain View, California, and Neil enlists a few friends for the inaugural event. Former bandmate Nils Lofgren plays a set (in which Bruce makes a brief guest appearance), and Bruce plays a rare (at the time, at least) acoustic set with Nils and Danny as well. Of note: a new arrangement for "" set to the tune of "," and an a capella "." Crosby, Stills, Nash & Young join Bruce for "," and Tom Petty, Don Henley, and Robin Williams join Bruce and CSNY for the "" finale. This show is available as part of Bruce's official archive series–get it .
 
 **1986:** [Seeds](https://estreetshuffle.com/index.php/2020/10/10/roll-of-the-dice-seeds/)[Rockaway the Days](https://estreetshuffle.com/index.php/2021/03/15/roll-of-the-dice-rockaway-the-days/)[You Can Look (But You Better Not Touch)](http://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)[Teach Your Children](http://estreetshuffle.com/index.php/2018/04/14/matr-crosby-stills-nash-young-and-springsteen-teach-your-children/)[here](http://live.brucespringsteen.net/live-music/0,22746/Bruce-Springsteen---bridge-school-benefit-concert-at-shoreline-amphitheatre-mountain-view-ca-10-13-1986.html)
 
@@ -92,7 +92,7 @@ After an unplanned week off due to illness, Bruce picks World Tour 1992 back up 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1992-10-13-300x110.png?resize=758%2C278)
 
-Bruce and Jackson Browne hold an encore concert for the Vote for Change Tour at the Continental Airlines Arena in East Rutherford. Patti opens the event, with Bruce joining her for two numbers; Jackson follows, with a Bruce guest-appearance on “” Bruce’s set features guest appearances not only by Jackson Browne (on ““) but notably Eddie Vedder for three numbers featuring Bruce’s live debut of “” complete with an inspired sax solo by Clarence.
+Bruce and Jackson Browne hold an encore concert for the Vote for Change Tour at the Continental Airlines Arena in East Rutherford. Patti opens the event, with Bruce joining her for two numbers; Jackson follows, with a Bruce guest-appearance on "" Bruce's set features guest appearances not only by Jackson Browne (on "") but notably Eddie Vedder for three numbers featuring Bruce's live debut of "" complete with an inspired sax solo by Clarence.
 
 **2004:** [Running on Empty.](https://estreetshuffle.com/index.php/2021/03/24/matr-jackson-browne-and-bruce-springsteen-running-on-empty/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[Better Man](https://estreetshuffle.com/index.php/2022/11/10/matr-eddie-vedder-and-bruce-springsteen-better-man/)
 
@@ -112,7 +112,7 @@ Bruce and Jackson Browne hold an encore concert for the Vote for Change Tour at 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2004-10-13b.png?resize=758%2C932&amp;ssl=1)
 
-Bruce brings his solo acoustic Devils & Dust Tour to Chicago’s United Center.
+Bruce brings his solo acoustic Devils & Dust Tour to Chicago's United Center.
 
 **2005:**
 
@@ -126,7 +126,7 @@ The Seeger Sessions Tour stops in Rotterdam for a show at Sportpaleis Ahoy.
 
 [https://www.youtube.com/embed/ATbYBBrMqjU?feature=oembed](https://www.youtube.com/embed/ATbYBBrMqjU?feature=oembed)
 
-Bruce joins the Max Weinberg 7 for six songs during their benefit performance for the Monmouth County SPCA at Max’s farm in Atlantic Highlands, New Jersey.
+Bruce joins the Max Weinberg 7 for six songs during their benefit performance for the Monmouth County SPCA at Max's farm in Atlantic Highlands, New Jersey.
 
 **2007:**
 
@@ -140,9 +140,9 @@ Bruce joins the Max Weinberg 7 for six songs during their benefit performance fo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/2007-10-13b-300x295.png?resize=758%2C745)
 
-Bruce and the E Street Band kick off one final stand of four shows at the Philadelphia Spectrum before its scheduled demolition. Each show will be special in its own right, starting from the first number of the first show: the tour premiere and first E Street Band performance of “” in 36 years. This show also features a full album performance of , Bruce’s only performance of “” to date, and a rare outing for “.”
+Bruce and the E Street Band kick off one final stand of four shows at the Philadelphia Spectrum before its scheduled demolition. Each show will be special in its own right, starting from the first number of the first show: the tour premiere and first E Street Band performance of "" in 36 years. This show also features a full album performance of , Bruce's only performance of "" to date, and a rare outing for "."
 
-**2009:** [Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)*Born to Run*[Little Bit O’Soul](https://estreetshuffle.com/index.php/2019/03/06/cover-me-little-bit-o-soul/)[The Fever](http://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)
+**2009:** [Seaside Bar Song](https://estreetshuffle.com/index.php/2022/10/24/roll-of-the-dice-seaside-bar-song/)*Born to Run*[Little Bit O'Soul](https://estreetshuffle.com/index.php/2019/03/06/cover-me-little-bit-o-soul/)[The Fever](http://estreetshuffle.com/index.php/2020/10/04/roll-of-the-dice-the-fever/)
 
 [https://www.youtube.com/embed/T7CS6kPJ9I8?feature=oembed](https://www.youtube.com/embed/T7CS6kPJ9I8?feature=oembed)
 
@@ -168,7 +168,7 @@ Bruce settles in for a long run of at the Walter Kerr Theater in New York City. 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/10/2017-1003-300x152.jpg?resize=758%2C385)
 
-It’s Night Two Hundred for at the Walter Kerr Theater in New York City. In attendance to help celebrate: comedian Chris Rock, actor Laurence Fishburne, and author Nelson George.
+It's Night Two Hundred for at the Walter Kerr Theater in New York City. In attendance to help celebrate: comedian Chris Rock, actor Laurence Fishburne, and author Nelson George.
 
 **2018:***Springsteen on Broadway*
 
@@ -196,11 +196,11 @@ Bruce spends the weekend at the Ham Yard Hotel in London. speaking to print and 
 
 [https://www.youtube.com/embed/wqB6XsBsHbM?feature=oembed](https://www.youtube.com/embed/wqB6XsBsHbM?feature=oembed)
 
-Without fanfare, Bruce concludes his long-running radio show with Episode 29, “Let’s Talk About Sex.”
+Without fanfare, Bruce concludes his long-running radio show with Episode 29, "Let's Talk About Sex."
 
 **2021:** *From My Home to Yours*<https://estreetshuffle.com/wp-content/uploads/2022/10/2021-10-13-Bruce-E-Street-Radio-DJ-set-29.mp3>
 
-Bruce performs “The Ghost of Tom Joad” and “Dancing in the Dark” at a benefit gala for the USC Shoah Foundation in New York City.
+Bruce performs "The Ghost of Tom Joad" and "Dancing in the Dark" at a benefit gala for the USC Shoah Foundation in New York City.
 
 **2024:**
 

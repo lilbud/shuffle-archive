@@ -16,7 +16,7 @@ Bruce and the still unnamed E Street Band play two shows at the Roxy Theater in 
 
 **1974:**
 
-Eddie Floyd guest-stars on “Raise Your Hand,” and “Knock on Wood” (Floyd’s greatest hit) at Bruce’s show in Memphis. Following the show, Bruce and Steve taxi out to Graceland and jump the gate, hoping to meet Elvis but instead are kicked off the property by security. Watch Bruce tell the story decades later (he gets the year wrong, though).
+Eddie Floyd guest-stars on "Raise Your Hand," and "Knock on Wood" (Floyd's greatest hit) at Bruce's show in Memphis. Following the show, Bruce and Steve taxi out to Graceland and jump the gate, hoping to meet Elvis but instead are kicked off the property by security. Watch Bruce tell the story decades later (he gets the year wrong, though).
 
 **1976:**
 
@@ -28,13 +28,13 @@ Eddie Floyd guest-stars on “Raise Your Hand,” and “Knock on Wood” (Floyd
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_Memphis_Press_Scimitar_Fri__Apr_30__1976_-scaled.jpg?resize=758%2C929&amp;ssl=1)
 
-At Clover Studios in Los Angeles, mixing work is completed for “Fade Away.”
+At Clover Studios in Los Angeles, mixing work is completed for "Fade Away."
 
 **1980:**
 
 [https://www.youtube.com/embed/WP9PHwClSfE?feature=oembed](https://www.youtube.com/embed/WP9PHwClSfE?feature=oembed)
 
-At Night Two at the Sportpaleis Ahoy in Rotterdam, Bruce opens with the premiere of Creedence Clearwater Revival’s “Run Through the Jungle,” rearranged and with new lyrics.
+At Night Two at the Sportpaleis Ahoy in Rotterdam, Bruce opens with the premiere of Creedence Clearwater Revival's "Run Through the Jungle," rearranged and with new lyrics.
 
 **1981:**
 
@@ -42,13 +42,13 @@ At Night Two at the Sportpaleis Ahoy in Rotterdam, Bruce opens with the premiere
 
 [https://www.youtube.com/embed/yN9Y07aDAKI?feature=oembed](https://www.youtube.com/embed/yN9Y07aDAKI?feature=oembed)
 
-Later in the show, Bruce performs “Racing in the Street,” but something moves him to do something unusual during the song’s majestic coda.
+Later in the show, Bruce performs "Racing in the Street," but something moves him to do something unusual during the song's majestic coda.
 
 [https://videopress.com/embed/wpKaZCbf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/wpKaZCbf?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/04/The_New_Standard_Tue__May_5__1981_.jpg?resize=758%2C831&amp;ssl=1)
 
-Bruce catches Elvis Costello’s show at the Warfield Theater in San Francisco and jams with him a bit backstage.
+Bruce catches Elvis Costello's show at the Warfield Theater in San Francisco and jams with him a bit backstage.
 
 **1984:**
 
@@ -56,7 +56,7 @@ Bruce joins John Fogerty on stage at a charity fundraiser at the House of Blues 
 
 **1994:**
 
-At the Count Basie Theater in Red Bank, Bruce performs at , a benefit for Bobby Bandiera’s son. Backed by Bobby’s band, Bruce is joined by Southside Johnny, Jon Bon Jovi, Gary U.S. Bonds, and The Max Weinberg 7. The show is full of great performances and team-ups, including Bruce joining Southside Johnny on “The Fever” and Gary U.S. Bonds on “This Little Girl.”
+At the Count Basie Theater in Red Bank, Bruce performs at , a benefit for Bobby Bandiera's son. Backed by Bobby's band, Bruce is joined by Southside Johnny, Jon Bon Jovi, Gary U.S. Bonds, and The Max Weinberg 7. The show is full of great performances and team-ups, including Bruce joining Southside Johnny on "The Fever" and Gary U.S. Bonds on "This Little Girl."
 
 **2003:** *The Hope Concert*
 
@@ -74,7 +74,7 @@ Bruce plays a private fundraiser (backed by Bobby Bandiera and his band) for the
 
 **2007:**
 
-Night Two at the Spectrum in Philadelphia brought with it the tour premieres of “London Calling,” “Red Headed Woman,” “Thundercrack,” “Streets of Philadelphia,” and an epic, show-closing “Kitty’s Back.”
+Night Two at the Spectrum in Philadelphia brought with it the tour premieres of "London Calling," "Red Headed Woman," "Thundercrack," "Streets of Philadelphia," and an epic, show-closing "Kitty's Back."
 
 **2009:**
 
@@ -92,7 +92,7 @@ Night Two at the Spectrum in Philadelphia brought with it the tour premieres of 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2009-04-29.jpg?resize=364%2C960&amp;ssl=1)
 
-Bruce makes a return trip to New Orleans Jazzfest and to Seeger Sessions set lists, as several songs from that tour make their Wrecking Ball Tour premiere (including a beautiful “When the Saints Go Marching In” with a “Rocky Ground” tag). Dr. John joins Bruce for “Something You Got.”
+Bruce makes a return trip to New Orleans Jazzfest and to Seeger Sessions set lists, as several songs from that tour make their Wrecking Ball Tour premiere (including a beautiful "When the Saints Go Marching In" with a "Rocky Ground" tag). Dr. John joins Bruce for "Something You Got."
 
 **2012:**
 
@@ -108,7 +108,7 @@ Bruce makes a return trip to New Orleans Jazzfest and to Seeger Sessions set lis
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2012-04-29.jpg?resize=515%2C960&amp;ssl=1)
 
-The European leg of the Wrecking Ball Tour kicks off in Oslo with a stunning acoustic pre-show that includes “All That Heaven Will Allow” and “The Fever.” The main event is no slouch either, opening with Stevie in Lilyhammer character singing “My Kind of Town” and the tour premiere of “Follow that Dream.”
+The European leg of the Wrecking Ball Tour kicks off in Oslo with a stunning acoustic pre-show that includes "All That Heaven Will Allow" and "The Fever." The main event is no slouch either, opening with Stevie in Lilyhammer character singing "My Kind of Town" and the tour premiere of "Follow that Dream."
 
 **2013:**
 
@@ -122,7 +122,7 @@ The European leg of the Wrecking Ball Tour kicks off in Oslo with a stunning aco
 
 [https://www.youtube.com/embed/yyxvs9yOUAg?feature=oembed](https://www.youtube.com/embed/yyxvs9yOUAg?feature=oembed)
 
-Fans at the BB&T Center in Sunrise, Florida, get a four-pack of back-to-back tour premieres: “I Wanna Marry You,” “Linda Let Me Be the One,” “Boom Boom,” and “Hearts of Stone.” In the pit tonight: Pat Riley and Michael Douglas.
+Fans at the BB&T Center in Sunrise, Florida, get a four-pack of back-to-back tour premieres: "I Wanna Marry You," "Linda Let Me Be the One," "Boom Boom," and "Hearts of Stone." In the pit tonight: Pat Riley and Michael Douglas.
 
 **2014:**
 

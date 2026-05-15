@@ -1,10 +1,10 @@
-After a self-imposed hiatus, Garland Jeffreys re-emerged on the New York music scene in the summer of 2001. By that winter, Bruce had asked his friend and contemporary to join him on stage in Asbury Park at Bruce’s annual holiday concerts.
+After a self-imposed hiatus, Garland Jeffreys re-emerged on the New York music scene in the summer of 2001. By that winter, Bruce had asked his friend and contemporary to join him on stage in Asbury Park at Bruce's annual holiday concerts.
 
-Among the songs Garland and Bruce performed together that night: Garland’s love song to his hometown, “New York Skyline,” from his 1977 album *Ghost Writer.*
+Among the songs Garland and Bruce performed together that night: Garland's love song to his hometown, "New York Skyline," from his 1977 album *Ghost Writer.*
 
 [https://www.youtube.com/embed/cPZ-Z7RNulQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/cPZ-Z7RNulQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-Garland’s version on that December night was even more tender and contemplative than his original version above, perhaps a bit too much so for the festive crowd–during the song’s quieter moments, you can hear them Brooooce-ing, unfortunately. (Bruce heard them too, as you’ll discover toward the end of the track.)
+Garland's version on that December night was even more tender and contemplative than his original version above, perhaps a bit too much so for the festive crowd–during the song's quieter moments, you can hear them Brooooce-ing, unfortunately. (Bruce heard them too, as you'll discover toward the end of the track.)
 
 So ignore the boorish fans and give a listen to the beautiful performance below–Garland is on lead vocals, but Bruce provides backing vocals and guitar.
 

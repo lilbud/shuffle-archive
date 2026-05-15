@@ -46,7 +46,7 @@ Still, you can't cover "It's Gonna Work Out Fine" without a little snappy patter
 
 A decade later, Bruce would warm up to the idea of marriage, although it would take him five more years and another try to get it right.
 
-As for Bobby, he got married a few weeks after the release of *Greetings from Asbury Park, N.J.,* the album that could have changed his life had he accepted Bruce's job offer, and had a son (the one Bruce saw him with in the pull-quote at the top of this article) shortly after the release of *Born to Run*. He became a fixture in the Jersey Shore music scene, performing with local bands as late as 1994. His final stint was with Vinnie Lopez's Disco Rejects.
+As for Bobby, he got married a few weeks after the release of *Greetings from Asbury Park, N.J.*, the album that could have changed his life had he accepted Bruce's job offer, and had a son (the one Bruce saw him with in the pull-quote at the top of this article) shortly after the release of *Born to Run*. He became a fixture in the Jersey Shore music scene, performing with local bands as late as 1994. His final stint was with Vinnie Lopez's Disco Rejects.
 
 ![](../../assets/2021/01/discorejects.png)
 

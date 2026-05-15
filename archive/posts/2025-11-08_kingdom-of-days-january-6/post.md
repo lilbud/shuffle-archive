@@ -12,7 +12,7 @@ Bruce play two shows at the legendary Main Point in Bryn Mawr, Pennsylvania, ope
 
 **1973:**
 
-: Bruce plays the second of a three-night stand at Joe’s Place in Cambridge, Massachusetts. The setlist features a rare performance of “Zero and Blind Terry.”
+: Bruce plays the second of a three-night stand at Joe's Place in Cambridge, Massachusetts. The setlist features a rare performance of "Zero and Blind Terry."
 
 **1974**
 
@@ -22,7 +22,7 @@ Bruce play two shows at the legendary Main Point in Bryn Mawr, Pennsylvania, ope
 
 [https://www.youtube.com/embed/NOvFyNBkfhs?feature=oembed](https://www.youtube.com/embed/NOvFyNBkfhs?feature=oembed)
 
-That afternoon, before the show, Bruce and the band rehearse “” with the intent for a full take to air on a local telethon. That rehearsal recording will surface decades later and can be found on the essential bootleg compilation.
+That afternoon, before the show, Bruce and the band rehearse "" with the intent for a full take to air on a local telethon. That rehearsal recording will surface decades later and can be found on the essential bootleg compilation.
 
 [Does This Bus Stop at 82nd Street?](https://estreetshuffle.com/index.php/2020/03/30/roll-of-the-dice-does-this-bus-stop-at-82nd-street/)*Odds & Sods*
 
@@ -36,7 +36,7 @@ A newly published telephone poll reveals that 27% of all American adults (+/- 3 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/01/poll-Daily_World_Tue__Jan_6__1987_.jpg?w=758&amp;ssl=1)
 
-: Bruce sings “” at the funeral of Kristen Ann Carr, his managers’ daughter. After Carr dies of cancer at the age of 21, her family establishes The Kristen Ann Carr Fund to raise money for the fight against cancer. Bruce will play several benefits for the organization over the years that follow.
+: Bruce sings "" at the funeral of Kristen Ann Carr, his managers' daughter. After Carr dies of cancer at the age of 21, her family establishes The Kristen Ann Carr Fund to raise money for the fight against cancer. Bruce will play several benefits for the organization over the years that follow.
 
 **1993**[If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 

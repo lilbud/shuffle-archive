@@ -1,6 +1,6 @@
 
 
-The Castiles (Bruce’s first band) play a gig at The Left Foot in Bruce’s hometown of Freehold.
+The Castiles (Bruce's first band) play a gig at The Left Foot in Bruce's hometown of Freehold.
 
 **1968:**
 
@@ -24,9 +24,9 @@ Bruce and the band play a sold-out show at Chrysler Hall in Norfolk, Virginia.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1974-0126-209x300.jpg?resize=758%2C1088)
 
-On the River Tour, the E Street Band makes a stop at the University of Notre Dame. In the second set, Bruce pulls out back-to-back tour premieres: “” (after teaching the lyrics to the band during intermission) and “.”
+On the River Tour, the E Street Band makes a stop at the University of Notre Dame. In the second set, Bruce pulls out back-to-back tour premieres: "" (after teaching the lyrics to the band during intermission) and "."
 
-**1981:**[Double Shot (of My Baby’s Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)
+**1981:**[Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)[Louie Louie](https://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)
 
 [https://videopress.com/embed/1N1myPz6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/1N1myPz6?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -36,7 +36,7 @@ On the River Tour, the E Street Band makes a stop at the University of Notre Dam
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1981-01-26b.png?resize=464%2C844&amp;ssl=1)
 
-During intermission at the Carrier Dome in Syracuse, the United Steelworkers of America recognize and honor Bruce’s contributions to food banks along the Tour.
+During intermission at the Carrier Dome in Syracuse, the United Steelworkers of America recognize and honor Bruce's contributions to food banks along the Tour.
 
 **1985:***Born in the U.S.A.*
 
@@ -44,7 +44,7 @@ During intermission at the Carrier Dome in Syracuse, the United Steelworkers of 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/01/1985-01-26a-300x128.jpg?resize=758%2C323)
 
-Bruce plays solo at the Bronco Bowl in Dallas, debuting “” for the first time on the Ghost of Tom Joad Tour.
+Bruce plays solo at the Bronco Bowl in Dallas, debuting "" for the first time on the Ghost of Tom Joad Tour.
 
 **1996:**[State Trooper](http://estreetshuffle.com/index.php/2019/12/22/roll-of-the-dice-state-trooper/)
 
@@ -56,9 +56,9 @@ Bruce makes a guest DJ appearance on E Street Radio, spinning some of his favori
 
 **2009:** <https://estreetshuffle.com/wp-content/uploads/2025/01/02-DJ-Bruce-on-SiriusXM-01-2009-episode-2.mp3>
 
-The Tour kicks off in Cape Town South Africa, with the live debut of “” and the concert premieres of “” Tom Morello joins the E Street Band for this show and will remain a touring band member throughout the entire tour. (Photo credit: Jo Lopez)
+The Tour kicks off in Cape Town South Africa, with the live debut of "" and the concert premieres of "" Tom Morello joins the E Street Band for this show and will remain a touring band member throughout the entire tour. (Photo credit: Jo Lopez)
 
-**2014:** *High Hopes*[Free Nelson Mandela](http://estreetshuffle.com/index.php/2018/07/10/cover-me-free-nelson-mandela/)[Heaven’s Wall.](https://estreetshuffle.com/index.php/2020/02/02/roll-of-the-dice-heavens-wall/)
+**2014:** *High Hopes*[Free Nelson Mandela](http://estreetshuffle.com/index.php/2018/07/10/cover-me-free-nelson-mandela/)[Heaven's Wall.](https://estreetshuffle.com/index.php/2020/02/02/roll-of-the-dice-heavens-wall/)
 
 [https://www.youtube.com/embed/FOCnZ6xwxTI?feature=oembed](https://www.youtube.com/embed/FOCnZ6xwxTI?feature=oembed)
 

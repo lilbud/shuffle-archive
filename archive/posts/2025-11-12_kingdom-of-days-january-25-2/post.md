@@ -26,15 +26,15 @@ Bruce and the E Street Band headline at The Mosque in Richmond, Virginia.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/01/Richmond_Times_Dispatch_1974_01_26_7.jpg?resize=758%2C979&amp;ssl=1)
 
-At Soundworks West in Los Angeles, Bruce records “” with Randy Jackson, David Sancious, Jeff Porcaro, and Michael Fisher. It’ll stay in the vault for eight years before debuting on .
+At Soundworks West in Los Angeles, Bruce records "" with Randy Jackson, David Sancious, Jeff Porcaro, and Michael Fisher. It'll stay in the vault for eight years before debuting on .
 
 **1990:** [Sad Eyes](http://estreetshuffle.com/index.php/2019/10/08/roll-of-the-dice-sad-eyes/)*Tracks*
 
 [https://www.youtube.com/embed/jssnRkHODE0?feature=oembed](https://www.youtube.com/embed/jssnRkHODE0?feature=oembed)
 
-Bruce plays the Music Hall in Austin, Texas, with Joe Ely joining for a final encore of “.” After the show, Bruce and Joe catch Willie Nelson’s show nearby.
+Bruce plays the Music Hall in Austin, Texas, with Joe Ely joining for a final encore of "." After the show, Bruce and Joe catch Willie Nelson's show nearby.
 
-**1996:**[Blowin’ Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/)
+**1996:**[Blowin' Down This Road](https://estreetshuffle.com/index.php/2020/05/27/matr-bruce-springsteen-and-friends-blowin-down-this-road/)
 
 [https://videopress.com/embed/AQrtYsl5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/AQrtYsl5?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -44,7 +44,7 @@ Bruce plays the Music Hall in Austin, Texas, with Joe Ely joining for a final en
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1996-01-25.png?resize=758%2C679&amp;ssl=1)
 
-The video for “” is filmed at the New Brunswick Boxing Gym.
+The video for "" is filmed at the New Brunswick Boxing Gym.
 
 **2009:**[The Wrestler](https://estreetshuffle.com/index.php/2020/10/31/roll-of-the-dice-the-wrestler/)
 

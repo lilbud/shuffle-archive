@@ -30,7 +30,7 @@ Bruce plays a set at the Ahmanson Theater in Los Angeles, part of a promotional 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1973-05-01-290x300.jpg?resize=758%2C784)
 
-Bruce plays in Denmark for the first time–as a guest (his first time guesting in Europe) with local band Malurt on “.”
+Bruce plays in Denmark for the first time–as a guest (his first time guesting in Europe) with local band Malurt on "."
 
 **1981:** [Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)
 
@@ -64,7 +64,7 @@ Bruce and the reunited E Street Band play their first of two shows at the Manche
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/46586788561_fd35492733_o-300x251.jpg?resize=758%2C634)
 
-Bruce’s newly released album debuts in the top spot on both the U.S. and U.K. charts.
+Bruce's newly released album debuts in the top spot on both the U.S. and U.K. charts.
 
 **2005:** *Devils & Dust*
 
@@ -76,9 +76,9 @@ Bruce joins Tim McCloone on stage for two songs at the annual Ranney School Ball
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/medium.jpg?resize=500%2C375&amp;ssl=1)
 
-On International Workers’ Day, Bruce opens his Tampa High Hopes show with “” and continues a streak of unpredictable tour premieres with “,” “,” and warm-up performances of “” and “” for the band’s upcoming Jazz Fest gig. During the encores, Bruce forgets that his microphone stand isn’t bolted down, leading to an embarrassingly awkward backbend attempt on “.” This show is available as part of Bruce’s official archive series. Buy or stream it .
+On International Workers' Day, Bruce opens his Tampa High Hopes show with "" and continues a streak of unpredictable tour premieres with "," "," and warm-up performances of "" and "" for the band's upcoming Jazz Fest gig. During the encores, Bruce forgets that his microphone stand isn't bolted down, leading to an embarrassingly awkward backbend attempt on "." This show is available as part of Bruce's official archive series. Buy or stream it .
 
-**2014:** [Joe Hill](http://estreetshuffle.com/index.php/2019/05/01/cover-me-joe-hill/)[Brothers Under the Bridge](https://www.youtube.com/watch?v=QjudCSZ7TC4)[Gloria](http://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/)[Jesse James](http://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/)[O Mary Don’t You Weep](https://estreetshuffle.com/index.php/2022/07/15/cover-me-o-mary-dont-you-weep/)[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[here](https://live.brucespringsteen.net/live-music/0,11387/Bruce-Springsteen-mp3-flac-download-5-1-2014-MidFlorida-Credit-Union-Amphitheatre-Tampa-FL.html)
+**2014:** [Joe Hill](http://estreetshuffle.com/index.php/2019/05/01/cover-me-joe-hill/)[Brothers Under the Bridge](https://www.youtube.com/watch?v=QjudCSZ7TC4)[Gloria](http://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/)[Jesse James](http://estreetshuffle.com/index.php/2019/07/10/roll-of-the-dice-cover-me-jesse-james/)[O Mary Don't You Weep](https://estreetshuffle.com/index.php/2022/07/15/cover-me-o-mary-dont-you-weep/)[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)[here](https://live.brucespringsteen.net/live-music/0,11387/Bruce-Springsteen-mp3-flac-download-5-1-2014-MidFlorida-Credit-Union-Amphitheatre-Tampa-FL.html)
 
 [https://www.youtube.com/embed/T2UF8yw89yE?feature=oembed](https://www.youtube.com/embed/T2UF8yw89yE?feature=oembed)
 
@@ -96,9 +96,9 @@ On International Workers’ Day, Bruce opens his Tampa High Hopes show with “�
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2014-05-01-288x300.jpg?resize=758%2C790)
 
-The Tony Awards announce that Bruce will be awarded a special Tony for “a once in a lifetime theater going experience of extraordinary dimensions.” Watch the announcement at the 12:40 mark below.
+The Tony Awards announce that Bruce will be awarded a special Tony for "a once in a lifetime theater going experience of extraordinary dimensions." Watch the announcement at the 12:40 mark below.
 
-**2018:** *Springsteen on Broadway,*
+**2018:** *Springsteen on Broadway*,
 
 [https://www.youtube.com/embed/Ol_H1beGUV4?feature=oembed](https://www.youtube.com/embed/Ol_H1beGUV4?feature=oembed)
 
@@ -112,7 +112,7 @@ View this post on Instagram
 
 
 
-Dion releases a video single for his remake of “,” featuring backing vocals by Patti Scialfa and Bruce on guitar.
+Dion releases a video single for his remake of "," featuring backing vocals by Patti Scialfa and Bruce on guitar.
 
 **2020:** [Hymn to Him](https://estreetshuffle.com/index.php/2021/04/26/matr-dion-bruce-springsteen-and-patti-scialfa-hymn-to-him/)
 

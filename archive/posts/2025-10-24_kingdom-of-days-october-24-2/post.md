@@ -4,7 +4,7 @@
 
 ![](../../assets/2024/10/The_Tennessean_1970_10_18_Page_162.jpg)
 
-**1980:** Bruce and the E Street Band play a River Tour show at the Seattle Center Coliseum. Distributed at the show: the first issue of *Backstreets,* a four-page fanzine published by local fan Charles R. Cross. Over the four decades that follow, *Backstreets* will evolve and thrive as a magazine, web site, and online community dedicated to bringing together Springsteen fans from around the world.
+**1980:** Bruce and the E Street Band play a River Tour show at the Seattle Center Coliseum. Distributed at the show: the first issue of *Backstreets*, a four-page fanzine published by local fan Charles R. Cross. Over the four decades that follow, *Backstreets* will evolve and thrive as a magazine, web site, and online community dedicated to bringing together Springsteen fans from around the world.
 
 [Watch on Youtube: Bruce Springsteen - Seattle 10/24/80 Part 1](https://www.youtube.com/watch?v=pRVAyY8cQqM)
 

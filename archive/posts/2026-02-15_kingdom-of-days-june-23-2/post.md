@@ -6,9 +6,9 @@
 
 **1974:** Bruce and the E Street Band play two shows on their third of three consecutive nights at Le Garage on Long Beach Island.
 
-**1977:** Bruce and the E Street Band work on “Darkness on the Edge of Town” at Atlantic Studios in New York City.
+**1977:** Bruce and the E Street Band work on "Darkness on the Edge of Town" at Atlantic Studios in New York City.
 
-**1978:** In town a day early for his Darkness Tour stop, Bruce drops by the Paramount Theater in Portland, Oregon to catch Warren Zevon’s performance. He joins Zevon for “I’ll Sleep When I’m Dead,” the final encore of the evening.
+**1978:** In town a day early for his Darkness Tour stop, Bruce drops by the Paramount Theater in Portland, Oregon to catch Warren Zevon's performance. He joins Zevon for "I'll Sleep When I'm Dead," the final encore of the evening.
 
 ![](../../assets/2022/06/1978-06-23-scaled.jpg)
 
@@ -32,7 +32,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=HmDVXvxXtkA)
 
-**2000:** Night Six of Ten at Madison Square Garden features a rare “4th of July, Asbury Park (Sandy),” as the Reunion Tour’s last stand continues.
+**2000:** Night Six of Ten at Madison Square Garden features a rare "4th of July, Asbury Park (Sandy)," as the Reunion Tour's last stand continues.
 
 [Watch Video Highlight](https://videopress.com/embed/uLYj1uhJ)
 
@@ -40,19 +40,19 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=D3vUmI_08jo)
 
-**2005:** Bruce plays “Fade Away” for the first time in 24 years at his Devils & Dust show in Gothenburg.
+**2005:** Bruce plays "Fade Away" for the first time in 24 years at his Devils & Dust show in Gothenburg.
 
 [Watch Video Highlight](https://videopress.com/embed/9KTxtENW)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=jolZKmU3SbM)
 
-**2006:** Conan O’Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of “Pay Me My Money Down” on *Late Night with Conan O’Brien.* Bruce also performs “Bring ’em Home.”
+**2006:** Conan O'Brien, Thomas Haden Church, Jimmy Fallon, and the Max Weinberg 7 join the Sessions Band in a rousing rendition of "Pay Me My Money Down" on *Late Night with Conan O'Brien.* Bruce also performs "Bring 'em Home."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=fSt22GEPQGg)
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=wXUiV6SwOBw)
 
-**2008:** Bruce tour premieres “I’m a Rocker” as an encore during his Magic Tour stop in Antwerp.
+**2008:** Bruce tour premieres "I'm a Rocker" as an encore during his Magic Tour stop in Antwerp.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=RuV3LKuwNw8)
 

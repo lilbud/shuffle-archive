@@ -4,11 +4,11 @@
 
 **1973:** Bruce and the E Street Band headline two shows at The Main Point in Bryn Mawr, Pennsylvania.
 
-**1975:** Bruce and the E Street Band work on “Backstreets” at a *Born to Run* recording session at the Record Plant in New York City.
+**1975:** Bruce and the E Street Band work on "Backstreets" at a *Born to Run* recording session at the Record Plant in New York City.
 
-**1978:** Bruce joins Gary Busey and The Old Dog Band on stage for “Carol” at the Sundance Saloon in Calabasas, California.
+**1978:** Bruce joins Gary Busey and The Old Dog Band on stage for "Carol" at the Sundance Saloon in Calabasas, California.
 
-**1981:** Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena’s opening stand. Recordings of “Independence Day,” “Cadillac Ranch,” and “Racing in the Street” will eventually be released on *Live 1975-85*.
+**1981:** Bruce and the boys play their fourth of six nights at the Brendan Byrne Arena's opening stand. Recordings of "Independence Day," "Cadillac Ranch," and "Racing in the Street" will eventually be released on *Live 1975-85*.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=GSPNMNO5Enc)
 
@@ -16,7 +16,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=dCILTxWFsow)
 
-**1984:** Night Two in Cincinnati on the Born in the U.S.A. Tour. Listen in on the soundcheck below, including a never-played “The Good, The Bad, and The Ugly.”
+**1984:** Night Two in Cincinnati on the Born in the U.S.A. Tour. Listen in on the soundcheck below, including a never-played "The Good, The Bad, and The Ugly."
 
 [Watch Video Highlight](https://videopress.com/embed/mB3khd4m)
 
@@ -34,13 +34,13 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=OLAK5uy_lDjjM6fhv8UAF1WLd5MyGr39PsIy3DXjs)
 
-**1992:** Bruce and his new touring band kick off a five-night stand at Wembley Arena in London, the last stand of the European leg of World Tour 1992. The setlist features a rare “With Every Wish.”
+**1992:** Bruce and his new touring band kick off a five-night stand at Wembley Arena in London, the last stand of the European leg of World Tour 1992. The setlist features a rare "With Every Wish."
 
 [Watch Video Highlight](https://videopress.com/embed/AzSUcXXM)
 
 ![](../../assets/2018/07/1992-0706.jpg)
 
-**2019:** Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on “Dirty Rotten Shame,” and later joining Southside Johnny & The Asbury Jukes for seven songs.
+**2019:** Bruce makes two surprise appearances at the Stone Pony Summer Stage: first with Garry Tallent & The Delevantes on "Dirty Rotten Shame," and later joining Southside Johnny & The Asbury Jukes for seven songs.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=mO5tTJvyA30)
 

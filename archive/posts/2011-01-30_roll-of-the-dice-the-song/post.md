@@ -1,12 +1,12 @@
-There’s some debate as to the actual name of this unreleased, never-performed Springsteen original composition.
+There's some debate as to the actual name of this unreleased, never-performed Springsteen original composition.
 
-In Bruce’s handwritten notes, he refers to it as “I Heard the Word,” and certainly that line is oft-repeated. It was eventually copyrighted in 1995 under the title “The Word.”
+In Bruce's handwritten notes, he refers to it as "I Heard the Word," and certainly that line is oft-repeated. It was eventually copyrighted in 1995 under the title "The Word."
 
 ![](../../assets/2018/06/1972_handwrittensonglist2.jpg)
 
-But in the actual studio recording from 1972, it’s referred to verbally as “The Song,” and so that’s what we’ll go with.
+But in the actual studio recording from 1972, it's referred to verbally as "The Song," and so that's what we'll go with.
 
-Regardless of what you call the song, “The Song” is rather typical of Bruce’s early songwriting: lyrically lush with colorful nicknames, religious imagery, and dense metaphor describing the unknowable, unattainable, unchainable object of his desire.
+Regardless of what you call the song, "The Song" is rather typical of Bruce's early songwriting: lyrically lush with colorful nicknames, religious imagery, and dense metaphor describing the unknowable, unattainable, unchainable object of his desire.
 
 [Watch on Youtube: Bruce Springsteen the song the word I heard the word](https://www.youtube.com/watch?v=lLKRhwmJz_U)
 
@@ -24,10 +24,10 @@ Regardless of what you call the song, “The Song” is rather typical of Bruce�
 > *And I was your kid glove lover*
 > *All the cards were yours, you always dealt*
 > *And I stood before your soapbox*
-> *Noiseless and shoeless playing my pantry boy’s games*
+> *Noiseless and shoeless playing my pantry boy's games*
 > *You had your raised up, you had your hands raised up*
-> *You were raised up to the sky shouting, “Oh Sunday deity*
-> *Oh Big Daddy Longlegs, come down and bless your sister please”*
+> *You were raised up to the sky shouting, "Oh Sunday deity*
+> *Oh Big Daddy Longlegs, come down and bless your sister please"*
 > *You were shouting orders about the construction going on down the highway*
 > *Doing the Virginia reel, you were naming names, blaming blames*
 > *And you blamed me*
@@ -49,7 +49,7 @@ Regardless of what you call the song, “The Song” is rather typical of Bruce�
 > *I heard the word on the country*
 > *But I never heard the word on you*
 
-It’s not one of Bruce’s strongest songs, even when considered just among his early work. It’s not surprising it was left off of *[Greetings from Asbury Park](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/).* But it’s still a fascinating peek at an artist still developing his voice and his style.
+It's not one of Bruce's strongest songs, even when considered just among his early work. It's not surprising it was left off of *[Greetings from Asbury Park](https://estreetshuffle.com/index.php/2023/01/05/album-companion-greetings-from-asbury-park-n-j/).* But it's still a fascinating peek at an artist still developing his voice and his style.
 
 **The Song**  
 **Recorded:** April/May, 1972  

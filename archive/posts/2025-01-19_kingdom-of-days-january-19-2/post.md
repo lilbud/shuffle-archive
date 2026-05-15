@@ -32,7 +32,7 @@
 
 ![](../../assets/2021/01/1986-01-19b.png)
 
-**2009:** NPR begins streaming Bruce's upcoming album, *Working on a Dream,* for free for one week prior to its release. Meanwhile, Bruce tries his hand at being a DJ on E Street Radio, playing some of his favorite contemporary releases for listeners.
+**2009:** NPR begins streaming Bruce's upcoming album, *Working on a Dream*, for free for one week prior to its release. Meanwhile, Bruce tries his hand at being a DJ on E Street Radio, playing some of his favorite contemporary releases for listeners.
 
 [https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3?_=5](https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3?_=5)
 

@@ -2,7 +2,7 @@
 
 *Audio for 1975***New for 2025:**
 
-A scheduled Steel Mill gig in Long Branch at the aptly named First Annual Nothing’s Festival is cancelled when the event’s local venues become ensnared in a web of regulatory oversight.
+A scheduled Steel Mill gig in Long Branch at the aptly named First Annual Nothing's Festival is cancelled when the event's local venues become ensnared in a web of regulatory oversight.
 
 **1970:**
 
@@ -30,7 +30,7 @@ Bruce places a famous ad in the Village Voice classifieds. Among the respondents
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1974-08-08-300x159.jpg?resize=758%2C403)
 
-“” is played for the first time ever, as the Born to Run Tour begins to pick up steam in Akron, Ohio. “” also makes its tour premiere tonight.
+"" is played for the first time ever, as the Born to Run Tour begins to pick up steam in Akron, Ohio. "" also makes its tour premiere tonight.
 
 **1975:** [Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)[Then She Kissed Me](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/)
 
@@ -42,9 +42,9 @@ A planned Darkness Tour stop at Ryserson University in Toronto is cancelled.
 
 **1978:**
 
-Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for seven songs, including a work-in-progress (and never released) “On the Prowl” and covers of “” “” and “.”
+Bruce joins Cats on a Smooth Surface on stage at The Stone Pony in Asbury Park for seven songs, including a work-in-progress (and never released) "On the Prowl" and covers of "" "" and "."
 
-**1982:** [Ready Teddy,](http://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)[Come On, Let’s Go,](http://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)[Come On Over to My Place](http://estreetshuffle.com/index.php/2018/04/12/matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/)
+**1982:** [Ready Teddy,](http://estreetshuffle.com/index.php/2018/02/01/cover-me-ready-teddy/)[Come On, Let's Go,](http://estreetshuffle.com/index.php/2018/10/19/cover-me-come-on-lets-go/)[Come On Over to My Place](http://estreetshuffle.com/index.php/2018/04/12/matr-bruce-springsteen-and-cats-on-a-smooth-surface-come-on-over-to-my-place/)
 
 [https://videopress.com/embed/GZQFnl9z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/GZQFnl9z?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -54,7 +54,7 @@ Bruce and the E Street Band play their third of ten nights at the Brendan Byrne 
 
 [https://videopress.com/embed/qUtloRcX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/qUtloRcX?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce and the E Street Band play their first of three Rising Tour nights at Lincoln Financial Field in Philadelphia, where fans enjoy the first full-band “” of the tour.
+Bruce and the E Street Band play their first of three Rising Tour nights at Lincoln Financial Field in Philadelphia, where fans enjoy the first full-band "" of the tour.
 
 **2003:** [Lost in the Flood](http://estreetshuffle.com/index.php/2018/02/20/roll-of-the-dice-lost-in-the-flood/)
 

@@ -14,7 +14,7 @@ Bruce and his unnamed band play the Bristol Motor Inn in Bristol, Rhode Island.
 
 **1973:**
 
-Bruce goes to New York City to visit WPLJ-FM, where he sits down for an interview with Father Bill Ayres. They talk for over an hour, but the interview won’t be aired until April, and even then only in significantly edited form.
+Bruce goes to New York City to visit WPLJ-FM, where he sits down for an interview with Father Bill Ayres. They talk for over an hour, but the interview won't be aired until April, and even then only in significantly edited form.
 
 **1974:**
 
@@ -32,7 +32,7 @@ Bruce continues his first ever tour of Canada with a show at the National Arts C
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/12/1975-12-20b.png?resize=758%2C606&amp;ssl=1)
 
-Bruce completes his west coast Darkness swing with a show at the Seattle Center Arena, where he and the E Street Band play “” for the first time since the Born to Run Tour. Well after the show ends, after most fans have filed out of the arena and the house lights are on, Bruce returns to the stage to perform two more songs–“” and “Twist and Shout.”
+Bruce completes his west coast Darkness swing with a show at the Seattle Center Arena, where he and the E Street Band play "" for the first time since the Born to Run Tour. Well after the show ends, after most fans have filed out of the arena and the house lights are on, Bruce returns to the stage to perform two more songs–"" and "Twist and Shout."
 
 **1978:** [Pretty Flamingo](https://estreetshuffle.com/index.php/2021/12/04/cover-me-pretty-flamingo/)[Rave On](http://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)
 
@@ -46,13 +46,13 @@ Bruce completes his west coast Darkness swing with a show at the Seattle Center 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/1978-12-20.png?resize=758%2C2773&amp;ssl=1)
 
-Bruce joins Tim McLoone’s Holiday Express on stage at Tradewinds in Sea Bright, New Jersey.
+Bruce joins Tim McLoone's Holiday Express on stage at Tradewinds in Sea Bright, New Jersey.
 
 **1994:**
 
 [https://www.youtube.com/embed/nbv2xybqvpQ?feature=oembed](https://www.youtube.com/embed/nbv2xybqvpQ?feature=oembed)
 
-Bruce holds his annual Christmas party at McLoone’s Rum Runner in Sea Bright, where he joins Bobby Bandiera and his band on stage for a set of cover classics.
+Bruce holds his annual Christmas party at McLoone's Rum Runner in Sea Bright, where he joins Bobby Bandiera and his band on stage for a set of cover classics.
 
 **1999:**
 

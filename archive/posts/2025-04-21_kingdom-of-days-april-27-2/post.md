@@ -22,7 +22,7 @@ Bruce plays three(!) shows at three schools in two states: First, a midnight sho
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1974-0427a-180x300.jpg?resize=758%2C1262)
 
-Bruce and the band are fifty miles into their drive from Chattanooga (where they played last night) to Nashville (where they play tomorrow) before they realize they’d left Max behind. Upon arriving in Nashville, Bruce plays tourist and checks out local record stores and clothing shops.
+Bruce and the band are fifty miles into their drive from Chattanooga (where they played last night) to Nashville (where they play tomorrow) before they realize they'd left Max behind. Upon arriving in Nashville, Bruce plays tourist and checks out local record stores and clothing shops.
 
 **1976:**
 
@@ -42,7 +42,7 @@ Bruce makes a guest appearance with The Diamonds at The Stone Pony.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/1983-0427-203x300.jpg?resize=758%2C1121)
 
-At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres “” and records “” and “Born to Run” for inclusion on and .
+At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres "" and records "" and "Born to Run" for inclusion on and .
 
 **1988:** [Across the Borderline](https://estreetshuffle.com/index.php/2022/03/26/matr-bruce-springsteen-bonnie-raitt-and-jackson-browne-across-the-borderline/)[Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)*Chimes of Freedom**Video Anthology*
 
@@ -52,15 +52,15 @@ At the fourth of five nights at the Los Angeles Sports Arena, Bruce premieres �
 
 [https://videopress.com/embed/r8cmoMkh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/r8cmoMkh?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-At the second of two shows at Royal Albert Hall, Bruce opens with “” for the first and only time, before segueing seamlessly (if awkwardly) into “.” Played twice before in New Jersey four years prior, “Pony Boy” hasn’t been heard from since.
+At the second of two shows at Royal Albert Hall, Bruce opens with "" for the first and only time, before segueing seamlessly (if awkwardly) into "." Played twice before in New Jersey four years prior, "Pony Boy" hasn't been heard from since.
 
 **1996:** [Pony Boy](http://estreetshuffle.com/index.php/2019/03/01/roll-of-the-dice-cover-me-pony-boy/)[The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
 
 [https://videopress.com/embed/Ty8xxuZl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/Ty8xxuZl?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of “” (the show opener) and “,”
+At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bobcats Arena enjoy the tour premieres of "" (the show opener) and ","
 
-**2008:** [Souls of the Departed](http://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)[Wild Billy’s Circus Story](http://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)
+**2008:** [Souls of the Departed](http://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)[Wild Billy's Circus Story](http://estreetshuffle.com/index.php/2019/03/14/roll-of-the-dice-wild-billys-circus-story/)
 
 [https://www.youtube.com/embed/nHlzZofJQwQ?feature=oembed](https://www.youtube.com/embed/nHlzZofJQwQ?feature=oembed)
 
@@ -70,7 +70,7 @@ At the first of two Magic Tour shows in North Carolina, fans at the Charlotte Bo
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/2008-04-27.jpg?resize=758%2C1864&amp;ssl=1)
 
-Bruce and Patti sing “” at a Tom Hanks tribute at New York City’s Lincoln Center.
+Bruce and Patti sing "" at a Tom Hanks tribute at New York City's Lincoln Center.
 
 **2009:** [Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)
 
@@ -82,9 +82,9 @@ Bruce and Patti sing “” at a Tom Hanks tribute at New York City’s Lincoln 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/04/2009-0427-300x206.jpg?resize=758%2C520)
 
-At night two in Los Angeles, Bruce surprises early arrivals by walking out on stage pre-show with a group of relatives and playing an acoustic “.” Bruce fakes out Kevin Buell with a fake guitar mishap before “,” only to honor him for reaching the 1,000 show milestone when he came out on stage. Making their tour debuts tonight: “” and “.” For more highlights from this show, see my from this date.
+At night two in Los Angeles, Bruce surprises early arrivals by walking out on stage pre-show with a group of relatives and playing an acoustic "." Bruce fakes out Kevin Buell with a fake guitar mishap before "," only to honor him for reaching the 1,000 show milestone when he came out on stage. Making their tour debuts tonight: "" and "." For more highlights from this show, see my from this date.
 
-**2012:** [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Waitin’ on a Sunny Day](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)[Where the Band Was report](http://estreetshuffle.com/index.php/2018/04/27/where-the-band-was-los-angeles-april-27-2012/)
+**2012:** [For You](https://estreetshuffle.com/index.php/2022/01/08/roll-of-the-dice-for-you/)[Waitin' on a Sunny Day](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)[Bobby Jean](https://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)[Where the Band Was report](http://estreetshuffle.com/index.php/2018/04/27/where-the-band-was-los-angeles-april-27-2012/)
 
 [https://www.youtube.com/embed/I46gjoZQtws?feature=oembed](https://www.youtube.com/embed/I46gjoZQtws?feature=oembed)
 

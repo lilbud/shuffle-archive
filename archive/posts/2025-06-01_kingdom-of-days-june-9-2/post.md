@@ -26,7 +26,7 @@ The Darkness Tour stops at the Mecca Arena in Milwaukee.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/06/mecca-300x281.jpg?resize=758%2C709)
 
-Bruce and Pete Townshend catch U2’s gig at the Hammersmith Palais in London.
+Bruce and Pete Townshend catch U2's gig at the Hammersmith Palais in London.
 
 **1981:**
 
@@ -48,7 +48,7 @@ Bruce and the E Street Band play their second of two Born in the U.S.A. shows at
 
 [https://www.youtube.com/embed/_C12AhdgoTc?feature=oembed](https://www.youtube.com/embed/_C12AhdgoTc?feature=oembed)
 
-Bruce and Max join Nils for four songs at Nils’ gig at the Stone Pony.
+Bruce and Max join Nils for four songs at Nils' gig at the Stone Pony.
 
 **1989:**
 
@@ -60,7 +60,7 @@ Bruce and Max join Nils for four songs at Nils’ gig at the Stone Pony.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1989-06-09-167x300.jpg?resize=758%2C1362)
 
-Norwegian fans enjoy the tour premiere of “” at the first of two Working on a Dream shows in Bergen.
+Norwegian fans enjoy the tour premiere of "" at the first of two Working on a Dream shows in Bergen.
 
 **2009:** [Back in Your Arms](http://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)
 
@@ -78,6 +78,6 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-continues its run on E Street Radio with Episode 23, “Old Bones.”
+continues its run on E Street Radio with Episode 23, "Old Bones."
 
 **2021:** *From My Home to Yours* <https://estreetshuffle.com/wp-content/uploads/2022/06/2021-06-09-Bruce-E-Street-Radio-DJ-set-23.mp3>

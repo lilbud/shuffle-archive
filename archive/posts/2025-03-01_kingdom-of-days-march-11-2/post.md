@@ -2,7 +2,7 @@
 
 *Advertisement for 1977; new entry for 2002***New for 2025:**
 
-At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bruce and the E Street Band add a one-time-only “Farmer John” into “Twist and Shout.”
+At their Lawsuit Tour gig at Saint Vincent College in Latrobe, Pennsylvania, Bruce and the E Street Band add a one-time-only "Farmer John" into "Twist and Shout."
 
 **1977:**
 
@@ -22,7 +22,7 @@ Bruce, Patti, and Little Steven attend the 15th Annual Silver Clef Awards dinner
 
 **2002:**
 
-“” gets a rare outing at the Blue Cross Arena in Rochester, along with the Rising Tour premiere of “.”
+"" gets a rare outing at the Blue Cross Arena in Rochester, along with the Rising Tour premiere of "."
 
 **2003:** [Fire](https://estreetshuffle.com/index.php/2020/08/05/roll-of-the-dice-fire/)[Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
 

@@ -60,7 +60,7 @@
 
 ![](../../assets/2023/12/The_Independent_Sat__Dec_22__2007_-scaled.jpg)
 
-**2015:** Bruce and the E Street Band perform on *Saturday Night Live,* where Bruce debuts "[Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/)." They also play "[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)," and in a departure for the show, they play a third song: "Santa Claus is Comin' to Town" with Paul McCartney, Tina Fey, Amy Poehler, and the entire cast and crew.
+**2015:** Bruce and the E Street Band perform on *Saturday Night Live*, where Bruce debuts "[Meet Me in the City](https://estreetshuffle.com/index.php/2020/08/23/roll-of-the-dice-meet-me-in-the-city/)." They also play "[The Ties That Bind](https://estreetshuffle.com/index.php/2018/03/09/roll-of-the-dice-the-ties-that-bind/)," and in a departure for the show, they play a third song: "Santa Claus is Comin' to Town" with Paul McCartney, Tina Fey, Amy Poehler, and the entire cast and crew.
 
 [Watch on Youtube: SNL Hosts Tina Fey & Amy Poehler Are Psyched For Bruce Springsteen and the E Street Band](https://www.youtube.com/watch?v=i86lXf1MDsY)
 

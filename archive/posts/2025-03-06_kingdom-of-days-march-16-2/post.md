@@ -2,7 +2,7 @@
 
 *Video for 2023***New for 2025:**
 
-Bruce and the (not yet named) E Street Band play a gig at Oliver’s in Boston, their fifth of seven straight nights.
+Bruce and the (not yet named) E Street Band play a gig at Oliver's in Boston, their fifth of seven straight nights.
 
 **1973:**
 
@@ -32,7 +32,7 @@ Bruce plays a solo acoustic show at Falkoner Salen in Copenhagen.
 
 [https://www.youtube.com/embed/_p690qQT8L0?feature=oembed](https://www.youtube.com/embed/_p690qQT8L0?feature=oembed)
 
-Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on “.”
+Bruce joins Jackson Browne on-stage at the Beacon Theater in New York City and provides backing vocals on "."
 
 **2004:** [Take It Easy](http://estreetshuffle.com/index.php/2018/01/18/cover-me-take-it-easy/)
 
@@ -54,7 +54,7 @@ The Magic Tour moves on to Xcel Energy Center in St. Paul.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/2008-03-16.jpg?resize=758%2C1186&amp;ssl=1)
 
-Night Two in Brisbane opens with the live debut of “.”
+Night Two in Brisbane opens with the live debut of "."
 
 **2013:** [High Hopes](https://estreetshuffle.com/index.php/2021/08/25/cover-me-high-hopes/)
 

@@ -28,7 +28,7 @@
 
 ![](../../assets/2020/12/2000-12-18b.png)
 
-**2016:** BBC Radio 4 airs Bruce's October 19th interview with Kirsty Young on *Desert Island Discs,* in which Bruce chooses eight songs he wouldn't want to live without.
+**2016:** BBC Radio 4 airs Bruce's October 19th interview with Kirsty Young on *Desert Island Discs*, in which Bruce chooses eight songs he wouldn't want to live without.
 
 [https://estreetshuffle.com/wp-content/uploads/2023/12/DesertIslandDiscs-20161218-BruceSpringsteen.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2023/12/DesertIslandDiscs-20161218-BruceSpringsteen.mp3?_=1)
 

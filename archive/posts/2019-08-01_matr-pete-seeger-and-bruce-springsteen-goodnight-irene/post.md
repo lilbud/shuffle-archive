@@ -10,7 +10,7 @@ As for the Bruce connection, that comes via Pete Seeger's cover in 1950 with The
 
 Bruce has performed "Goodnight, Irene" twice, although an argument could be made about whether either should "count."
 
-The first time was at Pete Seeger's 90th birthday concert at Madison Square Garden, on the evening of May 3, 2009. The assembled artists (and there were *many,* Bruce and Patti included) re-assembled at the end of the night for a final encore of "Goodnight, Irene."
+The first time was at Pete Seeger's 90th birthday concert at Madison Square Garden, on the evening of May 3, 2009. The assembled artists (and there were *many*, Bruce and Patti included) re-assembled at the end of the night for a final encore of "Goodnight, Irene."
 
 But neither Bruce nor Patti were anywhere near the microphone, so while we can clearly see them singing, we'll have to take it on faith that their voices are somewhere deep down in the mix.
 

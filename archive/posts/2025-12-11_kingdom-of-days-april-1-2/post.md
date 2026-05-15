@@ -1,6 +1,6 @@
 
 
-Bruce and his “strange but adept” band headline a show at Rutgers University.
+Bruce and his "strange but adept" band headline a show at Rutgers University.
 
 **1973:**
 
@@ -8,7 +8,7 @@ Bruce and his “strange but adept” band headline a show at Rutgers University
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1973-0401.jpg?resize=758%2C973&amp;ssl=1)
 
-Bruce and the band cancel a scheduled show at Butler University when the school is unable to front the band’s appearance fee. Instead, they play a Chicken Scratch gig at Ohio University in Athens, where the venue takes some heavy damage as a result.
+Bruce and the band cancel a scheduled show at Butler University when the school is unable to front the band's appearance fee. Instead, they play a Chicken Scratch gig at Ohio University in Athens, where the venue takes some heavy damage as a result.
 
 **1976:**
 
@@ -38,7 +38,7 @@ Bruce and the band play the first of two shows at Nassau Coliseum, where a sneak
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/1988-04-01.jpg?resize=665%2C827&amp;ssl=1)
 
-The Tour kicks off at HP Pavilion in San Jose. “Good Eye” is performed for the only time on the tour and the last time to date.
+The Tour kicks off at HP Pavilion in San Jose. "Good Eye" is performed for the only time on the tour and the last time to date.
 
 **2009:** *Working on a Dream*
 
@@ -58,7 +58,7 @@ Meanwhile, Bruce joins Little Steven at the Underground Garage for part one of a
 
 [https://videopress.com/embed/ygt8x9Zu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ygt8x9Zu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-At the Verizon Center in Washington, DC, Bruce and the E Street Band play “The Promise” in a full-band arrangement for only the third time ever. “Adam Raised a Cain” and “Out in the Street” make their tour premieres tonight as well.
+At the Verizon Center in Washington, DC, Bruce and the E Street Band play "The Promise" in a full-band arrangement for only the third time ever. "Adam Raised a Cain" and "Out in the Street" make their tour premieres tonight as well.
 
 **2012:**
 
@@ -70,7 +70,7 @@ At the Verizon Center in Washington, DC, Bruce and the E Street Band play “The
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/03/44696138581_620944df80_o.jpg?resize=758%2C814&amp;ssl=1)
 
-Bruce tour debuts “Jungleland” at Madison Square Garden when the reprise of the River Tour makes a stop in New York City. Paul McCartney is in attendance tonight.
+Bruce tour debuts "Jungleland" at Madison Square Garden when the reprise of the River Tour makes a stop in New York City. Paul McCartney is in attendance tonight.
 
 **2023:**
 

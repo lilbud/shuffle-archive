@@ -2,13 +2,13 @@ On October 23, 1987, the music industry paid tribute to the man who introduced m
 
 John Hammond, the man who signed Bruce to Columbia Records, passed away on July 10, 1987, and his loss was deeply felt.
 
-Bruce performed at Hammond’s memorial service at St. Peter’s Church in New York City, and the song he chose to play was fittingly written by “another young fellow that John gave a break to.”
+Bruce performed at Hammond's memorial service at St. Peter's Church in New York City, and the song he chose to play was fittingly written by "another young fellow that John gave a break to."
 
 [https://www.youtube.com/embed/llyGdYw3KmQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/llyGdYw3KmQ?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 
-“Forever Young” was a wonderful choice for the occasion, and not just because of its author–the song is a celebration of life, and of a life lived well. For those present, it must have been a moving moment.
+"Forever Young" was a wonderful choice for the occasion, and not just because of its author–the song is a celebration of life, and of a life lived well. For those present, it must have been a moving moment.
 
-Dylan’s original version (there were actually two–an uptempo rocker and a slower lullaby) dates back to his *Planet Waves* album in 1974.
+Dylan's original version (there were actually two–an uptempo rocker and a slower lullaby) dates back to his *Planet Waves* album in 1974.
 
 [https://www.youtube.com/embed/Frj2CLGldC4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent](https://www.youtube.com/embed/Frj2CLGldC4?version=3&#038;rel=1&#038;showsearch=0&#038;showinfo=1&#038;iv_load_policy=1&#038;fs=1&#038;hl=en-US&#038;autohide=2&#038;wmode=transparent)
 

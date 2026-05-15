@@ -38,7 +38,7 @@ The European leg of the River Tour wraps up with a second show in Birmingham, En
 
 [https://videopress.com/embed/dAro3Txt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/dAro3Txt?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. “,” “” “” and “” all make their live debuts. Listen to this historic bar gig below.
+Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. "," "" "" and "" all make their live debuts. Listen to this historic bar gig below.
 
 **1984:** [Glory Days](https://estreetshuffle.com/index.php/2024/06/04/roll-of-the-dice-glory-days/)[Darlington County,](https://estreetshuffle.com/index.php/2020/09/10/roll-of-the-dice-darlington-county/)[My Hometown,](http://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)[Born in the U.S.A.](http://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)
 
@@ -50,7 +50,7 @@ Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1984-06-08-71x300.jpg?resize=758%2C3203)
 
-The stadium-breaker! Bruce’s encore of “Twist and Shout” almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.
+The stadium-breaker! Bruce's encore of "Twist and Shout" almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.
 
 **1985:**
 
@@ -60,7 +60,7 @@ The stadium-breaker! Bruce’s encore of “Twist and Shout” almost collapses 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/06/Bristol_Herald_Courier__Bristol_Virginia_Tennessean_Mon__Jun_10__1985_.jpg?w=758&amp;ssl=1)
 
-At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs ““–written for the occasion–for the very first time.
+At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs ""–written for the occasion–for the very first time.
 
 **1991:** [If I Should Fall Behind](http://estreetshuffle.com/index.php/2018/06/01/roll-of-the-dice-if-i-should-fall-behind/)
 
@@ -68,7 +68,7 @@ At their home in Beverly Hills, Bruce and Patti marry and hold a reception with 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1991-06-08-300x129.jpg?resize=758%2C326)
 
-Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates “” for the occasion.
+Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates "" for the occasion.
 
 **2003:** [Tougher Than the Rest](https://estreetshuffle.com/index.php/2020/08/08/roll-of-the-dice-tougher-than-the-rest/)
 

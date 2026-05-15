@@ -6,13 +6,13 @@ Bruce and the E Street Band play two shows at Fat City in Seaside Heights, New J
 
 **1973:**
 
-Bruce records “Candy’s Boy” at The Record Plant in New York City. It will remain in the vault for more than three decades before finally enjoying an official release on .
+Bruce records "Candy's Boy" at The Record Plant in New York City. It will remain in the vault for more than three decades before finally enjoying an official release on .
 
 **1977:** *The Promise*
 
 [https://www.youtube.com/embed/kyX31Y8O-20?feature=oembed](https://www.youtube.com/embed/kyX31Y8O-20?feature=oembed)
 
-Bruce meets Bob Seger for the first time at Seger’s gig at the Pine Knob Music Theater in Clarkston, Michigan. (Bruce is in between Michigan tour stops.) After the show, Bruce and Bob spend time backstage talking and singing.
+Bruce meets Bob Seger for the first time at Seger's gig at the Pine Knob Music Theater in Clarkston, Michigan. (Bruce is in between Michigan tour stops.) After the show, Bruce and Bob spend time backstage talking and singing.
 
 **1978:**
 
@@ -20,13 +20,13 @@ Bruce meets Bob Seger for the first time at Seger’s gig at the Pine Knob Music
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0902-300x195.jpg?resize=729%2C473)
 
-Bruce and the E Street Band record “From Small Things (Big Things One Day Come)” at The Power Station in New York City. It will remain in the vault for for 24 years.
+Bruce and the E Street Band record "From Small Things (Big Things One Day Come)" at The Power Station in New York City. It will remain in the vault for for 24 years.
 
 **1979:**
 
 [https://www.youtube.com/embed/N8qL5_iWWag?feature=oembed](https://www.youtube.com/embed/N8qL5_iWWag?feature=oembed)
 
-Bruce and the E Street Band bring the original River Tour to the San Diego Sports Arena, where the boys play “” for the last time for 21 years.
+Bruce and the E Street Band bring the original River Tour to the San Diego Sports Arena, where the boys play "" for the last time for 21 years.
 
 **1981:** [Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)
 
@@ -42,7 +42,7 @@ Bruce guest stars with John Eddie and the Front Street Runners at The Stone Pony
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/09/1984-09-02-225x300.jpg?resize=758%2C1010)
 
-The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebrating the Universal Declaration of Human Rights and raising awareness for Amnesty International. The tour is an all-star endeavor headlined by Bruce, Sting, Peter Gabriel, Tracy Chapman and Youssu N’Dour with local artists from each country along the itinerary. The show kicks off with an all-headliner performance of “” and Bruce closes the show with an abbreviated fifteen-song “greatest hits” set capped off by an all-artist “” and “Get Up, Stand Up” reprise.
+The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebrating the Universal Declaration of Human Rights and raising awareness for Amnesty International. The tour is an all-star endeavor headlined by Bruce, Sting, Peter Gabriel, Tracy Chapman and Youssu N'Dour with local artists from each country along the itinerary. The show kicks off with an all-headliner performance of "" and Bruce closes the show with an abbreviated fifteen-song "greatest hits" set capped off by an all-artist "" and "Get Up, Stand Up" reprise.
 
 **1988:**[Get Up, Stand Up,](https://estreetshuffle.com/index.php/2020/11/13/matr-bruce-springsteen-tracy-chapman-sting-peter-gabriel-and-youssou-ndour-get-up-stand-up/)[Chimes of Freedom](http://estreetshuffle.com/index.php/2018/07/18/roll-of-the-dice-cover-me-chimes-of-freedom/)<https://estreetshuffle.com/wp-content/uploads/2022/09/15-Get-Up-Stand-Up.mp3>
 
@@ -54,7 +54,7 @@ The Human Rights Now! world tour kicks off at Wembley Stadium in London, celebra
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1988-09-02b.jpg?resize=487%2C2283&amp;ssl=1)
 
-Bruce’s World Tour 1992 arrives at the World Music Theater in Tinley Park, Illinois for the first of two nights.
+Bruce's World Tour 1992 arrives at the World Music Theater in Tinley Park, Illinois for the first of two nights.
 
 **1992:**
 
@@ -82,7 +82,7 @@ They even play a few songs by themselves:
 
 [https://www.youtube.com/embed/YliGkb_aFu0?feature=oembed](https://www.youtube.com/embed/YliGkb_aFu0?feature=oembed)
 
-According to Melissa Etheridge, she and Bruce also appeared during one of Berry’s performances with the Stax band, but thanks to Berry’s mystifying bit of sabotage, that performance wasn’t shown.
+According to Melissa Etheridge, she and Bruce also appeared during one of Berry's performances with the Stax band, but thanks to Berry's mystifying bit of sabotage, that performance wasn't shown.
 
 [https://www.youtube.com/embed/vSlS4PaXapA?feature=oembed](https://www.youtube.com/embed/vSlS4PaXapA?feature=oembed)
 
@@ -92,9 +92,9 @@ According to Melissa Etheridge, she and Bruce also appeared during one of Berry�
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1995-09-02b-300x289.jpg?resize=758%2C730)
 
-Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres “” during sign collection, as well as “,” “,” and Philly special “.”
+Bruce and the E Street Band play their first show at Citizens Bank Park when the Wrecking Ball Tour returns to Philadelphia. Bruce tour premieres "" during sign collection, as well as "," "," and Philly special "."
 
-**2012:** [Green Onions](http://estreetshuffle.com/index.php/2019/05/17/cover-me-green-onions/)[Good Rockin’ Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[You Can’t Sit Down](http://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)
+**2012:** [Green Onions](http://estreetshuffle.com/index.php/2019/05/17/cover-me-green-onions/)[Good Rockin' Tonight](https://estreetshuffle.com/index.php/2020/09/17/cover-me-good-rockin-tonight/)[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[You Can't Sit Down](http://estreetshuffle.com/index.php/2018/06/21/cover-me-you-cant-sit-down/)
 
 [https://videopress.com/embed/VD2CbhUu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/VD2CbhUu?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 

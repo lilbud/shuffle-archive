@@ -1,4 +1,4 @@
-We're still a week away from hearing Bruce Springsteen's new album of R&B covers, *Only the Strong Survive,* and only a couple of days out from the induction of this year's Rock and Roll Hall of Fame class.
+We're still a week away from hearing Bruce Springsteen's new album of R&B covers, *Only the Strong Survive*, and only a couple of days out from the induction of this year's Rock and Roll Hall of Fame class.
 
 So while we wait for both, let's take a look back at the only time Bruce covered one of the all-time greatest girl group songs, at one of the earliest ever Rock Hall inductions.
 

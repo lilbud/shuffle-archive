@@ -10,7 +10,7 @@ Steven Van Zandt makes his Steel Mill debut at the Hullabaloo in Richmond.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1970-0327-183x300.jpg?resize=758%2C1243)
 
-Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park’s Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band’s set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)
+Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional materials but changed to Dr. Zoom and the Sonic Boom by the night of the shows) in order to land a gig opening for the Allman Brothers at Asbury Park's Sunshine In. These two shows feature an on-stage Monopoly game and a baton twirler during the band's set. (Lore has it that all Dr. Zoom shows featured these distractions, but this date is the only documented instance of it.)
 
 **1971:**
 
@@ -18,7 +18,7 @@ Bruce puts together an ad hoc band (known as Friendly Enemies on the promotional
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1971-0327-300x280.jpg?resize=758%2C707)
 
-Bruce and Steve drop by Atlanta’s WQXI-FM for an interview with DJ Cat Simon.
+Bruce and Steve drop by Atlanta's WQXI-FM for an interview with DJ Cat Simon.
 
 **1976:**
 
@@ -34,7 +34,7 @@ Bruce postpones a show in Birmingham to recover from the previous leg of the Riv
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/03/1981-0318-226x300.jpg?resize=758%2C1006)
 
-Bruce checks out The Bangles’ performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.
+Bruce checks out The Bangles' performance at Magic Mountain in Southern California with Peter Philbin of Columbia Records. Impressed, Bruce convinces Philbin to sign The Bangles. Hear Susanna Hoffs tell the story below.
 
 **1983:**
 
@@ -48,7 +48,7 @@ Night Four of five at the Sydney Entertainment Center on the Born in the U.S.A. 
 
 [https://videopress.com/embed/RxOJwN5n?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/RxOJwN5n?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce’s scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year’s Oscar ceremony.
+Bruce's scheduled show at Royal Albert Hall in London is postponed to the following month so that Bruce can perform at this year's Oscar ceremony.
 
 **1996:**
 
@@ -56,7 +56,7 @@ Bruce’s scheduled show at Royal Albert Hall in London is postponed to the foll
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/19960322_Press_01_Reschedule.jpg?resize=500%2C751&amp;ssl=1)
 
-The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of “.”
+The final night in Melbourne on the Wrecking Ball Tour features the tour premiere of "."
 
 **2013:**[Better Days](http://estreetshuffle.com/index.php/2018/03/17/roll-of-the-dice-better-days/)
 
@@ -82,7 +82,7 @@ Bruce and the E Street Band bring their World Tour to the Capital One Arena in W
 
 [https://www.youtube.com/embed/bLUhR_LSLmc?feature=oembed](https://www.youtube.com/embed/bLUhR_LSLmc?feature=oembed)
 
-Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn, performing “Sandpaper” and an encore of “Revival” together. Maggie Rogers joins Bruce and Zach for the encore.
+Bruce makes a surprise appearance with Zach Bryan at Barclays Center in Brooklyn, performing "Sandpaper" and an encore of "Revival" together. Maggie Rogers joins Bruce and Zach for the encore.
 
 **2024:**
 

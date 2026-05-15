@@ -2,9 +2,9 @@
 
 *New entry for 1977***New for 2025:**
 
-Bruce makes a guest appearance with Odin at the Highlands Art and Music Fair in Highlands, New Jersey, playing a loose four-song mini-set (including a composed-on-the-spot ““) through two power outages. The band closes with a cover of Big Joe Williams’ “Baby, Please Don’t Go”… sort of. Whether an intentional mashup or because he simply doesn’t know the words, Bruce instead sings the lyrics for “,” making this the first known recording of these words in public. Take a listen to this pristine, historic recording.
+Bruce makes a guest appearance with Odin at the Highlands Art and Music Fair in Highlands, New Jersey, playing a loose four-song mini-set (including a composed-on-the-spot "") through two power outages. The band closes with a cover of Big Joe Williams' "Baby, Please Don't Go"… sort of. Whether an intentional mashup or because he simply doesn't know the words, Bruce instead sings the lyrics for "," making this the first known recording of these words in public. Take a listen to this pristine, historic recording.
 
-**1972:** [Water Station](https://estreetshuffle.com/index.php/2023/12/24/roll-of-the-dice-water-station/)[It’s Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)<https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3><https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3>
+**1972:** [Water Station](https://estreetshuffle.com/index.php/2023/12/24/roll-of-the-dice-water-station/)[It's Hard to Be a Saint in the City](https://estreetshuffle.com/index.php/2018/10/21/roll-of-the-dice-its-hard-to-be-a-saint-in-the-city/)<https://estreetshuffle.com/wp-content/uploads/2023/12/Water-Station__Merged.mp3><https://estreetshuffle.com/wp-content/uploads/2023/09/Baby-Please-Dont-Go-Its-Hard-to-Be-a-Saint-in-the-City.mp3>
 
 A scheduled gig at Penn State University is cancelled to make room for studio work on .
 
@@ -18,9 +18,9 @@ Bruce holds a recording session at The Record Plant in New York City.
 
 **1977:**
 
-The Darkness Tour arrives at the University of Notre Dame, where Bruce plays “” and his first known performance of “.”
+The Darkness Tour arrives at the University of Notre Dame, where Bruce plays "" and his first known performance of "."
 
-**1978:** [Double Shot (of My Baby’s Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)[Louie Louie](http://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)
+**1978:** [Double Shot (of My Baby's Love)](https://estreetshuffle.com/index.php/2022/04/14/matr-bruce-springsteen-and-the-swingin-medallions-double-shot-of-my-babys-love/)[Louie Louie](http://estreetshuffle.com/index.php/2020/03/20/cover-me-louie-louie/)
 
 [https://videopress.com/embed/4EmmyA9O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4EmmyA9O?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -32,7 +32,7 @@ The Darkness Tour arrives at the University of Notre Dame, where Bruce plays “
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/08/1978-09-09-300x216.jpg?resize=758%2C546)
 
-Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami’s Orange Bowl Stadium for the first of two nights.
+Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami's Orange Bowl Stadium for the first of two nights.
 
 **1985:**
 
@@ -52,19 +52,19 @@ Bruce and the E Street Band bring the Born in the U.S.A. Tour to Miami’s Orang
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1985-0908.jpg?resize=758%2C928&amp;ssl=1)
 
-“” is nominated for Best Male Video at the MTV Video Music Awards but loses to Eric Clapton’s “Tears in Heaven.”
+"" is nominated for Best Male Video at the MTV Video Music Awards but loses to Eric Clapton's "Tears in Heaven."
 
 **1992:** [Human Touch](http://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)
 
 [https://www.youtube.com/embed/85cNRQo1m3A?feature=oembed](https://www.youtube.com/embed/85cNRQo1m3A?feature=oembed)
 
-Bruce and the reunited E Street Band play their second of two shows at The Palace of Auburn Hills, opening with a Motown special snippet of “” before launching into “.”
+Bruce and the reunited E Street Band play their second of two shows at The Palace of Auburn Hills, opening with a Motown special snippet of "" before launching into "."
 
-**1999:** [Dancing in the Street](https://estreetshuffle.com/index.php/2020/09/12/cover-me-dancing-in-the-street/)[Don’t Look Back](http://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)
+**1999:** [Dancing in the Street](https://estreetshuffle.com/index.php/2020/09/12/cover-me-dancing-in-the-street/)[Don't Look Back](http://estreetshuffle.com/index.php/2020/05/03/roll-of-the-dice-dont-look-back/)
 
 [https://videopress.com/embed/UijHwg1p?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UijHwg1p?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-kicks off at New Jersey’s Monmouth University, drawing scholars and fans to discuss the life and work of Springsteen. More than 150 papers are presented, and special guests and musical events celebrate the occasion.
+kicks off at New Jersey's Monmouth University, drawing scholars and fans to discuss the life and work of Springsteen. More than 150 papers are presented, and special guests and musical events celebrate the occasion.
 
 **2005:** *Glory Days: A Bruce Springsteen Symposium*
 
@@ -76,7 +76,7 @@ kicks off at New Jersey’s Monmouth University, drawing scholars and fans to di
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/2005-09-09b.jpg?resize=758%2C2274&amp;ssl=1)
 
-Night Two in Philadelphia on the “Autobiography Tour” can’t quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from , and “From Small Things (Big Things One Day Come)” and “” make rare appearances. The amazing two-night stand is capped off by a show-closing “” complete with fireworks. But for my money, the highlight of the show is one of the best-ever versions of “.” For more highlights from this show, see my 
+Night Two in Philadelphia on the "Autobiography Tour" can't quite measure up to Night One in length or set list, but it raises the bar in intensity. Original E Streeter Vini Lopez makes a guest appearance early in the show on two songs from , and "From Small Things (Big Things One Day Come)" and "" make rare appearances. The amazing two-night stand is capped off by a show-closing "" complete with fireworks. But for my money, the highlight of the show is one of the best-ever versions of "." For more highlights from this show, see my 
 
 **2016:** [](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0105-album.jpg?w=500&ssl=1)*Greetings from Asbury Park, N.J.*[Lucky Town](http://estreetshuffle.com/index.php/2019/05/24/roll-of-the-dice-lucky-town/)[Jersey Girl](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[report.](http://estreetshuffle.com/index.php/2018/09/09/where-the-band-was-philadelphia-september-9-2016/)*Where the Band Was*
 

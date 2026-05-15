@@ -80,7 +80,7 @@
 
 **2020:** After consuming two shots of tequila with some friendly fans, Bruce is arrested at the Gateway National Recreation Area in Sandy Hook for driving while intoxicated–even though a breathalyzer test proves that Bruce's blood alcohol level is a mere fraction of the amount required to qualify as intoxicated. The incident will remain unpublicized until early the following year.
 
-**2022:** Bruce appears via remote interview on *The Project* in Australia,*Totemic* in France, and CBC Radio 2 *Q* in Canada. That evening, Bruce joins Jimmy Fallon for the first of a multi-night *Tonight Show* "takeover," debuting "Do I love You (Indeed I Do)."
+**2022:** Bruce appears via remote interview on *The Project* in Australia*,Totemic* in France, and CBC Radio 2 *Q* in Canada. That evening, Bruce joins Jimmy Fallon for the first of a multi-night *Tonight Show* "takeover," debuting "Do I love You (Indeed I Do)."
 
 [Watch on Youtube: Bruce Springsteen: Rock Legend Explains Why He's A Huge Taylor Swift Fan](https://www.youtube.com/watch?v=83uHNXF1YTk)
 

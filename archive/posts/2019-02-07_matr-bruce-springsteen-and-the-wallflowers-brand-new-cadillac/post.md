@@ -2,7 +2,7 @@
 
 [Watch on Youtube: Vince Taylor and his Playboys - Brand New Cadillac](https://www.youtube.com/watch?v=Dc2pTC0D0j0)
 
-Twenty years later, The Clash covered it and released it on *London Calling,* giving the original rockabilly arrangement a harder punk edge.
+Twenty years later, The Clash covered it and released it on *London Calling*, giving the original rockabilly arrangement a harder punk edge.
 
 [Watch on Youtube: Brand New Cadillac](https://www.youtube.com/watch?v=xsL_8Oyx_So)
 

@@ -6,7 +6,7 @@ Steel Mill performs at the Richmond Arena.
 
 **1970:**
 
-Bruce and what will eventually be named the E Street Band (including new member Clarence Clemons) rehearse for their upcoming Greetings from Asbury Park Tour at Bill Herring’s guitar store in Point Pleasant, New Jersey. That night, they play an impromptu performance at The Shipbottom Lounge in the Beacon Hotel.
+Bruce and what will eventually be named the E Street Band (including new member Clarence Clemons) rehearse for their upcoming Greetings from Asbury Park Tour at Bill Herring's guitar store in Point Pleasant, New Jersey. That night, they play an impromptu performance at The Shipbottom Lounge in the Beacon Hotel.
 
 **1972:**
 
@@ -22,7 +22,7 @@ Bruce and the E Street band play two shows at Dartmouth College.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1974-10-25-184x300.png?resize=758%2C1236)
 
-Bruce plays his very first show in Oregon, to a small crowd at Portland’s Paramount Theater.
+Bruce plays his very first show in Oregon, to a small crowd at Portland's Paramount Theater.
 
 **1975:**
 
@@ -30,7 +30,7 @@ Bruce plays his very first show in Oregon, to a small crowd at Portland’s Para
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/48716655231_77b34c6fe1_o-300x285.jpg?resize=758%2C723)
 
-Bruce and the E Street Band bring the Lawsuit Tour to Philadelphia, where he plays his very first headlining show at the Philadelphia Spectrum. During the encores, the band debuts their cover of Darlene Love’s “.” Amazingly, some great footage exists from this show.
+Bruce and the E Street Band bring the Lawsuit Tour to Philadelphia, where he plays his very first headlining show at the Philadelphia Spectrum. During the encores, the band debuts their cover of Darlene Love's "." Amazingly, some great footage exists from this show.
 
 **1976:** [A Fine Fine Boy](http://estreetshuffle.com/index.php/2019/01/28/cover-me-a-fine-fine-boy/)
 
@@ -42,7 +42,7 @@ Bruce and the E Street Band bring the Lawsuit Tour to Philadelphia, where he pla
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1976-10-25-300x210.png?resize=758%2C530)
 
-The River Tour heads south down the west coast, stopping for a night at Portland’s Memorial Coliseum, where Bruce and the band play “” for the first and only time to date (in acknowledgement of the recent Mount St. Helens eruption).
+The River Tour heads south down the west coast, stopping for a night at Portland's Memorial Coliseum, where Bruce and the band play "" for the first and only time to date (in acknowledgement of the recent Mount St. Helens eruption).
 
 **1980:** [On Top of Old Smoky](http://estreetshuffle.com/index.php/2019/08/24/cover-me-on-top-of-old-smoky/)
 
@@ -58,7 +58,7 @@ The River Tour heads south down the west coast, stopping for a night at Portland
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/10/Oregon_Journal_1980_10_27_10.jpg?resize=758%2C471&amp;ssl=1)
 
-Bruce and the E Street Band start work on a new song, “No Surrender” at a recording session for 
+Bruce and the E Street Band start work on a new song, "No Surrender" at a recording session for 
 
 **1983:** *Born in the U.S.A.*
 
@@ -82,15 +82,15 @@ Bruce and the E Street Band kick off a seven-night Born in the U.S.A. Tour stand
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/47083179991_ddd2099192_o-300x184.jpg?resize=758%2C465)
 
-At his home studio in Los Angeles, Bruce produces Joe Grushecky’s first two tracks for what will eventually become joining Joe on both of them: “” and “.”
+At his home studio in Los Angeles, Bruce produces Joe Grushecky's first two tracks for what will eventually become joining Joe on both of them: "" and "."
 
-**1993:** *,* [American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)[Chain Smokin’](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)
+**1993:** **, [American Babylon](https://estreetshuffle.com/index.php/2020/10/17/american-babylon-a-retrospective/)[Chain Smokin'](https://estreetshuffle.com/index.php/2021/05/25/matr-joe-grushecky-and-bruce-springsteen-chain-smokin/)[Never Be Enough Time](https://estreetshuffle.com/index.php/2018/04/03/meeting-across-the-river-joe-grushecky-and-bruce-springsteen-never-be-enough-time/)
 
 [https://www.youtube.com/embed/TTjzF7dHCHI?feature=oembed](https://www.youtube.com/embed/TTjzF7dHCHI?feature=oembed)
 
 [https://www.youtube.com/embed/HXEb4Dmbfoo?feature=oembed](https://www.youtube.com/embed/HXEb4Dmbfoo?feature=oembed)
 
-Danny Federici makes a guest appearance at Bruce’s solo acoustic show in Santa Barbara, joining Bruce for “This Hard Land” and “”
+Danny Federici makes a guest appearance at Bruce's solo acoustic show in Santa Barbara, joining Bruce for "This Hard Land" and ""
 
 **1996:** [There Will Never Be Any Other for Me But You.](http://estreetshuffle.com/index.php/2019/08/23/roll-of-the-dice-there-will-never-be-any-other-for-me-but-you/)
 
@@ -118,7 +118,7 @@ Bruce and the reunited E Street Band open their three-night stand at the Oakland
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/10/1999-10-25d-300x218.png?resize=758%2C551)
 
-At the final Seeger Sessions show of the Spanish leg in Santander, Bruce tour debuts “,” performed as a duet with Frank Bruno.
+At the final Seeger Sessions show of the Spanish leg in Santander, Bruce tour debuts "," performed as a duet with Frank Bruno.
 
 **2006:** [The Ghost of Tom Joad](http://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)
 
@@ -136,15 +136,15 @@ Bruce and the E Street Band bring the Magic Tour to the Oracle Arena in Oakland 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/10/2007-10-25.png?resize=758%2C1307&amp;ssl=1)
 
-Bruce performs the entire album, tour premieres “,” and plays a rare “” when the Working on a Dream Tour stops in St. Louis for a night.
+Bruce performs the entire album, tour premieres "," and plays a rare "" when the Working on a Dream Tour stops in St. Louis for a night.
 
 **2009:** *Born to Run*[Roll Over Beethoven](http://estreetshuffle.com/index.php/2019/08/08/cover-me-roll-over-beethoven/)[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)
 
 [https://www.youtube.com/embed/ItC8FsFxaro?feature=oembed](https://www.youtube.com/embed/ItC8FsFxaro?feature=oembed)
 
-Bruce’s Wrecking Ball show in Hartford rockets out of the gate with the tour premiere (and fifth performance ever) of “.” The fantastic set also includes the tour premiere of “” and rare outings for “” and “.”
+Bruce's Wrecking Ball show in Hartford rockets out of the gate with the tour premiere (and fifth performance ever) of "." The fantastic set also includes the tour premiere of "" and rare outings for "" and "."
 
-**2012:** [Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Kitty’s Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
+**2012:** [Held Up Without a Gun](https://estreetshuffle.com/index.php/2021/10/12/roll-of-the-dice-held-up-without-a-gun/)[Pink Cadillac](http://estreetshuffle.com/index.php/2019/08/21/roll-of-the-dice-pink-cadillac/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)
 
 [https://www.youtube.com/embed/k9sgCmzYeWo?feature=oembed](https://www.youtube.com/embed/k9sgCmzYeWo?feature=oembed)
 
@@ -182,7 +182,7 @@ Springsteen on Broadway continues its theatrical run at the Walter Kerr Theater 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/2018-10-25-300x229.jpg?resize=758%2C578)
 
-airs the second part of Gayle King’s interview with Bruce Springsteen, and is officially released to movie theaters.
+airs the second part of Gayle King's interview with Bruce Springsteen, and is officially released to movie theaters.
 
 **2019:** *CBS This Morning* *Western Stars*
 
@@ -202,7 +202,7 @@ Bruce makes a guest appearance on in support of his new book with former Preside
 
 [https://www.youtube.com/embed/5-KlomDM7t4?feature=oembed](https://www.youtube.com/embed/5-KlomDM7t4?feature=oembed)
 
-Here's a special performance from as he sings “The River” on The Late Show! 
+Here's a special performance from as he sings "The River" on The Late Show! 
 
 [@springsteen](https://twitter.com/springsteen?ref_src=twsrc%5Etfw)[#LSSC](https://twitter.com/hashtag/LSSC?src=hash&ref_src=twsrc%5Etfw)[pic.twitter.com/aj2mhJVh0g](https://t.co/aj2mhJVh0g)
 
@@ -218,8 +218,8 @@ Earlier in the day, NPR airs their interview with Bruce and the president.
 
 [https://www.youtube.com/embed/Ro_5qfNhIM8?start=3&amp;feature=oembed](https://www.youtube.com/embed/Ro_5qfNhIM8?start=3&amp;feature=oembed)
 
-Bruce calls into Jim Rotolo’s show on E Street Radio to talk about premiering on Hulu today.
+Bruce calls into Jim Rotolo's show on E Street Radio to talk about premiering on Hulu today.
 
-**2024:** *Road Diary,* <https://estreetshuffle.com/wp-content/uploads/2025/10/2024-10-25-Bruce-Max-Thom-on-E-St-Radio.m4a>
+**2024:** *Road Diary*, <https://estreetshuffle.com/wp-content/uploads/2025/10/2024-10-25-Bruce-Max-Thom-on-E-St-Radio.m4a>
 
 [https://www.youtube.com/embed/GEgwAQUQh0s?feature=oembed](https://www.youtube.com/embed/GEgwAQUQh0s?feature=oembed)

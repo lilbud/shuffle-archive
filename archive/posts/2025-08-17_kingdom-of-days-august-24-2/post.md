@@ -6,7 +6,7 @@ Earth plays a private gig at a wedding in Brooklyn.
 
 **1968:**
 
-Bruce and the E Street Band play their fifth night of a week-long residency at Oliver’s in Boston.
+Bruce and the E Street Band play their fifth night of a week-long residency at Oliver's in Boston.
 
 **1973:**
 
@@ -26,13 +26,13 @@ Bruce and the E Street Band hold a recording session in New York City for their 
 
 **1977:**
 
-Bruce and the band record “” and an early arrangement of “” during a recording session at the Power Station in New York City.
+Bruce and the band record "" and an early arrangement of "" during a recording session at the Power Station in New York City.
 
 **1979:** [Point Blank](https://estreetshuffle.com/index.php/2020/12/19/roll-of-the-dice-point-blank/)[You Can Look (Buy You Better Not Touch)](https://estreetshuffle.com/index.php/2020/06/14/roll-of-the-dice-you-can-look-but-you-better-not-touch/)
 
 [https://www.youtube.com/embed/69Gz0eCDtXs?feature=oembed](https://www.youtube.com/embed/69Gz0eCDtXs?feature=oembed)
 
-At the fourth night of a six-night River Tour stand at the L.A. Sports Arena, Tom Waits makes a guest appearance for (what else?) “”
+At the fourth night of a six-night River Tour stand at the L.A. Sports Arena, Tom Waits makes a guest appearance for (what else?) ""
 
 **1981:** [Jersey Girl.](http://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)
 
@@ -42,7 +42,7 @@ At the fourth night of a six-night River Tour stand at the L.A. Sports Arena, To
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/08/Simi_Valley_Star_1981_08_26_34.jpg?resize=758%2C277&amp;ssl=1)
 
-Bruce makes a surprise appearance at Sting’s show at Madison Square Garden, dueting on “” and “Message in a Bottle.” The two will shortly kick off a tour together in support of Amnesty International.
+Bruce makes a surprise appearance at Sting's show at Madison Square Garden, dueting on "" and "Message in a Bottle." The two will shortly kick off a tour together in support of Amnesty International.
 
 **1988:** [The River](https://estreetshuffle.com/index.php/2021/03/04/roll-of-the-dice-the-river/)
 
@@ -50,13 +50,13 @@ Bruce makes a surprise appearance at Sting’s show at Madison Square Garden, du
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/1988-08-24-300x243.png?resize=758%2C614)
 
-Bruce and the reunited E Street Band play their third of five shows at Boston’s Fleet Center.
+Bruce and the reunited E Street Band play their third of five shows at Boston's Fleet Center.
 
 **1999:**
 
 [https://www.youtube.com/embed/qSXQWyuKEV0?feature=oembed](https://www.youtube.com/embed/qSXQWyuKEV0?feature=oembed)
 
-The Rising Tour’s barnstorming leg continues with a show at The Forum in Inglewood, California.
+The Rising Tour's barnstorming leg continues with a show at The Forum in Inglewood, California.
 
 **2002:**
 
@@ -72,9 +72,9 @@ The Rising Tour’s barnstorming leg continues with a show at The Forum in Ingle
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/08/2002-08-24b-300x223.png?resize=758%2C564)
 
-The Magic Tour wraps up with an eclectic setlist in Kansas City, featuring tour premieres (and two world debuts, including the first-ever ““), Max on lead vocals on ““, a Soozie and Bruce duet on “,” and more. For more highlights from this show, see my .
+The Magic Tour wraps up with an eclectic setlist in Kansas City, featuring tour premieres (and two world debuts, including the first-ever ""), Max on lead vocals on "", a Soozie and Bruce duet on "," and more. For more highlights from this show, see my .
 
-**2008:** *six*[Ricky Wants a Man of Her Own](http://estreetshuffle.com/index.php/2018/11/23/roll-of-the-dice-ricky-wants-a-man-of-her-own/)[Boys](https://estreetshuffle.com/index.php/2018/05/25/cover-me-boys/)[It’s All Over Now](https://estreetshuffle.com/index.php/2021/09/02/matr-bruce-springsteen-nils-lofgren-and-soozie-tyrell-its-all-over-now/)[](http://estreetshuffle.com/index.php/2018/08/24/where-the-band-was-kansas-city-august-24-2008/)*Where the Band Was* [report](http://estreetshuffle.com/index.php/2018/08/24/where-the-band-was-kansas-city-august-24-2008/)
+**2008:** *six*[Ricky Wants a Man of Her Own](http://estreetshuffle.com/index.php/2018/11/23/roll-of-the-dice-ricky-wants-a-man-of-her-own/)[Boys](https://estreetshuffle.com/index.php/2018/05/25/cover-me-boys/)[It's All Over Now](https://estreetshuffle.com/index.php/2021/09/02/matr-bruce-springsteen-nils-lofgren-and-soozie-tyrell-its-all-over-now/)[](http://estreetshuffle.com/index.php/2018/08/24/where-the-band-was-kansas-city-august-24-2008/)*Where the Band Was* [report](http://estreetshuffle.com/index.php/2018/08/24/where-the-band-was-kansas-city-august-24-2008/)
 
 [https://www.youtube.com/embed/CTGny12oHMo?feature=oembed](https://www.youtube.com/embed/CTGny12oHMo?feature=oembed)
 
@@ -88,7 +88,7 @@ The Magic Tour wraps up with an eclectic setlist in Kansas City, featuring tour 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/08/2008-08-24b.jpg?resize=758%2C763&amp;ssl=1)
 
-The Wrecking Ball Tour heads north to Canada, starting with a show at the Rogers Center in Toronto, where an undisputed highlight is a rare solo piano “.”
+The Wrecking Ball Tour heads north to Canada, starting with a show at the Rogers Center in Toronto, where an undisputed highlight is a rare solo piano "."
 
 **2012:** [Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 

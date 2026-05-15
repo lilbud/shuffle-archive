@@ -18,7 +18,7 @@ Bruce continues his Florida swing with a gig at Jai Alai Fronton in Orlando.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1977-03-05-300x181.jpg?resize=758%2C457)
 
-At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the first leg of the River Tour and play “” for the last time until 2005.
+At Market Square Arena in Indianapolis, Bruce and the E Street Band wrap up the first leg of the River Tour and play "" for the last time until 2005.
 
 **1981:**[Fade Away](http://estreetshuffle.com/index.php/2018/04/28/roll-of-the-dice-fade-away/)
 
@@ -50,7 +50,7 @@ Bruce and the reunited E Street Band rehearse for their upcoming Reunion Tour at
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/1999-03-05a-190x300.jpg?resize=758%2C1197)
 
-“” and “” are both certified gold by the Recording Industry Association of America.
+"" and "" are both certified gold by the Recording Industry Association of America.
 
 **2001:** [Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)[My Hometown](https://estreetshuffle.com/index.php/2020/04/09/roll-of-the-dice-my-hometown/)
 
@@ -64,7 +64,7 @@ is certified gold by the Recording Industry Association of America.
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ](https://www.youtube.com/embed/videoseries?list=OLAK5uy_nG4yTMK9hYlvmoaxolM2g24T8T7_YzREQ)
 
-Bruce and the E Street Band bring their World Tour to Saint Paul, where they tour premiere “” and “.”
+Bruce and the E Street Band bring their World Tour to Saint Paul, where they tour premiere "" and "."
 
 **2023:** [Pay Me My Money Down](https://estreetshuffle.com/index.php/2018/07/03/roll-of-the-dice-cover-me-pay-me-my-money-down/)[Working on the Highway](https://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 

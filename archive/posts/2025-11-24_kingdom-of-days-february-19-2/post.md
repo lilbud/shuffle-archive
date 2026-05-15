@@ -28,7 +28,7 @@ Bruce brings the Lawsuit Tour to St. Paul, where a fan films parts of the perfor
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/1977-02-19.png?resize=758%2C574&amp;ssl=1)
 
-Also on this date in 1977: Manfred Mann’s Earth Band gifts Bruce with his only number one single. Their cover of “” tops the charts in the U.S. and Canada today.
+Also on this date in 1977: Manfred Mann's Earth Band gifts Bruce with his only number one single. Their cover of "" tops the charts in the U.S. and Canada today.
 
 [Blinded by the Light](https://estreetshuffle.com/index.php/2023/01/01/roll-of-the-dice-blinded-by-the-light/)
 
@@ -38,7 +38,7 @@ Nils Lofgren spends the weekend with Bruce at his house in Rumson. Not long afte
 
 **1984:**
 
-Bruce plays a solo acoustic show in Somerville, Massachusetts, as a benefit for . This show features the premiere of “” (which won’t be released for more than a decade) and a one-off acoustic “.” The real highlight, though, is the post-show Q&A sessions with fans in attendance. Take a listen below.
+Bruce plays a solo acoustic show in Somerville, Massachusetts, as a benefit for . This show features the premiere of "" (which won't be released for more than a decade) and a one-off acoustic "." The real highlight, though, is the post-show Q&A sessions with fans in attendance. Take a listen below.
 
 **2003:** *Doubletake**Magazine*[The Wall](https://estreetshuffle.com/index.php/2024/09/04/roll-of-the-dice-the-wall/)[Souls of the Departed](http://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)
 
@@ -52,9 +52,9 @@ Bruce plays a solo acoustic show in Somerville, Massachusetts, as a benefit for 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2003-02-19.png?resize=758%2C644&amp;ssl=1)
 
-Bruce and the E Street Band play the Allphones Arena in Sydney, Australia, where they open with a cover of “” by The Easybeats. Another surprise cover kicks off the encores: “” by INXS, followed by a blazingly fast “Born to Run.” Also tour premiering tonight: “” “,” and “.”
+Bruce and the E Street Band play the Allphones Arena in Sydney, Australia, where they open with a cover of "" by The Easybeats. Another surprise cover kicks off the encores: "" by INXS, followed by a blazingly fast "Born to Run." Also tour premiering tonight: "" "," and "."
 
-**2014:** [Friday on My Mind](http://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/)[Don’t Change](https://estreetshuffle.com/index.php/2021/03/26/cover-me-dont-change/)[Racing in the Street,](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)
+**2014:** [Friday on My Mind](http://estreetshuffle.com/index.php/2019/06/07/cover-me-friday-on-my-mind/)[Don't Change](https://estreetshuffle.com/index.php/2021/03/26/cover-me-dont-change/)[Racing in the Street,](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)[Surprise, Surprise](https://estreetshuffle.com/index.php/2021/05/04/roll-of-the-dice-surprise-surprise/)[Dream Baby Dream](https://estreetshuffle.com/index.php/2020/04/02/cover-me-dream-baby-dream/)
 
 [https://www.youtube.com/embed/iMMpSiG57Zo?feature=oembed](https://www.youtube.com/embed/iMMpSiG57Zo?feature=oembed)
 

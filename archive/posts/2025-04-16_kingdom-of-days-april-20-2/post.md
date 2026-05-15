@@ -34,7 +34,7 @@ A scheduled River Tour show in Paris for this date was moved to April 18.
 
 **1981:**
 
-Bruce works on “” at his home studio in Los Angeles.
+Bruce works on "" at his home studio in Los Angeles.
 
 **1983:** [Cynthia](https://estreetshuffle.com/index.php/2019/09/06/roll-of-the-dice-cynthia/)
 
@@ -48,7 +48,7 @@ The Tunnel of Love Express Tour moves on to Denver for a show a the McNichols Sp
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1988-04-20.jpg?resize=758%2C993&amp;ssl=1)
 
-The second of two nights in Rotterdam for Bruce’s World Tour 1993.
+The second of two nights in Rotterdam for Bruce's World Tour 1993.
 
 **1993:**
 
@@ -60,7 +60,7 @@ Bruce plays a solo acoustic show in Antwerp, rescheduled from March.
 
 [https://videopress.com/embed/bNxmQ6UM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bNxmQ6UM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with the first-ever performance of “” This is only the second Night Two of the tour, and Bruce breaks the set list open with the first performances of “” “,” “,” “” and “This Hard Land” of the Reunion era.
+Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with the first-ever performance of "" This is only the second Night Two of the tour, and Bruce breaks the set list open with the first performances of "" "," "," "" and "This Hard Land" of the Reunion era.
 
 **1999:** [I Wanna Be With You.](http://estreetshuffle.com/index.php/2018/01/14/roll-of-the-dice-i-wanna-be-with-you/)[Atlantic City,](http://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/)[Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)[Sherry Darling](http://estreetshuffle.com/index.php/2018/07/06/roll-of-the-dice-sherry-darling/)[Cadillac Ranch,](https://estreetshuffle.com/index.php/2020/07/23/roll-of-the-dice-cadillac-ranch/)
 
@@ -80,7 +80,7 @@ At the Paramount Theater in Asbury Park, Bruce holds his final rehearsal before 
 
 **2005:**
 
-The first public warm-up show for the Seeger Sessions Tour features the premiere of “,” “” and the album tracks.
+The first public warm-up show for the Seeger Sessions Tour features the premiere of "," "" and the album tracks.
 
 **2006:** [How Can a Poor Man Stand Such Times and Live](https://estreetshuffle.com/index.php/2021/12/08/rotd-cover-me-how-can-a-poor-man-stand-such-times-and-live/)[When the Saints Go Marching In](https://estreetshuffle.com/index.php/2021/03/28/cover-me-when-the-saints-go-marching-in/)
 
@@ -102,7 +102,7 @@ Bruce attends (but does not perform at) the annual Kirsten Ann Carr Fund event.
 
 **2013:**
 
-At Baltimore’s River show, “” features one of what turns into several marriage proposals along the tour.
+At Baltimore's River show, "" features one of what turns into several marriage proposals along the tour.
 
 **2016:** [I Wanna Marry You](https://estreetshuffle.com/index.php/2022/04/22/roll-of-the-dice-i-wanna-marry-you/)
 

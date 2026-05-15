@@ -38,7 +38,7 @@ Bruce plays an acoustic set at Salle Wilfrid-Pelletier in Montreal.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/01/1996-01-07-1.jpg?resize=747%2C865&amp;ssl=1)
 
-: Bruce attends Jann Wenner’s 60th birthday party at Le Bernardin in New York City, and he performs a song he wrote for the occasion. “Jann’s Song” will never surface, but it reportedly includes the lyrics, “”
+: Bruce attends Jann Wenner's 60th birthday party at Le Bernardin in New York City, and he performs a song he wrote for the occasion. "Jann's Song" will never surface, but it reportedly includes the lyrics, ""
 
 **2006***I never guessed a man whose magazine once changed my life / Would one day want to have a threesome with my wife!*
 
@@ -46,7 +46,7 @@ Bruce plays an acoustic set at Salle Wilfrid-Pelletier in Montreal.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/2006-01-07.png?resize=758%2C392&amp;ssl=1)
 
-On Apple Music’s show, host Tim McGraw interviews Bruce about his latest album, .
+On Apple Music's show, host Tim McGraw interviews Bruce about his latest album, .
 
 **2021:** *Beyond the Influence Radio**Letter to You*
 
@@ -58,7 +58,7 @@ The first of a series of scholarly symposiums is convened at Monmouth University
 
 [https://www.youtube.com/embed/eJ4BWxKjyqI?feature=oembed](https://www.youtube.com/embed/eJ4BWxKjyqI?feature=oembed)
 
-Bruce and Patti attend the Golden Globe Awards in Beverly Hills, where he is nominated for (but doesn’t win) the Best Original Song, Motion Picture award for “Addicted to Romance.”
+Bruce and Patti attend the Golden Globe Awards in Beverly Hills, where he is nominated for (but doesn't win) the Best Original Song, Motion Picture award for "Addicted to Romance."
 
 **2024:**
 

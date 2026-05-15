@@ -2,11 +2,11 @@
 
 *No updates***New for 2025:**
 
-The Castiles play a brief set at the Surf ‘N’ See Club in Sea Bright, New Jersey.
+The Castiles play a brief set at the Surf ‘N' See Club in Sea Bright, New Jersey.
 
 **1966:**
 
-The Bruce Springsteen Band makes its debut, headlining at Brookdale Community College’s 2nd Annual “Nothing’s Festival” in Lincroft, New Jersey. (There wasn’t a first annual festival, and the show is free and unpaid–but a gig’s a gig.)
+The Bruce Springsteen Band makes its debut, headlining at Brookdale Community College's 2nd Annual "Nothing's Festival" in Lincroft, New Jersey. (There wasn't a first annual festival, and the show is free and unpaid–but a gig's a gig.)
 
 **1971:**
 
@@ -18,11 +18,11 @@ The Bruce Springsteen Band makes its debut, headlining at Brookdale Community Co
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/06/1971-07-10-300x104.jpg?resize=758%2C263)
 
-Bruce joins Cats on a Smooth Surface for five songs at The Stone Pony in Asbury Park, including “” and “.”
+Bruce joins Cats on a Smooth Surface for five songs at The Stone Pony in Asbury Park, including "" and "."
 
 **1983:** [Wooly Bully](http://estreetshuffle.com/index.php/2018/03/31/cover-me-woolly-bully/)[Little Latin Lupe Lu](http://estreetshuffle.com/index.php/2019/04/21/cover-me-little-latin-lupe-lu/)
 
-Columbia Records producer, executive, and Bruce Springsteen-signer John Hammond passes away at the age of 76. Here’s Bruce talking about his admiration for Hammond in an early interview.
+Columbia Records producer, executive, and Bruce Springsteen-signer John Hammond passes away at the age of 76. Here's Bruce talking about his admiration for Hammond in an early interview.
 
 **1987:**
 
@@ -46,7 +46,7 @@ Sixteen years after its original release, is finally certified platinum by the R
 
 [https://www.youtube.com/embed/videoseries?list=OLAK5uy_kVpI9n-dmnHW7df2Iloxk8nXaya4yEzEw](https://www.youtube.com/embed/videoseries?list=OLAK5uy_kVpI9n-dmnHW7df2Iloxk8nXaya4yEzEw)
 
-Night Three of five at Wembley Arena on World Tour 1992 features an acoustic “.”
+Night Three of five at Wembley Arena on World Tour 1992 features an acoustic "."
 
 **1992:** [Dancing in the Dark](https://estreetshuffle.com/index.php/2021/12/25/roll-of-the-dice-dancing-in-the-dark/)
 
@@ -54,9 +54,9 @@ Night Three of five at Wembley Arena on World Tour 1992 features an acoustic “
 
 [https://www.youtube.com/embed/EvQUeL841A0?feature=oembed](https://www.youtube.com/embed/EvQUeL841A0?feature=oembed)
 
-resumes its theatrical run at the Walter Kerr Theater in New York City after a nine-day break. Patti is absent tonight, so Bruce drops their duets and instead substitutes “” in their place. To make up for playing one fewer song than usual, Bruce adds an encore of sorts: “This Hard Land.”
+resumes its theatrical run at the Walter Kerr Theater in New York City after a nine-day break. Patti is absent tonight, so Bruce drops their duets and instead substitutes "" in their place. To make up for playing one fewer song than usual, Bruce adds an encore of sorts: "This Hard Land."
 
-**2018:***Springsteen on Broadway* [Long Time Comin’](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
+**2018:***Springsteen on Broadway* [Long Time Comin'](https://estreetshuffle.com/index.php/2022/06/19/roll-of-the-dice-long-time-comin/)
 
 [https://www.instagram.com/p/BlE1KCGlMdN/?utm_source=ig_embed&utm_campaign=loading](https://www.instagram.com/p/BlE1KCGlMdN/?utm_source=ig_embed&utm_campaign=loading)
 
@@ -68,9 +68,9 @@ View this post on Instagram
 
 
 
-Bruce breaks news when he calls in to E Street Radio: a new film is on the way, a concert film based on directed by Thom Zimny. When it’s released later in the year, Bruce will take a co-director credit.
+Bruce breaks news when he calls in to E Street Radio: a new film is on the way, a concert film based on directed by Thom Zimny. When it's released later in the year, Bruce will take a co-director credit.
 
-**2019:** *Western Stars,*
+**2019:** *Western Stars*,
 
 Just got off a 10-minute call with . "I wanted to see if the number really worked," he told E Street Radio hosts Dave Marsh and Jim Rotolo. 
 

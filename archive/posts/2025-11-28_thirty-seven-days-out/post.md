@@ -24,7 +24,7 @@ That said, here's what you need to know about the *content* on the site:
 
 These changes are already in effect for all of the January entries from Jan 5th onward, as well as for February entries. I'll be working my way through the remainder of the *Kingdom* posts month by month throughout 2026.
 
-**Roll of the Dice, Cover Me, Meeting Across the River,** and **Where the Band Was**
+**Roll of the Dice, Cover Me, Meeting Across the River*,* and **Where the Band Was**
 
 All of these articles will gradually and permanently disappear, starting in just a few days time. (Yes, even before the blog stops publishing.)
 

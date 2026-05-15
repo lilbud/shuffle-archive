@@ -28,7 +28,7 @@ Bruce plays a set at the Ahmanson Theater in Los Angeles, part of a promotional 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/1973-05-01.jpg?resize=758%2C783&amp;ssl=1)
 
-Bruce plays in Denmark for the first time–as a guest (his first time guesting in Europe) with local band Malurt on “Hungry Heart.”
+Bruce plays in Denmark for the first time–as a guest (his first time guesting in Europe) with local band Malurt on "Hungry Heart."
 
 **1981:**
 
@@ -62,7 +62,7 @@ Bruce and the reunited E Street Band play their first of two shows at the Manche
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/46586788561_fd35492733_o.jpg?resize=758%2C634&amp;ssl=1)
 
-Bruce’s newly released album debuts in the top spot on both the U.S. and U.K. charts.
+Bruce's newly released album debuts in the top spot on both the U.S. and U.K. charts.
 
 **2005:** *Devils & Dust*
 
@@ -74,7 +74,7 @@ Bruce joins Tim McCloone on stage for two songs at the annual Ranney School Ball
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/05/medium.jpg?resize=500%2C375&amp;ssl=1)
 
-On International Workers’ Day, Bruce opens his Tampa High Hopes show with “Joe Hill” and continues a streak of unpredictable tour premieres with “Brothers Under the Bridge,” “Gloria,” and warm-up performances of “Jesse James” and “O Mary Don’t You Weep” for the band’s upcoming Jazz Fest gig. During the encores, Bruce forgets that his microphone stand isn’t bolted down, leading to an embarrassingly awkward backbend attempt on “Tenth Avenue Freeze-Out.” This show is available as part of Bruce’s official archive series.
+On International Workers' Day, Bruce opens his Tampa High Hopes show with "Joe Hill" and continues a streak of unpredictable tour premieres with "Brothers Under the Bridge," "Gloria," and warm-up performances of "Jesse James" and "O Mary Don't You Weep" for the band's upcoming Jazz Fest gig. During the encores, Bruce forgets that his microphone stand isn't bolted down, leading to an embarrassingly awkward backbend attempt on "Tenth Avenue Freeze-Out." This show is available as part of Bruce's official archive series.
 
 **2014:**
 
@@ -94,15 +94,15 @@ On International Workers’ Day, Bruce opens his Tampa High Hopes show with “J
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/04/2014-05-01.jpg?resize=758%2C791&amp;ssl=1)
 
-The Tony Awards announce that Bruce will be awarded a special Tony for “a once in a lifetime theater going experience of extraordinary dimensions.” Watch the announcement at the 12:40 mark below.
+The Tony Awards announce that Bruce will be awarded a special Tony for "a once in a lifetime theater going experience of extraordinary dimensions." Watch the announcement at the 12:40 mark below.
 
-**2018:** *Springsteen on Broadway,*
+**2018:** *Springsteen on Broadway*,
 
 [https://www.youtube.com/embed/Ol_H1beGUV4?feature=oembed](https://www.youtube.com/embed/Ol_H1beGUV4?feature=oembed)
 
 [https://videopress.com/embed/LdION72y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/LdION72y?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Dion releases a video single for his remake of “Hymn to Him,” featuring backing vocals by Patti Scialfa and Bruce on guitar.
+Dion releases a video single for his remake of "Hymn to Him," featuring backing vocals by Patti Scialfa and Bruce on guitar.
 
 **2020:**
 

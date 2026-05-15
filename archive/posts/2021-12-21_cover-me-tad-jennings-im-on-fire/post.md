@@ -1,21 +1,21 @@
 
 
-I know, I know… another “” cover.
+I know, I know… another "" cover.
 
-[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
+[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
-Trust me: at this point an artist needs to bring something new and fresh to the table if they want me to pay attention to the umpteenth cover of Bruce’s 1985 Top Ten single.
+Trust me: at this point an artist needs to bring something new and fresh to the table if they want me to pay attention to the umpteenth cover of Bruce's 1985 Top Ten single.
 
 Tad Jennings does that.
 
-Tad is a singer-songwriter and one-man band out of Daytona Beach, and he knows the basic rule for covers of classic songs: do it different or do it better. His has several inventive covers worth checking out, and the other day he added a new one to the list: a one-take loop cover of “I’m on Fire.”
+Tad is a singer-songwriter and one-man band out of Daytona Beach, and he knows the basic rule for covers of classic songs: do it different or do it better. His has several inventive covers worth checking out, and the other day he added a new one to the list: a one-take loop cover of "I'm on Fire."
 
 [YouTube channel](https://www.youtube.com/channel/UCaR4DUoX5d44P-gtg7k3NNA)
 
-A great singer, a talented guitarist, and a mean multi-tasker, Tad delivers a performance worthy of a listen even if you think you’ve heard it all.
+A great singer, a talented guitarist, and a mean multi-tasker, Tad delivers a performance worthy of a listen even if you think you've heard it all.
 
 [https://www.youtube.com/embed/nOegzE9M1EQ?feature=oembed](https://www.youtube.com/embed/nOegzE9M1EQ?feature=oembed)
 
-For more of Tad’s music–both original and cover–visit his web site .
+For more of Tad's music–both original and cover–visit his web site .
 
 [here](https://www.tadjennings.com/)

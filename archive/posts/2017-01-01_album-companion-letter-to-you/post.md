@@ -25,7 +25,7 @@ Springsteen didn't write *Letter to You* in a burst of creativity any more than 
 - "One Minute You're Here," the metaphysical musing that opens the album, sounds like a holdover from *Western Stars* but dates possibly as early as 2004.
 - "Burnin' Train," the raging, "Gypsy Biker"-ish rocker, was first demoed in 1993 and was likely recorded long before the *Letter to You* sessions.
 - "Rainmaker" dates back to the *Rising* era; the track itself is likely from the *Magic* sessions. It fits tonally with either album and is as good or better than anything on them. It's also a contender for best track on *Letter to You*, even though it sticks out like a thematically sore thumb.
-- "Janey Needs a Shooter" has the most storied history of any track on the album. Originally recorded for *The Wild, The Innocent & The E Street Shuffle, Born to Run,* and briefly a contender for *The River,* it also inspired a classic Warren Zevon song.
+- "Janey Needs a Shooter" has the most storied history of any track on the album. Originally recorded for *The Wild, The Innocent & The E Street Shuffle, Born to Run*, and briefly a contender for *The River*, it also inspired a classic Warren Zevon song.
 - "If I was the Priest" is one of Bruce's earliest "epic" songs, and although it aspires to greater heights than it achieves, it's a remarkable composition for so young a songwriter, and it deserved an official release (somewhere).
 - "Song for Orphans" is probably the least of these six tracks that cried out for an official release. Also dating back to the early 1970s, It's nowhere near as finely constructed as its contemporaneous album-mates.
 
@@ -34,7 +34,7 @@ Springsteen didn't write *Letter to You* in a burst of creativity any more than 
 
 There's nothing wrong with a mix of vintages per se. Springsteen's more obsessive fans (hi!) have long understood that virtually every album since *Lucky Town* has included songs written (and in some cases recorded) years earlier.
 
-But there *is* a problem with *Letter to You,* one that has everything to do with its song selection and sequencing.
+But there *is* a problem with *Letter to You*, one that has everything to do with its song selection and sequencing.
 
 Bruce's best albums are thematically tight and powerful: *Western Stars, Nebraska, Tunnel of Love, Wrecking Ball.* Even *Darkness on the Edge of Town–*which long-time readers know I find the least enjoyable in Bruce's catalog–is undeniably an artistically great album.
 

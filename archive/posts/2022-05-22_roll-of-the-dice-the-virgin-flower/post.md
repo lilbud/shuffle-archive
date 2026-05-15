@@ -1,14 +1,14 @@
-We continue working our way through Bruce Springsteen’s “[1968 Notebook](https://estreetshuffle.com/?s=1968+notebook)” with an entry that reads more like a poem than a song… and yet it’s believed that Bruce did in fact perform it (as with the other songs in the notebook) during his early solo acoustic performances.
+We continue working our way through Bruce Springsteen's "[1968 Notebook](https://estreetshuffle.com/?s=1968+notebook)" with an entry that reads more like a poem than a song… and yet it's believed that Bruce did in fact perform it (as with the other songs in the notebook) during his early solo acoustic performances.
 
 If you need a primer, the 1968 Notebook contains 20 songs written by Bruce in his formative years, and we only know about its existence because it went up for public auction back in 2006, with scans made available for potential bidders to inspect.
 
 ![](../../assets/2021/06/1968_lyricsnotebook-contentspage.jpg)
 
-Today’s entry is called “The Virgin Flower,” and it’s both one of the lengthiest entries in the notebook (clocking in at three pages) and one of the most difficult to transcribe let alone interpret, due to the resolution of the scans and the quality of the eighteen-year-old’s handwriting.
+Today's entry is called "The Virgin Flower," and it's both one of the lengthiest entries in the notebook (clocking in at three pages) and one of the most difficult to transcribe let alone interpret, due to the resolution of the scans and the quality of the eighteen-year-old's handwriting.
 
 ![](../../assets/2021/06/thevirginflower_lyrics.jpg)
 
-Still, the good folks at Springsteenlyrics.com made a valiant attempt. Enough passages are legible to get a sense of the song, but too many are illegible or (I’m pretty certain) incorrectly transcribed for us to reliably or confidently interpret.
+Still, the good folks at Springsteenlyrics.com made a valiant attempt. Enough passages are legible to get a sense of the song, but too many are illegible or (I'm pretty certain) incorrectly transcribed for us to reliably or confidently interpret.
 
 > *The virgin flower standing*
 > *naked struck open the midnight*
@@ -33,8 +33,8 @@ Still, the good folks at Springsteenlyrics.com made a valiant attempt. Enough pa
 > *enchanted forest telling her*
 > *tales that are spun out of gold*
 > *far away from the frightened*
-> *mass that wouldn’t understand*
-> *for she’s much to [sic] cold*
+> *mass that wouldn't understand*
+> *for she's much to [sic] cold*
 
 > *Her eyes appear as the greatest*
 > *??? upon which I would love to*
@@ -54,15 +54,15 @@ Still, the good folks at Springsteenlyrics.com made a valiant attempt. Enough pa
 > *the day she dies*
 
 > *The virgin flower standing*
-> *naked calls to the ??? won’t*
+> *naked calls to the ??? won't*
 > *you please come home as I watch*
 > *from an open window grasping*
 > *at flashes of ??? the wind*
 > *has blown*
 
-About all we can say with some confidence about “The Virgin Flower” is that Bruce uses the natural world as a metaphor for the human one–a device he employed a few times at that age (including in the same notebook). In this case, the virgin flower appears to be a stand-in for a great matriarch–no doubt an intentional religious allusion as well.
+About all we can say with some confidence about "The Virgin Flower" is that Bruce uses the natural world as a metaphor for the human one–a device he employed a few times at that age (including in the same notebook). In this case, the virgin flower appears to be a stand-in for a great matriarch–no doubt an intentional religious allusion as well.
 
-Beyond that, I think we’d need a closer look at clearer lyrics in order to grok what young Bruce was reaching for–and since the notebook is reportedly in the hands of a private collector, maybe we’ll yet get a chance to see it for ourselves someday.
+Beyond that, I think we'd need a closer look at clearer lyrics in order to grok what young Bruce was reaching for–and since the notebook is reportedly in the hands of a private collector, maybe we'll yet get a chance to see it for ourselves someday.
 
 **The Virgin Flower**
 **Never recorded**

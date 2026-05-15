@@ -20,7 +20,7 @@
 
 [Watch Video Highlight](https://videopress.com/embed/dAro3Txt)
 
-**1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. “Glory Days,” “Darlington County,” “My Hometown,” and “Born in the U.S.A.” all make their live debuts. Listen to this historic bar gig below.
+**1984:** Bruce plays a warm-up show for the Born in the U.S.A. Tour at The Stone Pony in Asbury Park. "Glory Days," "Darlington County," "My Hometown," and "Born in the U.S.A." all make their live debuts. Listen to this historic bar gig below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=_vH_efNE9ZU)
 
@@ -28,7 +28,7 @@
 
 ![](../../assets/2020/05/1984-06-08.jpg)
 
-**1985:** The stadium-breaker! Bruce’s encore of “Twist and Shout” almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.
+**1985:** The stadium-breaker! Bruce's encore of "Twist and Shout" almost collapses the stadium in Gothenburg, Sweden. Bruce will refer to this show many times over the years.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=hfIsMDrMlSY)
 
@@ -36,13 +36,13 @@
 
 ![](../../assets/2024/06/Bristol_Herald_Courier__Bristol_Virginia_Tennessean_Mon__Jun_10__1985_-scaled.jpg)
 
-**1991:** At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs “If I Should Fall Behind”–written for the occasion–for the very first time.
+**1991:** At their home in Beverly Hills, Bruce and Patti marry and hold a reception with family and friends, including the E Street Band, Jackson Browne, Bonnie Raitt, Sting, and John Fogerty. Bruce performs "If I Should Fall Behind"–written for the occasion–for the very first time.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=om5UcNKA5XY)
 
 ![](../../assets/2020/05/1991-06-08.jpg)
 
-**2003:** Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates “Tougher Than the Rest” for the occasion.
+**2003:** Bruce and Patti celebrate their twelfth wedding anniversary at their Rising show in Florence, Italy, where Bruce dedicates "Tougher Than the Rest" for the occasion.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=k7xqgp6x-44)
 

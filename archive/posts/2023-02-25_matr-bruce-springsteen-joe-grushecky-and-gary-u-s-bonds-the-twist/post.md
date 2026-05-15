@@ -68,4 +68,4 @@ But that's an entry for another day.
 **First performed:** November 2, 2002 (Sea Bright, NJ)<br>
 **Last performed:** November 2, 2002 (Sea Bright, NJ)<br>
 
-(For more information on "The Twist," see [this excellent episode](https://500songs.com/podcast/episode-91-the-twist-by-chubby-checker/) of *A History of Rock Music in 500 Songs,* an invaluable resource for me in general and for this entry specifically.)
+(For more information on "The Twist," see [this excellent episode](https://500songs.com/podcast/episode-91-the-twist-by-chubby-checker/) of *A History of Rock Music in 500 Songs*, an invaluable resource for me in general and for this entry specifically.)

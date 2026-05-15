@@ -6,7 +6,7 @@ If you go see Bruce Springsteen after Thanksgiving, you better watch out, and yo
 
 On a cold day in late November, my friend Tjeerd and I took a ride across the border (the other border), where our faith was rewarded with a great show. No jaw-dropping debuts or for-the-ages performances, just a solid, fun set list, loose performances, and surprising sequencing–starting with the opener.
 
-"[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)" is my favorite song from *[Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/),* and it was the song I looked forward to the most at each show. I was shocked and delighted when Bruce opened the show with it that night–and it worked perfectly as an opener. Check out the video below; the band took the stage in darkness, and Bruce led the crowd in an extended chant, building energy and anticipation through the initial chorus. The arena exploded when the band joined and the lights came on.
+"[Shackled and Drawn](https://estreetshuffle.com/index.php/2020/07/16/roll-of-the-dice-shackled-and-drawn/)" is my favorite song from *[Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*, and it was the song I looked forward to the most at each show. I was shocked and delighted when Bruce opened the show with it that night–and it worked perfectly as an opener. Check out the video below; the band took the stage in darkness, and Bruce led the crowd in an extended chant, building energy and anticipation through the initial chorus. The arena exploded when the band joined and the lights came on.
 
 [Watch Video Highlight](https://videopress.com/embed/tSIP2IPy)
 

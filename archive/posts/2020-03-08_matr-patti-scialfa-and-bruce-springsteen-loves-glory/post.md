@@ -2,7 +2,7 @@ Let's get this out of the way first: the typo is Patti's, not mine. Every time I
 
 Okay, I feel better now. Onward:
 
-Readers of this blog know that I hold Patti Scialfa in high esteem as an artist in her own right. Her three solo albums are wonderful, particularly her most recent one from 2007, *Play It as It Lays,* which I think is the superior release from the Springsteen/Scialfa household that year. And yes, *Magic* is a fantastic album, so that tells you just how much I think of *Play It as It Lays*.
+Readers of this blog know that I hold Patti Scialfa in high esteem as an artist in her own right. Her three solo albums are wonderful, particularly her most recent one from 2007, *Play It as It Lays*, which I think is the superior release from the Springsteen/Scialfa household that year. And yes, *Magic* is a fantastic album, so that tells you just how much I think of *Play It as It Lays*.
 
 And while I realize that some Springsteen fans don't particularly take to her vocal stylings, I wonder if they've listened to tracks like "Loves Glory."
 

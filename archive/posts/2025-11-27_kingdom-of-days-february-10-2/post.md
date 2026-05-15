@@ -4,7 +4,7 @@ Steel Mill plays the Fillmore West in San Francisco, a last minute-replacement f
 
 **1970:**
 
-Bruce and his band play their final show at Asbury Park’s Sunshine In. Unfortunately, it’s a short set–only forty minutes–disappointing fans who came to hear Bruce. To add insult to injury, the scheduled opening band (John Lennon’s backing band, Elephant’s Memory) is a no-show. A frustrated fan writes to the Asbury Park Press to complain.
+Bruce and his band play their final show at Asbury Park's Sunshine In. Unfortunately, it's a short set–only forty minutes–disappointing fans who came to hear Bruce. To add insult to injury, the scheduled opening band (John Lennon's backing band, Elephant's Memory) is a no-show. A frustrated fan writes to the Asbury Park Press to complain.
 
 **1973:**
 
@@ -36,13 +36,13 @@ Bruce announces the postponement of his upcoming U.K. solo acoustic shows due to
 
 **1996:**
 
-Bruce plays his third of five solo acoustic nights at Sydney’s Capitol Theater.
+Bruce plays his third of five solo acoustic nights at Sydney's Capitol Theater.
 
 **1997:**
 
 [https://videopress.com/embed/MEFuhDtd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/MEFuhDtd?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce scores three Grammy Awards: two for “” (Best Solo Rock Vocal Performance and Best Rock Song) and one for “” (Best Rock Instrumental Performance). Bruce’s current album, , is also nominated for Best Rock Album but does not win.
+Bruce scores three Grammy Awards: two for "" (Best Solo Rock Vocal Performance and Best Rock Song) and one for "" (Best Rock Instrumental Performance). Bruce's current album, , is also nominated for Best Rock Album but does not win.
 
 **2008:** [Radio Nowhere](https://estreetshuffle.com/index.php/2021/08/01/roll-of-the-dice-radio-nowhere/)[Once Upon a Time in the West](http://estreetshuffle.com/index.php/2018/02/25/cover-me-once-upon-a-time-in-the-west/)*Magic*
 
@@ -50,15 +50,15 @@ Bruce scores three Grammy Awards: two for “” (Best Solo Rock Vocal Performan
 
 [https://www.youtube.com/embed/CBTy5EF7upk?feature=oembed](https://www.youtube.com/embed/CBTy5EF7upk?feature=oembed)
 
-Bruce and the E Street Band rehearse for their upcoming Grammy Awards performance of “.”
+Bruce and the E Street Band rehearse for their upcoming Grammy Awards performance of "."
 
 **2012:** [We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)
 
-Although nominated for three Grammy Awards (Best Rock Performance and Best Rock Song for “We Take Care of Our Own” and Best Rock Album for , Bruce goes home empty-handed for the first time since 2000.
+Although nominated for three Grammy Awards (Best Rock Performance and Best Rock Song for "We Take Care of Our Own" and Best Rock Album for , Bruce goes home empty-handed for the first time since 2000.
 
 **2013:** [)](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*
 
-In Hartford’s XL Center, Bruce and the band play “” for the first time on the new River Tour.
+In Hartford's XL Center, Bruce and the band play "" for the first time on the new River Tour.
 
 **2016:** [Loose Ends](https://estreetshuffle.com/index.php/2022/06/23/roll-of-the-dice-loose-end/)
 
@@ -76,7 +76,7 @@ In Hartford’s XL Center, Bruce and the band play “” for the first time on 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/02/2016-02-10.png?resize=758%2C2186&amp;ssl=1)
 
-At the American Airlines Center in Dallas, Soozie is still down for the count with COVID, and now Little Steven is as well. Patti is absent too, as she will be for the rest of the tour, but while the E Street Band is diminished in size, they perform at full strength and tour premiere “” in the encores.
+At the American Airlines Center in Dallas, Soozie is still down for the count with COVID, and now Little Steven is as well. Patti is absent too, as she will be for the rest of the tour, but while the E Street Band is diminished in size, they perform at full strength and tour premiere "" in the encores.
 
 **2023:** [Detroit Medley](https://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 

@@ -10,7 +10,7 @@ The Bruce Springsteen Band is in residence at the Student Prince in Asbury Park.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-0910-300x169.jpg?resize=758%2C427)
 
-Bruce makes a guest appearance with Dave Edmunds on six songs at Big Man’s West in Red Bank.
+Bruce makes a guest appearance with Dave Edmunds on six songs at Big Man's West in Red Bank.
 
 **1982:**
 
@@ -24,9 +24,9 @@ Bruce makes a guest appearance with Dave Edmunds on six songs at Big Man’s Wes
 
 [https://www.youtube.com/embed/zrsRXBErrLU?feature=oembed](https://www.youtube.com/embed/zrsRXBErrLU?feature=oembed)
 
-Bruce and the E Street Band close out their six-night Born in the U.S.A. stand at the Philadelphia Spectrum by tour premiering “” and “” (the first time they’ve ever played that song earlier than autumn).
+Bruce and the E Street Band close out their six-night Born in the U.S.A. stand at the Philadelphia Spectrum by tour premiering "" and "" (the first time they've ever played that song earlier than autumn).
 
-**1984:** [I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)[Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
+**1984:** [I Fought the Law](https://estreetshuffle.com/index.php/2022/04/01/matr-bruce-springsteen-and-don-henley-i-fought-the-law/)[Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
 [https://www.youtube.com/embed/DoQJViKqZLs?feature=oembed](https://www.youtube.com/embed/DoQJViKqZLs?feature=oembed)
 
@@ -38,7 +38,7 @@ Bruce and the E Street Band close out their six-night Born in the U.S.A. stand a
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2024/09/Philadelphia_Daily_News_1984_09_20_Page_60-scaled.jpg?resize=758%2C462&amp;ssl=1)
 
-Bruce plays “Stolen Car” for the last time for 18 years when he and the band play their first of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum.
+Bruce plays "Stolen Car" for the last time for 18 years when he and the band play their first of two Born in the U.S.A. shows at the Oakland-Alameda County Coliseum.
 
 **1985:**
 
@@ -56,15 +56,15 @@ Bruce plays “Stolen Car” for the last time for 18 years when he and the band
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/09/1985-09-18c.jpg?resize=758%2C1285&amp;ssl=1)
 
-At his solo acoustic show in Wallingford, Bruce plays a one-off “” by request.
+At his solo acoustic show in Wallingford, Bruce plays a one-off "" by request.
 
-**1996:** [My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)
+**1996:** [My Father's House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/)
 
 [https://www.youtube.com/embed/jTvO_lAqDw8?feature=oembed](https://www.youtube.com/embed/jTvO_lAqDw8?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/09/1996-09-18-300x130.jpg?resize=758%2C328)
 
-Another great show on Night Two in Hartford, with Bruce opening his Rising Show with the first-ever E Street Band performance of “,” the tour premiere of “,” and a solo piano “.”
+Another great show on Night Two in Hartford, with Bruce opening his Rising Show with the first-ever E Street Band performance of "," the tour premiere of "," and a solo piano "."
 
 **2003:** [Souls of the Departed](http://estreetshuffle.com/index.php/2019/03/19/roll-of-the-dice-souls-of-the-departed/)[Factory](http://estreetshuffle.com/index.php/2018/10/31/roll-of-the-dice-factory/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)
 
@@ -82,7 +82,7 @@ Bruce rehearses with the E Street Band for their upcoming Magic tour.
 
 **2007:**
 
-The Wrecking Ball Tour enters its last week with the first of two shows in Brazil, this one in Sao Paolo. Bruce opens with the premiere of Raul Seixas’ “.”
+The Wrecking Ball Tour enters its last week with the first of two shows in Brazil, this one in Sao Paolo. Bruce opens with the premiere of Raul Seixas' "."
 
 **2013:** [Sociedade Alternativa](https://estreetshuffle.com/index.php/2021/10/07/cover-me-sociedade-alternativa/)
 

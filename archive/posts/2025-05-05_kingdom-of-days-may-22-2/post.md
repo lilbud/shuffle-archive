@@ -2,19 +2,19 @@
 
 *New entry for 1979 and 2024; audio for 1988***New for 2025:**
 
-Three–count ’em–Asbury Park shows on this date–first at 1am with the Red Hot Mammas, then an afternoon gig with The Sundance Blues Band at the Student Prince, followed by an evening show with the Red Hot Mammas at The Upstage. (Bruce actually plays a show at 1am, but that’s technically the following day.)
+Three–count 'em–Asbury Park shows on this date–first at 1am with the Red Hot Mammas, then an afternoon gig with The Sundance Blues Band at the Student Prince, followed by an evening show with the Red Hot Mammas at The Upstage. (Bruce actually plays a show at 1am, but that's technically the following day.)
 
 **1971:** *three* *fourth*
 
-Bruce and the E Street Band work on “” at the Power Station in New York City.
+Bruce and the E Street Band work on "" at the Power Station in New York City.
 
 **1979:** [Jackson Cage](https://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)
 
-Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man’s West in Red Bank.
+Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at the former home of Big Man's West in Red Bank.
 
 **1984:**
 
-: Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of “” as the final encore.
+: Night Four of five at the final U.S. stand for the Tunnel of Love Express Tour at Madison Square Garden. This show features the tour premiere of "" as the final encore.
 
 **1988**[Lonely Teardrops](https://estreetshuffle.com/index.php/2021/01/22/cover-me-lonely-teardrops/)
 
@@ -24,7 +24,7 @@ Bruce and the E Street Band rehearse for the upcoming Born in the U.S.A. Tour at
 
 [https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD_0qbZ6tPm02uPd4dUaeRf](https://www.youtube.com/embed/videoseries?list=PLJTyL9twk3zD_0qbZ6tPm02uPd4dUaeRf)
 
-Bruce’s World Tour 1993 makes a stop at The National Bowl in Milton Keynes, England.
+Bruce's World Tour 1993 makes a stop at The National Bowl in Milton Keynes, England.
 
 **1993:**
 
@@ -42,7 +42,7 @@ Bruce’s World Tour 1993 makes a stop at The National Bowl in Milton Keynes, En
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/05/1993-05-22.jpg?resize=758%2C286&amp;ssl=1)
 
-Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the true highlight from this date happens afterward: the crowd sticks around outside the theater and sings “O Sole Mio”(which Bruce performed briefly during the show), prompting Bruce to appear on the theater’s balcony with Kevin Buell to play and lead the crowd in a sing-along of “Thunder Road.” Watch this moment–it’s magical.
+Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the true highlight from this date happens afterward: the crowd sticks around outside the theater and sings "O Sole Mio"(which Bruce performed briefly during the show), prompting Bruce to appear on the theater's balcony with Kevin Buell to play and lead the crowd in a sing-along of "Thunder Road." Watch this moment–it's magical.
 
 **1997:**
 
@@ -52,7 +52,7 @@ Bruce performs a solo acoustic show at Teatro Augusteo in Naples, Italy, but the
 
 [https://videopress.com/embed/kQppxAQT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/kQppxAQT?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-The E Street Band plays “” for the very first time and tour premieres “” at the second of two Reunion shows in Anaheim. This show is available as part of Bruce’s official archive series–get it here.
+The E Street Band plays "" for the very first time and tour premieres "" at the second of two Reunion shows in Anaheim. This show is available as part of Bruce's official archive series–get it here.
 
 **2000:** [Roll of the Dice](http://estreetshuffle.com/index.php/2020/01/18/roll-of-the-dice-roll-of-the-dice/)[Gloria](http://estreetshuffle.com/index.php/2018/03/16/cover-me-gloria/)
 
@@ -86,9 +86,9 @@ The second European leg of the Magic Tour kicks off with the first of three show
 
 **2010**
 
-Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of “,” “,” “,” “,” and “,” along with the world premiere of “.”
+Fresh off the High Hopes Tour, Bruce joins Joe Grushecky and The Houserockers for the first of two shows at Soldiers & Sailors Memorial Hall in Pittsburgh. The show features an eclectic mix of Bruce and Joe songs, featuring surprising acoustic performances of "," "," "," "," and "," along with the world premiere of "."
 
-**2014:** [Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)[Two for the Road](https://estreetshuffle.com/index.php/2020/06/30/roll-of-the-dice-two-for-the-road/)[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)[The Wall](https://estreetshuffle.com/index.php/2024/09/04/roll-of-the-dice-the-wall/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Leavin’ Train](https://estreetshuffle.com/index.php/2021/04/15/roll-of-the-dice-leavin-train/)
+**2014:** [Mary Queen of Arkansas](https://estreetshuffle.com/index.php/2021/05/12/roll-of-the-dice-mary-queen-of-arkansas/)[Two for the Road](https://estreetshuffle.com/index.php/2020/06/30/roll-of-the-dice-two-for-the-road/)[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)[The Wall](https://estreetshuffle.com/index.php/2024/09/04/roll-of-the-dice-the-wall/)[Incident on 57th Street](http://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/)[Leavin' Train](https://estreetshuffle.com/index.php/2021/04/15/roll-of-the-dice-leavin-train/)
 
 [https://www.youtube.com/embed/sOAq73Dv6_I?feature=oembed](https://www.youtube.com/embed/sOAq73Dv6_I?feature=oembed)
 
@@ -110,9 +110,9 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce opens a rainy show in Sunderland with the tour premiere of “” Buy or stream this show .
+Bruce opens a rainy show in Sunderland with the tour premiere of "" Buy or stream this show .
 
-**2024:** [Waitin’ on a Sunny Day.](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)[here](https://www.nugs.net/live-download-of-bruce-springsteen-stadium-of-light-sunderland-uk-05-22-2024-mp3-flac-or-online-music-streaming/35844.html)
+**2024:** [Waitin' on a Sunny Day.](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)[here](https://www.nugs.net/live-download-of-bruce-springsteen-stadium-of-light-sunderland-uk-05-22-2024-mp3-flac-or-online-music-streaming/35844.html)
 
 [https://www.youtube.com/embed/VMZJMttAMms?feature=oembed](https://www.youtube.com/embed/VMZJMttAMms?feature=oembed)
 

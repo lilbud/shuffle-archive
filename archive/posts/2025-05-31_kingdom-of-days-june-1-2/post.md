@@ -34,7 +34,7 @@ Bruce headlines a six-hour multi-act show at Kent State University.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/06/1974-0601-300x198.jpg?resize=758%2C501)
 
-Finally free to record again after settling his legal dispute with Mike Appel, Bruce officially kicks off the recording sessions for . The sessions start with a bang, with at least ten tracks recorded on this first day, including the officially released version of “.”
+Finally free to record again after settling his legal dispute with Mike Appel, Bruce officially kicks off the recording sessions for . The sessions start with a bang, with at least ten tracks recorded on this first day, including the officially released version of "."
 
 **1977:** [](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)*Darkness on the Edge of Town*[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/)
 
@@ -46,25 +46,25 @@ Finally free to record again after settling his legal dispute with Mike Appel, B
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/05/1977-06-01-300x120.jpg?resize=758%2C303)
 
-Bruce and the E Street Band work on “” and “” at the Power Station in New York City.
+Bruce and the E Street Band work on "" and "" at the Power Station in New York City.
 
 **1979:** [Little White Lies](https://estreetshuffle.com/index.php/2018/03/20/roll-of-the-dice-little-white-lies/)[Mary Lou](https://estreetshuffle.com/index.php/2019/04/03/roll-of-the-dice-mary-lou/)
 
 [https://www.youtube.com/embed/JlfQCfBSxaw?feature=oembed](https://www.youtube.com/embed/JlfQCfBSxaw?feature=oembed)
 
-Bruce and the E Street Band play their third of six shows at London’s Wembley Arena.
+Bruce and the E Street Band play their third of six shows at London's Wembley Arena.
 
 **1981:**
 
 [https://videopress.com/embed/bBlBT9ah?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bBlBT9ah?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce and the E Street Band work on “” at The Hit Factory in New York City.
+Bruce and the E Street Band work on "" at The Hit Factory in New York City.
 
 **1983:** [Drop on Down and Cover Me](https://estreetshuffle.com/index.php/2019/12/18/roll-of-the-dice-drop-on-down-and-cover-me/)
 
 Bruce sits in with John Eddie and the Front Street Runners at the Stone Pony, performing four cover songs with the band. Earlier in the day, Max Weinberg releases his book 
 
-**1984:** *The Big Beat: Conversations with Rock’s Great Drummers.*
+**1984:** *The Big Beat: Conversations with Rock's Great Drummers.*
 
 [https://videopress.com/embed/P7I4JtrM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/P7I4JtrM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
@@ -74,7 +74,7 @@ Bruce sits in with John Eddie and the Front Street Runners at the Stone Pony, pe
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/06/1984-06-01b.jpg?resize=758%2C1083&amp;ssl=1)
 
-Bruce plays his first ever show in Ireland, kicking off the European leg of the Born in the U.S.A. Tour with a show at Slane Castle, before the largest crowd that Bruce has ever played to (over 90,000 people). This is also Bruce’s return to the stage after getting married, and he marks the occasion with a one-time-only performance of “” in the encores.
+Bruce plays his first ever show in Ireland, kicking off the European leg of the Born in the U.S.A. Tour with a show at Slane Castle, before the largest crowd that Bruce has ever played to (over 90,000 people). This is also Bruce's return to the stage after getting married, and he marks the occasion with a one-time-only performance of "" in the encores.
 
 **1985:** [When I Grow Up (To Be a Man)](http://estreetshuffle.com/index.php/2019/07/08/cover-me-when-i-grow-up-to-be-a-man/)
 
@@ -94,7 +94,7 @@ With hiring complete, Bruce convenes the entire touring 1992-1993 band for the f
 
 [https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed](https://www.youtube.com/embed/V8GA_hlYbzg?feature=oembed)
 
-Bruce wraps up World Tour 1993 with a show at Valle Hovin Stadion in Oslo. “” in the encore is a tour premiere, featuring vocals by Bruce’s roadie Rick “Chainsaw” Lapointe. Warren Kay, another crew member, joins during the final encore of “Twist and Shout.”
+Bruce wraps up World Tour 1993 with a show at Valle Hovin Stadion in Oslo. "" in the encore is a tour premiere, featuring vocals by Bruce's roadie Rick "Chainsaw" Lapointe. Warren Kay, another crew member, joins during the final encore of "Twist and Shout."
 
 **1993:** [Born to Be Wild](http://estreetshuffle.com/index.php/2020/05/20/cover-me-born-to-be-wild/)
 
@@ -110,9 +110,9 @@ Bruce brings his solo acoustic tour to Spain, starting with a single night in Ba
 
 [https://videopress.com/embed/4p0FNGab?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/4p0FNGab?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-When the River Tour stops in Glasgow, Bruce opens the show with “,” and tour premieres “American Skin (41 Shots)” and “.”
+When the River Tour stops in Glasgow, Bruce opens the show with "," and tour premieres "American Skin (41 Shots)" and "."
 
-**2016:** [Waitin’ on a Sunny Day](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
+**2016:** [Waitin' on a Sunny Day](http://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
 [https://www.youtube.com/embed/vtg-vJbCH34?feature=oembed](https://www.youtube.com/embed/vtg-vJbCH34?feature=oembed)
 
@@ -124,7 +124,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 **2018:** *Springsteen on Broadway*
 
-Bruce attends (but does not perform at) Bob Seger’s concert in Holmdel, New Jersey. Bob dedicates “Downtown Train” to Bruce.
+Bruce attends (but does not perform at) Bob Seger's concert in Holmdel, New Jersey. Bob dedicates "Downtown Train" to Bruce.
 
 **2019:**
 

@@ -14,15 +14,15 @@ Bruce and the band open for Blood, Sweat and Tears in Santa Monica.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/02/1973-0303-300x263.jpg?resize=758%2C664)
 
-Bruce and the band play two shows at Georgetown University in Washington, DC. The first show’s set list features the entire album, the last known such occurrence for 35 years. The late show is broadcast on campus radio and features the last performance of “” with its original lyrics until 2005.
+Bruce and the band play two shows at Georgetown University in Washington, DC. The first show's set list features the entire album, the last known such occurrence for 35 years. The late show is broadcast on campus radio and features the last performance of "" with its original lyrics until 2005.
 
 **1974:** *Wild & Innocent*[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)
 
 [https://www.youtube.com/embed/QKt4kLHbLHk?feature=oembed](https://www.youtube.com/embed/QKt4kLHbLHk?feature=oembed)
 
-Bruce shoots the video for “” with director John Sayles in Hollywood.
+Bruce shoots the video for "" with director John Sayles in Hollywood.
 
-**1985:**[I’m on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
+**1985:**[I'm on Fire](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)
 
 [https://www.youtube.com/embed/lrpXArn3hII?feature=oembed](https://www.youtube.com/embed/lrpXArn3hII?feature=oembed)
 
@@ -42,7 +42,7 @@ Bruce shoots the video for “” with director John Sayles in Hollywood.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2025/03/The_Charlotte_Observer_1988_03_05_33.jpg?resize=758%2C758&amp;ssl=1)
 
-Bruce plays “” for the first time ever in Europe at a solo acoustic show at Edinburgh Playhouse in Scotland. Listen to a post-show radio interview below.
+Bruce plays "" for the first time ever in Europe at a solo acoustic show at Edinburgh Playhouse in Scotland. Listen to a post-show radio interview below.
 
 **1996:** [The Wish](http://estreetshuffle.com/index.php/2018/06/23/roll-of-the-dice-the-wish/)
 
@@ -80,7 +80,7 @@ The River Tour (2016 edition) moves on to Milwaukee and the BMO Harris Bradley C
 
 [https://www.youtube.com/embed/QZQ9sQT0Vmk?feature=oembed](https://www.youtube.com/embed/QZQ9sQT0Vmk?feature=oembed)
 
-At tonight’s performance of , Bruce discovers the one attendee who can electrify the crowd as much as the star of the show: former president Barack Obama. Dion DiMucci is in attendance as well.
+At tonight's performance of , Bruce discovers the one attendee who can electrify the crowd as much as the star of the show: former president Barack Obama. Dion DiMucci is in attendance as well.
 
 **2018:** *Springsteen on Broadway*
 

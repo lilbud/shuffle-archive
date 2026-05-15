@@ -2,7 +2,7 @@ In 1966, Otis Redding released his fourth studio album, *Complete and Unbelievab
 
 And it turns out that the first entry in the soul dictionary is *Fa-fa-fa-fa-fa*.
 
-That's pronounced *faa,* mind you, not *fah.* *Faa* is the sound that a horn makes, and "Fa-fa-fa-fa-fa (Sad Song)" is basically a duet between Redding and his horn section. There are other lyrics, of course, but they're sort of beside the point.
+That's pronounced *faa*, mind you, not *fah.* *Faa* is the sound that a horn makes, and "Fa-fa-fa-fa-fa (Sad Song)" is basically a duet between Redding and his horn section. There are other lyrics, of course, but they're sort of beside the point.
 
 [Watch on Youtube: Fa-Fa-Fa-Fa-Fa (Sad Song)](https://www.youtube.com/watch?v=HUI_SBS6-Uk)
 

@@ -2,7 +2,7 @@
 
 *Audio for 2005***New for 2025:**
 
-Bruce plays his fifth of six two-shows-a-night solo gigs at Max’s Kansas City this week.
+Bruce plays his fifth of six two-shows-a-night solo gigs at Max's Kansas City this week.
 
 **1972:**
 
@@ -18,7 +18,7 @@ Bruce plays his fifth of six two-shows-a-night solo gigs at Max’s Kansas City 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/08/1974-0813-300x215.jpg?resize=738%2C528)
 
-Bruce’s legendary stand at the Bottom Line in New York City begins here, on Night One of a five-night/ten-show residency, during which 25% of all tickets are distributed by Columbia Records to journalists and employees, establishing high stakes for Bruce and the E Street Band throughout the stand. The early show is mostly undocumented but known to feature Bruce’s first performance of “” and only the second-ever performance of “.” The late show features the first ever performance of “” and the last recorded “New York City Serenade” until the Reunion Tour almost a quarter-century later.
+Bruce's legendary stand at the Bottom Line in New York City begins here, on Night One of a five-night/ten-show residency, during which 25% of all tickets are distributed by Columbia Records to journalists and employees, establishing high stakes for Bruce and the E Street Band throughout the stand. The early show is mostly undocumented but known to feature Bruce's first performance of "" and only the second-ever performance of "." The late show features the first ever performance of "" and the last recorded "New York City Serenade" until the Reunion Tour almost a quarter-century later.
 
 **1975:** [When You Walk in the Room](https://estreetshuffle.com/index.php/2020/10/08/cover-me-when-you-walk-in-the-room/)[Backstreets](https://estreetshuffle.com/index.php/2022/05/14/roll-of-the-dice-backstreets/)[Night](http://estreetshuffle.com/index.php/2019/10/31/roll-of-the-dice-night/)
 
@@ -56,7 +56,7 @@ Bruce and his new touring band bring World Tour 1992 to the Boston area for the 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/1992-08-13b-300x244.png?resize=758%2C616)
 
-The Rising Tour’s stadium leg moves on to U.S. Cellular Field in Chicago, where Bruce opens with “” and plays a rare “”
+The Rising Tour's stadium leg moves on to U.S. Cellular Field in Chicago, where Bruce opens with "" and plays a rare ""
 
 **2003:** [Adam Raised a Cain](https://estreetshuffle.com/index.php/2022/07/03/roll-of-the-dice-adam-raised-a-cain/)[Where the Bands Are.](http://estreetshuffle.com/index.php/2018/11/08/roll-of-the-dice-where-the-bands-are/)
 
@@ -64,7 +64,7 @@ The Rising Tour’s stadium leg moves on to U.S. Cellular Field in Chicago, wher
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/07/2003-08-13-300x159.png?resize=758%2C402)
 
-Bruce wraps up his solo “summer extravaganza” at GM Place in Vancouver, BC, tour premiering “Because the Night” and giving “” a rare outing. Fore more highlights from this show, see my .
+Bruce wraps up his solo "summer extravaganza" at GM Place in Vancouver, BC, tour premiering "Because the Night" and giving "" a rare outing. Fore more highlights from this show, see my .
 
 **2005:**[http://estreetshuffle.com/index.php/2018/08/13/where-the-band-was-vancouver-august-13-2005/](http://estreetshuffle.com/index.php/2018/08/13/where-the-band-was-vancouver-august-13-2005/)[4th of July, Asbury Park (Sandy)](http://estreetshuffle.com/index.php/2019/04/26/roll-of-the-dice-4th-of-july-asbury-park-sandy/)[report](http://estreetshuffle.com/index.php/2018/08/13/where-the-band-was-vancouver-august-13-2005/)*Where the Band Was*
 

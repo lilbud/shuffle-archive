@@ -1,4 +1,4 @@
-**1968:** Bruce catches The Doors’ concert at Asbury Park’s Convention Hall. Watch actual footage of Jim Morrison from that day below.
+**1968:** Bruce catches The Doors' concert at Asbury Park's Convention Hall. Watch actual footage of Jim Morrison from that day below.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=Z3DElGznXIE)
 
@@ -10,7 +10,7 @@
 
 ![](../../assets/2018/08/1975-0831.jpg)
 
-**1985:** What was originally scheduled to be the closing night of six shows at Giants Stadium (the August 30 show was rained out and postponed until September 1, making it the new closer) is still pretty special: Little Steven rejoins the E Street Band for the encores, which end with the live debut of “Stand On It.”
+**1985:** What was originally scheduled to be the closing night of six shows at Giants Stadium (the August 30 show was rained out and postponed until September 1, making it the new closer) is still pretty special: Little Steven rejoins the E Street Band for the encores, which end with the live debut of "Stand On It."
 
 [Watch Video Highlight](https://videopress.com/embed/Wly4xjwi?hd=1&cover=1&loop=0&autoPlay=0&permalink=1&muted=0&controls=1&playsinline=0&useAverageColor=0&preloadContent=metadata)
 
@@ -24,7 +24,7 @@
 
 ![](../../assets/2021/08/1999-08-31b.png)
 
-**2003:** Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of “Cynthia.” A few songs later, “Lucky Town” makes its only tour appearance, and a full-band “Jersey Girl” fittingly closes the show.
+**2003:** Bruce and the E Street Band close out their ten-night stand at Giants Stadium, opening with the very first live performance of "Cynthia." A few songs later, "Lucky Town" makes its only tour appearance, and a full-band "Jersey Girl" fittingly closes the show.
 
 [https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3?_=1](https://estreetshuffle.com/wp-content/uploads/2021/08/2003-08-31-E-Rutherford-IEM-24-Jersey-Girl.mp3?_=1)
 

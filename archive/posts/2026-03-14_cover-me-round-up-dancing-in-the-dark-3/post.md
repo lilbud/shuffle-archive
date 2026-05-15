@@ -1,12 +1,12 @@
-This one’s even harder.
+This one's even harder.
 
-I may have featured “I’m on Fire” covers the most on my blog, but some of the best *Cover Me* entries were for “Dancing in the Dark.”
+I may have featured "I'm on Fire" covers the most on my blog, but some of the best *Cover Me* entries were for "Dancing in the Dark."
 
-Besides being his greatest hit (until “Streets of Minneapolis” at least), “Dancing in the Dark” seems to be a favorite of artists from almost every genre.
+Besides being his greatest hit (until "Streets of Minneapolis" at least), "Dancing in the Dark" seems to be a favorite of artists from almost every genre.
 
-So here’s a sampling of some of my favorite interpretations, featured on the Shuffle over the years.
+So here's a sampling of some of my favorite interpretations, featured on the Shuffle over the years.
 
-John Legend has covered “Dancing in the Dar” many times in concert, including at Bruce's MusiCares Person of the Year Tribute concert.
+John Legend has covered "Dancing in the Dar" many times in concert, including at Bruce's MusiCares Person of the Year Tribute concert.
 
 But my favorite performance was during "Springsteen Week" in 2012 on the *The Tonight Show Starring Jimmy Fallon*. Legend made an appearance to play "Dancing in the Dark" with The Roots, and their team-up was atmospheric, jazzy and magical.
 
@@ -22,7 +22,7 @@ But the band's most obscure Springsteen adaptation is a brilliant live mash-up o
 
 In 1985, Bruce and Tina Turner were both at the height of their superstar popularity.
 
-So it must have been a thrill if you were one of the lucky ones to see Tina cover “Dancing in the Dark,” still fresh and new on the radio. From her Tokyo concert on December 28, 1985, here's Tina’s version.
+So it must have been a thrill if you were one of the lucky ones to see Tina cover "Dancing in the Dark," still fresh and new on the radio. From her Tokyo concert on December 28, 1985, here's Tina's version.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=INKwtDSC2gY)
 
@@ -34,13 +34,13 @@ Here's his smoking rendition "Dancing in the Dark."
 
 Los Angeles-based funk band Scary Pockets releases new music videos regularly, usually a reinterpretation of a classic song featuring some phenomenal guest vocalists.
 
-This release features the multi-talented Darren Criss at the microphone, with what is easily one of the best covers of "Dancing in the Dark.”
+This release features the multi-talented Darren Criss at the microphone, with what is easily one of the best covers of "Dancing in the Dark."
 
 Wait for it…
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=b5rySSphFO0)
 
-Speaking of funk, BOOM a LOON bills themselves as "the next step in funk.” Like Scary Pockets, they release a new song weekly, featuring a core combo and a rotating cast of guest artists.
+Speaking of funk, BOOM a LOON bills themselves as "the next step in funk." Like Scary Pockets, they release a new song weekly, featuring a core combo and a rotating cast of guest artists.
 
 Featuring guest artists Robert J. Hunter on vocals and Eddy Smith on keys, BOOM a LOON reinvents Bruce's greatest hit and gives it an irresistible groove.
 

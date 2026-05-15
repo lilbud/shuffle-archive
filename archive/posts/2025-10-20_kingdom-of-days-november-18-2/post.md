@@ -2,7 +2,7 @@
 
 *No updates***New for 2025:**
 
-Bruce plays his first-ever show in Europe, a historic concert at the Hammersmith Odeon in London. The hype precedes him. Bruce famously reacts to it by tearing down posters that read “Finally, London is ready for Bruce Springsteen and The E Street Band,” but despite later reports that he considered the show itself to be substandard, for those there (and for those who hear and watch it decades later via an official release) the show is intense and electric.
+Bruce plays his first-ever show in Europe, a historic concert at the Hammersmith Odeon in London. The hype precedes him. Bruce famously reacts to it by tearing down posters that read "Finally, London is ready for Bruce Springsteen and The E Street Band," but despite later reports that he considered the show itself to be substandard, for those there (and for those who hear and watch it decades later via an official release) the show is intense and electric.
 
 **1975:**
 
@@ -22,7 +22,7 @@ The Darkness Tour stops in Oxford, Ohio, for a show at Miami University.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2019/10/1978-11-18-242x300.jpg?resize=758%2C940)
 
-Bruce plays his first show in Nebraska since the release of the album by the same name. The segment of the set list is particularly powerful at this Lincoln show, and “Sugarland” is played for the second and last time to date.
+Bruce plays his first show in Nebraska since the release of the album by the same name. The segment of the set list is particularly powerful at this Lincoln show, and "Sugarland" is played for the second and last time to date.
 
 **1984:** *Nebraska*
 
@@ -58,7 +58,7 @@ Bruce releases his official video document of the Rising Tour, .
 
 [https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89](https://www.youtube.com/embed/videoseries?list=PLJ3gKh8Ty5pZ8OwhV6DJIOhWfsxkP5F89)
 
-Bruce and the Sessions Band play the second of a three-night stand at Dublin’s Point Theater, where “Highway Patrolman” makes its tour premiere, and “” makes its world debut. The show is recorded and filmed, and eight songs will be released on the CD and video release. “” and “” from this show will be released in a special EP for PBS pledge donors.
+Bruce and the Sessions Band play the second of a three-night stand at Dublin's Point Theater, where "Highway Patrolman" makes its tour premiere, and "" makes its world debut. The show is recorded and filmed, and eight songs will be released on the CD and video release. "" and "" from this show will be released in a special EP for PBS pledge donors.
 
 **2006:** [Shenandoah](https://estreetshuffle.com/index.php/2022/03/22/cover-me-shenandoah/)*Live in Dublin*[Bobby Jean](http://estreetshuffle.com/index.php/2018/06/19/roll-of-the-dice-bobby-jean/)[Johnny 99](http://estreetshuffle.com/index.php/2020/07/20/roll-of-the-dice-johnny-99/)*Bruce Springsteen With The Sessions Band PBS Exclusive*
 
@@ -80,7 +80,7 @@ Bruce and the Sessions Band play the second of a three-night stand at Dublin’s
 
 [https://www.youtube.com/embed/i3yZRNPCBBs?feature=oembed](https://www.youtube.com/embed/i3yZRNPCBBs?feature=oembed)
 
-Bruce wraps up the first leg of the Magic Tour with a two-night stand at TD Banknorth Garden in Boston. Night One brings a relatively standard set, but “” makes a rare appearance.
+Bruce wraps up the first leg of the Magic Tour with a two-night stand at TD Banknorth Garden in Boston. Night One brings a relatively standard set, but "" makes a rare appearance.
 
 **2007:**[Jackson Cage](http://estreetshuffle.com/index.php/2018/11/04/roll-of-the-dice-jackson-cage/)
 
@@ -100,7 +100,7 @@ Bruce wraps up the first leg of the Magic Tour with a two-night stand at TD Bank
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2007-11-18c-300x287.png?resize=758%2C725)
 
-The Working on a Dream Tour enters its final week with a show at Sommet Center in Nashville, where Bruce once again performs the entire album in sequence and plays “” for the first time in 35 years.
+The Working on a Dream Tour enters its final week with a show at Sommet Center in Nashville, where Bruce once again performs the entire album in sequence and plays "" for the first time in 35 years.
 
 **2009:** *Born to Run*[Ring of Fire](http://estreetshuffle.com/index.php/2019/07/19/cover-me-ring-of-fire/)
 
@@ -108,7 +108,7 @@ The Working on a Dream Tour enters its final week with a show at Sommet Center i
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/11/2009-11-18-300x196.png?resize=758%2C495)
 
-Bruce performs “American Skin (41 Shots)” with John Legend, Tom Morello, Max, and Roy at at the Shrine Auditorium in Los Angeles.
+Bruce performs "American Skin (41 Shots)" with John Legend, Tom Morello, Max, and Roy at at the Shrine Auditorium in Los Angeles.
 
 **2015:** *Shining a Light: A Concert for Progress on Race in America*
 
@@ -128,12 +128,12 @@ Bruce assembles the E Street Band at his home studio in Colts Neck for the first
 
 **2019:** [](https://estreetshuffle.com/index.php/2023/07/10/album-companion-letter-to-you/)*Letter to You*
 
-Stand Up for Heroes goes virtual due to the great pandemic, with Bruce performing as he has for every other installment of the annual benefit event. Patti joins him this time for performances of “,” and “” and Bruce plays a solo acoustic “” as well.
+Stand Up for Heroes goes virtual due to the great pandemic, with Bruce performing as he has for every other installment of the annual benefit event. Patti joins him this time for performances of "," and "" and Bruce plays a solo acoustic "" as well.
 
-**2020:** [House of a Thousand Guitars](https://estreetshuffle.com/index.php/2021/04/23/roll-of-the-dice-house-of-a-thousand-guitars/)[I’ll See You in My Dreams,](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)
+**2020:** [House of a Thousand Guitars](https://estreetshuffle.com/index.php/2021/04/23/roll-of-the-dice-house-of-a-thousand-guitars/)[I'll See You in My Dreams,](https://estreetshuffle.com/index.php/2021/11/26/roll-of-the-dice-ill-see-you-in-my-dreams/)[Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)
 
 [https://www.youtube.com/embed/NqT9L2aT9XE?feature=oembed](https://www.youtube.com/embed/NqT9L2aT9XE?feature=oembed)
 
-Bruce’s scheduled show in Ottawa is postponed by almost a year due to his peptic ulcer disease.
+Bruce's scheduled show in Ottawa is postponed by almost a year due to his peptic ulcer disease.
 
 **2023:**

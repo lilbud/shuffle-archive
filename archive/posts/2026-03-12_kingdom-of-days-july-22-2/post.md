@@ -1,10 +1,10 @@
-**1971:** The Bruce Springsteen Band headlines two shows at D’Scene in South Amboy, New Jersey.
+**1971:** The Bruce Springsteen Band headlines two shows at D'Scene in South Amboy, New Jersey.
 
 ![](../../assets/2018/07/1971-0722.jpg)
 
-**1973:** Bruce and his band headline two shows at Max’s Kansas City in New York, with The Wailers opening for them.
+**1973:** Bruce and his band headline two shows at Max's Kansas City in New York, with The Wailers opening for them.
 
-**1975:** It’s Night Two on the Born to Run Tour, and the band continues developing the show at the Geneva Theater in Geneva, New York, where “She’s the One” makes its tour debut. At soundcheck, Bruce and the band cover “Needles and Pins” and “You Really Got Me.”
+**1975:** It's Night Two on the Born to Run Tour, and the band continues developing the show at the Geneva Theater in Geneva, New York, where "She's the One" makes its tour debut. At soundcheck, Bruce and the band cover "Needles and Pins" and "You Really Got Me."
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=zaANhuBBSzc)
 
@@ -18,11 +18,11 @@
 
 ![](../../assets/2020/07/1975-07-22.png)
 
-**1976:** CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on “The Fever” and “I Don’t Want to Go Home.”
+**1976:** CBS Records holds their annual sales convention in Los Angeles, where Southside Johnny and the Asbury Jukes open. Bruce guest-stars with Southside on "The Fever" and "I Don't Want to Go Home."
 
 ![](../../assets/2018/07/1976-0722.jpg)
 
-**1978:** Bruce’s Darkness Tour show in Birmingham, Alabama is postponed to September due to a throat infection.
+**1978:** Bruce's Darkness Tour show in Birmingham, Alabama is postponed to September due to a throat infection.
 
 ![](../../assets/2024/07/The_Anniston_Star_1978_07_15_Page_27.jpg)
 
@@ -30,7 +30,7 @@
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/embed?version=3&rel=1&showsearch=0&showinfo=1&iv_load_policy=1&fs=1&hl=en-US&autohide=2&wmode=transparent&listType=playlist&list=PLu8VBPtfGX1Ap7bmpnYqLbgqSwEfAqmhn)
 
-**1989:** Bruce joins Peter Hartung & The Remakes on stage at McLoone’s Rum Runner in Sea Bright, New Jersey.
+**1989:** Bruce joins Peter Hartung & The Remakes on stage at McLoone's Rum Runner in Sea Bright, New Jersey.
 
 **1995:** Bruce makes a surprise appearance at Tradewinds in Sea Bright with Joe Grushecky and the Houserockers for an *American Babylon*-heavy set, with a few Springsteen originals added for good measure. Stevie and Max join for four songs as well.
 
@@ -46,11 +46,11 @@
 
 **2002:** Bruce and the E Street Band rehearse for the upcoming Rising Tour at the Expo Theater in Fort Monmouth.
 
-**2011:** Bruce takes a stroll along the Jersey shore, stops and borrows a guitar, and plays “Born to Run.”
+**2011:** Bruce takes a stroll along the Jersey shore, stops and borrows a guitar, and plays "Born to Run."
 
 ![](../../assets/2018/07/2011-0722.jpg)
 
-**2012:** On the one year anniversary of the Norway attacks, Bruce and Steve play “We Shall Overcome” at the memorial concert for the victims in Oslo.
+**2012:** On the one year anniversary of the Norway attacks, Bruce and Steve play "We Shall Overcome" at the memorial concert for the victims in Oslo.
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=LTrgNSlCkKY)
 

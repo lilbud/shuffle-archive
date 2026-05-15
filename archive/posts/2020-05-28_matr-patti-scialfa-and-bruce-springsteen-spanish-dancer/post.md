@@ -1,4 +1,4 @@
-*Rumble Doll,* Patti Scialfa's 1993 debut album, revealed a powerful voice paired with songwriting talent at once both brave and vulnerable, and Patti's too-far-apart follow-up albums proved that *Rumble Doll* was no fluke.
+*Rumble Doll*, Patti Scialfa's 1993 debut album, revealed a powerful voice paired with songwriting talent at once both brave and vulnerable, and Patti's too-far-apart follow-up albums proved that *Rumble Doll* was no fluke.
 
 That entire first album is wonderful. As Emmylou Harris once put it in a 2013 NPR interview: "[Patti] writes about the female heart, the poetry of being female in a way that it just... every singer-songwriter, female artist that I know loves this record. It never got the attention it should have. I suppose it will always be overshadowed because she's, you know, Bruce Springsteen's wife, but it doesn't take away from the art, her artistry."
 

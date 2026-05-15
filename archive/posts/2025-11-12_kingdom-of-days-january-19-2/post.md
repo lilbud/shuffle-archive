@@ -1,6 +1,6 @@
 
 
-Bruce opens for the Paul Winter Consort for the second of four nights at My Father’s Place on Long Island.
+Bruce opens for the Paul Winter Consort for the second of four nights at My Father's Place on Long Island.
 
 **1973:**
 
@@ -8,7 +8,7 @@ Bruce opens for the Paul Winter Consort for the second of four nights at My Fath
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1973-0118-300x124.jpg?resize=758%2C313)
 
-: Bruce and the band open for Black Oak Arkansas at Kent State University, and the school’s reviewer does not have a particularly good time. After the show, Bruce attends a house party at the residence of the . In a torn jacket and boots with holes, Bruce says to another student, “man we’ve been at this a long time, I just hope we can keep the band together a little while longer, I think we are getting close.”
+: Bruce and the band open for Black Oak Arkansas at Kent State University, and the school's reviewer does not have a particularly good time. After the show, Bruce attends a house party at the residence of the . In a torn jacket and boots with holes, Bruce says to another student, "man we've been at this a long time, I just hope we can keep the band together a little while longer, I think we are getting close."
 
 **1974**[student responsible for bringing Bruce to campus](https://patch.com/ohio/kent/bp--bruce-springsteens-1974-party-in-kent-ohio)
 
@@ -20,15 +20,15 @@ Bruce opens for the Paul Winter Consort for the second of four nights at My Fath
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/01/1974-0119b-256x300.jpg?resize=758%2C888)
 
-Bruce guests with Southside Johnny and Steve Van Zandt’s Blackberry Booze Band at the Stone Pony in Asbury Park.
+Bruce guests with Southside Johnny and Steve Van Zandt's Blackberry Booze Band at the Stone Pony in Asbury Park.
 
 **1975:**
 
-On , host Casey Kasem introduces “” with the story of Bruce’s trip to Mexico with his father.
+On , host Casey Kasem introduces "" with the story of Bruce's trip to Mexico with his father.
 
 **1981:** *American Top 40*[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)<https://estreetshuffle.com/wp-content/uploads/2022/01/AT40-1981-01-19.mp3>
 
-Bruce records “” and “.” The former will be released as a 1984 B-side (and on fifteen years later); the latter is unreleased to this day.
+Bruce records "" and "." The former will be released as a 1984 B-side (and on fifteen years later); the latter is unreleased to this day.
 
 **1983:** [Shut Out the Light](https://estreetshuffle.com/index.php/2020/10/14/roll-of-the-dice-shut-out-the-light/)[One Love](http://estreetshuffle.com/index.php/2019/04/23/roll-of-the-dice-one-love/)*Tracks*
 
@@ -54,21 +54,21 @@ Bruce and most of the E Street Band play a benefit show for the Freehold 3M plan
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/01/1986-01-19b.png?resize=758%2C803&amp;ssl=1)
 
-NPR begins streaming Bruce’s upcoming album, for free for one week prior to its release. Meanwhile, Bruce tries his hand at being a DJ on E Street Radio, playing some of his favorite contemporary releases for listeners.
+NPR begins streaming Bruce's upcoming album, for free for one week prior to its release. Meanwhile, Bruce tries his hand at being a DJ on E Street Radio, playing some of his favorite contemporary releases for listeners.
 
-**2009:** *Working on a Dream,*<https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3>
+**2009:** *Working on a Dream*,<https://estreetshuffle.com/wp-content/uploads/2025/01/01-DJ-Bruce-on-SiriusXM-01-2009-episode-1.mp3>
 
-“” is released as a digital download single in advance of the release of .
+"" is released as a digital download single in advance of the release of .
 
 **2012:** [We Take Care of Our Own](https://estreetshuffle.com/index.php/2020/12/25/roll-of-the-dice-we-take-care-of-our-own/)[](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/)*Wrecking Ball*
 
 [https://www.youtube.com/embed/M3Bz0d2xm7U?feature=oembed](https://www.youtube.com/embed/M3Bz0d2xm7U?feature=oembed)
 
-reaches #1 in the U.K., making it Bruce’s tenth #1 album in that country.
+reaches #1 in the U.K., making it Bruce's tenth #1 album in that country.
 
 **2014:** *High Hopes*
 
-The River Tour moves on to Chicago. In memory of Glenn Frey, who died the day before, Bruce performs an acoustic “” in the encore. This is only night two of the tour, and Bruce is a little rusty. Listen to him forget how to start “.” Twice.
+The River Tour moves on to Chicago. In memory of Glenn Frey, who died the day before, Bruce performs an acoustic "" in the encore. This is only night two of the tour, and Bruce is a little rusty. Listen to him forget how to start "." Twice.
 
 **2016:**[Take It Easy](https://wp.me/p9w3Lk-3y)[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/)<https://estreetshuffle.com/wp-content/uploads/2022/01/No-Surrender-2016-01-19.mp3>
 
@@ -92,7 +92,7 @@ continues its theatrical run at the Walter Kerr Theater in New York City.
 
 [https://videopress.com/embed/UcfupLwc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/UcfupLwc?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Bruce and Patti chair the Paris 2024 Olympic “Victory in Versailles” benefit gala in support of the U.S. Equestrian team. Bruce performs three songs during the evening.
+Bruce and Patti chair the Paris 2024 Olympic "Victory in Versailles" benefit gala in support of the U.S. Equestrian team. Bruce performs three songs during the evening.
 
 **2024:**
 

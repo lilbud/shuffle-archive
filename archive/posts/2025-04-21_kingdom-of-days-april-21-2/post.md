@@ -20,7 +20,7 @@
 
 [Watch on Youtube: Barcelona 21/04/1981](https://www.youtube.com/playlist?list=PLJTyL9twk3zD1dum-kCInli_oIsWTc5zX)
 
-Also today: Gary U.S. Bonds releases his comeback album, *Dedication,* produced by Stevie and Bruce and featuring three original songs and vocal and instrumental performances by Bruce.
+Also today: Gary U.S. Bonds releases his comeback album, *Dedication*, produced by Stevie and Bruce and featuring three original songs and vocal and instrumental performances by Bruce.
 
 [Watch on Youtube: Gary U.S. Bonds - Dedication](https://www.youtube.com/playlist?list=PLp6WWcZCHeSjGcXK0zGNeNmaNxB4g5WKR)
 

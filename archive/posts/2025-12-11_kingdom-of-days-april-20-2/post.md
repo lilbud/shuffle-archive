@@ -32,7 +32,7 @@ A scheduled River Tour show in Paris for this date was moved to April 18.
 
 **1981:**
 
-Bruce works on “Cynthia” at his home studio in Los Angeles.
+Bruce works on "Cynthia" at his home studio in Los Angeles.
 
 **1983:**
 
@@ -46,7 +46,7 @@ The Tunnel of Love Express Tour moves on to Denver for a show a the McNichols Sp
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/04/1988-04-20.jpg?resize=758%2C993&amp;ssl=1)
 
-The second of two nights in Rotterdam for Bruce’s World Tour 1993.
+The second of two nights in Rotterdam for Bruce's World Tour 1993.
 
 **1993:**
 
@@ -58,7 +58,7 @@ Bruce plays a solo acoustic show in Antwerp, rescheduled from March.
 
 [https://videopress.com/embed/bNxmQ6UM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/bNxmQ6UM?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with the first-ever performance of “I Wanna Be With You.” This is only the second Night Two of the tour, and Bruce breaks the set list open with the first performances of “Atlantic City,” “Factory,” “Sherry Darling,” “Cadillac Ranch,” and “This Hard Land” of the Reunion era.
+Another live debut for Milan at Night Two in the Fila Forum: Bruce opens with the first-ever performance of "I Wanna Be With You." This is only the second Night Two of the tour, and Bruce breaks the set list open with the first performances of "Atlantic City," "Factory," "Sherry Darling," "Cadillac Ranch," and "This Hard Land" of the Reunion era.
 
 **1999:**
 
@@ -76,7 +76,7 @@ At the Paramount Theater in Asbury Park, Bruce holds his final rehearsal before 
 
 **2005:**
 
-The first public warm-up show for the Seeger Sessions Tour features the premiere of “How Can a Poor Man Stand Such Times and Live,” “When the Saints Go Marching In” and the album tracks.
+The first public warm-up show for the Seeger Sessions Tour features the premiere of "How Can a Poor Man Stand Such Times and Live," "When the Saints Go Marching In" and the album tracks.
 
 **2006:**
 
@@ -98,7 +98,7 @@ Bruce attends (but does not perform at) the annual Kirsten Ann Carr Fund event.
 
 **2013:**
 
-At Baltimore’s River show, “I Wanna Marry You” features one of what turns into several marriage proposals along the tour.
+At Baltimore's River show, "I Wanna Marry You" features one of what turns into several marriage proposals along the tour.
 
 **2016:**
 

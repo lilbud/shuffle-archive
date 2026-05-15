@@ -18,7 +18,7 @@ Bruce plays two more shows that night at Paul's Mall.
 
 ![](../../assets/2025/01/Asbury_Park_Press_1995_01_15_Page_7.jpg)
 
-**2014:** Bruce's 1980 album, *The River,* wins fourth place in Rolling Stone's [readers' poll](https://www.rollingstone.com/music/music-lists/readers-poll-the-10-greatest-double-albums-of-all-time-19606/4-bruce-springsteen-the-river-217560/)of the greatest double albums of all-time.
+**2014:** Bruce's 1980 album, *The River*, wins fourth place in Rolling Stone's [readers' poll](https://www.rollingstone.com/music/music-lists/readers-poll-the-10-greatest-double-albums-of-all-time-19606/4-bruce-springsteen-the-river-217560/)of the greatest double albums of all-time.
 
 **2018:** *Springsteen on Broadway* resumes after the holiday break. Patti makes her return to the show after being absent for several shows in December due to illness, and the set list accordingly returns to its original state.
 
@@ -28,4 +28,4 @@ Bruce plays two more shows that night at Paul's Mall.
 
 ![](../../assets/2024/01/2023-01-09.jpg)
 
-**2025:** Bruce visits the set of *Deliver Me From Nowhere,* filming today at the old Meadowlands Arena.
+**2025:** Bruce visits the set of *Deliver Me From Nowhere*, filming today at the old Meadowlands Arena.

@@ -1,6 +1,6 @@
 Of the folks songs Bruce recorded for his 2006 album *We Shall Overcome: The Seeger Sessions*, "My Oklahoma Home" was one of the most contemporary–and yet somehow, the least familiar.
 
-Agnes "Sis" Cunningham wrote it with her brother Bill. The Cunninghams were born and raised in rural Oklahoma, where Sis worked both as a labor organizer and musician. Among the groups she performed with was Pete Seeger's troupe, The Almanac Singers, leading to a lifelong friendship and business partnership in *Broadside Magazine,* a publishing haven for aspiring socially conscious folk singers. Seeger published his work in *Broadside*, as did Bob Dylan, Janis Ian, and others.
+Agnes "Sis" Cunningham wrote it with her brother Bill. The Cunninghams were born and raised in rural Oklahoma, where Sis worked both as a labor organizer and musician. Among the groups she performed with was Pete Seeger's troupe, The Almanac Singers, leading to a lifelong friendship and business partnership in *Broadside Magazine*, a publishing haven for aspiring socially conscious folk singers. Seeger published his work in *Broadside*, as did Bob Dylan, Janis Ian, and others.
 
 Sis served as the magazine's editor, and one of the songs published during her run was a song she and Bill wrote in 1961, just before the magazine started: "My Oklahoma Home." A chronicle of the dust bowl experience, the song combined biting sarcasm with laugh-out-loud humor. Seeger recorded it pretty much on the spot.
 

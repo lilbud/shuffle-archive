@@ -1,10 +1,10 @@
 Editor's Note
 
-***Editor’s Note:*** *By popular demand, guest blogger Katy Crane returns today with a new **Two Faces** entry.*
+***Editor's Note:*** *By popular demand, guest blogger Katy Crane returns today with a new **Two Faces** entry.*
 
-> *And I do mean popular: Katy’s [debut counterpoint](https://estreetshuffle.com/index.php/2021/11/04/two-faces-western-stars/) to my “[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)” Roll of the Dice essay already ranks #3 among this site’s most-viewed posts of the year!*
+> *And I do mean popular: Katy's [debut counterpoint](https://estreetshuffle.com/index.php/2021/11/04/two-faces-western-stars/) to my "[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/)" Roll of the Dice essay already ranks #3 among this site's most-viewed posts of the year!*
 
-> *Today, she takes us deep into a much more obscure song: Bruce’s 1984 outtake, “[Rockaway the Days](https://estreetshuffle.com/index.php/2021/03/15/roll-of-the-dice-rockaway-the-days/).” And once again, Katy’s take is a very different one from mine. Let’s hear what she has to say…*
+> *Today, she takes us deep into a much more obscure song: Bruce's 1984 outtake, "[Rockaway the Days](https://estreetshuffle.com/index.php/2021/03/15/roll-of-the-dice-rockaway-the-days/)." And once again, Katy's take is a very different one from mine. Let's hear what she has to say…*
 
 The 1984 outtake "Rockaway the Days" opens with a poignant little guitar riff, cheerful and reassuring and wistful all at once. Then we hear Springsteen's voice, telling a grim story with the sing-song cadences of a lullaby:
 
@@ -27,17 +27,17 @@ Again, the narration is oddly flat, yet every detail is telling. The mother's po
 Springsteen ends the verse with a casual, soothing "All right," as if he's checking in with his listeners, making sure we're with him. That "all right" leads us into the chorus, where the whole tone of the song changes:
 
 > *Rockaway the days, rockaway the nights*
-> *Gimme something to last me, baby, ’til the morning light*
-> *I ain’t lookin’ for trouble, I ain’t looking for a fight*
+> *Gimme something to last me, baby, 'til the morning light*
+> *I ain't lookin' for trouble, I ain't looking for a fight*
 > *Honey rockaway these days, rockaway these nights*
 
 We're no longer in the past; whatever's happening in the chorus is happening right now. We're no longer listening to a detached third-person narrative; there's a real, vulnerable person here now, speaking to us directly, asking for comfort.
 
-And by "comfort," of course, I mean sex. This is a song like "Because the Night" and "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" and "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)," in which a character overwhelmed by the misery of the world turns to sex as a refuge, a way to get through a long, depressing night. Ken hears the singer of "Rockaway the Days" as a maternal figure, and while I disagree, I think he's pinpointed something central about how this chorus feels. Springsteen’s voice is gentle, the cadence repetitive and soothing. This is a lullaby of a kind, but a dark one, a lullaby for adults.
+And by "comfort," of course, I mean sex. This is a song like "Because the Night" and "[Cover Me](https://estreetshuffle.com/index.php/2021/01/13/roll-of-the-dice-cover-me/)" and "[Human Touch](https://estreetshuffle.com/index.php/2019/08/09/roll-of-the-dice-human-touch/)," in which a character overwhelmed by the misery of the world turns to sex as a refuge, a way to get through a long, depressing night. Ken hears the singer of "Rockaway the Days" as a maternal figure, and while I disagree, I think he's pinpointed something central about how this chorus feels. Springsteen's voice is gentle, the cadence repetitive and soothing. This is a lullaby of a kind, but a dark one, a lullaby for adults.
 
 The singer takes up Billy's story again, running quickly through the big events of his life, his courtship and marriage. (In what may be Springsteen's laziest rhyme ever, he names Billy's wife "Mary Dove" so that her name will rhyme with "love." Oof.)
 
-> *Billy swore to Mary he’d always love her so*
+> *Billy swore to Mary he'd always love her so*
 > *They were married in the valley where the river flows, all right*
 
 Once again we get just the bare facts, a year or two of Billy's life summed up in a few quick lines. A brief glimpse of a rural community, of church picnics and riverside weddings, of Billy trying to fit into domestic life. Once again Springsteen ends the verse with that gentle "all right" that suggests it's not all right at all.
@@ -52,14 +52,14 @@ Billy flees, but unlike his counterparts in "Highway Patrolman" and "Losin' Kind
 Billy goes first to Mary, and her reaction tells us something of what life with him must have been like.
 
 > *With blood on his shirt back to Mary he did run*
-> *She sighed “Billy, oh Billy, what have you done?”*
+> *She sighed "Billy, oh Billy, what have you done?"*
 
 She's grieved, but not surprised, and she knows immediately that Billy has hurt someone. Billy tries again at his mother's house, but doesn't even get in the door.
 
-> *He ran to his ma’s trailer but the lights were dim*
-> *He pounded on the door, she wouldn’t let him in*
-> *Up the road to a neighbor’s house he drew near*
-> *They said “Billy go away, we don’t want no trouble ’round here”*
+> *He ran to his ma's trailer but the lights were dim*
+> *He pounded on the door, she wouldn't let him in*
+> *Up the road to a neighbor's house he drew near*
+> *They said "Billy go away, we don't want no trouble 'round here"*
 
 What has Billy done already, how many people has he hurt, that his family and friends see him approaching and assume correctly that he's done something terrible?
 
@@ -75,7 +75,7 @@ Then something unexpected happens: the song keeps going. For the first time, tha
 Sound familiar? Six years before, in "[Badlands](https://estreetshuffle.com/index.php/2019/05/20/roll-of-the-dice-badlands/)," Springsteen sang confidently,
 
 > *Poor man wanna be rich, rich man wanna be king*
-> *And a king ain’t satisfied till he rules everything*
+> *And a king ain't satisfied till he rules everything*
 > *I wanna go out tonight, I wanna find out what I got*
 
 [Watch on Youtube: Badlands](https://www.youtube.com/watch?v=SDlSCeQXbPo)
@@ -104,13 +104,13 @@ As a 1984 outtake, "Rockaway the Days" bridges the gap between two albums. We've
 Springsteen gives us a final chorus:
 
 > *Rockaway the days, rockaway the nights*
-> *Gimme something to last me, baby, ’til the morning light*
-> *I ain’t lookin’ for trouble, I ain’t looking for a fight*
+> *Gimme something to last me, baby, 'til the morning light*
+> *I ain't lookin' for trouble, I ain't looking for a fight*
 > *Honey rockaway these days, rockaway these nights*
 
 And now that we know who these people are, whose tryst we're witnessing, we can finally see all the emotional layers to it. It's partly an instinctive response to tragedy: life asserting itself in the face of death. It's partly self-protection: the singer turning away from a world in which stories like Billy's happen and taking refuge in sex. But we're also watching someone trying his hardest not to be Billy, to stay connected, to get through one day at a time for as long as he can.
 
-"Well, all right," the narrator sings again, but the soothing quality is gone from his voice. He sounds doubtful now, uncertain, like he's trying to convince himself of something. "Well, all right." His voice rises, becomes a question, with a hysterical, yelping edge to it. "Well, all right? *Well, all right*?”
+"Well, all right," the narrator sings again, but the soothing quality is gone from his voice. He sounds doubtful now, uncertain, like he's trying to convince himself of something. "Well, all right." His voice rises, becomes a question, with a hysterical, yelping edge to it. "Well, all right? *Well, all right*?"
 
 There's no answer. Just the guitar riff, insistent and wistful, returning one last time to end the song.
 

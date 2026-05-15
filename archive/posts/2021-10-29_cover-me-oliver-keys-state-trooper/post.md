@@ -6,6 +6,6 @@ But I'm going to make an exception today, because Brisbane-based (hey, I *did* f
 
 "State Trooper" lends itself so well to a live loop treatment that it's amazing we haven't seen it covered like this until now.
 
-Keys' rhythmic percussion evokes the white lines of the New Jersey Turnpike, his vocals capture the strained paranoia of Bruce's narrator, and that guitar solo.... just perfect. Keys gives the song more time to breathe than it gets on *Nebraska,* and he makes good use of the extra oxygen.
+Keys' rhythmic percussion evokes the white lines of the New Jersey Turnpike, his vocals capture the strained paranoia of Bruce's narrator, and that guitar solo.... just perfect. Keys gives the song more time to breathe than it gets on *Nebraska*, and he makes good use of the extra oxygen.
 
 I wish I knew more about the artist, but I'll at least be watching for more of his releases. This is my new favorite cover of "State Trooper."

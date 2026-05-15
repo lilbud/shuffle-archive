@@ -28,7 +28,7 @@
 
 ![](../../assets/2021/03/2008-03-29.png)
 
-**2012:** Night Two in Philadelphia features a rare (outside of Philly, anyway) "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" and a glorious, brassy "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)." Also today: Bruce appears on the cover of the new issue of *Rolling Stone,* which features [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/).
+**2012:** Night Two in Philadelphia features a rare (outside of Philly, anyway) "[Streets of Philadelphia](https://estreetshuffle.com/index.php/2021/06/30/roll-of-the-dice-streets-of-philadelphia/)" and a glorious, brassy "[Kitty's Back](https://estreetshuffle.com/index.php/2022/01/22/roll-of-the-dice-kittys-back/)." Also today: Bruce appears on the cover of the new issue of *Rolling Stone*, which features [an interview with him by Jon Stewart](https://www.rollingstone.com/music/music-news/bruce-springsteens-state-of-the-union-172644/).
 
 [Watch on Youtube: Trapped - Springsteen - Philadelphia March 29, 2012](https://www.youtube.com/watch?v=QimUtzbHEvg)
 

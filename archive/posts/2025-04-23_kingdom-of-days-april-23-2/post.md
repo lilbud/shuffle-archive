@@ -88,7 +88,7 @@ Also today, *American Top 40* host Casey Kasem introduces Bruce's current chart-
 
 [Watch on Youtube: No Surrender - Springsteen - Brooklyn April 23, 2016](https://www.youtube.com/watch?v=eyPtFqV-f3w)
 
-**2018:** At the premiere for the new Patti Smith concert documentary *Horses: Patti Smith and Her Band,* Bruce makes a surprise appearance, joining Patti for "Because the Night" and both Patti and Michael Stipe for "[People Have the Power.](https://estreetshuffle.com/index.php/2020/01/09/matr-patti-smith-bruce-springsteen-and-michael-stipe-people-have-the-power/)"
+**2018:** At the premiere for the new Patti Smith concert documentary *Horses: Patti Smith and Her Band*, Bruce makes a surprise appearance, joining Patti for "Because the Night" and both Patti and Michael Stipe for "[People Have the Power.](https://estreetshuffle.com/index.php/2020/01/09/matr-patti-smith-bruce-springsteen-and-michael-stipe-people-have-the-power/)"
 
 [Watch on Youtube: Patti Smith w/ Bruce Springsteen and Michael Stipe 4/23/18 Beacon](https://www.youtube.com/watch?v=5iOLJTm6YNA)
 

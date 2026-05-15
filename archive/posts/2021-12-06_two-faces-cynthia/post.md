@@ -1,6 +1,6 @@
 ***Editor's Note***
 
-****Katy Crane returns today with her third Two Faces entry. This one’s a little bit different, though, and I’ll let Katy explain why.*
+****Katy Crane returns today with her third Two Faces entry. This one's a little bit different, though, and I'll let Katy explain why.*
 
 Author's note: This is going to be an unusual post: one where Ken and I agree completely about what's happening in the song. Usually, I write counterpoints to Ken's posts, which means I write about songs where Ken and I have radically different takes: about the tone of the song, what's happening in it, whether it's good or not. The problem–and this is a funny problem to have–is that Ken and I agree a lot. And that doesn't leave me many songs to write about. 
 
@@ -22,8 +22,8 @@ Let's start by taking a look at the lyrics of "Oh Pretty Woman," the most famous
 
 [Watch on Youtube: Oh, Pretty Woman](https://www.youtube.com/watch?v=3KFvoDDs0XM)
 
-> *Pretty woman won’t you pardon me*
-> *Pretty woman I couldn’t help but see*
+> *Pretty woman won't you pardon me*
+> *Pretty woman I couldn't help but see*
 > *Pretty woman that you look lovely as can be*
 > *Are you lonely just like me*
 
@@ -35,23 +35,23 @@ Orbison's singer doesn't just reduce his subject to her looks, he does it again 
 
 He wonders if she's lonely. Why would she be? He makes demands on her time, asks her to stop and talk. *He* *tells her to smile.* And then he tries to guilt-trip her into spending the night with him.
 
-> *Pretty woman don’t walk on by*
-> *Pretty woman don’t make me cry*
-> *Pretty woman don’t walk away, hey*
+> *Pretty woman don't walk on by*
+> *Pretty woman don't make me cry*
+> *Pretty woman don't walk away, hey*
 
 And it works! Realizing what a terrible thing it would be to make Roy Orbison sad, the pretty woman turns around and presumably goes home with him. Happy ending!
 
 So given that the original song is basically a list of sexist tropes loosely stapled together, does it seem improbable that anyone could create a feminist, or at any rate a not horrifically sexist, version of "Oh Pretty Woman?" Well, hold onto your cool and stylish hats, because Bruce Springsteen is about to show us the most respectful way to holler at a woman on the street.
 
-> *Cynthia, when you come walking by you’re an inspiring sight.*
+> *Cynthia, when you come walking by you're an inspiring sight.*
 
 Bruce is off to a good start here; the woman he's talking to has a name! Where Orbison lets us know from the start that his subject is pretty, but doesn't bother to name her, Springsteen does the opposite. He calls Cynthia by name, and instead of commenting on her looks, he tells her she's inspiring. It's a goofy and charming word choice, a compliment so consciously respectful it tips over into absurdity.
 
-> *Cynthia, you don’t smile or say hi, but baby that’s all right*
+> *Cynthia, you don't smile or say hi, but baby that's all right*
 
 You can almost see Springsteen going through Orbison's song line by line, ticking things off. He's *not* going to tell Cynthia to smile. He's *not* going to tell her to talk to him. In fact, he doesn't expect anything from her.
 
-> *‘Cause I don’t need to hold you or taste your kiss*
+> *‘Cause I don't need to hold you or taste your kiss*
 > *I just like knowing, Cynthia, you exist, doll, in a world like this*
 
 Here, the song makes a quick swerve into one of the major preoccupations of the *Born in the U.S.A.* era: the general awfulness of the world. This is, of course, the time period of Springsteen's first major depression, and even in a joke song like "Cynthia" there's an assumption (played here mostly for laughs) that being depressed is just the standard way to be. Here, everyone in the song seems to be depressed except for Cynthia; the singer works on a construction site populated by men who are all equally bummed out and in need of inspiration.
@@ -63,12 +63,12 @@ Here, the song makes a quick swerve into one of the major preoccupations of the 
 
 Springsteen makes it clear that unlike Roy Orbison, his character is not going to be laying a guilt trip on Cynthia.
 
-> *Well now you ain’t the finest thing I’ll never have*
-> *And when you go the hurt you leave baby it ain’t so bad*
+> *Well now you ain't the finest thing I'll never have*
+> *And when you go the hurt you leave baby it ain't so bad*
 
 She cheers him up, sure. But that doesn't mean she needs to worry about making him unhappy when she leaves; he's a rational adult; he can handle it. He's still a little worried, though, that he and his buddies might be overstepping, that it might bother Cynthia to know she's being talked about. So he asks her.
 
-> *There ain’t a man in this whole town who’d say you ain’t fine*
+> *There ain't a man in this whole town who'd say you ain't fine*
 > *You hear them guys talking, tell me, baby, do you mind?*
 
 Once again he implicitly apologizes, reminding her that she's a bright spot in a miserable world, that by ogling her on the street he's just trying to alleviate his own depression. That he feels the need to justify himself at all sets him aside from Orbison's singer, who feels fully entitled to approach any woman as long as she's pretty. Springsteen's character is still going to talk to Cynthia, or at least talk about her, but he needs her to know he has a good reason for it.
@@ -87,16 +87,16 @@ In case we're worried that these emotionally needy men might start stalking Cynt
 
 Let's catalogue the words we've heard applied to Cynthia, shall we? She's inspiring, she walks cool, she has style. We're now most of the way through the song, a song that's entirely devoted to admiring Cynthia, and Springsteen has not once called her pretty. "Fine" is the closest we've gotten.
 
-Springsteen ends with a specific callback to Orbison's first verse. "Pretty woman, I don’t believe you," Orbison sang, "you’re not the truth." Springsteen sings, "I gotta be pretty naïve to believe in you," but here it comes across not as flattering or insulting but just as realism: he's acknowledging that he doesn't know Cynthia, and that any hopes or beliefs he's built around her are just in his mind. And that's okay, because as he assures her one last time, he doesn't expect anything from her. He's going to let her keep walking now, and unlike Orbison's pretty woman, she's not going to turn around.
+Springsteen ends with a specific callback to Orbison's first verse. "Pretty woman, I don't believe you," Orbison sang, "you're not the truth." Springsteen sings, "I gotta be pretty naïve to believe in you," but here it comes across not as flattering or insulting but just as realism: he's acknowledging that he doesn't know Cynthia, and that any hopes or beliefs he's built around her are just in his mind. And that's okay, because as he assures her one last time, he doesn't expect anything from her. He's going to let her keep walking now, and unlike Orbison's pretty woman, she's not going to turn around.
 
-> *Yeah now baby, now this ain’t no come-on*
+> *Yeah now baby, now this ain't no come-on*
 > *Now walk on, Cynthia, walk on*
 
 As she walks away, Bruce finally lets loose with some hoots and hollers.
 
 > *You make me holler, yeah, yeah, all right*
 > *I said yeah, yeah, all right*
-> *Well she’s a yeah, yeah, all right*
+> *Well she's a yeah, yeah, all right*
 
 I'm torn as to how to take this ending. Pure, joyful, goofy celebration, Springsteen having fun at the end of an essentially silly song? Or are these whoops what Cynthia actually hears as she's walking past the construction site, unaware of all the high-minded, idealistic thoughts that lie behind them?
 

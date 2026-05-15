@@ -82,4 +82,4 @@
 
 
 
-**2024:** Bruce visits the set of *Deliver Me From Nowhere,* filming today at Frank's Deli in Asbury Park.
+**2024:** Bruce visits the set of *Deliver Me From Nowhere*, filming today at Frank's Deli in Asbury Park.

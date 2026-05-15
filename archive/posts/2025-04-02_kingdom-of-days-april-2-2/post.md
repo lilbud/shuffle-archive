@@ -22,7 +22,7 @@
 
 [Watch on Youtube: Bruce Springsteen | Love Me Tender | April 2, 1988](https://www.youtube.com/watch?v=9wopuObCeV0)
 
-**2011:** The Garden State Film Festival premieres *Who Do I Think I Am,* a biographical film about Clarence Clemons, at the Paramount Theater in Asbury Park. Meanwhile, Bruce joins local Asbury musicians (including Southside Johnny, Vini Lopez, Ed Manion, and more) at a panel and Nicky Addeo concert at the Wonder Bar. Watch the complete panel discussion below and concert highlights below.
+**2011:** The Garden State Film Festival premieres *Who Do I Think I Am*, a biographical film about Clarence Clemons, at the Paramount Theater in Asbury Park. Meanwhile, Bruce joins local Asbury musicians (including Southside Johnny, Vini Lopez, Ed Manion, and more) at a panel and Nicky Addeo concert at the Wonder Bar. Watch the complete panel discussion below and concert highlights below.
 
 [Watch on Youtube: West Side Sound AP 1 of 8](https://www.youtube.com/watch?v=S_LsNVa_HZ8)
 

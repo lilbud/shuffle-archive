@@ -6,7 +6,7 @@ Bruce jams with local musicians at an open mic night at The Upstage in Asbury Pa
 
 **1971:**
 
-Bruce cancels a gig in Vancouver, BC, where he was scheduled to open for Paul Butterfield’s Better Days.
+Bruce cancels a gig in Vancouver, BC, where he was scheduled to open for Paul Butterfield's Better Days.
 
 **1973:**
 
@@ -14,7 +14,7 @@ Bruce cancels a gig in Vancouver, BC, where he was scheduled to open for Paul Bu
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1973-03-06.png?resize=758%2C258&amp;ssl=1)
 
-Bruce and the band continue the Lawsuit Tour’s Florida swing with a show at Jai Alai Fronton in Miami.
+Bruce and the band continue the Lawsuit Tour's Florida swing with a show at Jai Alai Fronton in Miami.
 
 **1977:**
 
@@ -26,7 +26,7 @@ Bruce and the band continue the Lawsuit Tour’s Florida swing with a show at Ja
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/1977-03-06.png?resize=758%2C875&amp;ssl=1)
 
-Bruce joins Soul Asylum on stage at Tramps in New York City for “.”
+Bruce joins Soul Asylum on stage at Tramps in New York City for "."
 
 **1995:**[The Tracks of My Tears](http://estreetshuffle.com/index.php/2019/10/16/matr-soul-asylum-and-bruce-springsteen-the-tracks-of-my-tears/)
 
@@ -34,7 +34,7 @@ Bruce joins Soul Asylum on stage at Tramps in New York City for “.”
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2022/03/1995-03-06.jpg?resize=758%2C1184&amp;ssl=1)
 
-The Reunion Tour continues its Florida leg with a show at Tampa’s Ice Palace.
+The Reunion Tour continues its Florida leg with a show at Tampa's Ice Palace.
 
 **2000:**
 
@@ -46,15 +46,15 @@ The Reunion Tour continues its Florida leg with a show at Tampa’s Ice Palace.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2000-03-06b-300x108.jpg?resize=758%2C273)
 
-Bruce Hornsby and former Steel Mill bandmate Robbin Thompson join Bruce and the band for Hank Ballard’s “” during the Rising Tour’s stop at the Coliseum in Richmond.
+Bruce Hornsby and former Steel Mill bandmate Robbin Thompson join Bruce and the band for Hank Ballard's "" during the Rising Tour's stop at the Coliseum in Richmond.
 
-**2003:**[Let’s Go, Let’s Go, Let’s Go](http://estreetshuffle.com/index.php/2018/09/26/matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/)
+**2003:**[Let's Go, Let's Go, Let's Go](http://estreetshuffle.com/index.php/2018/09/26/matr-bruce-springsteen-bruce-hornsby-robbin-thompson-lets-go-lets-go-lets-go/)
 
 [https://www.youtube.com/embed/0R97Ohj_qdE?feature=oembed](https://www.youtube.com/embed/0R97Ohj_qdE?feature=oembed)
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2020/02/2003-03-06-221x300.jpg?resize=758%2C1029)
 
-The Magic Tour stops at Rochester’s Blue Cross Arena, where “Rosalita (Come Out Tonight)” makes its welcome return after a five-year absence.
+The Magic Tour stops at Rochester's Blue Cross Arena, where "Rosalita (Come Out Tonight)" makes its welcome return after a five-year absence.
 
 **2008:**
 
@@ -80,7 +80,7 @@ Bruce releases his seventeenth studio album,
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2012-03-05b.png?resize=758%2C571&amp;ssl=1)
 
-The River Tour (2016 edition) stops at the Chaifetz Arena in St. Louis, where lucky (and talented) fan Tom England gets to join the band on-stage for “”
+The River Tour (2016 edition) stops at the Chaifetz Arena in St. Louis, where lucky (and talented) fan Tom England gets to join the band on-stage for ""
 
 **2016:** [Working on the Highway.](http://estreetshuffle.com/index.php/2018/01/11/roll-of-the-dice-working-on-the-highway/)
 
@@ -98,7 +98,7 @@ The River Tour (2016 edition) stops at the Chaifetz Arena in St. Louis, where lu
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2021/03/2016-03-06b.jpg?resize=758%2C964&amp;ssl=1)
 
-continues its theatrical run at the Walter Kerr Theater in New York City. Actress Reese Witherspoon is in attendance tonight, and this is her first time seeing Bruce perform live. She’s unprepared for the emotional power of his performance; watch her describe the experience to late-night talk show host Stephen Colbert the following night.
+continues its theatrical run at the Walter Kerr Theater in New York City. Actress Reese Witherspoon is in attendance tonight, and this is her first time seeing Bruce perform live. She's unprepared for the emotional power of his performance; watch her describe the experience to late-night talk show host Stephen Colbert the following night.
 
 **2018:** *Springsteen on Broadway*
 

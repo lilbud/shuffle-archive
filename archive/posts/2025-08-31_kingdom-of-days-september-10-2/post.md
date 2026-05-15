@@ -10,7 +10,7 @@ The Bruce Springsteen Band continues their residency at The Student Prince.
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1971-0910-300x169.jpg?resize=758%2C426)
 
-Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum in Cincinnati, where “” makes its tour premiere. If you can’t make the show, you can listen to a two-hour radio special on Bruce premiering tonight on the King Biscuit Flower Hour.
+Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum in Cincinnati, where "" makes its tour premiere. If you can't make the show, you can listen to a two-hour radio special on Bruce premiering tonight on the King Biscuit Flower Hour.
 
 **1978:** [Detroit Medley](http://estreetshuffle.com/index.php/2019/12/27/cover-me-detroit-medley/)
 
@@ -26,15 +26,15 @@ Bruce and the E Street Band bring the Darkness Tour to the Riverfront Coliseum i
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1978-0910-144x300.jpg?resize=758%2C1579)
 
-Bruce records “Mr. Outside” on a cassette recorder at home in Holmdel. He will release it 36 years later on .
+Bruce records "Mr. Outside" on a cassette recorder at home in Holmdel. He will release it 36 years later on .
 
 **1979:** *The Ties That Bind: The River Collection*
 
 [https://www.youtube.com/embed/PLa8TaCNM28?feature=oembed](https://www.youtube.com/embed/PLa8TaCNM28?feature=oembed)
 
-At Night Two on the River Tour at Chicago’s Rosemont Horizon, Bruce and the E Street Band play the one and only tour performance of “,” its last appearance for almost seven years.
+At Night Two on the River Tour at Chicago's Rosemont Horizon, Bruce and the E Street Band play the one and only tour performance of "," its last appearance for almost seven years.
 
-**1981:** [She’s the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
+**1981:** [She's the One](https://estreetshuffle.com/index.php/2021/04/04/roll-of-the-dice-shes-the-one/)
 
 [https://www.youtube.com/embed/zHxCBO7yzCI?feature=oembed](https://www.youtube.com/embed/zHxCBO7yzCI?feature=oembed)
 
@@ -42,7 +42,7 @@ At Night Two on the River Tour at Chicago’s Rosemont Horizon, Bruce and the E 
 
 On a free day in between shows, Clarence appears as a guest on and he performs a familiar song with the Red Bank Rockers.
 
-**1984:** *Late Night with David Letterman,*
+**1984:** *Late Night with David Letterman*,
 
 [https://www.youtube.com/embed/-kpB6TJCrhs?feature=oembed](https://www.youtube.com/embed/-kpB6TJCrhs?feature=oembed)
 
@@ -60,7 +60,7 @@ Bruce shakes up the set list for Night Two in Miami on the Born in the U.S.A. To
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/09/1985-0909-217x300.jpg?resize=758%2C1048)
 
-The Human Rights Now! Tour arrives at Camp Nou in Barcelona, where Branford Marsalis guest-stars on “.”
+The Human Rights Now! Tour arrives at Camp Nou in Barcelona, where Branford Marsalis guest-stars on "."
 
 **1988:** [Raise Your Hand](https://estreetshuffle.com/index.php/2021/05/21/cover-me-raise-your-hand/)
 
@@ -82,9 +82,9 @@ Gene Siskel and Roger Ebert appear on the new Dave shows a clip of Gene and Bruc
 
 [https://videopress.com/embed/ntJl0t6p?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata](https://videopress.com/embed/ntJl0t6p?hd=1&amp;cover=1&amp;loop=0&amp;autoPlay=0&amp;permalink=1&amp;muted=0&amp;controls=1&amp;playsinline=0&amp;useAverageColor=0&amp;preloadContent=metadata)
 
-One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruce pays tribute to Warren Zevon (who died three days prior) by opening with his only performance to date of “.”
+One final Canadian show on the Rising Tour at the Skydome in Toronto, where Bruce pays tribute to Warren Zevon (who died three days prior) by opening with his only performance to date of "."
 
-**2003:** [My Ride’s Here](https://estreetshuffle.com/index.php/2022/03/24/cover-me-my-rides-here/)
+**2003:** [My Ride's Here](https://estreetshuffle.com/index.php/2022/03/24/cover-me-my-rides-here/)
 
 [https://www.youtube.com/embed/SMKLoE5uUu0?feature=oembed](https://www.youtube.com/embed/SMKLoE5uUu0?feature=oembed)
 
@@ -104,7 +104,7 @@ Bruce and the band rehearse for the South American leg of the Wrecking Ball Tour
 
 [https://www.youtube.com/embed/LA-yNDJDNOM?feature=oembed](https://www.youtube.com/embed/LA-yNDJDNOM?feature=oembed)
 
-Bruce releases the first single, video, and title track to his upcoming album with the E Street Band, “.”
+Bruce releases the first single, video, and title track to his upcoming album with the E Street Band, "."
 
 **2020:** [Letter to You](https://estreetshuffle.com/index.php/2021/01/05/roll-of-the-dice-letter-to-you/)
 

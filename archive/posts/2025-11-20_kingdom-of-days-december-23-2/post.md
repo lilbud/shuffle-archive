@@ -8,15 +8,15 @@ The Castiles play a sweet sixteen party for a high school classmate at the Ameri
 
 **1966:**
 
-Bruce and his unnamed band headline at the Rova Farm Function Center in Jackson, New Jersey, where a fight breaks out during (of all things) “.” Luckily, the police break up the brawl and allow the show to go on.
+Bruce and his unnamed band headline at the Rova Farm Function Center in Jackson, New Jersey, where a fight breaks out during (of all things) "." Luckily, the police break up the brawl and allow the show to go on.
 
-**1973:** [Santa Claus is Comin’ to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
+**1973:** [Santa Claus is Comin' to Town](https://estreetshuffle.com/index.php/2021/12/24/cover-me-santa-claus-is-comin-to-town/)
 
 
 
 ![](https://i0.wp.com/estreetshuffle.com/wp-content/uploads/2018/12/ad326-300x161.jpg?resize=758%2C406)
 
-Just in time for Christmas, Bruce releases the video from his intimate concert at the Asbury Park Casino’s Carousel House a few weeks earlier.
+Just in time for Christmas, Bruce releases the video from his intimate concert at the Asbury Park Casino's Carousel House a few weeks earlier.
 
 **2010:**
 

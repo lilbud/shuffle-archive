@@ -1,6 +1,6 @@
 Back in September 2016, when the U.S. presidential election was coming down to the home stretch (wow, that seems like so long ago), Mary J. Blige debuted a new show on Apple Music called *The 411 with Mary J. Blige.*
 
-The debut episode featured presidential candidate and former Secretary of State Hillary Clinton as Blige’s guest, and during the episode (and in the trailer below), while discussing police brutality Blige spontaneously sings a verse from Bruce’s “American Skin (41 Shots)” to Secretary Clinton:
+The debut episode featured presidential candidate and former Secretary of State Hillary Clinton as Blige's guest, and during the episode (and in the trailer below), while discussing police brutality Blige spontaneously sings a verse from Bruce's "American Skin (41 Shots)" to Secretary Clinton:
 
 [Watch on Youtube: Mary J Blige sings to Hillary Clinton](https://www.youtube.com/watch?v=GvDjV9cly9Q)
 
@@ -8,15 +8,15 @@ At least, we *thought* it was spontaneous at the time.
 
 Turns out that Blige had already recorded a full cover of the song with the help of rapper Kendrick Lamar, and she released it as a single not even a month later.
 
-If you haven’t heard it before, trust me: you need to. It’s magnificent, even more powerful than Bruce’s original version:
+If you haven't heard it before, trust me: you need to. It's magnificent, even more powerful than Bruce's original version:
 
 [https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3?_=2](https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3?_=2)
 
 <https://estreetshuffle.com/wp-content/uploads/2019/04/mary-j-blige-American-Skin-41-Shots-feat.-Kendrick-Lamar-1.mp3>
 
-Lamar’s additional lyrics add heightened resonance, and I’m sure Bruce approves–he’s always been one to adapt, reinvent, and rewrite when covering other artists.
+Lamar's additional lyrics add heightened resonance, and I'm sure Bruce approves–he's always been one to adapt, reinvent, and rewrite when covering other artists.
 
-In case they fly by a bit too quickly to fully appreciate, here are Lamar’s lyrics:
+In case they fly by a bit too quickly to fully appreciate, here are Lamar's lyrics:
 
 > *If I die right before I wake*
 > *Cross my heart, then I seal my fate*
@@ -43,7 +43,7 @@ In case they fly by a bit too quickly to fully appreciate, here are Lamar’s ly
 > *More storm barricade the city*
 > *Prosecution, unhung jury*
 
-> *These days murder keep ’em busy*
+> *These days murder keep 'em busy*
 > *Sweet blood flowed on the gurney*
 > *Yellow tape tied around the street*
 > *Colin Kaepernick was more than worthy*

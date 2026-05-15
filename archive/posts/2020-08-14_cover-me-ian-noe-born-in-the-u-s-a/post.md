@@ -8,4 +8,4 @@ Take a listen and enjoy.
 
 [Watch on Youtube: Ian Noe - Born in the U.S.A.](https://www.youtube.com/watch?v=HFueSCoTjrw)
 
-Ian's own music is pretty great, too–if you're a John Prine fan, check out Ian's debut album from last year, *Between the Country,* [here](https://www.iannoe.com/).
+Ian's own music is pretty great, too–if you're a John Prine fan, check out Ian's debut album from last year, *Between the Country*, [here](https://www.iannoe.com/).
