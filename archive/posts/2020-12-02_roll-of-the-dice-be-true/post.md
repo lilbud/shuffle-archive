@@ -24,7 +24,7 @@ The third thing to know about “Be True” is that it’s not a love song. Or a
 
 The last line of of “Be True” is “be true to me, and I’ll be true to you,” but what Bruce’s character is really saying is: *Be your authentic self with me*, and I’ll be mine with you. Bruce acknowledged this in a 1999 interview with Mark Hagen in *Mojo.*
 
-*“He’s trying to say, ‘Hey don’t sell yourself cheap.’ It’s saying: be true to yourself in some fashion. He’s talking to a woman he’s interested in, but actually that’s a device to address just how do you find yourself through the falseness of some of those things and not sell yourself short and try to get the most out of yourself.*
+> *“He’s trying to say, ‘Hey don’t sell yourself cheap.’ It’s saying: be true to yourself in some fashion. He’s talking to a woman he’s interested in, but actually that’s a device to address just how do you find yourself through the falseness of some of those things and not sell yourself short and try to get the most out of yourself.*
 
 So with that lens in mind, let’s move on to my long-promised lyrical analysis and “Mary Lou” comparison. (I didn’t realize at the time that it would take nineteen months for the dice to turn up the concluding chapter of the “Mary Lou”/”[Little White Lies](https://estreetshuffle.com/index.php/2018/03/20/roll-of-the-dice-little-white-lies/)“/”Be True” trilogy. Sorry about that.)
 
@@ -32,11 +32,11 @@ Both songs share the same gimmick: the use of Hollywood vocabulary and iconograp
 
 Our off-screen heroine imagines herself as the leading lady in a major motion picture, and we’re led to believe she lives her life that way–forcing herself and her relationships to fit her big-screen expectations. Our narrator is just the latest in a long line of suitors, and while his interest appears to be genuine, he’s not willing to play her game.
 
-*Your scrapbook’s filled with pictures of all your leading men*
-*Well baby don’t put my picture in there with them*
-*Don’t make us some little girl’s dream that can’t ever come true*
-*That only serves to hurt and make you cry like you do*
-*Well baby don’t do it to me and I won’t do it to you*
+> *Your scrapbook’s filled with pictures of all your leading men*
+> *Well baby don’t put my picture in there with them*
+> *Don’t make us some little girl’s dream that can’t ever come true*
+> *That only serves to hurt and make you cry like you do*
+> *Well baby don’t do it to me and I won’t do it to you*
 
 To be sure, there’s at least a trace of self-interest at work: if he can lower her expectations, maybe he’ll have a chance of actually meeting them. But as the song progresses, we sense that he’s more focused on helping her be true to and satisfied with herself, so she can be happy in love with *anyone*, even if he ends up not being the one.
 
@@ -44,41 +44,41 @@ Our narrator makes her a promise and demands one in return: let’s be our true 
 
 The second verse continues the movie metaphor, but the key exchange comes at the end of the verse:
 
-*You see all the romantic movies, you dream and take the boys home*
-*But when the action fades you’re left all alone*
-*You deserve better than this, little girl can’t you see you do*
-*Do you need somebody to prove it to you*
-*Well baby you prove it to me and I’ll prove it to you*
+> *You see all the romantic movies, you dream and take the boys home*
+> *But when the action fades you’re left all alone*
+> *You deserve better than this, little girl can’t you see you do*
+> *Do you need somebody to prove it to you*
+> *Well baby you prove it to me and I’ll prove it to you*
 
 It’s not uncommon for lovers to tell each other how wonderful they are, but how many force the other person to not only acknowledge it but also prove that they believe it? That’s the crux of the middle verse of “Be True” — you deserve better than this, but you need to prove to me that you understand that and believe it. If you do, I’ll show you what better looks like. If you don’t—well, the implication is that the relationship would be doomed.
 
 Our narrator drives his point home bluntly in the bridge:
 
-*Now every night you go out looking for true love’s satisfaction*
-*But in the morning you end up settling for lights, camera, action*
+> *Now every night you go out looking for true love’s satisfaction*
+> *But in the morning you end up settling for lights, camera, action*
 
 The implication is that she’s a serial dater, falling for actors and playing out scenes. But scenes don’t last long, and neither do her relationships.
 
 Our would-be leading man promises only the *possibility* of something real. Whether it’s enough remains to be seen, but as he points out in the final verse: if she keeps her true self hidden away, she’ll end up as part of the audience for the movie that is her life, rather than its star.
 
-*And another cameo role with some bit player you’re befriending*
-*You’re gonna go broken-hearted looking for that happy ending*
-*Well girl you’re gonna end up just another lonely ticket sold*
-*Crying alone in the theater as the credits roll*
-*You say I’ll be like those other guys*
-*Who filled your head with pretty lies*
-*And dreams that can never come true*
-*Well you be true to me and I’ll be true to you*
+> *And another cameo role with some bit player you’re befriending*
+> *You’re gonna go broken-hearted looking for that happy ending*
+> *Well girl you’re gonna end up just another lonely ticket sold*
+> *Crying alone in the theater as the credits roll*
+> *You say I’ll be like those other guys*
+> *Who filled your head with pretty lies*
+> *And dreams that can never come true*
+> *Well you be true to me and I’ll be true to you*
 
 Those are the lyrics to “Be True.” “Mary Lou” shares virtually the same lines with only a few minor differences, the most important of which is naming the leading lady. Doing so saps the song of some of its universality by forcing us to imagine another person as the addressee rather than ourselves.
 
 Bruce also includes some lines in “Mary Lou” that shift just a bit too much of the focus to the narrator and provide just a bit too much transparency to the metaphor:
 
-*Well you deserve better than this, a real love that can grow*
-*And I ain’t playing outtakes, girl, from some late late show, no*
+> *Well you deserve better than this, a real love that can grow*
+> *And I ain’t playing outtakes, girl, from some late late show, no*
 
-*Mary Lou, I’ve seen all those movies too*
-*Mary Lou, Well I know the hurt too much dreaming can do*
+> *Mary Lou, I’ve seen all those movies too*
+> *Mary Lou, Well I know the hurt too much dreaming can do*
 
 But much more so than the lyrics, it’s the music that gives “Mary Lou” a harder edge. “Mary Lou” features an aggressive backing track; our narrator almost seems desperate. “Be True,” on the other hand, features a backing track so bright that it could almost be the score of a movie itself, which of course is exactly the point. Bruce is delivering an anti-romantic message the only way he’s sure that his leading lady will receive it: wrapped in romantic, Hollywood trappings.
 

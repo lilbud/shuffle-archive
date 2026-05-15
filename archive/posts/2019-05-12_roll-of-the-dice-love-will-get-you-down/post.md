@@ -14,8 +14,8 @@ But the second take (we don’t know how much time passed between takes, unfortu
 
 The lyrics are decipherable, but they’re also mostly bluffed and don’t warrant analysis. The only lyrics close to developed are the chorus, and they betray the central conceit of the song:
 
-*Pretty soon you’ll find out a smile turns into a frown*
-*You better watch it, young man–love will get you down*
+> *Pretty soon you’ll find out a smile turns into a frown*
+> *You better watch it, young man–love will get you down*
 
 Takes #3 and #4 are just snippets. They don’t shed much additional light, but Take #3 does at least start to develop a verse. We’re still in bluff city, but it’s clear that Bruce is trying to convey a sense of sweet agony, of the vulnerability that comes with love, and the inevitable heartbreak that will follow.
 

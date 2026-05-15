@@ -32,32 +32,32 @@ All the thematic elements of a classic Springsteen song are here:
 
 And, of course, the song-length sexual encounter, which Bruce employs with far more frequency than I think most fans realize.
 
-*Zero’s my number, time is my hunter*
-*I wanted you to heal me but instead you set me on fire*
-*We were out over the border, I washed you in holy water*
-*We whispered our black prayers and rose up in flames*
-*Take me on your burning train*
+> *Zero’s my number, time is my hunter*
+> *I wanted you to heal me but instead you set me on fire*
+> *We were out over the border, I washed you in holy water*
+> *We whispered our black prayers and rose up in flames*
+> *Take me on your burning train*
 
 Meet our narrator. In true “I had a job, I had a girl” form, Bruce tells us all we need to know in the first line: *Zero’s my number*–I’m a loser*. Time is my hunter–*I’m old*.* Looking for love, he instead finds the rejuvenating power of lust, and it’s almost literally a religious experience.
 
 (In the interest of propriety, I’ll forego my usual line-by-line analysis, but suffice it to say that Bruce is not the first artist to equate [holy water with bodily fluids](https://www.youtube.com/watch?v=9APOR1Ls1Bc) or [prayers with orgasms](https://www.youtube.com/watch?v=79fzeNUqQbQ).)
 
-*White sun burning, black wings beating*
-*I ran my fingers ‘cross the hollow of your stomach as you lay breathing*
-*With our shared faith, rising dark and decayed*
-*Take me and shake me from this mortal cage*
-*Take me on your burning train*
+> *White sun burning, black wings beating*
+> *I ran my fingers ‘cross the hollow of your stomach as you lay breathing*
+> *With our shared faith, rising dark and decayed*
+> *Take me and shake me from this mortal cage*
+> *Take me on your burning train*
 
 The second verse holds the key to the song: *Take me and shake me from this mortal cage*. *Through sex with you, I am young, I am immortal.*
 
-*Something shining in the light ‘neath your breast*
-*The thick smell of you on my chest*
+> *Something shining in the light ‘neath your breast*
+> *The thick smell of you on my chest*
 
-*On your bed of thorns, I brought you shining gifts*
-*Wiped the sweat from your brow and I touched your lips*
-*Sheets stained with sweat, outside the endless rain*
-*Darling I’m blessed in your blood and marked by Cain*
-*Take me on your burning train*
+> *On your bed of thorns, I brought you shining gifts*
+> *Wiped the sweat from your brow and I touched your lips*
+> *Sheets stained with sweat, outside the endless rain*
+> *Darling I’m blessed in your blood and marked by Cain*
+> *Take me on your burning train*
 
 Basking in the afterglow (I trust your ability to interpret Bruce’s lyrics through the climax), our narrator now bears the mark of Cain, a symbol of God’s protection against an early death, bestowed upon him through acts of passion.
 

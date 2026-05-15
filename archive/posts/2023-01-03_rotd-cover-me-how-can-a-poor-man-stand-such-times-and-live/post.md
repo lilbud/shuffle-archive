@@ -16,11 +16,11 @@ Reed’s lyrics are clever, biting, and still sadly resonant today. But his song
 
 Cooder kept only three of Reed’s verses, re-ordering them so that the song now started at the end…
 
-*Well, the doctor comes around with a face so bright.*
-*And he says in a little while you’ll be all right.*
-*All he gives is a humbug pill,*
-*A dose of dope and a great big bill.*
-*Tell me how can a poor man stand such times and live?*
+> *Well, the doctor comes around with a face so bright.*
+> *And he says in a little while you’ll be all right.*
+> *All he gives is a humbug pill,*
+> *A dose of dope and a great big bill.*
+> *Tell me how can a poor man stand such times and live?*
 
 …before circling back to the top, and then skipping to the fifth verse.
 
@@ -34,26 +34,26 @@ I qualify the term “cover” because while Bruce’s track is clearly based on
 
 If it was simply a matter of updating Reed’s lyrics for modern times, it might be easier for us to consider this a true cover. However, Bruce completely changed the meaning of the song. Reed’s version was a wide-ranging polemic; Bruce’s re-write is a sharp, finely honed criticism of the Bush Administration’s atrocious handling of the aftermath of Hurricane Katrina, starting with the president’s infamous flyover, belated on-the-ground visit, and tone-deaf remarks:
 
-*I believe the town [of New Orleans] where I used to come from, Houston, Texas, to enjoy myself — occasionally too much — (laughter) — will be that very same town, that it will be a better place to come to. That’s what I believe. I believe the great state of Louisiana will get its feet back and become a vital contributor to the country.*
+> *I believe the town [of New Orleans] where I used to come from, Houston, Texas, to enjoy myself — occasionally too much — (laughter) — will be that very same town, that it will be a better place to come to. That’s what I believe. I believe the great state of Louisiana will get its feet back and become a vital contributor to the country.*
 
 Bruce took that comment and accompanying photo-op, and he built a verse around it:
 
-*“Me and my old school pals had some mighty high times down here*
-*And what happened to you poor black folks, well it just ain’t fair”*
-*He took a look around, gave a little pep talk, said “I’m with you” then he took a little walk*
-*Tell me how can a poor man stand such times and live*
+> *“Me and my old school pals had some mighty high times down here*
+> *And what happened to you poor black folks, well it just ain’t fair”*
+> *He took a look around, gave a little pep talk, said “I’m with you” then he took a little walk*
+> *Tell me how can a poor man stand such times and live*
 
 Over the days that followed, residents of New Orleans found themselves isolated, stranded, and struggling to survive. Many were homeless and felt abandoned by their government. Bruce gave voice to them in his remaining two verses:
 
-*There’s bodies floatin’ on Canal and the levee’s gone to Hell*
-*Martha, get me my sixteen gauge and some dry shells*
-*Them who’s got got out of town and them who ain’t got left to drown*
-*Tell me how can a poor man stand such times and live*
+> *There’s bodies floatin’ on Canal and the levee’s gone to Hell*
+> *Martha, get me my sixteen gauge and some dry shells*
+> *Them who’s got got out of town and them who ain’t got left to drown*
+> *Tell me how can a poor man stand such times and live*
 
-*Got family scattered from Texas all the way to Baltimore*
-*Yeah and I ain’t got no home in this world no more*
-*Gonna be a judgment that’s a fact, a righteous train rollin’ down this track*
-*Tell me how can a poor man stand such times and live*
+> *Got family scattered from Texas all the way to Baltimore*
+> *Yeah and I ain’t got no home in this world no more*
+> *Gonna be a judgment that’s a fact, a righteous train rollin’ down this track*
+> *Tell me how can a poor man stand such times and live*
 
 Bruce reaches back to another Depression-era song in his last verse: Woody Guthrie’s “[I Ain’t Got No Home in This World Anymore](https://estreetshuffle.com/index.php/2019/02/10/cover-me-rotd-i-aint-got-no-home/),” which chronicles the plight of refugees from a different American natural disaster–the Dust Bowl of the 1930s.
 

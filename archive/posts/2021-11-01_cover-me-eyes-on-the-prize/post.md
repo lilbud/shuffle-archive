@@ -1,5 +1,5 @@
-*The only thing I did was wrong*
-*Was staying the wilderness too long.*
+> *The only thing I did was wrong*
+> *Was staying the wilderness too long.*
 
 “Keep Your Eyes on the Prize” may be the unofficial anthem of the Civil Rights movement, but it dates back at least a few decades earlier to an African-American spiritual called “Gospel Plow,” with known recordings going back to the 1930s.
 

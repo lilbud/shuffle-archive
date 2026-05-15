@@ -21,21 +21,21 @@ By the time Bruce was an adult, he’d long since forgotten most of the words. W
 
 As it turns out, the only part of the song he actually remembered was what any child could have told you was the most important part:
 
-*Pony boy, pony boy*
-*Won’t you be my pony boy*
-*Giddy-up, giddy-up, giddy-up, whoa!*
-*My pony boy*
+> *Pony boy, pony boy*
+> *Won’t you be my pony boy*
+> *Giddy-up, giddy-up, giddy-up, whoa!*
+> *My pony boy*
 
 Not only didn’t he remember the words to the verses, he didn’t even remember the melody. So without even being aware of its original incarnation as a girl-tames-boy romance, he recast it as a sweet, idyllic, father-and-son-explore-the-great-wide-world soother:
 
-*Ride with me, ride with me, won’t you take a ride with me*
-*Underneath the starry sky, my pony boy*
+> *Ride with me, ride with me, won’t you take a ride with me*
+> *Underneath the starry sky, my pony boy*
 
-*Over the hills and through the trees we’ll go riding you and me*
-*Giddy-up giddy-up giddy-away, my pony boy*
+> *Over the hills and through the trees we’ll go riding you and me*
+> *Giddy-up giddy-up giddy-away, my pony boy*
 
-*Down into the valley deep, ‘neath the eaves we will sleep*
-*Sky of dreams up above, my pony boy*
+> *Down into the valley deep, ‘neath the eaves we will sleep*
+> *Sky of dreams up above, my pony boy*
 
 In that Rolling Stone interview, Bruce said he sang “Pony Boy” to Evan before he was born. I don’t think that was an exaggeration. Evan was born in the mid-summer of 1990, and sometime during that season Bruce recorded “Pony Boy” in his home studio–just Bruce, his guitar, and his wife’s backing vocals.
 

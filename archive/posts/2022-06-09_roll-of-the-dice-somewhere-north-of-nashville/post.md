@@ -21,24 +21,24 @@ But when his career prospects didn’t pan out the way he’d hoped he found him
 
 He chose the latter, and Bruce’s lyrics and world-weary vocals are clearly tinged with regret.
 
-*Came into town with a pocketful of songs*
-*I made the rounds but I didn’t last long*
-*Now I’m out on this highway with a bone-cold chill*
-*Somewhere north of Nashville*
+> *Came into town with a pocketful of songs*
+> *I made the rounds but I didn’t last long*
+> *Now I’m out on this highway with a bone-cold chill*
+> *Somewhere north of Nashville*
 
-*I lie awake in the middle of the night*
-*Making a list of things that I didn’t do right*
-*With you at the top of a long page filled*
-*Here somewhere north of Nashville*
+> *I lie awake in the middle of the night*
+> *Making a list of things that I didn’t do right*
+> *With you at the top of a long page filled*
+> *Here somewhere north of Nashville*
 
-*For the deal I made the price was strong*
-*I traded you for this song*
+> *For the deal I made the price was strong*
+> *I traded you for this song*
 
-*We woke each morning with hearts filled*
-*A bluebird of love on the windowsill*
-*Now the heart’s unsteady and the night is still*
-*All I’ve got’s this melody and time to kill*
-*Here somewhere north of Nashville*
+> *We woke each morning with hearts filled*
+> *A bluebird of love on the windowsill*
+> *Now the heart’s unsteady and the night is still*
+> *All I’ve got’s this melody and time to kill*
+> *Here somewhere north of Nashville*
 
 Our narrator made his choice and lost. He lost his love, and while he may have gained the working life of a touring musician, it’s an empty one. In the still and quiet of the night, he has nothing but time to contemplate the price he paid for his working life, and the implication is that the price was too steep.
 

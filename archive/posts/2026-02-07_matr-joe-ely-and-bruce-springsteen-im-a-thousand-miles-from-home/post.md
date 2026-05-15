@@ -10,13 +10,13 @@ It’s the opening track that gets all the attention, and it’s hard to argue t
 
 It also features some *very* Springsteenian lyrics:
 
-*Travelin’ down this weary road*
-*A troubled mind is a heavy load*
+> *Travelin’ down this weary road*
+> *A troubled mind is a heavy load*
 
-*Hold my ticket in my hand*
-*Lookin’ for the Promised Land*
+> *Hold my ticket in my hand*
+> *Lookin’ for the Promised Land*
 
-*I’m a thousand miles from home*
+> *I’m a thousand miles from home*
 
 It’s pretty easy to see why Bruce would be attracted to a song like this. Bruce’s impassioned backing vocals are clear in the mix, and his voice blends well with Ely’s. (Bruce tends to take the high harmonies when backing other artists.)
 

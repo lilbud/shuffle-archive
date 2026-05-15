@@ -14,14 +14,14 @@ Intended or not, “Do You Hear What I Hear” became an immensely popular holid
 
 We all know the first verse of “Do You Hear What I Hear”:
 
-*Said the night wind to the little lamb*
-*Do you see what I see*
-*Way up in the sky little lamb*
-*Do you see what I see*
-*A star, a star*
-*Dancing in the night*
-*With a tail as big as a kite*
-*With a tail as big as a kite*
+> *Said the night wind to the little lamb*
+> *Do you see what I see*
+> *Way up in the sky little lamb*
+> *Do you see what I see*
+> *A star, a star*
+> *Dancing in the night*
+> *With a tail as big as a kite*
+> *With a tail as big as a kite*
 
 But not many realize that the “star” is actually a nuclear missile (with a trail “as big as a kite”).
 
@@ -45,7 +45,7 @@ But if Bruce’s set list choices were predictable, the encores weren’t: Bruce
 
 Still, even if the context of “Do You Hear What I Hear” is misunderstood, its message isn’t:
 
-*Pray for peace, people everywhere.*
+> *Pray for peace, people everywhere.*
 
 So regardless of whether you hear what I hear in “Do You Hear What I Hear,” I wish you a merry Christmas and a happy holiday season.
 

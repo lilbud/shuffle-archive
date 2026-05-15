@@ -6,7 +6,7 @@ I’m sure that’s all it was: a beautiful song that came to mind in the moment
 
 It probably had nothing to do with its inspiration, a country singer named David Allan Coe, who wore rhinestones and a mask on stage. Why? Because, his father taught him an important lesson:
 
-*I got the mysterious rhinestone thing from my father. He asked me, "You know the only way that The Lone Ranger can go into town? I said, "No, I don't know what you mean." He said that he has to take his mask off. I thought, what is my dad talking about and trying to tell me? He said, "Well son, you have to wear a mask and then when you don't want to be David Allan Coe you can take your mask off and go anywhere and not be like Elvis with people messin' with you all the time.*
+> *I got the mysterious rhinestone thing from my father. He asked me, "You know the only way that The Lone Ranger can go into town? I said, "No, I don't know what you mean." He said that he has to take his mask off. I thought, what is my dad talking about and trying to tell me? He said, "Well son, you have to wear a mask and then when you don't want to be David Allan Coe you can take your mask off and go anywhere and not be like Elvis with people messin' with you all the time.*
 
 ![](../../assets/2021/06/dac.jpg)
 

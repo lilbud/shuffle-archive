@@ -16,12 +16,12 @@ And at the emotional center of the album, there is “Tucson Train,” the album
 
 The first verse of “Tucson Train” reads like a typical Springsteen song, yet another variation of “I had a job/I had a girl.”
 
-*I got so down and out in ‘Frisco*
-*Tired of the pills and the rain*
-*I picked up, headed for the sunshine*
-*I left a good thing behind*
-*Seemed all of our love was in vain*
-*Now my baby’s coming in on the Tucson train!*
+> *I got so down and out in ‘Frisco*
+> *Tired of the pills and the rain*
+> *I picked up, headed for the sunshine*
+> *I left a good thing behind*
+> *Seemed all of our love was in vain*
+> *Now my baby’s coming in on the Tucson train!*
 
 Bruce implies that his narrator suffers from seasonal affective disorder, taking anti-depressants to deal with the dark, grey, dampness of northern California. Perhaps the medicine plays a role in the dissolution of his relationship, or perhaps it’s just a convenient scapegoat. Regardless, our hero takes control of his life and relocates to a healthier clime: sunny, arid Tucson, Arizona.
 
@@ -33,39 +33,39 @@ If you’ve never noticed the craftsmanship at work in just this one verse, go b
 
 In the second verse, Bruce sheds light on why our hero fled. When you don’t love yourself, it’s hard to love another, and when our narrator looked in the mirror, it seems he didn’t see the man he wanted to be. So he moved somewhere that offered a chance to start over in an environment that allowed for him to be his best self. But even among strangers and without judgment, it’s not easy to maintain focus.
 
-*I come here looking for a new life*
-*One I wouldn’t have to explain*
-*To that voice that keeps me awake at night*
-*When a little peace would make everything right*
-*If I could just turn off my brain*
-*Now my baby’s coming in on the Tucson train*
+> *I come here looking for a new life*
+> *One I wouldn’t have to explain*
+> *To that voice that keeps me awake at night*
+> *When a little peace would make everything right*
+> *If I could just turn off my brain*
+> *Now my baby’s coming in on the Tucson train*
 
 Now check out this bridge, because this is sophisticated stuff:
 
-*We fought hard over nothing*
-*We fought till nothing remained*
-*I’ve carried that nothing for a long time*
-*Now I carry my operator’s license*
-*And spend my days just running this crane*
-*My baby’s coming in on the Tucson train*
+> *We fought hard over nothing*
+> *We fought till nothing remained*
+> *I’ve carried that nothing for a long time*
+> *Now I carry my operator’s license*
+> *And spend my days just running this crane*
+> *My baby’s coming in on the Tucson train*
 
 Chances are the first couple of times you listened “Tucson Train,” your brain tripped over the bridge, because it’s another example of Bruce subverting our expectations to spectacular effect. The first two lines are ordinary enough, with our hero brooding over his failed relationship. But then comes that third line: “I’ve carried that nothing for a long time.” Not only is this a brilliant turn of phrase, turning the absence of something into a great metaphorical weight, but it’s also an orphan rhyme–it doesn’t go anywhere.
 
 We expect a rhyme pairing that never comes; instead the orphan rhyme serves as melodic ellipsis, creating the impression of the narrator trailing off in thought. Except that he doesn’t: he immediately returns instead to the verse melody in progress, creating a momentary whiplash moment that’s precisely what’s called for: the effect in toto is a narrator who can’t help but remember the past and yet absolutely refuses to live in it. He is here and now, taking great pride and satisfaction in his steady work and giddy with excitement to show his returning love how he’s changed.
 
-*Hard work’ll clear your mind and body*
-*The hot sun will burn out the pain*
-*If they’re looking for me, tell ’em buddy*
-*I’m waiting down at the station*
-*Just praying to the five-fifteen*
-*I’ll wait all God’s creation*
-*Just to show her a man can change*
-*Now my baby’s coming in on the Tucson train!*
+> *Hard work’ll clear your mind and body*
+> *The hot sun will burn out the pain*
+> *If they’re looking for me, tell ’em buddy*
+> *I’m waiting down at the station*
+> *Just praying to the five-fifteen*
+> *I’ll wait all God’s creation*
+> *Just to show her a man can change*
+> *Now my baby’s coming in on the Tucson train!*
 
-*On the Tucson train*
-*On the Tucson train*
-*Waiting on the five-fifteen*
-*Here she comes!*
+> *On the Tucson train*
+> *On the Tucson train*
+> *Waiting on the five-fifteen*
+> *Here she comes!*
 
 In that final verse, our hero justifiably celebrates his success. He made a bold and risky choice, moving away from his home and his love in order to take control of his life, but he’s succeeded. He’s changed, and while we don’t know exactly how committed his returning love interest is just yet, we know she’s at the very least intrigued to meet the man he’s become.
 

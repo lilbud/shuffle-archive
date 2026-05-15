@@ -20,51 +20,51 @@ On June 19th–just 46 days after the shootings–Steel Mill performed a set at 
 
 Even at his young age, Bruce’s talent for empathy is on strong display: Bruce’s lyrics compare the student protesters with the distant American soldiers. Both are patriots who lay down their lives in the course of their civic duty, unprotected by their faith.
 
-*Will the sun ever shine again?*
-*Will the moon ever smile again?*
-*Don’t you ask me now ’cause I don’t know how they can*
-*And hurry, we’ll be late for the show*
-*And where was Jesus in Ohio?*
+> *Will the sun ever shine again?*
+> *Will the moon ever smile again?*
+> *Don’t you ask me now ’cause I don’t know how they can*
+> *And hurry, we’ll be late for the show*
+> *And where was Jesus in Ohio?*
 
-*Will we run through the fields again*
-*Or will the barbed wires cut our legs again*
-*Don’t you ask me now ’cause I don’t know how we can*
-*And hurry, we’ll be late for the show*
-*Where was Jesus in Ohio?*
+> *Will we run through the fields again*
+> *Or will the barbed wires cut our legs again*
+> *Don’t you ask me now ’cause I don’t know how we can*
+> *And hurry, we’ll be late for the show*
+> *Where was Jesus in Ohio?*
 
-*As my life ends*
-*Clouds in the fields that I like*
-*And the sun disappears into the night*
-*I look and you were born*
-*And I hear you, I hear you calling to me in the distance*
-*And then you’ll see I’m resisting your essence*
-*And as the cry of war outs the rain*
-*I realize ??? why you see*
-*It’s your whole world comin’ down on me*
+> *As my life ends*
+> *Clouds in the fields that I like*
+> *And the sun disappears into the night*
+> *I look and you were born*
+> *And I hear you, I hear you calling to me in the distance*
+> *And then you’ll see I’m resisting your essence*
+> *And as the cry of war outs the rain*
+> *I realize ??? why you see*
+> *It’s your whole world comin’ down on me*
 
-*And the paper flag flies high over the soldiers grave*
-*Let’s see what mistake the young boy made*
-*Was his life really done?*
-*In another land a flower drips in the morning dew*
-*It’s been thousands of years since I’ve seen you*
-*You know that it’s so true*
+> *And the paper flag flies high over the soldiers grave*
+> *Let’s see what mistake the young boy made*
+> *Was his life really done?*
+> *In another land a flower drips in the morning dew*
+> *It’s been thousands of years since I’ve seen you*
+> *You know that it’s so true*
 
 “Where Was Jesus in Ohio” climaxes in the powerful bridge, where Bruce uses war imagery to illustrate just how unglamorous (at best) and dangerous (at worst) is the life of a protester.
 
-*And the gun they gave me is heavy, hon*
-*And the helmet hurts my head*
-*And the jokes they tell ain’t funny, honey*
-*Sometimes I feel I’m dead*
-*And the gas makes it hard to breathe, baby*
-*And the general never smiles*
-*And the beds aren’t big enough for me, baby*
-*And it’s raining all the time*
+> *And the gun they gave me is heavy, hon*
+> *And the helmet hurts my head*
+> *And the jokes they tell ain’t funny, honey*
+> *Sometimes I feel I’m dead*
+> *And the gas makes it hard to breathe, baby*
+> *And the general never smiles*
+> *And the beds aren’t big enough for me, baby*
+> *And it’s raining all the time*
 
-*Will the sun ever shine again*
-*Will the moon ever smile again*
-*Don’t ask me now ’cause I don’t know how they can*
-*And hurry, you’ll be late for the show*
-*And where was Jesus in Ohio?*
+> *Will the sun ever shine again*
+> *Will the moon ever smile again*
+> *Don’t ask me now ’cause I don’t know how they can*
+> *And hurry, you’ll be late for the show*
+> *And where was Jesus in Ohio?*
 
 Bruce ends his song on an unresolved note, unsure of whether the nation will ever heal from the massacre. Only six weeks out from the events, that’s not surprising–the shootings were still a very recent and very raw wound.
 

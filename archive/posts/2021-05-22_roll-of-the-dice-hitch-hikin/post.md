@@ -8,15 +8,15 @@ It isn’t quite accurate to say “Hitch Hikin'” is a song devoid of plot; th
 
 Our narrator is blissfully free of such tethers. He has no destination in mind, and if he’s even aware of where he is at the moment, he doesn’t care enough to let us in on it. Bruce even declines to offer us a musical introduction; we simply join our hitchhiker mid-journey as he takes his next breath.
 
-*Thumb stuck out as I go*
-*I’m just traveling up the road*
-*Maps don’t do much for me, friend*
-*I follow the weather and the wind*
+> *Thumb stuck out as I go*
+> *I’m just traveling up the road*
+> *Maps don’t do much for me, friend*
+> *I follow the weather and the wind*
 
-*I’m hitch hiking all day long*
-*Got what I can carry and my song*
-*I’m a rolling stone just rolling on*
-*Catch me now ’cause tomorrow I’ll be gone*
+> *I’m hitch hiking all day long*
+> *Got what I can carry and my song*
+> *I’m a rolling stone just rolling on*
+> *Catch me now ’cause tomorrow I’ll be gone*
 
 Bruce devotes the first two verses to establishing his character, an unusual amount of real estate for a songwriter known for his economy. That’s not laziness, though–Bruce is deliberately subverting our expectations as a way of saying *that’s all there is, there’s nothing more to learn about me.*
 
@@ -28,20 +28,20 @@ However, it’s notable that the musical hitchhikers hop in but never hop out. B
 
 Enough about our hitchers, though–let’s meet our drivers.
 
-*Family man gives me a ride*
-*Got his pregnant Sally at his side*
-*Yes indeed, sir, children are a gift*
-*Thank you kindly for the lift*
+> *Family man gives me a ride*
+> *Got his pregnant Sally at his side*
+> *Yes indeed, sir, children are a gift*
+> *Thank you kindly for the lift*
 
-*Trucker gears his engine down*
-*Says, “Climb on up, son, I’m highway bound”*
-*Dashboard picture of a pretty girl*
-*I’m riding high on top of the world*
+> *Trucker gears his engine down*
+> *Says, “Climb on up, son, I’m highway bound”*
+> *Dashboard picture of a pretty girl*
+> *I’m riding high on top of the world*
 
-*Gearhead in a souped-up ’72*
-*Wants to show a kid just what this thing’ll do*
-*Telephone poles and trees go whizzing by*
-*Thank you pal, she sure can fly*
+> *Gearhead in a souped-up ’72*
+> *Wants to show a kid just what this thing’ll do*
+> *Telephone poles and trees go whizzing by*
+> *Thank you pal, she sure can fly*
 
 These verses may seem like insubstantial vignettes, but each is carefully constructed to highlight something that our drifter lacks and that most people value: family, a job, possessions.
 

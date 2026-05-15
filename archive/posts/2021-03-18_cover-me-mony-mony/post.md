@@ -22,7 +22,7 @@ But if you came of age in North America during the 1980s, you know *exactly* wha
 
 Somehow, somewhen, somebody first uttered these immortal words after every verse line:
 
-*Hey! Hey what? Get laid, get fucked!”*
+> *Hey! Hey what? Get laid, get fucked!”*
 
 Or something like that. That’s what we shouted in Philadelphia, but there are several regional variations of the first part of the chant across the U.S. and Canada. The second part is always the same, though.
 

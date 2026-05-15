@@ -8,20 +8,20 @@ Bruce’s lyrics appear to be complete, along with chord notations, on a survivi
 
 As for what’s the song about, you tell me. Please.
 
-*The fire engines are returning home*
-*There are bunnies in the rain*
-*Cars are tuned to The Rolling Stones*
-*and are deaf to the whistling train*
+> *The fire engines are returning home*
+> *There are bunnies in the rain*
+> *Cars are tuned to The Rolling Stones*
+> *and are deaf to the whistling train*
 
-*The fire engines are returning home*
-*There are bunnies in the rain*
-*Teddy bears lie left alone*
-*As sleepytime children sing the refrain*
+> *The fire engines are returning home*
+> *There are bunnies in the rain*
+> *Teddy bears lie left alone*
+> *As sleepytime children sing the refrain*
 
-*Something for nothing, nothing for something*
-*Isn’t it all the same?*
-*The bunnies are returning home*
-*Like fire engines in the rain*
+> *Something for nothing, nothing for something*
+> *Isn’t it all the same?*
+> *The bunnies are returning home*
+> *Like fire engines in the rain*
 
 Fire engines returning home in the rain implies that they aren’t needed–the rain is putting the fire out. That notion would be reinforced by the abandoned teddy bears in the second verse, no longer required by their lullabied owners.
 

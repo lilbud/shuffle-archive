@@ -10,31 +10,31 @@ Yes, “Bring on the Night” is a kissing cousin to “[My Love Will Not Let Yo
 
 But while the protagonist of “My Love” is fiercely defiant and determined to make that connection and conquer his shyness, the narrator of “Bring on the Night” accepts and relishes his inability to connect.
 
-*I lie in bed but baby I can’t sleep no matter how hard I try*  
-*There’s something bad, baby, wrong with me whenever I close my eyes*  
-*The dreams of Mary keep me awake with every little curve in place*  
-*When I walk home in the daybreak, I pray come back home, baby, won’t you give me*  
-*Darling bring on the night* 
+> *I lie in bed but baby I can’t sleep no matter how hard I try*
+> *There’s something bad, baby, wrong with me whenever I close my eyes*
+> *The dreams of Mary keep me awake with every little curve in place*
+> *When I walk home in the daybreak, I pray come back home, baby, won’t you give me*
+> *Darling bring on the night*
 
 ***I walk the street, I’m looking for romance***  
 ***I end up stumbling in some stupid half-trance***  
-*As I watch the lovers mix with circumstance*  
-*We watch the disco dancers dance*
+> *As I watch the lovers mix with circumstance*
+> *We watch the disco dancers dance*
 
 ***I look for connection in some new eyes***  
 ***But for protection they’re tranquilized***  
-*Forbidding close inspection of who’s telling who*  
-*Forbidding close inspection of who’s telling who lies*
+> *Forbidding close inspection of who’s telling who*
+> *Forbidding close inspection of who’s telling who lies*
 
 Those **bold** lines are pretty darn close to “My Love Will Not Let You Down,” but the latter takes a significant turn at the end of those lines:
 
-*At night I walk the streets looking for romance*  
-*But I always end up stumbling in a half-trance*  
-*I search for connection in some new eyes*  
-*that hardly protect you from too many dreams passed by*  
-*I see you standing across the room, watching me without a sound*  
-*I'm gonna push my way through that crowd*  
-*I'm gonna tear all your walls down*
+> *At night I walk the streets looking for romance*
+> *But I always end up stumbling in a half-trance*
+> *I search for connection in some new eyes*
+> *that hardly protect you from too many dreams passed by*
+> *I see you standing across the room, watching me without a sound*
+> *I'm gonna push my way through that crowd*
+> *I'm gonna tear all your walls down*
 
 See what I mean? “Bring on the Night” accepts the walls we build to protect ourselves, the walls that “My Love Will Not Let You Down” promises to break through.
 

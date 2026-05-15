@@ -4,8 +4,8 @@ I gave thought to a last-minute re-write to make it more timely and relevant, bu
 
 Tragically, “Long Walk Home” is more relevant right now than it’s ever been before.
 
-*Here everybody has a neighbor, everybody has a friend*  
-*Everybody has a reason to begin again*
+> *Here everybody has a neighbor, everybody has a friend*
+> *Everybody has a reason to begin again*
 
 We’re going to need to keep Bruce’s words in our hearts in the days ahead.
 
@@ -49,69 +49,69 @@ In any version, though, “Long Walk Home” isn’t really about a journey–it
 
 As with many of Bruce’s finest songs, he disguises an anthropomorphizes his civic commentary–at least at first. As the song opens, our narrator is reeling from the end of his marriage engagement:
 
-*Last night I stood at your doorstep trying to figure out what went wrong*  
-*You just slipped something into my palm, then you were gone*  
-*I could smell the same deep green of summer, above me the same night sky was glowing*  
-*In the distance I could see the town where I was born*
+> *Last night I stood at your doorstep trying to figure out what went wrong*
+> *You just slipped something into my palm, then you were gone*
+> *I could smell the same deep green of summer, above me the same night sky was glowing*
+> *In the distance I could see the town where I was born*
 
 His partner has left him, returning her engagement ring and disappearing into the night. Our narrator is stunned (he can’t even bring himself to look down to see what’s in his hand) and unprepared–everything *looks* the same as it’s always been–what could have possibly driven such a wedge between the couple?
 
 Emotionally at sea, he wanders off into the night to think and process.
 
-*It’s gonna be a long walk home*  
-*Hey pretty darling, don’t wait up for me, gonna be a long walk home*  
-*A long walk home*
+> *It’s gonna be a long walk home*
+> *Hey pretty darling, don’t wait up for me, gonna be a long walk home*
+> *A long walk home*
 
 That romantic split is a metaphor–the broken engagement represents the broken social contract between America and its citizens. We couldn’t see it happening close up in the moment, but little by little we strayed from our promise of fidelity to our principles. We’re not sure what went wrong and when, but we know we played our part. Now, that spirit that binds and defines our community is gone, and we’re left with its empty husk.
 
 Our narrator wanders through town, passing all the familiar shops and landmarks. Bruce is careful to provide the names of the proprietors so that we understand just how connected our protagonist has always been to his community. And yet tonight, the people he’s known all of his life are suddenly distant and unfamiliar.
 
-*In town I passed Sal’s grocery, Joe’s barbershop on South Street*  
-*I looked in their faces, they were all rank strangers to me*
+> *In town I passed Sal’s grocery, Joe’s barbershop on South Street*
+> *I looked in their faces, they were all rank strangers to me*
 
 This verse (if not the song itself) was inspired by The Stanley Brothers song, “Rank Stranger,” and Bruce’s lyrics are a direct homage.
 
-*I wandered again to my home in the mountains*  
-*Where in youth’s early dawn I was happy and free*  
-*I looked for my friends but I never could find them*  
-*I found they were all rank strangers to me*
+> *I wandered again to my home in the mountains*
+> *Where in youth’s early dawn I was happy and free*
+> *I looked for my friends but I never could find them*
+> *I found they were all rank strangers to me*
 
-*Everybody I met seemed to be a rank stranger*  
-*No mother or dad not a friend could I see*  
-*They knew not my name and I knew not their faces*  
-*I found they were all rank strangers to me, rank strangers to me*
+> *Everybody I met seemed to be a rank stranger*
+> *No mother or dad not a friend could I see*
+> *They knew not my name and I knew not their faces*
+> *I found they were all rank strangers to me, rank strangers to me*
 
 [Watch on Youtube: Watch Video](https://www.youtube.com/watch?v=I16YOPmmZbs)
 
 As our narrator continues his trek, he notices that even the places that formed the heart of the town’s civic life are abandoned now. We get no indication of exactly when and why that happened, and we sense that he doesn’t either.
 
-*The Veteran’s Hall high upon the hill stood silent and alone*  
-*The diner was shuttered and boarded with a sign that just said “gone”*
+> *The Veteran’s Hall high upon the hill stood silent and alone*
+> *The diner was shuttered and boarded with a sign that just said “gone”*
 
 At this point, we’ve reach the emotional nadir of the song. We are alone and estranged from our community. We don’t know why, and we don’t know why we haven’t noticed it until now.
 
 But now comes the song’s heart:
 
-*Here everybody has a neighbor, everybody has a friend*  
-*Everybody has a reason to begin again*
+> *Here everybody has a neighbor, everybody has a friend*
+> *Everybody has a reason to begin again*
 
 With these two simple lines, Bruce reminds us that we *always* have it within our power to start again. And we always have reasons to do so: our family, our friends, our neighbors, our fellow citizens.
 
 The point is so important that Bruce drops all pretense at parable–he’s not about to risk us missing the message:
 
-*My father said “Son, we’re lucky in this town, it’s a beautiful place to be born*  
-*It just wraps its arms around you, nobody crowds you and nobody goes it alone*  
-*You know that flag flying over the courthouse means certain things are set in stone*  
-*Who we are, what we’ll do and what we won’t”*
+> *My father said “Son, we’re lucky in this town, it’s a beautiful place to be born*
+> *It just wraps its arms around you, nobody crowds you and nobody goes it alone*
+> *You know that flag flying over the courthouse means certain things are set in stone*
+> *Who we are, what we’ll do and what we won’t”*
 
 Has there ever been a better description of America in song? I think not. That last couplet ranks among the strongest lyrics that Bruce has ever written. In the years since he wrote it, they’ve proven to be not just a powerful reminder of our promise to each other but also a necessary one, in ways that Bruce probably could never imagine.
 
 In the official version, these are the last lyrics we hear (other than the song’s coda reminding us to steel ourselves, because it’s going to take a lot more than just resolve to find ourselves again). But in the original version, there’s one more verse:
 
-*Now the water’s rising ’round the corner, there’s a fire burning out of control*  
-*There’s a hurricane on Main Street and I’ve got murder in my soul*  
-*Yeah well when the party’s over, when the cheering is all gone*  
-*Will you know me, will I know you, will I know you*
+> *Now the water’s rising ’round the corner, there’s a fire burning out of control*
+> *There’s a hurricane on Main Street and I’ve got murder in my soul*
+> *Yeah well when the party’s over, when the cheering is all gone*
+> *Will you know me, will I know you, will I know you*
 
 We can speculate about why Bruce dropped it from the final version. Maybe it’s too specific (the rising water is a reference to Hurricane Katrina, still very fresh in the collective consciousness at the time), or maybe it’s too angry.
 

@@ -20,40 +20,40 @@ In his only known live performance–captured by Barry Rebo on video below–Bru
 
 Henry may have been new in town, but there’s a bit more going on in the song than that.
 
-*They broke your toys this morning, Henry, rode your board right into dust*  
-*Surrounded you with strangers who you could not trust*  
-*And then they had the gall*  
-*To write your name up on the girl’s room wall*  
-*And send you out to Maria who spoke of babies and all*  
-*And wanted to shoot your joy*  
-*It’s a hard world when you’re the new kid in town, ain’t it, Henry Boy*
+> *They broke your toys this morning, Henry, rode your board right into dust*
+> *Surrounded you with strangers who you could not trust*
+> *And then they had the gall*
+> *To write your name up on the girl’s room wall*
+> *And send you out to Maria who spoke of babies and all*
+> *And wanted to shoot your joy*
+> *It’s a hard world when you’re the new kid in town, ain’t it, Henry Boy*
 
 Bruce implies that Henry is a young adult, high school age, and perhaps a bit too much of a pretty boy for his own good. He’s bullied by the boys and popular with the girls–popular enough to earn a bit of a reputation and an ensuing lecture.
 
 With nowhere to turn to, Henry is turned out to the streets, where he’s unable to find his tribe even among the huddles of hustlers and sex worker sects.
 
-*Well the north side is for diamond-studded women subtly selling their wares*  
-*And the west side is for debutantes and would-be millionaires*  
-*The east side is for lost boys who know their moves too well*  
-*The south side is for gamblers, Henry, the train stops once for hell*  
-*It’s a hard world when they’re forcing you to live your life out on Broadway*  
-*But Henry I’m sure you’re gonna like it well*
+> *Well the north side is for diamond-studded women subtly selling their wares*
+> *And the west side is for debutantes and would-be millionaires*
+> *The east side is for lost boys who know their moves too well*
+> *The south side is for gamblers, Henry, the train stops once for hell*
+> *It’s a hard world when they’re forcing you to live your life out on Broadway*
+> *But Henry I’m sure you’re gonna like it well*
 
 Henry’s alone, but he’s got at least one friend: the omniscient narrator cum drug dealer who hooks him up with needles and syringes (“doctor’s appendages”) and some “magic” to carry him through.
 
-*The constellation she points to gate eleven, that’s where you got your connections*  
-*Let me take a look inside my magic book, I don’t think you’re beyond my inventions*  
-*These doctor’s appendages I’m giving you for wings, I’m sure they will meet the occasion*  
-*I’m gonna mix you some magic, you’ll be spitting sparks and ready for the invasion*
+> *The constellation she points to gate eleven, that’s where you got your connections*
+> *Let me take a look inside my magic book, I don’t think you’re beyond my inventions*
+> *These doctor’s appendages I’m giving you for wings, I’m sure they will meet the occasion*
+> *I’m gonna mix you some magic, you’ll be spitting sparks and ready for the invasion*
 
 Even high, Henry’s overwhelmed, paranoid, and constantly in danger. He retreats to the safety of his street corner waiting for the coast to clear.
 
-*The Milky Way’s a trip for dippers, they saw you coming a mile away*  
-*In the amusement park you’ll get clipped by rippers hiding behind candy canes*  
-*In the alleyway you’ll get ripped by strippers all who know your name*  
-*In the stalls sit the soldier-boy kissers on leave for just a day*  
-*And Henry can’t take it, he’s gonna be a submariner riding underground for the Pope*  
-*Gonna stand on the corner of Broadway, and scream “Up ‘scope”*
+> *The Milky Way’s a trip for dippers, they saw you coming a mile away*
+> *In the amusement park you’ll get clipped by rippers hiding behind candy canes*
+> *In the alleyway you’ll get ripped by strippers all who know your name*
+> *In the stalls sit the soldier-boy kissers on leave for just a day*
+> *And Henry can’t take it, he’s gonna be a submariner riding underground for the Pope*
+> *Gonna stand on the corner of Broadway, and scream “Up ‘scope”*
 
 Like much of Bruce’s contemporaneous material, “Henry Boy” is more of a character sketch than a story, and a pretty thin sketch at that. We learn next to nothing about our protagonist, yet Bruce is still able to elicit some sympathy from us if we’re able to penetrate the dense lyrics and feel the pathos in Bruce’s vocals.
 

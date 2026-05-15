@@ -18,9 +18,9 @@ While he was gone, Roy Bittan vamped with some New Orleans-style honky-tonk.
 
 When he returned to the stage (with an audible sigh of relief), a much happier Springsteen improvised some lyrics on the spot:
 
-*I’m gonna rock all night long, I’m gonna rock*
-*I’m gonna rock all night long, I’m gonna rock*
-*I’m gonna rock all night long, I’m gonna rock, baby ’til it comes the dawn*
+> *I’m gonna rock all night long, I’m gonna rock*
+> *I’m gonna rock all night long, I’m gonna rock*
+> *I’m gonna rock all night long, I’m gonna rock, baby ’til it comes the dawn*
 
 Not the deepest lyrics in his songbook, but they did the trick and kept the crowd’s energy level up until he was ready to resume the set with “Leap of Faith.”
 

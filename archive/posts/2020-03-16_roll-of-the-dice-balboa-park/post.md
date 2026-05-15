@@ -44,40 +44,40 @@ Nevertheless, in 1995, Bruce adapted the article into a song, recorded it, and r
 
 The song reads like a musical adaptation of the article. Bruce makes no attempt at a chorus and puts very little effort into a melody. The story’s the thing, and Bruce wants nothing to detract from it. The story of Spider’s Balboa Park is a million miles away from Spanish Johnny’s [57th Street](https://estreetshuffle.com/index.php/2018/12/14/roll-of-the-dice-incident-on-57th-street/).
 
-*He lay his blanket underneath the freeway as the evening sky grew dark*
-*Took a sniff of toncho from his coke can, headed through Balboa Park*
-*Where the men in their Mercedes come nightly to employ*
-*In the cool San Diego evening the services of the border boys*
+> *He lay his blanket underneath the freeway as the evening sky grew dark*
+> *Took a sniff of toncho from his coke can, headed through Balboa Park*
+> *Where the men in their Mercedes come nightly to employ*
+> *In the cool San Diego evening the services of the border boys*
 
 The first verse is lifted almost directly from the opening of Rotella’s article. The BMWs have been changed to Mercedes, and while Bruce uses the street name (toncho) for the Octane Booster that Carlitos sniffs to ward off the cold and hunger, he retains the Coke can imagery.
 
 The second verse focuses on Martin, another boy profiled in the article:
 
-*He grew up near the Zona Norte with the hustlers and smugglers he hung out with*
-*He swallowed their balloons of cocaine, brought ’em across the Twelfth Street strip*
-*Sleeping in a shelter if the night got too cold*
-*Running from the migra of the border patrol*
+> *He grew up near the Zona Norte with the hustlers and smugglers he hung out with*
+> *He swallowed their balloons of cocaine, brought ’em across the Twelfth Street strip*
+> *Sleeping in a shelter if the night got too cold*
+> *Running from the migra of the border patrol*
 
 In Rotella’s chronicle, the boys–as young as age nine–sleep in a row of blankets underneath a concrete bridge by a freeway interchange, taking colorful nicknames like “Batman, “Squirrel,” Little Dracula,” and “Karate Kid.”
 
 In Bruce’s version:
 
-*Past the salvage yard ‘cross the train tracks and in through the storm drain*
-*They stretched their blankets out ‘neath the freeway and each one took a name*
-*There was X-man and Cochise, Little Spider his sneakers covered in river mud*
-*They come north to California, end up with the poison in their blood*
+> *Past the salvage yard ‘cross the train tracks and in through the storm drain*
+> *They stretched their blankets out ‘neath the freeway and each one took a name*
+> *There was X-man and Cochise, Little Spider his sneakers covered in river mud*
+> *They come north to California, end up with the poison in their blood*
 
 The boys know the danger they live in (the poison in their blood is the HIV virus), but they also know they need the sex trade money to survive. In the article, the boys eat at Burger King and show off their high-top sneakers and Levis 501 jeans.
 
-*He did what he had to for the money, sometimes he sent home what he could spare*
-*The rest went to high-top sneakers and toncho and jeans like the gavachos wear*
+> *He did what he had to for the money, sometimes he sent home what he could spare*
+> *The rest went to high-top sneakers and toncho and jeans like the gavachos wear*
 
 The vignette that closes the song, though, is Bruce’s–the boys of “Balboa Park” are so invisible, that one of them gets hit hard by a passing car. The driver speeds away, and Spider retreats to his refuge, hiding in nowhere as drivers speed past, heading to anywhere else.
 
-*One night the border patrol swept Twelfth Street, a big car come fast down the boulevard*
-*Spider stood caught in its headlights, got hit and went down hard*
-*Car sped away, Spider held his stomach, limped to his blanket ‘neath the underpass*
-*Lie there tasting his own blood on his tongue, closed his eyes and listened to the cars rushing by so fast*
+> *One night the border patrol swept Twelfth Street, a big car come fast down the boulevard*
+> *Spider stood caught in its headlights, got hit and went down hard*
+> *Car sped away, Spider held his stomach, limped to his blanket ‘neath the underpass*
+> *Lie there tasting his own blood on his tongue, closed his eyes and listened to the cars rushing by so fast*
 
 Bruce performed “Balboa Park” nightly throughout the Ghost of Tom Joad Tour, but never since. The tale is too intimate, too quiet to translate to any setting other than a small theater. And when he played it each night, Bruce always took care to explain the emotional inspiration for the song–the grace of childhood that a parent wants to protect for as long as possible.
 

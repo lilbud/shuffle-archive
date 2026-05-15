@@ -18,11 +18,11 @@ The narrator of “Valerie” followed her lover on a great adventure, only to f
 
 The second verse of “Valerie” may be the most artful lyric Patti has ever written:
 
-*Sixteen days since I left Corona*  
-*And I traveled to this carnival town near Alberndeel*  
-*And I rode the coaster there on the fairground*  
-*Twisted backbone of a beast that never heels*  
-*And I left some skin on fortune’s wheel*
+> *Sixteen days since I left Corona*
+> *And I traveled to this carnival town near Alberndeel*
+> *And I rode the coaster there on the fairground*
+> *Twisted backbone of a beast that never heels*
+> *And I left some skin on fortune’s wheel*
 
 I mean, come on: whose jaw *wouldn’t* drop when hearing that verse for the first time?
 

@@ -49,8 +49,6 @@ with load_db() as conn, conn.cursor() as cur:
 
     for file in folder.glob("**/*.md"):
         content = file.read_text(encoding="utf-8")
+        content = re.sub(r"^(\*[^\*]*\*)\s*?$", r"> \1", content, flags=re.MULTILINE)
 
-        if re.search(r"^(\*[^\*]*\*)\s*?$", content, flags=re.MULTILINE):
-            print(re.search(r"^(\*[^\*]*\*)\s*?$", content, flags=re.MULTILINE))
-
-            
+        file.write_text(content, encoding="utf-8")

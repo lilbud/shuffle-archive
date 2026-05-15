@@ -12,12 +12,12 @@ Bruce wrote “Fade to Black” during his *Nebraska* songwriting period, and ha
 
 “Fade to Black” begins where “Be True” ends: in a movie theater.
 
-*Sunday matinee in a one-dog town*
-*You’re two seats away, I move two seats down*
-*Wipe the tears from your eyes, the first kiss I stole*
-*I walk you home, the credits roll*
+> *Sunday matinee in a one-dog town*
+> *You’re two seats away, I move two seats down*
+> *Wipe the tears from your eyes, the first kiss I stole*
+> *I walk you home, the credits roll*
 
-*Fade to black*
+> *Fade to black*
 
 “Be True” ends on a sad, lonely note, but the narrator’s unwavering fidelity against an irresistibly bright backing track tells us better days are coming.
 
@@ -25,38 +25,38 @@ In a nice bit of symmetry, “Fade to Black” begins with a meet-cute that lead
 
 Or even a happy middle.
 
-*I hear my voice on the telephone*
-*But I’m just running the same old business*
-*I feel like I’m off somewhere so alone*
-*Just watching us both running the distance*
-*Watching us both slowly pull back*
+> *I hear my voice on the telephone*
+> *But I’m just running the same old business*
+> *I feel like I’m off somewhere so alone*
+> *Just watching us both running the distance*
+> *Watching us both slowly pull back*
 
-*Fade to black*
+> *Fade to black*
 
 It’s not clear how much time has passed between the first two verses, but the emotional distance between our two lovers is now much greater than two seats. Bruce’s narrator feels removed, absent from his own relationship (a theme he had recently explored in “Stolen Car”), and the camera pulls back so that we might more viscerally feel the growing distance.
 
 It all comes to a head in the third verse and the half-verse that follows:
 
-*I come home, clothes all over the place*
-*You’re crying in the corner, makeup running down your face*
-*Your case is packed, the fight starts, I end up cursing*
-*Baby is this the scene which we’ve been rehearsing*
-*Is this the one or have I lost track*
-*Waiting for us to fade to black*
+> *I come home, clothes all over the place*
+> *You’re crying in the corner, makeup running down your face*
+> *Your case is packed, the fight starts, I end up cursing*
+> *Baby is this the scene which we’ve been rehearsing*
+> *Is this the one or have I lost track*
+> *Waiting for us to fade to black*
 
-*A face lit with shame, eyes filled with hurt*
-*I scream out your name, you rip my shirt*
+> *A face lit with shame, eyes filled with hurt*
+> *I scream out your name, you rip my shirt*
 
 This is the break-up moment… or is it? It’s obviously not their first go-round; they’ve been here so many times that our characters are like weary actors after dozens of takes before a demanding director, wondering whether this is final cut or just another dress rehearsal. (*Baby is this the scene which we’ve been rehearsing* is the most devastating line of the song.)
 
 If that wasn’t the break-up moment, it came soon after.
 
-*In a small bungalow, a late afternoon*
-*The sunlight falls like a bright veil*
-*A camera pans an empty room*
-*The picture dissolves and slowly pulls back*
+> *In a small bungalow, a late afternoon*
+> *The sunlight falls like a bright veil*
+> *A camera pans an empty room*
+> *The picture dissolves and slowly pulls back*
 
-*Fade to black*
+> *Fade to black*
 
 The final verse takes place on an empty stage–an empty bungalow, once a shared home but now abandoned and lifeless after the dissolution of a marriage or love affair. Bruce drapes the light across the room like a veil (a bridal metaphor), flooding the room in afternoon sun for the sole purpose of… fading to black.
 

@@ -10,18 +10,18 @@ And yet, “I’m Gonna Treat You Right” is almost certainly a Springsteen ori
 
 We can understand enough of the lyrics to understand why it was left off of *Darkness on the Edge of Town*–it certainly wouldn’t have fit the serious tone of that album.
 
-*Hey mister, you see that girl walking down the street*
-*That little girl, she used to turn’ em on*
-*Wild kisses and a heart that’s oh-so-sweet*
-*??? in the middle of the night*
+> *Hey mister, you see that girl walking down the street*
+> *That little girl, she used to turn’ em on*
+> *Wild kisses and a heart that’s oh-so-sweet*
+> *??? in the middle of the night*
 
-*And now, wild kisses never seem to settle down*
-*Afraid to get my feet back on the ground*
-*Well baby ???*
-*I’m gonna meet her tonight*
+> *And now, wild kisses never seem to settle down*
+> *Afraid to get my feet back on the ground*
+> *Well baby ???*
+> *I’m gonna meet her tonight*
 
-*And now my wild world’s tumblin’ and dancin’*
-*I’m looking for true romancin’*
+> *And now my wild world’s tumblin’ and dancin’*
+> *I’m looking for true romancin’*
 
 But it would have been perfectly suited for *The River,* and a brilliant live addition to the Darkness Tour. Bruce is clearly getting his Buddy Holly on in that rehearsal tape, and with a little polish, “I’m Gonna Treat You Right” would have made a great pairing or alternate for Bruce’s cover of Holly’s “[Rave On](https://estreetshuffle.com/index.php/2019/03/25/matr-bruce-springsteen-and-gary-busey-rave-on/)” that frequently graced Bruce’s 1978 set lists.
 

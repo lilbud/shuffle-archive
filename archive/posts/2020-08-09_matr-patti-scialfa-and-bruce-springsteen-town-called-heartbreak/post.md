@@ -8,20 +8,20 @@ Patti Scialfa recorded “Town Called Heartbreak” for her 2007 album, *Play It
 
 “Town Called Heartbreak” isn’t a title you’d expect for a love song, and frankly its lyrics don’t scream romance either.
 
-*They say love*
-*A love has its very own light*
-*That can shine through the darkest night*
-*That we’ve heard of*
-*And that light*
-*That you may want so much*
-*Well maybe you can never touch*
-*Though you may try*
-*Now at night I dream*
-*I’m all alone*
-*Big sledgehammer and a cold dark stone*
-*Man swing the hammer*
-*World begin to shake*
-*I’m just living in a town called Heartbreak*
+> *They say love*
+> *A love has its very own light*
+> *That can shine through the darkest night*
+> *That we’ve heard of*
+> *And that light*
+> *That you may want so much*
+> *Well maybe you can never touch*
+> *Though you may try*
+> *Now at night I dream*
+> *I’m all alone*
+> *Big sledgehammer and a cold dark stone*
+> *Man swing the hammer*
+> *World begin to shake*
+> *I’m just living in a town called Heartbreak*
 
 And yet in a way, “Town Called Heartbreak” very much is a love song. It’s about the reality of love, rather than the cliche of it. Maybe we can’t be complete without our partners, but they’re not all it takes to make us complete.
 

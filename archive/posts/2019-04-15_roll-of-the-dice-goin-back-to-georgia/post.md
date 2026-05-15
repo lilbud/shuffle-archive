@@ -14,24 +14,24 @@ Both in style and in content, Bruce was paying tribute. It should be noted, howe
 
 But if we’re honest about it, the places Bruce name-checks in “Goin’ Back to Georgia” are all interchangeable. There’s not a lot of local color in the song, but there doesn’t really need to be. For one thing, the song is more about going home than it is about a specific geographic location. Bruce hadn’t traveled very widely at the time he wrote this song, but he already understood the emotional gravitational pull that one’s home town exerts on us.
 
-*Well I’m going back to Georgia*
-*To spend my last few years*
-*Away from the sadness and the tears*
-*Well I been out to San Francisco*
-*When I traveled on down to L.A.*
-*Still only one place that I can stay*
+> *Well I’m going back to Georgia*
+> *To spend my last few years*
+> *Away from the sadness and the tears*
+> *Well I been out to San Francisco*
+> *When I traveled on down to L.A.*
+> *Still only one place that I can stay*
 
-*With my last few dollars*
-*And I’m gonna bring my last few dimes*
-*Going back to Georgia*
-*And I’m going back one more time*
+> *With my last few dollars*
+> *And I’m gonna bring my last few dimes*
+> *Going back to Georgia*
+> *And I’m going back one more time*
 
-*When I went up to New York City*
-*When I been out the Chicago Loop*
-*Still ain’t but one place that I’ve been true*
-*When I sailed down the Mississippi*
-*When I gambled in New Orleans*
-*Still no finer site I ever seen, yeah*
+> *When I went up to New York City*
+> *When I been out the Chicago Loop*
+> *Still ain’t but one place that I’ve been true*
+> *When I sailed down the Mississippi*
+> *When I gambled in New Orleans*
+> *Still no finer site I ever seen, yeah*
 
 There’s another reason we needn’t concern ourselves too much with the lyrics: “Goin’ Back to Georgia” is all about the jam. Bruce arranged it to showcase the musicians starting with himself, of course, but everyone gets the spotlight: Danny Federici on the organ, Vini Lopez on the drums, Vinnie Roslin on bass.
 

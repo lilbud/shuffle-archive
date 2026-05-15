@@ -1,4 +1,4 @@
-*It was the most powerful song of the 20th century. It started out in church pews and picket lines, inspired one of the greatest freedom movements in U.S. history, and went on to topple governments and bring about reform all over the world. Word for word, the short, simple lyrics of “We Shall Overcome” might be some of the most influential words in the English language.*
+> *It was the most powerful song of the 20th century. It started out in church pews and picket lines, inspired one of the greatest freedom movements in U.S. history, and went on to topple governments and bring about reform all over the world. Word for word, the short, simple lyrics of “We Shall Overcome” might be some of the most influential words in the English language.*
 
 Those words are from the U.S. Library of Congress, describing the global societal impact of “We Shall Overcome.”
 

@@ -10,29 +10,29 @@ But that’s okay, because Bruce is focusing more on the music here–“Magic K
 
 As for the lyrics, there are several lines almost impossible to decipher, but the rest are clear enough for us to grok the song without the mystery lines.
 
-*Well I might not be no natural-born lover*  
-*Or a brown eyed handsome man*  
-*Well ???*  
-*and she said that I want you*  
-*???*  
-*She got a magic kind of loving*  
-*It sure don’t matter for me*
+> *Well I might not be no natural-born lover*
+> *Or a brown eyed handsome man*
+> *Well ???*
+> *and she said that I want you*
+> *???*
+> *She got a magic kind of loving*
+> *It sure don’t matter for me*
 
-*Well I might not be no king bee*  
-*And my baby might not be no queen*  
-*Well when she comes to the door*  
-*She says “Daddy I’m yours”*  
-*???*   
-*She got that magic kind of loving*  
-*It sure don’t matter for me*
+> *Well I might not be no king bee*
+> *And my baby might not be no queen*
+> *Well when she comes to the door*
+> *She says “Daddy I’m yours”*
+> *???*
+> *She got that magic kind of loving*
+> *It sure don’t matter for me*
 
-*Well I might not be no natural born lover*  
-*???*  
-*But whenever she’s blue*  
-*She said Daddy, I want you*  
-*???*  
-*She got that magic kind of loving*  
-*And it sure does matter for me*
+> *Well I might not be no natural born lover*
+> *???*
+> *But whenever she’s blue*
+> *She said Daddy, I want you*
+> *???*
+> *She got that magic kind of loving*
+> *And it sure does matter for me*
 
 In other words, the lovers in “Magic Kind of Loving” may not be beauties, but they’re all right–and that’s alright with them.
 

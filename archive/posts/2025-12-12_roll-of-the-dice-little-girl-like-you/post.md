@@ -24,32 +24,32 @@ So a song called “Little Girl Like You”… let’s just say that including t
 
 Check out the lyrics:
 
-*I want a little house, on a little hill*
-*I wanna settle down, yeah I think I will*
-*Settle down and find a little love that’s true*
-*Settle down with a girl like you*
+> *I want a little house, on a little hill*
+> *I wanna settle down, yeah I think I will*
+> *Settle down and find a little love that’s true*
+> *Settle down with a girl like you*
 
 *Seen a lot of girls, h**ad a lot of fun*
 *Ran around a lot, n**ow my runnin’s done*
 *Honey, all I want, w**anna be runnin’ to*
-*Is the arms of a girl like you*
+> *Is the arms of a girl like you*
 
 *You start living life l**ike you just don’t care*
 *You done everything, yo**u been everywhere*
 *But what I done ain’t nothin’ t**o what I wanna do*
-*When I find a little girl like you*
+> *When I find a little girl like you*
 
 *We’ll get married i**n a church down a winding path*
 *Tell a lot of jokes, h**ave a lot of laughs*
-*Do whatever it is that we wannna do*
-*Long as I do it with a girl like you*
+> *Do whatever it is that we wannna do*
+> *Long as I do it with a girl like you*
 
 *Hey little stranger, w**alkin’ down the street*
 *You’re the only one can* *make my life complete*
 *I got a plan but i**t’s made for two*
-*So I need a little girl like you*
-*Yeah hey, I need a little girl like you*
-*Oh honey I need a little girl like you  
+> *So I need a little girl like you*
+> *Yeah hey, I need a little girl like you*
+> *Oh honey I need a little girl like you  
 Oh baby I need a little girl like you*
 
 

@@ -8,30 +8,30 @@ What’s particularly remarkable is how tight the lyrics are: Bruce’s early wo
 
 But “Jumbeliah” is an exercise in restraint–we learn that she lives in Louisiana, but apparently that’s all we need to know. Where she hails from doesn’t matter anyway–that’s the least important thing about her:
 
-*Well I got a girl, I wanna tell you her name*
-*She lives way down south in New Orleans*
-*Well she’s strong like a lion, she’s wild like a tiger*
-*And I call my woman Jumbeliah*
-*Jumbeliah, she’s my fire*
+> *Well I got a girl, I wanna tell you her name*
+> *She lives way down south in New Orleans*
+> *Well she’s strong like a lion, she’s wild like a tiger*
+> *And I call my woman Jumbeliah*
+> *Jumbeliah, she’s my fire*
 
 And while I normally take pains to distinguish between the singer and the point-of-view character, Bruce makes it seem as if this song is perhaps a bit more personal than he usually lets on:
 
-*Oh, well she hits you like a hurricane*
-*Well she drives old Dr. Zoom insane*
-*She’s a good little woman, she’s a hot rock and roller*
-*She’s built like Marilyn Monroe and she walks like Smokey Stover*
-*Jumbeliah, she’s my fire*
+> *Oh, well she hits you like a hurricane*
+> *Well she drives old Dr. Zoom insane*
+> *She’s a good little woman, she’s a hot rock and roller*
+> *She’s built like Marilyn Monroe and she walks like Smokey Stover*
+> *Jumbeliah, she’s my fire*
 
 Dr. Zoom, as we know, isn’t just a colorful nickname for an invented character. That’s Bruce himself–the leader of Dr. Zoom and the Sonic Boom–singing about a woman who obviously made an impression on him at some point. (Although I’m pretty sure a woman built like Marilyn Monroe who walks like Smokey Stover (seriously, Bruce?) would make an impression on *anyone.*)
 
 The band also makes an appearance in the lyrics:
 
-*Jumbeliah, she’s my fire*
-*Well she, when she get you, she locks you in her room*
-*She comes on to you like a big sonic boom*
-*Oh when she loves a man, she puts him in clover*
-*She loves him so hard, all you can do is*
-*Roll over, roll over, roll over, roll over*
+> *Jumbeliah, she’s my fire*
+> *Well she, when she get you, she locks you in her room*
+> *She comes on to you like a big sonic boom*
+> *Oh when she loves a man, she puts him in clover*
+> *She loves him so hard, all you can do is*
+> *Roll over, roll over, roll over, roll over*
 
 …and that’s enough of a coincidence to make one wonder about the band on the song: which is the chicken and which is the egg?
 
@@ -47,8 +47,8 @@ There’s one other other great recording, a longer one at that, from The Bruce 
 
 But before I do, there’s one other lyrical coincidence I can’t let slide:
 
-*Well she was born and bred down Louisiana*
-*Dressed in blue jeans and a red bandana*
+> *Well she was born and bred down Louisiana*
+> *Dressed in blue jeans and a red bandana*
 
 What do you know… it looks like Bruce had his eighties look in mind long before *Born in the U.S.A.*
 

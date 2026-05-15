@@ -6,28 +6,28 @@ And then there’s “Working on the Highway,” a staple of pretty much every t
 
 Admittedly, you *really* have to pay attention to the lyrics to catch the drift, because at casual listen, it sure sounds like “Working on the Highway” is a rockabilly celebration of letting loose after a long week of manual labor:
 
-*Friday night’s pay night guys fresh out of work*  
-*Talking about the weekend scrubbing off the dirt*  
-*Some heading home to their families, some are looking to get hurt*  
-*Some going down to Stovell wearing trouble on their shirts*
+> *Friday night’s pay night guys fresh out of work*
+> *Talking about the weekend scrubbing off the dirt*
+> *Some heading home to their families, some are looking to get hurt*
+> *Some going down to Stovell wearing trouble on their shirts*
 
 The narrator is doing none of the above, however, even though he’s just another guy “working for the county out on 95” (Interstate 95, most likely). He gets through the workday thinking about his “pretty little miss” and leading a better life than the one he’s living now.
 
 He reminisces about how he met his pretty young miss at a union hall dance, how he courted her, saved up his money, and asked her daddy for permission. Daddy replies:
 
-*“Son, can’t you see that she’s just a little girl?*  
-*She don’t know nothing about this cruel, cruel world!”*
+> *“Son, can’t you see that she’s just a little girl?*
+> *She don’t know nothing about this cruel, cruel world!”*
 
 So the narrator absconds down to Florida with his girl, and everything was jake until
 
-*One day, her brothers came and got her, and they took me in a black-and-white.*  
-*The prosecutor kept the promise that he made on that day*  
-*and the judge got mad and he put me straight away.*
+> *One day, her brothers came and got her, and they took me in a black-and-white.*
+> *The prosecutor kept the promise that he made on that day*
+> *and the judge got mad and he put me straight away.*
 
 …and to drive home the point that this is present, not past:
 
-*I wake up every morning to the work bell clang*  
-*Me and the warden go swinging on the Charlotte County road gang*
+> *I wake up every morning to the work bell clang*
+> *Me and the warden go swinging on the Charlotte County road gang*
 
 Woo-hoo-hoo! Everybody dance!
 

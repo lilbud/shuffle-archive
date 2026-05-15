@@ -6,24 +6,24 @@ Crystal is the second song from that notebook. We may never know whether it was 
 
 It would be easy to dismiss this a throwaway song, but the lyrics function either literally (the object of a high school crush walking up to and past a boy too shy to speak to her) or metaphorically (an entire relationship in fast forward):
 
-*Hey there, Crystal, walking through your marble halls, I can’t see you at all*  
-*Hey there, Crystal, I can hear you calling me near*
+> *Hey there, Crystal, walking through your marble halls, I can’t see you at all*
+> *Hey there, Crystal, I can hear you calling me near*
 
-*Now I hear you coming, I hear you coming to me, to me, hey Crystal*
+> *Now I hear you coming, I hear you coming to me, to me, hey Crystal*
 
-*Hey there, Crystal, you kissed the green summer leaves, you created the trees*  
-*Hey there, Crystal, you’re as free as the sea, help bring life to me*
+> *Hey there, Crystal, you kissed the green summer leaves, you created the trees*
+> *Hey there, Crystal, you’re as free as the sea, help bring life to me*
 
-*Now I hear you coming, I hear you coming to me, to me, hey Crystal*
+> *Now I hear you coming, I hear you coming to me, to me, hey Crystal*
 
-*I’m lost in the center of your resistance, united as one in your wisdom, hey Crystal*
+> *I’m lost in the center of your resistance, united as one in your wisdom, hey Crystal*
 
-*Hey there, Crystal, I can feel you nearing to me*  
-*Hey there, Crystal, you’re fading away into a cloudy day*
+> *Hey there, Crystal, I can feel you nearing to me*
+> *Hey there, Crystal, you’re fading away into a cloudy day*
 
-*Now I hear you coming, I hear you coming to me, to me, hey Crystal*
+> *Now I hear you coming, I hear you coming to me, to me, hey Crystal*
 
-*Goin’ from me, hey Crystal, you’re fading, you’re fading*
+> *Goin’ from me, hey Crystal, you’re fading, you’re fading*
 
 That central line (“I’m lost in the center of your resistance”) almost certainly was intended to be the song’s fulcrum, and it’s a very clever literary device.
 

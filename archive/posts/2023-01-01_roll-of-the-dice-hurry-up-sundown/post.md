@@ -26,32 +26,32 @@ If we strain and listen past the production, however, we hear a beautiful west c
 
 Those lyrics are so effortless, in fact, that one suspects that Bruce tossed this one off in an afternoon, liberally lifting phrases from “[Wreck on the Highway](https://estreetshuffle.com/index.php/2022/08/28/roll-of-the-dice-wreck-on-the-highway/),” “[Waitin’ on a Sunny Day](https://estreetshuffle.com/index.php/2019/09/27/roll-of-the-dice-waitin-on-a-sunny-day/),” and “[Jersey Girl](https://estreetshuffle.com/index.php/2019/07/24/cover-me-roll-of-the-dice-jersey-girl/)” and the theme from “[Out in the Street](https://estreetshuffle.com/index.php/2021/09/11/roll-of-the-dice-im-on-fire/)” *all in the first verse*.
 
-*It’s the end of another working day*
-*Come on and pack your blues away*
-*Change your clothes, we’ll go for a ride*
-*To the other side*
+> *It’s the end of another working day*
+> *Come on and pack your blues away*
+> *Change your clothes, we’ll go for a ride*
+> *To the other side*
 
-*Hurry up sundown, hurry up sundown*
-*Hurry up sundown, hurry up sundown*
+> *Hurry up sundown, hurry up sundown*
+> *Hurry up sundown, hurry up sundown*
 
 Seriously, if someone wrote a random Springsteen lyrics generator, there’s a good chance it would eventually spit out that verse all on its own.
 
 The rest of the lyrics (really just a few couplets) are more original but no more substantial. (It’s fun to play “spot the Springsteen song title/theme” though. How many can you find?)
 
-*Over here it’s easier to breathe*
-*There’s a place for you and me*
-*And there’s no devil here to pay*
-*And come the light of day we pray*
+> *Over here it’s easier to breathe*
+> *There’s a place for you and me*
+> *And there’s no devil here to pay*
+> *And come the light of day we pray*
 
-*And together we’ll ride to the other side*
-*We’ll feel so free, just you and me*
-*And I’ll pay what is due*
-*Till the night sees us through*
+> *And together we’ll ride to the other side*
+> *We’ll feel so free, just you and me*
+> *And I’ll pay what is due*
+> *Till the night sees us through*
 
-*And together we’ll ride to the other side*
-*We’ll feel so free, just you and me*
-*When this long day is through*
-*Evening dims to blue*
+> *And together we’ll ride to the other side*
+> *We’ll feel so free, just you and me*
+> *When this long day is through*
+> *Evening dims to blue*
 
 If it sounds like I’m hating on “Hurry Up Sundown,” I’m not. I quite like the song and would love to hear it played live with a bit more restraint than on the album. But given that the world seems to have forgotten it exists (Bruce never talks about it, and I’ve never seen a request sign for it), that seems unlikely.
 

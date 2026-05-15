@@ -14,20 +14,20 @@ Why did he pull it? That I can’t answer, although I suspect it has at least a 
 
 But while this ferocious track (which ultimately saw release as the flipside to “[Hungry Heart](https://estreetshuffle.com/index.php/2022/12/21/roll-of-the-dice-hungry-heart/)“) may have been inspired by the gas crisis, that’s not what it’s really about. Bruce uses current events as a jump-off point for the song, but it quickly–everything about this song is quick–establishes a more timeless theme.
 
-*I was out driving, just a-taking it slow*
-*Looked at my tank, it was reading low*
-*Pulled in an Exxon station out on Highway One*
-*Held up without a gun*
+> *I was out driving, just a-taking it slow*
+> *Looked at my tank, it was reading low*
+> *Pulled in an Exxon station out on Highway One*
+> *Held up without a gun*
 
-*Some damn fool with a guitar walks in off the street*
-*Ain’t got nowhere to go, ain’t got nothing to eat*
-*Man with a cigar says “sign here, son”*
-*Held up without a gun*
+> *Some damn fool with a guitar walks in off the street*
+> *Ain’t got nowhere to go, ain’t got nothing to eat*
+> *Man with a cigar says “sign here, son”*
+> *Held up without a gun*
 
-*Now it’s a sin and it oughta be a crime*
-*You know it happens buddy all the time*
-*Trying to make a living, trying to have a little fun*
-*Held up without a gun*
+> *Now it’s a sin and it oughta be a crime*
+> *You know it happens buddy all the time*
+> *Trying to make a living, trying to have a little fun*
+> *Held up without a gun*
 
 Don’t let that second verse fly past you–it’s the key to the song.
 

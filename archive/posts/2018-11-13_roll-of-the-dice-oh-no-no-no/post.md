@@ -12,30 +12,30 @@ Even so, “Oh No No No” is notable for its verses:
 
 The first verse may be Bruce’s earliest attempt at writing from the female perspective:
 
-*My man he don’t listen, he don’t even care*
-*It’s like the words come out of my mouth, and disappear in thin air*
-*He reads his newspaper or watches TV*
-*Whatever happened to the love he swore on me*
+> *My man he don’t listen, he don’t even care*
+> *It’s like the words come out of my mouth, and disappear in thin air*
+> *He reads his newspaper or watches TV*
+> *Whatever happened to the love he swore on me*
 
 He’d get better at it over time.
 
 The second verse sets up the he-said/she-said gimmick of the song:
 
-*My woman don’t know what she’s talkin’ about*
-*The words flow like a river out of her mouth*
-*She never stops bitchin’ but she’s gonna see*
-*Who wears the pants in this romance, you know that it’s me*
+> *My woman don’t know what she’s talkin’ about*
+> *The words flow like a river out of her mouth*
+> *She never stops bitchin’ but she’s gonna see*
+> *Who wears the pants in this romance, you know that it’s me*
 
 At this point, it almost sounds like Bruce is setting up a duet, perhaps a novelty one. But the final verse (at least the final one we’re able to see) entrenches the male point-of-view as the dominant one.
 
-*Well there’s gonna be a shootout to see who runs this show*
-*I’m tired of your bitchin’, I’m gonna let you know*
-*But every time I start into talking she makes me so mad*
-*I just throw up my hands and scream*
+> *Well there’s gonna be a shootout to see who runs this show*
+> *I’m tired of your bitchin’, I’m gonna let you know*
+> *But every time I start into talking she makes me so mad*
+> *I just throw up my hands and scream*
 
-*No no no no no, No no no no no*
-*And a no no no, with a ah ah ah and a hey hey hey*
-*why does love have to be this way, tell me mama*
+> *No no no no no, No no no no no*
+> *And a no no no, with a ah ah ah and a hey hey hey*
+> *why does love have to be this way, tell me mama*
 
 Bruce almost certainly would have developed the song further–we don’t know if he ever got around to it (this lyric sheet is all we have), but the asymmetry of the verses and the single chorus suggests that more back and forth was originally planned (and given the time period, most likely a guitar jam to underscore the emotional angst).
 

@@ -28,41 +28,41 @@ In early performance, Bruce called for the audience to create lots of “party n
 
 “Sherry Darling” is raucous by design–we have too much fun to take issue with the callousness and short fuse of the protagonist, who is nearing his limit of what he’ll put up with for his girl:
 
-*Your Mamma’s yapping in the back seat*  
-*Tell her to push over and move them big feet*  
-*Every Monday morning I gotta drive her down to the unemployment agency*  
-*Well this morning I ain’t fighting, tell her I give up*  
-*Tell her she wins if she’ll just shut up*  
-*But it’s the last time that she’s gonna be riding with me*
+> *Your Mamma’s yapping in the back seat*
+> *Tell her to push over and move them big feet*
+> *Every Monday morning I gotta drive her down to the unemployment agency*
+> *Well this morning I ain’t fighting, tell her I give up*
+> *Tell her she wins if she’ll just shut up*
+> *But it’s the last time that she’s gonna be riding with me*
 
 He talks a good game, doesn’t he? But listen to his tone soften toward the end of the chorus, and you can’t help but suspect he’s perhaps bluffing a bit:
 
-*And you can tell her there’s a hot sun beating on the black top*  
-*She keeps talking she’ll be walking that last block*  
-*And she can take a subway back to the ghetto tonight*  
-*Well I got some beer and the highway’s free*  
-*And I got you and baby you’ve got me*  
-*Hey, hey, hey, what you say, Sherry Darling*
+> *And you can tell her there’s a hot sun beating on the black top*
+> *She keeps talking she’ll be walking that last block*
+> *And she can take a subway back to the ghetto tonight*
+> *Well I got some beer and the highway’s free*
+> *And I got you and baby you’ve got me*
+> *Hey, hey, hey, what you say, Sherry Darling*
 
 When you’re young, and you have nothing but time, a car, a girl, and some beer… it’s pretty clear that our hero’s frustration is less about his girl’s mom, and more about the fleetingness of summer:
 
-*Now there’s girls melting on the beach*  
-*And they’re so fine but so out of reach*  
-*‘Cause I’m stuck in traffic down here on 53rd Street*  
-*Now Sherry my love for you is real*  
-*But I didn’t count on this package deal*  
-*And baby this car just ain’t big enough for her and me*
+> *Now there’s girls melting on the beach*
+> *And they’re so fine but so out of reach*
+> *‘Cause I’m stuck in traffic down here on 53rd Street*
+> *Now Sherry my love for you is real*
+> *But I didn’t count on this package deal*
+> *And baby this car just ain’t big enough for her and me*
 
 There’s just a *bit* of doubt here: so many girls, so little summertime! Is Sherry really worth the aggravation?
 
 Bruce answers that in the last chorus, where the protagonist suddenly lapses into romantic rhapsody:
 
-*Well let there be sunlight, let there be rain*  
-*Let the brokenhearted love again*  
-*Sherry, we can run with our arms open wide before the tide*  
-*To all the girls down at Sacred Heart*  
-*And all you operators back in the park*  
-*Say hey, hey, hey, what you say, Sherry Darling*
+> *Well let there be sunlight, let there be rain*
+> *Let the brokenhearted love again*
+> *Sherry, we can run with our arms open wide before the tide*
+> *To all the girls down at Sacred Heart*
+> *And all you operators back in the park*
+> *Say hey, hey, hey, what you say, Sherry Darling*
 
 Sorry, girls–and enjoy your conquests, you operators–our guy has Sherry, and that’s all he needs and wants.
 

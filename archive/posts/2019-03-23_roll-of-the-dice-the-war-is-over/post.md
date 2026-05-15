@@ -12,39 +12,39 @@ That was, in fact, the band’s opening number that night, and it must have been
 
 Honestly, the most interesting thing about the lyrics is their timeliness today. Originally written during the Vietnam war to protest the deadly, disastrous conflict, the references to a king entertained by low culture while a resistance builds, betrayed by a steady stream of deserters, isolated and aggrieved, and beset on all sides by those who would remove him from power… well, let’s just say the lyrics require a lot less poetic license today than they did fifty years ago.
 
-*The king and the queen have drowned in their laughter*
-*Today the new court jester has arrived*
-*And he’ll tell you funny stories and dance a bit after*
-*And help the king forget the revolution outside*
+> *The king and the queen have drowned in their laughter*
+> *Today the new court jester has arrived*
+> *And he’ll tell you funny stories and dance a bit after*
+> *And help the king forget the revolution outside*
 
-*Well the wars been lost can your army stay and watch*
-*As thousands desert to the other side*
-*Your people pledge allegiance in the face of a bomb*
-*And too many people have died telling other jokes*
-*The king, he cried*
+> *Well the wars been lost can your army stay and watch*
+> *As thousands desert to the other side*
+> *Your people pledge allegiance in the face of a bomb*
+> *And too many people have died telling other jokes*
+> *The king, he cried*
 
 So far, so good, in either decade. Suddenly, though, Bruce rips the metaphor away like a band-aid, and we feel as if we’re dropped onto a battlefield, the screaming children all around us:
 
-*Well when are you gonna realize that your kingdom is crumbling before your eyes*
-*Your tears have been streaming like blood from the sky*
-*When you hear the children screaming whose brothers have died*
-*You can murder in the name of freedom but you just can’t hide*
+> *Well when are you gonna realize that your kingdom is crumbling before your eyes*
+> *Your tears have been streaming like blood from the sky*
+> *When you hear the children screaming whose brothers have died*
+> *You can murder in the name of freedom but you just can’t hide*
 
 By the time Bruce picks the story back up (after an extended power jam), we’re shell-shocked. We’ve all but forgotten the original setting. Luckily, the band reminds us that we’re back in the king’s court, but the whiplash from the stark bridge back to the verses’ metaphor doesn’t work nearly as well in reverse as it did at the beginning.
 
 I can certainly see what he was aiming for: Bruce deliberately decorated the verses in order to make the plain-spoken bridge more powerful in contrast. But in the second half of the song, Bruce takes the metaphor a bit too far, sticking his toe over the line between novel and trite a few times:
 
-*The moon is hanging high over the castle tonight*
-*There’s rumors of an attempt on the throne*
-*The king has locked himself into his chamber*
-*And the walls are screaming out “You’re alone, you fool, you’re alone”*
+> *The moon is hanging high over the castle tonight*
+> *There’s rumors of an attempt on the throne*
+> *The king has locked himself into his chamber*
+> *And the walls are screaming out “You’re alone, you fool, you’re alone”*
 
-*And from the cave of night rides a horseman*
-*And he comes bringing word of the war*
-*He says “sire, your armies are defeated*
-*No people are fighting anymore, for your kingdom it ain’t yours*
-*And they killed your last soldier”*
-*And the war is over*
+> *And from the cave of night rides a horseman*
+> *And he comes bringing word of the war*
+> *He says “sire, your armies are defeated*
+> *No people are fighting anymore, for your kingdom it ain’t yours*
+> *And they killed your last soldier”*
+> *And the war is over*
 
 By the end of the song, we’ve truly entered the realm of a fairy tale, with a comeuppance for the ruler that’s so neat and tidy, only a nineteen-year-old could write it.
 

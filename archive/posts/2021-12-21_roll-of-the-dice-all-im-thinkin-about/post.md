@@ -16,29 +16,29 @@ Let’s break it down; I’ll do my best to maintain a sense of propriety and de
 
 We begin with our narrator parked in his truck by the side of the road.
 
-*Blind man wavin’ by the side of the road*
-*In a flat bed Ford carrying a heavy load*
+> *Blind man wavin’ by the side of the road*
+> *In a flat bed Ford carrying a heavy load*
 
 Needless to say, our narrator is not literally blind, nor is he literally wavin’. However, there is an adult activity that involves repetitive hand motion and that by (thankfully) inaccurate legend can cause blindness. “Wavin'” is a pretty clever euphemism for it.
 
 As for “heavy load,” its graphic meaning doesn’t become clear until we realize that it’s the blind man who’s carrying it, not the Ford.
 
-*Sweet thing sippin’ on a blueberry wine*
-*On a flat black highway down in Carolina*
-*Black bird slippin’ in a sky of blue*
+> *Sweet thing sippin’ on a blueberry wine*
+> *On a flat black highway down in Carolina*
+> *Black bird slippin’ in a sky of blue*
 
 These lines are among the few that we can take literally. Our narrator slips into his, um, reverie and mentally summons the object of his desire. He leans back, uses the sky as a bluescreen, and…
 
-*All I’m thinkin’ about is you*
-*All I’m thinkin’ about is you*
-*All I’m thinkin’ about is you*
-*All I’m thinkin’ about is you*
-*Ain’t nothin’ in this world I can do about it*
-*All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *Ain’t nothin’ in this world I can do about it*
+> *All I’m thinkin’ about is you*
 
 The rest of the song is nothing but a parade of passers-by while our driver self-engages in the privacy of his truck. But each image is delightfully lewd:
 
-*Little boy carryin’ a fishin’ pole*
+> *Little boy carryin’ a fishin’ pole*
 
 Self explanatory, once we realize “fishin’ pole” is a euphemism.
 
@@ -48,31 +48,31 @@ Side note: when performing “All I’m Thinkin’ About” in concert, Bruce wa
 
 But I digress. Moving on:
 
-*Little girl pickin’ berries off of the vine*
+> *Little girl pickin’ berries off of the vine*
 
 “Berries” is a common euphemism for testicles; complete the metaphor on your own.
 
-*Brown bag filled with a little green toad*
-*We hook ’em through the lip and throw ’em off of the line*
+> *Brown bag filled with a little green toad*
+> *We hook ’em through the lip and throw ’em off of the line*
 
 Okay, I’m gonna admit to being stumped by this one. Feel free to enlighten me; y’all may be more experienced than I am.
 
-*Your sweet brown legs got me feeling so blue*
+> *Your sweet brown legs got me feeling so blue*
 
 Here, I will simply point out that Bruce uses the word “blue” as a rhyme three times in this song, and we know that Bruce certainly is never at a loss for rhymes. There’s a dual meaning at work here.
 
-*All I’m thinkin’ about is you*
-*All I’m thinkin’ about is you*
-*All I’m thinkin’ about is you*
-*All I’m thinkin’ about is you*
-*There ain’t nothin’ in this world I can do about it*
-*All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *There ain’t nothin’ in this world I can do about it*
+> *All I’m thinkin’ about is you*
 
-*Black car shinin’ on a Sunday morn*
-*Mama go to church now, Mama go to church now*
-*Friday night, daddy’s shirt is torn*
-*Daddy’s goin’ downtown, Daddy’s goin’ downtown*
-*Ain’t no one understand this sweet thing we do*
+> *Black car shinin’ on a Sunday morn*
+> *Mama go to church now, Mama go to church now*
+> *Friday night, daddy’s shirt is torn*
+> *Daddy’s goin’ downtown, Daddy’s goin’ downtown*
+> *Ain’t no one understand this sweet thing we do*
 
 Oh yes we do, Bruce, because we’re paying attention. We’re pretty sure we know what Mama does at church; it likely involves invoking the name of the Almighty. We know where Daddy’s goin’ down, too.
 
@@ -80,29 +80,29 @@ Still, that last line functions as a pretty neat triple entendre, one of which i
 
 Let’s move on. We’re deep into it now, and the song is reaching its climax. We’re just about at the moment of truth…
 
-*Field turned up, the seed is sowed*
-*Rain comin’ in from over ‘cross the road*
+> *Field turned up, the seed is sowed*
+> *Rain comin’ in from over ‘cross the road*
 
 …and now here it comes, enveloping us like a curtain as Bruce’s vocal builds to a moment of intense release:
 
-*Big black curtain coming ‘cross the field*
-*Blind’ll see, the lame will be healed*
+> *Big black curtain coming ‘cross the field*
+> *Blind’ll see, the lame will be healed*
 
 Oh, the mystical power of the orgasm. It’s powerful in effect, but it fades oh so quickly. Momentarily, our narrator is returned to the real world, where he realizes he’s still alone–and now we finally learn why:
 
-*Brown eyed girl, I turned my back on you, now it’s lonely*
+> *Brown eyed girl, I turned my back on you, now it’s lonely*
 
 It’s the last original line of the song, and its the one that grounds the song in tragedy after soaring in whimsy. It’s the classic Springsteenian trope: he had a girl, he screwed up and lost her, and now he can’t get his mind off her.
 
-*All I’m thinkin’ about is you*
-*All I’m thinkin’ about is you*
-*All I’m thinkin’ about is you*
-*All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
+> *All I’m thinkin’ about is you*
 
 Bruce gets in one last joke, though: our narrator may have temporarily relieved himself of one level of blueness, but there’s another that refuses to budge.
 
-*Ain’t nothin’ in this world take away these blues*
-*All I’m thinkin’ about is you*
+> *Ain’t nothin’ in this world take away these blues*
+> *All I’m thinkin’ about is you*
 
 ---
 

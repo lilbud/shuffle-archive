@@ -18,27 +18,27 @@ And while the two versions are very different lyrically, they’re also essentia
 
 Bruce’s version:
 
-*When you dance, ah come on mama hold me tight*  
-*Make romance, yeah kiss me baby in the night*  
-*When you move, oh don’t you know I love you so*  
-*When you groove, meet baby I’m on the lights down low*
+> *When you dance, ah come on mama hold me tight*
+> *Make romance, yeah kiss me baby in the night*
+> *When you move, oh don’t you know I love you so*
+> *When you groove, meet baby I’m on the lights down low*
 
-*When you love, you know I’ll chase the heavens above*  
-*From above, and my body shaking for you love*  
-*You’re so wild that I want you for my partner child*  
-*When you smile, how you move just right*
+> *When you love, you know I’ll chase the heavens above*
+> *From above, and my body shaking for you love*
+> *You’re so wild that I want you for my partner child*
+> *When you smile, how you move just right*
 
 Southside’s version:
 
-*When you dance, I hear the music rocking everywhere*  
-*When you dance, I see the light shining through your hair*  
-*When you dance, baby, the band is blowing like a hurricane*  
-*When you dance, you look so fine but you don’t know my name*
+> *When you dance, I hear the music rocking everywhere*
+> *When you dance, I see the light shining through your hair*
+> *When you dance, baby, the band is blowing like a hurricane*
+> *When you dance, you look so fine but you don’t know my name*
 
-*When you dance, your smile hiding what you’re thinking of*  
-*When you dance, your body tremble like you’re making love*  
-*When you move, baby, my soul is aching and my blood run hot*  
-*Run into me now, my heart is breaking shaking what you’ve got*
+> *When you dance, your smile hiding what you’re thinking of*
+> *When you dance, your body tremble like you’re making love*
+> *When you move, baby, my soul is aching and my blood run hot*
+> *Run into me now, my heart is breaking shaking what you’ve got*
 
 Southside’s version has more polished lyrics and a brassier arrangement, but for my ears, Bruce’s guitar jam takes the prize.
 

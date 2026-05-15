@@ -10,7 +10,7 @@
 
 **1977:** Bruce and the E Street Band bring the “Lawsuit Tour” to Kleinhan’s Music Hall in Buffalo.
 
-*![](../../assets/2021/02/1977-0209.jpg)*
+> *![](../../assets/2021/02/1977-0209.jpg)*
 
 **1981:** Hours before he is scheduled to perform, Bruce cancels his River Tour show in Indianapolis when he comes down with strep throat.
 

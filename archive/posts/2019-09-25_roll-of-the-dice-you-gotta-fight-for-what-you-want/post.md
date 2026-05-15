@@ -12,28 +12,28 @@ In content, “You Gotta Fight (For What You Want)” feels like a precursor to 
 
 Some of the lyrics are bluffed, but most of them are complete–certainly enough for us to tell that “You Gotta Fight (For What You Want)” is very much a platonic pep talk in the “Two Hearts” vein.
 
-*Little girl in these changing times*
-*You got to move on or be left behind*
-*Every day is a battle within*
-*And you say the future looks so dim*
-*??? and if you get it right*
-*???*
+> *Little girl in these changing times*
+> *You got to move on or be left behind*
+> *Every day is a battle within*
+> *And you say the future looks so dim*
+> *??? and if you get it right*
+> *???*
 
-*Well you just got to fight for what you want*
-*You got to fight for what you want*
-*You got to fight for what you want*
-*For what you want*
+> *Well you just got to fight for what you want*
+> *You got to fight for what you want*
+> *You got to fight for what you want*
+> *For what you want*
 
-*When you get to know the future, baby*
-*Every guy leaves you so confused*
-*Got to choose which way to turn*
-*And you got to ???*
-*Oh yeah, you get ??? alright, all night*
-*???*
-*You ride away that storm*
+> *When you get to know the future, baby*
+> *Every guy leaves you so confused*
+> *Got to choose which way to turn*
+> *And you got to ???*
+> *Oh yeah, you get ??? alright, all night*
+> *???*
+> *You ride away that storm*
 
-*Remember that*
-*You got to fight for what you want*
+> *Remember that*
+> *You got to fight for what you want*
 
 Regardless of whether one song led to the other or if they were both contemporaries, it’s easy to see why Bruce would have abandoned “You Gotta Fight (For What You Want)” and opted to record “Two Hearts” instead.
 

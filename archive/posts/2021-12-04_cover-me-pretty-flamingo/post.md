@@ -1,4 +1,4 @@
-*If he just could… If she just would…*
+> *If he just could… If she just would…*
 
 There’s a brief moment at the 1:50 mark of Manfred Mann’s “Pretty Flamingo” where Paul Jones breaks with the lyrics for a moment and allows himself a wry, wistful “Ha!”
 
@@ -14,7 +14,7 @@ The narrator of “Pretty Flamingo” knows not a thing about the object of his 
 
 We’ve all been in that moment at least once, and we can tell that Paul Jones has, too. Because that “Ha!” is the giveaway, that moment when we recognize our ridiculousness and wake ourselves from our reverie. And yet…
 
-*If he just could… if she just would…*
+> *If he just could… if she just would…*
 
 The universality of that feeling helped carry Manfred Mann’s single all the way to #1 in the U.K. in the spring of 1966. (It notched only as high as #29 in the U.S.) But it was that “Ha!” that Bruce Springsteen dialed into when he started covering it on the Born to Run Tour in 1975.
 

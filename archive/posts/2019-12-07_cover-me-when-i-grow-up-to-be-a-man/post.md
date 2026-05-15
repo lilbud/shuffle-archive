@@ -8,7 +8,7 @@ More than two decades later, Bruce Springsteen found himself in a similarly intr
 
 If he felt any different, he certainly didn’t show it during the main set. But when he returned to the stage for his encores, he simply remarked:
 
-*“I’m thinking a lot of different things, standing her today. I guess this song kind of sums it up.”*
+> *“I’m thinking a lot of different things, standing her today. I guess this song kind of sums it up.”*
 
 And then, accompanying himself only on guitar and harmonica, he launched into a tender reading (his only one ever) of “When I Grow Up (To Be a Man).”
 

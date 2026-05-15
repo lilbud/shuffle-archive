@@ -14,17 +14,17 @@ Bruce went back to his notebook, and before the month was out he’d written two
 
 The song itself is a sketch, perhaps a painting of an errant musician who’s made some questionable choices with a presumably underage paramour.
 
-*Well, it’s a Saturday night in New Jersey*  
-*And you’re feeling kinda wet*  
-*Now the summer heat is getting you worried*  
-*So you look as innocent as you can as you sweat*  
-*You got a woman on the other side of the law*  
-*But it ain’t cool to go to see her yet*  
-*Because her ex-old man’s some half-shot detective*  
-*With his heart set on Dragnet*  
-*And so you stand on the corner looking kinda torn*  
-*In the Blue Light lounge where Death was born*  
-*The jazz musician blows his horn*
+> *Well, it’s a Saturday night in New Jersey*
+> *And you’re feeling kinda wet*
+> *Now the summer heat is getting you worried*
+> *So you look as innocent as you can as you sweat*
+> *You got a woman on the other side of the law*
+> *But it ain’t cool to go to see her yet*
+> *Because her ex-old man’s some half-shot detective*
+> *With his heart set on Dragnet*
+> *And so you stand on the corner looking kinda torn*
+> *In the Blue Light lounge where Death was born*
+> *The jazz musician blows his horn*
 
 Bruce wrote “Jazz Musician” in peak wordplay form, so we need to pay close attention to take in the full scene.
 
@@ -32,26 +32,26 @@ Set in his home state, we’re introduced to our titular musician and his romant
 
 We can only assume that he’s in trouble for sleeping with someone underage, and his poor choice was compounded by the fact that her father’s an officer himself. In case we harbor any doubt, though, Bruce puts it to rest in the second verse:
 
-*You pop a letter to your baby in Richmond*  
-*Because you’re feeling kinda down*  
-*She’s kinda small but at least she don’t bitch none*  
-*And she needs you real bad and sometimes that’s all that counts*  
-*Oh, you had a teenage band and flying hands*  
-*And, yeah, you were pretty big in the South*  
-*But you passed out on stage and flew into a rage*  
-*And someone tried to revive you mouth to mouth*  
-*And you felt a pain in your chest as you passed the crown*  
-*And in the Blue Light lounge the lights went down*  
-*And the audience, like monks, slipped silently out of town*
+> *You pop a letter to your baby in Richmond*
+> *Because you’re feeling kinda down*
+> *She’s kinda small but at least she don’t bitch none*
+> *And she needs you real bad and sometimes that’s all that counts*
+> *Oh, you had a teenage band and flying hands*
+> *And, yeah, you were pretty big in the South*
+> *But you passed out on stage and flew into a rage*
+> *And someone tried to revive you mouth to mouth*
+> *And you felt a pain in your chest as you passed the crown*
+> *And in the Blue Light lounge the lights went down*
+> *And the audience, like monks, slipped silently out of town*
 
 Bruce is somewhat circumspect here, cleverly cloaking the sordid details, but even in 1972 Bruce didn’t waste words. “Kinda small” and “teenage band” are clues to the age of the musician’s lover, and “flying hands” and “big in the South” are both terrific examples of double entendre.
 
 Beyond his statutory trouble, though, it looks like he also may have a bit of a drinking or drug use problem, one that played out on stage and lost him his live audience. Still, he’s got an audience for his vinyl, and even if he doesn’t feel his art is completely understood, at least he’s being heard.
 
-*Well, now the atheist burns you for laughing out loud*  
-*‘Cause he can’t understand what you’re saying*  
-*Whoa, and the DJ he’s rattling like a Gatling gun*  
-*But man, that’s your record he’s playing*
+> *Well, now the atheist burns you for laughing out loud*
+> *‘Cause he can’t understand what you’re saying*
+> *Whoa, and the DJ he’s rattling like a Gatling gun*
+> *But man, that’s your record he’s playing*
 
 Now up until this point, “Jazz Musician” is an interesting but unremarkable track. We might acknowledge Davis’ wisdom in encouraging its removal. And artistically, the rest of the song isn’t any stronger.
 
@@ -59,22 +59,22 @@ Historically, though, “Jazz Musician” points the way forward to one of Bruce
 
 ***Well outside the park is dark***  
 ***But the sidewalk’s bright in line with the light of the living***  
-*Oh, and baby can I walk you home tonight*  
+> *Oh, and baby can I walk you home tonight*
 *Because it’s so bad outside **but there’s so much for the giving***  
 ***I was stranded in the jungle***  
-*First stage witness at a company killing*  
-*And shuffling my feet, clutching my high school diploma*  
-*Promised sixty bucks a week and top billing*
+> *First stage witness at a company killing*
+> *And shuffling my feet, clutching my high school diploma*
+> *Promised sixty bucks a week and top billing*
 
 I’m sure you recognized **the lines** that would years later end up in or evolve into “[Tenth Avenue Freeze-Out](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/).” And there’s more:
 
-*And has anybody seen sweet Gabriel*  
-*That dark woman with the funny tattoo*  
-*The curtain calls of her shadow on my walls*  
-*All I got to pull me through*  
+> *And has anybody seen sweet Gabriel*
+> *That dark woman with the funny tattoo*
+> *The curtain calls of her shadow on my walls*
+> *All I got to pull me through*
 ***Whoa, and out on the corner there’s no room to move***  
 ***Because everybody’s trying so hard to groove***  
-*And in the Blue Light lounge, Jazzman he plays the blues*
+> *And in the Blue Light lounge, Jazzman he plays the blues*
 
 But where “Tenth Avenue Freeze-Out” is romantic and celebratory, Bruce uses almost the same imagery and lyricism to paint a much darker picture in “Jazz Musician” — a character study of a forlorn musician exiled from the clubs to the street, pining for a girl who the law keeps out of reach, playing the blues because he’s got nothing else and nowhere else to play.
 

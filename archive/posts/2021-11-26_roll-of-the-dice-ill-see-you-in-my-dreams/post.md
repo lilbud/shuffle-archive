@@ -30,21 +30,21 @@ But when Casey told me that she holds Nora as if every time might be the last, w
 
 When I listen to “I’ll See You in My Dreams” tonight, I don’t hear Bruce’s voice or even my own. I hear my daughter’s voice singing it, and her daughter’s voice. And even though Bruce wrote it as as a song of heartbreak, remembrance and defiance, to me it’s now a song of comfort, life, and promise.
 
-*The road is long and seeming without end*
-*The days go on, I remember you my friend*
-*And though you’re gone and my heart’s been empty it seems*
-*I’ll see you in my dreams*
+> *The road is long and seeming without end*
+> *The days go on, I remember you my friend*
+> *And though you’re gone and my heart’s been empty it seems*
+> *I’ll see you in my dreams*
 
-*I got your guitar here by the bed*
-*All your favorite records and all the books that you read*
-*And though my soul feels like it’s been split at the seams*
-*I’ll see you in my dreams*
+> *I got your guitar here by the bed*
+> *All your favorite records and all the books that you read*
+> *And though my soul feels like it’s been split at the seams*
+> *I’ll see you in my dreams*
 
-*I’ll see you in my dreams when all our summers have come to an end*
-*I’ll see you in my dreams, we’ll meet and live and laugh again*
-*I’ll see you in my dreams, up around the river bend*
-*For death is not the end*
-*And I’ll see you in my dreams*
+> *I’ll see you in my dreams when all our summers have come to an end*
+> *I’ll see you in my dreams, we’ll meet and live and laugh again*
+> *I’ll see you in my dreams, up around the river bend*
+> *For death is not the end*
+> *And I’ll see you in my dreams*
 
 Bruce writes from the perspective of the one left behind, and his song is laced with loss. He’s at the age when Death is a more frequent visitor, and his heart has been emptied, his soul torn.
 

@@ -20,14 +20,14 @@ Bruce’s song is focused on more intimate conflicts than Pete’s song, but the
 
 Our muddiest imbroglios often start in relative innocence, as Bruce (via Billy) relates below:
 
-*Billy had a mistress down on A and 12th*  
-*She was that little something that he did for himself*  
-*His own little secret didn’t hurt nobody*  
-*Come the afternoon he’d take her wading*
+> *Billy had a mistress down on A and 12th*
+> *She was that little something that he did for himself*
+> *His own little secret didn’t hurt nobody*
+> *Come the afternoon he’d take her wading*
 
-*Waist deep in the big muddy*  
-*Waist deep in the big muddy*  
-*You start out standing but end up crawling, sonny*
+> *Waist deep in the big muddy*
+> *Waist deep in the big muddy*
+> *You start out standing but end up crawling, sonny*
 
 Notice how Billy rationalizes his infidelity: his mistress is just a “little something that he did for himself.” He works hard, and presumably takes good care of his family. Doesn’t he deserve a little special treatment? Especially if no one else knows, who does it hurt?
 
@@ -37,22 +37,22 @@ One verse in, and we’ve got a *triple* entendre–and in a song that’s all a
 
 In the second verse, the scene shifts–similar, in a way, to “Reason to Believe,” in which Bruce uses vignettes rather than an overarching narrative to illustrate a point.
 
-*Got in some trouble and needed a hand from a friend of mine*  
-*This old friend had a figure in mind*  
-*It was nothing illegal, just a little bit funny*  
-*He said “C’mon don’t tell me that the rich don’t know, sonny*  
-*Sooner or later it all comes down to money”*
+> *Got in some trouble and needed a hand from a friend of mine*
+> *This old friend had a figure in mind*
+> *It was nothing illegal, just a little bit funny*
+> *He said “C’mon don’t tell me that the rich don’t know, sonny*
+> *Sooner or later it all comes down to money”*
 
-*And you’re waist deep in the big muddy*  
-*Waist deep in the big muddy*  
-*You start on higher ground but end up crawling, sonny*
+> *And you’re waist deep in the big muddy*
+> *Waist deep in the big muddy*
+> *You start on higher ground but end up crawling, sonny*
 
 What kind of trouble did Bruce (now singing in the first person) find himself in? We never learn, but it was dire enough to require some specialized help from a “friend” who knew he had the singer over a barrel. “Sooner or later it all comes down to money,” he says, and if you’ve got it, you can buy your way out of most kinds of trouble. And when you know you can do that, what does that do to your moral rudder?
 
 The crux of the song comes in the bridge:
 
-*Well I had a friend, said “You watch what you do*  
-*Poison snake bites you and you’re poison too”*
+> *Well I had a friend, said “You watch what you do*
+> *Poison snake bites you and you’re poison too”*
 
 Most accounts of this song cite this adage as a direct quote from Pete Dexter’s novel *Paris Trout,* and the notion does indeed come from that story. But the original line isn’t about a snake–it’s about a fox, cleverer and therefore far more dangerous than a snake:
 > She passed the windows wide, averting her eyes, and when she was safely by and looked in front of herself again, she saw the fox. He was dull red and tired and seemed in some way to recognize her.     She stopped cold in her tracks, the fox picked up his head. She took a slow step backwards, and he followed her, keeping the same distance. Then he moved again, closer, and seemed to sway. She heard her own breathing as she backed away.     The movement only seemed to draw him; something drew him. "Please, Mr. Fox," she said, "don't poison me. I be out of your way, as quick as you seen me, I be gone."     She knew foxes had turned poisonous from her brothers. Worse than a snake. She stopped again, and he stopped with her. Her brothers said when the poison fox bit you, you were poison too.     The fox cocked his head, and she began to run. She didn't know where. Her legs were strong; but before she had gone ten steps, they seemed to tangle in each other, and she was surprised, looking down just before she fell, to see the fox between them. Then she closed her eyes and hit the ground.     She never felt the bites. The fox growled—the sound was higher-pitched than a dog, and busier—and then she kicked out with her heels and felt his coat and the bones beneath it. He cried out, and when she kicked again nothing was there.     She opened her eyes, and as fast as he had come he was gone.     She stood up slowly, collecting her breath, and dusted herself off. She was thorough about it, she didn't like to be dirty, and it was only when her hand touched the inside of her calf and felt blood that she knew that he had opened her up.     She saw the bites then, two small openings on the same leg, closer to her ankle than her knee. The blood wasn't much and had already dried everywhere except near the tears in the skin. She sat back down on the ground and began to cry. The clay was scorched, but she didn't feel that either.     She cried because she was poisoned.
@@ -63,14 +63,14 @@ Having the full context of that passage helps us appreciate Bruce’s intent in 
 
 Just in case the song’s message is too subtle, Bruce makes it explicit in the final verse:
 
-*Well how beautiful the river flows and the birds they sing*  
-*But you and I we’re messier things*  
-*There ain’t no one leaving this world buddy*  
-*Without their shirttail dirty or hands a little bloody*
+> *Well how beautiful the river flows and the birds they sing*
+> *But you and I we’re messier things*
+> *There ain’t no one leaving this world buddy*
+> *Without their shirttail dirty or hands a little bloody*
 
-*Waist deep in the big muddy*  
-*Waist deep in the big muddy*  
-*You start on higher ground but end up somehow crawling, sonny*
+> *Waist deep in the big muddy*
+> *Waist deep in the big muddy*
+> *You start on higher ground but end up somehow crawling, sonny*
 
 In other words, let’s not judge Billy or the singer, because we’re all a little dirty and bloody. We wade through life in a series of compromises, moral and otherwise, and we do our best to keep our head above water.
 

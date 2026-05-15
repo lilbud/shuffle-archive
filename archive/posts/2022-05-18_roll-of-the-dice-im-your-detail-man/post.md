@@ -10,7 +10,7 @@ At some point during the festivities an impromptu jam session broke out, and amo
 
 By way of introduction, Stamos wrote:
 
-*"This happened 25 years ago (no Stamos, it wasn't a dream) It was John Fogerty 's intimate 50th surprise birthday party. Now, I promised super cool Julie Fogerty that I would never let this private home-spun video out of my hands. (posting wasn't even close to being a thing yet) But sitting around during this time, scanning through old videos, I figured it would be extremely special for people to see these two SUPERNOVA'S, two of music's biggest and most legendary ICONS sing and play together. (In John's living room, no less) So I asked Julie if it was okay to post a bit … she said, "Sure, and when this whole thing is over, let's have a barbecue." I f'n love John & Julie Fogerty so much! Thank you for this unforgettable, once in a lifetime, unimaginable, most incredible musical moment of my life!"*
+> *"This happened 25 years ago (no Stamos, it wasn't a dream) It was John Fogerty 's intimate 50th surprise birthday party. Now, I promised super cool Julie Fogerty that I would never let this private home-spun video out of my hands. (posting wasn't even close to being a thing yet) But sitting around during this time, scanning through old videos, I figured it would be extremely special for people to see these two SUPERNOVA'S, two of music's biggest and most legendary ICONS sing and play together. (In John's living room, no less) So I asked Julie if it was okay to post a bit … she said, "Sure, and when this whole thing is over, let's have a barbecue." I f'n love John & Julie Fogerty so much! Thank you for this unforgettable, once in a lifetime, unimaginable, most incredible musical moment of my life!"*
 
 We can forgive Stamos his fanboy excitement–who among us wouldn’t have that reaction playing with some of rock’s most legendary icons?
 
@@ -24,38 +24,38 @@ The song is called–we *think*–“I’m Your Detail Man,” and based on the 
 
 “I’m Your Detail Man” is a straight-up party rocker laced with double entendre from start to finish, a boast and a pledge from an attentive lover to his girl. (Given its provenance, I suspect Bruce wrote it around the same time as “[Red Headed Woman](https://estreetshuffle.com/index.php/2021/09/15/roll-of-the-dice-red-headed-woman/).”)
 
-*Well baby, I’m a hundred percent guaranteed*
-*Honey, I’m a finisher that you need*
-*I’m your detail man*
-*Baby, I’m your detail man*
-*You want to drive down here any time day or night*
-*Call your detail man*
+> *Well baby, I’m a hundred percent guaranteed*
+> *Honey, I’m a finisher that you need*
+> *I’m your detail man*
+> *Baby, I’m your detail man*
+> *You want to drive down here any time day or night*
+> *Call your detail man*
 
-*Well I’ll dot all your I’s and I’ll cross all your T’s*
-*From your ruby red lips down to your knees*
-*I’m a detail man*
-*Baby, I’m a detail man*
-*You want the job done right any time day or night*
-*Call a detail man*
+> *Well I’ll dot all your I’s and I’ll cross all your T’s*
+> *From your ruby red lips down to your knees*
+> *I’m a detail man*
+> *Baby, I’m a detail man*
+> *You want the job done right any time day or night*
+> *Call a detail man*
 
-*Well, a detail man who never leave you in doubt*
-*I just go to places other men ain’t even read about*
-*I’m a detail man*
-*Sugar, I’m a detail man*
-*You want to drive, come ’round any time day or night*
-*Call your detail man*
+> *Well, a detail man who never leave you in doubt*
+> *I just go to places other men ain’t even read about*
+> *I’m a detail man*
+> *Sugar, I’m a detail man*
+> *You want to drive, come ’round any time day or night*
+> *Call your detail man*
 
-*Don’t matter if you’re custom, don’t matter if you’re stock*
-*Have you purring like a kitty and humming like a clock*
-*If you want someone to spit and shine*
-*Call me little girl and you’re mine*
+> *Don’t matter if you’re custom, don’t matter if you’re stock*
+> *Have you purring like a kitty and humming like a clock*
+> *If you want someone to spit and shine*
+> *Call me little girl and you’re mine*
 
-*Well it’s as easy as ???*
-*Come to work professionalism ain’t a dirty word*
-*I’m a detail man*
-*I’m a detail man*
-*You want to drive come ’round any time day or night*
-*Call the detail man*
+> *Well it’s as easy as ???*
+> *Come to work professionalism ain’t a dirty word*
+> *I’m a detail man*
+> *I’m a detail man*
+> *You want to drive come ’round any time day or night*
+> *Call the detail man*
 
 The lyrics are very much in keeping with the playful trifles Bruce tossed off during the early to mid-nineties, and the only thing that gives me even the slightest hesitation in unequivocally declaring it an original song is that the jam band seems a bit too familiar with the song for it to be something Bruce pulled out of his hat at the party. Still, there’s no telling whether and for how long they’d rehearsed, and neither Stamos nor Bruce has ever said anything further about it.
 

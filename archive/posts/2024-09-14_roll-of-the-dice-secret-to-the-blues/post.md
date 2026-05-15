@@ -16,13 +16,13 @@ In any event, both “Bopping” and “Secret” are essentially excuses for th
 
 Lyrically, “Secret to the Blues” has been distilled down to a handful of lines that amount to the mission statement of a blues musician with a blue-collar day job.
 
-*Well now it’s a [insert day of week here] night and I’ll be sitting in my seat all alone*
-*And I’m feeling kind of tired from working all day, but not tired enough to go on home*
-*So sit back and let loose ’cause that’s the secret to the blues*
+> *Well now it’s a [insert day of week here] night and I’ll be sitting in my seat all alone*
+> *And I’m feeling kind of tired from working all day, but not tired enough to go on home*
+> *So sit back and let loose ’cause that’s the secret to the blues*
 
-*Oh we got the Funky Chicken on the bass, [unintelligible nickname for Dan Federici] on the keys*
-*Well when Big Man plays the saxophone, them teenyboppers fall right to their knees*
-*So sit back and be loose, it’s the secret to the blues*
+> *Oh we got the Funky Chicken on the bass, [unintelligible nickname for Dan Federici] on the keys*
+> *Well when Big Man plays the saxophone, them teenyboppers fall right to their knees*
+> *So sit back and be loose, it’s the secret to the blues*
 
 That’s “Funky” Garry Tallent Bruce is referring to, and of course we know who the Big Man is. Both “Bopping” and “Secret” served to spotlight the band members in ways that songs like “Rosalita (Come Out Tonight)” and “Kitty’s Back” would soon do.
 

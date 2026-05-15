@@ -6,14 +6,14 @@ Bruce Springsteen co-wrote four songs on Joe Grushecky’s 1998 album, *Coming H
 
 It’s also more than a little unjustly ironic, because it’s Joe’s first track following the artistic success but commercial failure of *American Babylon.* One can’t help but reflect that everything *didn’t* work out right, which makes the opening verse and chorus by this teacher-by-day/rocker-by-night all the more meaningful:
 
-*Don’t ever lose your faith in me*
-*Because I will never let you down*
-*If I have to work seven days a week*
-*And drive myself into the ground*
+> *Don’t ever lose your faith in me*
+> *Because I will never let you down*
+> *If I have to work seven days a week*
+> *And drive myself into the ground*
 
-*I will always take good care of you*
-*No matter what I’ll be there*
-*I’ll be there for you and I know that*
+> *I will always take good care of you*
+> *No matter what I’ll be there*
+> *I’ll be there for you and I know that*
 
 “Everything’s Going to Work Out Right” is a song that’s rooted in the personal but resonates universally. There are times when we all need a song like that, especially during a global pandemic–which is why Joe broke it out last summer for his contribution to Feeding America’s Rock for Relief benefit.
 

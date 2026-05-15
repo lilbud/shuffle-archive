@@ -14,57 +14,57 @@ Bruce kind of spoils the song in the introduction, doesn’t he?
 
 There’s never any indication in the song that Mary isn’t faithfully waiting for her soldier to return home, but Bruce’s cynical explanation (“And they never do!”) supported by a Greek chorus of jeers (and a snide “Dear John…”) imply that Bruce and the boys view their protagonist as naïve and foolish for believing his girl will wait for him.
 
-*And we’ll all man the guns for America*
-*And we’ll all run the enemy home*
-*And we’ll all man the guns for America*
-*Just be there when I get home*
+> *And we’ll all man the guns for America*
+> *And we’ll all run the enemy home*
+> *And we’ll all man the guns for America*
+> *Just be there when I get home*
 
-*Come to me Mary, oh I wanna know*
-*If you still love me, like you told me so*
-*Meet me by the river*
-*Meet me in the field*
-*Underneath that old oak tree*
-*Oh won’t you say you will*
+> *Come to me Mary, oh I wanna know*
+> *If you still love me, like you told me so*
+> *Meet me by the river*
+> *Meet me in the field*
+> *Underneath that old oak tree*
+> *Oh won’t you say you will*
 
-*When the rooster crows*
-*And the train whistle blows*
-*That’s when I’ll be gone*
-*You see I got a job to do*
-*My country is at war*
-*But I’d fight the fiercest battle*
-*And I’d cross the roughest land*
-*If only I could be sure*
-*I’d have my Mary’s hand*
+> *When the rooster crows*
+> *And the train whistle blows*
+> *That’s when I’ll be gone*
+> *You see I got a job to do*
+> *My country is at war*
+> *But I’d fight the fiercest battle*
+> *And I’d cross the roughest land*
+> *If only I could be sure*
+> *I’d have my Mary’s hand*
 
-*And we’ll all man the guns for America*
-*And we’ll all run the enemy home*
-*And we’ll all man the guns for America*
-*The sooner it’s done*
-*The sooner we’ve won*
-*The sooner I’ll be home*
+> *And we’ll all man the guns for America*
+> *And we’ll all run the enemy home*
+> *And we’ll all man the guns for America*
+> *The sooner it’s done*
+> *The sooner we’ve won*
+> *The sooner I’ll be home*
 
-*In my dreams I hear the cannon*
-*Thundering in the night*
-*But sometimes I wake up screaming*
-*I’ve soaked my bed in fright*
-*We’ll tomorrow I’ll be leaving*
-*And I might never come back again*
-*You know I said that I will*
-*I’m a God-fearing patriotic man*
+> *In my dreams I hear the cannon*
+> *Thundering in the night*
+> *But sometimes I wake up screaming*
+> *I’ve soaked my bed in fright*
+> *We’ll tomorrow I’ll be leaving*
+> *And I might never come back again*
+> *You know I said that I will*
+> *I’m a God-fearing patriotic man*
 
-*Won’t you meet me ‘neath that old oak tree*
-*Fast as I can*
-*You see I’ve got my duty to do*
-*As a God-fearing patriotic man*
-*But I’d fight the fiercest battle*
-*And I’d walk the roughest land*
-*If only I could be sure*
-*I’d have Mary’s hand*
+> *Won’t you meet me ‘neath that old oak tree*
+> *Fast as I can*
+> *You see I’ve got my duty to do*
+> *As a God-fearing patriotic man*
+> *But I’d fight the fiercest battle*
+> *And I’d walk the roughest land*
+> *If only I could be sure*
+> *I’d have Mary’s hand*
 
-*And we’ll all man the guns for America*
-*And we’ll all run the enemy home*
-*And we’ll all man the guns for America*
-*The sooner it’s done, the sooner we’ve won, the sooner I’ll get home*
+> *And we’ll all man the guns for America*
+> *And we’ll all run the enemy home*
+> *And we’ll all man the guns for America*
+> *The sooner it’s done, the sooner we’ve won, the sooner I’ll get home*
 
 Still… it’s hard to hear those lyrics and not wonder if Bruce hadn’t also intended Mary to be a stand-in for America itself. Would the soldier’s country stand by him when he returned?
 

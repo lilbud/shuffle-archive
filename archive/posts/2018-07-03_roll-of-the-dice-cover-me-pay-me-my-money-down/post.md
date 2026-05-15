@@ -8,10 +8,10 @@ Which is a little ironic, if you think about it, because “Pay Me” originates
 
 The “down” in the title/chorus means “now” — so the song is actually a demand to be paid on the spot. Because the lyrics alternate call-and-response with “Pay me my money down,” the lyrics are often misunderstood:
 
-*I thought I heard the captain say*  
-*Pay me my money down*  
-*Tomorrow is our sailing day*  
-*Pay me my money down*
+> *I thought I heard the captain say*
+> *Pay me my money down*
+> *Tomorrow is our sailing day*
+> *Pay me my money down*
 
 The captain isn’t saying “pay me my money down.” He’s saying “tomorrow is our sailing day”– in other words, promising that he’ll still be around tomorrow to pay them but fully intending to slip off in the night. The stevedores will have none of it, of course.
 

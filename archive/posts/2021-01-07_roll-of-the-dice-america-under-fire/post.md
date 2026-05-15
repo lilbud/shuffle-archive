@@ -16,37 +16,37 @@ America’s societal ills are worse then when he left, and for all his sacrifice
 
 It must be *someone’s* fault, though.
 
-*Conquered freak soldiers return from the war*
-*And the stares of their countrymen look just as they did before*
-*And the women whom they love have all turned into whores*
-*And the band still can’t play any better than before*
+> *Conquered freak soldiers return from the war*
+> *And the stares of their countrymen look just as they did before*
+> *And the women whom they love have all turned into whores*
+> *And the band still can’t play any better than before*
 
-*And I’m tired and I think I will remain*
-*For America’s under fire, the sky’s turning grey*
+> *And I’m tired and I think I will remain*
+> *For America’s under fire, the sky’s turning grey*
 
-*They step off the train and wonder who’s to blame*
-*For all this madness and sorrow*
-*The streets are filled with blind men, all viciously insane*
-*You stand there and they hand you a cup and a cane*
+> *They step off the train and wonder who’s to blame*
+> *For all this madness and sorrow*
+> *The streets are filled with blind men, all viciously insane*
+> *You stand there and they hand you a cup and a cane*
 
-*And I’m tired and I think I will remain*
-*For America’s under fire, and the sky’s turning grey*
+> *And I’m tired and I think I will remain*
+> *For America’s under fire, and the sky’s turning grey*
 
-*And the bombs they go boom like a big red balloon in the evening sky*
-*And the rockets they burst and shatter the earth, making the little girls cry*
-*And the bells they are ringing and the children are singing, oh, but they don’t*
-*know why*
-*And the airplanes are strafing and the people are laughing*
-*They know not what it is to cry*
+> *And the bombs they go boom like a big red balloon in the evening sky*
+> *And the rockets they burst and shatter the earth, making the little girls cry*
+> *And the bells they are ringing and the children are singing, oh, but they don’t*
+> *know why*
+> *And the airplanes are strafing and the people are laughing*
+> *They know not what it is to cry*
 
-*Mother and daddy, give them a kiss and shake his hand*
-*Congratulations my son on becoming a man*
-*And the generals can’t see the reason*
-*There’s such a high percentage of treason*
-*They’re quite sure that it must just be the season*
+> *Mother and daddy, give them a kiss and shake his hand*
+> *Congratulations my son on becoming a man*
+> *And the generals can’t see the reason*
+> *There’s such a high percentage of treason*
+> *They’re quite sure that it must just be the season*
 
-*And I’m tired and I think I will remain*
-*For America’s under fire, and the sky’s turning grey*
+> *And I’m tired and I think I will remain*
+> *For America’s under fire, and the sky’s turning grey*
 
 The band changes up the melody to a circus tune during the bridge, and the meaning couldn’t be more obvious. But just in case, Bruce appends an outro that blends the end of “America the Beautiful” with the theme song from “The Mickey Mouse Club.” (Bruce might have had a fully developed sense of empathy at age 20, but he still had room to grow when it came to subtlety.)
 

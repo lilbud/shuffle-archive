@@ -41,54 +41,54 @@ Stylistically, “Song for Orphans” falls somewhere in between the gritty real
 
 But “Song for Orphans” is a beautiful song nonetheless (especially in its resurrected 2005 form), ornamented in fine if typical early Springsteen style:
 
-*The multitude assembled and tried to make the noise*
-*Them black blind poet generals and restless loud white boys*
-*But times grew thin and the axis was left somehow incomplete*
-*Where instead of child lions was left aging junkie sheep*
+> *The multitude assembled and tried to make the noise*
+> *Them black blind poet generals and restless loud white boys*
+> *But times grew thin and the axis was left somehow incomplete*
+> *Where instead of child lions was left aging junkie sheep*
 
 Perhaps more so than in any other of his contemporary songs, Bruce wastes no time romanticizing the situation but rather immediately establishes the cost that drug addiction has exacted from the kids on this particular street. (Although never expressly stated, the “orphans” are implied to be runaways or perhaps abandoned rather than true orphans.) At the prime of their youth, they were already feeling ravaged.
 
-*And how many wasted have I seen signed “Hollywood or bust”*
-*Left to ride those ever ghostly Arizona gusts*
-*Oh, cheerleader tramps and kids with big amps soundin’ helpless in the void*
-*High society vamps and ex-heavyweight champs mistakin’ soot for soil*
+> *And how many wasted have I seen signed “Hollywood or bust”*
+> *Left to ride those ever ghostly Arizona gusts*
+> *Oh, cheerleader tramps and kids with big amps soundin’ helpless in the void*
+> *High society vamps and ex-heavyweight champs mistakin’ soot for soil*
 
 Although not well-traveled at the time, as an aspiring musician Bruce had obviously encountered his share of fellow wayward dreamers (he buries the reference to would-be rock stars, but we can’t help but suspect that it’s the fear that drives the song), but he also notes that time in the spotlight can be exceedingly brief, and the way down can be as hard as the way up.
 
 And now we have our first chorus, although musically it’s indistinguishable from a verse in the demo version:
 
-*So break me now big Mama as Old Faithful breaks the day*
-*Believe me my good Linda, let the aurora shine the way*
-*The confederacy, she’s in my name now, and the hounds are held at bay*
-*Oh the axis needs a stronger arm, do you feel your muscle play*
+> *So break me now big Mama as Old Faithful breaks the day*
+> *Believe me my good Linda, let the aurora shine the way*
+> *The confederacy, she’s in my name now, and the hounds are held at bay*
+> *Oh the axis needs a stronger arm, do you feel your muscle play*
 
 Although I like to think I’m pretty adept at interpreting and contextualizing Bruce’s lyrics, every once in a while some of them escape me. The chorus to “Song for Orphans” is one of those times. To my ears, it sounds awkward and clunky, with a half-dozen different metaphors, none of which are fully realized. Given that Bruce didn’t set it apart musically, I can’t help but wonder why he included it at all. He must have been trying to say something with it, and if I had to take a stab at it, I’d say that Bruce’s narrator is re-affirming his commitment and determination to escape the street at all costs, but honestly that’s a guess that’s based more on insight from contemporary work than from these words themselves. (If you can explain the chorus, by all means please leave a comment and enlighten me!)
 
-*The doorstep blanket weaver, oh Madonna pushes bells*
-*From house to house I see her givin’ last kisses and wishin’ well*
-*To every gypsy mystic and hero that all the babies might find a place*
-*Who’ve been lost to true fathers and mothers on their time travels deep in space*
+> *The doorstep blanket weaver, oh Madonna pushes bells*
+> *From house to house I see her givin’ last kisses and wishin’ well*
+> *To every gypsy mystic and hero that all the babies might find a place*
+> *Who’ve been lost to true fathers and mothers on their time travels deep in space*
 
 As the song continues, we’re now deep in orphan metaphor, as a Madonna searches for foster homes for abandoned children. Bruce strongly implies that for these kids, drug abuse is generational–their true parents lost in “time travels deep in space.” (Bruce thought it necessary to re-write that one line as “weekends deep in space” for his 2005 version. I don’t know why.) And the homes that take in the kids… well, they don’t last long either:
 
-*Now the sons return for fathers, but the fathers are all gone*
-*Oh and the lost souls search for saviors, but saviors don’t last long*
-*Those aimless questless renegade brats who live their lives in song*
-*Run the length of a candle, and in a goodnight whisper and a puff they’re gone*
+> *Now the sons return for fathers, but the fathers are all gone*
+> *Oh and the lost souls search for saviors, but saviors don’t last long*
+> *Those aimless questless renegade brats who live their lives in song*
+> *Run the length of a candle, and in a goodnight whisper and a puff they’re gone*
 
 “Song for Orphans” tends to be heavy-handed and over-laden with metaphor, but a few lines–that last “length of a candle” one in particular–are delicate and lovely.
 
 That subtlety is short-lived, however. Bruce ends the song on an even more brutal note than he began it with–his street orphans are locked out and preyed on, and even the one friendly soul–an old travelling musician who appoints himself a mentor–encourages the kids to give up their dreams and embrace grim reality to survive.
 
-*The missions are filled with hermits lookin’ for a friend*
-*The terraces are filled with cat-men lookin’ for a way in*
-*And orphans abandoned on silver mountains are jumped in celestial alleyways*
-*Wait for that old tramp Dog Man Moses ’cause he takes in all the strays*
+> *The missions are filled with hermits lookin’ for a friend*
+> *The terraces are filled with cat-men lookin’ for a way in*
+> *And orphans abandoned on silver mountains are jumped in celestial alleyways*
+> *Wait for that old tramp Dog Man Moses ’cause he takes in all the strays*
 
-*He told me, “don’t grow on empty legends, boy, or lonely cradle songs*
-*‘Cause Billy the Kid was just a bowery boy who made a living twirlin’ his guns*
-*And this night she’ll be long and lanky, and she’ll speak in a mother tongue”*
-*And then he lullabied the refugees with an amplifier’s hum*
+> *He told me, “don’t grow on empty legends, boy, or lonely cradle songs*
+> *‘Cause Billy the Kid was just a bowery boy who made a living twirlin’ his guns*
+> *And this night she’ll be long and lanky, and she’ll speak in a mother tongue”*
+> *And then he lullabied the refugees with an amplifier’s hum*
 
 It’s a fascinating song, isn’t it? But like I wrote earlier, it just doesn’t feel like it was destined for classic status, even if Bruce had included it on one of his early albums.
 

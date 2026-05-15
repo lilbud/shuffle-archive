@@ -14,13 +14,13 @@ Well, sort of. The lyrics are kind of a downer, but that music box was playing a
 
 The chorus of “Plaisir d’Amour” translates to…
 
-*Pleasure of love only lasts a moment*
-*Heartache lasts a lifetime*
+> *Pleasure of love only lasts a moment*
+> *Heartache lasts a lifetime*
 
 …with verses like:
 
-*I gave up everything for the ungrateful Sylvia*
-*She left me for another lover*
+> *I gave up everything for the ungrateful Sylvia*
+> *She left me for another lover*
 
 So calling it a “European love song” might have been a bit of a stretch.
 

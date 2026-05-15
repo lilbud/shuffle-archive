@@ -14,36 +14,36 @@ You don’t. Listen for yourself:
 
 The lyrics are perfectly suited for a performer like Bonds, late in his career but young enough to remember the throes of young love. The song centers around an older-but-wiser narrator cautioning his younger protégé not to be fooled by the promise and promises of young love, because his love–both the person and the emotion–will inevitably disappoint.
 
-*She promises to be yours forever and always*
-*And you’re too young to know it don’t work out that way*
-*When she kisses you and your heart skips*
-*And you’re ten feet off the ground*
-*Soon you’ll be crying and that’s when you’ll have found*
+> *She promises to be yours forever and always*
+> *And you’re too young to know it don’t work out that way*
+> *When she kisses you and your heart skips*
+> *And you’re ten feet off the ground*
+> *Soon you’ll be crying and that’s when you’ll have found*
 
-*That your love is gonna let you down, boy*
-*Your love is gonna let you down*
-*Your love is gonna let you down, boy*
-*Your love is gonna let you down*
+> *That your love is gonna let you down, boy*
+> *Your love is gonna let you down*
+> *Your love is gonna let you down, boy*
+> *Your love is gonna let you down*
 
-*Well it’s kisses and sweet talk*
-*When she first starts coming 'round*
-*But soon tears start falling down*
-*You say every day she makes your dreams come true*
-*But soon those very dreams will be the death of you*
+> *Well it’s kisses and sweet talk*
+> *When she first starts coming 'round*
+> *But soon tears start falling down*
+> *You say every day she makes your dreams come true*
+> *But soon those very dreams will be the death of you*
 
 Bruce usually isn’t often this cynical with his lyrics, and if something about the narrator feels familiar, the bridge should provide a jolt of recognition:
 
 ***No cold denials, no one really lied***
 ***It was time spent, promises implied***
-*And suddenly you see something new in her eyes*
-*And in that moment you begin to realize*
+> *And suddenly you see something new in her eyes*
+> *And in that moment you begin to realize*
 
 Sound familiar? That’s because those lines also appear in Bruce’s “[Little White Lies](https://estreetshuffle.com/index.php/2018/03/20/roll-of-the-dice-little-white-lies/)” an outtake from *The River* that was released in that album’s anniversary box set in 2015:
 
 ***There were no cold denials, nobody really lied***
 ***It wasn't in the things we said, girl, just time spent, promises implied***
-*And when it began to fall apart eaten quietly away from the inside*
-*Bit by bit by those little white lies*
+> *And when it began to fall apart eaten quietly away from the inside*
+> *Bit by bit by those little white lies*
 
 [Watch on Youtube: Little White Lies (Studio Outtake - 1979)](https://www.youtube.com/watch?v=x6hpBol7W0M)
 
@@ -51,10 +51,10 @@ So yes, I realize this may be my obsession with tracing story arcs across multip
 
 But I’m not done–because check out the last verse of “Your Love:”
 
-*Lately you’ve been walking the streets at night (all night long)*
-*Like an empty shadow in the morning light (mm hmm)*
-*Like an empty shadow that’s suddenly found (oh yeah)*
-*That your love is gonna let you down*
+> *Lately you’ve been walking the streets at night (all night long)*
+> *Like an empty shadow in the morning light (mm hmm)*
+> *Like an empty shadow that’s suddenly found (oh yeah)*
+> *That your love is gonna let you down*
 
 If something about that verse tugs at you, there’s a reason for that, too–there’s another outtake from the same time period in which the narrator walks the street at night, looking for romance but always stumbling in a half-trance. But that narrator refuses to accept a cynical outlook, declaring “[My Love Will Not Let You Down.](https://estreetshuffle.com/index.php/2018/01/24/roll-of-the-dice-my-love-will-not-let-you-down/)”
 

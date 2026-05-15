@@ -1,6 +1,6 @@
 On the night of November 18, 2009, in the final week of the Working on a Dream Tour in Nashville, Bruce opened the encores with those words every Springsteen fan loves to hear:
 
-*“We’ve never played this before…”*
+> *“We’ve never played this before…”*
 
 And then without further ado, he launched into a just-for-Nashville cover of Johnny Cash’s “Ring of Fire” (taking full advantage of Curt Ramm).
 

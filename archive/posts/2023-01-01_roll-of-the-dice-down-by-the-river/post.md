@@ -12,17 +12,17 @@ There’s a lot here that foreshadows songs in Bruce’s near future, from an in
 
 Lyrically, the first verse is a bit tough to make out (it’s largely bluffed, which may be why Bruce proclaims at the end, “This song should be one verse!”), but the chorus and second verse are pretty clear:
 
-*So come on, down by the river*
-*Come on, come on*
-*Just come on, down by the river*
-*It’s alright*
+> *So come on, down by the river*
+> *Come on, come on*
+> *Just come on, down by the river*
+> *It’s alright*
 
-*Well baby, let me protect you little darling*
-*If you let me, I’ll be your friend*
-*I know, baby, if you’ll just let me in*
-*Well, every day just brings the same*
-*Every day it brings your same game*
-*But every night ???*
+> *Well baby, let me protect you little darling*
+> *If you let me, I’ll be your friend*
+> *I know, baby, if you’ll just let me in*
+> *Well, every day just brings the same*
+> *Every day it brings your same game*
+> *But every night ???*
 
 Not exactly Bruce’s most profound songwriting, but “Sax Song” obviously isn’t meant to be. It’s a straight up rocker that wouldn’t have fit thematically on *Darkness* but would have been right at home on *The River.*
 

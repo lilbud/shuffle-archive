@@ -20,24 +20,24 @@ The result is captivating and haunting:
 
 In time-honored fashion, Bruce did adapt the lyrics however, and he did so with callbacks to “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/)” that can’t be accidental:
 
-*Some say freedom is free, but I tend to disagree*
-*I say freedom is won through the barrel of a gun*
-*Had a brother in Iraq, he didn’t come back*
-*I ask why oh why do soldiers gotta die*
-*Some say freedom is free, but I tend to disagree*
-*I say freedom is won through the blood of someone’s son*
+> *Some say freedom is free, but I tend to disagree*
+> *I say freedom is won through the barrel of a gun*
+> *Had a brother in Iraq, he didn’t come back*
+> *I ask why oh why do soldiers gotta die*
+> *Some say freedom is free, but I tend to disagree*
+> *I say freedom is won through the blood of someone’s son*
 
-*Some say freedom is free, but I tend to disagree*
-*I say freedom is won through the barrel of a gun*
-*Daddy died in Vietnam, he was killed at Khe Sanh*
-*I ask why oh why do soldiers gotta die*
-*Some say freedom is free, but I tend to disagree*
-*I say freedom is won through the blood of someone’s son*
+> *Some say freedom is free, but I tend to disagree*
+> *I say freedom is won through the barrel of a gun*
+> *Daddy died in Vietnam, he was killed at Khe Sanh*
+> *I ask why oh why do soldiers gotta die*
+> *Some say freedom is free, but I tend to disagree*
+> *I say freedom is won through the blood of someone’s son*
 
-*Some say freedom is free, but I tend to disagree*
-*I say freedom is won through the barrel of a gun*
-*Had a brother in Iraq, he didn’t come back*
-*I ask why oh why do soldiers gotta die*
+> *Some say freedom is free, but I tend to disagree*
+> *I say freedom is won through the barrel of a gun*
+> *Had a brother in Iraq, he didn’t come back*
+> *I ask why oh why do soldiers gotta die*
 
 The reference to a brother who didn’t come back, to a father who was killed at Khe Sanh–one can almost imagine the song is being sung by the son of the brother left in Khe Sanh in “[Born in the U.S.A.](https://estreetshuffle.com/index.php/2019/09/21/roll-of-the-dice-born-in-the-u-s-a/),” providing a through line that reminds us of our lasting duty to those who sacrifice for our freedom.
 

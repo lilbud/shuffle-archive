@@ -14,18 +14,18 @@ The fidelity isn’t exactly high–I can’t even make out all the lyrics–but
 
 In fact, we learn in the very first verse that the singer’s girl is dead, and that it’s his fault–but she should have known better anyway:
 
-*The moonlight dances on her face*
-*I got my lips ???*
-*I’m living the life of a lie*
-*It was for me, for me that she died*
+> *The moonlight dances on her face*
+> *I got my lips ???*
+> *I’m living the life of a lie*
+> *It was for me, for me that she died*
 
-*That’s what you get for loving me*
+> *That’s what you get for loving me*
 
 But it’s the second verse that rings with familiarity for Springsteen fans–listen to it again if you missed it the first time:
 
-*True love, unhappiness*
-*I fall down on my knees and I cry*
-*It’s my way of saying goodbye*
+> *True love, unhappiness*
+> *I fall down on my knees and I cry*
+> *It’s my way of saying goodbye*
 
 It would take another eighteen years, but that middle line would eventually make it (in slightly modified form) to an official release via “[Downbound Train.](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)”
 

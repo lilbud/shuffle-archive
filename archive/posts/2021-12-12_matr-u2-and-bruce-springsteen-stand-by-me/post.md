@@ -2,9 +2,9 @@
 
 ****Roll of the Dice, Cover Me, and Meeting Across the River take a brief holiday after today’s post so I can do my annual year-end site clean-up.*
 
-*Each December, I take a sweep through the site and replace broken video links, update song performance statistics, add cross-links to all the essays I wrote that year, and other miscellaneous tidying tasks. I’ve always managed to do it without taking time off, but each year adds another 365 or so essays, and now that we’re four years in… well, that’s a lot of reviewing and updating.*
+> *Each December, I take a sweep through the site and replace broken video links, update song performance statistics, add cross-links to all the essays I wrote that year, and other miscellaneous tidying tasks. I’ve always managed to do it without taking time off, but each year adds another 365 or so essays, and now that we’re four years in… well, that’s a lot of reviewing and updating.*
 
-*If I finish early, you might see a one-off or two from me if I feel so inspired, but more likely I’ll be building up a head of steam and cache of content for Year Five.*
+> *If I finish early, you might see a one-off or two from me if I feel so inspired, but more likely I’ll be building up a head of steam and cache of content for Year Five.*
 
 *Regular programming resumes on Christmas Eve. Have a great holiday season until then, and thanks for reading!****
 

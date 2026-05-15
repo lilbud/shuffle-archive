@@ -12,41 +12,41 @@ But here at Tinker’s place in the spring of 1972, we’re eavesdropping on a s
 
 There’s no point in analyzing “I Got to Have You, Baby.” Like much of the Bruce Springsteen Band’s original material, this is a breezy, bluesy number designed to serve as a showcase for the band members.
 
-*Well I got to have you, baby*
-*Oh got to hang on down*
-*Got to have you, Mama*
-*I know we can work it out*
+> *Well I got to have you, baby*
+> *Oh got to hang on down*
+> *Got to have you, Mama*
+> *I know we can work it out*
 
-*Because I got to have you, baby*
-*Yes, I got to have it in my soul*
-*Oh but if things don’t happen no faster*
-*I’ll pack up my clothes and move to Alaska*
+> *Because I got to have you, baby*
+> *Yes, I got to have it in my soul*
+> *Oh but if things don’t happen no faster*
+> *I’ll pack up my clothes and move to Alaska*
 
-*Ah, you know I need ya honey*
-*Oh goddess, yes I do*
-*You know I need you, baby*
-*[Steve] There ain’t nothing old Brucie wouldn’t do!*
+> *Ah, you know I need ya honey*
+> *Oh goddess, yes I do*
+> *You know I need you, baby*
+> *[Steve] There ain’t nothing old Brucie wouldn’t do!*
 
-*Because I got to have you, baby*
-*I got to have you in my soul*
-*Yes now you know I need you, honey*
-*Almost as much as I need rock and roll*
+> *Because I got to have you, baby*
+> *I got to have you in my soul*
+> *Yes now you know I need you, honey*
+> *Almost as much as I need rock and roll*
 
 And show off they do, first Sancious and then Steve, taking a rare guitar solo in a Springsteen original song.
 
-*I said I got to have you, baby*
-*Oh papa, ain’t no doubt*
-*Yes I got to have you, mama*
-*I know we can work it out*
+> *I said I got to have you, baby*
+> *Oh papa, ain’t no doubt*
+> *Yes I got to have you, mama*
+> *I know we can work it out*
 
-*Because I got to have you, baby*
-*I got to have you now in my soul*
-*Oh but don’t leave my heart broken*
-*I’ll pack up my clothes and move to Hoboken*
+> *Because I got to have you, baby*
+> *I got to have you now in my soul*
+> *Oh but don’t leave my heart broken*
+> *I’ll pack up my clothes and move to Hoboken*
 
-*Yes I got to have you, mama*
-*Lord, I got to have you, baby*
-*And you have got to have me*
+> *Yes I got to have you, mama*
+> *Lord, I got to have you, baby*
+> *And you have got to have me*
 
 If the band sounds comfortable with their material, that’s probably because it wasn’t their first run-through. We know they performed it at least once the previous September (we have a bootleg of that one too, although nowhere near as great-sounding as this one), and given the scarcity of set lists from that period, it’s likely that wasn’t the only time.
 

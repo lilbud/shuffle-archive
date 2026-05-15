@@ -60,28 +60,28 @@ With all this backstory, we haven’t even discussed the lyrics yet. Luckily, th
 
 In its kindest interpretation, “Talk to Me” is a sad sack’s tale, a poor schmo’s romantic lament.
 
-*Well every night I see a light shine in your window*
-*And every night you don’t answer when I come knocking at your door*
-*Well your daddy won’t ever let me in*
-*And I see from the street your silhouette sitting close to him*
-*What must I do, what does it take, to get you to*
+> *Well every night I see a light shine in your window*
+> *And every night you don’t answer when I come knocking at your door*
+> *Well your daddy won’t ever let me in*
+> *And I see from the street your silhouette sitting close to him*
+> *What must I do, what does it take, to get you to*
 
-*Talk to me, until the night’s over*
-*Little girl, won’t you talk to me, until the night’s over*
-*I got a full week’s pay*
-*And baby, I’ve been working hard each day*
-*I’m not asking for the world, you see*
-*I’m just asking, girl, talk to me*
+> *Talk to me, until the night’s over*
+> *Little girl, won’t you talk to me, until the night’s over*
+> *I got a full week’s pay*
+> *And baby, I’ve been working hard each day*
+> *I’m not asking for the world, you see*
+> *I’m just asking, girl, talk to me*
 
 Let’s not dwell *too* long on the lyrics, though, lest we realize they are more than a little bit stalker-ish. Let’s be charitable and assume that this poor guy is just clueless enough not to get the message being sent to him by the object of his affection.
 
 Maybe she’s tried to gently let him down. Maybe she’s told him not so gently. Maybe she’s just ignored him from the start. Regardless, he persists:
 
-*Well now late at night I hear the music softly playing*
-*And late at night I see the two of you softly swaying*
-*I don’t understand darling what was my sin*
-*Why am I down here below, your arms are open to him*
-*What did I do, what did I say, what must I pay, to get you to talk to me…*
+> *Well now late at night I hear the music softly playing*
+> *And late at night I see the two of you softly swaying*
+> *I don’t understand darling what was my sin*
+> *Why am I down here below, your arms are open to him*
+> *What did I do, what did I say, what must I pay, to get you to talk to me…*
 
 Okay, yeah, he’s a stalker.
 

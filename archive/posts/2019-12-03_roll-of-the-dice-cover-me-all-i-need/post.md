@@ -30,31 +30,31 @@ Bruce still sticks pretty close to that “It’s Gonna Work Out Fine” melody,
 
 The lyrics speak for themselves–not much is required in the way of analysis. This is a pure R&B pop song., with Bruce’s narrator finding all the validation he needs in the love of his girl.
 
-*Some men need riches and lots of money to spend*
-*Some men need power to hold over other men*
-*But not me, baby, girl you can believe*
-*I’m telling you my darling*
+> *Some men need riches and lots of money to spend*
+> *Some men need power to hold over other men*
+> *But not me, baby, girl you can believe*
+> *I’m telling you my darling*
 
-*You’re all I need in this world, girl*
+> *You’re all I need in this world, girl*
 
-*Some men need fine clothes, big diamond rings*
-*To feel like somebody some men need expensive things*
-*But I feel like somebody, girl, every time you look at me*
-*I don’t need nothing to remind me that*
+> *Some men need fine clothes, big diamond rings*
+> *To feel like somebody some men need expensive things*
+> *But I feel like somebody, girl, every time you look at me*
+> *I don’t need nothing to remind me that*
 
-*You’re all I need in this world, girl*
+> *You’re all I need in this world, girl*
 
-*And it’s hard to keep holding on*
-*When you put your arms around me, I feel strong*
+> *And it’s hard to keep holding on*
+> *When you put your arms around me, I feel strong*
 
-*Some men need a fine home on a far hillside*
-*Some men need a big car to show off as they ride*
-*Some men need a pretty woman just to walk by their side*
-*And some men need to see the fear in another man’s eyes*
-*But all I need baby, is all I can see*
-*When you wrap your loving arms around me*
+> *Some men need a fine home on a far hillside*
+> *Some men need a big car to show off as they ride*
+> *Some men need a pretty woman just to walk by their side*
+> *And some men need to see the fear in another man’s eyes*
+> *But all I need baby, is all I can see*
+> *When you wrap your loving arms around me*
 
-*You’re all I need in this world, girl*
+> *You’re all I need in this world, girl*
 
 “All I Need” is such confection perfection that we’ll set aside its irony: a protagonist who pooh-poohs men who require external validation for internal confidence and security, but who ultimately owns up to the very same thing. This isn’t a song you think about–it’s a song you *feel*.
 

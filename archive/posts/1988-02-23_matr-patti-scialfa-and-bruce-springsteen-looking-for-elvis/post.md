@@ -8,20 +8,20 @@ Patti doesn’t verge into the civic arena with her songwriting very often, but 
 
 I’m always struck by the middle verse in particular–there’s an economy of language paired with powerful metaphor that just blows me away every time I hear it.
 
-*I remember*  
-*All those Septembers*  
-*The pledges of allegiance*  
-*The prayers of trust*  
-*I slept on those beds of hope and promise*  
-*Woke up choking on cheap paint and carnival dust*
+> *I remember*
+> *All those Septembers*
+> *The pledges of allegiance*
+> *The prayers of trust*
+> *I slept on those beds of hope and promise*
+> *Woke up choking on cheap paint and carnival dust*
 
-*So where are you now*  
-*With all those illusions*  
-*Fallen dreams and charity*  
-*If faith restores you*  
-*And truth delivers*  
-*Then don’t tell me that I’m standing*  
-*When I’m on my knees*
+> *So where are you now*
+> *With all those illusions*
+> *Fallen dreams and charity*
+> *If faith restores you*
+> *And truth delivers*
+> *Then don’t tell me that I’m standing*
+> *When I’m on my knees*
 
 Patti released “Looking For Elvis” as the lead-off track for her 2007 album, *Play It As It Lays*. Bruce released an album of his own that year, and for the life of me, I cannot figure out why he didn’t add “Looking For Elvis” to his tour set lists instead of “Town Called Heartbreak” (the first single from Patti’s album).
 

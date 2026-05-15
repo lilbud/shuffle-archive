@@ -22,55 +22,55 @@ Every future E Streeter shines in “The Fever” but its arguably Danny Federic
 
 There are indeed lyrics to “The Fever,” unnecessary as they may be, but there’s no story. Our narrator is an early prototype of a formula Bruce would tweak and nail years later: he has a job; he had a girl.
 
-*When I get home from my job, I turn on the TV*
-*But I can’t keep my mind on the show*
-*When I lay down at night, I don’t get no sleep*
-*So I turn on the radio*
-*But Lord, the only thing I hear is you whispering in my ear*
-*The words that you used to say*
-*Well now the days grow longer*
-*My love grows stronger*
-*The fever gets worse every day*
+> *When I get home from my job, I turn on the TV*
+> *But I can’t keep my mind on the show*
+> *When I lay down at night, I don’t get no sleep*
+> *So I turn on the radio*
+> *But Lord, the only thing I hear is you whispering in my ear*
+> *The words that you used to say*
+> *Well now the days grow longer*
+> *My love grows stronger*
+> *The fever gets worse every day*
 
 Somewhere along the line, our narrator screwed up, lost the girl, and hasn’t been able to move forward since. His job keeps his mind off of his romantic troubles during the day, but the nights… are long.
 
 At night, his memory takes over, and loss becomes need becomes hunger. Neither the TV nor the radio can block the sensory memories that haunt him.
 
-*I got the fever for this girl*
-*(He’s got the fever, oh he’s got the fever)*
-*Nothing that a boy can do*
-*(When he’s got the fever for a girl)*
-*(He’s got the fever, oh he’s got the fever)*
-*Left this little boy blue*
+> *I got the fever for this girl*
+> *(He’s got the fever, oh he’s got the fever)*
+> *Nothing that a boy can do*
+> *(When he’s got the fever for a girl)*
+> *(He’s got the fever, oh he’s got the fever)*
+> *Left this little boy blue*
 
 The narrator has more words to say, but no additional content. Like the narrator’s fever for the girl, Bruce’s lyrics and vocals build in intensity without ever being granted the gift of relief. (Speaking of, that last line of the chorus is one of Bruce’s most delightful double entendres on record, even if Bruce steps on it the first time.)
 
 We also have to note Clarence’s essential contributions. In my opinion, “when he’s got the fever for a girl” edges out “[kid, you better get the picture](https://estreetshuffle.com/index.php/2018/11/19/roll-of-the-dice-tenth-avenue-freeze-out/)” for Clarence’s best cameo vocal. But oh, that mid-song solo… “Jungleland” and “[Drive All Night](https://estreetshuffle.com/index.php/2018/02/27/roll-of-the-dice-drive-all-night/)” deservedly get the love, but Clarence’s performance in “The Fever” is sorely under-appreciated.
 
-*Well I can remember coming home*
-*See you standing at the stove*
-*With the dishes on the table*
-*Dinner ready to go*
-*Well maybe out to a movie show*
-*Something that you like to see*
-*Because you were my sun in the morning*
-*You are my moon at night*
-*When I think about it, makes me feel alright*
-*Well now the day grows longer*
-*The love just grows stronger*
-*And the fever gets so bad at night*
+> *Well I can remember coming home*
+> *See you standing at the stove*
+> *With the dishes on the table*
+> *Dinner ready to go*
+> *Well maybe out to a movie show*
+> *Something that you like to see*
+> *Because you were my sun in the morning*
+> *You are my moon at night*
+> *When I think about it, makes me feel alright*
+> *Well now the day grows longer*
+> *The love just grows stronger*
+> *And the fever gets so bad at night*
 
 Even Vini gets a rare moment in the vocal spotlight, joining Clarence for some Greek chorus-style commentary:
 
-*Well I can remember coming home, turning on my TV*
-*(But he can’t keep his mind on the show)*
-*When I lay down at night I cannot get no sleep*
-*So I turn on the radio*
-*But still the only thing I hear is you whispering in my ear*
-*Them words that you used to say*
-*And now the days grow longer*
-*And the love just grows stronger*
-*And the fever gets bad every day*
+> *Well I can remember coming home, turning on my TV*
+> *(But he can’t keep his mind on the show)*
+> *When I lay down at night I cannot get no sleep*
+> *So I turn on the radio*
+> *But still the only thing I hear is you whispering in my ear*
+> *Them words that you used to say*
+> *And now the days grow longer*
+> *And the love just grows stronger*
+> *And the fever gets bad every day*
 
 If you’re a Garry Tallent fan, though, it doesn’t get much better than around the six-minute mark, when Vini and Garry carry the song unaccompanied for a solid thirty seconds. The band finally reunites for the final minute, each member doing their own thing, but always in concert, finishing with a final, triumphant flourish from Vini.
 

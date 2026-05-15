@@ -10,17 +10,17 @@ Editor's Note
 
 [Watch on Youtube: Save My Love (Holmdel, NJ 76) (from Thrill Hill Vault 1976-1978)](https://www.youtube.com/watch?v=SN-ou-JqXqQ)
 
-*The River Tour rehearsal video that accompanied the The River anniversary box set, and the multi-camera Live in Tempe concert? Barry shot those too.*
+> *The River Tour rehearsal video that accompanied the The River anniversary box set, and the multi-camera Live in Tempe concert? Barry shot those too.*
 
 [Watch on Youtube: Bruce Springsteen - Cadillac Ranch (The River Tour Rehearsals)](https://www.youtube.com/watch?v=ypJO5gYTrIU)
 
-*Barry filmed Bruce’s legendary 1975 shows at The Bottom Line and The Roxy, and he filmed Bruce’s 1972 acoustic showcase at Max’s Kansas City. In a jaw-dropping 1973 clip that I’ve never seen outside of the 2019 Springsteen Archives event, Barry captured the original E Street Band performing a glorious “New York City Serenade.”*
+> *Barry filmed Bruce’s legendary 1975 shows at The Bottom Line and The Roxy, and he filmed Bruce’s 1972 acoustic showcase at Max’s Kansas City. In a jaw-dropping 1973 clip that I’ve never seen outside of the 2019 Springsteen Archives event, Barry captured the original E Street Band performing a glorious “New York City Serenade.”*
 
-*How did he manage to get such great footage? I asked him that, too, when I spoke to him by phone recently. Credit the right place, the right time, and very importantly: the know-how and inspiration to adapt some low-light security cameras into early portable video cameras that operated so unobtrusively and in such dim settings that very often no one even realized he was filming. As fans, we all share a debt of gratitude to Barry.*
+> *How did he manage to get such great footage? I asked him that, too, when I spoke to him by phone recently. Credit the right place, the right time, and very importantly: the know-how and inspiration to adapt some low-light security cameras into early portable video cameras that operated so unobtrusively and in such dim settings that very often no one even realized he was filming. As fans, we all share a debt of gratitude to Barry.*
 
-*Barry moved on to a successful and storied career in documentary film-making and was an early HDTV pioneer. He’s still a Springsteen fan, though, and on the way to a film festival in 2016, he had the opportunity to see Bruce and the boys in Europe for the first time.*
+> *Barry moved on to a successful and storied career in documentary film-making and was an early HDTV pioneer. He’s still a Springsteen fan, though, and on the way to a film festival in 2016, he had the opportunity to see Bruce and the boys in Europe for the first time.*
 
-*And he still captured moments on video (this time with an iPhone). Here’s his story.*
+> *And he still captured moments on video (this time with an iPhone). Here’s his story.*
 
 The Locarno Film Festival (Locarno, Switzerland) always plays the first week of August. It mixes the passion of the Italians with the organization and graciousness of the Swiss. Experienced together you have a wonderful right brain/left brain celebration of auteur cinema.
 

@@ -12,48 +12,48 @@ There are a few circulating acoustic demos of “Your Love Is All Around Me,” 
 
 Bruce doesn’t waste any time establishing the song’s theme: the first verse sounds like it could have been lifted from “You’re Missing” (if that song had been written two decades earlier), with a narrator surrounded by reminders of a lost love:
 
-*I wake up in the morning and your pictures there*
-*The closet’s filled baby with the clothes you used to wear*
-*I smile… I still got that ring baby on my finger*
-*Although you’re gone away your memory lingers, and ’cause*
+> *I wake up in the morning and your pictures there*
+> *The closet’s filled baby with the clothes you used to wear*
+> *I smile… I still got that ring baby on my finger*
+> *Although you’re gone away your memory lingers, and ’cause*
 
-*Your love is all around me now*
-*Your love is all around me now*
-*Your love is all around me now*
-*Around me now, around me now*
+> *Your love is all around me now*
+> *Your love is all around me now*
+> *Your love is all around me now*
+> *Around me now, around me now*
 
 When that first chorus comes in, we almost have to laugh: what would sound like a happy-in-love hook if quoted out of context is instead revealed to be the torment of a haunted husband who can’t escape the visible reminders of an ex-wife who abandoned him. In fact, “Your Love Is All Around Me” sounds very much like a cross between “You’re Missing” and “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/).”
 
 In the second verse, we learn the reason why our narrator can’t escape his ghost: he simply can’t bring himself to toss the only reminders he has left of the love he so desperately wants to cling to:
 
-*Baby baby when you went away*
-*I tried but I couldn’t throw these things away*
-*The color of your face, the smell of your hair*
-*I turn over at night and though there is no one there, baby*
+> *Baby baby when you went away*
+> *I tried but I couldn’t throw these things away*
+> *The color of your face, the smell of your hair*
+> *I turn over at night and though there is no one there, baby*
 
-*Your love is all around me now, tonight*
-*Your love is all around me now*
-*Your love is all around me now*
-*Around me now, around me now*
+> *Your love is all around me now, tonight*
+> *Your love is all around me now*
+> *Your love is all around me now*
+> *Around me now, around me now*
 
 And what’s worse, he knows full well that his emotional prison is one of his own making–but he prefers the torture to the inevitable half-life of lost love. Better to feel the pain if it helps you relive the glory than to lose even the memory of what it felt like to have it at all:
 
-*Now my friends tell me what I’m doing, right*
-*But they don’t have to walk in my shoes everyday, every night*
-*If it’s wrong or right baby I don’t know*
-*But I know I’d rather live like this than let it all go, 'cause*
+> *Now my friends tell me what I’m doing, right*
+> *But they don’t have to walk in my shoes everyday, every night*
+> *If it’s wrong or right baby I don’t know*
+> *But I know I’d rather live like this than let it all go, 'cause*
 
-*Your love is all around me now*
-*The love we had is gone but I still feel it*
-*Your love is all around me now*
-*Around me now, around me now*
+> *Your love is all around me now*
+> *The love we had is gone but I still feel it*
+> *Your love is all around me now*
+> *Around me now, around me now*
 
 What follows is a full three minutes of self-flagellating chorus riffing, with our narrator’s plaints turning progressively (and literally) darker:
 
-*Oh somebody turn out the light on me now*
-*Oh lady let this darkness come in*
-*Oh baby let the night fall around*
-*Oh let the darkness fall on me now*
+> *Oh somebody turn out the light on me now*
+> *Oh lady let this darkness come in*
+> *Oh baby let the night fall around*
+> *Oh let the darkness fall on me now*
 
 Like I said, this isn’t a happy song. But it’s an infectious one, and it would have been right at home on *Born in the U.S.A.,* an album full of darkly tinged songs with upbeat arrangements.
 

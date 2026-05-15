@@ -6,7 +6,7 @@ In 2017, Bruce got his first byline on an EDM single, but it happened by way of 
 
 Arty grew up in post-Soviet Russia–not exactly a major market for Bruce. But when Arty started charting in the U.S. around the turn of the decade, he started touring America. That’s when he discovered Bruce Springsteen. And by “discovered,” I mean he became fascinated.
 
-*"If you look at his live shows, it’s insane. There is so much energy for a concert that goes up three to four hours and there is just Bruce Springsteen singing the songs, completely controlling the crowd and they love it. There is no bigger inspiration than that.”*
+> *"If you look at his live shows, it’s insane. There is so much energy for a concert that goes up three to four hours and there is just Bruce Springsteen singing the songs, completely controlling the crowd and they love it. There is no bigger inspiration than that.”*
 
 Arty dove into Bruce’s catalog and became particularly enchanted with “[Atlantic City](https://estreetshuffle.com/index.php/2018/06/04/roll-of-the-dice-atlantic-city/).” It spoke to him, and he adapted it into a new song, “Supposed to Be.”
 

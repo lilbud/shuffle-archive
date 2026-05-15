@@ -14,32 +14,32 @@ But the star of “Wages of Sin” is Danny Federici, whose double-tracked organ
 
 Maybe you’ve been there, too. I certainly have.
 
-*When we fight and I wanna talk it out*
-*You won’t say nothing, nothing at all*
-*You just sit there, you won’t open that pretty mouth*
-*I think you like keeping my back up against the wall*
+> *When we fight and I wanna talk it out*
+> *You won’t say nothing, nothing at all*
+> *You just sit there, you won’t open that pretty mouth*
+> *I think you like keeping my back up against the wall*
 
 That first verse–man, that’s me. I’m the one who always wants to talk through whatever happened between my wife and me. And that second line–yeah, that’s my wife. When she’s angry or upset about something, she clams up. Sometimes for hours, sometimes for days.
 
 But that’s where the similarity ends. When the chorus enters, Bruce makes it clear that this isn’t ordinary relationship drama:
 
-*Wages of sin, you keep me paying*
-*Wages of sin, for wrongs that I’ve done*
-*Wages of sin, you keep me paying*
-*Wages of sin, one by one*
+> *Wages of sin, you keep me paying*
+> *Wages of sin, for wrongs that I’ve done*
+> *Wages of sin, you keep me paying*
+> *Wages of sin, one by one*
 
 We never do learn what our narrator did to earn his lover’s perennial silent treatment, but whatever it was it appears to have been a capital crime: the wages of sin are death (or so the bible says). The chorus appears to be a complaint, but it’s really a death rattle.
 
 In the next verse, things get darker still:
 
-*I walk in the apartment, there’s clothes thrown all over the place*
-*You’re crouched in the corner with makeup running down your face*
-*I don’t wanna believe what my heart keeps saying*
-*You keep me on the line so you can keep me paying*
-*Wages of sin, we keep paying*
-*Wages of sin, for the wrongs that we’ve done*
-*Wages of sin, yeah, we keep paying*
-*Wages of sin, that’s how we have our fun*
+> *I walk in the apartment, there’s clothes thrown all over the place*
+> *You’re crouched in the corner with makeup running down your face*
+> *I don’t wanna believe what my heart keeps saying*
+> *You keep me on the line so you can keep me paying*
+> *Wages of sin, we keep paying*
+> *Wages of sin, for the wrongs that we’ve done*
+> *Wages of sin, yeah, we keep paying*
+> *Wages of sin, that’s how we have our fun*
 
 Is she as cruel as he makes her out to be? Or is he merely oblivious to the pain she can’t describe? Is he the source of her despair, or is he just unable to understand it?
 
@@ -47,20 +47,20 @@ Either way, our lovers are caught in a death spiral, unable to let go even as th
 
 “Wages of Sin” takes a turn for the surreal at this point, as our narrator flashes back to his childhood and recalls a memory that shines a fascinating light on his inner demons:
 
-*I remember when I was a little boy out, out where the cottonwoods grow tall*
-*Trying to make it home through the forest before the darkness falls*
-*Baby all the sounds I heard, even if they weren’t real*
-*I was running down that broken path with the devil snapping at my heels*
-*I tried so hard, so hard in every way*
-*Swore someday I’d grow up and just throw it all away*
-*Cried all the tears, baby, that I could cry*
-*Stomached all my fears ’til they came rushing up inside*
-*Darling I’m losing and it’s a mean game*
-*Still I play on and on just the same*
-*Wages of sin, yeah, I keep paying*
-*Wages of sin, for some wrong that I’ve done*
-*Wages of sin, well, I keep paying*
-*Wages of sin, one by one*
+> *I remember when I was a little boy out, out where the cottonwoods grow tall*
+> *Trying to make it home through the forest before the darkness falls*
+> *Baby all the sounds I heard, even if they weren’t real*
+> *I was running down that broken path with the devil snapping at my heels*
+> *I tried so hard, so hard in every way*
+> *Swore someday I’d grow up and just throw it all away*
+> *Cried all the tears, baby, that I could cry*
+> *Stomached all my fears ’til they came rushing up inside*
+> *Darling I’m losing and it’s a mean game*
+> *Still I play on and on just the same*
+> *Wages of sin, yeah, I keep paying*
+> *Wages of sin, for some wrong that I’ve done*
+> *Wages of sin, well, I keep paying*
+> *Wages of sin, one by one*
 
 Let’s take a moment and acknowledge the familiar lyrics in this dream sequence–familiar, at least, to fans of Springsteen’s *Nebraska* album (or viewers of *Springsteen on Broadway*), because those very vivid first four lines eventually found their way to “[My Father’s House](https://estreetshuffle.com/index.php/2021/08/13/roll-of-the-dice-my-fathers-house/),” a superior song that put that scene to much, much more effective use.
 
@@ -76,17 +76,17 @@ In its earliest incarnation (earliest known, at least), besides a *very* differe
 
 [Watch on Youtube: Bruce Springsteen Wages of Sin #1](https://www.youtube.com/watch?v=-9qL_1vYKjA)
 
-*I seen a man carrying a heavy stone*
-*On his back out in the hot sun*
-*And I asked him if I could lift his weight*
-*He just said, “get away from me son”*
+> *I seen a man carrying a heavy stone*
+> *On his back out in the hot sun*
+> *And I asked him if I could lift his weight*
+> *He just said, “get away from me son”*
 
 The chorus seems closer to the final version than the verse–that is until we pay close attention and notice that our narrator seems a bit more clueless in this version–either unaware of or in denial about what he’s done to alienate his lover.
 
-*Wages of sin, I kept payin’*
-*Wages of sin for the wrongs I’ve done*
-*All my life I’ve been guilty*
-*But I don’t know what it is I’ve done*
+> *Wages of sin, I kept payin’*
+> *Wages of sin for the wrongs I’ve done*
+> *All my life I’ve been guilty*
+> *But I don’t know what it is I’ve done*
 
 That would soon change: in his next recorded attempt, Bruce has found the final melody, and a more familiar chorus emerges:
 
@@ -94,8 +94,8 @@ That would soon change: in his next recorded attempt, Bruce has found the final 
 
 More familiar, but not completely so–there’s a dodge at the end, a pronoun change to “we” that shares the blame with his lover rather than shoulder full accountability:
 
-*Still wages of sin they keep me paying*
-*Wages of sin for the wrongs that we’ve done*
+> *Still wages of sin they keep me paying*
+> *Wages of sin for the wrongs that we’ve done*
 
 We should also take note of Bruce’s eyebrow-raising comment at the top of the demo–he clearly calls for a boy’s choir, implying that the haunting, wordless refrain in the song may have originally been intended to be sung in a more choral arrangement. We can hear Bruce working on it in the clip below and wonder what might have been had he seen this path through to the final version.
 
@@ -107,17 +107,17 @@ By his fourth attempt, however, the song had pretty much come together; after an
 
 Still, there are some key differences: the narrator can’t quite face the truth of his actions–he still pleads for someone to fill him in:
 
-*Wages of sin you keep me payin’*
-*Wages of sin for the wrongs that I’ve done*
-*Wages of sin, I keep stayin’*
-*Why can’t someone tell me what it is I’ve done*
+> *Wages of sin you keep me payin’*
+> *Wages of sin for the wrongs that I’ve done*
+> *Wages of sin, I keep stayin’*
+> *Why can’t someone tell me what it is I’ve done*
 
 The verses also border on melodrama:
 
-*Baby I say something, you cry that you’re hurt*
-*Each time it happens and you rip my shirt*
-*Baby if someone keeps saying*
-*Baby night, night after night I’m payin’*
+> *Baby I say something, you cry that you’re hurt*
+> *Each time it happens and you rip my shirt*
+> *Baby if someone keeps saying*
+> *Baby night, night after night I’m payin’*
 
 …and the mysterious stranger makes his return –it’s almost as if Bruce is tossing together all of the elements he tried in earlier attempts to see which ones stick.
 

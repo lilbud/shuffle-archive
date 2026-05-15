@@ -16,10 +16,10 @@ But when it comes to “Down to Mexico,” a 1971-72 gem from The Bruce Springst
 
 The entire song revolves around variations of:
 
-*Oh do run daddy*
-*Yeah you do or don’t you daddy*
-*Papa where are you going*
-*Down to Mexico*
+> *Oh do run daddy*
+> *Yeah you do or don’t you daddy*
+> *Papa where are you going*
+> *Down to Mexico*
 
 Honestly, though, the lyrics are so not the point here. “Down to Mexico” is a straight-up showcase piece–first for Bruce, then for keyboardist David Sancious.
 

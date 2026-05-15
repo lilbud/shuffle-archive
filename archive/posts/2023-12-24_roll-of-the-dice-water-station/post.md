@@ -76,75 +76,75 @@ Again, this recording has not circulated until now. So do yourself a favor, clea
 
 Bruce starts off tentatively, buying himself some time to think of a theme with a few bars of “sweet mama” vamping. But before long, he’s off and running, weaving a story about an old flame named Janey and the death of the relationship (if not Janey herself) due to an unplanned pregnancy. (Again, it’s not worth trying to analyze the lyrics–this is stream-of-consciousness composition, and it’s best appreciated for what it is.)
 
-*Well mama, mama, sweet mama*
-*And I ask you, “What can I do?”*
-*I’m talkin’ mama, mama, sweet mama*
-*Shake a light, and let it shine on through*
-*‘Cuz I been down to Water Station*
-*And I cried when I saw them there*
-*Yes, I been down to Water Station*
-*And I asked my Janey about the past*
+> *Well mama, mama, sweet mama*
+> *And I ask you, “What can I do?”*
+> *I’m talkin’ mama, mama, sweet mama*
+> *Shake a light, and let it shine on through*
+> *‘Cuz I been down to Water Station*
+> *And I cried when I saw them there*
+> *Yes, I been down to Water Station*
+> *And I asked my Janey about the past*
 
-*Because I remember back then, them sweet winters*
-*Janey and me used to have our fun*
-*Yes, I remember I’d give her all the love*
-*Any lover man could give her*
-*She caught a child back on the run*
-*But then I saw the blood*
-*The snow came falling down*
-*I got children, I got children*
-*<bluff> bad child*
+> *Because I remember back then, them sweet winters*
+> *Janey and me used to have our fun*
+> *Yes, I remember I’d give her all the love*
+> *Any lover man could give her*
+> *She caught a child back on the run*
+> *But then I saw the blood*
+> *The snow came falling down*
+> *I got children, I got children*
+> *<bluff> bad child*
 
-*My bag was thrown*
-*<bluff> I found my way around*
-*And that’s the night that old Janey died*
-*And I said, “Mama tell me what”*
-*She said, “My good son, when you’re feelin’ angry,*
-*My good son, when you’re feelin’ blue,*
-*You just walk to your friend, mama,*
-*And she gonna tell ya what to do*
-*You just sing out, you go*
+> *My bag was thrown*
+> *<bluff> I found my way around*
+> *And that’s the night that old Janey died*
+> *And I said, “Mama tell me what”*
+> *She said, “My good son, when you’re feelin’ angry,*
+> *My good son, when you’re feelin’ blue,*
+> *You just walk to your friend, mama,*
+> *And she gonna tell ya what to do*
+> *You just sing out, you go*
 
-*[Scatting]*
+> *[Scatting]*
 
-*All the children sing, they just go “la la la”…*
+> *All the children sing, they just go “la la la”…*
 
-*[Guitar solo/jam]*
+> *[Guitar solo/jam]*
 
-*And I walked down by her station*
-*And I got caught up, caught up in her smile*
-*I should have known she’d really… [bluff] …nation*
-*But I didn’t care, I just stayed and loved it a little while*
-*Then she held her arms and she crossed, sweet tight around me*
-*She said, “Uh huh” <bluff> of another man*
+> *And I walked down by her station*
+> *And I got caught up, caught up in her smile*
+> *I should have known she’d really… [bluff] …nation*
+> *But I didn’t care, I just stayed and loved it a little while*
+> *Then she held her arms and she crossed, sweet tight around me*
+> *She said, “Uh huh” <bluff> of another man*
 
-*She said, “Darlin’ don’t ya know I hear the sound sweet,*
-*It’s something I can’t tell my hand on*
-*‘Cuz, I hear the sound, I hear the sound around me”*
-*And you call for another hand*
-*Yes, I hear the sound, I heard the sound around me.*
-*And she called on me for another hand*
-*She said, “When you’re feelin’ anger, you just sing”*
+> *She said, “Darlin’ don’t ya know I hear the sound sweet,*
+> *It’s something I can’t tell my hand on*
+> *‘Cuz, I hear the sound, I hear the sound around me”*
+> *And you call for another hand*
+> *Yes, I hear the sound, I heard the sound around me.*
+> *And she called on me for another hand*
+> *She said, “When you’re feelin’ anger, you just sing”*
 
-*[Scatting]*
+> *[Scatting]*
 
 At this point, maddeningly, the power fails once again. “Do you realize that in all the town of Highlands there’s not an extension cord?” Tinker can be heard carping. “I spent $900 to build the stage and there’s no electricity!”
 
 Thankfully, it once again only takes a minute to restore power, and the band picks up where it left off mid-jam. Bruce takes the microphone for one final verse before tearing his way through a solo and duel with Cohen.
 
-*And it was down by the water station that they found me*
-*Clutching <bluff> in my hand*
-*With the rain and snow all around me*
-*There’s something that I could not stand*
-*Mama said son, when you’re feeling angry*
-*Son, when you’re feeling blue*
-*Just bring around your old doctor*
-*Doctor gonna tell you what to do*
-*Doctor, said sha na na na na….*
+> *And it was down by the water station that they found me*
+> *Clutching <bluff> in my hand*
+> *With the rain and snow all around me*
+> *There’s something that I could not stand*
+> *Mama said son, when you’re feeling angry*
+> *Son, when you’re feeling blue*
+> *Just bring around your old doctor*
+> *Doctor gonna tell you what to do*
+> *Doctor, said sha na na na na….*
 
-*<scat>*
+> *<scat>*
 
-*He said get on out of here!*
+> *He said get on out of here!*
 
 The band takes it down for the final minute, and if we listen closely we can hear Bruce instructing the band to segue into a more upbeat mode for their final song of the day, which turns into a cover of Big Joe Williams’ “Baby, Please Don’t Go.”
 

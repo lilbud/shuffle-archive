@@ -70,39 +70,39 @@ Asked for comment, New York City Mayor Rudy Giuliani was initially noncommittal.
 
 That interview, published June 9th, also featured the first printed full lyrics to “American Skin (41 Shots),” which brought the song even wider attention.
 
-*41 shots, and we’ll take that ride*
-*‘Cross the bloody river to the other side*
-*41 shots, cut through the night*
-*You’re kneeling over his body in the vestibule*
-*Praying for his life*
+> *41 shots, and we’ll take that ride*
+> *‘Cross the bloody river to the other side*
+> *41 shots, cut through the night*
+> *You’re kneeling over his body in the vestibule*
+> *Praying for his life*
 
-*Is it a gun?*
-*Is it a knife?*
-*Is it a wallet?*
-*This is your life*
-*It ain’t no secret*
-*It ain’t no secret*
-*No secret my friend*
-*You can get killed just for living in your American skin*
+> *Is it a gun?*
+> *Is it a knife?*
+> *Is it a wallet?*
+> *This is your life*
+> *It ain’t no secret*
+> *It ain’t no secret*
+> *No secret my friend*
+> *You can get killed just for living in your American skin*
 
-*41 shots, Lena gets her son ready for school*
-*She says, “On these streets, Charles*
-*You’ve got to understand the rules*
-*If an officer stops you, promise me you’ll always be polite*
-*And that you’ll never ever run away*
-*Promise Mama you’ll keep your hands in sight”*
+> *41 shots, Lena gets her son ready for school*
+> *She says, “On these streets, Charles*
+> *You’ve got to understand the rules*
+> *If an officer stops you, promise me you’ll always be polite*
+> *And that you’ll never ever run away*
+> *Promise Mama you’ll keep your hands in sight”*
 
-*Is it a gun?*
-*Is it a knife?*
-*Is it in your heart?*
-*Is it in your eyes?*
-*It ain’t no secret*
+> *Is it a gun?*
+> *Is it a knife?*
+> *Is it in your heart?*
+> *Is it in your eyes?*
+> *It ain’t no secret*
 
-*41 shots, and we’ll take that ride*
-*‘Cross this bloody river to the other side*
-*41 shots, I got my boots caked with this mud*
-*We’re baptized in these waters*
-*And in each other’s blood*
+> *41 shots, and we’ll take that ride*
+> *‘Cross this bloody river to the other side*
+> *41 shots, I got my boots caked with this mud*
+> *We’re baptized in these waters*
+> *And in each other’s blood*
 
 Those who listened or read closely realized Bruce had written a deeply nuanced song that conveyed empathy for both Diallo and the officers. In fact, the entire first verse is presented through the eyes and voice of the officers, horrified by the realization of what they’d done and praying for the boy’s survival.
 
@@ -168,7 +168,7 @@ When Morello continued on with the band for the High Hopes Tour, “American Ski
 
 When George Floyd was murdered by police at the height of the great pandemic, live performances weren’t possible. So Bruce took to the airwaves, opening his *From My Home to Yours* radio show with the studio version of “American Skin (41 Shots)” and following it with some pointed commentary:
 
-*Eight minutes. That song is almost eight minutes long. And that’s how long it took George Floyd to die, with a Minneapolis officer’s knee buried into his neck. That’s a long time. That’s how long he begged for help, and said he couldn’t breathe. The arresting officer’s response was nothing but silence and weight. Then he had no pulse, and still it went on… As of today, our black citizens continue to be killed unnecessarily by our police, on the streets of America.*
+> *Eight minutes. That song is almost eight minutes long. And that’s how long it took George Floyd to die, with a Minneapolis officer’s knee buried into his neck. That’s a long time. That’s how long he begged for help, and said he couldn’t breathe. The arresting officer’s response was nothing but silence and weight. Then he had no pulse, and still it went on… As of today, our black citizens continue to be killed unnecessarily by our police, on the streets of America.*
 
 It was still on Bruce’s mind at the tail end of the pandemic, so he added “American Skin (41 Shots)” to his reworked Broadway setlist as well.
 

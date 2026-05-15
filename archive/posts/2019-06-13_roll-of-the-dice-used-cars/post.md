@@ -14,10 +14,10 @@ Let’s take a listen.
 
 Like much of *Nebraska*, “Used Cars” is a showcase for Bruce’s newfound, well-wrought songwriting economy. He skillfully conveys information through a combination of context, melodic construction, restrained vocals, and seemingly spare but powerfully important details–all working together to tell a story beneath a story. (“Used Cars” may, in fact, be the best example of this in Bruce’s catalog.)
 
-*My little sister’s in the front seat with an ice cream cone*
-*My ma’s in the back seat sitting all alone*
-*As my pa steers her slow out of the lot*
-*For a test drive down Michigan Avenue*
+> *My little sister’s in the front seat with an ice cream cone*
+> *My ma’s in the back seat sitting all alone*
+> *As my pa steers her slow out of the lot*
+> *For a test drive down Michigan Avenue*
 
 Let’s unpack that first verse, because there’s just *so* much information there:
 
@@ -33,10 +33,10 @@ That ice cream cone isn’t just there for rhyming purposes–it’s meant to co
 
 There’s also the unresolved second couplet. By not closing the loop on the rhyme and instead trailing the melody like his father setting off on a test drive, the distance between Bruce and his father widens.
 
-*Now my ma, she fingers her wedding band*
-*And watches the salesman stare at my old man’s hands*
-*He’s telling us all about the break he’d give us if he could, but he just can’t*
-*Well if I could I swear I know just what I’d do…*
+> *Now my ma, she fingers her wedding band*
+> *And watches the salesman stare at my old man’s hands*
+> *He’s telling us all about the break he’d give us if he could, but he just can’t*
+> *Well if I could I swear I know just what I’d do…*
 
 The image of Bruce’s mother playing with her wedding band is fraught with symbolism and deliberate uncertainty. Perhaps it’s merely an indication that his mother is deep in thought and pre-occupied by a significant purchase; more likely, it’s Bruce’s way of drawing our attention to his parents’ marriage and the unequal consideration given to his mother in a potentially significant purchase (which Bruce reinforces through the salesman’s preoccupation with his father’s hands instead).
 
@@ -44,16 +44,16 @@ The last two lines of the second verse drip with sarcasm and repressed anger, bu
 
 For a moment, we hear that final line (“I swear I know just what I’d do…”) as a promise of wishful violence against the salesman. But Bruce quickly redirects:
 
-*Now mister the day the lottery I win I ain’t ever gonna ride in no used car again*
+> *Now mister the day the lottery I win I ain’t ever gonna ride in no used car again*
 
 ….and here we are, the core of the song revealed: the used car as a symbol of shame.
 
 Bruce flashes forward now. The transaction happens off-camera, and the family arrives home with their new addition. The next verse ranks among Bruce’s best:
 
-*Now the neighbors come from near and far*
-*As we pull up in our brand new used car*
-*I wish he’d just hit the gas and let out a cry*
-*And tell them all they can kiss our asses goodbye*
+> *Now the neighbors come from near and far*
+> *As we pull up in our brand new used car*
+> *I wish he’d just hit the gas and let out a cry*
+> *And tell them all they can kiss our asses goodbye*
 
 What a marvelous verse! In four spare lines, Bruce contrasts his father’s pride in his ability to purchase a vehicle–even if used–against Bruce’s own shame at the stigma of a used car and the transparent window it provides into his family’s modest means.
 
@@ -65,12 +65,12 @@ Bruce ends the song the way he began it: alone and apart, his father connecting 
 
 We hear a note of longing, along with a promise:
 
-*My dad, he sweats the same job from morning to morn*
-*Me, I walk home on the same dirty streets where I was born*
-*Up the block I can hear my little sister in the front seat blowing that horn*
-*The sounds echoing all down Michigan Avenue*
+> *My dad, he sweats the same job from morning to morn*
+> *Me, I walk home on the same dirty streets where I was born*
+> *Up the block I can hear my little sister in the front seat blowing that horn*
+> *The sounds echoing all down Michigan Avenue*
 
-*Now mister the day my number comes in I ain’t ever gonna ride in no used car again*
+> *Now mister the day my number comes in I ain’t ever gonna ride in no used car again*
 
 We realize now, at the end, that Bruce isn’t just shunning the symbol of his shame, he’s resolving to redeem his father’s name by erasing the ignominy his father never even realized he carried.
 

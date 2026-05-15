@@ -10,13 +10,13 @@ Seriously, there must be almost as much religious imagery here as in “[Jesus W
 
 The setting is pure Springsteen: a nameless bar where an anonymous patron fantasizes about Theresa, who is presumably the bartender, judging from the opening line:
 
-*Pour me a drink, Theresa, in one of those glasses you dust off*
+> *Pour me a drink, Theresa, in one of those glasses you dust off*
 
 No coincidence that Theresa is also the name of a Catholic saint, though:
 
-*I’ll watch the bones in your back like the Stations of the Cross*
-*‘Round your hair the sun lifts a halo, at your lips a crown of thorns*
-*Whatever other deal’s gone down, to this one I’m sworn*
+> *I’ll watch the bones in your back like the Stations of the Cross*
+> *‘Round your hair the sun lifts a halo, at your lips a crown of thorns*
+> *Whatever other deal’s gone down, to this one I’m sworn*
 
 The verses are heavy and anchored with Catholic imagery–so much so that as a non-Catholic, I have a hard time grasping the significance of some of it. I’m sure that there’s a significance to the “seven drops of blood” that fall as Teresa smooths the front of her blouse, but danged if I grok it.
 
@@ -24,19 +24,19 @@ The verses are heavy and anchored with Catholic imagery–so much so that as a n
 
 Only the chorus shakes us from the narrator’s reverie as he promises:
 
-*I’ll work for your love, dear.*
-*I’ll work for your love.*
-*What others may want for free, I’ll work for your love.*
+> *I’ll work for your love, dear.*
+> *I’ll work for your love.*
+> *What others may want for free, I’ll work for your love.*
 
 Given the start-to-finish St. Theresa metaphor, I’m forced to wonder whether the narrator is promising to be a different kind of suitor for the barmaid, or whether perhaps this truly is a devout song–perhaps this is a rejoinder to those who expect their version of God to look out for them without earning that love by living a pious life.
 
 Either way, the song works, I suppose, but it doesn’t resonate with me as a particularly devotional: the lyrics compare Theresa’s physical attributes only:
 
-*the bones in your back like the Stations of the Cross…*
+> *the bones in your back like the Stations of the Cross…*
  *‘Round your hair the sun lifts a halo*
-*At your lips a crown of thorns…*
-*The pages of Revelation lie open in your empty eyes of blue…*
-*The rosary at your feet, my temple of bones…*
+> *At your lips a crown of thorns…*
+> *The pages of Revelation lie open in your empty eyes of blue…*
+> *The rosary at your feet, my temple of bones…*
 
 If Theresa is a real woman, there’s no hint of personality to be found here. By the most generous interpretation, this is a song about infatuation–who among us hasn’t put the object of our unspoken affection on a ridiculously high pedestal at one point or another?
 

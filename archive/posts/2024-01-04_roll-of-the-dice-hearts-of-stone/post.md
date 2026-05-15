@@ -34,18 +34,18 @@ But DNA typing isn’t the only challenge we’re presented with when analyzing 
 
 “Hearts of Stone” is an affair song. Or rather, a post-affair song, sung by the one who returns to his partner, to the paramour who still pines for him. And it’s hard to work up sympathy for him.
 
-*You stare in the mirror at the lines in your face*
-*And you try to see, girl*
-*The way things were when we were at your place*
-*In the days it was just you and me, girl*
-*And you cry because things ain’t like before*
-*Well don’t you know they can’t be that way anymore*
-*But don’t worry baby*
+> *You stare in the mirror at the lines in your face*
+> *And you try to see, girl*
+> *The way things were when we were at your place*
+> *In the days it was just you and me, girl*
+> *And you cry because things ain’t like before*
+> *Well don’t you know they can’t be that way anymore*
+> *But don’t worry baby*
 
-*But I can’t talk now, I’m not alone*
-*So put your ear close to the phone*
-*‘Cause this is the last dance*
-*This is the last chance for hearts of stone*
+> *But I can’t talk now, I’m not alone*
+> *So put your ear close to the phone*
+> *‘Cause this is the last dance*
+> *This is the last chance for hearts of stone*
 
 We’re given to think that this is not a young couple. The unnamed, offscreen woman that Bruce sings to stares at the wrinkles on her face, as aware of her advancing age as she is of her loneliness.
 
@@ -59,13 +59,13 @@ The title plays on the different kind of mettle required by each ex-lover: he fe
 
 Bruce softens his narrator a bit in the second verse, his veneer cracking a bit as he almost pleads with her to understand. He doesn’t accept responsibility, though, and he urges her to take solace in her vivid memories of their time together.
 
-*If there was something, baby, that I could do*
-*Something that would last, honey, I would*
-*But we all know, girl, especially you do*
-*How you can’t return to your past, no*
-*So girl close your eyes and I’ll be there*
-*Hold me once more and we can go anywhere*
-*Ah, we could babe*
+> *If there was something, baby, that I could do*
+> *Something that would last, honey, I would*
+> *But we all know, girl, especially you do*
+> *How you can’t return to your past, no*
+> *So girl close your eyes and I’ll be there*
+> *Hold me once more and we can go anywhere*
+> *Ah, we could babe*
 
 I imagine she takes very little comfort from that, but if there’s any to be found at all, it’s in The Big Man’s swooningly soulful sax solo. If your heart doesn’t break a bit when listening to it, it’s probably made of, well, stone.
 

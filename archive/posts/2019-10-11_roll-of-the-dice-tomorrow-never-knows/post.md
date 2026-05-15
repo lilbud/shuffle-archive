@@ -18,34 +18,34 @@ That ease is deliberate. Bruce uses it to underscore the song’s message, which
 
 Beyond that, the song speaks for itself–until the last verse, that is. That one is worth discussing, so take a read through the lyrics, and I’ll meet you on the other side.
 
-*Where the cold wind blows*
-*Tomorrow never knows*
-*Where your sweet smile goes*
-*Tomorrow never knows*
+> *Where the cold wind blows*
+> *Tomorrow never knows*
+> *Where your sweet smile goes*
+> *Tomorrow never knows*
 
-*You and me we been standing here my dear*
-*Waiting for our time to come*
-*Where the green grass grows*
-*Tomorrow never knows*
+> *You and me we been standing here my dear*
+> *Waiting for our time to come*
+> *Where the green grass grows*
+> *Tomorrow never knows*
 
-*In the field your long hair flowed*
-*Down by the Tildenberry tracks*
-*There ‘neath the water tower*
-*I carried you on my back*
+> *In the field your long hair flowed*
+> *Down by the Tildenberry tracks*
+> *There ‘neath the water tower*
+> *I carried you on my back*
 
-*Over the rusted spikes of that highway of steel*
-*When no more thunder sounds*
-*Where the time goes*
-*Tomorrow never knows*
+> *Over the rusted spikes of that highway of steel*
+> *When no more thunder sounds*
+> *Where the time goes*
+> *Tomorrow never knows*
 
-*Well he who waits for the day’s riches will be lost*
-*In the whispering tide*
-*Where the river flows*
-*Tomorrow never knows*
+> *Well he who waits for the day’s riches will be lost*
+> *In the whispering tide*
+> *Where the river flows*
+> *Tomorrow never knows*
 
 Bruce has said on more than one occasion that most of his songs hide a single line that contain its key, and “Tomorrow Never Knows” is no exception. If you want to know the message of the song, look no further than:
 
-*“He who waits for the day’s riches will be lost in the whispering tide.”*
+> *“He who waits for the day’s riches will be lost in the whispering tide.”*
 
 That line is significant, because without it, “Tomorrow Never Knows” would be lyrically indistinguishable from “[Kingdom of Days](https://estreetshuffle.com/index.php/2022/04/04/roll-of-the-dice-kingdom-of-days/)” on the same album.
 

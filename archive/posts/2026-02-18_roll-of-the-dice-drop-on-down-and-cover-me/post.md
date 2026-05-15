@@ -14,49 +14,49 @@ Take a listen:
 
 I’m not sure there’s a better example of how subtle changes can dramatically alter a song than “Drop on Down and Cover Me.” The lyrics undoubtedly sound very familiar–most of them are virtually identical.
 
-*Times are tough there baby*
-*It’s getting tougher now*
-*This world is rough honey*
-*It’s just getting rougher now*
+> *Times are tough there baby*
+> *It’s getting tougher now*
+> *This world is rough honey*
+> *It’s just getting rougher now*
 
-*You’re on top there, baby*
-*Just tryin’ to score, well*
-*I seen enough, honey*
-*I don’t wanna see no more*
-*Drop on down and cover me*
+> *You’re on top there, baby*
+> *Just tryin’ to score, well*
+> *I seen enough, honey*
+> *I don’t wanna see no more*
+> *Drop on down and cover me*
 
-*Sometimes girl I just wanna*
-*Leave it all behind us*
-*Hold me in your arms tonight*
-*let’s let our love blind us*
+> *Sometimes girl I just wanna*
+> *Leave it all behind us*
+> *Hold me in your arms tonight*
+> *let’s let our love blind us*
 
 But “Cover Me” rings of paranoia (“*Now promise me baby you won’t let them find us*“) and desperation, especially in the bridge:
 
  *Outside’s the rain, the driving snow*
-*I can hear the wild wind blowing*
-*Turn out the light, bolt the door*
-*I ain’t going out there no more*
+> *I can hear the wild wind blowing*
+> *Turn out the light, bolt the door*
+> *I ain’t going out there no more*
 
 In contrast, notice how Bruce alters the inclement weather of “Cover Me” to an internal storm in “Drop on Down and Cover Me.”
 
-*Inside I feel the pain that*
-*The hatred and the sorrow*
-*I wanna shut the light, baby*
-*C’mon and shut the door*
-*Drop on down and cover me*
+> *Inside I feel the pain that*
+> *The hatred and the sorrow*
+> *I wanna shut the light, baby*
+> *C’mon and shut the door*
+> *Drop on down and cover me*
 
-*I just wanna close my eyes and*
-*Let your love surround me*
-*I wanna close my heart*
-*To this world around me*
+> *I just wanna close my eyes and*
+> *Let your love surround me*
+> *I wanna close my heart*
+> *To this world around me*
 
 Both narrators are looking for shelter, but the protagonist of “Cover Me” is hiding from the world. The hero of “Drop on Down and Cover Me” merely seeks momentary refuge and the strength that comes from having a partner in this world.
 
-*The anger and the heartlessness*
-*All the good things killed*
-*Come closer baby*
-*Now closer still*
-*Drop on down and cover me*
+> *The anger and the heartlessness*
+> *All the good things killed*
+> *Come closer baby*
+> *Now closer still*
+> *Drop on down and cover me*
 
 Like all art, music is subjective. But “Drop on Down and Cover Me” is such a superior song to the officially released “Cover Me” that I can’t help but wonder why Bruce chose to release the older version.
 

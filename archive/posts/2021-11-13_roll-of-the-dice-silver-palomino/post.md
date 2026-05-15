@@ -32,35 +32,35 @@ In “Silver Palomino,” Bruce introduces us to a young boy whose mother, like 
 
 By way of coping with his loss, our narrator imbues a majestic, untamable silver palomino with his mother’s soul. In the horse’s regal and free spirit, he keeps his mother alive and feels her with him still.
 
-*I was barely 13 years old*
-*She came out of the Guadalupe’s on a night so cold*
-*Her coat was frosted diamonds in the sallow moon’s glow*
-*My silver palomino*
+> *I was barely 13 years old*
+> *She came out of the Guadalupe’s on a night so cold*
+> *Her coat was frosted diamonds in the sallow moon’s glow*
+> *My silver palomino*
 
-*Sixteen hands from her withers to the ground*
-*I lie in bed and listen to the sound*
-*Of the west Texas thunder roll*
-*My silver palomino*
+> *Sixteen hands from her withers to the ground*
+> *I lie in bed and listen to the sound*
+> *Of the west Texas thunder roll*
+> *My silver palomino*
 
-*I track her into the mountains she loved*
-*Watch her from the rocks above*
-*She’d dip her neck and drink from the winter flows*
-*My silver palomino*
+> *I track her into the mountains she loved*
+> *Watch her from the rocks above*
+> *She’d dip her neck and drink from the winter flows*
+> *My silver palomino*
 
-*Our mustañeros were the very best, sir*
-*They could never lay a rope on her*
-*No corral will ever hold*
-*The silver palomino*
+> *Our mustañeros were the very best, sir*
+> *They could never lay a rope on her*
+> *No corral will ever hold*
+> *The silver palomino*
 
-*In my dreams bareback I ride*
-*Over the pradera low and wide*
-*As the wind sweeps out the draw*
-*‘Cross the scrub desert floor*
+> *In my dreams bareback I ride*
+> *Over the pradera low and wide*
+> *As the wind sweeps out the draw*
+> *‘Cross the scrub desert floor*
 
-*I’d give my riata and spurs*
-*If I could be forever yours*
-*I’d ride into the serrania where no one goes*
-*For the silver palomino*
+> *I’d give my riata and spurs*
+> *If I could be forever yours*
+> *I’d ride into the serrania where no one goes*
+> *For the silver palomino*
 
 Through this point in the song, we don’t yet realize that the palomino is anything other than a wild horse. But as the song progresses and his description grows in adoration, it becomes clear that this animal represents something more powerful and primal for the narrator.
 
@@ -72,10 +72,10 @@ He’s right, and it’s why “Silver Palomino” is one of the best examples i
 
 It’s at this point that the song takes a narrative turn, as our protagonist gives into memory and relives his last moments with his mother.
 
-*Summer drought come hard that year*
-*Our herd grazed the land so bare*
-*Me and my dad had to blowtorch the thorns off the prickly pear*
-*And mother, your hand slipped from my hair*
+> *Summer drought come hard that year*
+> *Our herd grazed the land so bare*
+> *Me and my dad had to blowtorch the thorns off the prickly pear*
+> *And mother, your hand slipped from my hair*
 
 That moment of finality, where his mother’s hand slips from her son’s hair as she takes her leave of this world, is set against a backdrop of drought, barrenness, and thorns–a world suddenly full of peril at the very moment he loses his guardian. The memory is indelible, for him and for us.
 
@@ -83,15 +83,15 @@ The final verses of “Silver Palomino” are as fine as any Bruce has ever craf
 
 As strings swell, Bruce fills his lyrics with argent imagery, creating a world of pearl sky, pale stone, white snow in the forecast, bright stars above–an otherworld of beauty in the color of his mother’s spirit.
 
-*Tonight I wake early the sky is pearl, the stars aglow*
-*I saddle up my red roan*
-*I ride deep into the mountains along a ridge of pale stone*
-*Where the air is still with the coming snow*
+> *Tonight I wake early the sky is pearl, the stars aglow*
+> *I saddle up my red roan*
+> *I ride deep into the mountains along a ridge of pale stone*
+> *Where the air is still with the coming snow*
 
-*As I rise higher I can smell your hair*
-*The scent of your skin, mother, fills the air*
-*‘Midst the harsh scrub pine that grows*
-*I watch the silver palomino*
+> *As I rise higher I can smell your hair*
+> *The scent of your skin, mother, fills the air*
+> *‘Midst the harsh scrub pine that grows*
+> *I watch the silver palomino*
 
 As for our narrator, he rides in red, the color of blood and life, a nightly visitor into the spirit world, where his mother waits for him each night. He feels her presence and conjures her scent from memory. And even as he takes note of the harsh terrain underneath him, he communes with the palomino, and for at least a few minutes, he is safe in the loving spirit of his mother.
 

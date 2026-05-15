@@ -8,7 +8,7 @@ So when EBTG released their *Acoustic* CD, including a cover of Bruce’s “[To
 
 She definitely groks the song:
 
-*“Its narrative says true toughness is nothing to do with being macho, but is all about loyalty, and emotional maturity; being able to see that 'the road is dark' and giving reassurance that you’ll be able to cope with that. It’s a song in which the singer is honest about their own slightly shop-soiled weariness — 'Well it ain’t no secret, I've been around a time or two' — but suspects this quality might be understood and shared — 'I don't know babe, maybe you've been around too.' This is an honest and open thing to say, and it takes strength to lay yourself bare like this. So ultimately, what the song says is that tough and vulnerable are the same thing.”*
+> *“Its narrative says true toughness is nothing to do with being macho, but is all about loyalty, and emotional maturity; being able to see that 'the road is dark' and giving reassurance that you’ll be able to cope with that. It’s a song in which the singer is honest about their own slightly shop-soiled weariness — 'Well it ain’t no secret, I've been around a time or two' — but suspects this quality might be understood and shared — 'I don't know babe, maybe you've been around too.' This is an honest and open thing to say, and it takes strength to lay yourself bare like this. So ultimately, what the song says is that tough and vulnerable are the same thing.”*
 
 I hope I have plenty of time before the dice turn up that song for me to write about, because I don’t know that I can say it any better than that.
 

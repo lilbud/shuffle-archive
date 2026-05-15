@@ -22,15 +22,15 @@ Actually, “Look Into My Window” was co-written by Bruce and George Theiss, a
 
 The lyrics are elementary–only a day after his seventeenth birthday, Bruce hadn’t yet begun to stretch himself.
 
-*Look into my window girl*
-*You’re lookin’ at me*
-*Cause to get my window girl*
-*Tell me what you see*
+> *Look into my window girl*
+> *You’re lookin’ at me*
+> *Cause to get my window girl*
+> *Tell me what you see*
 
-*Look into my window*
-*Tell me what I’m like*
-*Look into my window*
-*And don’t be afraid to try*
+> *Look into my window*
+> *Tell me what I’m like*
+> *Look into my window*
+> *And don’t be afraid to try*
 
 As for the music, “Look Into My Window” is clearly Kinks-inspired. Two weeks prior, The Castiles had played a cover of “[See My Friends,](https://estreetshuffle.com/index.php/2020/04/30/cover-me-see-my-friends/)” and the similarities in the two songs’ Indian-influenced melodies is striking.
 

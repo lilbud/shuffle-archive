@@ -48,10 +48,10 @@ It’s actually a challenge to analyze most of the new songs on *[Letter to You]
 
 If “Letter to You” were to be the last song Bruce ever wrote, it would be a fitting period at the end of a long-running story. As Bruce readily admitted in promotional interviews (not that we needed him to, so obvious is the song’s meaning), *we* are the *you* his letter is addressed to, and that letter is his metaphor for his life’s work.
 
-*‘Neath a crowd of mongrel trees I pulled that bothersome thread*  
-*Got down on my knees, grabbed my pen and bowed my head*  
-*Tried to summon all that my heart finds true*  
-*And send it in my letter to you*
+> *‘Neath a crowd of mongrel trees I pulled that bothersome thread*
+> *Got down on my knees, grabbed my pen and bowed my head*
+> *Tried to summon all that my heart finds true*
+> *And send it in my letter to you*
 
 That opening line seemed to generate a lot of head-scratching discussion among Springsteen fans when the song debuted, but while it includes the only real metaphor in the song, it’s still a relatively straightforward one.
 
@@ -65,27 +65,27 @@ In other words, this is Bruce’s origin story as a songwriter.
 
 Lyrically, this is the only verse that impresses in “Letter to You.” Each remaining verse adds little other than length, but I don’t mind, because the telling is so beautiful.
 
-*Things I found out through hard times and good*  
-*I wrote ’em all out in ink and blood*  
-*Dug deep in my soul and signed my name true*  
-*And sent it in my letter to you*
+> *Things I found out through hard times and good*
+> *I wrote ’em all out in ink and blood*
+> *Dug deep in my soul and signed my name true*
+> *And sent it in my letter to you*
 
-*In my letter to you I took all my fears and doubts*  
-*In my letter to you all the hard things I found out*  
-*In my letter to you all that I’ve found true*  
-*And I sent it in my letter to you*
+> *In my letter to you I took all my fears and doubts*
+> *In my letter to you all the hard things I found out*
+> *In my letter to you all that I’ve found true*
+> *And I sent it in my letter to you*
 
-*I took all the sunshine and rain*  
-*All my happiness and all my pain*  
-*The dark evening stars and the morning sky of blue*  
-*And I sent it in my letter to you*  
-*And I sent it in my letter to you*
+> *I took all the sunshine and rain*
+> *All my happiness and all my pain*
+> *The dark evening stars and the morning sky of blue*
+> *And I sent it in my letter to you*
+> *And I sent it in my letter to you*
 
-*In my letter to you I took all my fears and doubts*  
-*In my letter to you all the hard things I found out*  
-*In my letter to you all that I found true*  
-*And I sent it in my letter to you*  
-*I sent it in my letter to you*
+> *In my letter to you I took all my fears and doubts*
+> *In my letter to you all the hard things I found out*
+> *In my letter to you all that I found true*
+> *And I sent it in my letter to you*
+> *I sent it in my letter to you*
 
 There’s nothing really that I can add to the verses and bridges above as far as analysis goes. It’s pretty much all there on the surface.
 

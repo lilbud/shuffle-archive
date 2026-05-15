@@ -16,34 +16,34 @@ So go ahead–give it a listen, and then we’ll break it down.
 
 Like “Unsatisfied Heart,” we open with a classic Springsteen introduction. In “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)” and “[Dead Man Walkin’,](https://estreetshuffle.com/index.php/2018/07/24/roll-of-the-dice-dead-man-walkin/)” Bruce would reduce it to “I had a job, I had a girl; I had something going, Mister, in this world.” Here, however, it’s:
 
-*Sir, I am a pilgrim and a stranger in this land*
-*Once I had a home here, my salvation was at hand*
-*I lived in a fine home, I was respected and satisfied*
-*I had two beautiful children and a kind and loving wife*
+> *Sir, I am a pilgrim and a stranger in this land*
+> *Once I had a home here, my salvation was at hand*
+> *I lived in a fine home, I was respected and satisfied*
+> *I had two beautiful children and a kind and loving wife*
 
 The second verse is almost identical to “Unsatisfied Heart” as well, until the last line, where we get the foreboding sense that “Fugitive’s Dream” is travelling an even darker path.
 
-*Then one day a man came to town, a man with nothing and nowhere to go*
-*He came to my door and mentioned something I’d done a long time ago*
-*I allowed him into my home on his vow that nothing would be said*
-*One night I rose from a dreamless sleep and I went to his bed*
+> *Then one day a man came to town, a man with nothing and nowhere to go*
+> *He came to my door and mentioned something I’d done a long time ago*
+> *I allowed him into my home on his vow that nothing would be said*
+> *One night I rose from a dreamless sleep and I went to his bed*
 
 In “Unsatisfied Heart,” the narrator is equally disturbed by the mysterious visitor’s blackmail threat. But in that song, the narrator swallows his panic and tries to reconcile his secret past with his new life; in “Fugitive’s Dream,” the narrator decides to take action–for a frightening moment, at least:
 
-*I watched as he lay sleeping, I reached out and touched his cheek*
-*Felt a chill run through my bones, and I fled into the street*
+> *I watched as he lay sleeping, I reached out and touched his cheek*
+> *Felt a chill run through my bones, and I fled into the street*
 
 Unable to follow through with his urge to kill the threat in his home, he runs. And if he ever comes back, we never find out.
 
-*I woke up in a motel room with the light rushin’ in*
-*Like someone had thrust open a door and closed it tight again*
-*I tried to understand why I felt these things that I felt*
-*And why I walked these streets at night a stranger to myself*
+> *I woke up in a motel room with the light rushin’ in*
+> *Like someone had thrust open a door and closed it tight again*
+> *I tried to understand why I felt these things that I felt*
+> *And why I walked these streets at night a stranger to myself*
 
-*Last night the same dream keeps coming around*
-*I’m standing high in the green hills looking across to the outskirts of town*
-*The night air fills my lungs, the wind sweeps around me so strong*
-*Stars rise in a black endless sky, grow brighter and brighter then gone, gone, gone*
+> *Last night the same dream keeps coming around*
+> *I’m standing high in the green hills looking across to the outskirts of town*
+> *The night air fills my lungs, the wind sweeps around me so strong*
+> *Stars rise in a black endless sky, grow brighter and brighter then gone, gone, gone*
 
 That last verse is identical to “Unsatisfied Heart” as well–at least most of it is. Even if the narrator of “Unsatisfied Heart” is never fully able to answer the question posed in the song’s refrain (“Can you live with an unsatisfied heart?”) the memory that haunts him is one of love and peace.
 

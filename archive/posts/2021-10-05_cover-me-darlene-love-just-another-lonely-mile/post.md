@@ -10,21 +10,21 @@ We took a look at one of those songs–“[Night Closing In](https://estreetshuf
 
 Lyrically, “Just Another Lonely Mile” is the polar opposite of “Night Closing In.” The latter is a post-break-up song of heartache; this one’s an anticipatory reunion song.
 
-*Just another lonely mile and I’ll be at your door*
-*Just another lonely mile and there’ll be no more loneliness anymore*
-*Just another lonely mile and I’ll be home*
-*Just another lonely mile, no more empty nights, darling, all alone*
-*Just another lonely mile*
+> *Just another lonely mile and I’ll be at your door*
+> *Just another lonely mile and there’ll be no more loneliness anymore*
+> *Just another lonely mile and I’ll be home*
+> *Just another lonely mile, no more empty nights, darling, all alone*
+> *Just another lonely mile*
 
-*Just another lonely mile, the sun will break through*
-*All these cloudy days and my hard luck ways, are forever ever ever through*
-*Just another lonely mile, a few more hours my friend*
-*I’ll taste your kiss, the things I’ve missed will all be in my arms again*
-*Just another lonely mile*
+> *Just another lonely mile, the sun will break through*
+> *All these cloudy days and my hard luck ways, are forever ever ever through*
+> *Just another lonely mile, a few more hours my friend*
+> *I’ll taste your kiss, the things I’ve missed will all be in my arms again*
+> *Just another lonely mile*
 
-*My wandering sunny days have all turned dark as blood*
-*The fire in your eyes lights my way, I’ll soon be back in the sunshine of your love*
-*Just another lonely mile*
+> *My wandering sunny days have all turned dark as blood*
+> *The fire in your eyes lights my way, I’ll soon be back in the sunshine of your love*
+> *Just another lonely mile*
 
 Lyrically, this isn’t Bruce’s strongest work. There aren’t that many unique lines and scarcely any metaphor or imagery–and what little there is treads some pretty cliched ground.
 

@@ -20,23 +20,23 @@ In the clip above, we can clearly hear that this is a song where the music prece
 
 Lyrically, though, this is definitely an early draft. There’s a lot of bluffing going on, but there’s at least one gem of a line that Bruce ultimately discarded but which truly deserved to be adopted elsewhere:
 
-*Everybody wants heaven, but nobody wants to die.”*
+> *Everybody wants heaven, but nobody wants to die.”*
 
 Man, that’s a great line.
 
 By autumn, Bruce would evolve his lyrics to focus on his father, and “Come On (Let’s Go Tonight)” morphed into “The Factory Song” and finally “Factory.” During the summer, though, it remained a song focused on the brevity of life and the opportunity cost of living (which is actually not that far removed from what “Factory” is about).
 
-*Put on your black dress baby, and put your hair up right*
-*There’s a party way down in Factory Town tonight*
-*I’ll be going down there if you need a ride*
-*Come on, come on, let’s go tonight*
+> *Put on your black dress baby, and put your hair up right*
+> *There’s a party way down in Factory Town tonight*
+> *I’ll be going down there if you need a ride*
+> *Come on, come on, let’s go tonight*
 
 Let’s acknowledge the obvious: the first couplet eventually made it to “Out in the Street,” and the second one to “Johnny Bye Bye.” But taken on its own, we have an introductory verse that sets the scene: there’s a “party” going down, but the black dress implies that “party ” is a euphemism. We’re about to find out what for.
 
-*How many men fail, their dreams denied*
-*They walk through these streets with death in their eyes*
-*Now the man on the radio says “Elvis Presley died”*
-*Come on, come on, let’s go tonight*
+> *How many men fail, their dreams denied*
+> *They walk through these streets with death in their eyes*
+> *Now the man on the radio says “Elvis Presley died”*
+> *Come on, come on, let’s go tonight*
 
 As with “Johnny Bye Bye,” our song is set on the night that Elvis died. That was an event that hit Bruce hard, both because of the loss of an idol and the reinforcement of a lesson: success doesn’t necessarily breed contentment.
 
@@ -48,10 +48,10 @@ And yet like the best of Bruce’s songs, “Come On (Let’s Go Tonight)” ope
 
 But then the music died, and with it went the escapism. If even Elvis could be haunted by demons, what hope did common folk have?
 
-*Well now some came to witness, now some came to weep*
-*Drawn by death’s strange glory, they stood in the street*
-*Drawn together forever in the promise of an endless sleep*
-*Come on, come on, let’s go tonight*
+> *Well now some came to witness, now some came to weep*
+> *Drawn by death’s strange glory, they stood in the street*
+> *Drawn together forever in the promise of an endless sleep*
+> *Come on, come on, let’s go tonight*
 
 There’s something about death that reminds us of life. We gather, in part to remember the departed, but in part to remind ourselves that *we are still here*. There is indeed a strange glory in death–as Bruce wrote earlier, *everybody wants heaven, but nobody wants to die*. We miss the fallen, but celebrate their escape to the afterlife.
 

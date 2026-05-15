@@ -16,15 +16,15 @@ Apart from its Celtic music and medieval lyrics, I don’t find “This Is Your 
 
 I’ve read several reviews and accounts that suggest that “This Is Your Sword” is sung by a father to his children, but I don’t subscribe to that interpretation. The song is more universal than that, something Bruce makes clear in the very first line:
 
-*Now brothers and sisters, listen to me*
-*These are the few things that I leave to thee*
-*The sword of our fathers with lessons hard taught*
-*The shield strong and sturdy from battles well fought*
+> *Now brothers and sisters, listen to me*
+> *These are the few things that I leave to thee*
+> *The sword of our fathers with lessons hard taught*
+> *The shield strong and sturdy from battles well fought*
 
-*Well this is your sword, this is your shield*
-*This is the power of love revealed*
-*Carry them with you wherever you go*
-*And give all the love that you have in your soul*
+> *Well this is your sword, this is your shield*
+> *This is the power of love revealed*
+> *Carry them with you wherever you go*
+> *And give all the love that you have in your soul*
 
 Bruce addresses his message to “brothers and sisters,” suggesting that he’s imparting a lesson to his fellow folk rather than to his own children.
 
@@ -32,26 +32,26 @@ His sword and shield are metaphors, both for the same thing: the human heart. Te
 
 And we are beset these days more than ever before.
 
-*The times they are dark, darkness covers the earth*
-*This world’s filled with the beauty of God’s work*
-*Hold tight to your promise, stay righteous, stay strong*
-*For the days of miracles will come along*
+> *The times they are dark, darkness covers the earth*
+> *This world’s filled with the beauty of God’s work*
+> *Hold tight to your promise, stay righteous, stay strong*
+> *For the days of miracles will come along*
 
 “This Is Your Sword” reminds us that even in the darkest of times, there’s enough beauty and love in the world to sustain us and lead us to the light. In the bridge, Bruce acknowledges this is easier said than done (in a passage that especially resonates coming from someone locked in lifelong battle with depression).
 
-*In the days of despair you can grow hard*
-*Till you close your mind and empty your heart*
-*If you find yourself staring in the abyss*
-*Hold tight to your loved ones and remember this*
+> *In the days of despair you can grow hard*
+> *Till you close your mind and empty your heart*
+> *If you find yourself staring in the abyss*
+> *Hold tight to your loved ones and remember this*
 
-*This shield will protect your sacred heart*
-*The sword will defend from what comes in the dark*
-*Should you grow weary on the battlefield*
-*Well do not despair, our love is real*
+> *This shield will protect your sacred heart*
+> *The sword will defend from what comes in the dark*
+> *Should you grow weary on the battlefield*
+> *Well do not despair, our love is real*
 
 There’s something about that last line that lingers in our memory, even if the song itself doesn’t.
 
-*Our love is real.*
+> *Our love is real.*
 
 Perhaps it’s in part due to the awkward meter and rhyme, but it’s more than that. It’s a reminder that even when the world is at its cruelest, we’re never alone. If we love, we are loved, and that wellspring can provide all the reserve strength and stamina we need to endure.
 

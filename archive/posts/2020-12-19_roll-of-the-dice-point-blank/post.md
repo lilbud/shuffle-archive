@@ -14,10 +14,10 @@ Against this gorgeous backing track, Bruce delivers a vocal that is so restraine
 
 “Point Blank” is sometimes characterized as a song about literal death and dying, but I’d argue that’s too shallow a read. “Point Blank” isn’t about dying but rather about *not living*. In a break with Bruce’s usual habit of hiding a song’s heart in its bridge, Bruce gives away the game in the very first verse:
 
-*Do you still say your prayers little darling, do you go to bed at night*
-*Praying that tomorrow everything will be alright*
-*But tomorrow’s fall in number, in number one by one*
-*You wake up and you’re dying, you don’t even know what from*
+> *Do you still say your prayers little darling, do you go to bed at night*
+> *Praying that tomorrow everything will be alright*
+> *But tomorrow’s fall in number, in number one by one*
+> *You wake up and you’re dying, you don’t even know what from*
 
 That’s the song right there: *you wake up and you’re dying.*
 
@@ -25,30 +25,30 @@ Our leading lady isn’t leading the life she wanted, but rather than take actio
 
 Life is finite. In a very real sense we start dying from the day we’re born. It’s a truism that each passing day means we have fewer tomorrows left, and when Bruce’s narrator says, “you don’t even know what from” he’s telling his lost love: *You’re wasting your life. Take control of it.*
 
-*Well, they shot you point blank*
-*You been shot in the back, baby, point blank*
-*You been fooled this time, little girl, that’s a fact*
-*Right between the eyes, baby, point blank*
-*Right between the pretty lies that they tell*
+> *Well, they shot you point blank*
+> *You been shot in the back, baby, point blank*
+> *You been fooled this time, little girl, that’s a fact*
+> *Right between the eyes, baby, point blank*
+> *Right between the pretty lies that they tell*
 
 The chorus is obviously a metaphor. Our heroine isn’t literally dead, but she *is* emotionally dead. She’s given up. Notice where she’s been shot: first in the back, meaning she didn’t see it coming. Then right between the eyes, suggesting she’s surrendered. And that last “lies” line is more than just an internal rhyme–it tells us that the murder weapon was betrayal. Someone hurt her, and she shut down.
 
 In true film noir style, the body of the song takes place in flashback. Our narrator fills us in on his love’s tragic backstory:
 
-*You grew up where young girls they grow up fast*
-*You took what you were handed and left behind what was asked*
-*But what they asked baby wasn’t right*
-*You didn’t have to live that life*
-*And I was gonna be your Romeo, you were gonna be my Juliet*
-*These days you don’t wait on Romeos, you wait on that welfare check*
-*And on all the pretty things that you can’t ever have*
-*And on all the promises*
+> *You grew up where young girls they grow up fast*
+> *You took what you were handed and left behind what was asked*
+> *But what they asked baby wasn’t right*
+> *You didn’t have to live that life*
+> *And I was gonna be your Romeo, you were gonna be my Juliet*
+> *These days you don’t wait on Romeos, you wait on that welfare check*
+> *And on all the pretty things that you can’t ever have*
+> *And on all the promises*
 
-*That always end up point blank*
-*Shot between the eyes, whoa, point blank*
-*Like little white lies you tell to ease the pain*
-*You’re walking in the sights, girl, of point blank*
-*And it’s one false move and, baby, the lights go out*
+> *That always end up point blank*
+> *Shot between the eyes, whoa, point blank*
+> *Like little white lies you tell to ease the pain*
+> *You’re walking in the sights, girl, of point blank*
+> *And it’s one false move and, baby, the lights go out*
 
 The first half of this verse roots our nameless cipher’s passiveness in her abbreviated childhood. Forced to grow up too quickly, taught to accept and submit, as an adult she elicits our sympathy.
 
@@ -56,20 +56,20 @@ She elicited something more from our narrator. He obviously fell for her, althou
 
 All of this is setup for the extended dream sequence that is the heart of “Point Blank,” stretching the verse well beyond its expected border in a way that commands our attention.
 
-*Once I dreamed we were together again, baby, you and me*
-*Back home in those old clubs the way we used to be*
-*We were standing at the bar, it was hard to hear*
-*The band was playing loud and you were shouting something in my ear*
-*You pulled my jacket off and as the drummer counted four*
-*You grabbed my hand and pulled me out on the floor*
-*You just stood there and held me and you started dancing slow*
-*And as I pulled you tighter I swore I’d never let you go*
-*Well I saw you last night down on the avenue*
-*Your face was in the shadows but I knew that it was you*
-*You were standing in the doorway out of the rain*
-*You didn’t answer when I called out your name*
-*You just turned and then you looked away*
-*Like just another stranger waiting to get blown away*
+> *Once I dreamed we were together again, baby, you and me*
+> *Back home in those old clubs the way we used to be*
+> *We were standing at the bar, it was hard to hear*
+> *The band was playing loud and you were shouting something in my ear*
+> *You pulled my jacket off and as the drummer counted four*
+> *You grabbed my hand and pulled me out on the floor*
+> *You just stood there and held me and you started dancing slow*
+> *And as I pulled you tighter I swore I’d never let you go*
+> *Well I saw you last night down on the avenue*
+> *Your face was in the shadows but I knew that it was you*
+> *You were standing in the doorway out of the rain*
+> *You didn’t answer when I called out your name*
+> *You just turned and then you looked away*
+> *Like just another stranger waiting to get blown away*
 
 As a songwriter, Bruce uses this device sparingly, but when he does (as in “[Downbound Train](https://estreetshuffle.com/index.php/2019/01/22/roll-of-the-dice-downbound-train/)“) the effect is mesmerizing. Like a dream, some details are vivid; others are ignored, and the background is a blur.
 
@@ -81,16 +81,16 @@ Bruce blurs the dream into a chance encounter so seamlessly that we question whe
 
 As we enter the denouement, Bruce’s lyrics lose their rhyming integrity, suggesting an emotional turmoil that belies his controlled vocals.
 
-*Point blank, right between the eyes*
-*Whoa, point blank, right between the pretty lies you fell*
-*Point blank, you been shot straight through the heart*
-*Yeah, point blank, you’ve been twisted up till you’ve become just another part of it*
-*Point blank, you’re walking in the sights*
-*Point blank, living one false move, just one false move away*
-*They caught you in their sights*
-*Point blank, did you forget how to love, girl, did you forget how to fight*
-*They must have shot you in the head*
-*‘Cause point blank, bang bang, baby you’re dead*
+> *Point blank, right between the eyes*
+> *Whoa, point blank, right between the pretty lies you fell*
+> *Point blank, you been shot straight through the heart*
+> *Yeah, point blank, you’ve been twisted up till you’ve become just another part of it*
+> *Point blank, you’re walking in the sights*
+> *Point blank, living one false move, just one false move away*
+> *They caught you in their sights*
+> *Point blank, did you forget how to love, girl, did you forget how to fight*
+> *They must have shot you in the head*
+> *‘Cause point blank, bang bang, baby you’re dead*
 
 Our narrator is almost keening here, but he regains his steel (and rhyme scheme) in the final, tragic couplet. He’s written off his ex-lover now; she’s dead inside, and dead to him. We end on a final cinematic flourish and a long (thirteen seconds!) fade to black.
 
@@ -104,14 +104,14 @@ Bruce debuted a work-in-progress version of “Point Blank” on stage in Los An
 
 Although the melody is clearly recognizable, and the first verse is in fairly final form, this first version of “Point Blank” differs significantly from his final version: there’s a bridge that would be excised from the final song, and lyrics that suggest that the narrator’s love interest is more a hostage to a chemical dependency than her own passivity.
 
-*Hearts full of anger, eyes filled with hate*
-*You see them on the street, you try to turn your eyes away but little girl, this time it’s too late*
-*You hear their voices at night as you lock the door*
-*There’ll be no sleep tonight for baby she don’t believe them lies anymore*
-*And she stumbles into the morning trying for her usual fix*
-*But baby them old distractions they just ain’t got the kicks no more*
-*And so you pack your pistol and you go out looking for someone*
-*But just, just stuck in the middle, girl you don’t know where to aim the gun*
+> *Hearts full of anger, eyes filled with hate*
+> *You see them on the street, you try to turn your eyes away but little girl, this time it’s too late*
+> *You hear their voices at night as you lock the door*
+> *There’ll be no sleep tonight for baby she don’t believe them lies anymore*
+> *And she stumbles into the morning trying for her usual fix*
+> *But baby them old distractions they just ain’t got the kicks no more*
+> *And so you pack your pistol and you go out looking for someone*
+> *But just, just stuck in the middle, girl you don’t know where to aim the gun*
 
 Most importantly, though, the arrangement is more aggressive and Bruce’s vocals more passionate–despite the fact that in this version there doesn’t even seem to be a connection (past or present) between the two characters. It’s clear Bruce was working his way toward a destination but had some distance to go yet.
 
@@ -141,13 +141,13 @@ Bruce found the lyrics he was looking for in “[Party Lights](https://estreetsh
 
 Bruce took the first two verses of “Party Lights”…
 
-*I know the girls well they grow up fast where you come from*
-*You left behind what was asked and you were married baby oh so young*
-*Now that little girl of yours looks like she’s growing up overnight*
+> *I know the girls well they grow up fast where you come from*
+> *You left behind what was asked and you were married baby oh so young*
+> *Now that little girl of yours looks like she’s growing up overnight*
 
-*He was gonna be your Romeo, you were gonna be his Juliet*
-*These days you don’t wait on Romeos, you just wait on that welfare check*
-*While other girls your age are out with lovers taking in the night*
+> *He was gonna be your Romeo, you were gonna be his Juliet*
+> *These days you don’t wait on Romeos, you just wait on that welfare check*
+> *While other girls your age are out with lovers taking in the night*
 
 …and transplanted them into “Point Blank” as its new second verse. Once the final dream sequence verse was complete, so was the song, which Bruce recorded (shortly after he’d completed it), released on his fifth album, and performed throughout his 1980 tour.
 

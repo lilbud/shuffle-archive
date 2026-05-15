@@ -16,35 +16,35 @@ I’m glad he did that, because I always had a narrower and more nuanced view of
 
 The story itself is as straightforward as Bruce ever gets: a working man drives home at night on a rural highway and comes upon a recent wreck–so recent that our narrator is the first on the scene, and the mortally injured driver still clings to and pleads for his life.
 
-*Last night I was out driving*
-*Coming home at the end of the working day*
-*I was riding alone through the drizzling rain*
-*On a deserted stretch of a county two-lane*
-*When I came upon a wreck on the highway*
+> *Last night I was out driving*
+> *Coming home at the end of the working day*
+> *I was riding alone through the drizzling rain*
+> *On a deserted stretch of a county two-lane*
+> *When I came upon a wreck on the highway*
 
-*Now there was blood and glass all over*
-*And there was nobody there but me*
-*As the rain tumbled down hard and cold*
-*I seen a young man lying by the side of the road*
-*He cried “Mister, won’t you help me please”*
+> *Now there was blood and glass all over*
+> *And there was nobody there but me*
+> *As the rain tumbled down hard and cold*
+> *I seen a young man lying by the side of the road*
+> *He cried “Mister, won’t you help me please”*
 
 Our narrator calls and waits for an ambulance, which tragically arrives too late. The young driver dies on the scene, and our good Samaritan protagonist is haunted by the house call he knows someone is about to receive.
 
-*An ambulance finally came and took him to Riverside*
-*I watched as they drove him away*
-*And I thought of a girlfriend or a young wife*
-*And a state trooper knocking in the middle of the night*
-*To say “your baby died in a wreck on the highway”*
+> *An ambulance finally came and took him to Riverside*
+> *I watched as they drove him away*
+> *And I thought of a girlfriend or a young wife*
+> *And a state trooper knocking in the middle of the night*
+> *To say “your baby died in a wreck on the highway”*
 
 Until now, the entire song has taken place “last night,” which explains the detachment we hear in Bruce’s vocals. His character is still in shock, unable to absorb and process what he’d just witnessed.
 
 For the last verse, however, we flash forward in time. Life continues, as it must, and our narrator’s routine resumes. But something has changed: he now understands how fragile life is, and how quickly those we love can be taken from us.
 
-*Sometimes I sit up in the darkness*
-*And I watch my baby as she sleeps*
-*Then I climb in bed and I hold her tight*
-*I just lay there awake in the middle of the night*
-*Thinking ’bout the wreck on the highway*
+> *Sometimes I sit up in the darkness*
+> *And I watch my baby as she sleeps*
+> *Then I climb in bed and I hold her tight*
+> *I just lay there awake in the middle of the night*
+> *Thinking ’bout the wreck on the highway*
 
 And that right there is the subtle difference between Bruce’s lyrics and his explanation of them. Death certainly reminds us of how limited our time on this earth is, but that’s not what “Wreck on the Highway” is really about.
 

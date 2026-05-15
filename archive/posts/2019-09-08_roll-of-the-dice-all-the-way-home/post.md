@@ -18,38 +18,38 @@ Let’s take a listen:
 
 Man, that’s a great song. Every time I listen to it–and I mean *every* time–I can’t help but get lost in it.
 
-*I know what it’s like to have failed baby*
-*With the whole world looking on*
-*I know what it’s like to have been so sure*
-*And I wake up and find it all gone*
+> *I know what it’s like to have failed baby*
+> *With the whole world looking on*
+> *I know what it’s like to have been so sure*
+> *And I wake up and find it all gone*
 
 Southside sings with such empathy–just listen to the way he gently lands the word “failed” in the first couplet, or the way he draws out “so sure” in the second. If there was ever a case of a singer and song in full emotional alignment, this would be it.
 
 But we’ve gotta give equal credit to Bruce for his gorgeous lyrics. While it would be fair criticism to state that “All the Way Home” treads the same exact ground as “Tougher Than the Rest,” as much as I adore the latter song, I’d argue that “All the Way Home” walks it in a more mature and vulnerable fashion.
 
-*Now you’ve got no reason, no reason to trust me*
-*And tonight my confidence is a little rusty*
-*It’s getting late, if you don’t feel like leaving alone*
-*Maybe I can walk you baby all the way home*
+> *Now you’ve got no reason, no reason to trust me*
+> *And tonight my confidence is a little rusty*
+> *It’s getting late, if you don’t feel like leaving alone*
+> *Maybe I can walk you baby all the way home*
 
 It’s a tribute to both Bruce’s lyrics and Southside’s vocals that the key line that serves in lieu of a chorus–“maybe I can walk you, baby, all the way home”–works equally well as a romantic gesture, a sexual come-on, or simply an act of empathy. I suspect Bruce meant it as all three at once, and Southside understands that intuitively.
 
-*Our old fears and failures well they do linger, oh yes they do*
-*Like the shadow of that ring that was on your finger*
-*Well all those days darling, oh those days are dead and gone*
-*Oh I could walk you baby all the way home*
+> *Our old fears and failures well they do linger, oh yes they do*
+> *Like the shadow of that ring that was on your finger*
+> *Well all those days darling, oh those days are dead and gone*
+> *Oh I could walk you baby all the way home*
 
 The first couplet in that verse is magnificently haunting. If a wedding ring is by definition a symbol of a marriage, it makes sense that the impressions made by both the marriage and the ring last long after one sheds them, a constant reminder of failure. Or as Bruce puts it in the song’s bridge:
 
-*Now there’s things no one can rearrange*
-*We both have yesterdays that we can’t change*
+> *Now there’s things no one can rearrange*
+> *We both have yesterdays that we can’t change*
 
 The final verse ends in the same place where “Tougher Than the Rest” begins: in a bar with two lonely hearts looking for a chance to get it right. But whereas the hero of “Tougher” is confident, pragmatic, and boastful, the hero of “All the Way Home” is insecure, battle-scarred, and humble–which makes him a much braver protagonist.
 
-*It’s closing time, bartender’s ringing last call*
-*And these days I don’t stand on pride and I’ve learned how to take a fall*
-*But now the time’s come and if your first choice he’s gone*
-*Well that’s alright baby ’cause I can walk you all the way home*
+> *It’s closing time, bartender’s ringing last call*
+> *And these days I don’t stand on pride and I’ve learned how to take a fall*
+> *But now the time’s come and if your first choice he’s gone*
+> *Well that’s alright baby ’cause I can walk you all the way home*
 
 To put it another way: “Tougher Than the Rest” is the song you write before you’ve actually been through a divorce; “All the Way Home” is the song you write after experiencing it.
 
@@ -86,8 +86,8 @@ But that bridge–“Love leaves nothing but shadows and vapor/We go on as is ou
 
 Compare this new bridge with the original…
 
-*Now there’s things no one can rearrange*
-*We both have yesterdays that we can’t change*
+> *Now there’s things no one can rearrange*
+> *We both have yesterdays that we can’t change*
 
 …and it’s clear (at least to me) that lyrically, the song has been weakened by Bruce’s changes.
 

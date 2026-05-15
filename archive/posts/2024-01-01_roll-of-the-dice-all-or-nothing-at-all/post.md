@@ -8,8 +8,8 @@ Let’s compare. Here’s the original–
 
 Ouch, those lyrics. It’s like he isn’t even trying. When the cleverest lyric of a song is:
 
-*Shout out what you’re thinking of*
-*If what you’re thinkin’ of is love*
+> *Shout out what you’re thinking of*
+> *If what you’re thinkin’ of is love*
 
 …you know this isn’t a great candidate for scholarly analysis.
 

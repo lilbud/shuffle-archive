@@ -28,23 +28,23 @@ And yet even now, it’s possible to read Bruce’s lyrics as hopeful, and when 
 
 That’s because “Reason to Believe” *is* hopeful–as hopeful as it is despairing. It works on both levels because anyone who has struggled with depression and is still with us has also grappled with hope. And the distillation of that dichotomy can be found in the most important word in the entire song: *some*.
 
-*Seen a man standing over a dead dog by the highway in a ditch*
-*He’s looking down kinda puzzled, poking that dog with a stick*
-*Got his car door flung open, he’s standing out on Highway 31*
-*Like if he stood there long enough that dog’d get up and run*
-*It struck me kinda funny, seemed kinda funny sir to me*
-*Still at the end of every hard day people find some reason to believe*
+> *Seen a man standing over a dead dog by the highway in a ditch*
+> *He’s looking down kinda puzzled, poking that dog with a stick*
+> *Got his car door flung open, he’s standing out on Highway 31*
+> *Like if he stood there long enough that dog’d get up and run*
+> *It struck me kinda funny, seemed kinda funny sir to me*
+> *Still at the end of every hard day people find some reason to believe*
 
 “Reason to Believe” isn’t a story. It’s a series of vignettes, each of which illustrates the folly of hope, life, or love: in the end, we’re alone.
 
 The first verse is the most ambiguous. Is this man discovering and grieving his own pet, tormented by his guilt over his own unwatchfulness? Or is he the driver who struck and killed the dog? Either way, he’s unable to process the fleetingness of life, how something can be so vibrant one moment and vacant the next.
 
-*Now Mary Lou loved Johnny with a love mean and true*
-*She said “Baby I’ll work for you every day, bring my money home to you”*
-*One day he up and left her and ever since that*
-*She waits down at the end of that dirt road for young Johnny to come back*
-*Struck me kinda funny, funny yeah to me*
-*How at the end of every hard-earned day people find some reason to believe*
+> *Now Mary Lou loved Johnny with a love mean and true*
+> *She said “Baby I’ll work for you every day, bring my money home to you”*
+> *One day he up and left her and ever since that*
+> *She waits down at the end of that dirt road for young Johnny to come back*
+> *Struck me kinda funny, funny yeah to me*
+> *How at the end of every hard-earned day people find some reason to believe*
 
 If life is fleeting, at least love is eternal. Right? Bruce argues otherwise in the second verse. Our heroine is the breadwinner, a rarity in 1982, but despite her devotion to her love in all ways emotional and domestic, she is abandoned.
 
@@ -60,21 +60,21 @@ But Bruce’s narrator knows better. His characters are permanently disconnected
 
 Verse Three takes an existential turn:
 
-*Take a baby to the river, Kyle William they called him*
-*Wash the baby in the water, take away little Kyle’s sin*
-*In a whitewashed shotgun shack, an old man passes away*
-*Take his body to the graveyard, over him they pray*
-*Lord won’t you tell us, tell us what does it mean*
-*At the end of every hard-earned day people find some reason to believe*
+> *Take a baby to the river, Kyle William they called him*
+> *Wash the baby in the water, take away little Kyle’s sin*
+> *In a whitewashed shotgun shack, an old man passes away*
+> *Take his body to the graveyard, over him they pray*
+> *Lord won’t you tell us, tell us what does it mean*
+> *At the end of every hard-earned day people find some reason to believe*
 
 It’s worth noting at this point how skillfully and economically Bruce uses parallel construction to nudge his listeners into doing the hard work of creating a story in their own mind rather than simply tell it himself. He never tells us that Kyle is the old man who dies in the second half of the verse, any more than he tells us that the groom in the final verse is stranded at the altar. But we know, because Bruce trusts us to notice and understand his literary craft.
 
 As for the verse itself, Bruce is questioning the meaning of life itself. We live, and then we die. Does it matter what we do in between? No matter how devoutly we live our lives, we all end up the same way. And yet Kyle’s mourners still believe.
 
-*Congregation gathers down by the riverside*
-*Preacher stands with a Bible, groom stands waiting for his bride*
-*Congregation gone and the sun sets behind a weeping willow tree*
-*Groom stands alone and watches the river rush on so effortlessly*
+> *Congregation gathers down by the riverside*
+> *Preacher stands with a Bible, groom stands waiting for his bride*
+> *Congregation gone and the sun sets behind a weeping willow tree*
+> *Groom stands alone and watches the river rush on so effortlessly*
 
 It’s a horse race, but for my money the final verse cuts the sharpest. Anyone who’s been married understands this verse. Time is suspended on that day, and every detail is hyper-vivid. A wedding is an act of ultimate trust and therefore also a moment of ultimate vulnerability.
 
@@ -84,8 +84,8 @@ And I do mean intimately. In one of the most breathtaking moments in his entire 
 
 Seconds pass, and we can’t help but feel that there’s a missing line. It doesn’t feel deliberate. I don’t think it’s an artistic decision. I’ve always believed that Bruce was simply overcome with empathy at that moment of his performance.
 
-*Wondering where can his baby be*
-*Still at the end of every hard earned day people find some reason to believe*
+> *Wondering where can his baby be*
+> *Still at the end of every hard earned day people find some reason to believe*
 
 *Some reason to believe*. Bruce mocks his characters for continuing to believe for *some reason*. But he also envies them, because they’ve found *some reason*. “Reason to Believe” is almost a dialogue between Bruce and his characters, a plea from songwriter to his creations to please share with him their secret.
 

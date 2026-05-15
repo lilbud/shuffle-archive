@@ -26,21 +26,21 @@ Once Max Weinberg’s drums enter in the second verse, the song’s musical skel
 
 Our narrator is one of the many retired officers or firefighters searching for a loved one, and Bruce’s lyrics are universal enough for it to apply to a lover, a child, a parent, or a friend.
 
-*Sun comes every morning but it ain’t no friend*
-*I get dressed and I go back again*
-*The rain it keeps on falling on twisted bones and dirt*
-*I’m buried to my heart here in this hurt*
-*Fire keeps on burning, you’re waiting in the cold*
-*Down in the hole*
+> *Sun comes every morning but it ain’t no friend*
+> *I get dressed and I go back again*
+> *The rain it keeps on falling on twisted bones and dirt*
+> *I’m buried to my heart here in this hurt*
+> *Fire keeps on burning, you’re waiting in the cold*
+> *Down in the hole*
 
 Maybe it’s Day 10; perhaps it’s Day 100. We can’t tell, and neither can our narrator. Time blurs, one day fades into the next. “They have come for so many days on end,” writes Leduff, “one melting into the next, that their sense of the calendar has been lost entirely… The house goes wanting. Their lives have been taken over.”
 
-*Dark and bloody autumn pierces my heart*
-*The memory of your kiss tears me apart*
-*The sky above is turning, the world below’s gone gray*
-*I thought that I could turn and walk away*
-*But the fire keeps on burning, and I’m working in the cold*
-*Down in the hole*
+> *Dark and bloody autumn pierces my heart*
+> *The memory of your kiss tears me apart*
+> *The sky above is turning, the world below’s gone gray*
+> *I thought that I could turn and walk away*
+> *But the fire keeps on burning, and I’m working in the cold*
+> *Down in the hole*
 
 “If they found one person… it was a good day. If they find one finger… something was accomplished. But mostly, they are bad days.”
 
@@ -50,18 +50,18 @@ We don’t know exactly what Bruce was going for with the effect, and amusingly 
 
 Regardless of the reason, it’s effective–it keeps us at a distance and then draws us in. By the time we reach the bridge, we can feel our narrator’s pain as if it were our own.
 
-*Radio’s crackling with the headlines, wind in the phone lines*
-*The sun upon your shoulder, empty city skylines*
-*The day rips apart, a dark and bloody arrow pierced my heart*
+> *Radio’s crackling with the headlines, wind in the phone lines*
+> *The sun upon your shoulder, empty city skylines*
+> *The day rips apart, a dark and bloody arrow pierced my heart*
 
 “Down in the Hole” ends without resolution. With the final verse, we leave our narrator to his mission, determined to search without ceasing until he finds his loved ones, promising their ghosts that he will never leave them alone.
 
-*I got nothing but hard blue sky and sunshine, the things you left behind*
-*I wake to find my city’s gone to black*
-*The days just keep on falling, your voice it keeps on calling*
-*I’m gonna dig right here until I get you back*
-*Fires keep on burning, I’m here with you in the cold*
-*Down in the hole*
+> *I got nothing but hard blue sky and sunshine, the things you left behind*
+> *I wake to find my city’s gone to black*
+> *The days just keep on falling, your voice it keeps on calling*
+> *I’m gonna dig right here until I get you back*
+> *Fires keep on burning, I’m here with you in the cold*
+> *Down in the hole*
 
 **Down in the Hole**
 **Recorded** 2002, 2013  

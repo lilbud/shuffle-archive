@@ -2,9 +2,9 @@ Editor's Note
 
 ***Editor’s Note:*** *Today’s guest blogger has the most vividly detailed and colorful E Street adventure I’ve ever heard (so much so that I’ve had to split it into two parts).*
 
-*Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant [Facebook community](https://www.facebook.com/groups/290908270798).*
+> *Dan French is the founder of one of the very first Springsteen fanzines: Point Blank, first published in 1980. Point Blank published ten issues (and a couple of specials) through 1992; today, it lives on as a vibrant [Facebook community](https://www.facebook.com/groups/290908270798).*
 
-*Dan’s story has to be read (and re-read) to be believed, so without further ado, Dan’s adventure begins.*
+> *Dan’s story has to be read (and re-read) to be believed, so without further ado, Dan’s adventure begins.*
 
 Let me set the scene: when Bruce Springsteen and the E Street Band toured Europe in the spring of 1981 to support *The River*, I was living in London, out of work, with only my home-made fanzine *Point Blank* to my name.
 
@@ -110,7 +110,7 @@ Then I gave him the badge: “Some girl wanted you to have this.” (Bruce is ho
 
 He shook hands again and waved goodbye with a smile. “I'll see you in Britain, if not before!” I called, as he left. Bruce nodded and was gone, hungry but willing to sign more autographs for a group of fans outside.
 
-*To be continued…*
+> *To be continued…*
 
 What's your story?
 

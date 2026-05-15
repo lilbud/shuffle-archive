@@ -16,17 +16,17 @@ The lyrics are obviously a salute to Torres’ amazing run of wins as manager, b
 
 In the clip above, presumably after setting expectations with a few verses that culminate in a win for the Yankees, Bruce teased Torre by making reference to the end of the Rising Tour, when Bruce played Fenway Park but not Yankee Stadium. At Fenway, Bruce publicly proclaimed that he had broken the curse that had always kept the Red Sox at arm’s length from a world series title–and lo and behold, the following year, the Red Sox won their first, adding another entry to the *Legends of Springsteen* annals.
 
-*It’s the end of the last tour, E Street Band looking for a place to play*
-*We went to Yankee Stadium, but the boss man turned us away*
-*We went up north to Fenway and those kind folks let us in*
-*Oh, lord, Yankees lose*
+> *It’s the end of the last tour, E Street Band looking for a place to play*
+> *We went to Yankee Stadium, but the boss man turned us away*
+> *We went up north to Fenway and those kind folks let us in*
+> *Oh, lord, Yankees lose*
 
 But in the end, everyone knew that Bruce would bring it back around to acknowledge Torre’s contributions to baseball and to his community.
 
-*Well, Joe, we wish you plenty of luck and good fortune, and*
-*We don’t know when we’ll be seeing the likes of you again*
-*You could teach a master class in class, and so, my good friend*
-*Thanks for all those thrills and chills and all those Yankee wins*
+> *Well, Joe, we wish you plenty of luck and good fortune, and*
+> *We don’t know when we’ll be seeing the likes of you again*
+> *You could teach a master class in class, and so, my good friend*
+> *Thanks for all those thrills and chills and all those Yankee wins*
 
 It was a touching way for Bruce to honor the man who’d brought him (and so many other Yankees fans) joy and pride.
 

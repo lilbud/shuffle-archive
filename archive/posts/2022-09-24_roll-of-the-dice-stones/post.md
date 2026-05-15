@@ -24,16 +24,16 @@ As Bruce cautions by way of introduction in the filmed version of *Western Stars
 
 Over time, lies can turn a lush garden into a barren tundra, but they often take root at the height of spring. That’s why they’re so insidious: when first planted, our garden seems so verdant that it’s hard to imagine any weed could strangle it. But they can and do, and Bruce explains how through metaphor.
 
-*I woke up this morning with stones in my mouth*
-*You said those were only the lies you’ve told me*
-*Those are only the lies you’ve told me*
+> *I woke up this morning with stones in my mouth*
+> *You said those were only the lies you’ve told me*
+> *Those are only the lies you’ve told me*
 
-*I pulled my collar to the wind and spit them on the ground*
-*You said those are only the lies you’ve told me*
-*Those are only the lies you’ve told me*
+> *I pulled my collar to the wind and spit them on the ground*
+> *You said those are only the lies you’ve told me*
+> *Those are only the lies you’ve told me*
 
-*We sat on the edge of our bed in the sun*
-*I felt them gather on my tongue*
+> *We sat on the edge of our bed in the sun*
+> *I felt them gather on my tongue*
 
 We meet our narrator in the prime of springtime, when love is young and vibrant. But the seeds of its demise are already present, and he knows it. The titular stones he wakes to aren’t salivary stones. They’re the untruths–perhaps small at first–that he tells his partner. And his partner calls him on it.
 
@@ -45,14 +45,14 @@ In the second stanza, the weather is already beginning to turn. Our narrator gat
 
 In the next two stanzas, we flash forward. Our narrator can see the future, and it’s decidedly darker than the present.
 
-*The dirt-brown winter field, a thousand black crows cover the ground*
-*You say those are only the lies you’ve told me*
-*Those are only the lies you’ve told me*
+> *The dirt-brown winter field, a thousand black crows cover the ground*
+> *You say those are only the lies you’ve told me*
+> *Those are only the lies you’ve told me*
 
-*The autumn wind blows through the trees*
-*As the dark leaves come tumbling down*
-*You say those are only the lies you’ve told me*
-*Those are only the lies you’ve told me*
+> *The autumn wind blows through the trees*
+> *As the dark leaves come tumbling down*
+> *You say those are only the lies you’ve told me*
+> *Those are only the lies you’ve told me*
 
 Notice that Bruce has broadened the metaphor. The lies that started as stones have choked the life from the field. Dark leaves fall, a cold wind blows, and a thousand crows cover the ground–all symbols of proliferating untruths.
 
@@ -60,12 +60,12 @@ Crows are highly symbolic creatures across many cultures and religions, and whil
 
 And yet:
 
-*I walk a highway washed in sun*
-*I feel weight gather on my tongue*
+> *I walk a highway washed in sun*
+> *I feel weight gather on my tongue*
 
 We are still in the green times, still in the sunlight. We’re in the moments where truth matters most. But the weight of the unspoken is growing.
 
-*I woke up this morning with stones in my mouth…*
+> *I woke up this morning with stones in my mouth…*
 
 That’s why it’s so essential that “Stones” shines with such a warm vocal performance and a bright, wide-open, orchestral vista. We’re meant to feel this love at its most pure and powerful so that we might understand what our narrator stands to lose.
 

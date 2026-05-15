@@ -12,15 +12,15 @@ Let’s start with the title. We’ve looked at so many Springsteen songs with t
 
 Let’s move on to the lyrics:
 
-*It’s one for the money and one for the show*
-*I got one kiss for you honey so come on let’s go*
-*I didn’t see it coming but girl now I know*
-*It takes one for the running but two for the road*
+> *It’s one for the money and one for the show*
+> *I got one kiss for you honey so come on let’s go*
+> *I didn’t see it coming but girl now I know*
+> *It takes one for the running but two for the road*
 
-*One thousand dreams whispered in the dark*
-*But a dream’s just a dream in one empty heart*
-*It takes more than one to rev it up and go*
-*So let’s get it running, we’re two for the road*
+> *One thousand dreams whispered in the dark*
+> *But a dream’s just a dream in one empty heart*
+> *It takes more than one to rev it up and go*
+> *So let’s get it running, we’re two for the road*
 
 Notice the repeated occurrence of the word “running” in the final lines of each verse. That’s almost certainly Bruce drawing a direct connection between “Two For the Road” and “Born to Run.”
 
@@ -28,19 +28,19 @@ Is this the same narrator from Bruce’s signature song more than a dozen years 
 
 If Bruce had carried the comparison all the way through the song, “Two For the Road” might have made for a rewarding and nostalgic reconnection with a long lost friend. Unfortunately, he quickly abandons the notion.
 
-*Two one-way tickets and a diamond ring*
-*Hell it don’t matter what the rain might bring*
-*Whoa, when this world treats you hard and cold*
-*I’ll stand beside you, we’re two for the road*
+> *Two one-way tickets and a diamond ring*
+> *Hell it don’t matter what the rain might bring*
+> *Whoa, when this world treats you hard and cold*
+> *I’ll stand beside you, we’re two for the road*
 
 The bridge is a callback as well–just to a different song. “This world treats you hard and cold” features prominently in the bridge of “Two Hearts.” (It works better there, too.)
 
-*When you’re alone my love’ll shine the light*
-*Through the dark and starless night*
-*I’ll hold you close and never let you go*
-*C’mon now girl ’cause we’re two for the road*
-*Well it’s two to get ready, babe, c’mon let’s go*
-*Me and you, girl, we’re two for the road*
+> *When you’re alone my love’ll shine the light*
+> *Through the dark and starless night*
+> *I’ll hold you close and never let you go*
+> *C’mon now girl ’cause we’re two for the road*
+> *Well it’s two to get ready, babe, c’mon let’s go*
+> *Me and you, girl, we’re two for the road*
 
 Honestly, I have nothing to add about the third verse. It’s pedestrian. If you ever need a rare example of Bruce phoning in lyrics, the last verse of “Two For the Road” is about as strong a candidate as you’ll find.
 

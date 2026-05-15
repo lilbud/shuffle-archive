@@ -19,18 +19,18 @@ Both songs even start in the same place: the narrator’s car. And if you compar
 
 The songs diverge from there, and neither rewards lyrical analysis. “Fire” and “I’m Goin’ Down” are both pop songs, and Bruce puts everything on the surface.
 
-*We get dressed up and we go out, baby, for the night*
-*We come home early burning, burning, burning in some fire fight*
-*I’m sick and tired of you setting me up, yeah, setting me up just to*
-*Knock-a, knock-a, knock-a me down, down, down, down*
-*I’m going down, down, down, down*
+> *We get dressed up and we go out, baby, for the night*
+> *We come home early burning, burning, burning in some fire fight*
+> *I’m sick and tired of you setting me up, yeah, setting me up just to*
+> *Knock-a, knock-a, knock-a me down, down, down, down*
+> *I’m going down, down, down, down*
 
-*I pull you close now baby, but when we kiss I can feel a doubt*
-*I remember back when we started, my kisses used to turn you inside out*
-*I used to drive you to work in the morning, Friday night I’d drive you all around and*
-*You used to love to drive me wild, yeah, but lately girl you get your kicks from just*
-*Driving me down, down, down, down*
-*I’m going down, down, down, down*
+> *I pull you close now baby, but when we kiss I can feel a doubt*
+> *I remember back when we started, my kisses used to turn you inside out*
+> *I used to drive you to work in the morning, Friday night I’d drive you all around and*
+> *You used to love to drive me wild, yeah, but lately girl you get your kicks from just*
+> *Driving me down, down, down, down*
+> *I’m going down, down, down, down*
 
 But just because “I’m Goin’ Down” is lyrically light doesn’t mean it isn’t skillfully crafted. There’s a reason why it became a big radio hit, and it’s the same reason you probably love singing along to it on the radio or in concert.
 

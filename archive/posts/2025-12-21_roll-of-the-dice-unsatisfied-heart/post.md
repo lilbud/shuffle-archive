@@ -18,19 +18,19 @@ In any event, this certainly isn’t the only instance of two released Springste
 
 Both songs share the same first verse (with a couple of minor wording differences):
 
-*Sir, I am a pilgrim, a stranger in this land*
-*Once I had a home here, my salvation was at hand*
-*I lived in a house of gold, yeah, on a far hillside*
-*I had two beautiful children and a kind and loving wife*
+> *Sir, I am a pilgrim, a stranger in this land*
+> *Once I had a home here, my salvation was at hand*
+> *I lived in a house of gold, yeah, on a far hillside*
+> *I had two beautiful children and a kind and loving wife*
 
 These are hardly the only two Springsteen songs to share this scenario. Bruce would later distill these lines down to “I had a job, I had a girl; I had something going, mister, in this world,” and use that motif in “Downbound Train,” and “Dead Man Walkin’.” Clearly, the idea of feeling lost and rootless in a place that was once very much one’s anchor was an idea that pre-occupied him at least for a time, and while Bruce was not yet a family man, it certainly doesn’t take an imaginative leap to understand how the life of a touring rock star might make one feel a bit removed from one’s roots.
 
 The scene is set, and now the story starts:
 
-*One day a man came to town with nothing and nowhere to go*
-*He came to me and he mentioned something I’d done a long time ago*
-*I allowed him into my home on his vow that secret wouldn’t see the light*
-*At night I’d lay awake in my wife’s arms, she’d sigh, “George, you alright?”*
+> *One day a man came to town with nothing and nowhere to go*
+> *He came to me and he mentioned something I’d done a long time ago*
+> *I allowed him into my home on his vow that secret wouldn’t see the light*
+> *At night I’d lay awake in my wife’s arms, she’d sigh, “George, you alright?”*
 
 This is where “Unsatisfied Heart” diverges from “Fugitive’s Dream.” Both songs share essentially the same first three lines of that verse–the stranger who arrives at your house bearing knowledge of your secret past, and terrified of it being revealed, the singer admits the stranger into his home.
 
@@ -38,36 +38,36 @@ It’s a great setup for a story or a song. There are any number of paths the ta
 
 In the demo version of “Unsatisfied Heart,” Bruce sings:
 
-*Day after day, time, yeah, time passed on by*
-*But I could feel myself changing, yeah, changing deep inside*
-*One night I woke up and as my wife did sleep*
-*I got dressed in the darkness and I fled into the street*
+> *Day after day, time, yeah, time passed on by*
+> *But I could feel myself changing, yeah, changing deep inside*
+> *One night I woke up and as my wife did sleep*
+> *I got dressed in the darkness and I fled into the street*
 
 The released version features a different opening couplet for this verse:
 
-*The life I built so carefully, it fell before my sin*
-*My home became my prison, my truth hidden deep within*
+> *The life I built so carefully, it fell before my sin*
+> *My home became my prison, my truth hidden deep within*
 
 This is a rare instance where I prefer the earlier lyrics to the final ones. The latter lines are a bit too on the nose for my liking, spelling out explicitly what the earlier lyrics clearly imply but leave to the listener to interpret. Both versions tell the same story, however, so it’s a minor quibble.
 
 There’s a reason why Bruce added a chorus only to “Unsatisfied Heart,” and it’s as simple and deadly serious as:
 
-*Can you live with an unsatisfied heart?*
+> *Can you live with an unsatisfied heart?*
 
 We never learn the singer’s secret, either in “Fugitive’s Dream” or in “Unsatisfied Heart,” although it’s strongly implied in the latter that he’d abandoned his former life–and perhaps a family–and had managed to keep that life walled off even in his own mind and heart. But the appearance of the stranger shook him, woke him, and now he can’t shut that door in his heart again.
 
-*Well, night after night the same dream keeps coming ’round*
-*I’m standing high in the green hills on the outskirts of town*
-*Night air fills my lungs and rustles my shirt*
-*I can see the house where we lived, the building where I used to work*
-*As I draw near the town’s lit by a red summer moon*
-*I feel your arms around me, I wake up in this room*
+> *Well, night after night the same dream keeps coming ’round*
+> *I’m standing high in the green hills on the outskirts of town*
+> *Night air fills my lungs and rustles my shirt*
+> *I can see the house where we lived, the building where I used to work*
+> *As I draw near the town’s lit by a red summer moon*
+> *I feel your arms around me, I wake up in this room*
 
 In “Fugitive’s Dream” it’s implied that the secret is more sinister, and while that song ends on a similar reflective scene, its imagery is darker and lonelier.
 
 In a sense, “Fugitive’s Dream” presaged the style of songwriting that would feature heavily on *The Ghost of Tom Joad,* and “Unsatisfied Heart” might have been right at home on *Tunnel of Love*. The closing lines of “Brilliant Disguise” would fit aptly here:
 
-*God have mercy on the man who doubts what he’s sure of.*
+> *God have mercy on the man who doubts what he’s sure of.*
 
 “Unsatisfied Heart” would have almost assuredly been included on a *Nebraska* sequel (which Bruce had in fact briefly considered as his next album, before choosing another path), but instead it remained in the vault for more than four decades.
 

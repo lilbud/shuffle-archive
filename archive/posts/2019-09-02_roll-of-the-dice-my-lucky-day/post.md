@@ -20,39 +20,39 @@ But it would be a mistake to dismiss “My Lucky Day” as a light love song. Th
 
 “My Lucky Day” captures the essence of *Working on a Dream* and conveys it in its purest and most celebratory form. Its message is simple: life is long and unpredictable, and it therefore inevitably brings its share of blows and defeats our way. But love isn’t random–it’s enduing, dependable and the surest bet this life provides. When everything else seems to go wrong, we can trust the one by our side to be our anchor.
 
-*In the room where fortune falls*
-*On a day when chance is all*
-*In the dark of this exile*
-*I felt the grace of your smile*
+> *In the room where fortune falls*
+> *On a day when chance is all*
+> *In the dark of this exile*
+> *I felt the grace of your smile*
 
-*Honey you’re my lucky day*
-*Baby you’re my lucky day*
-*When I’ve lost all the other bets I’ve made*
-*Honey you’re my lucky day*
+> *Honey you’re my lucky day*
+> *Baby you’re my lucky day*
+> *When I’ve lost all the other bets I’ve made*
+> *Honey you’re my lucky day*
 
 But that’s not to say that love won’t be tested. Bruce goes on to note that even great loves can fall apart when the going gets tough, and that’s why he’s so determined to nourish and protect his.
 
-*Well I’ve seen strong hearts give way*
-*To the burdens of the day*
-*To the weary hands of time*
-*Where fortune is not kind*
+> *Well I’ve seen strong hearts give way*
+> *To the burdens of the day*
+> *To the weary hands of time*
+> *Where fortune is not kind*
 
-*Honey you’re my lucky day*
-*Baby you’re my lucky day*
-*When I’ve lost all the other bets I’ve made*
-*Honey you’re my lucky day*
+> *Honey you’re my lucky day*
+> *Baby you’re my lucky day*
+> *When I’ve lost all the other bets I’ve made*
+> *Honey you’re my lucky day*
 
 But there’s a fake-out coming. By this point in the song, we know the narrator is a romantic, but he also comes across a bit self-centered, maybe even desperate. The first two verses are expressions of love, but also of need. But listen carefully to the final verse:
 
-*I have waited at your side*
-*I’ve counted the tears you’ve cried*
-*But to win, darling we must play*
-*So don’t hide your heart away*
+> *I have waited at your side*
+> *I’ve counted the tears you’ve cried*
+> *But to win, darling we must play*
+> *So don’t hide your heart away*
 
-*Honey you’re my lucky day*
-*Baby you’re my lucky day*
-*When I’ve lost all the other bets I’ve made*
-*Honey you’re my lucky day*
+> *Honey you’re my lucky day*
+> *Baby you’re my lucky day*
+> *When I’ve lost all the other bets I’ve made*
+> *Honey you’re my lucky day*
 
 Bruce’s big reveal is that it’s actually the narrator’s love interest who is in the middle of a crisis, and Bruce’s insistence on describing her as his lucky day isn’t a demand–it’s a promise. He’s saying: whether you know it or not, you’ve always been my rock. Now it’s my turn to be yours, no matter how long it takes.
 

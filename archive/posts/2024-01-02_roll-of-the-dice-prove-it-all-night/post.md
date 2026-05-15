@@ -34,11 +34,11 @@ Let’s look beneath all that stuff.
 
 On the surface, “Prove It All Night” is a wedding song, or at least a proposal song. Our narrator spends the entire song trying to convince his girl to elope with him, and the subtext starts from the very first line.
 
-*I’ve been working real hard trying to get my hands clean*
-*We’ll drive that dusty road from Monroe to Angeline*
-*To buy you a gold ring and a pretty dress of blue*
-*Baby just one kiss will get these things for you*
-*A kiss to seal our fate tonight*
+> *I’ve been working real hard trying to get my hands clean*
+> *We’ll drive that dusty road from Monroe to Angeline*
+> *To buy you a gold ring and a pretty dress of blue*
+> *Baby just one kiss will get these things for you*
+> *A kiss to seal our fate tonight*
 
 I could write an entire blog post around the repeated metaphors throughout *Darkness on the Edge of Town,* and the washing of hands would certainly be one of them. “[Racing in the Street](https://estreetshuffle.com/index.php/2021/10/03/roll-of-the-dice-racing-in-the-street/)” spells it out, but in “Prove It All Night,” Bruce trusts the listener to realize that our narrator is doing more than just cleaning himself up for his proposal–he’s also trying his best to get himself on the straight and narrow, to atone for past sins, and to build a good life for himself and his future wife.
 
@@ -48,18 +48,18 @@ The ring, of course, is an obvious wedding totem. Interestingly, though, her wed
 
 Let’s stop for a moment and take that verse back in. I find that “Prove It All Night” is lyrically under-appreciated, and I attribute that to its plain language. But look at how artfully Bruce uses those three simple lines to introduce us to two characters with checkered pasts without need of any detailed exposition whatsoever:
 
-*I’ve been working real hard trying to get my hands clean*
-*We’ll drive that dusty road from Monroe to Angeline*
-*To buy you a gold ring and a pretty dress of blue*
+> *I’ve been working real hard trying to get my hands clean*
+> *We’ll drive that dusty road from Monroe to Angeline*
+> *To buy you a gold ring and a pretty dress of blue*
 
 They may not be the most memorable lines on the album, but they are among the best-crafted.
 
 The kiss that promises to seal their fate is their wedding kiss, the one that symbolizes and begins their marital journey. Bruce uses the kiss as the first step in “proving it all night,” and there is of course an intended consummatory reading of that.
 
-*A kiss to prove it all night, prove it all night*
-*Girl there’s nothing else that we can do*
-*So prove it all night, prove it all night*
-*And girl I’ll prove it all night for you*
+> *A kiss to prove it all night, prove it all night*
+> *Girl there’s nothing else that we can do*
+> *So prove it all night, prove it all night*
+> *And girl I’ll prove it all night for you*
 
 But the title refers to more than that first night–it stands for *every* night. It stands for *life*. When our narrator sings “Prove It All Night,” he’s pledging to remain true and prove his love and fidelity for the remainder of their days. Or rather, nights–this is the *Darkness* album after all, and the nocturnal setting is just one more symbol of the hard lives led by these characters.
 
@@ -67,16 +67,16 @@ Bruce never outright states that our characters live on the wrong side of the la
 
 The middle third of the song is its heart. If we’re looking for the message in “Prove It All Night,” this is where we’ll find it:
 
-*Everybody’s got a hunger, a hunger they can’t resist*
-*There’s so much that you want, you deserve much more than this*
-*But if dreams came true, ah, wouldn’t that be nice*
-*But this ain’t no dream we’re living out through tonight*
-*Ah girl you want it, you take it, you pay the price*
+> *Everybody’s got a hunger, a hunger they can’t resist*
+> *There’s so much that you want, you deserve much more than this*
+> *But if dreams came true, ah, wouldn’t that be nice*
+> *But this ain’t no dream we’re living out through tonight*
+> *Ah girl you want it, you take it, you pay the price*
 
-*To prove it all night, prove it all night*
-*Prove it all night, girl, and call the bluff*
-*Well prove it all night, prove it all night*
-*Girl I prove it all night for your love*
+> *To prove it all night, prove it all night*
+> *Prove it all night, girl, and call the bluff*
+> *Well prove it all night, prove it all night*
+> *Girl I prove it all night for your love*
 
 We can of course read this literally; Bruce has taken care to establish his hardscrabble characters so that this sounds like dialogue they would exchange. And while the lines work either in context of that one night or a shared life, this section transcends both: this is also Bruce speaking directly to us about the elusiveness of dreams, the cost of ambition, and the steadfast focus required to achieve them both.
 
@@ -84,11 +84,11 @@ Keep in mind that Bruce wrote “Prove It All Night” immediately after a costl
 
 On both a literary and metatextual level, “Prove It All Night” is a you-and-me-against-the-world song, and he is “me” and we are “you.”
 
-*Baby tie your hair back in a long white bow*
-*Meet me in the fields behind the dynamo*
-*You hear their voices telling you not to go*
-*They made their choices and they’ll never know*
-*What it means to steal, to cheat, to lie, what it’s like to live and die*
+> *Baby tie your hair back in a long white bow*
+> *Meet me in the fields behind the dynamo*
+> *You hear their voices telling you not to go*
+> *They made their choices and they’ll never know*
+> *What it means to steal, to cheat, to lie, what it’s like to live and die*
 
 The song’s final verse echoes an earlier Springsteen get-out-of-Dodge song, but unlike “Thunder Road,” there’s no wind of escape to blow back our heroine’s hair–she’ll have to do it herself. And there’s no guarantee that victory awaits them once they start their shared journey. We’re not even sure whether or narrator is addressing his intended in these final lines, or whether he’s revealing his own doubts and insecurities.
 
@@ -133,7 +133,7 @@ At first, fans voiced their wish on private message boards and fan sites; but wh
 
 Bruce ignored them for as long as he could, even throwing cold water on the notion when a fan asked about it during a call-in appearance on E Street Radio:
 
-*“You're one of the '78 piano intro guys! There are clones of you in various places throughout the United States. … It was just a device that worked nicely at the time. If you'd like to hear it again, that'll probably never occur, my friend. But it was good while it lasted."*
+> *“You're one of the '78 piano intro guys! There are clones of you in various places throughout the United States. … It was just a device that worked nicely at the time. If you'd like to hear it again, that'll probably never occur, my friend. But it was good while it lasted."*
 
 But in 2012, Bruce finally relented, and on May 17, 2012 in Barcelona, this happened:
 

@@ -10,20 +10,20 @@ It shows.
 
 The lyrics are, shall we say, basic–although the song goes on for about two minutes, the lyrics are comprised of a total of nine unique lines that repeat at least once.*
 
-*Baby I don’t need your loving no more*
-*Baby I don’t need your kisses no more*
-*Baby I don’t need your tender touch*
-*Baby I*
+> *Baby I don’t need your loving no more*
+> *Baby I don’t need your kisses no more*
+> *Baby I don’t need your tender touch*
+> *Baby I*
 
-*Baby I don’t need your tender kiss*
-*Baby I you will never miss*
-*Baby I don’t want you ’round me no more*
-*Baby I*
+> *Baby I don’t need your tender kiss*
+> *Baby I you will never miss*
+> *Baby I don’t want you ’round me no more*
+> *Baby I*
 
-*‘Cause I got someone new*
-*Somebody better than you*
-*Somebody who’ll be true*
-*Somebody better than you*
+> *‘Cause I got someone new*
+> *Somebody better than you*
+> *Somebody who’ll be true*
+> *Somebody better than you*
 
 Given their youth and the fact that the song was written minutes before it was recorded, we’ll forgive the boys that clumsy, wince-inducing “Baby I you will never miss” and their inability come up with a fourth line for the chorus.
 

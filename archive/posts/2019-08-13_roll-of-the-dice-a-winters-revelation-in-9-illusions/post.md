@@ -20,56 +20,56 @@ The illusions themselves, however, range from serviceable to painful–none of t
 
 The first two verses merely serve to establish the narrator’s despondent mood. (Note: I’ve taken the liberty to correct the misspellings in the original lyrics.)
 
-*As the walls of my wooden shack*
-*come crashing on my dreams*
-*Losing forever in the puzzles*
-*of time-faded memories*
+> *As the walls of my wooden shack*
+> *come crashing on my dreams*
+> *Losing forever in the puzzles*
+> *of time-faded memories*
 
-*As the ancient oak tree*
-*stands shaking in the wind*
-*Silent in its timeless rest*
-*in her boughs loneliness sings*
+> *As the ancient oak tree*
+> *stands shaking in the wind*
+> *Silent in its timeless rest*
+> *in her boughs loneliness sings*
 
 Illusion #3 appears to be the closest thing we have to a chorus, at least establishing an A-A-B verse structure with parallel opening lines for the B verses. It also marks a lyrical shift, as Bruce now rouses from his reverie to address his love, who we suspect (based on the previous two verses) is no longer with him:
 
-*Do you remember the hours we spent listening to the rain?*
-*I felt the warmth of your tender love*
-*and never knew your name*
-*It didn’t matter, love was there just the same*
+> *Do you remember the hours we spent listening to the rain?*
+> *I felt the warmth of your tender love*
+> *and never knew your name*
+> *It didn’t matter, love was there just the same*
 
 Bruce returns to increasingly fantastical imagery for the next three verses, and although there is at least one flash of inspiration (a wizard who changes the poetry of a loner), for the most part Bruce is grasping without latching onto metaphors for the pain of lost love.
 
-*As the Wizard of the North*
-*flies through crimson skies*
-*Changing words stolen*
-*from a verse written by a lonely child*
+> *As the Wizard of the North*
+> *flies through crimson skies*
+> *Changing words stolen*
+> *from a verse written by a lonely child*
 
-*As the creatures of the Magic Forest*
-*lie crying in the sun*
-*Thinking of their friend*
-*who was lost to the hunter’s gun*
+> *As the creatures of the Magic Forest*
+> *lie crying in the sun*
+> *Thinking of their friend*
+> *who was lost to the hunter’s gun*
 
-*Do you remember the days we spent on the Eastern Gate?*
-*The aged shepherd of lost time*
-*showed us the dead loneliness in hate*
-*But things were good then, you were there with me again*
+> *Do you remember the days we spent on the Eastern Gate?*
+> *The aged shepherd of lost time*
+> *showed us the dead loneliness in hate*
+> *But things were good then, you were there with me again*
 
 The song’s final third is the weakest. I almost feel bad sharing it, so again I feel compelled to point out: Bruce was eighteen (at most) when he wrote this song, there’s no evidence that these were final lyrics, and certainly no reason to believe he ever intended them to be widely read. So this is for historical purposes only:
 
-*As the young flower lifts her head*
-*to live in the warmth of the sun*
-*The universe is hidden in her breast,*
-*her cries cry out for love*
+> *As the young flower lifts her head*
+> *to live in the warmth of the sun*
+> *The universe is hidden in her breast,*
+> *her cries cry out for love*
 
-*As I run through the golden fields*
-*that border the edge of my mind*
-*The Queen of Darkness comes riding by*
-*with diamonds in her eyes*
+> *As I run through the golden fields*
+> *that border the edge of my mind*
+> *The Queen of Darkness comes riding by*
+> *with diamonds in her eyes*
 
-*Do you remember the years we spent in the Palace of Sunshine?*
-*The elders taught us from century-old books*
-*The wind gifted us with a child, the night bid us welcome*
-*as we left to play amongst the stars during a winter’s revelation*
+> *Do you remember the years we spent in the Palace of Sunshine?*
+> *The elders taught us from century-old books*
+> *The wind gifted us with a child, the night bid us welcome*
+> *as we left to play amongst the stars during a winter’s revelation*
 
 See what I mean? There is, however, one admirable aspect here worth noting: Bruce titles the song “A Winter’s Revelation,” but waits until the song’s last line before referencing it–and when he does, it’s clear that he’s fooled us. He leads us to expect an epiphany, a revelation in the “eureka” sense, but instead Bruce meant “reveal” in the “laying bare” sense.
 

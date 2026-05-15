@@ -19,16 +19,16 @@ In this draft, we can see that Sandy is not yet a metaphor. Instead, she’s the
 
 In the almost fully formed verse above, we learn that Sandy got bored and moved to the big city.
 
-*The bands, the bars, the girls, guitar, the tours*
-*The kids say Sandy left town and moved in with her parents in New York*
-*Since summer was over the lights on the boardwalk dimmed and she got bored*
-*She has a little apartment by the beach, the landlady told me he don’t live there no more*
-*Since summer’s gone I don’t get home much myself anymore*
+> *The bands, the bars, the girls, guitar, the tours*
+> *The kids say Sandy left town and moved in with her parents in New York*
+> *Since summer was over the lights on the boardwalk dimmed and she got bored*
+> *She has a little apartment by the beach, the landlady told me he don’t live there no more*
+> *Since summer’s gone I don’t get home much myself anymore*
 
 While Bruce never outright states it, it’s clear that Sandy’s escape stirs feelings of restlessness in him, and even a visceral sense of being trapped in the life of a working, undiscovered musician:
 
-*Poor people got no money, no lights, no heat or gas for their car*
-*They can’t go no place and they can’t see where they are*
+> *Poor people got no money, no lights, no heat or gas for their car*
+> *They can’t go no place and they can’t see where they are*
 
 Whenever it was that Bruce wrote these lyrics, he was clearly grappling with the self-awareness that it was time to move on and move away from the town that had meant so much to him, but he couldn’t quite bring himself to make the break yet.
 
@@ -56,12 +56,12 @@ I wrote at the top that “Sandy” works a *lot* better as a town than as a gir
 
 The first verse is deceptively formulaic (for Bruce, anyway). If it’s the only part of the song we heard, we’d think this was just another of Bruce’s street painting songs, all scene and no action:
 
-*Sandy, the fireworks are hailing over Little Eden tonight*
-*Forcing a light into all those stony faces left stranded on this warm July*
-*Down in the town, the Circuit’s full of switchblade lovers, so fast, so shiny, so sharp*
-*As the wizards play down on Pinball Way on the boardwalk way past dark*
-*And the boys from the casino dance with their shirts open like Latin lovers on the shore*
-*Chasing all them silly New York virgins by the score*
+> *Sandy, the fireworks are hailing over Little Eden tonight*
+> *Forcing a light into all those stony faces left stranded on this warm July*
+> *Down in the town, the Circuit’s full of switchblade lovers, so fast, so shiny, so sharp*
+> *As the wizards play down on Pinball Way on the boardwalk way past dark*
+> *And the boys from the casino dance with their shirts open like Latin lovers on the shore*
+> *Chasing all them silly New York virgins by the score*
 
 But even as Bruce sets the stage, there’s a lot to unpack:
 
@@ -71,11 +71,11 @@ We immediately realize that Bruce is feeling somewhat alienated from his home, e
 
 By the time we finish this verse, we start to worry–just how bleak of a journey are we in for? But immediately, Bruce introduces the chorus, and it’s one of his most beautiful:
 
-*Sandy, the aurora is rising behind us*
-*This pier lights our carnival life forever*
-*Oh, love me tonight, for I may never see you again*
-*Hey, Sandy girl*
-*My, my, baby*
+> *Sandy, the aurora is rising behind us*
+> *This pier lights our carnival life forever*
+> *Oh, love me tonight, for I may never see you again*
+> *Hey, Sandy girl*
+> *My, my, baby*
 
 I’ve heard many fans argue that the aurora represents either a real or fictional roller coaster, ferris wheel, or some other immense amusement park ride. But again, I don’t think so–I think the reference is literal.
 
@@ -83,18 +83,18 @@ I’ve heard many fans argue that the aurora represents either a real or fiction
 
 And for the rest of the song, Bruce wanders the town, lost in thought and memory, the night playing out around him. Bruce was once one of the principal actors, but now he’s just an observer.
 
-*Now, the greasers, ah, they tramp the streets or get busted for sleeping on the beach all night*
-*Them boys in their high heels, ah, Sandy, their skins are so white*
-*And me, I just got tired of hanging in them dusty arcades, banging them pleasure machines*
-*Chasing the factory girls underneath the boardwalk where they all promise to unsnap their jeans*
+> *Now, the greasers, ah, they tramp the streets or get busted for sleeping on the beach all night*
+> *Them boys in their high heels, ah, Sandy, their skins are so white*
+> *And me, I just got tired of hanging in them dusty arcades, banging them pleasure machines*
+> *Chasing the factory girls underneath the boardwalk where they all promise to unsnap their jeans*
 
 Let’s pause for a moment to admire Bruce’s slyness–notice how he places that phrase “banging them pleasure machines” just after the arcade and just above the boardwalk. You can interpret that phrase in reference to either the arcades or the factory girls, but either way it illustrates boredom bordering on disdain and an emotional detachment from the people and places around him. I think it’s my single favorite lyrical device in the entire song.
 
 (Let’s also take a moment to think about how ridiculous the song becomes if we take it literally: It’s not exactly a wise seduction technique to complain about being bored by all the girls you hooked up with.)
 
-*And you know that tilt-a-whirl down on the south beach drag*
-*I got on it last night and my shirt got caught*
-*And they kept me spinning, babe, didn’t think I’d ever get off*
+> *And you know that tilt-a-whirl down on the south beach drag*
+> *I got on it last night and my shirt got caught*
+> *And they kept me spinning, babe, didn’t think I’d ever get off*
 
 Those lines seem like just a seaside summer anecdote, but it’s not. The tilt-a-whirl is just part of the Sandy-as-Asbury conceit, a playful way of describing the hold that the town has on him, and how easy it is to get and stay caught up and trapped in it.
 
@@ -102,10 +102,10 @@ Those lines seem like just a seaside summer anecdote, but it’s not. The tilt-a
 
 Now we arrive at the third and final verse, and it’s a curious one. Perhaps no other single verse in any Springsteen song has been as volatile, as changeable as this one.
 
-*Sandy, that waitress I was seeing lost her desire for me*
-*I spoke with her last night, she said she won’t set herself on fire for me anymore*
-*She worked that joint under the boardwalk, she was always the girl you saw bopping down the beach with the radio*
-*The kids say last night she was dressed like a star in one of them cheap little seaside bars, and I saw her parked with lover boy out on the Kokomo*
+> *Sandy, that waitress I was seeing lost her desire for me*
+> *I spoke with her last night, she said she won’t set herself on fire for me anymore*
+> *She worked that joint under the boardwalk, she was always the girl you saw bopping down the beach with the radio*
+> *The kids say last night she was dressed like a star in one of them cheap little seaside bars, and I saw her parked with lover boy out on the Kokomo*
 
 In that first July 1973 live recording above, the waitress is “them north side angels” who simply come and go as the weather changes. In the early studio version from August, “northern” angels “ride that crazy road down from heaven on their Harleys every season.”
 
@@ -115,12 +115,12 @@ Except that not even five months after the song’s released–before the album�
 
 In any and every version, though, Bruce wraps the final verse with one of his funniest and most telling lines:
 
-*Did you hear the cops finally busted Madame Marie for telling fortunes better than they do*
+> *Did you hear the cops finally busted Madame Marie for telling fortunes better than they do*
 
 What a wonderful line that is: it simultaneously evokes the boardwalk carnival life one final time, honors it by instilling an ironic sense of honesty into something so innately make-believe, and conveys a sense of “it’s time to get out of here” finality that propels the song into the final chorus through a final couplet that succeeds on the nuance of Bruce’s vocal delivery–an almost paradoxical mix of resignation, acceptance, and determination:
 
-*For me this boardwalk life is through, babe*
-*You ought to quit this scene too*
+> *For me this boardwalk life is through, babe*
+> *You ought to quit this scene too*
 
 I think the thing that fascinates me the most about “4th of July, Asbury Park (Sandy)” is the mix of both deep affection and simmering resentment that Bruce has for Asbury. That resonates with me: when I left my hometown of Philadelphia at about the same age, I remember feeling that curious mix of attachment and repulsion. I think that’s how we force ourselves to move on when we realize our time is up in a place that we’ve loved–we convince ourselves that our home is a place of limitation rather than potential, and we focus on its underbelly rather than its face.
 

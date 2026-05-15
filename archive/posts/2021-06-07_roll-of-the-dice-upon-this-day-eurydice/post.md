@@ -16,31 +16,31 @@ That last paragraph is largely irrelevant to Bruce’s story, however. It’s en
 
 In “Upon This Day (Eurydice),” Bruce writes in the voice of Orpheus–or at least, in the voice of a florid poet. It’s his wedding day, and he is overwhelmed by his bride’s beauty and their love’s power and passion.
 
-*The golden winged butterfly flutters by her hair*
-*One-thousand lullabies sing through her eyes*
-*Without speaking I listen*
+> *The golden winged butterfly flutters by her hair*
+> *One-thousand lullabies sing through her eyes*
+> *Without speaking I listen*
 
-*Down from the whitest cloud that may have once held heaven*
-*She comes wandering on the hand of love*
-*I’ve lost my eyes but I see her around me*
+> *Down from the whitest cloud that may have once held heaven*
+> *She comes wandering on the hand of love*
+> *I’ve lost my eyes but I see her around me*
 
-*Up from the bottomless pit that may have once held a lion*
-*She comes roaring but so gently*
-*I’ve lost all sound but I hear her*
+> *Up from the bottomless pit that may have once held a lion*
+> *She comes roaring but so gently*
+> *I’ve lost all sound but I hear her*
 
-*I’ve caught her stealing from the treasure so long been sacred*
-*She buys her forgiveness with sunlight from her hair.*
-*I’ll take her forever and ever*
+> *I’ve caught her stealing from the treasure so long been sacred*
+> *She buys her forgiveness with sunlight from her hair.*
+> *I’ll take her forever and ever*
 
-*And like the green summer leaves the morning’s rain left crying*
-*I’ll catch the teardrops left flowing from her eyes*
-*I’m wondering about her*
+> *And like the green summer leaves the morning’s rain left crying*
+> *I’ll catch the teardrops left flowing from her eyes*
+> *I’m wondering about her*
 
-*And she comes running into my chamber maybe frightened*
-*She begs me to warm her and we melt into love.*
-*I’ve touched her with silence around us*
+> *And she comes running into my chamber maybe frightened*
+> *She begs me to warm her and we melt into love.*
+> *I’ve touched her with silence around us*
 
-*I’ve found us and we gaze upon the earth as we would a flower*
+> *I’ve found us and we gaze upon the earth as we would a flower*
 
 Had Bruce not subtitled his poem, we might have dismissed the entire work as overwrought. But because he tips us off to the identity of the narrator, we understand both the melodrama and the impending tragedy without Bruce ever having to address it directly.
 

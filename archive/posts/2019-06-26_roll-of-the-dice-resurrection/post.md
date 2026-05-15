@@ -14,44 +14,44 @@ Not very subtle is it?
 
 No deep insight or close attention required to understand this one–this is simply how Bruce Springsteen grappled with religion in song at age nineteen.
 
-*Ever since I was a young man*
-*I’ve known the devil too well*
-*I can still hear my mama screaming*
-*“Boy you gonna burn some day in hell”*
+> *Ever since I was a young man*
+> *I’ve known the devil too well*
+> *I can still hear my mama screaming*
+> *“Boy you gonna burn some day in hell”*
 
-*Drag me to church on Sunday*
-*Get down, get down, get down on your knees and pray*
-*When he comes he won’t forget to call your name*
+> *Drag me to church on Sunday*
+> *Get down, get down, get down on your knees and pray*
+> *When he comes he won’t forget to call your name*
 
-*Well I can’t say that I’m a believer*
-*I can’t say that I ain’t*
-*Oh but reading words off a piece of paper*
-*It sure ain’t gonna make me no kind of saint*
+> *Well I can’t say that I’m a believer*
+> *I can’t say that I ain’t*
+> *Oh but reading words off a piece of paper*
+> *It sure ain’t gonna make me no kind of saint*
 
 Ah, how many of us have said (or at least thought) words to that effect at one point or another? We may not be sure what we believe, but how is reading someone else’s beliefs going to help us figure it out?
 
 And redemption by confession seems awfully easy, as Bruce notes:
 
-*They drag us to church on Friday*
-*And we confess our sins*
-*For a special low price of three Hail Marys my soul was clean again, yeah!*
+> *They drag us to church on Friday*
+> *And we confess our sins*
+> *For a special low price of three Hail Marys my soul was clean again, yeah!*
 
 As the song progresses, Bruce’s sarcasm deepens:
 
-*You must believe what we say to believe*
-*For without belief you are dying*
-*They told me you must believe what we tell you to believe*
-*And yours is not to question why*
-*For the sisters never lie*
-*Yours is not to know why*
-*Might as well not even try*
+> *You must believe what we say to believe*
+> *For without belief you are dying*
+> *They told me you must believe what we tell you to believe*
+> *And yours is not to question why*
+> *For the sisters never lie*
+> *Yours is not to know why*
+> *Might as well not even try*
 
 The song opens up here, as Bruce leads us away from the church and toward more pagan pleasures:
 
-*Hail, hail resurrection day*
-*You’re all invited to come and dance on my grave*
-*Oh we’re gonna have a lot of fun*
-*I say my prayers to the earth and the sun*
+> *Hail, hail resurrection day*
+> *You’re all invited to come and dance on my grave*
+> *Oh we’re gonna have a lot of fun*
+> *I say my prayers to the earth and the sun*
 
 (And lest we miss the point, during the near endless “Hail, hail, Resurrection!” litany that comprises the back half of the song, Vini can clearly be heard interspersing “hail, hail, the erection” from time to time.)
 

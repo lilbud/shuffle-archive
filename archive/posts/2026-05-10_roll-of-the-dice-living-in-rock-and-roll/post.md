@@ -10,21 +10,21 @@ Daniels wasn’t the only one-time-only element of that recording. One of the so
 
 Like many of Bruce’s Steel Mill and Bruce Springsteen Band era songs, “Living in Rock and Roll” is slight of lyrics and heavy on the jam. The recording above is distant and often muddy, but we’re able to make out enough of his lyrics to recognize that this is a pure pop song–nothing to analyze here.
 
-*Mama, mama, won’t you come and see*  
-*See what the music has done to me*  
-*Gone through my fingers, gone down deep into my soul*  
-*I’m just another boy trying to live in rock and roll*
+> *Mama, mama, won’t you come and see*
+> *See what the music has done to me*
+> *Gone through my fingers, gone down deep into my soul*
+> *I’m just another boy trying to live in rock and roll*
 
-*Sister, sister come quick*  
-*Just the other night, a revelation*  
-*Found it last night, soul on the radio*  
-*I’m just another boy trying to live in rock and roll*
+> *Sister, sister come quick*
+> *Just the other night, a revelation*
+> *Found it last night, soul on the radio*
+> *I’m just another boy trying to live in rock and roll*
 
-*Well if you’ve got it, baby*  
-*Don’t hide it*  
-*You can feel it*  
-*You can’t hide it, you can’t hide it*  
-*???*
+> *Well if you’ve got it, baby*
+> *Don’t hide it*
+> *You can feel it*
+> *You can’t hide it, you can’t hide it*
+> *???*
 
 The lyrics are either bluffed or repeated from this point forward, and I’m not even sure I’ve correctly captured what I’ve printed above. But I’m confident we’re close enough to paint “Living in Rock and Roll” as a good-time, uptempo crowd-pleaser, with vocalists Daniels and Dee Holmes clearly audible and acknowledged by Bruce just before launching into the song.
 

@@ -8,13 +8,13 @@ Even when he performed it on VH1 Storytellers, I couldn’t quite track him at f
 
 But halfway through that performance, during which he explained the song’s imagery line by line, he stopped and wistfully noted:
 
-*Well, every parent wants to keep their children safe from harm. It’s such a primal thing. I was shocked when I first felt it so deep inside myself. And then I had a conversation with a friend where I was afraid that my kids were gonna grow up and… might not have to struggle, you know, like I struggled. Maybe that’s not such a good thing. And he said, “No, no, no, no… you’re a parent, man. You give them the best, because the world is gonna take care of the rest.” And that’s true. The world awaits us all, and there’s not much that parents can do about it.*
+> *Well, every parent wants to keep their children safe from harm. It’s such a primal thing. I was shocked when I first felt it so deep inside myself. And then I had a conversation with a friend where I was afraid that my kids were gonna grow up and… might not have to struggle, you know, like I struggled. Maybe that’s not such a good thing. And he said, “No, no, no, no… you’re a parent, man. You give them the best, because the world is gonna take care of the rest.” And that’s true. The world awaits us all, and there’s not much that parents can do about it.*
 
 And then I understood. Viscerally. At the time “Jesus Was an Only Son” came out, my oldest daughter was turning twelve, and I was already starting to grapple with the dilemma that every parent faces: throttling back on parenting and letting your child grow into themselves, all the while fighting every deeply ingrained protective instinct. Bruce’s oldest son is only a few years older than my first-born daughter, so I imagine he was grappling with the same inner struggle.
 
 Most of the lyrics trace the events and emotions of Jesus’ last day and night, but for me, the key verse comes toward the end:
 
-*Now there’s a loss that can never be replaced*  
+> *Now there’s a loss that can never be replaced*
  *A destination that can never be reached*  
  *A light you’ll never find in another’s face*  
  *A sea whose distance cannot be breached*

@@ -6,16 +6,16 @@ Sandwiched in between Bruce’s guitar-heavy Steel Mill jams and his early Colum
 
 There’s no lyrical depth here, nor should there be, so it doesn’t require or ask for lyrical analysis. If this song is about anything, it’s about losing yourself in music:
 
-*Everybody’s grooving on the floor now*  
-*Feet’s moving, think they’re gonna dance*  
-*The band is playing as you walk in that door now*  
-*Come on now, won’t you take that chance*  
-*I said come on now, won’t you mama*  
-*Come on, won’t you take that chance*  
-*There ain’t nothing here that’s gonna hound you*  
-*There ain’t nothing to it, let your body go*  
-*(Dance, dance, dance)*  
-*(Dance, dance, dance)*
+> *Everybody’s grooving on the floor now*
+> *Feet’s moving, think they’re gonna dance*
+> *The band is playing as you walk in that door now*
+> *Come on now, won’t you take that chance*
+> *I said come on now, won’t you mama*
+> *Come on, won’t you take that chance*
+> *There ain’t nothing here that’s gonna hound you*
+> *There ain’t nothing to it, let your body go*
+> *(Dance, dance, dance)*
+> *(Dance, dance, dance)*
 
 …so go ahead, give it a listen, and lose yourself.
 

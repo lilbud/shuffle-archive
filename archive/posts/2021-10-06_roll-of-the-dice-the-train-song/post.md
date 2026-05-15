@@ -18,29 +18,29 @@ But let’s not get distracted by the instrumental performance, because we need 
 
 “The Train Song” starts out innocently enough, with our narrator travelling back home to New Orleans to reunite with his long-separated love.
 
-*Locomotive number 9 travelling down to New Orleans*
-*Spitting fire, smoke black as coal, the hottest that I’ve ever seen*
-*Oh Engineer, Mr. Engineer, won’t you please get me home on time*
-*‘Cause I can’t stay away, no not another day from the pretty little woman of mine*
+> *Locomotive number 9 travelling down to New Orleans*
+> *Spitting fire, smoke black as coal, the hottest that I’ve ever seen*
+> *Oh Engineer, Mr. Engineer, won’t you please get me home on time*
+> *‘Cause I can’t stay away, no not another day from the pretty little woman of mine*
 
-*I been a long time riding oh down this rusty track*
-*And I fear that I’d never get home*
-*Long time dreaming of what I’ll do when I get back*
-*Be there when the morning comes, when the morning comes*
+> *I been a long time riding oh down this rusty track*
+> *And I fear that I’d never get home*
+> *Long time dreaming of what I’ll do when I get back*
+> *Be there when the morning comes, when the morning comes*
 
-*Hey there Mr. Conductor, can you tell me what time we’re due*
-*Well I hate to seem impatient but you’d be excited too*
-*If you had a pretty little woman like I got just waiting for you back at home*
-*And once I reach her loving arms I never again shall roam*
+> *Hey there Mr. Conductor, can you tell me what time we’re due*
+> *Well I hate to seem impatient but you’d be excited too*
+> *If you had a pretty little woman like I got just waiting for you back at home*
+> *And once I reach her loving arms I never again shall roam*
 
 So far, so standard. We’re not breaking any new ground here; this is just a simple southern-flavored country-rock road song.
 
 But suddenly–and I do mean suddenly–about three minutes in, the song takes an abrupt left turn.
 
-*Seems kinda hard to believe that I’m going home at last*
-*They say that things have changed, well I guess a lot of time has passed*
-*And just a few more miles and a little more time before you know it I’ll be there*
-*And I’ll be waltzing arm in arm with my darling electric chair*
+> *Seems kinda hard to believe that I’m going home at last*
+> *They say that things have changed, well I guess a lot of time has passed*
+> *And just a few more miles and a little more time before you know it I’ll be there*
+> *And I’ll be waltzing arm in arm with my darling electric chair*
 
 Now this certainly won’t be the last time that Bruce introduces a plot twist in a song, but he’ll certainly get a lot more graceful about it. As it stands, this one lands with a bewildering thud.
 

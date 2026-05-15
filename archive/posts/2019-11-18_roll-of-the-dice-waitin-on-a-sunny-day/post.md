@@ -38,9 +38,9 @@ But if you’re one of those fans who roll their eyes whenever Bruce plays those
 
 I’ll show you what I mean.
 
-*It’s raining but there ain’t a cloud in the sky*
-*Musta been a tear from your eye*
-*Everything will be okay*
+> *It’s raining but there ain’t a cloud in the sky*
+> *Musta been a tear from your eye*
+> *Everything will be okay*
 
 Okay, let’s stop right here for a moment and admire that first half-verse. In mere seconds, Bruce establishes the conceit of the song, a stream of metaphors not just for the joy and elation that love brings, but also of the emotional co-dependency that often comes along with it.
 
@@ -48,29 +48,29 @@ Notice Bruce’s careful phrasing: the narrator observes the metaphorical rain, 
 
 Bruce continues the weather theme, and again he’s puzzled:
 
-*Yeah, funny, thought I felt a sweet summer breeze*
-*Musta been you sighing so deep*
-*Don’t worry we’re gonna find a way*
+> *Yeah, funny, thought I felt a sweet summer breeze*
+> *Musta been you sighing so deep*
+> *Don’t worry we’re gonna find a way*
 
 Bruce is in a fine mood, but it seems his partner is having a bad day, and he’s determined to fix that:
 
-*I’m waitin’, waitin’ on a sunny day*
-*Gonna chase the clouds away*
-*Yeah waitin’ on a sunny day*
+> *I’m waitin’, waitin’ on a sunny day*
+> *Gonna chase the clouds away*
+> *Yeah waitin’ on a sunny day*
 
 He *has* to fix it, because now that he’s noticed his girl’s dejection, it’s impossible for him to not be brought down by it as well.
 
-*Without you I’m working with the rain falling down*
-*I’m half a party in a one dog town*
-*I need you to chase the blues away*
+> *Without you I’m working with the rain falling down*
+> *I’m half a party in a one dog town*
+> *I need you to chase the blues away*
 
 And it’s right about here that we realize that our narrator is actually a bit of a selfish bastard. His motivation for cheering his girl is so that he doesn’t have to mope around, too.
 
 But let’s not dwell on that yet, because here comes my favorite part, and you actually should listen to it while you read it:
 
-*Without you I’m a drummer girl that can’t keep a beat*
-*An ice cream truck on a deserted street*
-*I hope that you’re coming to stay*
+> *Without you I’m a drummer girl that can’t keep a beat*
+> *An ice cream truck on a deserted street*
+> *I hope that you’re coming to stay*
 
 Okay, come on: how clever is that Max Weinberg? Every time–and I mean *every* time–Bruce sings that “drummer” line, Max intentionally misses the next beat. He does it on the album, and he does it on stage. It’s a bit, and it’s funny every time, even if (as I suspect) many fans never notice.
 
@@ -78,12 +78,12 @@ But the meaning of the lines is clear: when his girl is feeling down, Bruce lose
 
 Bruce ends the song on a reassuring and romantic note, sort of:
 
-*Hard times, baby, well they come to us all*
-*Sure as the ticking of the clock on the wall*
-*Sure as the turning of the night into day*
-*Your smile, girl, brings the morning light to my eyes*
-*Lifts away the blues when I rise*
-*I hope that you’re coming to stay*
+> *Hard times, baby, well they come to us all*
+> *Sure as the ticking of the clock on the wall*
+> *Sure as the turning of the night into day*
+> *Your smile, girl, brings the morning light to my eyes*
+> *Lifts away the blues when I rise*
+> *I hope that you’re coming to stay*
 
 That sounds sweet, doesn’t it? It’s almost enough to make us forget that *she’s the one who deserves cheering up,* not him*.*
 

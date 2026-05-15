@@ -14,23 +14,23 @@ The spotlight may linger on Southside Johnny (only 22 at the time) the most duri
 
 As for the lyrics, like I said: they’re beside the point, and they require no analysis or interpretation.
 
-*Whoa that little girl of mine*
-*She used to dance so good*
-*Whoa pretty little girl of mine*
-*She said I guess I should*
-*Whoa she looks so fine, that pretty little woman of mine*
+> *Whoa that little girl of mine*
+> *She used to dance so good*
+> *Whoa pretty little girl of mine*
+> *She said I guess I should*
+> *Whoa she looks so fine, that pretty little woman of mine*
 
-*Love me so sweet*
-*Sweet like apple pie*
-*Love me baby so sweet now*
-*Sweet as an apple pie*
-*A body like heaven, I know about this woman of mine*
+> *Love me so sweet*
+> *Sweet like apple pie*
+> *Love me baby so sweet now*
+> *Sweet as an apple pie*
+> *A body like heaven, I know about this woman of mine*
 
-*Well, come walkin’ down the street*
-*The way she looks so sweet*
-*So proud when I walk with her down the street*
-*The way she looks so sweet*
-*She’s the finest little baby that a boy’d ever want to meet*
+> *Well, come walkin’ down the street*
+> *The way she looks so sweet*
+> *So proud when I walk with her down the street*
+> *The way she looks so sweet*
+> *She’s the finest little baby that a boy’d ever want to meet*
 
 Don’t dismiss “Southside Shuffle” based on its fluffy lyrical substance, though–the nascent talent on display is astounding. That performance will turn 50 years old next spring, and most of those players are still going strong.
 

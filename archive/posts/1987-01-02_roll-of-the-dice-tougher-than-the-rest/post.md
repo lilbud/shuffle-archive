@@ -28,10 +28,10 @@ It’s unclear whether Bruce and Patti were romantically entwined when this perf
 
 Let’s take a dive into the lyrics now, because their plainness deceptively masks the deliberate craft that makes “Tougher Than the Rest” so universally resonant. There’s much to note and admire in each and every verse.
 
-*Well it’s Saturday night, you’re all dressed up in blue*  
-*I been watching you a while, maybe you been watching me too*  
-*So somebody ran out, left somebody’s heart in a mess*  
-*Well if you’re looking for love, honey I’m tougher than the rest*
+> *Well it’s Saturday night, you’re all dressed up in blue*
+> *I been watching you a while, maybe you been watching me too*
+> *So somebody ran out, left somebody’s heart in a mess*
+> *Well if you’re looking for love, honey I’m tougher than the rest*
 
 There’s both a lot of information in that verse and a lot of ambiguity–and that’s undoubtedly intentional.
 
@@ -39,10 +39,10 @@ Are these two strangers across a crowded bar working up the courage to make the 
 
 Bruce is careful to provide just enough detail in that opening verse to ensure that no matter who the listener is, they’ll find achingly familiar context to latch on to.
 
-*Some girls they want a handsome Dan or some good looking Joe*  
-*On their arm, some girls like a sweet talking Romeo*  
-*Well ’round here baby, I learned you get what you can get*  
-*So if you’re rough enough for love, honey I’m tougher than the rest*
+> *Some girls they want a handsome Dan or some good looking Joe*
+> *On their arm, some girls like a sweet talking Romeo*
+> *Well ’round here baby, I learned you get what you can get*
+> *So if you’re rough enough for love, honey I’m tougher than the rest*
 
 The name-dropping in the second verse is more than just a clever device (which it is)–it’s also a deliberate counterpoint to the anonymity in the rest of the song. Neither the singer nor the object of his affection are ever named, just like the “somebody” jilter and jiltee in the first verse. Never one to shy away from naming his characters, Bruce refrains here in order to ensure that we inhabit rather than observe his characters.
 
@@ -50,10 +50,10 @@ This verse is also notable for Bruce’s wink at his younger, brasher, *Born to 
 
 When Bruce wrote “Tougher Than the Rest,” it had been more than a decade since our “Thunder Road” hero left a town full of losers. Now older and wiser, Bruce seems to have found the heroism of those who don’t win but refuse to quit the game until they do.
 
-*The road is dark and it’s a thin, thin line*  
-*But I want you to know I’ll walk it for you any time*  
-*Maybe your other boyfriends couldn’t pass the test*  
-*Well if you’re rough and ready for love, honey I’m tougher than the rest*
+> *The road is dark and it’s a thin, thin line*
+> *But I want you to know I’ll walk it for you any time*
+> *Maybe your other boyfriends couldn’t pass the test*
+> *Well if you’re rough and ready for love, honey I’m tougher than the rest*
 
 As is often the case with Bruce’s song, the vulnerable heart of the song is in the bridge. Love is indeed a never-ending test of navigation, balance, and endurance. And sometimes its our falls and failures that help us build the skill and stamina we need to finally go the distance.
 
@@ -61,11 +61,11 @@ Our hero may not be bright and shiny anymore, but he’s road-tested and reliabl
 
 (Oh, and that’s a clever [tip of the hat to Johnny Cash](https://estreetshuffle.com/index.php/2020/06/16/cover-me-i-walk-the-line/), isn’t it?)
 
-*Well it ain’t no secret I’ve been around a time or two*  
-*Well I don’t know baby, maybe you’ve been around too*  
-*Well there’s another dance, all you gotta do is say yes*  
-*And if you’re rough and ready for love, honey I’m tougher than the rest*  
-*If you’re rough enough for love, baby I’m tougher than the rest*
+> *Well it ain’t no secret I’ve been around a time or two*
+> *Well I don’t know baby, maybe you’ve been around too*
+> *Well there’s another dance, all you gotta do is say yes*
+> *And if you’re rough and ready for love, honey I’m tougher than the rest*
+> *If you’re rough enough for love, baby I’m tougher than the rest*
 
 Notice how Bruce reintroduces the concept of uncertainty in the final verse (“maybe you’ve been around, too”), a construction that runs parallel to the “maybe you been watching me too” in the first verse.
 

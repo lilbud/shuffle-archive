@@ -114,19 +114,19 @@ But those early days offered only a very small taste of what was to come when Tr
 
 Retitling his ongoing word tour the Land of Home and Dreams Tour, Bruce spent much of 2025 ratcheting up his rhetoric overseas calling out the Trump administration back home. From the stage in Manchester, he spoke eloquently.
 
-*In my home, the America I love, the America I’ve written about that has been a beacon of hope and liberty for 250 years, is currently in the hands of a corrupt, incompetent, and treasonous administration.*
+> *In my home, the America I love, the America I’ve written about that has been a beacon of hope and liberty for 250 years, is currently in the hands of a corrupt, incompetent, and treasonous administration.*
 
-*In America, they are persecuting people for using their right to free speech and voicing their dissent. This is happening now.*
+> *In America, they are persecuting people for using their right to free speech and voicing their dissent. This is happening now.*
 
-*In America, the richest men are taking satisfaction in abandoning the world’s poorest children to sickness and death. This is happening now.*
+> *In America, the richest men are taking satisfaction in abandoning the world’s poorest children to sickness and death. This is happening now.*
 
-*In my country, they’re taking sadistic pleasure in the pain that they inflict on loyal American workers, they’re rolling back historic Civil Rights legislation that led to a more just and plural society, they’re abandoning our great allies and siding with dictators against those struggling for their freedom.*
+> *In my country, they’re taking sadistic pleasure in the pain that they inflict on loyal American workers, they’re rolling back historic Civil Rights legislation that led to a more just and plural society, they’re abandoning our great allies and siding with dictators against those struggling for their freedom.*
 
-*They’re defunding American universities that won’t bow down to their ideological demands. They’re removing residents off American streets and, without due process of law, are deporting them to foreign detention centers and prisons. This is all happening now.*
+> *They’re defunding American universities that won’t bow down to their ideological demands. They’re removing residents off American streets and, without due process of law, are deporting them to foreign detention centers and prisons. This is all happening now.*
 
-*A majority of our elected representatives have failed to protect the American people from the abuses of an unfit president and a rogue government.*
+> *A majority of our elected representatives have failed to protect the American people from the abuses of an unfit president and a rogue government.*
 
-*They have no concern or idea of what it means to be deeply American. The America that I’ve sung to you about for 50 years is real, and regardless of its faults, is a great country with a great people.*
+> *They have no concern or idea of what it means to be deeply American. The America that I’ve sung to you about for 50 years is real, and regardless of its faults, is a great country with a great people.*
 
 After the tour ended, things got even worse.
 
@@ -186,23 +186,23 @@ On this night, “Born to Run,” “Bobby Jean,” “Dancing in the Dark,” a
 
 “Chimes of Freedom” brought me back into the moment, however, along with Bruce’s closing benediction–his most eloquent of the evening.
 
-*I know for me, the hardest part about all of this is feeling the distance between your neighbors, your fellow citizens, and that distance… well, it can darken your soul.*
+> *I know for me, the hardest part about all of this is feeling the distance between your neighbors, your fellow citizens, and that distance… well, it can darken your soul.*
 
-*We have a leader who says he wishes nothing but ill upon the people he disagrees with and who disagree with him.*
+> *We have a leader who says he wishes nothing but ill upon the people he disagrees with and who disagree with him.*
 
-*Well, I don’t feel that way.*
+> *Well, I don’t feel that way.*
 
-*America, from the beginning, was born out of disagreement, was built on disagreement. We can argue about what course we think the country should take while recognizing our common humanity, our dignity, and yes, our unity.*
+> *America, from the beginning, was born out of disagreement, was built on disagreement. We can argue about what course we think the country should take while recognizing our common humanity, our dignity, and yes, our unity.*
 
-*Now, I go back to thinking about Renée Good's last words before she died, to the man who she was protesting against, the man who would take her life. She said, "That's fine, dude, I'm not mad at you. I'm not mad." God bless her.*
+> *Now, I go back to thinking about Renée Good's last words before she died, to the man who she was protesting against, the man who would take her life. She said, "That's fine, dude, I'm not mad at you. I'm not mad." God bless her.*
 
-*So tonight, when you go home, hold your loved ones close. And tomorrow, do as Renée did, find a way to take aggressive, peaceful action to defend our country's ideals.*
+> *So tonight, when you go home, hold your loved ones close. And tomorrow, do as Renée did, find a way to take aggressive, peaceful action to defend our country's ideals.*
 
-*And as the great civil rights leader John Lewis said, "Go out and get into some good trouble." Say something! Do something! Hell… sing something!*
+> *And as the great civil rights leader John Lewis said, "Go out and get into some good trouble." Say something! Do something! Hell… sing something!*
 
-*If you're feeling helpless, hopeless, betrayed, frustrated, angry… I know I've been. That's why The E Street Band is here tonight. This is a tour that was not planned. We're here tonight because we need to feel your hope, and your strength. And we want to bring some hope and some strength for you. I hope we did that.*
+> *If you're feeling helpless, hopeless, betrayed, frustrated, angry… I know I've been. That's why The E Street Band is here tonight. This is a tour that was not planned. We're here tonight because we need to feel your hope, and your strength. And we want to bring some hope and some strength for you. I hope we did that.*
 
-*All I can say is God bless Alex Pretti, God bless Renée Good, God bless you, and God bless America.*
+> *All I can say is God bless Alex Pretti, God bless Renée Good, God bless you, and God bless America.*
 
 He closed the show with a one-off surprise performance of “Purple Rain,” a special thank-you gift for the people of Minneapolis for lighting the way for the rest of us.. It was beautiful and heart-breaking and essentially the city’s anthem, and because of that I can forgive him ending the show with a song about a world-ending apocalypse. (Sometimes I hate my analytical brain.)
 

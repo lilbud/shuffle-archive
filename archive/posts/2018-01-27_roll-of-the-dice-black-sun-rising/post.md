@@ -8,21 +8,21 @@ The only known recording is virtually unintelligible, so I’m not even going to
 
 [Springsteenlyrics.com](https://Springsteenlyrics.com) got further than I did figuring out the lyrics–enough to figure out that it’s a very unsubtle, of-the-time polemic:
 
-*Well there’s a black sun risin’*  
-*Shining darkness on the White House*  
-*Well there’s a black sun risin’*  
-*Shining darkness on the White House*
+> *Well there’s a black sun risin’*
+> *Shining darkness on the White House*
+> *Well there’s a black sun risin’*
+> *Shining darkness on the White House*
 
-*Turn on the white light protection, come on*
+> *Turn on the white light protection, come on*
 
-*Now there’s a new day dawn*  
-*When no-one’s gonna pay the cost*  
-*They never ???*  
-*???*
-*Oh revolution is ours*
+> *Now there’s a new day dawn*
+> *When no-one’s gonna pay the cost*
+> *They never ???*
+> *???*
+> *Oh revolution is ours*
 
-*Man has told me to propagate love*  
-*I’m gonna get you, oh, oh, oh, oh, all right*
+> *Man has told me to propagate love*
+> *I’m gonna get you, oh, oh, oh, oh, all right*
 
 Yeah, this is one rarity I don’t need to hear in concert.
 

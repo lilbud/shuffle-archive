@@ -26,19 +26,19 @@ Let’s take another listen, and this time I’ll point out some of my favorite 
 
 The song’s first two verses are told by our hero’s love on the northern side of the border. This is the only time in the two songs in which we hear from her, and the reason why is immediately made clear.
 
-*For two days, the river keeps you down*
-*Then you rise to the light without a sound*
-*Past the playgrounds and empty switching yards*
-*The turtles eat the skin from your eyes, so they lay open to the stars*
+> *For two days, the river keeps you down*
+> *Then you rise to the light without a sound*
+> *Past the playgrounds and empty switching yards*
+> *The turtles eat the skin from your eyes, so they lay open to the stars*
 
 Two things to note right off the bat: the first is the way Bruce abandons all metaphor when he wants to ground a song in reality. Bruce has used this device many times before, but here it’s especially effective–not only is the first verse (and the second below) devoid of metaphor, there are barely even any adjectives. This is the simple, stark narration of a mourning lover who–unlike her lost one–harbors no illusions about the nature of dreams.
 
 The second thing to note is my favorite moment in the entire song: the way Bruce tenderly inflects the word “stars” with just a hint of a vocal trill, penetrating our narrator’s stoicism for a fraction of a second to let us know that despite the hard shell of her words, her heart lies unprotected just below. It’s just a fleeting moment, but there’s no question in my mind that it’s a deliberate moment of empathy between songwriter and character.
 
-*Your clothes give way to the current and river stone*
-*‘Till every trace of who you ever were is gone*
-*And the things of the earth they make their claim*
-*That the things of heaven may do the same*
+> *Your clothes give way to the current and river stone*
+> *‘Till every trace of who you ever were is gone*
+> *And the things of the earth they make their claim*
+> *That the things of heaven may do the same*
 
 We’re about to leave our narrator behind, but before we do: take note of that last couplet. It’s a gorgeous example of Bruce’s ability to convey spirituality while constrained to plain earthly language. The imagery of turtles eating the eyelids of the deceased should by all rights horrify us; but because the narrator focuses on the way her loved one’s eyes are filled with stars as as result, neither she nor we recoil the way we might be expected to.
 
@@ -46,24 +46,24 @@ Similarly, she observes the creatures of the earth and the river eating away at 
 
 Our narrator says goodbye to her love (and to us) by thanking God for the time they shared and reprising (we’ll soon learn) their promise to each other to meet again someday on the banks of the river that separates them.
 
-*Goodbye, my darling, for your love I give God thanks*
-*Meet me on the Matamoros*
-*Meet me on the Matamoros*
-*Meet me on the Matamoros banks*
+> *Goodbye, my darling, for your love I give God thanks*
+> *Meet me on the Matamoros*
+> *Meet me on the Matamoros*
+> *Meet me on the Matamoros banks*
 
 And with this introduction of the Matamoros as the metaphorical divide between life and death, we travel two days backward in time, rejoining our hero from “Across the Border” as he crosses the desert to the river, where his love awaits on the other side.
 
-*Over rivers of stone and ancient ocean beds*
-*I walk on twine and tire tread*
-*My pockets full of dust, my mouth filled with cool stone*
-*The pale moon opens the earth to its bones*
+> *Over rivers of stone and ancient ocean beds*
+> *I walk on twine and tire tread*
+> *My pockets full of dust, my mouth filled with cool stone*
+> *The pale moon opens the earth to its bones*
 
-*I long, my darling, for your kiss*
-*For your sweet love I give God thanks*
-*The touch of your loving fingertips*
-*Meet me on the Matamoros*
-*Meet me on the Matamoros*
-*Meet me on the Matamoros banks*
+> *I long, my darling, for your kiss*
+> *For your sweet love I give God thanks*
+> *The touch of your loving fingertips*
+> *Meet me on the Matamoros*
+> *Meet me on the Matamoros*
+> *Meet me on the Matamoros banks*
 
 Notice the transition here. Our narrator notes the grim reality of his surroundings, but he’s buoyed by his love and his dream, and he can’t help but view the arid desert through a lens of beauty.
 
@@ -71,19 +71,19 @@ Bruce gently introduces strings in this verse to ease us from lonely reality to 
 
 As night falls, our hero is hopeful. His dream is so close he can almost taste it.
 
-*Your sweet memory comes on the evenin’ wind*
-*I sleep and dream of holding you in my arms again*
-*The lights of Brownsville, across the river shine*
-*A shout rings out and into the silty red river I dive*
+> *Your sweet memory comes on the evenin’ wind*
+> *I sleep and dream of holding you in my arms again*
+> *The lights of Brownsville, across the river shine*
+> *A shout rings out and into the silty red river I dive*
 
 With a new life in sight, he sets off into the river to reunite with his love. The strings are prominent now, and their beauty fills and break our heart simultaneously–because we know how this story ends.
 
-*I long, my darling, for your kiss*
-*For your sweet love I give God thanks*
-*A touch of your loving fingertips*
-*Meet me on the Matamoros*
-*Meet me on the Matamoros*
-*Meet me on the Matamoros banks*
+> *I long, my darling, for your kiss*
+> *For your sweet love I give God thanks*
+> *A touch of your loving fingertips*
+> *Meet me on the Matamoros*
+> *Meet me on the Matamoros*
+> *Meet me on the Matamoros banks*
 
 Our lovers will indeed meet again on the river banks one day, but tragically, today’s not that day.
 
@@ -108,7 +108,7 @@ So in lieu of another concert video, I’ll leave you with my favorite live perf
 
 Shortly before Christmas, Bruce unexpectedly and without fanfare published a new concert video of “Matamoros Banks” to his official site, with the following explanation:
 
-*More than 2,500 asylum-seekers are living in a state of intense danger on the streets of Matamoros, Mexico. Many of the most vulnerable people fleeing danger and persecution in Central America and the Caribbean end up in Matamoros because of the widespread belief that the crossing at that point is relatively easier than desert ports of entry. The majority of people waiting at the makeshift refugee camp on the river's edge are single mothers with multiple young children seeking to reunite with their extended family in the United States. This problem is worsening, as more than 100 new migrants arrive each day and are forced to remain (potentially for up to two years) pursuant to new US government policies. Grassroots groups in the area are the only organizations currently providing support, but their resources are limited, and they are overwhelmed by the growing scope of this crisis. Project Adelante seeks to provide support for families and youth by bringing together professionals across disciplines (refugee camp management, law, medicine, mental health, child development, and religion) to evaluate and address the range of needs, working with existing partners in both Mexico and Brownsville when possible, to effectively respond to the crisis in Matamoros.*
+> *More than 2,500 asylum-seekers are living in a state of intense danger on the streets of Matamoros, Mexico. Many of the most vulnerable people fleeing danger and persecution in Central America and the Caribbean end up in Matamoros because of the widespread belief that the crossing at that point is relatively easier than desert ports of entry. The majority of people waiting at the makeshift refugee camp on the river's edge are single mothers with multiple young children seeking to reunite with their extended family in the United States. This problem is worsening, as more than 100 new migrants arrive each day and are forced to remain (potentially for up to two years) pursuant to new US government policies. Grassroots groups in the area are the only organizations currently providing support, but their resources are limited, and they are overwhelmed by the growing scope of this crisis. Project Adelante seeks to provide support for families and youth by bringing together professionals across disciplines (refugee camp management, law, medicine, mental health, child development, and religion) to evaluate and address the range of needs, working with existing partners in both Mexico and Brownsville when possible, to effectively respond to the crisis in Matamoros.*
 
 [Watch on Youtube: Project Adelante](https://www.youtube.com/watch?v=T5hpk4taBZY)
 

@@ -12,14 +12,14 @@ Elliott played a demo of the song for Bruce, who listened intently before saying
 
 Elliott would have been more than satisfied with Bruce’s backing vocals. But when Bruce took the song into his home studio, recorded his contribution and sent it back, Elliott was surprised but delighted to discover that Bruce had recorded lead vocals for an entire verse. And honestly, how could he resist:
 
-*Well, I’m a man without a place*  
-*Sometimes afraid to show my face*  
-*Hear me humming in the night*  
-*When you turn out the light*  
-*They can blow my tires out*  
-*‘Til I’m filled up with nothing else but doubt*  
-*Still, I’m rolling on my rims*  
-*Oh baby, coming back to you again.*
+> *Well, I’m a man without a place*
+> *Sometimes afraid to show my face*
+> *Hear me humming in the night*
+> *When you turn out the light*
+> *They can blow my tires out*
+> *‘Til I’m filled up with nothing else but doubt*
+> *Still, I’m rolling on my rims*
+> *Oh baby, coming back to you again.*
 
 That Murphy is clever like a fox. Put a verse like that in front of Bruce and odds are pretty good he’s gonna sing it. Now Elliot had a genuine Springsteen duet on his hands.
 

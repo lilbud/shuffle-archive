@@ -16,41 +16,41 @@ He did exactly that. Bruce wrote “Protection,” another disco-influenced song
 
 Where “Cover Me” featured a narrator begging for the shelter of his partner’s love, the narrator of the anti-“Cover Me” needs protection *from* his lover.
 
-*Night after night I keep holding on*  
-*You say you love me, then you leave me so lonely*  
-*I don’t believe a single thing you’re saying*  
-*I think it’s all some evil game you’re playing*
+> *Night after night I keep holding on*
+> *You say you love me, then you leave me so lonely*
+> *I don’t believe a single thing you’re saying*
+> *I think it’s all some evil game you’re playing*
 
-*Still all day long, all I do is think about you*  
-*You got me believing that I can’t live without you*  
-*Well, if you want it, well here’s my confession*  
-*Well, I can’t help it, you’re my obsession*
+> *Still all day long, all I do is think about you*
+> *You got me believing that I can’t live without you*
+> *Well, if you want it, well here’s my confession*
+> *Well, I can’t help it, you’re my obsession*
 
-*Protection, that’s what I need*  
-*I want protection, baby, from your love*
+> *Protection, that’s what I need*
+> *I want protection, baby, from your love*
 
 But despite its thematic inversion, “Protection” is similar to “Cover Me” in more ways than just its musical structure and blistering Boss guitar solos. They’re both lyrically slight, as pop songs often are, relying on the chorus to carry the weight rather than fleshing out the verses with detail and character development.
 
 Still, it’s effective here–considerably more so than in “Cover Me”–thanks in large part to an adrenaline-fueled backing track that captures our narrator’s paranoia. He’s fully wrapped around his lover’s finger, and they both know it–and at least through his eyes, she seems to be enjoying torturing him.
 
-*The phone rings in the middle of the night*  
-*And when I pick it up, you won’t answer*  
-*A knock on the door, I rush down the stairs*  
-*When I open up, there’s no one there*
+> *The phone rings in the middle of the night*
+> *And when I pick it up, you won’t answer*
+> *A knock on the door, I rush down the stairs*
+> *When I open up, there’s no one there*
 
-*Out in the darkness I feel your eyes on me*  
-*I lay in bed and feel your hands upon me*  
-*Well, is it all just my imagination*  
-*You keep me in doubt, believing I can’t live without your*  
-*Protection*
+> *Out in the darkness I feel your eyes on me*
+> *I lay in bed and feel your hands upon me*
+> *Well, is it all just my imagination*
+> *You keep me in doubt, believing I can’t live without your*
+> *Protection*
 
-*I stand alone at my window*  
-*I see you waiting in the shadows down below*  
-*I feel your fingers on my face*  
-*I know I want to stay, but I want to run away*
+> *I stand alone at my window*
+> *I see you waiting in the shadows down below*
+> *I feel your fingers on my face*
+> *I know I want to stay, but I want to run away*
 
-*Protection, that’s what I need*  
-*I want protection, baby, from your love*
+> *Protection, that’s what I need*
+> *I want protection, baby, from your love*
 
 It’s never quite clear, however, whether the off-screen love interest is as manipulative as our narrator seems to believe. Those middle verses are very similar to the dream sequence in “Downbound Train” (Bruce was dipping into dream imagery often during that period), and it’s easy to imagine our narrator is haunted by his imagination more than his infatuation.
 

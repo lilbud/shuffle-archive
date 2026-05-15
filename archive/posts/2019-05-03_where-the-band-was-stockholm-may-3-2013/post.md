@@ -6,7 +6,7 @@ Editor's Note
 
 *Entirely by coincidence, Anna and I started our own Springsteen-focused blogs just days apart in January 2018. Her* *[Stray Bullet](https://straybullet1973.com/category/blog-english/)* *was the first Bruce-related blog I discovered, and seventeen months later it’s still my favorite. Her site features a wonderful mix of song spotlights, concert reviews, thematic essays, and (my favorite) personal stories inspired by Bruce’s music.*
 
-*I highly recommend her blog to readers of this one, and I’m grateful to her for sharing her story below. Without further ado, here’s Anna’s first-hand account of Bruce’s Wrecking Ball show in Stockholm, from May 3, 2013.*
+> *I highly recommend her blog to readers of this one, and I’m grateful to her for sharing her story below. Without further ado, here’s Anna’s first-hand account of Bruce’s Wrecking Ball show in Stockholm, from May 3, 2013.*
 
 It’s early morning of May 3, 2013 as we get in the car and drive off to Stockholm to see Bruce Springsteen and The E Street Band. The drive from Gothenburg to Stockholm takes about 4,5 hours and we want to arrive at the venue in good time before the show. My plan is not only to enjoy the show but also to meet up with friends who I’ve only talked to on Twitter before.
 
@@ -56,4 +56,4 @@ For tomorrow’s show I’m buying earplugs!
 
 Share Your Story
 
-*My thanks to Anna for sharing her story! Want to share yours? [Drop me a line](mailto:ken@estreetshuffle.com) in advance of your show’s anniversary, and I’ll be happy to feature it–I’ll even add audio and video (if I have it) to help bring it to life.*
+> *My thanks to Anna for sharing her story! Want to share yours? [Drop me a line](mailto:ken@estreetshuffle.com) in advance of your show’s anniversary, and I’ll be happy to feature it–I’ll even add audio and video (if I have it) to help bring it to life.*

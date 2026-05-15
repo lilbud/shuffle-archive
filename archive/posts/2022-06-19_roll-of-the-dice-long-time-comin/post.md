@@ -40,21 +40,21 @@ In the acoustic version, we can see the narrator’s night sky. We can hear the 
 
 It’s on this night, in this setting, where we join our narrator at the moment of his awakening.
 
-*Out where the creek turns shallow and sandy*
-*And the moon comes skimming away the stars*
-*The wind in the mesquite comes rushing over the hilltops*
-*Straight into my arms*
-*Straight into my arms*
+> *Out where the creek turns shallow and sandy*
+> *And the moon comes skimming away the stars*
+> *The wind in the mesquite comes rushing over the hilltops*
+> *Straight into my arms*
+> *Straight into my arms*
 
-*I’m riding hard carrying a cache of roses*
-*And a fresh map that I made*
-*Tonight I’m gonna get birth naked and bury my old soul*
-*And dance on its grave*
-*And dance on its grave*
+> *I’m riding hard carrying a cache of roses*
+> *And a fresh map that I made*
+> *Tonight I’m gonna get birth naked and bury my old soul*
+> *And dance on its grave*
+> *And dance on its grave*
 
-*It’s been a long time coming, my dear*
-*It’s been a long time coming, but now it’s here*
-*And now it’s here*
+> *It’s been a long time coming, my dear*
+> *It’s been a long time coming, but now it’s here*
+> *And now it’s here*
 
 Even for a songwriter as fond of metaphor as Bruce, there is a *lot* of symbolism in the first third of “Long Time Comin’.”
 
@@ -64,21 +64,21 @@ Our narrator rides hard through this life, but he now carries love where he once
 
 His freedom from his ghosts is what’s been long in coming, and the arrival of his ancestors. In the middle section of the song, we learn why.
 
-*Well my daddy he was just a stranger*
-*Lived in a hotel downtown*
-*Well when I was a kid he was just somebody*
-*Somebody I’d see around*
-*Somebody I’d see around*
+> *Well my daddy he was just a stranger*
+> *Lived in a hotel downtown*
+> *Well when I was a kid he was just somebody*
+> *Somebody I’d see around*
+> *Somebody I’d see around*
 
-*Well now down below and pulling on my shirt*
-*Yeah I got some kids of my own*
-*Well if I had one wish in this god forsaken world, kids*
-*It’d be that your mistakes would be your own*
-*Yeah your sins would be your own*
+> *Well now down below and pulling on my shirt*
+> *Yeah I got some kids of my own*
+> *Well if I had one wish in this god forsaken world, kids*
+> *It’d be that your mistakes would be your own*
+> *Yeah your sins would be your own*
 
-*It’s been a long time coming, my dear*
-*It’s been a long time coming, but now it’s here*
-*And now it’s here*
+> *It’s been a long time coming, my dear*
+> *It’s been a long time coming, but now it’s here*
+> *And now it’s here*
 
 Our narrator never knew his father. He only knew *of* him. In this narrator’s case, it may be literal. For the songwriter, it may be metaphorical. Douglas Springsteen didn’t live in a hotel downtown, but Bruce may have felt like he never really understood him.
 
@@ -86,11 +86,11 @@ We never seem to see these lines listed among Bruce’s most powerful lyrics, bu
 
 But it’s the next lines that hold the key to the song:
 
-*“If I had one wish in this godforsaken world, kids, it’d be that your mistakes would be your own.”*
+> *“If I had one wish in this godforsaken world, kids, it’d be that your mistakes would be your own.”*
 
 Bruce has spoken to this wish directly and often, both from the stage and in print. In his 2016 autobiography, he wrote:
 
-*We honor our parents by not accepting as the final equation the most troubling characteristics of our relationship. I decided between my father and me that the sum of our troubles would not be the summation of our lives together. In analysis you work to turn the ghosts that haunt you into ancestors who accompany you. That takes hard work and a lot of love, but it's the way we lessen the burdens our children have to carry. Insisting on our own experience, our own final calculus of love, trouble, hard times and, if we're lucky, a little transcendence. This is how we claim our own lives as sons and daughters, independent souls on our piece of ground.*
+> *We honor our parents by not accepting as the final equation the most troubling characteristics of our relationship. I decided between my father and me that the sum of our troubles would not be the summation of our lives together. In analysis you work to turn the ghosts that haunt you into ancestors who accompany you. That takes hard work and a lot of love, but it's the way we lessen the burdens our children have to carry. Insisting on our own experience, our own final calculus of love, trouble, hard times and, if we're lucky, a little transcendence. This is how we claim our own lives as sons and daughters, independent souls on our piece of ground.*
 
 He’d said it more powerfully and in far fewer words two decades earlier.
 
@@ -98,20 +98,20 @@ But it’s the dawning of that wish–the desire that your kids *not* take after
 
 As we segue into the final third of the song, celebration gives way to reflection and determination.
 
-*Out ‘neath the arms of Cassiopeia*
-*Where the sword of Orion sweeps*
-*It’s me and you, Rosie, crackling like crossed wires*
-*And you breathing in your sleep*
-*You breathing in your sleep*
+> *Out ‘neath the arms of Cassiopeia*
+> *Where the sword of Orion sweeps*
+> *It’s me and you, Rosie, crackling like crossed wires*
+> *And you breathing in your sleep*
+> *You breathing in your sleep*
 
-*Well there’s just a spark of a campfire left burning*
-*Two kids in a sleeping bag beside*
-*I reach ‘neath your shirt, lay my hands across your belly*
-*And feel another one kicking inside*
-*And I ain’t gonna fuck it up this time*
+> *Well there’s just a spark of a campfire left burning*
+> *Two kids in a sleeping bag beside*
+> *I reach ‘neath your shirt, lay my hands across your belly*
+> *And feel another one kicking inside*
+> *And I ain’t gonna fuck it up this time*
 
-*It’s been a long time coming, my dear*
-*It’s been a long time coming, but now it’s here*
+> *It’s been a long time coming, my dear*
+> *It’s been a long time coming, but now it’s here*
 
 Of the first half of the verse, not much need be said other than: no, I don’t think Rosie is a hat tip to Rosalita (although it may be a wink at Neil Diamond) and *thank god* someone finally told Bruce how Orion is pronounced sometime between 2006 and 2012, because that mispronunciation is a mild but distracting annoyance in every version of the song pre-Wrecking Ball Tour. (You can see Bruce remind himself to sing it correctly in the second clip below.)
 
@@ -121,11 +121,11 @@ Of the first half of the verse, not much need be said other than: no, I don’t 
 
 Let’s linger on that second half of the verse, though, because these lines also contend for a place among Bruce’s best:
 
-*Well there’s just a spark of a campfire left burning*
-*Two kids in a sleeping bag beside*
-*I reach ‘neath your shirt, lay my hands across your belly*
-*And feel another one kicking inside*
-*And I ain’t gonna fuck it up this time*
+> *Well there’s just a spark of a campfire left burning*
+> *Two kids in a sleeping bag beside*
+> *I reach ‘neath your shirt, lay my hands across your belly*
+> *And feel another one kicking inside*
+> *And I ain’t gonna fuck it up this time*
 
 It’s here that we learn what’s prompted our protagonist’s epiphany: the imminent arrival of his third child. (It also lends another layer of meaning to the chorus.) This isn’t just an opportunity to course-correct with his current children, it’s a chance for him to get it right from the start with his next one.
 

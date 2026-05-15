@@ -22,60 +22,60 @@ That is one seriously fine pop song. No one would ever associate Bruce with new 
 
 The released version has *such* a great hook and backing track, however, that you can listen to it countless times, sing along at the top of your lungs, dance to it without a care if you’re lucky enough to catch a rare outing in concert… and yet never once realize:
 
-*This is one dark song.*
+> *This is one dark song.*
 
 Seriously. Listen carefully to it. As Springsteen often does, this is a case of a bright pop melody that belies some somber lyrics and sinister imagery. We start in a dreamscape with two frightened lovers on the run, pursued by a threatening stranger:
 
-*Last night I dreamed we was running through the outlands*
-*Tears streaming, your pretty face all a wreck*
-*I held your daddy’s gun in my trembling hands*
-*And down the highway another stranger comes*
-*You gotta take ’em baby when they come*
+> *Last night I dreamed we was running through the outlands*
+> *Tears streaming, your pretty face all a wreck*
+> *I held your daddy’s gun in my trembling hands*
+> *And down the highway another stranger comes*
+> *You gotta take ’em baby when they come*
 
 That line–“take ’em *when* they come”–it’s not the easygoing refrain it appears to be. It’s a battle cry–a declaration of intent to hold one’s ground, defend the one you love from any threat, and take them down before they take you. The chorus says they’ll take them *as* they come, but the verses make it clear that *as* really means *when*, and *take* means *remove**.* It’s not a coincidence that the gun in his dream belongs to his lover’s father–our narrator has cast himself as the protector. And because it’s a dream, we can rest easy that it’s just symbolism.
 
 Or can we? Our narrator’s awake now, ready to head out into the night. But his attitude’s the same–he’s ready for a fight. He expects one, in fact, and he encourages his girl to hide a switchblade in that best dress of hers:
 
-*Little girl put on your best dress*
-*‘Cause we’re going out on the town tonight*
-*Better bring along your switchblade*
-*‘Cause for sure some fool’s gonna wanna fight*
-*You’ve got to take ’em baby as they come*
+> *Little girl put on your best dress*
+> *‘Cause we’re going out on the town tonight*
+> *Better bring along your switchblade*
+> *‘Cause for sure some fool’s gonna wanna fight*
+> *You’ve got to take ’em baby as they come*
 
 We’ll never learn his backstory, but this is a man who clearly sees life as a never-ending fight, and he believes he is justified for taking up the gauntlet. Whether his girl was with him from the start or joined him along the way, he’s grateful for his partner in crime and is doing his best to convince her that they’re on the right path, even if it’s a dark one:
 
-*But God save the rider in the black night*
-*Save the man who taught that it was right*
-*To do what they have done, girl*
-*To become what we have become*
-*You gotta take ’em baby when they come*
+> *But God save the rider in the black night*
+> *Save the man who taught that it was right*
+> *To do what they have done, girl*
+> *To become what we have become*
+> *You gotta take ’em baby when they come*
 
 He’s rationalizing, to be sure: If they’re going to survive, if they’re going to continue to live the life they’ve chosen, they’ve got to strike first–and it’s okay, because the law of the street says that’s the right thing to do.
 
 The song takes a turn here, and we learn that our anti-hero isn’t reassuring his girl–he’s losing her.
 
-*Little girl, gone are the days*
-*Faded away into a clear blue night*
-*And all the vows that we made*
-*Lie shattered and broken in the morning light*
-*You gotta take ’em baby when they come*
+> *Little girl, gone are the days*
+> *Faded away into a clear blue night*
+> *And all the vows that we made*
+> *Lie shattered and broken in the morning light*
+> *You gotta take ’em baby when they come*
 
 It’s possible to read that verse as an implication that these two are working through some kind of infidelity, but I think the vows Bruce refers to aren’t the ones they made to each other, but rather the ones they made together, as a couple, about the life they wanted to build for themselves.
 
 This is not the life she wanted, though, and not the one he promised. It’s taking a toll on their bond, but he’s learning the wrong lesson from it. So desperate is he to protect her, to preserve her, that he doesn’t realize he’s the one causing the harm.
 
-*I know your heart is breaking*
-*I can feel it too, girl*
-*Though my finger on the trigger’s shaking*
-*Here I swear to you, girl*
+> *I know your heart is breaking*
+> *I can feel it too, girl*
+> *Though my finger on the trigger’s shaking*
+> *Here I swear to you, girl*
 
 Whether you read the song literally or metaphorically, what’s clear is that he truly views life as the two of them against the world, and when you truly live that way, you go down a dark and lonely road of isolation.
 
-*If I could take all your sorrow*
-*So that you’d never cry, girl, or be blue*
-*Come tomorrow, girl*
-*What I’d do for you, little one*
-*I swear I’ll take ’em baby when they come*
+> *If I could take all your sorrow*
+> *So that you’d never cry, girl, or be blue*
+> *Come tomorrow, girl*
+> *What I’d do for you, little one*
+> *I swear I’ll take ’em baby when they come*
 
 
 That last line is as chilling as any in Springsteen’s catalog. What lengths will our anti-hero go to for his love? We can only shudder and wonder.

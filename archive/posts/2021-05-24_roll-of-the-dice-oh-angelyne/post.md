@@ -22,51 +22,51 @@ His yearning to escape the girl he’d been saddled with and run off with his fa
 
 [Watch on Youtube: Bruce Springsteen Angelyne #4 Acoustic Demo](https://www.youtube.com/watch?v=8eKuVgBuNI0)
 
-*I come from down in the valley where mister straight from day number one*
-*They bring you up to do what your daddy done*
-*I’m working for the Jenkins Company, but there ain’t work on account of the economy*
-*???, don’t need men to put ’em up*
-*Not by me, not by anyone*
+> *I come from down in the valley where mister straight from day number one*
+> *They bring you up to do what your daddy done*
+> *I’m working for the Jenkins Company, but there ain’t work on account of the economy*
+> *???, don’t need men to put ’em up*
+> *Not by me, not by anyone*
 
-*Oh Angelyne, I’m running to you, I’m running to you*
-*Angelyne, you run on the wire, you walk the line*
+> *Oh Angelyne, I’m running to you, I’m running to you*
+> *Angelyne, you run on the wire, you walk the line*
 
 We meet Mary in this next demo, and this is where it becomes clear that our narrator longs to escape the life he’s made for himself.
 
 [Watch on Youtube: Bruce Springsteen Angelyne #1 Acoustic Demo](https://www.youtube.com/watch?v=APldzhXlBIE)
 
-*Well mister when you’re young*
-*They bring you up to do, yeah, what your daddy done*
-*I worked construction with the Jenkins company*
-*Lately there ain’t been much work on account of the economy*
-*Man don’t need no buildings, don’t need men to build a home*
-*Well a man don’t need me, goodbye me*
+> *Well mister when you’re young*
+> *They bring you up to do, yeah, what your daddy done*
+> *I worked construction with the Jenkins company*
+> *Lately there ain’t been much work on account of the economy*
+> *Man don’t need no buildings, don’t need men to build a home*
+> *Well a man don’t need me, goodbye me*
 
-*Oh Angelyne, I’m running to you, I’m running to you*
-*Oh Angelyne, when you’re on the wire you walk the line*
+> *Oh Angelyne, I’m running to you, I’m running to you*
+> *Oh Angelyne, when you’re on the wire you walk the line*
 
-*I met Mary at ??? High School*
-*I pick her up in my 413*
-*And we drive away from the valley down to where the fields were green*
-*And I got Mary pregnant, man that was all she wrote*
-*Got me a Union card and a wedding coat*
-*Judge, he put it all to rest*
-*No walk down the aisle, no wedding dress*
+> *I met Mary at ??? High School*
+> *I pick her up in my 413*
+> *And we drive away from the valley down to where the fields were green*
+> *And I got Mary pregnant, man that was all she wrote*
+> *Got me a Union card and a wedding coat*
+> *Judge, he put it all to rest*
+> *No walk down the aisle, no wedding dress*
 
 Bruce continued working on the song, building toward a bitter climax that railed against the cruelty of a dream promised but unfulfilled.
 
 [Watch on Youtube: Bruce Springsteen Angelyne #3 Acoustic Demo](https://www.youtube.com/watch?v=nopdtlnNXkM)
 
-*I act like I don’t remember, Mary acts like she don’t care*
-*I remember running wild in her brother’s car*
-*Her body tan, tan and dripping wet down at the reservoir*
-*The plan we made, baby, that all fell through*
-*We painted ourselves a dream we couldn’t live up to*
+> *I act like I don’t remember, Mary acts like she don’t care*
+> *I remember running wild in her brother’s car*
+> *Her body tan, tan and dripping wet down at the reservoir*
+> *The plan we made, baby, that all fell through*
+> *We painted ourselves a dream we couldn’t live up to*
 
-*Baby all those dreams, they haunt me like a curse*
-*Is a dream a lie if it don’t come true or is it something worse*
-*Is it something true that don’t ever come*
-*Just makes you feel old inside, baby when you’re young*
+> *Baby all those dreams, they haunt me like a curse*
+> *Is a dream a lie if it don’t come true or is it something worse*
+> *Is it something true that don’t ever come*
+> *Just makes you feel old inside, baby when you’re young*
 
 (Bruce would soon realize that three of those last five lines were unnecessary.)
 
@@ -82,9 +82,9 @@ But then inspiration hit. On tour the previous summer, Bruce had become fascinat
 
 In particular, there’s a striking familiarity in that song’s first verse…
 
-*I went down to the river to watch the fish swim by*
-*But I got to the river so lonesome I wanted to die*
-*And then I jumped in the river, but the doggone river was dry*
+> *I went down to the river to watch the fish swim by*
+> *But I got to the river so lonesome I wanted to die*
+> *And then I jumped in the river, but the doggone river was dry*
 
 Regardless of which Hank Williams song we credit, Bruce realized what his own song was missing. By late August, he’d transformed “Oh Angelyne,” keeping its central couple and circumstance, but ditching the other woman and replacing her with a metaphor borrowed from Williams.
 

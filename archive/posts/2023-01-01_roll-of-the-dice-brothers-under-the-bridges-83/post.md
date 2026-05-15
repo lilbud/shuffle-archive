@@ -24,33 +24,33 @@ Barreling out of the gate on the backs of Clarence and Max, the backing track br
 
 That’s pretty much what the song is about–to a casual listener, at least: the frustration of being just shy of driving age (that whine of frustration around the twenty-second mark gets me every time), of watching from a distance as the older boys and girls experience their first taste of freedom. The narrator of “Brothers Under the Bridges” doesn’t even have time to envy the older kids–he’s too busy living vicariously through them.
 
-*Every spring when the weather gets warm*
-*They come pourin’ into town straight off of them farms*
-*Driving 455s running hard and strong*
-*They’d scratch built in ‘ them tool sheds all winter long*
-*‘Neath the trestles drinkin’ the beer and the wine*
-*Now some came to run, some just to pass the time*
-*With the brothers under the bridges*
+> *Every spring when the weather gets warm*
+> *They come pourin’ into town straight off of them farms*
+> *Driving 455s running hard and strong*
+> *They’d scratch built in ‘ them tool sheds all winter long*
+> *‘Neath the trestles drinkin’ the beer and the wine*
+> *Now some came to run, some just to pass the time*
+> *With the brothers under the bridges*
 
 Notice the detail Bruce packs into that verse: I don’t even know what a 455 engine is, and I suspect a typical fourteen-year-old wouldn’t either. But Bruce deliberately adds that detail to subtly illustrate just how obsessed the narrator is with cars and freedom, despite being too young to enjoy them.
 
 Also notice how the narrator is equally taken by the scene of the older kids gathering, drinking, and hanging out under the bridges. To him, a car represents not just freedom but entry into what he sees as a fraternity–a brotherhood (no accident that Bruce refers to them as “brothers”) into which he’s denied entry. And it torments him:
 
-*Me and Tommy we was just fourteen, didn’t have our licenses yet*
-*Our walls were covered with pictures of the cars we’d get*
-*We’d listen and wait for that highway to rumble and quake*
-*As they drove in through town when the weekend’d break*
-*??? girls with that distant look in their eyes*
-*Now together ‘neath the trestles they’d be laughing in the night*
-*With the brothers under the bridges*
+> *Me and Tommy we was just fourteen, didn’t have our licenses yet*
+> *Our walls were covered with pictures of the cars we’d get*
+> *We’d listen and wait for that highway to rumble and quake*
+> *As they drove in through town when the weekend’d break*
+> *??? girls with that distant look in their eyes*
+> *Now together ‘neath the trestles they’d be laughing in the night*
+> *With the brothers under the bridges*
 
 If our young hero can’t join the brotherhood, though, he’ll at least watch them–watch and dream of the day when he can be one of them:
 
-*Well now, me and my brother’d hitched a ride in Joey’s pickup to the edge of town*
-*And we’d watch from the tall grass as the challenges were made and the duels went down*
-*We’d hitchhike back home, sneak in, get in bed before my mom’d come*
-*And we’d lay there in the night talkin’ about how we might someday be one*
-*Yeah someday run with the brothers under the bridges*
+> *Well now, me and my brother’d hitched a ride in Joey’s pickup to the edge of town*
+> *And we’d watch from the tall grass as the challenges were made and the duels went down*
+> *We’d hitchhike back home, sneak in, get in bed before my mom’d come*
+> *And we’d lay there in the night talkin’ about how we might someday be one*
+> *Yeah someday run with the brothers under the bridges*
 
 Again, Bruce’s lyrics feature some very nice, subtle detail–this is Bruce at peak songwriting skill. Every line in that bridge rubs salt in the wound–the ignominy of having to hitch a ride because he’s too young to drive; hiding in the tall grass (implying the narrator is small by comparison); having to sneak in to his house because he was out after curfew.
 
@@ -58,11 +58,11 @@ And as Bruce and his brother share their dreams with the night, Clarence paints 
 
 Bruce is careful–so careful–in the final verse to foreshadow the future without outright defining it. In fact, it’s quite likely that we’ve already time-traveled: this narrator sounds older and more thoughtful than the one we’ve been listening to.
 
-*Well now I hear a cry in the distance and the sound of marching feet come and gone*
-*Well I’m sittin’ down here by this highway figuring, figuring just where I belong*
-*Tonight from up here on Signal Hill I watch a young man in a red shirt walking through a night so still*
-*Put his jacket ’round his girl as the autumn wind sends a chill*
-*Through the brothers under the bridges*
+> *Well now I hear a cry in the distance and the sound of marching feet come and gone*
+> *Well I’m sittin’ down here by this highway figuring, figuring just where I belong*
+> *Tonight from up here on Signal Hill I watch a young man in a red shirt walking through a night so still*
+> *Put his jacket ’round his girl as the autumn wind sends a chill*
+> *Through the brothers under the bridges*
 
 The cry in the distance, the deliberate word choice of “marching” and the chill in the air all create a sense of foreboding and imply that the narrator is nearing adulthood and the age at which he is eligible for the draft. Star Trek fans might be tempted to read into that “red shirt” detail as well, but Bruce is using the red shirt to establish the young man as a college freshman and therefore exempt from the draft–foreshadowing the song’s sequel. (Thanks to reader Philip J. Ruggiero for the connection.)
 

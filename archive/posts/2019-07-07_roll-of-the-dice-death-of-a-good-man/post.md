@@ -16,43 +16,43 @@ Bruce writes sparingly, without a trace of metaphor, and his rhyming dictionary 
 
 The title of the song is a feint, as is the first verse. Bruce leads us to believe that the song is about an innocent man gunned down for being in the wrong place at the wrong time.
 
-*A man described as an unemployed carpenter*
-*was shot and killed in a gun battle today*
-*that lasted about a quarter of an hour*
-*several blocks from the New York Harbor*
+> *A man described as an unemployed carpenter*
+> *was shot and killed in a gun battle today*
+> *that lasted about a quarter of an hour*
+> *several blocks from the New York Harbor*
 
 But as we quickly learn, the “good man” isn’t the victim but rather the killer–until he himself is shot and killed by police officers in self-defense.
 
-*Authorities said he was in a boarding house window*
-*when he opened fire down upon them*
-*They returned his shots in self-defense now*
-*and to think he was a World War II veteran*
+> *Authorities said he was in a boarding house window*
+> *when he opened fire down upon them*
+> *They returned his shots in self-defense now*
+> *and to think he was a World War II veteran*
 
 Bruce implies that his war experiences might have had something to do with his demise, but we never really learn why he snapped. As is usually the case in real life.
 
 And as we often see, in retrospect his neighbors identify something off about him.
 
-*A neighbor said he was quite a good man*
-*he moved into the house about three years ago*
-*He seemed to keep to his own business, she told me*
-*but I always thought he was a little strange, you know*
+> *A neighbor said he was quite a good man*
+> *he moved into the house about three years ago*
+> *He seemed to keep to his own business, she told me*
+> *but I always thought he was a little strange, you know*
 
 Bruce remains a clinically detached reporter for the remainder of the song, capturing the way the slain murderer was afforded respect by his community and even hints of redemption, but offering no comment.
 
-*He was dead upon arrival*
-*at the hospital where good men go*
-*A friend and his wife watched from a nearby car*
-*as they rolled his body through the cleansing rainfall*
+> *He was dead upon arrival*
+> *at the hospital where good men go*
+> *A friend and his wife watched from a nearby car*
+> *as they rolled his body through the cleansing rainfall*
 
-*They wrote about him in all the papers*
-*even mentioned his name once or twice*
-*Now he’s the gossip of all the neighbors*
-*survived by a brother and his own dear wife*
+> *They wrote about him in all the papers*
+> *even mentioned his name once or twice*
+> *Now he’s the gossip of all the neighbors*
+> *survived by a brother and his own dear wife*
 
-*Oh and the funeral home was really quite pretty*
-*brother made sure enough flowers were sent*
-*They sent him into the ground with just enough sorrow*
-*Williams Funeral Home in charge of arrangements*
+> *Oh and the funeral home was really quite pretty*
+> *brother made sure enough flowers were sent*
+> *They sent him into the ground with just enough sorrow*
+> *Williams Funeral Home in charge of arrangements*
 
 There’s no music to accompany “Death of a Good Man,” only a few spare chord notations–so we may never know what Bruce intended if he had finished and recorded the song.
 

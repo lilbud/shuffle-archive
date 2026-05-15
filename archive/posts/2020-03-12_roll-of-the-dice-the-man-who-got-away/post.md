@@ -12,49 +12,49 @@ Often compared to “[Be True,](https://estreetshuffle.com/index.php/2020/12/02/
 
 “The Man Who Got Away” is one big fake-out: we *think* we know what the song is about as Bruce unreels the first verse–it seems like we’re listening to one of Bruce’s trademarked ordinary working Joes engaging in a bit of Hollywood escapism.
 
-*Last night I went to the Coronado*
-*I bought my ticket and I found my seat*
-*It was a new adventure straight from Hollywood*
-*Lights went down as I felt the heat*
+> *Last night I went to the Coronado*
+> *I bought my ticket and I found my seat*
+> *It was a new adventure straight from Hollywood*
+> *Lights went down as I felt the heat*
 
-*They went tearing from the final scene*
-*Burning rubber, spilling gasoline*
-*As the credits rolled away*
-*They were still chasing the man who got away*
+> *They went tearing from the final scene*
+> *Burning rubber, spilling gasoline*
+> *As the credits rolled away*
+> *They were still chasing the man who got away*
 
 But we quickly learn that this particular escapism may be just as much literal as it is metaphorical:
 
-*Well, every night for weeks and weeks now*
-*I beat the traffic, I beat the heat now*
-*For two hours I can believe now*
-*The man who got away was me*
+> *Well, every night for weeks and weeks now*
+> *I beat the traffic, I beat the heat now*
+> *For two hours I can believe now*
+> *The man who got away was me*
 
-*I went tearing from the final scene*
-*Burning rubber, spilling gasoline*
-*As the credits rolled away*
-*They were still chasing the man who got away*
+> *I went tearing from the final scene*
+> *Burning rubber, spilling gasoline*
+> *As the credits rolled away*
+> *They were still chasing the man who got away*
 
 Bruce is particularly clever here: on first listen, it’s likely that we hear that “I beat the traffic, I beat the heat” as a reference to an evening commute during an oppressive summer, and that the air-conditioned theater offered a temporary respite.
 
 But we’re about to learn that “traffic” and “heat” refers to the police out searching for our anti-hero:
 
-*Drove into Stockton, my radio went dead*
-*That’s when I heard what the newsman said*
-*Said, “armed robbery on the ten-hundred block”*
-*Was two men involved and one man shot*
-*Well, while his accomplice made the payday*
-*With a 45 he blew the cashier away*
-*Last seen headed on the State Highway*
-*Driving a late model Chevrolet”*
+> *Drove into Stockton, my radio went dead*
+> *That’s when I heard what the newsman said*
+> *Said, “armed robbery on the ten-hundred block”*
+> *Was two men involved and one man shot*
+> *Well, while his accomplice made the payday*
+> *With a 45 he blew the cashier away*
+> *Last seen headed on the State Highway*
+> *Driving a late model Chevrolet”*
 
 Whoa! We didn’t see *that* twist coming the first time we heard this song, did we? Our narrator is literally on the lam, dodging the police officers and staying one step ahead of the APB out for his arrest.
 
 And that chorus–we get one more go-round to drive the point home: perhaps the hail of bullets and flaming gasoline is a bit of action movie grandeur infusing his recollection, but his life-on-the-run is real, with no hint of safety in the near future.
 
-*I went screaming from the final scene*
-*In a hail of bullets and flaming gasoline*
-*As the credits rolled away*
-*They were still chasing the man who got away*
+> *I went screaming from the final scene*
+> *In a hail of bullets and flaming gasoline*
+> *As the credits rolled away*
+> *They were still chasing the man who got away*
 
 Why in the world didn’t Bruce include this terrific song on *The River*? I can’t answer that one. It should have been on it, and we should have had at least one live performance of along the way.
 

@@ -14,43 +14,43 @@ Bruce recorded “Winter Song” in late January 1973, arranged as a solo piano 
 
 Lyrically, let’s just acknowledge that “Winter Song” isn’t Bruce at his most enlightened. This is a story about a young man who appears to be a regular at a local brothel, torn between two hostesses–one submissive and one dominant. But as the song progresses, our experimenting narrator finds himself increasingly intrigued by the house’s mysterious madam.
 
-*From their northeast source the sour wind roars*
-*Their gifts fresh from the valley waters*
-*“Hello” echoes strip Pennsylvania mountain walls*
-*With their corsets and their old Betsy ruffle*
-*And their slips with pearly white*
-*They stand bulging up against the screen door*
-*And bid you “good night”*
+> *From their northeast source the sour wind roars*
+> *Their gifts fresh from the valley waters*
+> *“Hello” echoes strip Pennsylvania mountain walls*
+> *With their corsets and their old Betsy ruffle*
+> *And their slips with pearly white*
+> *They stand bulging up against the screen door*
+> *And bid you “good night”*
 
-*Summer’s sweet and she brings me water*
-*But give me Winter, that old icy whore*
-*While Summer lies meek and follows orders*
-*Winter cries “me” and pulls you through the door*
+> *Summer’s sweet and she brings me water*
+> *But give me Winter, that old icy whore*
+> *While Summer lies meek and follows orders*
+> *Winter cries “me” and pulls you through the door*
 
-*The lymph node tramp cries metal flake tears*
-*They drip like honey down soot mama’s leg*
-*You lay watching a moth eat a hole in his cloth*
-*He’ll ask, but he don’t beg*
-*Said I’d like to see the mademoiselle*
-*Who holds the keys to all these doors around her waist*
-*And rings the bell*
+> *The lymph node tramp cries metal flake tears*
+> *They drip like honey down soot mama’s leg*
+> *You lay watching a moth eat a hole in his cloth*
+> *He’ll ask, but he don’t beg*
+> *Said I’d like to see the mademoiselle*
+> *Who holds the keys to all these doors around her waist*
+> *And rings the bell*
 
-*Summer’s sweet and she brings me water*
-*Give me Winter, that old icy whore*
-*Summer lies meek and follows orders*
-*Winter cries “me” and pulls you through the door*
+> *Summer’s sweet and she brings me water*
+> *Give me Winter, that old icy whore*
+> *Summer lies meek and follows orders*
+> *Winter cries “me” and pulls you through the door*
 
-*With scuffling sound the knot-voiced matron makes her rounds*
-*Knocking on each and every door*
-*With a look like white heat, she sways, salty, sweet*
-*And leads me ‘cross her Persian floor*
-*She squeezed my hand and before her I stood*
-*I was scared, it was dark but it was good*
+> *With scuffling sound the knot-voiced matron makes her rounds*
+> *Knocking on each and every door*
+> *With a look like white heat, she sways, salty, sweet*
+> *And leads me ‘cross her Persian floor*
+> *She squeezed my hand and before her I stood*
+> *I was scared, it was dark but it was good*
 
-*Summer’s sweet and she brings me water*
-*But give me Winter, that old icy whore*
-*While Summer lies meek and follows orders*
-*Winter cries “me” and pulls me through her door*
+> *Summer’s sweet and she brings me water*
+> *But give me Winter, that old icy whore*
+> *While Summer lies meek and follows orders*
+> *Winter cries “me” and pulls me through her door*
 
 “Winter Song” delivers its inexperienced narrator to the madam by the song’s climax, but Bruce concludes the encounter with an understated “it was good.”
 

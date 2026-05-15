@@ -16,49 +16,49 @@ Musically, “Straight Time” is gentler and more reflective than either of the
 
 Yet we can clearly see the elements he poached from each. As with James Lincoln and James Lucas, Charlie is an ex-con doing his best to keep his nose clean and make ends meet. In 1995, Bruce wrote with much more economy than he did in 1982, and he accomplishes in just three lines what it took him two full verses to do in the earlier outtakes. (The 1978 film *Straight Time* probably helped. Bruce’s exposition is remarkably similar to the movie.)
 
-*Got out of prison back in ’86 and I found a wife*
-*Walked the clean and narrow just trying to stay out and stay alive*
-*Got a job at the rendering plant, it ain’t gonna make me rich*
-*In the darkness before dinner comes sometimes I can feel the itch*
-*I got a cold mind to go tripping ‘cross that thin line*
-*I’m sick of doing straight time*
+> *Got out of prison back in ’86 and I found a wife*
+> *Walked the clean and narrow just trying to stay out and stay alive*
+> *Got a job at the rendering plant, it ain’t gonna make me rich*
+> *In the darkness before dinner comes sometimes I can feel the itch*
+> *I got a cold mind to go tripping ‘cross that thin line*
+> *I’m sick of doing straight time*
 
 In the second half of the first verse, Bruce solves a problem that plagued “James Lincoln Deere” and “Richfield Whistle”: both earlier songs featured protagonists that seemed too virtuous (as virtuous as an ex-con can be, at least), making their inevitable concession to temptation seem sudden and forced.
 
 In “Straight Time,” Bruce reveals that Charlie feels the pull of temptation from the start. As he’d explain on stage and in interviews, we all have bad habits that are hard to break, because when something becomes habitual, it becomes part of our very nature. Charlie feels the itch to improve his circumstances via less-than-ethical means, and he finds it increasingly hard to resist scratching–especially when his uncle (playing the role of Sill in “James Lincoln Deere”) comes calling.
 
-*My uncle’s at the evening table, makes his living running hot cars*
-*Slips me a hundred dollar bill, says “Charlie you best remember who your friends are”*
-*I got a cold mind to go tripping ‘cross that thin line*
-*I ain’t making straight time*
+> *My uncle’s at the evening table, makes his living running hot cars*
+> *Slips me a hundred dollar bill, says “Charlie you best remember who your friends are”*
+> *I got a cold mind to go tripping ‘cross that thin line*
+> *I ain’t making straight time*
 
 Charlie is already bending toward resuming his life of crime. His uncle just makes it that much harder to resist. “You best remember who your friends are,” he tells Charlie, but the words might as well have been spoken by his own vices.
 
 For most of us–those of us who haven’t spent years behind bars–the idea of a convicted criminal throwing away their second chance might escape our understanding. Bruce understands it, though, and he explains:
 
-*Well eight years in, it feels like you’re gonna die*
-*But you get used to anything, sooner or later it just becomes your life*
+> *Well eight years in, it feels like you’re gonna die*
+> *But you get used to anything, sooner or later it just becomes your life*
 
 The human mind adapts to its environment. Spend enough time in even the worst of circumstances, and eventually those circumstances take on the comfort of familiarity. *Sooner or later it just becomes your life*, and you become the person who lives it.
 
 This is Charlie’s internal struggle: can he reinvent himself through family, community, and work, or will he inevitably re-embrace the self he hoped he’d left behind in prison. It doesn’t help that even his own wife seems braced for the inevitable.
 
-*The kitchen floor in the evening, tossing my little babies high*
-*Mary’s smiling but she watches me out of the corner of her eye*
-*Seems you can’t get any more than half-free*
-*I step out onto the front porch and suck the cold air deep inside of me*
-*I got a cold mind to go tripping ‘cross that thin line*
-*I’m sick of doing straight time*
+> *The kitchen floor in the evening, tossing my little babies high*
+> *Mary’s smiling but she watches me out of the corner of her eye*
+> *Seems you can’t get any more than half-free*
+> *I step out onto the front porch and suck the cold air deep inside of me*
+> *I got a cold mind to go tripping ‘cross that thin line*
+> *I’m sick of doing straight time*
 
 *You can’t get any more than half-free*, Charlie tells us. His body–his physical half–tries its best to play the family man, but his inner life is neither straight nor narrow.
 
 In the last verse, Bruce hints that old habits are about to re-assert themselves, as Charlie emotionlessly saws off a shotgun. We never learn why, but such weapons are counter-productive for hunting.
 
-*In the basement, hunting gun and a hacksaw*
-*Sip a beer and thirteen inches of barrel drop to the floor*
+> *In the basement, hunting gun and a hacksaw*
+> *Sip a beer and thirteen inches of barrel drop to the floor*
 
-*Come home in the evening, can’t get the smell from my hands*
-*Lay my head down on the pillow and go drifting off into foreign lands*
+> *Come home in the evening, can’t get the smell from my hands*
+> *Lay my head down on the pillow and go drifting off into foreign lands*
 
 For the moment he resists temptation, but only for the moment. His day job is already grisly. Unable to rid his hands of the smell of death, we can only wonder where his thoughts go when they drift off into slumber.
 

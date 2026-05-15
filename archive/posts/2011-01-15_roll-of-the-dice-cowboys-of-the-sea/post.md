@@ -32,33 +32,33 @@ I mean, come on: we’re talking about a 21-year-old songwriter who grew up fasc
 
 Yes, there’s a concluding verse that touches on environmental and possibly class-conflict themes, but it arrives too late for me to consider it anything but an afterthought. This song is all about the undersea cowboys.
 
-*Well, they ride beneath the waves at twenty-thousand leagues*
-*On stallions stitched to seaweed strands, so smiling, so smiling*
-*They herd the fishes of the deep, they ride for you and me*
-*They ranch the rich and the sunken soil at the bottom of the sea*
+> *Well, they ride beneath the waves at twenty-thousand leagues*
+> *On stallions stitched to seaweed strands, so smiling, so smiling*
+> *They herd the fishes of the deep, they ride for you and me*
+> *They ranch the rich and the sunken soil at the bottom of the sea*
 
-*And in the dead of night, alive in sleep I hear them calling me*
-*Them deep sea desperadoes, them midnight maelstrom freaks, the cowboys of the sea*
+> *And in the dead of night, alive in sleep I hear them calling me*
+> *Them deep sea desperadoes, them midnight maelstrom freaks, the cowboys of the sea*
 
-*So on wings of sleep I pierce the deep and ride like a hurricane*
-*In midnight still I paid my bill, I turned my back on the land*
-*With the help of Old Paint, that seaweed nag, it’s just Jesse James and me*
-*We ride the depths and we rob the banks with the cowboys of the sea*
+> *So on wings of sleep I pierce the deep and ride like a hurricane*
+> *In midnight still I paid my bill, I turned my back on the land*
+> *With the help of Old Paint, that seaweed nag, it’s just Jesse James and me*
+> *We ride the depths and we rob the banks with the cowboys of the sea*
 
-*With a seaman’s grip on navigation and some fired, hired hands*
-*Whoa, we set forth to confront the nation and lend a cowboy’s hand*
+> *With a seaman’s grip on navigation and some fired, hired hands*
+> *Whoa, we set forth to confront the nation and lend a cowboy’s hand*
 
-*We do the dolphin’s dance duet, my mermaid babe and me*
-*Then I ride off into the blue sunset at the bottom of the sea*
+> *We do the dolphin’s dance duet, my mermaid babe and me*
+> *Then I ride off into the blue sunset at the bottom of the sea*
 
-*Whoa, and with the seaman’s grip on submarining and some aqualung outlaws*
-*Our guns are made of solid dreaming and bullets of the cause*
-*Whoa, and with hand held high to touch the sky a good Texas Ranger I’ll be*
-*But sometimes I feel like a lone stranger ‘midst the cowboys of the sea*
+> *Whoa, and with the seaman’s grip on submarining and some aqualung outlaws*
+> *Our guns are made of solid dreaming and bullets of the cause*
+> *Whoa, and with hand held high to touch the sky a good Texas Ranger I’ll be*
+> *But sometimes I feel like a lone stranger ‘midst the cowboys of the sea*
 
-*Oh, and man above he just can’t make love, he’s gotta rape his mother the sea*
-*Because of his greed we’re a vanishing breed, we cowboys of the sea*
-*With the cowboys of the sea*
+> *Oh, and man above he just can’t make love, he’s gotta rape his mother the sea*
+> *Because of his greed we’re a vanishing breed, we cowboys of the sea*
+> *With the cowboys of the sea*
 
 It’s easy to understand why Bruce was so taken with his song; it’s equally easy to understand why those around him did their best to distract him from it. The concept is clever, but the lyrics are clunky. (There a few neat internal rhymes, a device to which Bruce was quickly warming, but nothing as noteworthy or as artful as those he’d write shortly after.)
 

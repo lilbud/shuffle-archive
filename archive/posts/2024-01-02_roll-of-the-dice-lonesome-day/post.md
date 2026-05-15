@@ -12,7 +12,7 @@ To my knowledge, we haven’t yet seen or heard any evidence to indicate when Br
 
 Bruce himself has been coy about it. In an interview with *Uncut* in September 2002, Bruce told us how the trick works:
 
-*“If you look at the first verse, it feels like it’s a guy who’s talking to his girl… Then bang, the second verse: I switched right out of this personal thing to this sort of overall emotional mood and the feelings that were in the air here in the States around that time. But it works, because one thing works with the other and the second verse can actually come in on what was said in the first verse.”*
+> *“If you look at the first verse, it feels like it’s a guy who’s talking to his girl… Then bang, the second verse: I switched right out of this personal thing to this sort of overall emotional mood and the feelings that were in the air here in the States around that time. But it works, because one thing works with the other and the second verse can actually come in on what was said in the first verse.”*
 
 We could take Bruce at his word, but I personally think his explanation is a bit too clever by half. He’s right: it *does* work, but I suspect it was because Bruce writes in a way that allows for re-contextualizing rather than written for a post-9/11 context directly.
 
@@ -34,23 +34,23 @@ If “primal” fits the description of the sound of “Lonesome Day,” it also
 
 “Lonesome Day” is more than an angry song–it’s a song about betrayal, and the fury it engenders. The first verse only hints at it, though.
 
-*Baby, once I thought I knew*
-*Everything I needed to know about you*
-*Your sweet whisper, your tender touch*
-*But I didn’t really know that much*
-*The joke’s on me, but it’s gonna be okay*
-*If I can just get through this lonesome day*
+> *Baby, once I thought I knew*
+> *Everything I needed to know about you*
+> *Your sweet whisper, your tender touch*
+> *But I didn’t really know that much*
+> *The joke’s on me, but it’s gonna be okay*
+> *If I can just get through this lonesome day*
 
 It’s clear from the refrain that our narrator is alone and that the relationship imploded from within rather than caused by some external tragedy. The “joke’s on me” line implies bitter irony–the kind most of us are familiar with if we’ve ever been betrayed by someone we thought we knew intimately.
 
 But if the first verse hints at deceit, the second verse lays it bare:
 
-*Hell’s brewing, dark sun’s on the rise*
-*This storm will blow through by and by*
-*House is on fire, viper’s in the grass*
-*A little revenge and this too shall pass*
-*This too shall pass, darling, yeah I’m gonna pray*
-*Right now, all I got’s this lonesome day*
+> *Hell’s brewing, dark sun’s on the rise*
+> *This storm will blow through by and by*
+> *House is on fire, viper’s in the grass*
+> *A little revenge and this too shall pass*
+> *This too shall pass, darling, yeah I’m gonna pray*
+> *Right now, all I got’s this lonesome day*
 
 This is the verse that seems to convince critics that the song is about 9/11. To me, though, the second verse flows directly from the first: the hell and dark sun references symbolize the rage boiling inside the narrator; the house on fire is his romantic relationship; the viper is a classic metaphor for betrayal; and the wish for revenge… well, he wouldn’t be the first to respond to betrayal with reciprocation.
 
@@ -58,22 +58,22 @@ Whatever she did to him, he’s going to give in return. Then he’ll be able to
 
 He knows it’s a bad move, though. He knows it’s absolutely *not* alright. Which is exactly why he desperately tries to convince himself otherwise in a bridge that sounds for all the world like the narrator is rocking (literally) in a fetal position.
 
-*It’s alright, it’s alright, it’s alright, yeah*
-*It’s alright, it’s alright, it’s alright, yeah*
-*It’s alright, it’s alright, it’s alright, yeah*
-*It’s alright, it’s alright*
+> *It’s alright, it’s alright, it’s alright, yeah*
+> *It’s alright, it’s alright, it’s alright, yeah*
+> *It’s alright, it’s alright, it’s alright, yeah*
+> *It’s alright, it’s alright*
 
 The instrumental bridge that follows seethes and builds in power and rage until Max explodes and carries us into the final verse.
 
 Here we eavesdrop on the narrator’s inner voice trying its hardest to stop him from doing something he won’t be able to take back.
 
-*Better ask questions before you shoot*
-*Deceit and betrayal is bitter fruit*
-*It’s hard to swallow come time to pay*
-*That taste on your tongue don’t easily slip away*
-*Let kingdom come, I’m gonna find my way*
-*through this lonesome day*
-*It’s alright, it’s alright, it’s alright, yeah*
+> *Better ask questions before you shoot*
+> *Deceit and betrayal is bitter fruit*
+> *It’s hard to swallow come time to pay*
+> *That taste on your tongue don’t easily slip away*
+> *Let kingdom come, I’m gonna find my way*
+> *through this lonesome day*
+> *It’s alright, it’s alright, it’s alright, yeah*
 
 Deep down, he knows his act of revenge isn’t going to make things better. It’s only going to poison the relationship worse, and probably beyond repair. It’s certainly not going to erase the taste of deceit from his tongue. But his pain and anger are so great that he doesn’t care. In the song’s final lines, he realizes that he’s going to be lonesome until kingdom come, a whole lot longer than a day.
 

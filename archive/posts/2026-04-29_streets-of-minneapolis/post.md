@@ -62,38 +62,38 @@ The song touched a nerve in all who heard it. Perhaps there’s a lesson: someti
 
 And that’s not to say there’s no art here.
 
-*Through the winter’s ice and cold, down Nicollet Avenue*
-*A city aflame fought fire and ice ‘neath an occupier’s boots*
-*King Trump’s private army from the DHS, guns belted to their coats*
-*Came to Minneapolis to enforce the law or so their story goes*
+> *Through the winter’s ice and cold, down Nicollet Avenue*
+> *A city aflame fought fire and ice ‘neath an occupier’s boots*
+> *King Trump’s private army from the DHS, guns belted to their coats*
+> *Came to Minneapolis to enforce the law or so their story goes*
 
 “A city aflame fought fire and ice” is a nice play on the dual meaning of *ice* in this song (although it would have been better if he hadn’t already used “ice” in the previous line).
 
-*Against smoke and rubber bullets, in the dawn’s early light*
-*Citizens stood for justice, their voices ringing through the night*
-*And there were bloody footprints where mercy should have stood*
-*And two dead left to die on snow-filled streets, Alex Pretti and Renee Good*
+> *Against smoke and rubber bullets, in the dawn’s early light*
+> *Citizens stood for justice, their voices ringing through the night*
+> *And there were bloody footprints where mercy should have stood*
+> *And two dead left to die on snow-filled streets, Alex Pretti and Renee Good*
 
 “The dawn’s early light” is a reference to “The Star-Spangled Banner” of course, which means the “smoke and rubber bullets” is meant as a comparison to the battle of Fort McHenry. Which in turn means that Bruce is equating citizen protesters and defenders to the American flag itself–an essential symbol of the United States. That couplet is the song’s most beautiful and powerful passage,
 
 The weakest is the chorus:
 
-*Oh our Minneapolis, I hear your voice singing through the bloody mist*
-*We’ll take our stand for this land and the stranger in our midst*
-*Here in our home they killed and roamed in the winter of ’26*
-*We’ll remember the names of those who died on the streets of Minneapolis*
+> *Oh our Minneapolis, I hear your voice singing through the bloody mist*
+> *We’ll take our stand for this land and the stranger in our midst*
+> *Here in our home they killed and roamed in the winter of ’26*
+> *We’ll remember the names of those who died on the streets of Minneapolis*
 
 I can’t help but suspect the entire chorus is built around answering the question: *What rhymes (ish) with Minneapolis?* But again, it’s a quibble. Minneapolis deserves to be celebrated, and it’s a hard word to rhyme. (Let’s hope he never has to write “Streets of Seattle.”)
 
-*Trump’s federal thugs beat up on his face and his chest*
-*Then we heard the gunshots and Alex Pretti lay in the snow dead*
-*Their claim was self-defense, sir, just don’t believe your eyes*
-*It’s our blood and bones and these whistles and phones against Miller and Noem’s dirty lies*
+> *Trump’s federal thugs beat up on his face and his chest*
+> *Then we heard the gunshots and Alex Pretti lay in the snow dead*
+> *Their claim was self-defense, sir, just don’t believe your eyes*
+> *It’s our blood and bones and these whistles and phones against Miller and Noem’s dirty lies*
 
-*Now they say they’re here to uphold the law but they trample on our rights*
-*If your skin is black or brown my friend you can be questioned or deported on sight*
-*In our chants of “ICE out now!” our city’s heart and soul persists*
-*Through broken glass and bloody tears on the streets of Minneapolis*
+> *Now they say they’re here to uphold the law but they trample on our rights*
+> *If your skin is black or brown my friend you can be questioned or deported on sight*
+> *In our chants of “ICE out now!” our city’s heart and soul persists*
+> *Through broken glass and bloody tears on the streets of Minneapolis*
 
 We’re so used to hearing Bruce’s condemnation voiced through fictional characters that it’s jarring to hear him sing the names of Donald Trump, Stephen Miller, and Kristi Noem. Even “American Skin (41 Shots)” fictionalized its characters, with only the title parenthetical making clear the author’s inspiration.
 
@@ -117,7 +117,7 @@ That first full-band performance helped kick off the opening night of a tour tha
 
 Springsteen never had any doubts about where the impromptu tour would open: it could only be Minneapolis. Before a sold-out crowd craving catharsis, he saluted “the power and solidarity of the people of Minneapolis… an inspiration to the entire country.”
 
-*“Your strength and your commitment told us this is still America. And this will not stand.”*
+> *“Your strength and your commitment told us this is still America. And this will not stand.”*
 
 **Streets of Minneapolis**
 **Recorded** January 27, 2026  

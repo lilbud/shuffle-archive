@@ -14,14 +14,14 @@ But even though Bruce never played it again, this isn’t the end of “For What
 
 That song–entitled “[Change It](https://estreetshuffle.com/index.php/2019/09/04/roll-of-the-dice-changing-children/)“–features the lines:
 
-*I said you better take a look around you brother*
-*Something's happening here*
-*Sooner or later it's gonna surround you*
-*And leave you with nothing but fear*
+> *I said you better take a look around you brother*
+> *Something's happening here*
+> *Sooner or later it's gonna surround you*
+> *And leave you with nothing but fear*
 
-*All you gotta do is hang around*
-*Tell you you're never gonna know*
-*Just what's going down*
+> *All you gotta do is hang around*
+> *Tell you you're never gonna know*
+> *Just what's going down*
 
 …making it clear that while “For What It’s Worth” may have been a one-time-only performance for Bruce, the song lingered in his mind long after.
 

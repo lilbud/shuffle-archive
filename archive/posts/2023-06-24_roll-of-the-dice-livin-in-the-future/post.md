@@ -12,7 +12,7 @@ By October 2003, polls began to reflect the new majority opinion: America had lo
 
 Bruce Springsteen was a member of that emerging majority, and he had something to say about it. He’d already been doing so from the stage. At the closing stand of the Rising Tour that month, he admonished:
 
-*There’s been a lot of questions lately raised about the forthrightness of the government. I just want to say that playing with the truth during wartime has been a part of both Democratic and Republican administrations in the past, and it’s always wrong when the lives of our sons and daughters are on the line. The question of whether we were misled to the war in Iraq is not really a liberal or a conservative question. It’s an American question that goes to the heart of protecting the democracy we ask our sons and our daughters to die for. It’s our sacred trust as citizens to demand accountability and the truth from our leaders. That’s the meaning of patriotism.*
+> *There’s been a lot of questions lately raised about the forthrightness of the government. I just want to say that playing with the truth during wartime has been a part of both Democratic and Republican administrations in the past, and it’s always wrong when the lives of our sons and daughters are on the line. The question of whether we were misled to the war in Iraq is not really a liberal or a conservative question. It’s an American question that goes to the heart of protecting the democracy we ask our sons and our daughters to die for. It’s our sacred trust as citizens to demand accountability and the truth from our leaders. That’s the meaning of patriotism.*
 
 When the tour ended the next day, so did Springsteen’s bully pulpit. Still seething, he turned to his notebook and began writing what would eventually become his fifteenth studio album. (He’d take a four-year, two-album detour before getting around to recording it.)
 
@@ -30,10 +30,10 @@ Lyrically, “Livin’ in the Future” is a companion song to “[Your Own Wors
 
 Both are written in the form of relationship songs, a decision Bruce made for both artistic and pragmatic reasons. “I tried to combine personal and political,” he told Levy, “so you can read into the songs either way. You can read the record as a comment on what's been going on, or you can read it just as relationship songs.”
 
-*A letter come blowing in on an ill wind*
-*Something ’bout me and you never seeing one another again*
-*Yeah, well I knew it’d come, still I was struck deaf and dumb*
-*Like when we kissed, that taste of blood on your tongue*
+> *A letter come blowing in on an ill wind*
+> *Something ’bout me and you never seeing one another again*
+> *Yeah, well I knew it’d come, still I was struck deaf and dumb*
+> *Like when we kissed, that taste of blood on your tongue*
 
 Bruce lays it out from the start: *You’re leaving. You’re leaving, and you’re not coming back.*
 
@@ -43,8 +43,8 @@ Through corrosive legislation, and more terrifyingly through fiat (for which Bru
 
 Our narrator sees it coming but can’t quite bring himself to believe it. He can sense it in her actions; he can taste it in her kiss. But when he calls his lover out for her gradual betrayal, she soothes him reassuringly:
 
-*Don’t worry darling, now baby don’t you fret*
-*We’re living in the future and none of this has happened yet*
+> *Don’t worry darling, now baby don’t you fret*
+> *We’re living in the future and none of this has happened yet*
 
 It’s okay, she tells him. All that stuff you’re worried about down the road? That’s down the road. Worry about today, not tomorrow.
 
@@ -54,10 +54,10 @@ That’s our narrator’s dilemma: tomorrow isn’t anything but a string of tod
 
 He’s got Boiling Frog Syndrome: Put a frog in boiling water and it’ll leap right out. Put him in lukewarm water and slowly raise the temperature a degree at a time, and he won’t sense the danger until it’s too late. His girl is turning up the heat slowly but ever so surely.
 
-*Woke up Election Day, skies gunpowder and shades of grey*
-*Beneath the dirty sun I whistle my time away*
-*Then just about sundown you come walking through town*
-*Your boot heels clicking like the barrel of a pistol spinning round*
+> *Woke up Election Day, skies gunpowder and shades of grey*
+> *Beneath the dirty sun I whistle my time away*
+> *Then just about sundown you come walking through town*
+> *Your boot heels clicking like the barrel of a pistol spinning round*
 
 The Election Day reference is commonly seen by fans and critics as giving away the game–breaking the metaphor to ensure the listener recognizes the political context. But the verse works in relationship context, too: *every* day is Election Day, Bruce tells us. Every day is a decision day.
 
@@ -65,17 +65,17 @@ Each day, his narrator is confronted with new evidence of his love’s betrayal,
 
 Bruce’s use of Western imagery suggests a pivotal confrontation is coming. (Hilariously, it also betrays Bruce’s unfamiliarity with firearms: the barrel of a pistol does not spin. He’s thinking of the pistol’s *chamber*.) But again, she reassures him:
 
-*Don’t worry darling, now baby don’t you fret*
-*We’re living in the future and none of this has happened yet*
+> *Don’t worry darling, now baby don’t you fret*
+> *We’re living in the future and none of this has happened yet*
 
 And again, he heeds her words instead of his own instincts. He is complicit in his own gaslighting.
 
 In the bridge, our narrator has a moment of clarity: he feels the ground shift beneath his feet; he feels a giant wave looming. He’s tried his best to keep his faith and belief, but he’s reached a tipping point.
 
-*The earth it gave away, the sea rose towards the sun*
-*I opened up my heart to you, it got all damaged and undone*
-*My ship Liberty sailed away on a bloody red horizon*
-*The groundskeeper opened the gates and let the wild dogs run*
+> *The earth it gave away, the sea rose towards the sun*
+> *I opened up my heart to you, it got all damaged and undone*
+> *My ship Liberty sailed away on a bloody red horizon*
+> *The groundskeeper opened the gates and let the wild dogs run*
 
 Naming his ship *Liberty* is a bit on the nose; the sudden metaphor shift in the last line is clumsy, too. It’s a rare instance of lyrical laziness from Bruce, and there’s another one coming. Still, the verse is effective in conveying that the frog is boiling, and the frog knows it.
 
@@ -83,17 +83,17 @@ For a moment, our narrator can see the future clearly, and it is bleak. It’s a
 
 For the final verse, Bruce reverts to Old West imagery as the frog adapts to the boiling water. (Hey, if Bruce can mix his metaphors, we can too.)
 
-*I’m rolling through town, a lost cowboy at sundown*
-*Got my monkey on a leash, got my ear tuned to the ground*
-*My faith’s been torn asunder, tell me is that rolling thunder*
-*Or just the sinking sound of something righteous going under*
+> *I’m rolling through town, a lost cowboy at sundown*
+> *Got my monkey on a leash, got my ear tuned to the ground*
+> *My faith’s been torn asunder, tell me is that rolling thunder*
+> *Or just the sinking sound of something righteous going under*
 
 It’s the song’s second reference to sundown, a deliberate repetition to imply impending darkness. Or as Bruce would say each night in concert during the Magic Tour, “it’s early… but it’s getting late.”
 
 Our narrator feels it latening, but in spite of it (or perhaps because of it), he chooses to heed his lover’s words and live for today.
 
-*Don’t worry darling, now baby don’t you fret*
-*We’re living in the future and none of this has happened yet*
+> *Don’t worry darling, now baby don’t you fret*
+> *We’re living in the future and none of this has happened yet*
 
 Still, he knows tomorrow isn’t that far off. He hears the ominous sound of rolling thunder, and he knows what it signifies. Something righteous is dying (point deduction for “righteous” when “sacred” would have scored a quadruple alliteration), but he takes comfort in his partner’s words.
 

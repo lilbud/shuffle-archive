@@ -6,10 +6,10 @@
 
 For a good long stretch, Bruce Springsteen was a searcher, starting each new album with a question.
 
-*What if what you do to survive kills the things you love?*
-*Is there anybody alive out there?*
-*Can you hear me?*
-*Where’s the promise from sea to shining sea?*
+> *What if what you do to survive kills the things you love?*
+> *Is there anybody alive out there?*
+> *Can you hear me?*
+> *Where’s the promise from sea to shining sea?*
 
 And then something changed.
 
@@ -29,15 +29,15 @@ It’s worth noting that not only does Bruce open the album with “One Minute Y
 
 Stitched together, *Letter to You* presents an artist looking back on his journey, with appreciation for the days still afforded him. But we start with a reckoning that those days are numbered.
 
-*Big black train coming down the track*
-*Blow your whistle long and long*
-*One minute you’re here*
-*Next minute you’re gone*
+> *Big black train coming down the track*
+> *Blow your whistle long and long*
+> *One minute you’re here*
+> *Next minute you’re gone*
 
-*I lay my penny down on the rails*
-*As the summer wind sings its last song*
-*One minute you’re here*
-*Next minute you’re gone*
+> *I lay my penny down on the rails*
+> *As the summer wind sings its last song*
+> *One minute you’re here*
+> *Next minute you’re gone*
 
 Like many of Bruce’s finest songs, “One Minute You’re Here” employs a lyrical simplicity and economy that belie its craft. Even when discussing the song in interviews, Bruce is coy about the imagery in this song, marginalizing the train-and-pennies incident as a memory from his childhood.
 
@@ -51,23 +51,23 @@ When Bruce’s narrator lays his penny down on the rails, that’s a metaphor fo
 
 The narrator realizes this, though–which is why he croons with powerless anguish in the Orbisonian bridge.
 
-*Baby baby baby I’m so alone*
-*Baby baby baby I’m coming home*
+> *Baby baby baby I’m so alone*
+> *Baby baby baby I’m coming home*
 
 We flash backward now, to the recent past and a happier, more vibrant time. (We know this, because the rest of the E Street Band enters at this point, joining Bruce and Roy to add color to a previously lonely track.)
 
-*Autumn carnival on the edge of town*
-*We walk down the midway arm-in-arm*
-*One minute you’re here*
-*Next minute you’re gone*
+> *Autumn carnival on the edge of town*
+> *We walk down the midway arm-in-arm*
+> *One minute you’re here*
+> *Next minute you’re gone*
 
-*I thought I knew just who I was*
-*And what I’d do but I was wrong*
-*One minute you’re here*
-*Next minute you’re gone*
+> *I thought I knew just who I was*
+> *And what I’d do but I was wrong*
+> *One minute you’re here*
+> *Next minute you’re gone*
 
-*Red river running along the edge of town*
-*On the muddy banks I lay my body down, this body down*
+> *Red river running along the edge of town*
+> *On the muddy banks I lay my body down, this body down*
 
 It’s significant that Bruce sets the carnival in autumn–that’s how we know that the narrator is mourning a recent loss, as he’s in the autumn of his own life. And whoever he’s grieving for, it’s very likely a longtime companion, because he’s both unprepared for that loss and unable to re-center himself without them.
 
@@ -75,10 +75,10 @@ Note also the dual use of “edge of town.” That’s neither laziness nor acci
 
 The final verse is a thing of simple beauty:
 
-*Footsteps crackling on a gravel road*
-*Stars vanish in a sky as black as stone*
-*One minute you’re here*
-*Next minute you’re gone*
+> *Footsteps crackling on a gravel road*
+> *Stars vanish in a sky as black as stone*
+> *One minute you’re here*
+> *Next minute you’re gone*
 
 That gorgeously understated couplet contrasts the sound of the narrator’s footsteps on his own road with the sight of mighty stars all but swallowed up by the void. It’s more than just another reminder that each footstep takes us closer to the end of our journey.
 

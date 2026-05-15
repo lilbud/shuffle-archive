@@ -18,28 +18,28 @@ Now, about those lyrics.
 
 Bruce never explicitly establishes the scene, but it’s not difficult to imagine we’re in a bar. Certainly, it’s someplace where two loosely acquainted individuals might encounter each other on a daily basis, and a place where they might spend some time out of time with minimal interaction.
 
-*Every day here you come walking*
-*I hold my tongue, I don’t do much talking*
-*You say you’re happy and you’re doing fine*
-*Well go ahead, baby, I got plenty of time*
-*Because sad eyes never lie*
+> *Every day here you come walking*
+> *I hold my tongue, I don’t do much talking*
+> *You say you’re happy and you’re doing fine*
+> *Well go ahead, baby, I got plenty of time*
+> *Because sad eyes never lie*
 
 Our narrator may not say much, but the nameless woman certainly does. She professes to be happy and content (presumably in her marriage or relationship), but he thinks she professes too much. Despite her words, he sees something darker in her eyes, and although he recognizes it as sadness, it looks a lot to him like opportunity.
 
 Their casual encounters take tenuous steps forward followed by occasional steps back, but he’s got nothing if not patience. He’s not about to make his move until his chances of success are guaranteed. And he knows they will be, because while her words profess fidelity, her actions convey uncertainty. And her eyes betray the truth:
 
-*Well for a while I’ve been watching you steady*
-*Ain’t gonna move ’til you’re good and ready*
-*You show up and then you shy away*
-*But I know pretty soon you’ll be walking this way*
-*Because sad eyes never lie*
+> *Well for a while I’ve been watching you steady*
+> *Ain’t gonna move ’til you’re good and ready*
+> *You show up and then you shy away*
+> *But I know pretty soon you’ll be walking this way*
+> *Because sad eyes never lie*
 
 If there’s any doubt at all about the narrator’s motivations, Bruce dispels them in the bridge:
 
-*Baby don’t you know I don’t care*
-*Don’t you know that I’ve been there*
-*Well if something in the air feels a little unkind*
-*Don’t worry darling, it’ll slip your mind*
+> *Baby don’t you know I don’t care*
+> *Don’t you know that I’ve been there*
+> *Well if something in the air feels a little unkind*
+> *Don’t worry darling, it’ll slip your mind*
 
 He’s been where she is now: on the unhappy end of a relationship. And he knows from his own experience that she’ll stray.
 
@@ -47,21 +47,21 @@ He also reveals his indifference: she may suspect that he doesn’t really care 
 
 Time passes, and our narrator notices that she starts making more of an effort with her appearance, as if she were meeting a love interest rather than an acquaintance. And he knows that the time is now right.
 
-*I know you think you’d never be mine*
-*Well that’s okay, baby, I don’t mind*
-*That shy smile’s sweet, that’s a fact*
-*Go ahead, I don’t mind the act*
+> *I know you think you’d never be mine*
+> *Well that’s okay, baby, I don’t mind*
+> *That shy smile’s sweet, that’s a fact*
+> *Go ahead, I don’t mind the act*
 
-*Here you come all dressed up for a date*
-*Well one more step and it’ll be too late…*
+> *Here you come all dressed up for a date*
+> *Well one more step and it’ll be too late…*
 
 The band drops away here, as Bruce suspends the moment in time… save for the percussion of her footsteps, which carry the song to its foregone conclusion.
 
 But at the very end, in the final line, there’s a moment of self-awareness, as the narrator realizes that perhaps she wasn’t the only emotionally transparent one:
 
-*Blue blue ribbon in your hair*
-*Like you’re so sure I’ll be standing here*
-*I guess sad eyes never lie*
+> *Blue blue ribbon in your hair*
+> *Like you’re so sure I’ll be standing here*
+> *I guess sad eyes never lie*
 
 In his moment of conquest, he recognizes his own sadness–the hurt that leads him to seek out temporary solace in others.
 

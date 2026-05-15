@@ -27,30 +27,30 @@ When I wrote about “[Little Girl (Like You)](https://estreetshuffle.com/index.
 
 “One Love” doesn’t demand much in the way of lyrical analysis; Bruce never even dips a toe into metaphor.
 
-*One girl, one love*
-*One dream in our heart*
-*Two hearts as one*
-*One hope, never to be torn apart*
+> *One girl, one love*
+> *One dream in our heart*
+> *Two hearts as one*
+> *One hope, never to be torn apart*
 
-*Yeah, come on baby, rock me the way I love*
-*Shake me darling, shake me, don’t let me go*
-*You’re the one, yeah, you’re the one for me*
+> *Yeah, come on baby, rock me the way I love*
+> *Shake me darling, shake me, don’t let me go*
+> *You’re the one, yeah, you’re the one for me*
 
 By the time we’ve finished that first verse, we pretty much get the idea: like the man says (here and elsewhere), two hearts are better than one. But just to make sure that we don’t miss the point, the song continues:
 
-*One dream, one dream*
-*Is all, is all I need*
-*One reason to believe*
-*In you, I’ve found the thing I need*
+> *One dream, one dream*
+> *Is all, is all I need*
+> *One reason to believe*
+> *In you, I’ve found the thing I need*
 
-*Once I was alone*
-*So alone, so all alone*
-*Then you came along*
-*With a love you said I could call home*
+> *Once I was alone*
+> *So alone, so all alone*
+> *Then you came along*
+> *With a love you said I could call home*
 
-*Come on baby, rock me all night long*
-*I’ve been searching for you for so long*
-*You’re the one, yeah, you’re the one for me*
+> *Come on baby, rock me all night long*
+> *I’ve been searching for you for so long*
+> *You’re the one, yeah, you’re the one for me*
 
 Perhaps Bruce worked on the song a bit more after recording the home demo above. Maybe we’ll find out if we ever get the long-rumored *Born in the U.S.A.* anniversary box set.
 

@@ -26,53 +26,53 @@ Although the real-life story continues on from here, this is the point at which 
 
 Bruce structures the opening stanzas of “Galveston Bay” in parallel, introducing us to his two characters without a hint of where things are headed. First, we meet Le Bin Son, an émigré to the town of Seadrift (a thinly disguised stand-in for the aforementioned Seabrook) in the promised land of Texas, where Le toils until he can afford to start his own shrimp boat business.
 
-*For fifteen years Le Bin Son fought side by side with the Americans*
-*In the mountains and deltas of Vietnam*
-*In ’75 Saigon fell and he left his command*
-*And brought his family to the promised land*
+> *For fifteen years Le Bin Son fought side by side with the Americans*
+> *In the mountains and deltas of Vietnam*
+> *In ’75 Saigon fell and he left his command*
+> *And brought his family to the promised land*
 
-*Seabrook, Texas and the small towns in the Gulf of Mexico*
-*It was delta country and reminded him of home*
-*He worked as a machinist, put his money away and bought a shrimp boat with his cousin*
-*And together they harvested Galveston Bay*
-*In the morning ‘fore the sun come up he’d kiss his sleeping daughter*
-*Steer out through the channel and cast his nets into the water*
+> *Seabrook, Texas and the small towns in the Gulf of Mexico*
+> *It was delta country and reminded him of home*
+> *He worked as a machinist, put his money away and bought a shrimp boat with his cousin*
+> *And together they harvested Galveston Bay*
+> *In the morning ‘fore the sun come up he’d kiss his sleeping daughter*
+> *Steer out through the channel and cast his nets into the water*
 
 Next we meet Billy. Note how Bruce carefully constructs character profiles that highlight their similarity rather than their differences:
 
-*Billy Sutter fought with Charlie Company in the highlands of Quang Tri*
-*He was wounded at the battle of Chu Lai, shipped home in ’68*
-*There he married and worked the gulf fishing grounds in a boat that’d been his father’s*
-*In the morning he’d kiss his sleeping son and cast his nets into the water*
+> *Billy Sutter fought with Charlie Company in the highlands of Quang Tri*
+> *He was wounded at the battle of Chu Lai, shipped home in ’68*
+> *There he married and worked the gulf fishing grounds in a boat that’d been his father’s*
+> *In the morning he’d kiss his sleeping son and cast his nets into the water*
 
 Both men fought on the same side in Vietnam, settled in the same Texas town, took up the same occupation, and start their day with the same family ritual.
 
 Things soon take an ominous turn, as Billy quietly watches the influx of Vietnamese refugees to Seabrook. As we’ve seen time and again, when economic pressure tightens its grip, people start to look for scapegoats. The locals find one in the immigrants, and passions rise to the point where the Klan is invited to help.
 
-*Billy sat in front of his TV as the South fell and the communists rolled into Saigon*
-*He and his friends watched as the refugees came, settled on the same streets and worked the coast they’d grew up on*
-*Soon in the bars around the harbor was talk of “America for Americans”*
-*Someone said “You want ’em out, you got to burn ’em out” and brought in the Texas Klan*
+> *Billy sat in front of his TV as the South fell and the communists rolled into Saigon*
+> *He and his friends watched as the refugees came, settled on the same streets and worked the coast they’d grew up on*
+> *Soon in the bars around the harbor was talk of “America for Americans”*
+> *Someone said “You want ’em out, you got to burn ’em out” and brought in the Texas Klan*
 
 (Bruce takes some liberty with chronology here, as the real residents didn’t invite the Klan in until after the violent incident and acquittal played out.)
 
 Now we arrive at our fated confrontation. Bruce is a little unclear about whether Billy is directly involved or not–we can’t tell whether the details of the incident are first-hand or third.
 
-*One humid Texas night there were three shadows on the harbor come to burn the Vietnamese boats into the sea*
-*In the fire’s light shots rang out, two Texans lay dead on the ground, Le stood with a pistol in his hand*
-*A jury acquitted him in self-defense as before the judge he did stand*
-*But as Le walked down the courthouse steps, Billy said, “My friend you’re a dead man.”*
+> *One humid Texas night there were three shadows on the harbor come to burn the Vietnamese boats into the sea*
+> *In the fire’s light shots rang out, two Texans lay dead on the ground, Le stood with a pistol in his hand*
+> *A jury acquitted him in self-defense as before the judge he did stand*
+> *But as Le walked down the courthouse steps, Billy said, “My friend you’re a dead man.”*
 
 It’s possible that Billy was the third of the three (presumably Klan) arsonists that night; it’s also possible he simply heard about the events in the town newspaper or gossip. Either way, we’re led to believe that until his neighbors were gunned down, Billy’s resentment stopped short of a desire for physical harm.
 
 “Galveston Bay” now reaches its climax, as Billy lies in wait for Le in the dark of night, knife in hand. Bruce knows his listeners are now invested in both characters, and he deliberately sustains the tension through film noir imagery. Finally, Bruce releases the pause button, and we hold our breath as Le passes Billy. We know what’s about to happen–at least we *think* we do.
 
-*One late summer night Le stood watch along the waterside*
-*Billy stood in the shadows, his K-bar knife in his hand and the moon slipped behind the clouds*
-*Le lit a cigarette, the bay was still as glass*
-*As he walked by Billy stuck his knife into his pocket, took a breath and let him pass*
-*In the early darkness Billy rose up, went into the kitchen for a drink of water*
-*Kissed his sleeping wife, headed into the channel and cast his nets into the water of Galveston Bay*
+> *One late summer night Le stood watch along the waterside*
+> *Billy stood in the shadows, his K-bar knife in his hand and the moon slipped behind the clouds*
+> *Le lit a cigarette, the bay was still as glass*
+> *As he walked by Billy stuck his knife into his pocket, took a breath and let him pass*
+> *In the early darkness Billy rose up, went into the kitchen for a drink of water*
+> *Kissed his sleeping wife, headed into the channel and cast his nets into the water of Galveston Bay*
 
 Bruce fakes us out: at the crucial moment, Billy’s conscience gets the better of him. Bruce has given us no reason to think of Billy as a sympathetic protagonist, but there are clearly lengths to which he will not allow himself to go.
 

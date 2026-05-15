@@ -42,51 +42,51 @@ Because Bruce once remarked that if you don’t know what one of his songs is ab
 
 Because “Bishop Danced” is laden with so much phallic, masturbatory, and ejaculatory imagery that Bruce’s inner twelve-year-old must have been laughing hysterically when the band performed it on stage.
 
-*Bishop danced with a thumbscrew woman*
-*Did a double-quick backflip and slid across the floor*
-*The Catholic traffic flowed freely across the river*
-*And fiddlestick fiddled quick out the front door*
+> *Bishop danced with a thumbscrew woman*
+> *Did a double-quick backflip and slid across the floor*
+> *The Catholic traffic flowed freely across the river*
+> *And fiddlestick fiddled quick out the front door*
 
-*Oh, baby dumpling, mama’s in the back tree*
-*If the bow breaks, mama might fall*
-*Little sad and only, baby don’t be lonely*
-*Oh, mama knows arithmetic, knows how to take a fall*
-*Mama knows arithmetic, knows how to take a fall*
+> *Oh, baby dumpling, mama’s in the back tree*
+> *If the bow breaks, mama might fall*
+> *Little sad and only, baby don’t be lonely*
+> *Oh, mama knows arithmetic, knows how to take a fall*
+> *Mama knows arithmetic, knows how to take a fall*
 
-*And the kids are crying, “Flapjacks, make ’em fat, early in the morning”*
-*Little Jack, grab your hat, hear the breakfast call*
-*Muskrat, bat a cat, kick him in the fireplace*
-*There’s someone in the kitchen blowing Dinah on their horn*
-*There’s someone in the kitchen blowing Dinah like they’re born*
+> *And the kids are crying, “Flapjacks, make ’em fat, early in the morning”*
+> *Little Jack, grab your hat, hear the breakfast call*
+> *Muskrat, bat a cat, kick him in the fireplace*
+> *There’s someone in the kitchen blowing Dinah on their horn*
+> *There’s someone in the kitchen blowing Dinah like they’re born*
 
-*Well, Maverick daddy got a one-eyed bride*
-*She glides like a monkey-mule kicking on the back slide*
-*Over hill, over hill, daddy don’t you spill now*
-*Papa got a switch stick, he’s pumping little Bill*
-*Papa got a switch stick, he’s pumping little Bill*
+> *Well, Maverick daddy got a one-eyed bride*
+> *She glides like a monkey-mule kicking on the back slide*
+> *Over hill, over hill, daddy don’t you spill now*
+> *Papa got a switch stick, he’s pumping little Bill*
+> *Papa got a switch stick, he’s pumping little Bill*
 
-*And Billy he’s crying, “Tomahawk, tomahawk, daddy better duck now”*
-*The Mohawks, the Mohawks, they’re still out there in the woods*
-*Monatuk, Ocanuk, running through my dreams now*
-*With fire on their fingertips and Injun screams*
-*Fire on their fingertips and feathers made of moonbeams*
+> *And Billy he’s crying, “Tomahawk, tomahawk, daddy better duck now”*
+> *The Mohawks, the Mohawks, they’re still out there in the woods*
+> *Monatuk, Ocanuk, running through my dreams now*
+> *With fire on their fingertips and Injun screams*
+> *Fire on their fingertips and feathers made of moonbeams*
 
-*Well, early in the morning the cannoneer cried*
-*“I seen the sailor’s warning in the western sky”*
-*Well, mountain man, if you can, cut me down a fir tree*
-*Branches full of candlesticks for baby and me*
+> *Well, early in the morning the cannoneer cried*
+> *“I seen the sailor’s warning in the western sky”*
+> *Well, mountain man, if you can, cut me down a fir tree*
+> *Branches full of candlesticks for baby and me*
 
-*And my darling cried, she said, “Honey, the weathervane lately it’s been pointing the way to heaven”*
-*Scatterbrains, scatterbrains, watch out where you fall*
-*Champagne, champagne, a round for all the old choir boys*
-*They’re busting off the altar chasing Dinah through the hall*
-*They’re busting off the altar chasing Dinah through the hall*
+> *And my darling cried, she said, “Honey, the weathervane lately it’s been pointing the way to heaven”*
+> *Scatterbrains, scatterbrains, watch out where you fall*
+> *Champagne, champagne, a round for all the old choir boys*
+> *They’re busting off the altar chasing Dinah through the hall*
+> *They’re busting off the altar chasing Dinah through the hall*
 
-*And like kids they’re crying, “Flapjacks, make ’em fat, early in the morning”*
-*Little Jack, grab your hat, hear the breakfast call*
-*Muskrat, bat a cat, kick him in the fireplace*
-*There’s someone in the kitchen blowing Dinah on their horn*
-*There’s someone in the kitchen blowing Dinah like they’re born*
+> *And like kids they’re crying, “Flapjacks, make ’em fat, early in the morning”*
+> *Little Jack, grab your hat, hear the breakfast call*
+> *Muskrat, bat a cat, kick him in the fireplace*
+> *There’s someone in the kitchen blowing Dinah on their horn*
+> *There’s someone in the kitchen blowing Dinah like they’re born*
 
 Because while I’m no one’s prude, I’m not gonna go line by line on this one. I’ve given you all the context you need to interpret “Bishop Danced.” You can take it from here.
 

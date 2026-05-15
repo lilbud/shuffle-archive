@@ -16,7 +16,7 @@ So as a public service for all the E Street Nation young ‘uns out there, here�
 
 Let’s start with an easy one:
 
-*I got a 007 watch, it’s a one-and-only*
+> *I got a 007 watch, it’s a one-and-only*
 
 That’s James Bond, of course. You know him. They still make movies about him, for people who still go to the movies. Back in the day, though, his watches were really cool. You could send text messages with them (long before that was a thing everybody could do), measure radiation, saw through metal, deflect bullets… you know, basic Apple Watch stuff.
 
@@ -26,7 +26,7 @@ Bond’s watches didn’t always do cool stuff, though. That started with *Thund
 
 Okay now let’s do a hard one:
 
-*It’s got an I Spy beeper that tells me when you’re lonely*
+> *It’s got an I Spy beeper that tells me when you’re lonely*
 
 *I Spy* was a popular television espionage series that ran for three seasons starting in 1965-66. As a teenager, Bruce would have most certainly watched its original airing, but for anyone under the age of 55, the only way you would have seen it is in syndicated reruns. (There was a time when you couldn’t watch any show ever made on demand.)
 
@@ -38,14 +38,14 @@ What *I Spy* was *not* notable for, however, was gadgets. In this regard, it was
 
 So don’t kick yourself if you didn’t get that one. You’ll definitely get the next one:
 
-*I got a Batmobile so I can reach you in a fast shake*
+> *I got a Batmobile so I can reach you in a fast shake*
 
 [Watch on Youtube: The 1966 Batmobile ....The Movie](https://www.youtube.com/watch?v=uerDqAIjins)
 
 You can have your ’69 Chevy. I’ll take that ’66 Batmobile, please.
 
-*When your world’s in crisis of an impending heartbreak*
-*Now don’t you call James Bond or Secret Agent Man*
+> *When your world’s in crisis of an impending heartbreak*
+> *Now don’t you call James Bond or Secret Agent Man*
 
 *Secret Agent* was yet another espionage television series that ran on American television during the mid-to-late 1960s. It was based on a British TV series called *Danger Man*, but the coolest part of the show was its theme song, “Secret Agent Man,” recorded by Johnny Rivers.
 
@@ -53,9 +53,9 @@ You can have your ’69 Chevy. I’ll take that ’66 Batmobile, please.
 
 That song was released as a single in… 1966. Sensing a theme at work? “I’m a Rocker” draws heavily from the pop culture fixations of Bruce’s seventeen-year-old self.
 
-*‘Cause they can’t do it like I can*
-*I’m a rocker, baby, I’m a rocker every day*
-*I’m a rocker, baby, I’m a rocker*
+> *‘Cause they can’t do it like I can*
+> *I’m a rocker, baby, I’m a rocker every day*
+> *I’m a rocker, baby, I’m a rocker*
 
 Fun fact (since there’s no pop reference to riff on in the chorus): “I’m a Rocker” was originally called “She’s a Rocker” all the way through the River studio sessions until it was finally time for the chorus overdubs, when Bruce switched the focus to the first person at the last minute. Take a listen to this almost-complete studio escapee and you’ll realize how late in the song’s evolution Bruce settled on the chorus.
 
@@ -63,8 +63,8 @@ Fun fact (since there’s no pop reference to riff on in the chorus): “I’m a
 
 Let’s continue, shall we?
 
-*If you’re hanging from a cliff or you’re tied to the tracks, girl*
-*Columbo split and you can’t find Kojak*
+> *If you’re hanging from a cliff or you’re tied to the tracks, girl*
+> *Columbo split and you can’t find Kojak*
 
 We’ve left the sixties behind and are now squarely in the 1970s. We’ve changed genres, too: both *Columbo* and *Kojak* are police detective series rather than espionage.
 
@@ -74,8 +74,8 @@ We’ve left the sixties behind and are now squarely in the 1970s. We’ve chang
 
 Both series ran throughout the 1970s, finishing their original run only a year or two before Bruce recorded “I’m a Rocker.”
 
-*And true love is broken and your tears are falling faster*
-*You’re suffering from a pain in your heart or some other natural disaster*
+> *And true love is broken and your tears are falling faster*
+> *You’re suffering from a pain in your heart or some other natural disaster*
 
 Time for another detour: If “I’m a Rocker” has another hallmark besides its cast of TV characters and utility belt of gadgets, it’s that the song is a complete metrical mess.
 
@@ -83,16 +83,16 @@ Time for another detour: If “I’m a Rocker” has another hallmark besides it
 
 Listen to “I’m a Rocker” in its original studio version, and you’ll hear Bruce stumble all over the lyrics and yet amazingly never once trip. It’s seriously impressive. I know the lyrics, and sometimes I *still* can’t remember how to make them fit the music.
 
-*Now I don’t care what kind of shape you’re in*
-*If they put up a roadblock, I’ll parachute in*
-*I’m a rocker, baby, I’m a rocker–I’m in love*
-*I’m a rocker, baby, I’m a rocker–every day*
-*I’m a rocker, baby, I’m a rocker–with you*
+> *Now I don’t care what kind of shape you’re in*
+> *If they put up a roadblock, I’ll parachute in*
+> *I’m a rocker, baby, I’m a rocker–I’m in love*
+> *I’m a rocker, baby, I’m a rocker–every day*
+> *I’m a rocker, baby, I’m a rocker–with you*
 
-*So you fell for some jerk who was tall, dark and handsome*
-*Now he kidnapped your heart and he’s holding it for ransom*
-*Well like a mission impossible I’m gonna go and get it back*
-*You know I would’a taken better care of it, baby, than that*
+> *So you fell for some jerk who was tall, dark and handsome*
+> *Now he kidnapped your heart and he’s holding it for ransom*
+> *Well like a mission impossible I’m gonna go and get it back*
+> *You know I would’a taken better care of it, baby, than that*
 
 Yeah, you know that one, too: *Mission Impossible* used to be a TV show before it was a movie. It first aired in…. you guessed it: 1966.
 
@@ -104,11 +104,11 @@ IRL, that is. In his mind, he’s as suave as James Bond, as heroic as Batman, a
 
 Bruce may sing “I’m a Rocker” on stage, but the song’s narrator sings only in the mirror. He almost gives up the game in the final chorus:
 
-*Sometimes I get so hot girl, well, I can’t talk*
-*But when I’m with you I cool off*
-*(I’m a rocker, baby, I’m a rocker) and I walk*
-*(I’m a rocker, baby, I’m a rocker) and I talk*
-*(I’m a rocker, baby, I’m a rocker) every day…*
+> *Sometimes I get so hot girl, well, I can’t talk*
+> *But when I’m with you I cool off*
+> *(I’m a rocker, baby, I’m a rocker) and I walk*
+> *(I’m a rocker, baby, I’m a rocker) and I talk*
+> *(I’m a rocker, baby, I’m a rocker) every day…*
 
 If the narrator is singing in the mirror, he’s not alone. Who among us can resist rocking out in our bedroom, dancing like a maniac during the final minute of “I’m a Rocker?” (C’mon, don’t leave me hanging… it can’t be just me. Can it?)
 

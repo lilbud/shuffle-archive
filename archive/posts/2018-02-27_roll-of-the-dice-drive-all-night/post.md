@@ -21,20 +21,20 @@ Gets me every dang time.
 
 It sneaks up on you–the song begins with Garry Tallent’s slow, methodical bassline and a simple five-note piano motif (played by Bruce). For the first minute, there’s no hint of what’s to come, as Bruce sets the scene:
 
-*When I lost you honey, sometimes I think I lost my guts too*  
-*And I wish God would send me a word, send me something I’m afraid to lose*
+> *When I lost you honey, sometimes I think I lost my guts too*
+> *And I wish God would send me a word, send me something I’m afraid to lose*
 
 Lyrically, we’re in “[Back in Your Arms](https://estreetshuffle.com/index.php/2019/11/10/roll-of-the-dice-back-in-your-arms/)” territory (that later song is essentially “Drive All Night” as performed by the Righteous Brothers) — Bruce done screwed up, and he can’t fix it.
 
 Right at the one-minute mark, the song lifts off from the earth, as Bruce’s vocals become higher-pitched and more strident:
 
-*Lying in the heat of the night like prisoners all our lives*  
-*And I get shivers down my spine, girl, and all I wanna do is hold you tight*
+> *Lying in the heat of the night like prisoners all our lives*
+> *And I get shivers down my spine, girl, and all I wanna do is hold you tight*
 
 And then that wife-infuriating chorus:
 
-*I swear I’ll drive all night again just to buy you some shoes and to taste your tender charms*  
-*And I just wanna sleep tonight again in your arms*
+> *I swear I’ll drive all night again just to buy you some shoes and to taste your tender charms*
+> *And I just wanna sleep tonight again in your arms*
 
 (See? “Drive All Night” = “Back in Your Arms”)
 
@@ -42,15 +42,15 @@ And then at the two-minute mark, Roy Bittan sprinkles organ and harpsichord like
 
 Bruce surveys the scene and knows his odds are slim:
 
-*Tonight there’s fallen angels and they’re waiting for us down in the street*  
-*And tonight there’s calling strangers, hear them crying in defeat*
+> *Tonight there’s fallen angels and they’re waiting for us down in the street*
+> *And tonight there’s calling strangers, hear them crying in defeat*
 
 The lovers are obviously in the same house, if not the same room. But there’s a distance he can’t close, and he’s not about to give up without a fight. Or begging.
 
-*Let them go, let them go, let them go do their dances of the dead*  
-*Let ’em go right ahead, girl*  
-*You just dry your eyes*  
-*And come on, come on, come on, come on… let’s go to bed*
+> *Let them go, let them go, let them go do their dances of the dead*
+> *Let ’em go right ahead, girl*
+> *You just dry your eyes*
+> *And come on, come on, come on, come on… let’s go to bed*
 
 That’s a perfect verse right there–music and lyrics perfectly attuned to each other, at once defiant and desperate, bravado and vulnerability.
 
@@ -68,20 +68,20 @@ Even Bruce acknowledges that Clarence is carrying the weight, as he echoes “I 
 
 Fueled with passion and determination, Bruce isn’t backing down–he’s a veritable US postal carrier:
 
-*You’ve got, you’ve got, you’ve got my, my love, girl, you’ve got my love, girl*  
-*Through the wind, through the rain, the snow, the wind, the rain*  
-*You’ve got, you’ve got my, my love, oh girl you’ve got my love*  
-*You’ve got, you’ve got my love, oh girl you’ve got my love*  
-*You’ve got, you’ve got my love, oh girl you’ve got my love*  
-*You’ve got, you’ve got my love, oh girl you’ve got my love*
+> *You’ve got, you’ve got, you’ve got my, my love, girl, you’ve got my love, girl*
+> *Through the wind, through the rain, the snow, the wind, the rain*
+> *You’ve got, you’ve got my, my love, oh girl you’ve got my love*
+> *You’ve got, you’ve got my love, oh girl you’ve got my love*
+> *You’ve got, you’ve got my love, oh girl you’ve got my love*
+> *You’ve got, you’ve got my love, oh girl you’ve got my love*
 
 And if Bruce can hold a candle to Clarence’s solo at any point in the song, it’s in the culminating “Heeeeeaaaaaaaarrrrt and Soooooooooooouuuuul” refrain that rivals the wordless howl in “Jungleland” in its loaded power.
 
 As the song takes its time winding to a conclusion, Bruce never wavers in his conviction:
 
-*Through the wind*  
-*Through the rain*  
-*Through the snow*
+> *Through the wind*
+> *Through the rain*
+> *Through the snow*
 
 He’ll drive all night.
 

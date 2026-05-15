@@ -14,33 +14,33 @@ This version of “Don’t Back Down” is truly a separate song from the others
 
 Lyrically, this version of “Don’t Back Down” is still a work in progress–the third verse is just the first verse repeated and there are a few lines that sound at least lightly bluffed–but this is definitely a fully formed pop song with verses in the mold of “[Two Hearts](https://estreetshuffle.com/index.php/2018/05/28/roll-of-the-dice-two-hearts/)” and a refrain reminiscent of “[No Surrender](https://estreetshuffle.com/index.php/2021/11/18/roll-of-the-dice-no-surrender/).”
 
-*If you’re out on your own and you ain’t got a home*
-*And it feels like the whole world’s just gonna fall on you*
-*You’re just running scared, look around, there’s nothing there*
-*And you ain’t got the strength and your friends all just stall on you*
-*Well, along comes a cloud, and you’re lost in the crowd*
-*Once you thought you might make it, but babe, these days you doubt it*
-*If you need a hand, honey, I understand*
-*Just stand on up, yeah, stand up and shout it girl*
+> *If you’re out on your own and you ain’t got a home*
+> *And it feels like the whole world’s just gonna fall on you*
+> *You’re just running scared, look around, there’s nothing there*
+> *And you ain’t got the strength and your friends all just stall on you*
+> *Well, along comes a cloud, and you’re lost in the crowd*
+> *Once you thought you might make it, but babe, these days you doubt it*
+> *If you need a hand, honey, I understand*
+> *Just stand on up, yeah, stand up and shout it girl*
 
-*Don’t back down, don’t back down*
-*Don’t back down, don’t back down*
-*Don’t back down, don’t back down*
-*Don’t back down, don’t back down*
+> *Don’t back down, don’t back down*
+> *Don’t back down, don’t back down*
+> *Don’t back down, don’t back down*
+> *Don’t back down, don’t back down*
 
-*Now you see all the ones worn out and tired*
-*There’s a fool all broken down by the wayside*
-*Where two hearts call out for hire*
-*Filled with hurt, defeated by their foolish pride*
-*Girl, you hear the sound of one comin’ down*
-*And you don’t think that these days you can make it, babe*
-*Just step on up, I’ll give a hand*
-*And if you ain’t got a problem, maybe we can shed it, baby*
+> *Now you see all the ones worn out and tired*
+> *There’s a fool all broken down by the wayside*
+> *Where two hearts call out for hire*
+> *Filled with hurt, defeated by their foolish pride*
+> *Girl, you hear the sound of one comin’ down*
+> *And you don’t think that these days you can make it, babe*
+> *Just step on up, I’ll give a hand*
+> *And if you ain’t got a problem, maybe we can shed it, baby*
 
-*Don’t back down, don’t back down*
-*Don’t back down, don’t back down*
-*Don’t back down, don’t back down*
-*Don’t back down, don’t back down*
+> *Don’t back down, don’t back down*
+> *Don’t back down, don’t back down*
+> *Don’t back down, don’t back down*
+> *Don’t back down, don’t back down*
 
 These aren’t Bruce’s deepest lyrics, but with a hook like that and a beat that doesn’t let up for even a moment’s breath, “Don’t Back Down” didn’t need depth to be a hit.
 

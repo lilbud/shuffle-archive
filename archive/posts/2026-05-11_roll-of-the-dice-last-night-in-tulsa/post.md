@@ -20,35 +20,35 @@ David Sancious gets a turn in the spotlight but is relatively restrained; Bobby 
 
 Lyrically, “Last Night in Tulsa” is a simple road song of the sort that any touring musician who’s lingered just a bit too long with a comely companion would appreciate and identify with.
 
-*Last night in Tulsa*  
-*And I’m goin’ back home*  
-*It’s my last night in Tulsa*  
-*And I’m goin’ back home*  
-*I been in town just one night too long*
+> *Last night in Tulsa*
+> *And I’m goin’ back home*
+> *It’s my last night in Tulsa*
+> *And I’m goin’ back home*
+> *I been in town just one night too long*
 
-*My bags all packed up at the station*  
-*Gotta take it on the Tulsa line*  
-*My bags all packed up at the station*  
-*I gotta take that all out on the Tulsa line*  
-*There ain’t never been a feelin’ so fine*  
-*As laying out in some of that warm, warm, warm sunshine*  
-*And everything looks surely grand*  
-*With that fine little woman of mine*
+> *My bags all packed up at the station*
+> *Gotta take it on the Tulsa line*
+> *My bags all packed up at the station*
+> *I gotta take that all out on the Tulsa line*
+> *There ain’t never been a feelin’ so fine*
+> *As laying out in some of that warm, warm, warm sunshine*
+> *And everything looks surely grand*
+> *With that fine little woman of mine*
 
-*I remember all them sweet kisses*  
-*And I know I’m gonna miss her*  
-*She was fine, that woman of mine*
+> *I remember all them sweet kisses*
+> *And I know I’m gonna miss her*
+> *She was fine, that woman of mine*
 
-*Last night in Tulsa*  
-*And I’m going back home*  
-*It’s my last night in Tulsa*  
-*I’m just tired of travelling right along*  
-*I been in this town one night too long*
+> *Last night in Tulsa*
+> *And I’m going back home*
+> *It’s my last night in Tulsa*
+> *I’m just tired of travelling right along*
+> *I been in this town one night too long*
 
-*Last night in Tulsa*  
-*My last night in Tulsa*  
-*My last night I’m coming home*  
-*Coming home, coming home, coming home*
+> *Last night in Tulsa*
+> *My last night in Tulsa*
+> *My last night I’m coming home*
+> *Coming home, coming home, coming home*
 
 See what I mean? “Last Night in Tulsa” is pleasant enough, and I suspect that if I had a clean, clear performance (instead of the distant recording above), I might even listen to it once in a while.
 

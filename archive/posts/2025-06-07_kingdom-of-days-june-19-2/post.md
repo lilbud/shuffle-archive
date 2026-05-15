@@ -92,19 +92,19 @@
 
 **2018:** News has been building surrounding the Trump administration’s inhumane child separation policy, and Bruce has had enough of it. He deviates from his *Springsteen on Broadway* script mid-show at New York City’s Walter Kerr Theater in order to address it:
 
-*I never believed that people come to my shows, or rock shows to be told anything.*
+> *I never believed that people come to my shows, or rock shows to be told anything.*
 
-*But I do believe that they come to be reminded of things. To be reminded of who they are, at their most joyous, at their deepest, when life feels full. It’s a good place to get in touch with your heart and your spirit, to be amongst the crowd. And to be reminded of who we are and who we can be collectively. Music does those things pretty well sometimes, particularly these days when some reminding of who we are and who we can be isn’t such a bad thing.*
+> *But I do believe that they come to be reminded of things. To be reminded of who they are, at their most joyous, at their deepest, when life feels full. It’s a good place to get in touch with your heart and your spirit, to be amongst the crowd. And to be reminded of who we are and who we can be collectively. Music does those things pretty well sometimes, particularly these days when some reminding of who we are and who we can be isn’t such a bad thing.*
 
-*That weekend of the March for our Lives, we saw those young people in Washington, and citizens all around the world, remind us of what faith in America and real faith in American democracy looks and feels like. It was just encouraging to see all those people out on the street and all that righteous passion in the service of something good. And to see that passion was alive and well and still there at the center of the beating heart of our country.*
+> *That weekend of the March for our Lives, we saw those young people in Washington, and citizens all around the world, remind us of what faith in America and real faith in American democracy looks and feels like. It was just encouraging to see all those people out on the street and all that righteous passion in the service of something good. And to see that passion was alive and well and still there at the center of the beating heart of our country.*
 
-*It was a good day, and a necessary day because we are seeing things right now on our American borders that are so shockingly and disgracefully inhumane and un-American that it is simply enraging. And we have heard people in high position in the American government blaspheme in the name of God and country that it is a moral thing to assault the children amongst us. May God save our souls.*
+> *It was a good day, and a necessary day because we are seeing things right now on our American borders that are so shockingly and disgracefully inhumane and un-American that it is simply enraging. And we have heard people in high position in the American government blaspheme in the name of God and country that it is a moral thing to assault the children amongst us. May God save our souls.*
 
-*There’s the beautiful quote by Dr. King that says the arc of the moral universe is long but it bends toward justice. Now, there have been many, many days of recent when you could certainly have an argument over that. But I’ve lived long enough to see that in action and to put some faith in it. But I’ve also lived long enough to know that arc doesn’t bend on its own. It needs all of us leaning on it, nudging it in the right direction day after day. You gotta keep, keep leaning.*
+> *There’s the beautiful quote by Dr. King that says the arc of the moral universe is long but it bends toward justice. Now, there have been many, many days of recent when you could certainly have an argument over that. But I’ve lived long enough to see that in action and to put some faith in it. But I’ve also lived long enough to know that arc doesn’t bend on its own. It needs all of us leaning on it, nudging it in the right direction day after day. You gotta keep, keep leaning.*
 
-*I think it’s important to believe in those words, and to carry yourself, and to act accordingly. It’s the only way that we keep faith and keep our sanity.*
+> *I think it’s important to believe in those words, and to carry yourself, and to act accordingly. It’s the only way that we keep faith and keep our sanity.*
 
-*I’ve played this show 146 nights with basically the same set list, but tonight calls for something different…*
+> *I’ve played this show 146 nights with basically the same set list, but tonight calls for something different…*
 
 Bruce then played “[The Ghost of Tom Joad](https://estreetshuffle.com/index.php/2019/10/17/roll-of-the-dice-the-ghost-of-tom-joad/)” in place of [“Long Walk Home](https://estreetshuffle.com/index.php/2020/03/21/roll-of-the-dice-long-walk-home/)” to drive home his message. The set list change will stick. In attendance tonight: Christina Aguilera.
 

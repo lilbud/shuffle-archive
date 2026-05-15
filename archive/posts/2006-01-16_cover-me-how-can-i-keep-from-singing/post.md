@@ -2,11 +2,11 @@ Here’s one of the most under-the-radar officially released Springsteen tracks:
 
 The most notable recording–and probably the one that caught Bruce’s attention–was Pete Seeger’s rendition. Seeger’s version of “How Can I Keep From Singing” updates the song with a modern verse that refers to persecution that’s more political than religious:
 
-*When tyrants tremble, sick with fear, and hear their death-knell ringing*  
-*When friends rejoice both far and near, how can I keep from singing?*
+> *When tyrants tremble, sick with fear, and hear their death-knell ringing*
+> *When friends rejoice both far and near, how can I keep from singing?*
 
-*In prison cell and dungeon vile, our thoughts to them go winging*  
-*When friends by shame are undefiled, how can I keep from singing?*
+> *In prison cell and dungeon vile, our thoughts to them go winging*
+> *When friends by shame are undefiled, how can I keep from singing?*
 
 [Watch on Youtube: How Can I Keep from Singing (Live)](https://www.youtube.com/watch?v=SRIY2SrYq98)
 

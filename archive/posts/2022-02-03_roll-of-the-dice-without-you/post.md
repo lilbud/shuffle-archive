@@ -12,24 +12,24 @@ One listen to “Without You” is all it takes to realize how much fun the band
 
 It feels silly to analyze Bruce’s lyrics for “Without You.” First of all, there aren’t that many of them: two verses, a bridge, and a three-syllable chorus, all of which boil down to: *I miss you, baby.*
 
-*Monday, I go to work*
-*Tuesday, can’t find my shirt*
-*Wednesday, I’m feeling blue*
-*I’m helpless, darling*
-*Without you, without you*
-*Without you, without you*
+> *Monday, I go to work*
+> *Tuesday, can’t find my shirt*
+> *Wednesday, I’m feeling blue*
+> *I’m helpless, darling*
+> *Without you, without you*
+> *Without you, without you*
 
-*Thursdays, everything’s fine*
-*Friday, I’m out of my mind*
-*Saturday, Sunday too*
-*It’s hopeless, darling*
-*Without you, without you*
-*Without you, without you*
+> *Thursdays, everything’s fine*
+> *Friday, I’m out of my mind*
+> *Saturday, Sunday too*
+> *It’s hopeless, darling*
+> *Without you, without you*
+> *Without you, without you*
 
-*Each and every night of the week*
-*I toss and turn in my sleep*
-*Worrying if you’re all right*
-*Wondering where you are tonight*
+> *Each and every night of the week*
+> *I toss and turn in my sleep*
+> *Worrying if you’re all right*
+> *Wondering where you are tonight*
 
 Second, “Without You” is just a standard “calendar song” in the mold of “[Seven Nights to Rock](https://estreetshuffle.com/index.php/2021/04/22/cover-me-seven-nights-to-rock/)” or “Friday I’m in Love”–a pop song built around the days of the week, an easy crutch for a songwriter to latch onto. But easy doesn’t necessarily make for an earworm–for that you need talent.
 

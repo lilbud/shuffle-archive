@@ -2,7 +2,7 @@ Editor's Note
 
 ***Editor’s Note:*** *Today’s guest blogger is my long-time friend (and I’m pretty sure this blog’s first subscriber) Marietta Phillips.*
 
-*Marietta has shared a lot of her Springsteen concert memories with me over the years, but this one has always been my favorite. Ever wonder how that back-of-the-pit riser became such valuable real estate? Read on…*
+> *Marietta has shared a lot of her Springsteen concert memories with me over the years, but this one has always been my favorite. Ever wonder how that back-of-the-pit riser became such valuable real estate? Read on…*
 
 There was the 1980-1981 River Tour.
 

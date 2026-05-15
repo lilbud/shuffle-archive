@@ -2,9 +2,9 @@ Please excuse me for a moment while I get something out of my system:
 
 *There are only two shots poured in “Moonlight Motel.” **Two!***
 
-*I don’t give a darn whether Mary’s dress waves or sways (it’s an extraneous detail that matters not one whit to “Thunder Road”), but it drives me absolutely nuts every time I read a review of “Moonlight Motel” that mentions a third shot poured out in the parking lot.*
+> *I don’t give a darn whether Mary’s dress waves or sways (it’s an extraneous detail that matters not one whit to “Thunder Road”), but it drives me absolutely nuts every time I read a review of “Moonlight Motel” that mentions a third shot poured out in the parking lot.*
 
-*If you see three shots in your mind when you listen to “Moonlight Motel,” you are missing the magic of its deep symbolism.*
+> *If you see three shots in your mind when you listen to “Moonlight Motel,” you are missing the magic of its deep symbolism.*
 
 Okay, we can proceed now.
 
@@ -28,8 +28,8 @@ Today we’re going to take a long, loving, line-by-line look at “Moonlight Mo
 
 The first thing we need to establish is the song’s central metaphor. Bruce employs classic literary symbolism throughout “Moonlight Motel,” beginning with the very first line:
 
-*There’s a place on a blank stretch of road*
-*Where nobody travels and nobody goes*
+> *There’s a place on a blank stretch of road*
+> *Where nobody travels and nobody goes*
 
 In literature, the road is the symbol of life’s journey. Late in life, our narrator is both literally and figuratively on an empty stretch of road.
 
@@ -37,15 +37,15 @@ In literature, the road is the symbol of life’s journey. Late in life, our nar
 
 The Moonlight Motel is the set location of the narrator’s one great life-long romance, but it’s also a metaphor for the narrator’s heart. By locating the motel on a blank stretch of road where nobody travels or goes, Bruce tells us that our narrator’s emotional life is vacant. At least in the romantic sense, he is alone.
 
-*And the desk man says these days ’round here*
-*Well, two young folks could probably up and disappear*
+> *And the desk man says these days ’round here*
+> *Well, two young folks could probably up and disappear*
 
 There’s a lot going on in this couplet. In its most literal sense, it’s a knowing wink from the attendant of a motel where the only guests are secretive couples rendezvousing far away from any place they’d be recognized. But as we’ll shortly learn, the motel is no longer open for business, which means that Bruce introduces the desk man both as a memory and as a personification of the narrator’s inner voice.
 
 As memory, the desk man takes us back to the narrator’s youth and young love; as metaphor, however, he gives us our first clue that the motel might one day welcome new guests. Even though our unnamed narrator is late in life, new love makes us all young again. Perhaps our protagonist isn’t as alone as we might think.
 
-*Into rustling sheets, a sleepy corner room into the musty smell*
-*Of wilted flowers and lazy afternoon hours at the Moonlight Motel*
+> *Into rustling sheets, a sleepy corner room into the musty smell*
+> *Of wilted flowers and lazy afternoon hours at the Moonlight Motel*
 
 Bruce wastes not a single word in “Moonlight Motel.” The motel is sleepy and musty from disuse, telling us that the narrator has been without his love for some time now. Likewise, wilted flowers are a classic literary symbol of grief and sadness, telling us that he still hasn’t gotten over his loss.
 
@@ -53,8 +53,8 @@ However, the sheets rustle, evoking the image of entwined lovers but also restle
 
 Still, the motel is in a state of disrepair and abandonment that is both literal and figurative:
 
-*Now the pool’s filled with empty, eight-foot deep*
-*Got dandelions growin’ up through the cracks in the concrete*
+> *Now the pool’s filled with empty, eight-foot deep*
+> *Got dandelions growin’ up through the cracks in the concrete*
 
 I think this may be my favorite couplet in the entire song. The pool, of course, represents the narrator’s heart. As an image it evokes a well or a reservoir–in this case an empty, deep void. But a motel’s pool is also its social center, the place where connections are made between guests otherwise isolated in their own rooms.
 
@@ -64,8 +64,8 @@ What makes the image perfect, though, is the classic symbol of emotional healing
 
 The dandelions poking their way through the concrete are both a literal example of the resort’s disrepair as well as a metaphorical sign that the resilience of life and love are chipping away at the hard concrete exterior our narrator has constructed around his heart. Sheer brilliance.
 
-*Chain-link fence half-rusted away*
-*Got a sign says “Children, be careful how you play”*
+> *Chain-link fence half-rusted away*
+> *Got a sign says “Children, be careful how you play”*
 
 Long-time readers know that I often point out: when it comes to songwriting, Bruce doesn’t do anything by accident. He could have chosen from countless ways to illustrate the decrepitude of the hotel, but he chose a fence–a barrier.
 
@@ -73,13 +73,13 @@ The half-rusted away fence is an ingeniously ironic metaphor, because while it l
 
 The warning: *children, be careful how you play*. It’s a reminder that young love feels playful at first. But it’s also a caution: love does indeed have consequences, even though they may lie down the road a ways. Our narrator is opening himself up to the possibility of new love while cautioning himself to take it slow… and to remember that sooner or later, love almost always leads to loss.
 
-*Your lipstick taste and your whispered secret I promised I’d never tell*
-*A half-drunk beer and your breath in my ear at the Moonlight Motel*
+> *Your lipstick taste and your whispered secret I promised I’d never tell*
+> *A half-drunk beer and your breath in my ear at the Moonlight Motel*
 
 Another brilliant couplet: the combination of intensely intimate details (her taste, her breath), the sense of romantic intoxication (the beer), and the whispered secret he promised he wouldn’t tell–and *still* doesn’t even to us, demonstrating his fidelity to her even now.
 
-*Well then it’s bills and kids and kids and bills and the ringing of the bell*
-*Across the valley floor through the dusty screen door of the Moonlight Motel*
+> *Well then it’s bills and kids and kids and bills and the ringing of the bell*
+> *Across the valley floor through the dusty screen door of the Moonlight Motel*
 
 The bridge in “Moonlight Motel” is literally just that: a bridge that spans the years, taking us rapidly from the past to the present through all of the ordinary routine that wears away at the sheen of romance and adventure.
 
@@ -91,7 +91,7 @@ Bruce has the ringing of the bell echo across the valley floor, a bit of poetic 
 
 And because we’ve established that no detail is extraneous, we must pause at the screen door.
 
-*The screen door.*
+> *The screen door.*
 
 The words that open one of Bruce’s greatest songs of vibrant and vital youth.
 
@@ -103,15 +103,15 @@ The screen door.
 
 It’s dusty now, meaning it’s been a long time since Mary (or anyone) opened it.
 
-*Last night I dreamed of you my lover*
-*And the wind blew through the window and blew off the covers*
+> *Last night I dreamed of you my lover*
+> *And the wind blew through the window and blew off the covers*
 
 We’re in the present now, literally today, with our narrator waking from a dream from last night. The wind is yet another classic element of symbolism. In religion, it represents the spirit; in literature, it represents impending change. In “Moonlight Motel,” it represents both.
 
 The wind is the spirit of our narrator’s lost love, visiting her beloved and blowing off the cocoon he’s created around himself to protect him from another loss that might someday stem from a new love.
 
-*Of my lonely bed, I woke to something you said*
-*That it’s better to have loved, yeah, it’s better to have loved*
+> *Of my lonely bed, I woke to something you said*
+> *That it’s better to have loved, yeah, it’s better to have loved*
 
 In the annals of the greatest lines Bruce ever wrote, we’d be hard-pressed to find any that pack more of an emotional punch than these. There’s so much being communicated in his wife’s spiritual visitation: her reminder that they are fortunate to have had whatever time together life blessed them with is also her benediction and encouragement for him to love again.
 
@@ -119,13 +119,13 @@ And the fact that he can’t even finish Tennyson’s great line (“’tis bett
 
 I tear up at this line every single time I hear it.
 
-*As I drove there was a chill in the breeze and the leaves tumbled from the sky and fell*
-*On the road so black as I backtracked to the Moonlight Motel*
+> *As I drove there was a chill in the breeze and the leaves tumbled from the sky and fell*
+> *On the road so black as I backtracked to the Moonlight Motel*
 
 This couplet is pretty obvious. The chill in the air and the falling leaves symbolize the passage of time and the lateness of life. With his wife’s words still echoing in his head, he travels both in distance and time to continue their conversation.
 
-*She was boarded up and gone like an old summer song, nothing but an empty shell*
-*I pulled in and stopped into my old spot…*
+> *She was boarded up and gone like an old summer song, nothing but an empty shell*
+> *I pulled in and stopped into my old spot…*
 
 When he arrives at the motel, it’s shuttered and abandoned, and the comparison to a summer song is in stark contrast with the approaching autumn. Yet he pulls into a parking spot–and not just any spot, but his *old spot,* which tells us that this isn’t the first time he’s made this journey over the years.
 
@@ -133,8 +133,8 @@ We notice, too, that Bruce doesn’t complete the couplet. He sets up the rhyme 
 
 Now about those shots…
 
-*I pulled a bottle of Jack out of a paper bag, poured one for me and one for you as well*
-*Then it was one more shot poured out on the parking lot to the Moonlight Motel*
+> *I pulled a bottle of Jack out of a paper bag, poured one for me and one for you as well*
+> *Then it was one more shot poured out on the parking lot to the Moonlight Motel*
 
 This is a powerful, beautiful ending to a gorgeous song–both because of what it tells us about the past and suggests about the future.
 

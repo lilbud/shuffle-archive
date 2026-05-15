@@ -38,69 +38,69 @@ Bruce’s beloved grandmother passed away on December 17, 1965. Bruce recorded �
 
 Bruce’s lyrics are uncharacteristically (for the time) straightforward, and they line up with his later recollections and autobiography neatly–so much so that they leave little room or need for analysis.
 
-*I remember yesterday*  
-*When I’d sit and watch the hound dogs play*  
-*Howling at the China moon*  
-*Now yesterday is the busted balloon*
+> *I remember yesterday*
+> *When I’d sit and watch the hound dogs play*
+> *Howling at the China moon*
+> *Now yesterday is the busted balloon*
 
 The metaphors in “Randolph Street” are few and simple, but powerful. Even at the age of 22 (when he recorded the song, but he was likely even younger when he wrote it), Bruce recognized the ability of a single moment to shatter–or in this case pop like a balloon–the innocence of childhood. As Bruce would write more than four decades later, the death of his grandmother was the moment his world collapsed.
 
-*Life was young and things were easy*  
-*Days were short, nights were warm*  
-*Times were good, hate was shallow*  
-*Love was crazy and I had it in my marrow*  
-*I swear that I’ve seen your face*  
-*Somewhere back in that time and in that place*  
-*Do you remember?*
+> *Life was young and things were easy*
+> *Days were short, nights were warm*
+> *Times were good, hate was shallow*
+> *Love was crazy and I had it in my marrow*
+> *I swear that I’ve seen your face*
+> *Somewhere back in that time and in that place*
+> *Do you remember?*
 
-*The old house stood like World War II*  
-*With just two rooms and a hall to be used*  
-*The lady was lean, just slightly unclean*  
-*With a heart of cold silver and gold*
+> *The old house stood like World War II*
+> *With just two rooms and a hall to be used*
+> *The lady was lean, just slightly unclean*
+> *With a heart of cold silver and gold*
 
 Until he published *Born to Run* in 2016, I’d always wondered what Bruce meant when he referred to his grandmother as “just slightly unclean.” The pull quote at the top of this essay cleared that up for me, along with some additional detail in Chapter Two.
 
-*The kitchen smelled of kerosene*  
-*The ceiling hung down unveiling rotted beams*  
-*And the man, they said his work it could’ve hung in the Louvre*  
-*But now he sits around all day because his left arm won’t move*  
-*He was a master of the art of electricity*  
-*He lectured on tubes and circuitry*  
-*He was self-employed, but he could never see*  
-*His way into the light*
+> *The kitchen smelled of kerosene*
+> *The ceiling hung down unveiling rotted beams*
+> *And the man, they said his work it could’ve hung in the Louvre*
+> *But now he sits around all day because his left arm won’t move*
+> *He was a master of the art of electricity*
+> *He lectured on tubes and circuitry*
+> *He was self-employed, but he could never see*
+> *His way into the light*
 
-*He had a room full of switches and dials and lights*  
-*And a head full of clouds and eyes full of sight*  
-*And when it got dark I could hear his heart beat*  
-*Like a mother in the night*
+> *He had a room full of switches and dials and lights*
+> *And a head full of clouds and eyes full of sight*
+> *And when it got dark I could hear his heart beat*
+> *Like a mother in the night*
 
-*She stood like a guardian ready to give everything up*  
-*If I asked for a sword and her blood in a cup*  
-*But there was just a time when I asked for too much*  
-*She sighed because she could not give it*
+> *She stood like a guardian ready to give everything up*
+> *If I asked for a sword and her blood in a cup*
+> *But there was just a time when I asked for too much*
+> *She sighed because she could not give it*
 
 Alice Springsteen was fiercely and famously devoted to her grandson, as Bruce has related time and again. So my educated guess is that the “time when I asked for too much” was Wednesday, March 28, 1962, the day Bruce’s grandfather died in his sleep.
 
-*We used to sit beneath the tree*  
-*Just the lady, the radio man, and me*  
-*And I think it was the winter of ’63*  
-*When the man went away and let us be*  
-*It was early on an August day*  
-*That the lady decided she too must go away*  
-*Her heart it seems could not pay*  
-*The price for what her body was buying*
+> *We used to sit beneath the tree*
+> *Just the lady, the radio man, and me*
+> *And I think it was the winter of ’63*
+> *When the man went away and let us be*
+> *It was early on an August day*
+> *That the lady decided she too must go away*
+> *Her heart it seems could not pay*
+> *The price for what her body was buying*
 
 Bruce was a bit off in his date recollection–his grandfather actually passed away in the winter of ’62 (technically the second week of spring, but late March can often be indistinguishable from February in New Jersey), and his grandmother early on a December day. It’s not uncommon, though, for the emotional impact of an event to be more indelible than its chronological date.
 
-*I come home from school and I found the note*  
-*I went into the kitchen and lit the old stove*  
-*With senses set on overload*  
-*I turned on the TV*
+> *I come home from school and I found the note*
+> *I went into the kitchen and lit the old stove*
+> *With senses set on overload*
+> *I turned on the TV*
 
-*Spent the rest of the afternoon*  
-*Watching all my old cartoons*  
-*And through the hall and across the porch*  
-*As the sun surrendered like a crying torch*
+> *Spent the rest of the afternoon*
+> *Watching all my old cartoons*
+> *And through the hall and across the porch*
+> *As the sun surrendered like a crying torch*
 
 Alice Springsteen died in her sleep, her granddaughter by her side. Her final gift to her sixteen-year-old grandson was one last day of innocence: Bruce had to cross the room where she lay lifeless on his way out of the house. By the time his younger sister woke beside their dead grandmother, Bruce had already left for school, unaware of his loss until he returned from school that afternoon.
 

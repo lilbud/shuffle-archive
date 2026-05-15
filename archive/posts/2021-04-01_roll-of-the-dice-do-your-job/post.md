@@ -15,37 +15,37 @@ As with much of Bruce’s unreleased material, however, the unreleased single ma
 “Do Your Job” has a classic E Street sound–not surprising, since it seems that it was recorded during one of the breaks on the Magic Tour (as was much of *Working on a Dream*). Featuring a catchy hook, a riff reminiscent of “[The Promised Land,](https://estreetshuffle.com/index.php/2018/07/04/roll-of-the-dice-the-promised-land/)” and classic Springsteen themes like the value of hard work, Bruce had all the necessary elements to elevate “Do Your Job” to its rightful place in Bruce’s officially released catalog.
 
  *I can’t believe my eyes, it’s so friggin’ amazing*
-*Americans are getting lazier*
-*They don’t wanna do their jobs, they just want their check*
-*They wanna show up, stand ’round, and then collect*
-*Well baby just don’t work that way*
-*You gotta do your job to earn your pay*
-*From the hot tub man to the grocery clerk*
-*I’m the boss, get back to work*
+> *Americans are getting lazier*
+> *They don’t wanna do their jobs, they just want their check*
+> *They wanna show up, stand ’round, and then collect*
+> *Well baby just don’t work that way*
+> *You gotta do your job to earn your pay*
+> *From the hot tub man to the grocery clerk*
+> *I’m the boss, get back to work*
 
-*Do do do do your job*
+> *Do do do do your job*
 
-*You’ve got places to go, but you can’t get far*
-*Because the valet can’t find your car*
-*You want a stain removed but you still see it*
-*I guess good service is an ancient Chinese secret*
-*I’m not offered men’s soap or any cologne*
-*From the bathroom attendant who’s on his cell phone*
-*It’s a wonder more people don’t go berserk*
-*I’m the boss, get back to work*
+> *You’ve got places to go, but you can’t get far*
+> *Because the valet can’t find your car*
+> *You want a stain removed but you still see it*
+> *I guess good service is an ancient Chinese secret*
+> *I’m not offered men’s soap or any cologne*
+> *From the bathroom attendant who’s on his cell phone*
+> *It’s a wonder more people don’t go berserk*
+> *I’m the boss, get back to work*
 
-*Do do do do your job*
+> *Do do do do your job*
 
-*These bozos are making one of those death traps*
-*By this time next week, that building’s gonna collapse*
-*And the school bus driver hauls a precious load*
-*Hope he’s not driving your kids when his heart explodes*
-*As I look around I see everywhere*
-*Americans who just don’t care*
-*At the risk of sounding like a Repetitive Joe*
-*I’m the boss, get back to work*
+> *These bozos are making one of those death traps*
+> *By this time next week, that building’s gonna collapse*
+> *And the school bus driver hauls a precious load*
+> *Hope he’s not driving your kids when his heart explodes*
+> *As I look around I see everywhere*
+> *Americans who just don’t care*
+> *At the risk of sounding like a Repetitive Joe*
+> *I’m the boss, get back to work*
 
-*Do do do do your job*
+> *Do do do do your job*
 
 Even the video is classic Springsteen–from the common man cameos to the requisite beach walkabout, all of Bruce’s trademarks are on full display. He even shoots off a snot rocket!
 

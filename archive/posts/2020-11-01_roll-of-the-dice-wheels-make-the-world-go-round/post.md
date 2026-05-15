@@ -10,17 +10,17 @@ As far as we know, “Wheels Make the World Go Round” never made it past the f
 
 Lyrically, there’s not enough here for us to know exactly where Bruce was headed, but it seems clear that this would have been another entry in his canon of car metaphor songs.
 
-*Turning, turning baby round*
-*Spinning baby round and round*
-*Turning underground*
-*Moving, streets of a one-dog town*
-*Wheels make the world go round*
+> *Turning, turning baby round*
+> *Spinning baby round and round*
+> *Turning underground*
+> *Moving, streets of a one-dog town*
+> *Wheels make the world go round*
 
-*Turning, turning left and goin’ right*
-*Disappear boulevard ???*
-*Wishing, secrets baby to be found*
-*Wheels make the world go round*
-*Baby wheels make the world go round*
+> *Turning, turning left and goin’ right*
+> *Disappear boulevard ???*
+> *Wishing, secrets baby to be found*
+> *Wheels make the world go round*
+> *Baby wheels make the world go round*
 
 Many of Bruce’s discarded outtakes contained lyrical or musical DNA that found their way to one or more officially released songs, but sadly (because I really like this one) “Wheels Make the World Go Round” appears to be a true dead end.
 

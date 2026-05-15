@@ -14,31 +14,31 @@ Here’s an interview with the author, featuring extended clips of Bruce discuss
 
 Lyrically, “The New Timer” is a master class in taut storytelling. Let’s take a look at how Bruce skillfully weaves his tale:
 
-*He rode the rails since the great depression*  
-*Fifty years out on the skids*  
-*He said you don’t cross nobody*  
-*You’ll be all right out here, kid*
+> *He rode the rails since the great depression*
+> *Fifty years out on the skids*
+> *He said you don’t cross nobody*
+> *You’ll be all right out here, kid*
 
 Four lines in, and we’ve established time, place, and circumstance without ever making direct reference: Bruce is singing about a hobo riding the rails–but not back in the 1930s. It’s fifty years later, which puts us in the mid-eighties (exactly when Maharidge wrote and published his book).
 
-*Left my family in Pennsylvania*  
-*Searching for work I hit the road*  
-*I met Frank in east Texas*  
-*In a freight yard blown through with snow*
+> *Left my family in Pennsylvania*
+> *Searching for work I hit the road*
+> *I met Frank in east Texas*
+> *In a freight yard blown through with snow*
 
 Two verses in, and Bruce has thrown his first curve ball: this isn’t just the story of Frank the hobo (notice how the scene suddenly crystallizes into specificity)–there’s another migrant worker here as well, and it’s our point-of-view character.
 
-*From New Mexico to Colorado*  
-*California to the sea*  
-*Frank he showed me the ropes, sir*  
-*Just till I could get back on my feet*
+> *From New Mexico to Colorado*
+> *California to the sea*
+> *Frank he showed me the ropes, sir*
+> *Just till I could get back on my feet*
 
 Twelve lines in, and much time has passed–enough for Frank and our protagonist to travel across the west, the older man teaching the younger how to survive, the younger man still clinging to the belief that this is all only temporary, a brief economic downtown.
 
-*I hoed sugar beets outside of Firebaugh*  
-*I picked the peaches from the Marysville trees*  
-*They bunked us in a barn just like animals*  
-*Me and a hundred others just like me*
+> *I hoed sugar beets outside of Firebaugh*
+> *I picked the peaches from the Marysville trees*
+> *They bunked us in a barn just like animals*
+> *Me and a hundred others just like me*
 
 Line fourteen has a nice reference to peach-picking, notably one of the menial jobs that the Joads performed in order to survive in Steinbeck’s *Grapes of Wrath*, the inspiration for the album’s title track. We’ve now established an indirect but distinct connection between the displaced migrants of the 1930s and the homeless working poor of the 1980s.
 
@@ -46,54 +46,54 @@ And in the next two lines, we see how Frank and his mentee and their scores of f
 
 Time passes, and the story takes a turn:
 
-*We split up come the springtime*  
-*I never seen Frank again*  
-*‘Cept one rainy night he blew by me on grainer*  
-*Shouted my name, disappeared in the rain and the wind*
+> *We split up come the springtime*
+> *I never seen Frank again*
+> *‘Cept one rainy night he blew by me on grainer*
+> *Shouted my name, disappeared in the rain and the wind*
 
 The new timer is on his own now–he catches a glimpse of his father figure only once, fleetingly, before being separated from his adopted family forever:
 
-*They found him shot dead outside of Stockton*  
-*His body lying on a muddy hill*  
-*Nothing taken, nothing stolen*  
-*Somebody killed him just to kill*
+> *They found him shot dead outside of Stockton*
+> *His body lying on a muddy hill*
+> *Nothing taken, nothing stolen*
+> *Somebody killed him just to kill*
 
 And here, “The New Timer” becomes connected to “Nebraska” as well: Frank is dead, killed by an unknown murderer who didn’t even have the decency to rob him, killed just for the sake of killing, as if “there’s just a meanness in this world.”
 
 More time passes before we learn the impact that discovery had on the new timer.
 
-*Late that summer I was rolling through the plains of Texas*  
-*A vision passed before my eyes*  
-*A small house sitting trackside*  
-*With the glow of the saviors’ beautiful light*
+> *Late that summer I was rolling through the plains of Texas*
+> *A vision passed before my eyes*
+> *A small house sitting trackside*
+> *With the glow of the saviors’ beautiful light*
 
-*A woman stood cooking in the kitchen*  
-*Kid sat at the table with his old man*  
-*Now I wonder does my son miss me*  
-*Does he wonder where I am*
+> *A woman stood cooking in the kitchen*
+> *Kid sat at the table with his old man*
+> *Now I wonder does my son miss me*
+> *Does he wonder where I am*
 
 These are beautiful passages–not just for their religious imagery and poignant power, but because we can’t quite know the significance of this house, this family.
 
 Remember that we are back in Texas, where the new timer first met Frank. Is this a random family evoking such longing in our protagonist? Probably. But the location can’t be a coincidence–Bruce is too careful for that. Perhaps this family bears some relationship with Frank? Might they have been significant to him? We don’t know, and we won’t know, but the power of the vision and the power of the place are enough to stir some inner turmoil in our hero.
 
-*Tonight I pick my campsite carefully*  
-*Outside the Sacramento Yard*  
-*Gather some wood and light a fire*  
-*In the early winter dark*
+> *Tonight I pick my campsite carefully*
+> *Outside the Sacramento Yard*
+> *Gather some wood and light a fire*
+> *In the early winter dark*
 
 Now we’re in Sacramento, California–a stone’s throw from Stockton, where Frank’s body was found. Again–Bruce is too careful for coincidence. The fact that the new timer returned here matters.
 
-*Wind whistling cold I pull my coat around me*  
-*Heat some coffee and stare out into the black night*  
-*I lie awake, I lie awake, sir*  
-*With my machete by my side*
+> *Wind whistling cold I pull my coat around me*
+> *Heat some coffee and stare out into the black night*
+> *I lie awake, I lie awake, sir*
+> *With my machete by my side*
 
 That repeated line–“I lie awake, I lie awake”–we can almost envision the new timer sitting, wrapped in his coat, rocking, chanting those words, remaining on guard–why? To protect himself from being preyed on, we assume. But:
 
-*My Jesus your gracious love and mercy*  
-*Tonight I’m sorry could not fill*  
-*My heart like one good rifle*  
-*And the name of who I ought to kill*
+> *My Jesus your gracious love and mercy*
+> *Tonight I’m sorry could not fill*
+> *My heart like one good rifle*
+> *And the name of who I ought to kill*
 
 And there we have it. The new timer has lost everything. His home, his family, his career, his sense of place, his dignity. And finally, at the end, he’s lost the one person who helped him at his lowest, who saw him for who he was, who rendered him visible when no one else would acknowledge him except to thieve from him or harm him.
 

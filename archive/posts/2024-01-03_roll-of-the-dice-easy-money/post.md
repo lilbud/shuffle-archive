@@ -12,7 +12,7 @@ Both “Atlantic City” and “Easy Money” are socio-economic parables, but w
 
 That’s because our narrator is a walking, talking metaphor for an economic system that rewards greed, encourages exploitation, and perpetuates power in the hands of an elite few. As Bruce put it in the same interview with Jon Stewart:
 
-*[“Easy Money” is] the street criminalization of the big-money Wall Street hustle. That's the guy that's saying, "Everybody else is getting theirs, and not paying for it, I'm going out to get mine." That hustle has been legitimized over the past four years, when you have the level of risk and greed at the top of the financial industry, and people basically walking away, relatively scot-free, completely unaccountable… No one ever came as close to sinking the U.S.A. as the guys in the pinstriped suits.”*
+> *[“Easy Money” is] the street criminalization of the big-money Wall Street hustle. That's the guy that's saying, "Everybody else is getting theirs, and not paying for it, I'm going out to get mine." That hustle has been legitimized over the past four years, when you have the level of risk and greed at the top of the financial industry, and people basically walking away, relatively scot-free, completely unaccountable… No one ever came as close to sinking the U.S.A. as the guys in the pinstriped suits.”*
 
 The brilliance of “Easy Money” lies in the way Bruce casts an ordinary joe as the guy in the pinstriped suit. We instinctively recognize the narrator as a violent criminal more viscerally than we would if Bruce had introduced us to an Ivy League banker instead.
 
@@ -20,31 +20,31 @@ The music helps, too: Bruce arranged “Easy Money” as sort of an Irish slide/
 
 The lyrical similarities to “Atlantic City” are almost certainly intentional–their familiarity adds extra punch for fans familiar with Bruce’s earlier anti-hero.
 
-*You put on your coat, I’ll put on my hat*
-*You put out the dog, I’ll put out the cat*
-*You put on your red dress for me tonight, honey*
-*We’re going on the town now looking for easy money*
+> *You put on your coat, I’ll put on my hat*
+> *You put out the dog, I’ll put out the cat*
+> *You put on your red dress for me tonight, honey*
+> *We’re going on the town now looking for easy money*
 
 But it’s the second verse that’s the heart of the song:
 
-*There’s nothing to it mister, you won’t hear a sound*
-*When your whole world comes tumbling down*
-*And all them fat cats they just think it’s funny*
-*I’m going on the town now looking for easy money*
+> *There’s nothing to it mister, you won’t hear a sound*
+> *When your whole world comes tumbling down*
+> *And all them fat cats they just think it’s funny*
+> *I’m going on the town now looking for easy money*
 
 Bruce’s lyrics are operating on two levels here. Our narrator both assures and warns his victim that he won’t see it coming when his life is destroyed by the actions of a stranger. The comparison to the societal havoc wreaked by reckless high finance is obvious.
 
 The rest of the song sees the metaphor through: our narrator has it made. That his easy money comes at a cost to others is something that doesn’t trouble him.
 
-*I got a Smith & Wesson .38*
-*I got a hellfire burning and I got me a taste*
-*Got me a date on the far shore where it’s bright and sunny*
-*I’m going on the town tonight looking for easy money*
+> *I got a Smith & Wesson .38*
+> *I got a hellfire burning and I got me a taste*
+> *Got me a date on the far shore where it’s bright and sunny*
+> *I’m going on the town tonight looking for easy money*
 
-*You put on your coat, I’ll put on my hat*
-*You put out the dog, I’ll put out the cat*
-*You put on your red dress, you’re looking real good, honey*
-*We’re going on the town now looking for easy money*
+> *You put on your coat, I’ll put on my hat*
+> *You put out the dog, I’ll put out the cat*
+> *You put on your red dress, you’re looking real good, honey*
+> *We’re going on the town now looking for easy money*
 
 Both “Atlantic City” and “Easy Money” are products of their time. The former was written when America’s economic inequality was just beginning to accelerate; the latter was written at its peak.
 

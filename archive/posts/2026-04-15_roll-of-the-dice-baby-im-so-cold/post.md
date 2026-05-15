@@ -20,42 +20,42 @@ The chorus–unique to this song–simply finds the lovers estranged from each o
 
 Listen again, and marvel at how Bruce is able to craft an entirely difference song with only small changes to existing elements.
 
-*We met on open streets*
-*We had no place to go*
-*I remember how my heart beat*
-*When you said “Bobby, I love you so”*
-*Then little by little, baby, now I don’t know*
-*We lost the love, so long ago*
+> *We met on open streets*
+> *We had no place to go*
+> *I remember how my heart beat*
+> *When you said “Bobby, I love you so”*
+> *Then little by little, baby, now I don’t know*
+> *We lost the love, so long ago*
 
-*Now I’m so cold, and we turn the lights down low*
-*So cold, baby, I’m so cold, and we turn the lights down low*
-*So cold, baby, I’m cold*
+> *Now I’m so cold, and we turn the lights down low*
+> *So cold, baby, I’m so cold, and we turn the lights down low*
+> *So cold, baby, I’m cold*
 
-*We both made promises we couldn’t keep*
-*Now last night, my girl, you were crying in your sleep*
-*Baby, we used to walk on nights just like this*
-*I would hold you in my arms, fill you with my kiss*
-*(Hold you in my arms, protect you with my kiss)*
+> *We both made promises we couldn’t keep*
+> *Now last night, my girl, you were crying in your sleep*
+> *Baby, we used to walk on nights just like this*
+> *I would hold you in my arms, fill you with my kiss*
+> *(Hold you in my arms, protect you with my kiss)*
 
-*Now I’m so cold, and we turn the lights down low*
-*I’m so cold, baby, I’m so cold, we turn the lights down low*
+> *Now I’m so cold, and we turn the lights down low*
+> *I’m so cold, baby, I’m so cold, we turn the lights down low*
 
-*Our love has fallen around us*
-*Like we said it never could*
-*It happened to us, we said it never would*
-*How could something so bad, baby, happen to something so good*
-*I don’t know, I don’t know*
+> *Our love has fallen around us*
+> *Like we said it never could*
+> *It happened to us, we said it never would*
+> *How could something so bad, baby, happen to something so good*
+> *I don’t know, I don’t know*
 
-*We got no new dreams, baby, left to touch*
-*We’re lost like strangers who know too much*
-*About each other, it was ???*
-*I’m scared but I fear the cold coming in the night*
+> *We got no new dreams, baby, left to touch*
+> *We’re lost like strangers who know too much*
+> *About each other, it was ???*
+> *I’m scared but I fear the cold coming in the night*
 
-*Now I’m so cold, and we turn the lights down low*
-*So cold, baby, I’m so cold, and we turn the lights down low*
-*And we turn the lights down low*
-*And we turn the lights down low*
-*And we turn the lights down low*
+> *Now I’m so cold, and we turn the lights down low*
+> *So cold, baby, I’m so cold, and we turn the lights down low*
+> *And we turn the lights down low*
+> *And we turn the lights down low*
+> *And we turn the lights down low*
 
 (Yes, those are lyrics that would someday end up in “Janey, Don’t You Lose Heart” in that final verse.)
 
@@ -67,10 +67,10 @@ That recording resides in the vault, if it still exists at all. However, we do h
 
 The vocals are muddy (Bruce recorded it on a boombox), but we can hear the new second verse and the improved final verse:
 
-*We got no new dreams, baby, left to touch*
-*We’re lost like strangers who know too much*
-*About each other to give the old dreams life*
-*I want to take you in my arms to tell you it will be alright*
+> *We got no new dreams, baby, left to touch*
+> *We’re lost like strangers who know too much*
+> *About each other to give the old dreams life*
+> *I want to take you in my arms to tell you it will be alright*
 
 Bruce would like us to believe that the vault is now empty, at least with regard to the *Born in the U.S.A.* era, so perhaps we’ll never get to hear the final version of this particular loose end.
 

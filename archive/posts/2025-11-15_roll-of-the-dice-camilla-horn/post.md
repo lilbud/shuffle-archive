@@ -16,14 +16,14 @@ She made an impression on a young singer-songwriter from New Jersey, too. In ear
 
 Bruce’s song–entitled simply “Camilla Horn”–focuses on Horn’s arrival in the United States, where she was hailed as the next big thing before the industry moved on to the big thing after her.
 
-*Camilla Horn, she was born a long, long time ago*
-*She came from Germany to the U.S.A.*
-*And was acclaimed as the next Garbo*
-*They came to her on their knees to bless them, caress them*
-*And tell them what they need*
-*But oh, she did not know*
-*And so she took her place at the bar*
-*Just another fallen star*
+> *Camilla Horn, she was born a long, long time ago*
+> *She came from Germany to the U.S.A.*
+> *And was acclaimed as the next Garbo*
+> *They came to her on their knees to bless them, caress them*
+> *And tell them what they need*
+> *But oh, she did not know*
+> *And so she took her place at the bar*
+> *Just another fallen star*
 
 Bruce imagines Horn as the unsophisticated rural girl she once was, suddenly a celebrity and unable or unwilling to play the part. When Hollywood moves on without her, Bruce’s version of Horn becomes a barfly a la “[Western Stars](https://estreetshuffle.com/index.php/2020/03/28/roll-of-the-dice-western-stars/),” a forgotten movie idol in what would eventually become a long string of them.
 

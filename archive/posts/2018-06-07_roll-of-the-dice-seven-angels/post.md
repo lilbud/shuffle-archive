@@ -6,8 +6,8 @@ Recorded in 1990 during the *Human Touch* sessions, it’s a mystery why Bruce c
 
 Lyrically, “Seven Angels” is the tale of a man in the early stages of love, caught up in the insecurities and indecision that both protect us and isolate us from each other. Bruce wastes no time setting the stage:
 
-*Seven angels got my number since I fell in love with you*  
-*Seven angels got my number, they’re all telling me what to do*
+> *Seven angels got my number since I fell in love with you*
+> *Seven angels got my number, they’re all telling me what to do*
 
 That’s it–that’s the song right there: Seven different internal monologues all battling for the attention of the narrator’s conscious mind and heart. The rest of the song is just a transcript of those monologues. If they were dwarves, we’d give them names:
 
@@ -22,7 +22,7 @@ That’s it–that’s the song right there: Seven different internal monologues
 
 What’s awesome is that the song has continuity throughout–only two angels resurface at the end of the song, but they’re the right ones–the most urgent ones:
 
-*Sixth angel says to believe you when you say you’ll never leave me crying  
+> *Sixth angel says to believe you when you say you’ll never leave me crying  
 Seventh angel says you’re lying*
 
 That’s indeed what it all boils down to: trust or distrust. Which angel does the narrator end up listening to? We don’t know, but that seventh angel gets the last word, unfortunately.

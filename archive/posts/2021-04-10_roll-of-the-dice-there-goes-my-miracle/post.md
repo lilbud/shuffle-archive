@@ -10,7 +10,7 @@ With the possible exception of “Sundown” on the same album, “There Goes My
 
 Tracing the lineage of the *Western Stars* collection is a challenge even for Springsteen scholars, since there’s precious little information available about the recording sessions. However, we can do a little sleuthing and speculating. Bruce is on record stating that the album’s origins date back to as early as 2010:
 
-*“I wrote most of [Western Stars] before [Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/), and I stopped making that record to make Wrecking Ball, and then I went back to it.”*
+> *“I wrote most of [Western Stars] before [Wrecking Ball](https://estreetshuffle.com/index.php/2023/03/28/album-companion-wrecking-ball/), and I stopped making that record to make Wrecking Ball, and then I went back to it.”*
 
 I strongly suspect that “There Goes My Miracle” is one of those original pre-*Wrecking Ball* tracks–in fact, I wouldn’t be surprised if Bruce had written it during the same period that yielded *Working on a Dream* in 2009, so similar is the song to that album’s material.
 
@@ -24,29 +24,29 @@ My guess is that Koma’s vocal contribution hails from sometime shortly after t
 
 “There Goes My Miracle” certainly fits nicely on *Western Stars* from a production perspective, but lyrically it stands apart. Among a collection of songs featuring characters moving forward even when their destination is in the rear view mirror, the narrator of “There Goes My Miracle” is unique in being the one left behind.
 
-*Sunrise, sundown*
-*The streets gone golden brown*
-*Auburn skies above*
-*I’m searching for my love, searching for my love*
+> *Sunrise, sundown*
+> *The streets gone golden brown*
+> *Auburn skies above*
+> *I’m searching for my love, searching for my love*
 
-*There goes my miracle*
-*Walking away, walking away*
-*There goes my miracle*
-*Walking away, walking away*
+> *There goes my miracle*
+> *Walking away, walking away*
+> *There goes my miracle*
+> *Walking away, walking away*
 
 Bruce’s first verse is so drenched in vivid color that it’s not immediately apparent to us whether the chorus is marveling or mourning. But there are hints in the form of earthtones and sundown that suggest we are at the end of something rather than the beginning.
 
 The second verse drives that home as darkness descends:
 
-*Moonlight, moon bright*
-*Where’s my lucky star tonight*
-*Streets lost in lamp light*
-*Suddenly in sight, suddenly in sight…*
+> *Moonlight, moon bright*
+> *Where’s my lucky star tonight*
+> *Streets lost in lamp light*
+> *Suddenly in sight, suddenly in sight…*
 
-*There goes my miracle*
-*Walking away, walking away*
-*There goes my miracle*
-*Walking away, walking away*
+> *There goes my miracle*
+> *Walking away, walking away*
+> *There goes my miracle*
+> *Walking away, walking away*
 
 Now it’s becoming clear that something’s off–our protagonist has literally lost his way.
 
@@ -54,17 +54,17 @@ Now it’s becoming clear that something’s off–our protagonist has literally
 
 “There Goes My Miracle” is a great example of classic heartbreak pop, but that doesn’t mean Bruce’s sophisticated songwriting skills aren’t on full display. Each successive verse reveals more than the preceding one, and that continues through the bridge as well.
 
-*Look what you’ve done*
-*Look what you’ve done*
-*Look what you’ve done*
+> *Look what you’ve done*
+> *Look what you’ve done*
+> *Look what you’ve done*
 
-*Look what you’ve done*
-*Look what you’ve done*
-*Look what you’ve done*
+> *Look what you’ve done*
+> *Look what you’ve done*
+> *Look what you’ve done*
 
-*Look what we’ve done*
-*Look what we’ve done*
-*Look what we’ve done*
+> *Look what we’ve done*
+> *Look what we’ve done*
+> *Look what we’ve done*
 
 It’s just one line repeated on end, but the pronoun shift in the final triad tells us so much.
 
@@ -72,10 +72,10 @@ We can debate whether the first six instances are addressed to our protagonist�
 
 The final verse lays it bare:
 
-*Heartache, heartbreak*
-*Love gives, love takes*
-*The book of love holds its rules*
-*Disobeyed by fools, disobeyed by fools*
+> *Heartache, heartbreak*
+> *Love gives, love takes*
+> *The book of love holds its rules*
+> *Disobeyed by fools, disobeyed by fools*
 
 Bruce has often noted that his songs can typically be distilled down to a single line or passage. With “There Goes My Miracle,” we can find the entire song in the last couplet: if you break the rules, you pay the price.
 

@@ -78,29 +78,29 @@ The concept was deceptively simple: the youthful energy and experience of a high
 
 The verses are simple and ruminatory: decades on, a band member leafs through the pages of an old scrapbook–long enough ago that he no longer remembers who captured the faded photos.
 
-*Faded pictures in an old scrapbook*
-*Faded pictures that somebody took*
-*When you were hard and young and proud*
-*Backed against the wall running raw and loud*
+> *Faded pictures in an old scrapbook*
+> *Faded pictures that somebody took*
+> *When you were hard and young and proud*
+> *Backed against the wall running raw and loud*
 
 Losing himself in the photos and the details they reveal, he finds old memories newly stirred. We’re transported back to the mid-1960s and the local circuit on the Jersey shore.
 
-*Snakeskin vest and a sharkskin suit*
-*Cuban heels on your boots*
-*Kicking the band in side by side*
-*You take the crowd on their mystery ride*
+> *Snakeskin vest and a sharkskin suit*
+> *Cuban heels on your boots*
+> *Kicking the band in side by side*
+> *You take the crowd on their mystery ride*
 
-*Knights of Columbus and the Fireman’s Ball*
-*Friday night at the Union Hall*
-*Black leather clubs all along Route 9*
-*You count the names of the missing as you count off time*
+> *Knights of Columbus and the Fireman’s Ball*
+> *Friday night at the Union Hall*
+> *Black leather clubs all along Route 9*
+> *You count the names of the missing as you count off time*
 
 With that last line, Bruce reveals that our narrator is both past and present. His young body stands on the stage beside his bandmates as his older soul marvels at the vitality of his long-gone friends. It’s one of only two powerful lyrical tricks in an otherwise straightforward song, and the second one comes immediately after:
 
-*Rock of ages lift me somehow*
-*Somewhere high and hard and loud*
-*Somewhere deep into the heart of the crowd*
-*I’m the last man standing now*
+> *Rock of ages lift me somehow*
+> *Somewhere high and hard and loud*
+> *Somewhere deep into the heart of the crowd*
+> *I’m the last man standing now*
 
 *Rock of ages.* It could have served as the song’s title, too.
 
@@ -108,24 +108,24 @@ As is his wont, Bruce uses the phrase to symbolize two things at once: the bibli
 
 It’s only for the moment, though, and as the lights come up we realize that our bandleader is still at it.
 
-*Out of school and out of work*
-*Thrift store jeans and flannel shirt*
-*The lights go down and we face the crowd*
-*The last man standing now*
+> *Out of school and out of work*
+> *Thrift store jeans and flannel shirt*
+> *The lights go down and we face the crowd*
+> *The last man standing now*
 
-*Lights come up at the Legion Hall*
-*Pool cues go back up on the wall*
-*You pack your guitar and have one last beer*
-*With just the ringing in your ears*
+> *Lights come up at the Legion Hall*
+> *Pool cues go back up on the wall*
+> *You pack your guitar and have one last beer*
+> *With just the ringing in your ears*
 
 It’s present day; our narrator is long since out of school and retired now as well. His bandmates are different but the venues are the same. When the lights go down he imagines himself surrounded not just by his current band but by the spirits of his fallen former bandmates, too.
 
 Once again he beseeches the divine spirits of both God and Rock and Roll for the strength to carry on–not just for himself, but for his brothers.
 
-*Rock of ages lift me somehow*
-*Somewhere high and hard and loud*
-*Somewhere deep into the heart of the crowd*
-*I’m the last man standing now*
+> *Rock of ages lift me somehow*
+> *Somewhere high and hard and loud*
+> *Somewhere deep into the heart of the crowd*
+> *I’m the last man standing now*
 
 For every great band, there’s a last man standing (or there will be), and as long as he stands on stage each night, his band stands with him. Or as Springsteen put it to his audience more than four decades into his career: *if you’re here, and we’re here, then they’re here.*
 

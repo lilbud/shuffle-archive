@@ -22,12 +22,12 @@ But upon a careful listen, we realize that this song is unlike any and all of th
 
 In the first verse, Bruce introduces us to our focal character, a nameless New York streetwalker who haunts the entrances to the city:
 
-*Sundown finds her running, but the night pushes her deep within the tunnel*
-*She camouflages herself in DayGlo paint and sings her love songs through a funnel*
-*She clings to the walls like a cat who calls the shots for life and for death*
-*Wearing nothing but the make-up that she uses to try and cover up for herself*
-*But she can’t hide her sword, she gives no terms for surrender*
-*She’s living the third World War*
+> *Sundown finds her running, but the night pushes her deep within the tunnel*
+> *She camouflages herself in DayGlo paint and sings her love songs through a funnel*
+> *She clings to the walls like a cat who calls the shots for life and for death*
+> *Wearing nothing but the make-up that she uses to try and cover up for herself*
+> *But she can’t hide her sword, she gives no terms for surrender*
+> *She’s living the third World War*
 
 Although I usually like to analyze a song as it unfolds for us, it’s worth pausing here for a moment to discuss the central premise of the song. Every mention or discussion that I’ve seen about “Two Hearts in True Waltz Time” in print or on-line describes it as the story of an affair between a police officer and a married woman.
 
@@ -39,11 +39,11 @@ To wit: that first verse *clearly* describes a prostitute. Bruce provides not on
 
 Let’s continue, as Bruce places our troubled focal character deep enough within the tunnel to cross the state line, hopping from trick to trick and staying one step ahead of the police. In a particularly neat literary reference, Bruce compares her to Little Orphan Annie, simultaneously presenting her as young, orphaned, and pimped out.
 
-*Now the tunnel police, they steadily increase the search for where she hides her kids*
-*Yeah, she swings on a vine across the state line, they measured the length of her skid*
-*She never goes back to do something she didn’t or undo something she did*
-*Her smoke streams from the street and the night is complete with a long and fiery belch*
-*Well, she’s just another Orphan Annie hung up pushing for a mademoiselle*
+> *Now the tunnel police, they steadily increase the search for where she hides her kids*
+> *Yeah, she swings on a vine across the state line, they measured the length of her skid*
+> *She never goes back to do something she didn’t or undo something she did*
+> *Her smoke streams from the street and the night is complete with a long and fiery belch*
+> *Well, she’s just another Orphan Annie hung up pushing for a mademoiselle*
 
 (Interestingly, in a solo demo of the song from a month earlier, Bruce sings that last line a bit differently–she’s still another Orphan Annie, but also a Raquel Welch. In the month between solo demo and studio recordings, Bruce seems to have opted for a more artfully extended Annie comparison at the expense of the rhyme.)
 
@@ -51,13 +51,13 @@ Let’s continue, as Bruce places our troubled focal character deep enough withi
 
 In the third verse, the police finally catch up to our Orphan Annie–or at least one officer does, and their encounter is primal and carnal. I’ll let these lyrics speak for themselves–your imagination can provide all the interpretation required:
 
-*And she rides like Caesar, brandishing a whip on the hood of his squad car*
-*As the siren wails, she silently sails leaving cat prints in the tar*
+> *And she rides like Caesar, brandishing a whip on the hood of his squad car*
+> *As the siren wails, she silently sails leaving cat prints in the tar*
 
 Now this next couplet is the source of what I argue is the popular misunderstanding of this song:
 
-*Oh, she breaks with the dawn and by morning she’s gone leaving nothing but another night*
-*She returns to her home like a dog returns for a bone, another unsatisfied wife*
+> *Oh, she breaks with the dawn and by morning she’s gone leaving nothing but another night*
+> *She returns to her home like a dog returns for a bone, another unsatisfied wife*
 
 I’m fairly certain that even the most deservedly well-regarded of Springsteen scholars zero in on that “another unsatisfied wife” reference and characterize the entire song through that lens.
 
@@ -65,10 +65,10 @@ Here’s why I believe that’s a mistake: Besides all of the preceding context,
 
 The final verse shifts our focus from the lady to the officer. Pay careful attention to how Bruce constructs this verse:
 
-*And in his little booth secure from the truth, he wants her more than he’s got the guts to say*
-*But as she needs to be real, he needs to conceal the realness of his place*
-*So he sings a little song and in a chiffon sarong she performs a black ballet in space*
-*But she’s just another flop with a fancy name, he’s just another cop with a pretty face*
+> *And in his little booth secure from the truth, he wants her more than he’s got the guts to say*
+> *But as she needs to be real, he needs to conceal the realness of his place*
+> *So he sings a little song and in a chiffon sarong she performs a black ballet in space*
+> *But she’s just another flop with a fancy name, he’s just another cop with a pretty face*
 
 I absolutely love how in the same verse–even in the same *line* at times–he continues the use of metaphor when describing *her*, but completely discards it in favor of spare, literal language when describing *him*. That’s a fantastic literary device, subtly showing us–even as he explains it in the second line of the verse–that the cop is living a fantasy, while the object of his desire doesn’t even have the luxury of fantasy.
 
@@ -78,7 +78,7 @@ The cop will continue to conceal the realness of not just his place, but also he
 
 The final metaphor–the title phrase–is achingly perfect, as anyone who has ever waltzed knows:
 
-*So together they commit the ballroom crime as two hearts in true waltz time*
+> *So together they commit the ballroom crime as two hearts in true waltz time*
 
 The waltz is a dance in which two partners must hold each other firmly and closely, spinning and whirling around each other as the force of their spinning threatens at all times to separate them. The only way to resist the force that separates is to lock eyes with one’s partner at all times.
 

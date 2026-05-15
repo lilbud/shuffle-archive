@@ -24,22 +24,22 @@ Long before any of us heard Bruce’s song, the empty sky was already a powerful
 
 Bruce borrowed the image of an empty sky and fashioned it into a metaphor for the void in our hearts and in our world that comes with losing a loved one. With spare yet elegant simplicity, he instills aching empathy in us in the very first line.
 
-*I woke up this morning, I could barely breathe*
-*Just an empty impression in the bed where you used to be*
-*I want a kiss from your lips, I want an eye for an eye*
-*I woke up this morning to an empty sky*
+> *I woke up this morning, I could barely breathe*
+> *Just an empty impression in the bed where you used to be*
+> *I want a kiss from your lips, I want an eye for an eye*
+> *I woke up this morning to an empty sky*
 
 Bruce never names his protagonist, and he barely hints at their relationship to the missing. It could be a spouse, a parent, a sibling, friend, a child; the songwriter wisely refrains in order to allow us to experience the song through our own personal lenses. (Although he does at least hint that our narrator is grieving a blood relation through the “blood of my blood” reference in the second verse.)
 
-*Blood on the streets, yeah blood flowing down*
-*I hear the blood of my blood crying from the ground*
+> *Blood on the streets, yeah blood flowing down*
+> *I hear the blood of my blood crying from the ground*
 
 It’s clear though, that these are the very early days of grief. The loss is still fresh; the bed still bears the imprint of its missing occupant. The wreckage of the attack has yet to be cleared, and the bodies have yet to be recovered. Blood still flows, and the missing loved one is likely still buried under rubble, not earth.
 
 While Bruce takes great and delicate care to imbue us with a sense of his narrator’s loss, the purpose of “Empty Sky” is to help us understand the confusion that follows. The mourner misses his loved one and aches for their kiss; he also seethes with rage and craves revenge. As he often does, Bruce employs biblical imagery to drive the point home:
 
-*On the plains of Jordan I cut my bow from the wood*
-*Of this tree of evil, of this tree of good*
+> *On the plains of Jordan I cut my bow from the wood*
+> *Of this tree of evil, of this tree of good*
 
 When we lose someone to an act of horrific evil, Bruce tells us, we have a choice in how we respond. We might feel the pull of both love and hate, grief and revenge, and it would be very human to succumb to both.
 

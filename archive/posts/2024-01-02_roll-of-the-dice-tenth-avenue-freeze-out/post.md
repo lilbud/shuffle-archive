@@ -16,21 +16,21 @@ But at its origin, it was a cocky, almost braggadocious strut. It entered the sc
 
 Those first twenty-five seconds are some serious self-aggrandizement–and Bruce knows it, because he brings himself and us back down to earth with some serious self-bathos:
 
-*Teardrops on the city*
-*Bad Scooter searching for his groove  
+> *Teardrops on the city*
+> *Bad Scooter searching for his groove  
 Seem like the whole world walking pretty*
-*And you can’t find the room to move*
+> *And you can’t find the room to move*
 
 We start our tale with an immediate declaration of autobiography (Bad Scooter’s initials ain’t no coincidence) and perhaps Bruce’s earliest depression confession on record.
 
-*Well, everybody better move over, that’s all*
-*‘Cause I’m running on the bad side*
-*And I got my back to the wall*
+> *Well, everybody better move over, that’s all*
+> *‘Cause I’m running on the bad side*
+> *And I got my back to the wall*
 
 “Tenth Avenue Freeze-Out” was the last song written and recorded for *Born to Run*. At that point in Bruce’s story, he absolutely did have his back to the wall. Two failed albums into his recording career, Bruce knew his third album was make or break. He wasn’t about to go down without a fight.
 
-*Tenth Avenue freeze-out*
-*Tenth Avenue freeze-out*
+> *Tenth Avenue freeze-out*
+> *Tenth Avenue freeze-out*
 
 Tenth Avenue runs down the Manhattan west side, through Hell’s Kitchen and into the West Village, where Bruce used to play. That was a mean street back then, and it gave Bruce an apt metaphor for his precarious career circumstances.
 
@@ -40,48 +40,48 @@ Dang it, I just went ahead and tried anyway.
 
 Our story continues:
 
-*Well, I was stranded in the jungle*
-*Trying to take in all the heat they was giving*
+> *Well, I was stranded in the jungle*
+> *Trying to take in all the heat they was giving*
 
 Remember: two albums in, neither of which set the world aflame. There must have been no shortage of feedback, critique, suggestion, and direction coming Bruce’s way. What must it have felt like trying to navigate those seas toward a singular vision?
 
-*Till the night is dark, but the sidewalk bright*
-*And lined with the light of the living*
+> *Till the night is dark, but the sidewalk bright*
+> *And lined with the light of the living*
 
 By day, perhaps, Bruce was struggling to realize his vision, but not at night. The night was his, and he brought it to life every time he stepped on stage.
 
-*From a tenement window a transistor blasts*
-*Turn around the corner, things got real quiet real fast*
-*I walked into a Tenth Avenue freeze-out*
-*Tenth Avenue freeze-out*
+> *From a tenement window a transistor blasts*
+> *Turn around the corner, things got real quiet real fast*
+> *I walked into a Tenth Avenue freeze-out*
+> *Tenth Avenue freeze-out*
 
 There’s music on the radio, but it’s not his. Bruce is a long way down a dark, cold and lonely path, and it looks like he might need some back-up.
 
 The emotional heart of the song arrives as a primal scream:
 
-*And I’m all alone, I’m all alone!*
+> *And I’m all alone, I’m all alone!*
 
 ….and a voice whispers in his ear:
 
-*And, kid, you better get the picture!*
+> *And, kid, you better get the picture!*
 
 But Bruce doesn’t acknowledge it. Instead, he howls:
 
-*And I’m on my own, I’m on my own*
-*And I can’t go home*
+> *And I’m on my own, I’m on my own*
+> *And I can’t go home*
 
 It’s funny: because it’s a myth, we tend to think of “Tenth Avenue Freeze-Out” as a heroic journey in which our hero ultimately realizes he needs his band of merry men in order to succeed. But if you listen closely, he only realizes that in retrospect.
 
 Regardless of whether it’s literally Clarence or just a voice in Bruce’s own head telling him to get the picture, he doesn’t. Only after Clarence joins the band and magic ensues does Bad Scooter understand:
 
-*When that change was made uptown*
-*And the Big Man joined the band*
-*From the coastline to the city*
-*All the little pretties raise their hands*
-*I’m gonna sit back right easy and laugh*
-*When Scooter and the Big Man bust this city in half, oh*
+> *When that change was made uptown*
+> *And the Big Man joined the band*
+> *From the coastline to the city*
+> *All the little pretties raise their hands*
+> *I’m gonna sit back right easy and laugh*
+> *When Scooter and the Big Man bust this city in half, oh*
 
-*Tenth Avenue freeze-out!*
+> *Tenth Avenue freeze-out!*
 
 “Tenth Avenue Freeze-Out” is often regarded as the story of Bruce and Clarence, and there’s some merit to that interpretation. But the song is bigger than that: it’s the story of the E Street Band, and how Bruce discovered the power of fraternity.
 

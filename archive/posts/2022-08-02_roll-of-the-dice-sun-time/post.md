@@ -10,26 +10,26 @@ Our subject today is the faded entry at the very bottom of the table of contents
 
 Bruce’s lyrics are just a little bit fuzzy in the scan–enough to obfuscate several words throughout (particularly in the third verse). However, enough is legible for us to get a sense of “Sun Time” as a tender bordering on sappy love song that was no doubt intended for Bruce’s acoustic performances.
 
-*Like a forest after the rain*
-*As teardrops of sunlight pushes the ???*
-*Open like the sea after the storm ???*
-*And tranquility once again starts to reign*
+> *Like a forest after the rain*
+> *As teardrops of sunlight pushes the ???*
+> *Open like the sea after the storm ???*
+> *And tranquility once again starts to reign*
 
-*Like a story that was never told*
-*Like a mountain stream with waters running so cold*
-*Like a flower wet with the spring*
-*Like the silly songs that I sing*
+> *Like a story that was never told*
+> *Like a mountain stream with waters running so cold*
+> *Like a flower wet with the spring*
+> *Like the silly songs that I sing*
 
-*The earth with all its beauty came to bare*
-*??? ??? through the silk thin strands of your honeyed hair*
-*and I feel ??? ??? knowing that your ???*
-*The thought that you may go away*
-*Clouds my tender years with ???*
+> *The earth with all its beauty came to bare*
+> *??? ??? through the silk thin strands of your honeyed hair*
+> *and I feel ??? ??? knowing that your ???*
+> *The thought that you may go away*
+> *Clouds my tender years with ???*
 
-*‘Cause I can’t see without your eyes*
-*And I can’t touch without your hands*
-*And I can’t live without your life*
-*And I can’t love without your love*
+> *‘Cause I can’t see without your eyes*
+> *And I can’t touch without your hands*
+> *And I can’t live without your life*
+> *And I can’t love without your love*
 
 There’s not a lot to analyze here, due both to the illegible lines and the relatively straightforward nature metaphor as stand-in for his love interest. Again, though, the kid was just eighteen and only beginning to experiment with writing about love. Bigger and better songs lay ahead.
 

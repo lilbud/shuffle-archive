@@ -1,4 +1,4 @@
-*God have mercy on the man who doubts what he's sure of.*
+> *God have mercy on the man who doubts what he's sure of.*
 
 That’s the single greatest last line of any rock song ever (IMO, anyway).
 
@@ -12,53 +12,53 @@ I wouldn't really understand the song for several years—until I was as far int
 
 The song starts unambiguously, on the narrator's wedding day, as the newlyweds share their first moment together… and the first note of mystery sounds:
 
-*I hold you in my arms as the band plays*
+> *I hold you in my arms as the band plays*
  *What are those words whispered baby just as you turn away?*
 
 The whispered words are probably innocuous: "I love you," most likely. Or maybe "I'll be right back." But on a day when two people are supposed to be one, when you're sure you know how your partner thinks and feels, it probably registers just a bit when she pulls away and you don't fully understand why.
 
-*I saw you last night out on the edge of town*
+> *I saw you last night out on the edge of town*
  *I wanna read your mind to know just what I’ve got in this new thing I’ve found*
 
 And now the mystery deepens. What was she doing out there late at night? For that matter, what was *he* doing? Does the couple really share as much as they think they do?
 
 (Literary device note: did you catch the "edge of town" reference? It’s a sly callback to "[Darkness on the Edge of Town](https://estreetshuffle.com/index.php/2018/04/10/roll-of-the-dice-darkness-on-the-edge-of-town/)," a way to imply impending darkness without literally stating it. Also, for all we know, the couple lives at the edge of town, but Bruce knows that the listener invests in the point-of-view character so that he becomes central, and therefore the edge of town is far away. All in all, a very slick trick: Bruce conveys a lot of information in that one line.)
 
-*So tell me what I see when I look in your eyes*
+> *So tell me what I see when I look in your eyes*
  *Is that you baby or just a brilliant disguise*
 
 And now the first central conceit (there are two) of the song is established: can we ever truly know someone except for the ways they wish to be known?
 
 The journey continues from intrigue to suspicion:
 
-*I heard somebody call your name from underneath our willow*
+> *I heard somebody call your name from underneath our willow*
  *I saw something tucked in shame underneath your pillow*
 
 The imagery is significant in its intimacy: if his wife is seeing someone else, it's not out on the edge of town now—it's from underneath *their tree*, a place obviously full of meaning and significance for them. And whatever it is she hides isn't locked away, but rather underneath her pillow in the bed that they share, seemingly accessible but unavailable, hidden in the most intimate of places.
 
-*Well I’ve tried so hard baby but I just can’t see*
+> *Well I’ve tried so hard baby but I just can’t see*
  *What a woman like you is doing with me*
 
 …and now we have the final ingredient in this doubt cocktail: insecurity. He's married out of his league and realize that [with every wish, there comes a curse](https://estreetshuffle.com/index.php/2018/01/18/roll-of-the-dice-with-every-wish/).
 
-*Now look at me baby, struggling to do everything right*
+> *Now look at me baby, struggling to do everything right*
  *And then it all falls apart oh when out go the lights*
 
 There's frustration and resentment building, but towards whom? Her? Himself?
 
 What happens when the lights go out? (It's possible we find out years later in "[When the Lights Go Out](https://estreetshuffle.com/index.php/2021/01/23/roll-of-the-dice-when-the-lights-go-out/)," written not long after "Brilliant Disguise.") Has the couple drifted apart? Has the bedroom heat cooled? Or is that all that's left? It's unclear, but it doesn't matter: it's the lack of recognition that haunts the protagonist.
 
-*I’m just a lonely pilgrim, I walk this world in wealth*
+> *I’m just a lonely pilgrim, I walk this world in wealth*
 
 When the song came out, rumors and speculation immediately started about the state of Bruce's marriage to Julianne Phillips. Bruce always denied that the song was autobiographical, but even if you accept the idea of someone writing about an experience so intimate without ever experiencing it, a detail like walking the world in wealth as a lonely pilgrim sure does conjure up the image of a successful touring rock star. In any event, the pair divorced not long after the song came out.
 
 But now, we come to central truth number two:
 
-*I want to know if it’s you I don’t trust, ’cause I damn sure don’t trust myself*
+> *I want to know if it’s you I don’t trust, ’cause I damn sure don’t trust myself*
 
 …and there it is. That's the sleeper line of the song. "God have mercy…" may drive the nail home, but this is the real crux of it: does the narrator suspect his wife correctly, or is he just projecting his own fears and insecurities? Is she distancing himself from him, or is he distancing himself from her? Either way, the result is the same:
 
-*Now you play the loving woman, I’ll play the faithful man*
+> *Now you play the loving woman, I’ll play the faithful man*
  *But just don’t look too close into the palm of my hand*
  *Well we stood at the altar, the gypsy swore our future was right*
  *But come the wee, wee hours… maybe, baby, the gypsy lied*
@@ -67,14 +67,14 @@ But now, we come to central truth number two:
 
 Now Bruce flips the chorus from a question to a warning:
 
-*So when you look at me you better look hard and look twice*
+> *So when you look at me you better look hard and look twice*
  *Is that me baby or just a brilliant disguise*
 
 Am I the person you think I am? Do I let you see my true self? Do I shield you from my fears and doubts? Or am I protecting myself?
 
 …and then we come to that devastating, chilling last couplet, delivered almost as an afterthought as the song fades out:
 
-*Tonight our bed is cold*
+> *Tonight our bed is cold*
  *I’m lost in the darkness of our love*
  *God have mercy on the man who doubts what he’s sure of.*
 

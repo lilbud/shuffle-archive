@@ -16,7 +16,7 @@ What did fascinate Bruce was the idea of consequences. In that same interview, F
 
 And so in 1976, Bruce stared that scary question in the face and refused to flinch.
 
-*And then what?*
+> *And then what?*
 
 Answering that question led him away from his romantic *Born to Run* songwriting and opened a darker, realistic vein that produced “The Promise,” “[Something in the Night](https://estreetshuffle.com/index.php/2021/05/28/roll-of-the-dice-something-in-the-night/),” and what still stands as one of his crowning songwriting achievements: “Racing in the Street.”
 
@@ -34,13 +34,13 @@ It was a huge leap forward in Bruce’s songwriting, but there was still one big
 
 In “Racing in the Street,” the car still offers escape, but only for and in the moment. The ’69 Chevy is a drug that offers a short-lived high to distract from the long, dull sameness of his life.
 
-*I got a ’69 Chevy with a 396, fuelie heads and a Hurst on the floor*
-*She’s waiting tonight down in the parking lot outside the 7-Eleven store*
-*Me and my partner Sonny built her straight out of scratch and he rides with me from town to town*
-*We only run for the money, got no strings attached, we shut ’em up and then we shut ’em down*
+> *I got a ’69 Chevy with a 396, fuelie heads and a Hurst on the floor*
+> *She’s waiting tonight down in the parking lot outside the 7-Eleven store*
+> *Me and my partner Sonny built her straight out of scratch and he rides with me from town to town*
+> *We only run for the money, got no strings attached, we shut ’em up and then we shut ’em down*
 
-*Tonight, tonight the strip’s just right, I wanna blow ’em off in my first heat*
-*Summer’s here and the time is right for racing in the street*
+> *Tonight, tonight the strip’s just right, I wanna blow ’em off in my first heat*
+> *Summer’s here and the time is right for racing in the street*
 
 We feel that *sameness* throughout “Racing in the Street,” from its languid rhythm (Max can’t even keep the pace constant during the otherwise gorgeous bridge–*stick!*) to its torpid riff, lifted with a wink from The Crystals “[Then He Kissed Me](https://estreetshuffle.com/index.php/2020/12/03/cover-me-then-she-kissed-me/).” Sameness, impotence, and a melodic ennui.
 
@@ -60,23 +60,23 @@ Despite his penchant for updating his lyrics over time, Bruce never did fix his 
 
 In any event, that first verse is pure escapist fantasy, Act One of three with no hint of the darkness we glimpse in the second act.
 
-*We take all the action we can meet and we cover all the northeast states*
-*When the strip shuts down we run ’em in the street from the fire roads to the interstate*
-*Now some guys they just give up living and start dying little by little, piece by piece*
-*Some guys come home from work and wash up and go racing in the street*
+> *We take all the action we can meet and we cover all the northeast states*
+> *When the strip shuts down we run ’em in the street from the fire roads to the interstate*
+> *Now some guys they just give up living and start dying little by little, piece by piece*
+> *Some guys come home from work and wash up and go racing in the street*
 
-*Tonight, tonight the strip’s just right, I wanna blow ’em all out of their seats*
-*We’re calling out around the world, we’re going racing in the street*
+> *Tonight, tonight the strip’s just right, I wanna blow ’em all out of their seats*
+> *We’re calling out around the world, we’re going racing in the street*
 
 That second couplet is the key to the song, and it took Bruce a while to get there. You might have noticed that in the original piano version above, he sings:
 
-*Now some guys they do it for the money, other guys do it ’cause they don’t know what else they can do*
-*And me I stand there with nothing, I got tired of waking up in a world somebody else owns*
+> *Now some guys they do it for the money, other guys do it ’cause they don’t know what else they can do*
+> *And me I stand there with nothing, I got tired of waking up in a world somebody else owns*
 
 Those lines were a bit too on the nose, explicitly revealing that our narrator turns to racing out of despair or frustration rather than the more nuanced lines he’d finally land on:
 
-*Now some guys they just give up living and start dying little by little, piece by piece*
-*Some guys come home from work and wash up and go racing in the street*
+> *Now some guys they just give up living and start dying little by little, piece by piece*
+> *Some guys come home from work and wash up and go racing in the street*
 
 What’s brilliant about these lines is that they can be read either as complements or contrasts, and they work either way. Does our narrator go racing every night *because* he’s dying by degrees, or in defiance of it? Decide for yourself; my money’s on both.
 
@@ -84,17 +84,17 @@ What’s important here is that no matter how you read those lines, it’s clear
 
 There’s an instrumental bridge here, inspired by and similar to The Beach Boys’ “Don’t Worry, Baby” — almost certainly another deliberately sly choice. In that song, a reluctant racer dreads the ritual and comes alive only when he’s with his girl, who reassures him they’ll be okay. Bruce immediately subverts The Beach Boys’ storyline in his final verse.
 
-*I met her on the strip three years ago in a Camaro with this dude from L.A.*
-*I blew that Camaro off my back and drove that little girl away*
-*But now there’s wrinkles ’round my baby’s eyes and she cries herself to sleep at night*
-*When I come home the house is dark, she sighs, “Baby did you make it all right?”*
-*She sits on the porch of her daddy’s house but all her pretty dreams are torn*
-*She stares off alone into the night with the eyes of one who hates for just being born*
-*For all the shut down strangers and hot rod angels rumbling through this promised land*
-*Tonight my baby and me we’re gonna ride to the sea and wash these sins off our hands*
+> *I met her on the strip three years ago in a Camaro with this dude from L.A.*
+> *I blew that Camaro off my back and drove that little girl away*
+> *But now there’s wrinkles ’round my baby’s eyes and she cries herself to sleep at night*
+> *When I come home the house is dark, she sighs, “Baby did you make it all right?”*
+> *She sits on the porch of her daddy’s house but all her pretty dreams are torn*
+> *She stares off alone into the night with the eyes of one who hates for just being born*
+> *For all the shut down strangers and hot rod angels rumbling through this promised land*
+> *Tonight my baby and me we’re gonna ride to the sea and wash these sins off our hands*
 
-*Tonight, tonight the highway’s bright, out of our way mister you best keep*
-*‘Cause summer’s here and the time is right for racing in the street*
+> *Tonight, tonight the highway’s bright, out of our way mister you best keep*
+> *‘Cause summer’s here and the time is right for racing in the street*
 
 Those are devastatingly powerful lines. If there is tragedy to be found in “Racing in the Street” it’s in the form of the narrator’s love interest. Street racing may have brought them together in their youth, but now it’s driven a wedge between them.
 

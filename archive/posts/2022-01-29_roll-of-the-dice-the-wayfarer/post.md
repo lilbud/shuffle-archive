@@ -16,35 +16,35 @@ If “The Wayfarer” is where Bruce starts to play his narrative hand, it’s a
 
 There are some narrative similarities between the two songs, too. Both “Galveston” and “The Wayfarer” feature narrators looking back towards home and the love they left far behind. However, Campbell’s narrator is a soldier called away to a foreign land by a sense of duty. Bruce’s character has no such nobility–he’s just moving ever forward, as Bruce’s guitar counts the white lines in the road from the opening bars.
 
-*It’s the same sad story, love and glory going ’round and ’round*
-*It’s the same old cliché, a wanderer on his way, slipping from town to town*
-*Some find peace here on the sweet streets, the sweet streets of home*
-*Where kindness falls and your heart calls for a permanent place of your own*
+> *It’s the same sad story, love and glory going ’round and ’round*
+> *It’s the same old cliché, a wanderer on his way, slipping from town to town*
+> *Some find peace here on the sweet streets, the sweet streets of home*
+> *Where kindness falls and your heart calls for a permanent place of your own*
 
-*I’m a wayfarer, baby, I drift from town to town*
-*When everyone’s asleep and the midnight bells sound*
-*My wheels are hissing up the highway, spinning ’round and ’round*
+> *I’m a wayfarer, baby, I drift from town to town*
+> *When everyone’s asleep and the midnight bells sound*
+> *My wheels are hissing up the highway, spinning ’round and ’round*
 
 There’s also a bit of meta-commentary on display here. Bruce winks at his penchant for spinning tales of wanderers and nomads. *It’s the same sad story, the same old cliché.* But the last couplet of the first verse introduces some deliberate ambiguity. *Some* find peace in their hometown, our narrator tells us, implying that he’s not one of them. And yet, that last line–*where kindness falls and your heart calls for a permanent place of your own*–is too empathetic to come from the imagination of someone who hasn’t felt those feelings himself.
 
 He may be a wayfarer, but we can tell he still feels the tug of a far-off home, specifically the first home he shared with his lost or left love.
 
-*You start out slow in a sweet little bungalow, something two can call home*
-*Then rain comes falling, the blues come calling, and you’re left with a heart of stone*
-*Some folks are inspired sitting by the fire, slippers tucked under the bed*
-*But when I go to sleep I can’t count sheep for the white lines in my head*
+> *You start out slow in a sweet little bungalow, something two can call home*
+> *Then rain comes falling, the blues come calling, and you’re left with a heart of stone*
+> *Some folks are inspired sitting by the fire, slippers tucked under the bed*
+> *But when I go to sleep I can’t count sheep for the white lines in my head*
 
-*I’m a wayfarer, baby, I roam from town to town*
-*When everyone’s asleep and the midnight bells sound*
-*My wheels are hissing up the highway, spinning ’round and ’round*
+> *I’m a wayfarer, baby, I roam from town to town*
+> *When everyone’s asleep and the midnight bells sound*
+> *My wheels are hissing up the highway, spinning ’round and ’round*
 
 There’s a nice lyrical link in the first couplet to “[Tucson Train](https://estreetshuffle.com/index.php/2020/05/25/roll-of-the-dice-tucson-train/),” the song that immediately follows “The Wayfarer” on the album. *Then rain comes falling/tired of the pills and the rain.* Just like “Hitch Hikin'” and “The Wayfarer” feature itinerant narrators, “The Wayfarer” and “Tucson Train” feature narrators who leave when life gets hard–but where the protagonist of “Tucson Train” does the work to reinvent himself and rekindles is relationship, our wayfarer just keeps on leaving.
 
 He can leave, but he can’t escape. He may have left her behind, but his love haunts his thoughts. As he gives into the tide of time and memory, the song opens up. walls come down, and emotions come flooding in.
 
-*Where are you now*
-*Where are you now*
-*Where are you now*
+> *Where are you now*
+> *Where are you now*
+> *Where are you now*
 
 But something unexpected happens after the bridge. We expect the narrator to realize that his wanderlust is just a cover for his flight instinct, that he screwed up and ruined something good, and that perhaps he might even attempt to go home again–emotionally if not geographically.
 

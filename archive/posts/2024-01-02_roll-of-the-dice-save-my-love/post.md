@@ -18,8 +18,8 @@ We don’t know whether Bruce remembered the song at all. We *do* know that he a
 
 There were only three complete couplets in that ’76 video, and one of them was:
 
-*So turn up the radio, ’cause I love you the most*
-*We’re linking up the airwaves, we’re travelling coast to coast*
+> *So turn up the radio, ’cause I love you the most*
+> *We’re linking up the airwaves, we’re travelling coast to coast*
 
 And something about that phrase “linking up the airwaves” resonated with Bruce. It suggested two lovers, separated by miles but united by listening to the same song at the exact same time.
 
@@ -29,7 +29,7 @@ Bruce latched onto that notion and rewrote and titled the song. The result becam
 
 Years later, during a rare live outing for “Save My Love,” Bruce gave fans some insight into the song’s modern-day inspiration:
 
-*“I always remember the first time I heard one of my own songs on the radio. I was in Connecticut, and I was standing on a street corner and a guy pulled up–we were playing at a local college–had his window rolled down, and i could hear “Spirit in the Night” on the radio. One of the top ten moments of my life… I remember standing there thinking about all the people that were listening to that song at that moment, and there was something… something happens in the air from all those souls converging around one idea, at one moment. That’s what’s happening here tonight. So… I think this is what I wrote about in this song.”*
+> *“I always remember the first time I heard one of my own songs on the radio. I was in Connecticut, and I was standing on a street corner and a guy pulled up–we were playing at a local college–had his window rolled down, and i could hear “Spirit in the Night” on the radio. One of the top ten moments of my life… I remember standing there thinking about all the people that were listening to that song at that moment, and there was something… something happens in the air from all those souls converging around one idea, at one moment. That’s what’s happening here tonight. So… I think this is what I wrote about in this song.”*
 
 [Watch on Youtube: Save My Love - Springsteen - BB&T Arena Sunrise, FL - April 29, 2014](https://www.youtube.com/watch?v=onmmKwufA0E)
 
@@ -37,31 +37,31 @@ Note the disclaimer–“I *think* this is what I wrote about.” Whatever inspi
 
 In a time before mobile phones, before streaming music services, a handful of radio stations facilitated the only semblance of on-line community. Except you had to take it on faith that someone else was listening at the same time you were.
 
-*Now there’s something coming through the air that softly reminds me*
-*Tonight I’ll park out on the hill and wait until they find me*
-*Here slipping through the ether, a voice is coming through*
-*So keep me in your heart tonight and I’ll save my love for you*
+> *Now there’s something coming through the air that softly reminds me*
+> *Tonight I’ll park out on the hill and wait until they find me*
+> *Here slipping through the ether, a voice is coming through*
+> *So keep me in your heart tonight and I’ll save my love for you*
 
 Bruce’s long-distance Romeo sends a silent message out to his girl, pledging and pleading for fidelity, relying on the power of radio to keep their emotional connection strong and synchronized.
 
-*So turn up your radio and darling dial me in close*
-*We’re riding on the airwaves and we’re traveling coast to coast*
-*Over river and highway your voice comes clear and true*
-*Though we’re far apart tonight, I’ll save my love for you*
+> *So turn up your radio and darling dial me in close*
+> *We’re riding on the airwaves and we’re traveling coast to coast*
+> *Over river and highway your voice comes clear and true*
+> *Though we’re far apart tonight, I’ll save my love for you*
 
 In the bridge, our hero surrenders to the power of the music and imagines his girl in his arms, a vision almost made real by the music.
 
-*Hold me in your arms and our doubts won’t break us*
-*If we open up our hearts, love won’t forsake us*
-*Let’s let the music take us and carry us home*
+> *Hold me in your arms and our doubts won’t break us*
+> *If we open up our hearts, love won’t forsake us*
+> *Let’s let the music take us and carry us home*
 
 In the final verse, whatever song is playing on the radio exerts such an intense pull on the narrator that he can no longer resist it. No longer content to simply imagine themselves linked by listening, he wills love to follow the radio signal to his love, and as the song concludes we’re left to wonder whether he sets his car in motion toward her as well.
 
-*There’s a prayer coming through the air like a shot straight through my heart*
-*Tearing open the evening sky, tearing me apart*
-*Now I’ll ride that signal down the line till I’m home again with you*
-*So turn up your radio and I’ll save my love for you*
-*Turn up your radio and I’ll save my love for you*
+> *There’s a prayer coming through the air like a shot straight through my heart*
+> *Tearing open the evening sky, tearing me apart*
+> *Now I’ll ride that signal down the line till I’m home again with you*
+> *So turn up your radio and I’ll save my love for you*
+> *Turn up your radio and I’ll save my love for you*
 
 ---
 

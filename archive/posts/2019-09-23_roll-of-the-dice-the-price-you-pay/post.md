@@ -38,16 +38,16 @@ Here’s an early studio version of “The Price You Pay,” recorded in June 19
 
 I believe “The Price You Pay” is Bruce’s earliest attempt to come to terms with his decision to avoid serving in the war. He had a vision of his life in front of him, along with clear aspirations and ambitions–and he made a choice to pursue rather than risk his ability to achieve them.
 
-*You make up your mind, you choose the chance you take*
-*You ride to where the highway ends and the desert breaks*
-*Out on to an open road you ride until the day*
-*You learn to sleep at night with the price you pay*
+> *You make up your mind, you choose the chance you take*
+> *You ride to where the highway ends and the desert breaks*
+> *Out on to an open road you ride until the day*
+> *You learn to sleep at night with the price you pay*
 
 We can view this first verse as either literal (the on-the-road life of a touring musician) or metaphorical–the highway’s end representing the end of childhood and the onset of adulthood, with all of the costs and compromises that entails. Either way, the song reveals Bruce attempting to come to terms with the cost of his life choices.
 
-*Now with their hands held high, they reached out for the open skies*
-*And in one last breath they built the roads they’d ride to their death*
-*Driving on through the night, unable to break away*
+> *Now with their hands held high, they reached out for the open skies*
+> *And in one last breath they built the roads they’d ride to their death*
+> *Driving on through the night, unable to break away*
 *From the **everlasting** pull of the price you pay*
 
 It’s interesting to note that Bruce switches from the second person in the first verse to the third person in the second verse. Readers of this blog know that I often remind that Bruce does very little by accident, but I wonder if this might be an exception. Whether it is or isn’t, the effect is to suggest that Bruce is really thinking in the first person but isn’t quite ready to go there–so he projects instead.
@@ -60,34 +60,34 @@ But lyrically, the second verse is remarkable primarily for its imagery: Bruce p
 
 The chorus is simple and direct, and it requires no analysis.
 
-*Oh the price you pay, oh the price you pay*
-*Now you can’t walk away from the price you pay*
+> *Oh the price you pay, oh the price you pay*
+> *Now you can’t walk away from the price you pay*
 
 The third verse is where we get to the heart of “The Price You Pay,” but it’s also the element of the song that has caused consternation among fans since early on the River Tour:
 
-*Some say forget the past, and some say don’t look back*
-*But for every breath you take, you’ll leave a track*
-*And though it don’t seem fair for every smile that breaks*
-*A tear must fall somewhere for the price you pay*
+> *Some say forget the past, and some say don’t look back*
+> *But for every breath you take, you’ll leave a track*
+> *And though it don’t seem fair for every smile that breaks*
+> *A tear must fall somewhere for the price you pay*
 
 And here it is, laid bare: the reckoning of a man fully coming to terms with the impact of his own actions and decisions, the knowledge that for all the joy he takes and gives to the world, there’s at least one family out there who may have experienced an irreplaceable loss as the result of his ambition.
 
 The next verse is the one that tends to draw the most attention from Springsteen scholars, presumably for its overt Bible references. I’ve read several arguments that “The Price You Pay” is inspired by the parable of Moses and the promised land, but I’m skeptical.
 
-*Little girl down on the strand with that pretty little baby in your hands*
-*Do you remember the story of the promised land?*
-*How we crossed the desert sands and could not enter the chosen land*
-*On the banks of the river he stayed to face the price you pay*
+> *Little girl down on the strand with that pretty little baby in your hands*
+> *Do you remember the story of the promised land?*
+> *How we crossed the desert sands and could not enter the chosen land*
+> *On the banks of the river he stayed to face the price you pay*
 
 To me, it seems that Bruce is simply saying that he’ll never be able to fully appreciate his life because of the weight of a fateful decision. Moses was barred from entering the promised land for his sin of faithlessness; in “The Price You Pay,” Bruce is punishing himself.
 
 Bruce may also be writing about the emotional distance and isolation he’d allowed his work ethic to impose upon his life. He was years away from the self-awareness that therapy would help him realize, but his contemporaneous songwriting sometimes hinted at a subconscious awareness that his on-stage success might be coming at the expense of his personal life.
 
-*So let the games start, you better run you little wild heart*
-*You can run through all the nights and all the days*
-*But just across the county line, a stranger passing through put up a sign*
-*That counts the men fallen away to the price you pay*
-*And girl before the end of the day I’m gonna tear it down and throw it away*
+> *So let the games start, you better run you little wild heart*
+> *You can run through all the nights and all the days*
+> *But just across the county line, a stranger passing through put up a sign*
+> *That counts the men fallen away to the price you pay*
+> *And girl before the end of the day I’m gonna tear it down and throw it away*
 
 This last verse is one of the most dramatic in Bruce’s catalog, the last line voiced in both desperation and futility. And again, the imagery works whether taken literally (a memorial to fallen soldiers) or metaphorically (a reminder of the cost one doesn’t want to admit one pays, a reminder that you can never look away from).
 
@@ -107,17 +107,17 @@ When Bruce pulled the album back, expanded it, and released it as a double album
 
 Instead of:
 
-*Some say forget the past, and some say don’t look back*
-*But for every breath you take, you’ll leave a track*
-*And though it don’t seem fair for every smile that breaks*
-*A tear must fall somewhere for the price you pay*
+> *Some say forget the past, and some say don’t look back*
+> *But for every breath you take, you’ll leave a track*
+> *And though it don’t seem fair for every smile that breaks*
+> *A tear must fall somewhere for the price you pay*
 
 We now have:
 
-*Now they’d come so far and they’d waited so long*
-*Just to end up caught in a dream where everything goes wrong*
-*Where the dark of night holds back the light of the day*
-*And you’ve got to stand and fight for the price you pay*
+> *Now they’d come so far and they’d waited so long*
+> *Just to end up caught in a dream where everything goes wrong*
+> *Where the dark of night holds back the light of the day*
+> *And you’ve got to stand and fight for the price you pay*
 
 What’s *that* about?
 
@@ -155,7 +155,7 @@ Anything, that is, except for “The Price You Pay.”
 
 It’s not as if fans didn’t request it–signs for it had become commons sights at Bruce’s concerts. Bruce even acknowledged it in a *Backstreets* interview shortly before the Magic Tour:
 
-*“I have no idea why [people have been asking for it]–it’s become a thing just because I haven’t played it. If I had played it, nobody would give much of a damn if they heard it or not!”*
+> *“I have no idea why [people have been asking for it]–it’s become a thing just because I haven’t played it. If I had played it, nobody would give much of a damn if they heard it or not!”*
 
 For a straight-shooting guy, I think Bruce was more than a bit disingenuous in that interview. Sure, some fans requested it for its rarity factor–but I also think most fans gravitate to it for its emotional power. Who among us can’t relate to the notion that we carry the weight of our life choices with us as we go through life?
 

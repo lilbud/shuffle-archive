@@ -16,21 +16,21 @@ Once Krauss and Welch returned the song to popularity, the floodgates opened, an
 
 The song’s popularity is tied to its comforting lyrics, reassuring the suffering that no matter their travails on this earth, no matter how much their circumstances might seem like a prison–in the end, we all fly away.
 
-*Some bright morning when this life is over*
-*I’ll fly away*
-*To that home on God’s celestial shore*
+> *Some bright morning when this life is over*
+> *I’ll fly away*
+> *To that home on God’s celestial shore*
 
-*I’ll fly away*
+> *I’ll fly away*
 
-*I’ll fly away, oh glory*
-*I’ll fly away in the morning*
-*When I die, Hallelujah by and by*
-*I’ll fly away*
+> *I’ll fly away, oh glory*
+> *I’ll fly away in the morning*
+> *When I die, Hallelujah by and by*
+> *I’ll fly away*
 
-*When the shadows of this life have gone*
-*I’ll fly away*
-*Like a bird from these prison walls I’ll fly*
-*I’ll fly away*
+> *When the shadows of this life have gone*
+> *I’ll fly away*
+> *Like a bird from these prison walls I’ll fly*
+> *I’ll fly away*
 
 Unsurprisingly, “I’ll Fly Away” is often performed at funerals and memorial services–perhaps most memorably by Aretha Franklin in tribute to Princess Diana.
 

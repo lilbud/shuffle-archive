@@ -79,10 +79,10 @@ Bruce isn’t done yet though, because the second line features a quadruple inte
 
 If you’re wondering anyway: Bruce is the snappin’, clappin’, slingshottin’ all-hot half-shot Scott getting a hand job from his fleshpot mascot and blue balls from his forget-me-not.
 
-*And she was blinded by the light*
-*Oh, cut loose like a deuce another runner in the night*
-*Blinded by the light*
-*She got down but she never got tight, but she’ll make it alright*
+> *And she was blinded by the light*
+> *Oh, cut loose like a deuce another runner in the night*
+> *Blinded by the light*
+> *She got down but she never got tight, but she’ll make it alright*
 
 And there’s our famous chorus. Although he uses it first to describe his love interests, the titular phrase is Bruce’s way of saying he was in it for the living. When you open your eyes wide enough to experience all that life has to offer, the light can be overpoweringly bright–and that just means you’re doing it right. We’ll return to this thought at song’s end, along with a certain lyrical alteration that gave Bruce his first and only Number One single.
 
@@ -95,25 +95,25 @@ As the song progresses, Bruce’s lyrics get increasingly impressionistic.
 
 Once again, Bruce threads a single internal rhyme scheme–this time a baker’s dozen–as our hero surveils the authority figures standing between him and a dance with his moonstone that would surely send him home limping in discomfort.
 
-*Some silicone sister with her manager’s mister told me I got what it takes*
-*She said, “I’ll turn you on sonny, to something strong if you’ll play that song with the funky break”*
+> *Some silicone sister with her manager’s mister told me I got what it takes*
+> *She said, “I’ll turn you on sonny, to something strong if you’ll play that song with the funky break”*
 
 I’m giving up on the bold-type at this point, because there’s just too much going on. But check out that first line that features a pair of internal rhymes, each within its own alliterative pairing. Wow! It’s almost a triple feat, actually, if Bruce could have figured out a way to match *some silicone sister* with one more word to make *manager’s mister* a full alliterative triple of its own.
 
 In any event, as Bruce likes to point out, his silicone sister is a candidate for the first appearance of breast enhancements in popular music. She might also be at least loosely based on his former girlfriend who used to invite A&R reps to scout her boyfriend’s band only to sleep with them instead.
 
-*And Go-cart Mozart was checkin’ out the weather chart to see if it was safe to go outside*
-*And little Early-Pearly came by in her curly-wurly and asked me if I needed a ride*
-*Oh, some hazard from Harvard was skunked on beer playin’ backyard bombardier*
-*Yes and Scotland Yard was trying hard, they sent a dude with a calling card who said, “Do what you like, but don’t do it here”*
-*Well, I jumped up, turned around, spit in the air, fell on the ground*
-*Asked him which was the way back home*
-*He said, “Take a right at the light, keep goin’ straight until night, and then, boys, you’re on your own”*
+> *And Go-cart Mozart was checkin’ out the weather chart to see if it was safe to go outside*
+> *And little Early-Pearly came by in her curly-wurly and asked me if I needed a ride*
+> *Oh, some hazard from Harvard was skunked on beer playin’ backyard bombardier*
+> *Yes and Scotland Yard was trying hard, they sent a dude with a calling card who said, “Do what you like, but don’t do it here”*
+> *Well, I jumped up, turned around, spit in the air, fell on the ground*
+> *Asked him which was the way back home*
+> *He said, “Take a right at the light, keep goin’ straight until night, and then, boys, you’re on your own”*
 
-*And now in Zanzibar a shootin’ star was ridin’ in a sidecar hummin’ a lunar tune*
-*Yes, and the avatar said, “Blow the bar but first remove the cookie jar we’re gonna teach those boys to laugh too soon”*
-*And some kidnapped handicap was complainin’ that he caught the clap from some mousetrap he bought last night*
-*Well I unsnapped his skull cap, between his ears I saw a gap and figured he’d be all right*
+> *And now in Zanzibar a shootin’ star was ridin’ in a sidecar hummin’ a lunar tune*
+> *Yes, and the avatar said, “Blow the bar but first remove the cookie jar we’re gonna teach those boys to laugh too soon”*
+> *And some kidnapped handicap was complainin’ that he caught the clap from some mousetrap he bought last night*
+> *Well I unsnapped his skull cap, between his ears I saw a gap and figured he’d be all right*
 
 Bruce admits to having no idea who or what the “go-cart Mozart” line is about, or for that matter much of the last verse. (“Rhyming dictionary,” he shrugged in a 2003 performance.) Early Pearly, however, was another notch in his belt, and although it’s one of the song’s least coded metaphors (I’ll let you work out *mousetrap* on your own) Bruce confesses some experience with professional sex workers.
 
@@ -123,8 +123,8 @@ At best, “Blinded” is a boardwalk mural and a songwriter’s sandbox, and on
 
 However, Bruce makes sure to slip in at least one key takeaway for the listener, and it comes at the end of the song:
 
-*Mama always told me not to look into the sights of the sun*
-*Whoa, but mama that’s where the fun is*
+> *Mama always told me not to look into the sights of the sun*
+> *Whoa, but mama that’s where the fun is*
 
 If there’s a moral to “Blinded by the Light,” here it is: excitement often comes wrapped in risk, and sometimes life is most thrilling when we’re out on a trapeze without a net. It’s the carpe diem clarion call of youth.
 

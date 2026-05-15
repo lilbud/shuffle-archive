@@ -10,51 +10,51 @@ But we know he performed it, because we have the very well preserved recording o
 
 It’s not one of his best compositions, even in comparison to his other original songs from that period. The metaphors are spare and simple, and the language is often repetitive:
 
-*And when the children return to their mothers*  
-*When my lover goes home to her lover*  
-*She pulls tight around me just like my covers*  
-*But you know loneliness is such a bad lover*
+> *And when the children return to their mothers*
+> *When my lover goes home to her lover*
+> *She pulls tight around me just like my covers*
+> *But you know loneliness is such a bad lover*
 
 …ouch. That’s a really weak verse (although a good last line).
 
 “Like a Stranger” is more notable for its theme–a young Bruce Springsteen coming to grips with the inner workings of relationships–than its artfulness, so I’ll keep my analysis high level.
 
-*Well no matter where I run, no matter where I hide*  
-*Like a bloodhound on the trail of a convict lost in flight*  
-*She sees me in the daytime, mama, she kiss me every night*  
-*She thrills me in the night-shine, mama, and chills my sheets at night*
+> *Well no matter where I run, no matter where I hide*
+> *Like a bloodhound on the trail of a convict lost in flight*
+> *She sees me in the daytime, mama, she kiss me every night*
+> *She thrills me in the night-shine, mama, and chills my sheets at night*
 
-*Yes and what I wouldn’t give*  
-*Oh darlin’ what I would not give*  
-*Baby what I wouldn’t give to be able to live*
+> *Yes and what I wouldn’t give*
+> *Oh darlin’ what I would not give*
+> *Baby what I wouldn’t give to be able to live*
 
-*Like a stranger, no woman, no home*  
-*Like a stranger, no cares but my own*  
-*Like a stranger, a different face, a different name*  
-*Like a stranger, a different place, a different game*  
-*Like a stranger, a different touch, a different smell*  
-*Cause then you would not know me so well*
+> *Like a stranger, no woman, no home*
+> *Like a stranger, no cares but my own*
+> *Like a stranger, a different face, a different name*
+> *Like a stranger, a different place, a different game*
+> *Like a stranger, a different touch, a different smell*
+> *Cause then you would not know me so well*
 
 That last line of the chorus is the line that makes the song. Until then, “Like a Stranger” is a typical girl-as-object-of-desire-cum-enigma song, but that last line flips the song on its head: its not the girl who’s the cipher, it’s the singer. Or rather, that’s how he wants to see himself. But his girl, she knows him all too well, and that freaks him out:
 
-*Well she claims she knows everything I do*  
-*And why I do everything*  
-*She says she knows all the meaning to every song I sing*  
-*She’s the wind that blows me inside out*  
-*On the streets at 2am*  
-*She burns me up and spits me out, and tells me who I am*
+> *Well she claims she knows everything I do*
+> *And why I do everything*
+> *She says she knows all the meaning to every song I sing*
+> *She’s the wind that blows me inside out*
+> *On the streets at 2am*
+> *She burns me up and spits me out, and tells me who I am*
 
 Bruce is writing about something most of us–all but the most self-aware perhaps–encounter in our early romantic relationships: that moment when you realize that your partner understands you more than you understand yourself. If knowledge is truly power, that’s a scare concept to come to grips with. it’s also a pretty great concept for a young songwriter: it’s safer to be a stranger than to be known.
 
 So we can forgive Bruce for his relative inartfulness with “Like a Stranger,” because he’d eventually get it right. In fact, not that long from here–just three years later, he’d write and release these lyrics on vinyl:
 
-*With her killer graces and her secret places*  
-*That no boy can fill with her hands on her hips*  
-*Oh and that smile on her lips*  
-*Because she knows that it kills me*  
-*With her soft French cream*  
-*Standing in that doorway like a dream*  
-*I wish she’d just leave me alone*
+> *With her killer graces and her secret places*
+> *That no boy can fill with her hands on her hips*
+> *Oh and that smile on her lips*
+> *Because she knows that it kills me*
+> *With her soft French cream*
+> *Standing in that doorway like a dream*
+> *I wish she’d just leave me alone*
 
 Compare those lines to the first verse of “Like a Stranger,” (in content, they’re basically the same) and you’ll see just how much Bruce grew as a songwriter in those three years.
 

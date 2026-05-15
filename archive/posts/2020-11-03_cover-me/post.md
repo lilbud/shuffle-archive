@@ -8,7 +8,7 @@ It was a one-time-only cover under unusual circumstances: Bruce had done his bes
 
 It only took Bruce two days to honor his promise. On September 16, Bruce’s posted his video to his YouTube channel and official web site with a simple note:
 
-*There is a song I planned to sing at our Buenos Aires concert that I learned from the wonderful Argentine singer, Mercedes Sosa. I wasn't quite prepared that evening so I'm glad to send this out now to all of our friends and fans in Argentina.*
+> *There is a song I planned to sing at our Buenos Aires concert that I learned from the wonderful Argentine singer, Mercedes Sosa. I wasn't quite prepared that evening so I'm glad to send this out now to all of our friends and fans in Argentina.*
 
 “Sólo Le Pido A Dios” translates to “I only ask of God,” and it was originally recorded by León Gieco (who once performed with Bruce at the final concert of the Human Rights Now! Tour in 1988) as the first song on his 1978 album, *IV LP*. Since then, it’s become Gieco’s standard closing song at his concerts.
 
@@ -16,32 +16,32 @@ It only took Bruce two days to honor his promise. On September 16, Bruce’s pos
 
 Gieco’s lyrics are simple but powerful, beseeching his God for the strength to face and fight the forces of injustice, war, and social ills.
 
-*I only ask God*
-*That I’m not indifferent to pain*
-*That dry death won't find me*
-*Empty and alone*
-*Without having done enough.*
+> *I only ask God*
+> *That I’m not indifferent to pain*
+> *That dry death won't find me*
+> *Empty and alone*
+> *Without having done enough.*
 
-*I only ask God*
-*That I’m not indifferent to war*
-*It's a big monster*
-*And it tramples hard*
-*On the poor innocence of people.*
+> *I only ask God*
+> *That I’m not indifferent to war*
+> *It's a big monster*
+> *And it tramples hard*
+> *On the poor innocence of people.*
 
-*I only ask God*
-*That I’m not indifferent to injustice*
-*That I will not be slapped on the other cheek*
-*After a claw has torn me in this manner.*
+> *I only ask God*
+> *That I’m not indifferent to injustice*
+> *That I will not be slapped on the other cheek*
+> *After a claw has torn me in this manner.*
 
-*I only ask God*
-*That I’m not indifferent to deceit*
-*If a traitor is mightier than a few*
-*Let those few not forget it easily.*
+> *I only ask God*
+> *That I’m not indifferent to deceit*
+> *If a traitor is mightier than a few*
+> *Let those few not forget it easily.*
 
-*I only ask of God*
-*That I am not indifferent to the future,*
-*Hopeless is he who has to go*
-*To live a different culture.*
+> *I only ask of God*
+> *That I am not indifferent to the future,*
+> *Hopeless is he who has to go*
+> *To live a different culture.*
 
 “Sólo Le Pido A Dios” has been covered by dozens of artists (including the late Mercedes Sosa, who taught it to Bruce) and translated into more than twenty-five languages worldwide.
 

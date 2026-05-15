@@ -12,17 +12,17 @@ In typical Springsteen fashion, it’s easy to get caught up in the riff and the
 
 But once you really listen to the lyrics, there’s no mistaking it–especially because there are only eight lines in the entire song. (I did say it was taut, didn’t I?)
 
-*There’s a river runs through this valley, cold and deep and black*
-*Coming like a tombstone shadow across my back*
+> *There’s a river runs through this valley, cold and deep and black*
+> *Coming like a tombstone shadow across my back*
 
-*Woke up last night shaking, shaking from a dream*
-*All I seen was smiling faces staring back at me*
+> *Woke up last night shaking, shaking from a dream*
+> *All I seen was smiling faces staring back at me*
 
-*Snakes crawling in the house, I’m stuck in muddy ground*
-*Tonight I’m gonna shed this skin ’cause water’s rising and I’m going down to*
+> *Snakes crawling in the house, I’m stuck in muddy ground*
+> *Tonight I’m gonna shed this skin ’cause water’s rising and I’m going down to*
 
-*Trouble river, six foot high and rising*
-*Trouble river, I can’t keep from crying*
+> *Trouble river, six foot high and rising*
+> *Trouble river, I can’t keep from crying*
 
 With a song this concise, Bruce doesn’t leave us a lot to dissect, but there are a few things worth noting:
 

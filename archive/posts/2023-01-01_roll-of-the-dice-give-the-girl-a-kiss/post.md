@@ -24,29 +24,29 @@ Musically and stylistically though, “Give the Girl a Kiss” owes more to cont
 
 But oh, those lyrics: pure pop perfection.
 
-*Well now I ain’t looking for excitement*
-*Baby that’s just a fact*
-*If you want to get to her heart*
-*You better let her know just where you’re at*
+> *Well now I ain’t looking for excitement*
+> *Baby that’s just a fact*
+> *If you want to get to her heart*
+> *You better let her know just where you’re at*
 
-*Well I say*
-*It ain’t written in the sky above*
-*Well no fortune-teller told me this*
-*You gotta tell her that you love her*
-*Tell her that you need her*
-*And give the girl a great big kiss*
+> *Well I say*
+> *It ain’t written in the sky above*
+> *Well no fortune-teller told me this*
+> *You gotta tell her that you love her*
+> *Tell her that you need her*
+> *And give the girl a great big kiss*
 
-*Now if you’re such a fool you think*
-*It don’t matter, baby, what you say*
-*Maybe you better tell her how you’re feeling*
-*It ain’t gonna happen any other way*
+> *Now if you’re such a fool you think*
+> *It don’t matter, baby, what you say*
+> *Maybe you better tell her how you’re feeling*
+> *It ain’t gonna happen any other way*
 
-*‘Cause darling it ain’t written in the sky above*
-*Well don’t you tell her who told me this*
-*You gotta tell her that you need her*
-*Tell her that you love her*
-*And give the girl a great big kiss*
-*Yeah you better give the girl a great big kiss*
+> *‘Cause darling it ain’t written in the sky above*
+> *Well don’t you tell her who told me this*
+> *You gotta tell her that you need her*
+> *Tell her that you love her*
+> *And give the girl a great big kiss*
+> *Yeah you better give the girl a great big kiss*
 
 The romantic pep talk is a recipe that never fails. It’s a girl group staple (and we know Bruce loves his girl groups), not only for The Shangri-Las but also notably for The Exciters.
 
@@ -62,30 +62,30 @@ But Bruce distilled the recipe down to its one essential ingredient: the kiss. A
 
 That is, until the bridge gives away the game:
 
-*Now baby all I wanna do*
-*Is darling make sweet love to you*
+> *Now baby all I wanna do*
+> *Is darling make sweet love to you*
 
 Aha! So the narrator isn’t giving a pep talk to someone else–he’s talking to himself. Suddenly, “Give the Girl a Kiss” becomes a song of courage, and that makes it all the more endearing.
 
 And speaking of endearing: can we just appreciate how much fun the E Street Band is having here? From Danny’s star turn to Bruce’s “Bosstime!” solo to the overdubbed Horns of Love, “Give the Girl a Kiss” features the E Street Band at their most winning.
 
-*Now I don’t know what the meaning is*
-*Why you wanna hide the things you feel and say*
-*But baby it’s just a natural fact*
-*Love was never meant to be that way*
+> *Now I don’t know what the meaning is*
+> *Why you wanna hide the things you feel and say*
+> *But baby it’s just a natural fact*
+> *Love was never meant to be that way*
 
-*And darlin’ it ain’t written in the sky above*
-*Well no fortune-teller told me this*
-*You gotta tell her that you need her*
-*Tell her that you love her*
-*And give the girl a great big kiss*
+> *And darlin’ it ain’t written in the sky above*
+> *Well no fortune-teller told me this*
+> *You gotta tell her that you need her*
+> *Tell her that you love her*
+> *And give the girl a great big kiss*
 
 Did I mention that they recorded this song during the dour [*Darkness on the Edge of Town*](https://estreetshuffle.com/index.php/2022/07/05/album-companion-darkness-on-the-edge-of-town/)sessions (except for the horns, which were added a couple of decades later)? Bruce may not remember “Give the Girl a Kiss” specifically, but he remembers using songs like it to relieve the band after long series of takes tackling darker material.
 
 But the best part of “Give the Girl a Kiss” is still to come:
 
-*Give the girl a great big, great big, great big*
-*Give the girl a great big kiss*
+> *Give the girl a great big, great big, great big*
+> *Give the girl a great big kiss*
 
 That killer coda: The Big Man bounces his basso “give the girl a great big, great big, great big” while the Boss soars above him. It’s one of my favorite E Street moments on record. And you can tell Bruce feels the magic, because that coda ends up accounting for 25% of the entire song.
 

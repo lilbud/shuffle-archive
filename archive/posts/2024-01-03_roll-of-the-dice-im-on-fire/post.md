@@ -40,27 +40,27 @@ So maybe it’s the lyrics. Unlike “[Hungry Heart](https://estreetshuffle.com/
 
 It’s almost silly to try and analyze “I’m on Fire,” so blatant are its lyrics.
 
-*Hey little girl is your daddy home*
-*Did he go away and leave you all alone*
-*I got a bad desire*
-*Oh I’m on fire*
+> *Hey little girl is your daddy home*
+> *Did he go away and leave you all alone*
+> *I got a bad desire*
+> *Oh I’m on fire*
 
-*Tell me now baby is he good to you*
-*Can he do to you the things that I do*
-*I can take you higher*
-*Oh I’m on fire*
+> *Tell me now baby is he good to you*
+> *Can he do to you the things that I do*
+> *I can take you higher*
+> *Oh I’m on fire*
 
-*Sometimes it’s like someone took a knife baby edgy and dull*
-*And cut a six-inch valley through the middle of my soul*
+> *Sometimes it’s like someone took a knife baby edgy and dull*
+> *And cut a six-inch valley through the middle of my soul*
 
-*At night I wake up with the sheets soaking wet*
-*And a freight train running through the middle of my head*
-*Only you can cool my desire*
-*Oh I’m on fire*
+> *At night I wake up with the sheets soaking wet*
+> *And a freight train running through the middle of my head*
+> *Only you can cool my desire*
+> *Oh I’m on fire*
 
 The entire song boils down to:
 
-*I’m completely obsessed with you, and you should really be with me because I’m way better in bed than that guy you’re with.*
+> *I’m completely obsessed with you, and you should really be with me because I’m way better in bed than that guy you’re with.*
 
 There’s really nothing else left to comment on, except perhaps for the “skull/soul” debate. (He sings the former on both vinyl and stage despite clearly writing the latter in every printed source, including his official web site to this day. This is a more substantial difference than the “sways/waves” thing). Or perhaps we could debate whether the sheets are soaking wet from sweat or some other nocturnal emission.
 

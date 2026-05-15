@@ -14,47 +14,47 @@ As for the lyrics, well, Bruce’s early love songs were rarely as layered and n
 
 So maybe we can cut him a little slack for writing an entire song about a girl who makes absolutely no demand of her boyfriend other than daily sex, and who apparently has no qualities worth singing about besides that.
 
-*Well love is a crazy thing*
-*For some woman, it might be a fancy car*
-*Caviar, or maybe a wedding ring*
-*But at night time my baby*
-*It ain’t none of these things*
-*She gives me love*
+> *Well love is a crazy thing*
+> *For some woman, it might be a fancy car*
+> *Caviar, or maybe a wedding ring*
+> *But at night time my baby*
+> *It ain’t none of these things*
+> *She gives me love*
 
-*And she’s not the kind of woman who would put you down*
-*She’s not the kind of woman who moves around*
-*She do anything that you want her to do*
-*Most of all she let you be like who you got to be*
-*Let you see whoever you got to see*
-*Let you do whatever you got to do*
-*???*
-*Because you know she gives you…*
+> *And she’s not the kind of woman who would put you down*
+> *She’s not the kind of woman who moves around*
+> *She do anything that you want her to do*
+> *Most of all she let you be like who you got to be*
+> *Let you see whoever you got to see*
+> *Let you do whatever you got to do*
+> *???*
+> *Because you know she gives you…*
 
-*Love, its a beautiful thing*
-*Yeah now woman, watch out cause she is a deadly game*
-*But no not my baby*
-*Oh she ain’t that kind*
-*She’s sweet, she’s wonderful, and she’s my girl*
-*I just love her all the time*
+> *Love, its a beautiful thing*
+> *Yeah now woman, watch out cause she is a deadly game*
+> *But no not my baby*
+> *Oh she ain’t that kind*
+> *She’s sweet, she’s wonderful, and she’s my girl*
+> *I just love her all the time*
 
-*She not the kind of woman that can ???*
-*She’s not the kind of woman who always wants to be your boss*
-*She do most anything that you want her to do*
-*Most of all she let you be like who you got to be*
-*Let you see whoever you got to see*
-*Let you do whatever you got to do*
-*???*
+> *She not the kind of woman that can ???*
+> *She’s not the kind of woman who always wants to be your boss*
+> *She do most anything that you want her to do*
+> *Most of all she let you be like who you got to be*
+> *Let you see whoever you got to see*
+> *Let you do whatever you got to do*
+> *???*
 
-*Whoa its a crazy thing*
-*Some woman, might be a fancy car*
-*Cadillac or maybe caviar, maybe she wants a wedding ring*
-*But oh not my baby, she don’t want none of these things*
-*She only wants my love*
-*Oh take it easy, you gotta give her love*
-*I’m saying love, you gotta give her love*
-*Most she wants is love*
-*She wants love*
-*Don’t you know she wants love*
+> *Whoa its a crazy thing*
+> *Some woman, might be a fancy car*
+> *Cadillac or maybe caviar, maybe she wants a wedding ring*
+> *But oh not my baby, she don’t want none of these things*
+> *She only wants my love*
+> *Oh take it easy, you gotta give her love*
+> *I’m saying love, you gotta give her love*
+> *Most she wants is love*
+> *She wants love*
+> *Don’t you know she wants love*
 
 “Love Is a Crazy Thing” isn’t one of Bruce’s stronger songs from that period, but it was a signpost pointing to greater things to come.
 

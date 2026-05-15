@@ -38,7 +38,7 @@ After we got the solos done, it was time for the vamping during the chorus. It w
 
 ![](../../assets/2021/01/clyde.jpg)
 
-*(That’s Clyde in between Willie Nelson and Bob Dylan)*
+> *(That’s Clyde in between Willie Nelson and Bob Dylan)*
 
 Dylan finished and it was now Bruce's turn. Dylan and Springsteen, those were the two I've always listened to more than anyone else. Now I was working with them. Bruce stepped up to the mic. From where I was standing in the booth, Bruce was on the left, the mic was on the right. Positioned perfectly between them was Dylan, who stuck around to watch Bruce. Quincy Jones explained to Bruce what he wanted and we rolled tape. Bruce nailed it. When he was done, he said, "Something like that?" Quincy Jones got on the talkback and said, "*Exactly* like that!"
 

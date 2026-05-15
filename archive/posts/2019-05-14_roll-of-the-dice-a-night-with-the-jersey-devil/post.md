@@ -28,43 +28,43 @@ Now that we’re versed in the history of the Jersey Devil, we can see that the 
 
 Bruce seems lost in thought (and a really poor lip-syncher) as he tells his tale:
 
-*Hear me now!*
-*I was born 13th child, ‘neath the 13th moon*
-*Spit out hungry and born anew*
-*Daddy drag me to the river, tie me in rocks*
-*Throw me in where it’s deep and wide*
-*I go down, I don’t die*
-*Hole in the river bottom, I crawl through*
-*Come back kill six brothers and sisters, kill Papa too*
-*Sway down Mama, sway down low*
-*They gonna know me wherever I go*
+> *Hear me now!*
+> *I was born 13th child, ‘neath the 13th moon*
+> *Spit out hungry and born anew*
+> *Daddy drag me to the river, tie me in rocks*
+> *Throw me in where it’s deep and wide*
+> *I go down, I don’t die*
+> *Hole in the river bottom, I crawl through*
+> *Come back kill six brothers and sisters, kill Papa too*
+> *Sway down Mama, sway down low*
+> *They gonna know me wherever I go*
 
-*Into my bed with her kerosene my mama creep*
-*Set my flesh to burning, whilst I sleep*
-*I burn, burn, burn, till my soul burn black*
-*Black rains fall, I come back, I come back*
+> *Into my bed with her kerosene my mama creep*
+> *Set my flesh to burning, whilst I sleep*
+> *I burn, burn, burn, till my soul burn black*
+> *Black rains fall, I come back, I come back*
 
 Creepy, yes. But basically a first-person Jersey Devil origin story with a Muddy Waters blues riff and the bullet microphone that Bruce grew so fond of during the Devils & Dust Tour (almost certainly a coincidence, but who knows).
 
 But then the song takes a sudden turn: Bruce’s voice is sinister now (and his lip-synching much better); his eyes lock onto ours as if he’s finally registered our presence. He’s done retelling history–now he’s making a promise directly to us:
 
-*Get down Mama, get down low*
-*They gonna know me wherever I go  
+> *Get down Mama, get down low*
+> *They gonna know me wherever I go  
 16 witches cast 16 spells*
-*Make me guitar outta skin and human skull*
-*Sing you a song like the wind in the sandy loam*
-*Bring you baby out your happy home*
+> *Make me guitar outta skin and human skull*
+> *Sing you a song like the wind in the sandy loam*
+> *Bring you baby out your happy home*
 
 And this is where we realize that something strange has happened, because the myth of the Jersey Devil has just merged with the legend of Bruce Springsteen. They’re now one and the same. Fiendish demon or rock star–is there a difference? Perhaps not in the mind of the singer, he seems to be saying. At least not tonight.
 
-*Ram’s head, forked tail, clove hoof, love’s my trail*
-*I sup on your body, sip on your blood like wine*
-*Out world theirs, this world mine*
-*So kiss me baby till it hurts*
-*God lost in heaven, we lost on earth*
-*Sway down Mama, sway down low*
-*They gonna know me wherever I go*
-*Wherever I go, wherever I go*
+> *Ram’s head, forked tail, clove hoof, love’s my trail*
+> *I sup on your body, sip on your blood like wine*
+> *Out world theirs, this world mine*
+> *So kiss me baby till it hurts*
+> *God lost in heaven, we lost on earth*
+> *Sway down Mama, sway down low*
+> *They gonna know me wherever I go*
+> *Wherever I go, wherever I go*
 
 And now comes the punchline: Bruce seamlessly segues into the first verse and chorus from Gene Vincent’s 1958 single, “Baby Blue,” a song with basically the same riff but lyrically the polar opposite of “A Night With the Jersey Devil.” (So much of the song is used, in fact, that Bruce credits Gene Vincent and Robert Jones as his co-songwriters.)
 
